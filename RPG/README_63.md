@@ -1,3 +1,81 @@
+###  Публикация: 1452262   (37731) от 10.11.2024
+
+The Life and Suffering of Sir Brante (2021) [Ru/En] (1.05.1) License GOG [Digital Content Bundle]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Life and Suffering of Sir Brante – это нарративная ролевая игра на страницах дневника главного героя. Вас ждет история о безжалостном мире, жестоко карающем за нарушение его законов, и о человеке, бросившем ему вызов. Пройдите путь героя от рождения до самой смерти и создайте личность, способную изменить свою судьбу, правда, заплатив за это надлежащую цену.Тип издания: LicenseРазработчик: SeverЖанр: Ролевая игра, Симулятор, ДрaмаЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD509499F53F839A47E7644CD75F44C9B33A1568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759761   (37692) от 10.11.2024
+
+MasterQuest Fantasy (2024) [En] (1.0.5b) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+MasterQuest Fantasy - это увлекательная ролевая игра, которая погружает игроков в атмосферу классических настольных RPG, созданных в 1970-х и 1980-х годах. Игра воссоздает ностальгическое очарование тех времён, позволяя игрокам окунуться в фантастический мир, где царит воображение и в любой момент может произойти что-то неожиданное. Благодаря процедурно сгенерированному (   Читать дальше...   )Тип издания: SceneРазработчик: RubilaxeЖанр: Инди, Ролевые игрыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF220DCDE6BC33D3E9328CD02E2DD973BD4E0E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759751   (37672) от 10.11.2024
+
+Dungeon Defenders (2011) [Multi] (9.6.1/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Dungeon Defenders – интересная игра, которая сочетает в себе огромное количество разнообразных жанров: экшен, стратегия, ролка, РПГ. Данная игра изначально рассчитана на многопользовательское подключение. Перед самым началом, нам предстоит выбрать наиболее интересный класс персонажа, его стиль экипировки и цвет магического кристала. Этот предмет является самым жизненно (   Читать дальше...   )Тип издания: SceneРазработчик: Chromatic GamesЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB40849807117F3AEA8622AA96AE96CC150DB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759938   (37643) от 11.11.2024
 
 Dustland Delivery (2024) [Multi] (1.20.757) Repack Other s
@@ -6,7 +84,7 @@ Dustland Delivery (2024) [Multi] (1.20.757) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Deathbound (2024) [Ru/Multi] (1.2.0gf) License GOG [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Dawn of the Ashen Queen (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Dragon's Dogma 2 (2024) [Ru/Multi] (1.0.0.1) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Beloved Rapture (2024) [En] (1.1.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Patch 5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Vaporum (2017) [Ru/Multi] (Patch 15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Deathbound (2024) [Ru/Multi] (1.1.8f1) Scene Tenoke [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05/dlc) Repack dixen18 [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Albatroz (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Bug Fables: The Everlasting Sapling (2019) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.11.21.01) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BD264AB7890820292417835E88A0E1C938F42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762596   (36061) от 26.11.2024
-
-Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта игра - наше второе творение, включающее в себя основные характеристики игр серий "Metroid" и "Castlevania", основой которых являются исследования и поиски. По сравнению с предыдущей версией, данная игра будет обладать более богатым сюжетом, исследовательским контентом, многообразием монстров, более разнообразной и индивидуализированной системой (   Читать дальше...   )Тип издания: RepackРазработчик: IceSitruunaЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игрыЯзык озвучки: Японский, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF979CA2E109E4B530D05EA6AEABA88EAB498EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748931   (35796) от 29.11.2024
-
-Hive Jump 2: Survivors (2024) [Ru/Multi] (1.1.1853) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hive Jump 2: Survivors - научно-фантастическая ролевая адвенчура с элементами экшена. В этом адреналиновом продолжении нашумевшего экшен-платформера вы окажетесь единственным выжившим из своего отряда, застрявшим на чужой планете. Вооружившись только своим оружием и надежным реактивным ранцем, вы отправляетесь на миссию мести. Тут вам предстоит сразиться с неумолимыми (   Читать дальше...   )Тип издания: LicenseРазработчик: Graphite Lab, Joystick, Sonamu GamesЖанр: Экшены, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E0752EF3B134A1D19C812084C4FC4E1721E05E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763014   (35771) от 29.11.2024
-
-Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сеттинг стимпанка в Sovereign Syndicate показывает историю, происходящую на улочках викторианского Лондона. Геймерам предстоит погрузиться в ролевую адвенчуру, где необходимо управлять персонажем, передвигаясь по изометрической карте с видом сверху. Игроки на старте будут выбирать одного персонажа, за которого получится пройти сюжетную кампанию. Приходится прокачивать (   Читать дальше...   )Тип издания: RepackРазработчик: Crimson Herring StudiosЖанр: Ролевые игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965627A24EE2973840BDC697CBCEFBD1740235E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

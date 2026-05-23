@@ -1,3 +1,90 @@
+###  Публикация: 1778655   (70809) от 09.02.2025
+
+Squid - Cowards (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Krautrock, Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1. Crispy Skin (06:19)
+2. Building 650 (03:51)
+3. Blood on the Boulders (05:46)
+4. Fieldworks I (02:23)(   Читать дальше...   )Жанр: Indie Rock, Krautrock, Post-PunkПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3565F68CEA0700720CF649693FDDDF219D39D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778647   (70804) от 09.02.2025
+
+Biig Piig - 11:11 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 4AM
+02 Ponytail
+03 Cynical
+04 Favourite Girl(   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332285D177EC2A17D98D26180082EA87C96262A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778657   (70803) от 09.02.2025
+
+Inhaler - Open Wide (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Eddie In The Darkness (00:03:35)
+✧ 02 - Billy (Yeah Yeah Yeah) (00:04:05)
+✧ 03 - Your House (00:03:47)
+✧ 04 - A Question of You (00:03:42)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A43A46E05BB33BE0EE63A28D6D1A2F63055FCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778894   (70793) от 10.02.2025
 
 Paul Anka - Paul Anka (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Pop>
@@ -6,7 +93,7 @@ Paul Anka - Paul Anka (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +122,7 @@ The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Frank Sinatra - Sinatra Sings...Of Love And Things (2025) Remastered [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +180,7 @@ LØLØ (LOLO) - falling for robots & wishing i was one (2024) Deluxe Edition, 20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Miss Tess - Cher Reve (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Louis Philippson - Exposition (2025) (2CD) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Carmen Consoli - Terra Ca Nun Senti (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +296,7 @@ Dynazty - Game of Faces (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +325,7 @@ Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +355,7 @@ Ginger Evil - The Way It Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +384,7 @@ Blank & Jones & Marc-George - Rediscovered Works (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +413,7 @@ Jazzystics - It's a Mistake (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -355,7 +442,7 @@ VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -384,7 +471,7 @@ The Chordettes - 2015 - The Greatest Hits (2025) Remaster, 2025, ZOROTY[FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -415,7 +502,7 @@ The Wombats - Oh! The Ocean (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -444,7 +531,7 @@ Moonchild Sanelly - Full Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -473,7 +560,7 @@ Role Model - Kansas Anymore (2024) The Longest Goodbye, 2025, Interscope Records
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +589,7 @@ Robert Ascroft - Echo Still Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +618,7 @@ Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +646,7 @@ Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -587,7 +674,7 @@ Atlas Ashes - New World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -616,7 +703,7 @@ Bishop Gunn - Live With Bishop Gunn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -645,7 +732,7 @@ Brothers Harvest - The True Vine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -659,93 +746,6 @@ Brothers Harvest - The True Vine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFCEDBF6F57D5A41173A1DC85D40ED8F2B50BF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780650   (70374) от 19.02.2025
-
-New Translations - Vacation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post Hang [00:03:28]
-02. Rat People [00:03:57]
-03. Vacation [00:04:52]
-04. TV at Home [00:03:49](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4978F674BDB3EF9326C554D95C1B659DA713787D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780615   (70370) от 19.02.2025
-
-Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ritual был сформирован в 1992 году в Стокгольме, Швеция, барабанщиком Йоханом Нордгреном, басистом Фредриком Линдквистом, гитаристом Патриком Ландстром и клавишником Джона Гамблом.1995 - Ritual
-1999 - Superb Birth
-2003 - Think Like A Mountain
-2007 - The Hemulic Voluntary BandЖанр: Progressive RockПродолжительность: 04:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39709344AA50CB2FE2B26C5FCB2CF9DE66F5DF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780739   (70369) от 19.02.2025
-
-Chris James - Cj (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  New Old Guitar (3:09)
-02.  String Me Along (3:37)
-03.  Shred Me a Blues Song (4:00)
-04.  She Left With You (3:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA82006AEF681F5462914882A49E1D5D27437146
 ```
 
 https://mybot314.ru/tekegram_catalog/

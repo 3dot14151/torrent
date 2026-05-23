@@ -1,3 +1,56 @@
+###  Публикация: 1396810   (744072) от 17.07.2020
+
+Overman King Gainer | Король Гэйнер [2002, TV, 26 из 26] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После крупного планетного катаклизма человечество оставило измученную землю и укрылось под куполами в Домеполисах. Власть захватила международная военная организация, управляющая городами с помощью полиции. Но возникло движение «Исход», призывающее людей вернуть себе свободу и отправиться на поиски лучшей земли – загадочной «Японии».
+Главный герой, старшеклассник (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Томино ЁсиюкиПеревод: Tempest (эп. 1-7), Il Palazzo-sama (эп. 8-26)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3BF6D5FEBB0912AA942429B2CE034A5DB38758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396967   (742731) от 18.07.2020
+
+Eldlive | Эль Драйв [2017, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+У вечно бормочущего Тюты Коконосэ не очень много друзей. Он постоянно ведет беседы с голосами внутри своей головы. Мало кто знает, что это вовсе не означает, что Тюта сумасшедший. Просто внутри его тела живет пришелец.Производство: Studio Pierrot / studioぴえろЖанр: приключения, фантастикаРежиссер: Фурута ДзёдзиПеревод: BadNewsZiggy, KronosHunter, AngaraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FBEAFDD0FE8FD99E41C35C088AC5832386E807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396953   (742728) от 18.07.2020
 
 Circlet Princess | Диадема принцессы [2019, TV, 12 из 12] BDRip 1080p 10-bit raw
@@ -6,7 +59,7 @@ Circlet Princess | Диадема принцессы [2019, TV, 12 из 12] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ Centaur no Nayami | A Centaur's Life | Хлопоты кентавра | Бес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ Akiba's Trip The Animation | Падение Акибы [2017, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ Keppeki Danshi! Aoyama-kun | Clean Freak! Aoyama-kun | Чистюля Аояма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ Rizelmine | Rizerumain | Моя Ризельмина [2002, TV, 24 из 24] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +215,7 @@ Onihei | Онихей: Криминальные истории периода Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +242,7 @@ Relife | Повторная жизнь [2016, TV, 17 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +268,7 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +294,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +320,7 @@ Free! / Free! Iwatobi Swim Club / Вольный! [2013, TV, 12 + 3sp] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +346,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки Буранки [2016, TV, 12 из 12] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +372,7 @@ Courtesy of Zettai Karen Children: The Unlimited - Hyoubu Kyousuke | The Unlimit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +400,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +426,7 @@ Shinreigari | Shinrei Kari | Ghost Hound | Охота на призраков [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +454,7 @@ Kyoukai no Rinne | Rin-ne | Риннэ: Меж двух миров [2015, TV, 75
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +480,7 @@ Bubuki Buranki: Hoshi no Kyojin | BBK/BRNK: The Gentle Giants of the Galaxy | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +506,7 @@ Sakurada Reset | Sagrada Reset | Переустановка Сакурады [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +532,7 @@ Seisen Cerberus: Ryuukoku no Fatalite | Святой воин Цербер: Бе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +558,7 @@ World Trigger | Импульс мира [2014, TV, 73 из 73] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +584,7 @@ Action Heroine Cheer Fruits | Фруктовые героини [2017, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +610,7 @@ Ookiku Furikabutte: Natsu no Taikai-hen | Замахнись сильнее: Л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +636,7 @@ Handa-kun | Ханда [2016, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +662,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,58 +673,6 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5DE2826D6DDD9BC4DE277A7E72E379882F6C643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399376   (733430) от 31.07.2020
-
-Maison Ikkoku: Bangaihen Ikkokujima Nanpa Shimatsuki | Maison Ikkoku: Deserted Island | Доходный дом Иккоку: Кораблекрушение у необитаемого острова [1991, OVA, 1 из 1] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время жаркого полудня Ёцуя и Ичиносэ предаются воспоминаниям о том, как однажды все жильцы доходного дома Иккоку отправились в круиз на новенькой лодке Митаки. Но вечеринка, устроенная на борту, заканчивается отнюдь не всеобщим похмельем - в результате кораблекрушения веселая компания оказывается на необитаемом острове, где вспыхивает очередное сражение Годая (   Читать дальше...   )Производство: Kitty Films / キティ・フィルムЖанр: комедия, романтика, повседневностьРежиссер: Ямадзаки КадзуоПеревод: AtlantisЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 1 эп. на 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379FEE796446DF10624278E670DAC51B61FCFD6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399374   (733387) от 31.07.2020
-
-Maison Ikkoku: Shiki Utsuriyuku Kisetsu no Naka de | Maison Ikkoku: Through the Passing of the Seasons | Доходный дом Иккоку: Из сезона в сезон [1988, OVA, 1 из 1] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекап сериала, фокусирующийся на отношениях Годая и Кёко.Производство: Kitty Films / キティ・フィルムЖанр: романтика, комедия, повседневностьПеревод: Near_Dark, Nimring, snipЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 1 эп. на 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B48E274BA77ECCFAF54250DD0FBB5E4F76B0CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

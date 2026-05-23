@@ -1,3 +1,90 @@
+###  Публикация: 1746839   (104834) от 02.09.2024
+
+Enslaved - Studio Albums (19 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Black/Viking Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Enslaved — норвежская метал-группа, в первые годы игравшая блэк-метал, а позднее эволюционировавшая в сторону викинг-метала с элементами прогрессива.1993 - Hordanes Land
+1994 - Frost
+1994 - Vikingligr Veldi
+1997 - EldЖанр: Progressive Black/Viking MetalПродолжительность: 15:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AB8827AA09E7DC99F5D02F2F6CB35B16FDAA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746940   (104829) от 02.09.2024
+
+T. Graham Brown - From Memphis to Muscle Shoals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. It Tears Me Up (2:57)
+02. Take Me to the River (4:04)
+03. You Better Move On (2:45)
+04. Do Right Woman, Do Right Man (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2FAA6211BF8C3DD9335500C8708FC9A8A5C53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746929   (104826) от 02.09.2024
+
+Jerry Phillips - For The Universe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Number One Girl (2:37)
+02. Treat Her Like She Was Mine (3:19)
+03. She Let Me Slip Right Through Her Fingers (3:51)
+04. Black Widow Eyes (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE21549FD98B3B58800D6445B9EE18B21B02EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746870   (104825) от 02.09.2024
 
 Peter Ndlala - Beira (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +93,7 @@ Peter Ndlala - Beira (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +122,7 @@ TMS Underscores - Cool Like That Jazz! (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Steve Smith and The Sneakers - Hopeless Troubadour (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Taj Farrant - Chapter One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Tim Armacost feat. Tom Harrell, Gary Smulyan, John Patitucci & Al Foster - Somet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Steve Smith and The Sneakers - Hoodoo Man (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Zaphica - Zaphica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +296,7 @@ Katrina SoulSinger - Category 5 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +325,7 @@ Steve Smith and The Sneakers - The Glory Road (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +354,7 @@ Roberta Gambarini & Hank Jones - You Are There (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +383,7 @@ Los Bitchos - Talkie Talkie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +412,7 @@ Soft Jazz Mood, Jazz Guitar Music Zone, Old School Funk Squad - Highway Jazz: Hi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +441,7 @@ Relaxing Piano Man - On the Road Again (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +470,7 @@ Shane Allessio - Tripp City (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +499,7 @@ Piper and The Hard Times - Revelation (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +528,7 @@ Oceano - Living Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +557,7 @@ Palaye Royale - Death or Glory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +586,7 @@ Bonsai Kitten - Let It Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +615,7 @@ Body Meat - Starchris (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +644,7 @@ Cat Stevens - Foreigner (1973) Remastered, 2024, UMC [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +673,7 @@ Egali Zunno - Human Foundation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +702,7 @@ Hozier - Unreal Unearth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,7 +731,7 @@ Spitfyre - Fall Of Empires (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -658,93 +745,6 @@ Spitfyre - Fall Of Empires (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49D20433C25A29CEE81AB83F08456B8F9EF665B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747099   (104748) от 04.09.2024
-
-Joe Calabro - The Storm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Fire (3:30)
-02. Into the Fire (Instrumental) (3:30)
-03. No One Knows (3:31)
-04. No One Knows (Instrumental) (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B65E433DE271CF2562310C7FAC22A3719DA2A538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747093   (104747) от 04.09.2024
-
-Fullria - Aqueles Dias (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. É tarde (3:08)
-02. Realidade distorcida (2:46)
-03. Tudo errado (3:06)
-04. Aqueles dias (2:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA05CFF71628B047A43A0A14A01DC3ED58ED8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747110   (104744) от 04.09.2024
-
-Wheel - Hip Eponymous (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let You Down (4:03)
-02. Bourbon Street (2:59)
-03. Gotten in My Head Again (4:23)
-04. Mom Has Your Boy Gone Crazy (3:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A621DFC1153393DB3CE988D6CDE1040F656A349
 ```
 
 https://mybot314.ru/tekegram_catalog/

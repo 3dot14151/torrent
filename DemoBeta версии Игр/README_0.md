@@ -1,3 +1,81 @@
+###  Публикация: 1854184   (1057076) от 16.02.2026
+
+Warhammer 40,000 Dark Heresy (2026) [Ru/Multi] (0.0.3.507) Repack Let'sРlay [Playtest]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Вы - инквизитор, а ваша основная цель: защитить Империум любыми необходимыми средствами. Будь то от гнусных ксеносов, еретиков-предателей или ужасных мутантов. Станьте проводником воли Императора там, где надежды не было десятилетиями, исследуйте тайны сводящей с ума Тиран-Звезды и преодолейте самые ужасные испытания, которые готовит вам Ноктис Этерна.Тип издания: RepackРазработчик: Owlcat GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205CD574182AB1AEAE0DEA22159D69022440C95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852434   (1056039) от 07.02.2026
+
+Aztecs: The Last Sun (2025) [Ru/Multi] (0.6.0/dlc) License GOG [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В Aztecs The Last Sun игрок становится правителем Теночтитлан, великого государства, способного завоевать весь мир. На пользователя полагается множество задач, как на руководителя собственной державы. Ему предстоит развивать город, повышать военную мощь и улучшать качество жизни горожан. Взяв управление над ацтеками, потребуется пройти через три великих века, господствовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Play2Chill S.A.Жанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55F4A8069C5EE6DEF6A32CC106EC44C762DEF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851754   (1055472) от 03.02.2026
+
+Being and Becoming (2026) [Ru/Multi] (2023.2.20f1) Repack Necros [Playtest]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Being & Becoming — это атмосферная метроидвания об умирающем королевстве, которое держится лишь на совместном сновидении тысяч несостоявшихся мучеников. Пророчество Слова сбывается, и сама судьба обращается против вас. Перепишите свою роль в Слове, чтобы вырваться из чудовищного...Тип издания: RepackРазработчик: IchthysЖанр: Экшены, Инди, МетроидванияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B053DD711D8933CE53EC7D5577C4263A06516EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851012   (1054859) от 31.01.2026
 
 Vampires: Bloodlord Rising (2026) [Ru/Multi] (1.0.1.19431/dlc) License GOG [Early Access]
@@ -6,7 +84,7 @@ Vampires: Bloodlord Rising (2026) [Ru/Multi] (1.0.1.19431/dlc) License GOG [Earl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Hytale (2026) [Ru/En] (14.01.2026) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Hytale (2026) [Ru/En] (14.01.2026) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (0.8.1.6) Repack Let'
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ StarRupture (2026) [Ru/Multi] (0.1.1 112941-S/dlc) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ LORT (2026) [Ru/Multi] (0.5.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ My Winter Car (2025) [Ru/Multi] (build 21360632) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Overthrown (2024) [Ru/Multi] (b19669165) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ DDoD (2026) [Multi] (СL-42080) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Stationeers (2017) [Ru/Multi] (0.2.5919.26060) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Typhon: Bot vs Bot (2025) [En] (0.1.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +422,7 @@ DeadPoly (2022) [En] (0.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +448,7 @@ He is Coming (2025) [Ru/Multi] (0.8.33) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Star Birds (2025) [Ru/Multi] (0.1.1b) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Project Zomboid (2013) [Ru/Multi] (42.13.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Whiskerwood (2025) [Ru/Multi] (0.6.157.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.62EA) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Call to Arms: Panzer Elite (2025) [En] (0.04.02/dlc) Repack Let'sРlay [Supporte
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Death Must Die (2023) [Ru/En] (0.8.5) Repack Necros [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +630,7 @@ DYSMANTLE (2020) [Ru] (0.6.5.15) Unofficial KASaLEX [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Sons Of The Forest (2023) [Ru/Multi] (32361) Repack Chovka [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Sons Of The Forest (2023) [Ru/Multi] (32361) Repack Chovka [Early Access]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA7BBA0995115E51933432F51D3FE218F76EFE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444960   (1031740) от 21.03.2023
-
-My Summer Car (2016) [En] (22.02.23) Repack Nouhelgod [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031740.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Summer Car - единственный в своём роде симулятор вождения, сборки, починки, тюнинга автомобиля И мгновенной смерти. Вы начинаете игру с сотнями деталей авто, и собираете как саму машину так и её двигатель вручную. Однако Вам необходимо следить и ухаживать не только за своим транспортом, но и собой - сосиски, пиво и здоровый сон прекрасно с этим справляются.Тип издания: RepackРазработчик: Amistech GamesЖанр: Инди, Гонки, СимуляторыЯзык озвучки: ФинскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA366FE5C9D56052634C40DCFA03F57299A16C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449313   (1029844) от 21.02.2021
-
-Valheim (2021) [Ru/Multi] (0.145.6) Repack xatab [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вальхейм — это игра, в которой вам предстоит исследовать огромный фэнтезийный мир, пропитанный скандинавской мифологией и культурой викингов. Ваше приключение начнется в самом сердце Вальхейма, месте довольно спокойном. Но берегитесь, ведь чем дальше вы будете продвигаться, тем опаснее будет становиться мир вокруг. К счастью, по пути вас будут ждать не только опасности (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: RPG, Action, AdventureЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237964D5EEB4C174F2B04FFDCE9A963FFA75288E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416995   (1029830) от 21.02.2021
-
-Medieval Dynasty (2020) [Ru/Multi] (0.3.1.4) Repack xatab [Early Access]
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раннее Средневековье в Европе. Миром правят дворяне и церковь. Разные страны торгуют между собой, и жажда прибыли порождает зависть, недоверие и алчность. Границы государств, охваченных войной, то и дело меняются. В игре Medieval Dynasty вам предстоит примерить на себя роль юноши, который сбежал от войны и хочет взять жизнь в свои руки. Изначально вы одиноки, неопытны (   Читать дальше...   )Тип издания: RepackРазработчик: Render CubeЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1F3A2E6970B4BEE2973B78CD391C63CA3EC0BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

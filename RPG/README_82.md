@@ -1,3 +1,81 @@
+###  Публикация: 1772495   (9265) от 05.08.2025
+
+The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Игра The Last Flame представляет собой бесконечную игру-"рогалик" с функцией автоматического ведения боя, которая строится на принципах создания уникальных билдов, реализации неповторимой стратегии и принятии верных решений. В ходе каждого игрового раунда вам предстоит создавать неповторимые билды, чтобы покорить новые высоты и перейти на новые уровни, (   Читать дальше...   )Тип издания: RepackРазработчик: HotloopЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6C69334CD5467600A42A3BAFB0E54D0FB68EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810283   (9250) от 05.08.2025
+
+Captain Bones: A Pirates Journey / Пиратское Путешествие (2021) [Ru/Multi] (1.0.3) Repack AIexandro
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Captain Bones - это приключенческий боевик действие которого происходит в открытом пиратском мире. Вы должны обладать навыками выживания, чтобы участвовать в корабельных сражениях и охоте за сокровищами со своей командой. Морское приключение, события которого разворачиваются в открытом океане и на безлюдном острове. Требуется освоить навыки выживания, чтобы смастерить (   Читать дальше...   )Тип издания: RepackРазработчик: Saygın KarahanЖанр: Экшены, Приключение, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F760A31A1F85F5A5DC9F7FA58FE427AAF8FBDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765040   (9186) от 06.08.2025
+
+Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.229/dlc) Repack Let'sРlay [Voidfarer Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Rogue Trader – это изометрическая ролевая игра, сделанная по мотивам культовой вселенной Боевого Молота. Начните свое путешествие в первой cRPG в мрачной вселенной 41-го тысячелетия. Станьте Вольным Торговцем - наследником древней династии дерзких каперов, правящих собственной торговой империей и исследующих границы Империума с благословения Бога-Императора.Тип издания: RepackРазработчик: Owlcat GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99009FA0A92CFD4B44B29534B0B394342171076D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796775   (9165) от 06.08.2025
 
 God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
@@ -6,7 +84,7 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.1f/dlc) Repack Let'sРlay [Early Access
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack seleZen [Digital Premium Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Koboo: The Tree Spirit (2024) [En] (1.02) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (29915/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Slormancer (2021) [Multi] (1.0.2c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Chained Echoes (2022) [Multi] (1.344/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Darkest Dungeon (2016) [Ru/Multi] (26186a/dlc) License GOG [Soundtrack Editon]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Vagrus: The Riven Realms (2021) [En] (1.2100730/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416A6A58676340F380894AA28F96677E69D5EE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812494   (7736) от 15.08.2025
-
-Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrapnaut - это командно-административная игра на выживание по строительству базы с элементами стимпанка. Исследуйте открытый мир с различными биомами, следите за уровнем кислорода, управляйте фермами, генерируйте электричество, постройте собственный дом.Тип издания: LicenseРазработчик: SpiffyBitЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A723F167339B6EE7C1F52FB98685319EC6F59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184592   (7604) от 16.08.2025
-
-Barony (2015) [En] (4.3.2-150625-hf2/dlc) License GOG [Blessed Addition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Barony повествует об обретшем вечное существование в посмертии чародее по имени барон Геркс, еще при жизни терроризировавшем население крошечного городка под названием Гамлет, а теперь обосновавшегося в огромных подземных чертогах, прозванных Бастионом Дьявола. Вы – герой одиночка или член отряда авантюристов, которым предстоит спуститься в обиталище бессмертного (   Читать дальше...   )Тип издания: LicenseРазработчик: Turning Wheel LLCЖанр: Ролевая игра, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6D81344E4B13F3EE61A09F2EB79A640E53AC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775326   (7589) от 16.08.2025
-
-The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7589.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Edge of Allegoria - это пошаговая ролевая адвенчура, которая приглашает игроков погрузиться в причудливый, но странный мир, где опасность таится за каждым углом и не все так, как кажется. В игре, созданной на фоне знакомых и странных пейзажей, сочетаются визуальные эффекты в стиле старой школы Game Boy и совсем не детский тон. Здесь искатели приключений берут (   Читать дальше...   )Тип издания: LicenseРазработчик: Button Factory GamesЖанр: Инди, Ролевые игрыЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BE1CAE0631FF572A97E455B4B3C4D7F38067DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

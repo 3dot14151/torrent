@@ -6,7 +6,7 @@ Keep It 2.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +32,7 @@ Musify for Mac 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +58,7 @@ JetBrains DataGrip for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wondershare PDFelement Pro OCR 10.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ableton Live Suite 11 v.11.3.21 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +136,7 @@ OmniGraffle Pro 7.22.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tower Pro 10 v.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +189,7 @@ Text Workflow 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +216,7 @@ uDock 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +242,7 @@ Fork 2.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +268,7 @@ Notebooks – Write and Organize 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Premiere Pro 2024 for Mac v.24.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +372,7 @@ iA Writer 7.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +398,7 @@ PDF Expert 3.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +425,7 @@ AirMail Pro 5 v.5.6.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +452,7 @@ Navicat for SQL Server on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +478,7 @@ Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +504,7 @@ Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +530,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +556,7 @@ CrossOver 24.0-b1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +583,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +610,7 @@ Noir – Dark Mode for Safari 2024.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -638,7 +638,7 @@ EdgeView 4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -664,7 +664,7 @@ Boxy SVG 4.23.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

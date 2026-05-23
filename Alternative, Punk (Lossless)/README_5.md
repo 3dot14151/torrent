@@ -1,3 +1,32 @@
+###  Публикация: 1356010   (979123) от 30.01.2020
+
+Destroyer - Have We Met (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Tide (06:09)
+02. Kinda Dark (03:25)
+03. It Just Doesn’t Happen (05:01)
+04. The Television Music Supervisor (04:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C4F9E99CD390557E0234A9C3E6EA0EA721C024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974628   (975798) от 12.01.2016
 
 Diamanda Galas - Guilty Guilty Guilty (2008) [FLAC|Lossless|image + .cue] < Piano Blues, Avantgarde>
@@ -6,7 +35,7 @@ Diamanda Galas - Guilty Guilty Guilty (2008) [FLAC|Lossless|image + .cue] < Pian
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Reverend and The Makers - Mirrors (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +93,7 @@ Diamanda Galas - La serpenta canta (2003) [FLAC|Lossless|image + .cue] <Piano Bl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Madness - Divine Madness (1992) [FLAC|Lossless|image + .cue] <Rock, Ska Revival,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +151,7 @@ Bombay Bicycle Club - Everything Else Has Gone Wrong (2020) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +180,7 @@ Mando Diao - 11 альбомов (2002 - 2019) [FLAC|Lossless|tracks + .cue]<Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +209,7 @@ Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +238,7 @@ Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +267,7 @@ Green Day - Father of All Motherfuckers (2020) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Dead Weather - Dodge & Burn (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +325,7 @@ Arborist - A Northern View (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +354,7 @@ Arborist - Home Burial (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +383,7 @@ Julian Cope - Self Civil War (2020) [FLAC|Lossless|tracks + .cue] <Krautrock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +412,7 @@ Khruangbin & Leon Bridges - Texas Sun (2020) EP [FLAC|Lossless|tracks + .cue] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +441,7 @@ Hollywood Undead - New Empire, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +470,7 @@ Red Hot Chili Peppers - Greatest Hits (2006) 2CD, Compilation, 2008, Star Mark [
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +499,7 @@ Guided By Voices - Surrender Your Poppy Field (2020) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +528,7 @@ Best Coast - Always Tomorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +557,7 @@ Republica - 3 Albums + 7 Singles + 1 Compilation (1994-2002) [FLAC, APE, WavPack
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +586,7 @@ Eskimo Callboy - 3 альбома (2010-2014) Дискография [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -592,7 +621,7 @@ Agnes Obel - Myopia (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -621,7 +650,7 @@ The Amity Affliction - Everyone Loves You… Once You Leave Them (2020) [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -650,7 +679,7 @@ Indoor Pets - Be Content (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -679,7 +708,7 @@ Klangstof - Close Eyes to Exit (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -708,7 +737,7 @@ Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -722,35 +751,6 @@ Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4675F74C24357898744F6D11DC40E30EF4821F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362567   (948321) от 24.02.2020
-
-Ned's Acoustic Dustbin - Ned's Acoustic Dustbin (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Ask
-02. Capital Letters
-03. Cut Up
-04. Grey Cell Green(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377F92E86345E7EEA301D74CC6876811591CF781
 ```
 
 https://mybot314.ru/tekegram_catalog/

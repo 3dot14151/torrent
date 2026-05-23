@@ -1,3 +1,57 @@
+###  Публикация: 1300012   (594533) от 04.05.2019
+
+Павел Киселев | Прокачай English фразами. Заговори Right now! (2019) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Любой иностранный язык состоит из фраз. В этой книге собраны самые популярные и нужные фразы английского языка практически для любой жизненной ситуации. Читая эту книгу, вы поймёте, в каких ситуациях применяется та или иная фраза. Каждая фраза имеет перевод на русский язык, транскрипцию и несколько реальных примеров.
+
+Всего в книге представлено более 450 фраз, словосочетаний, (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B2952971DD3155F33D0A5A6A321293A884E56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300027   (594529) от 04.05.2019
+
+Т. Камянова | English Grammar. Практическая грамматика английского языка (2014) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание представляет собой углубленный теоретико-практический курс грамматики современного английского языка, включающий в себя изложение и анализ теории грамматических фактов и отношений с использованием 18 000 аутентичных примеров употребления, а также около 600 практических упражнений для эффективного изучения английского языка на всех этапах - от начального (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB4D41F8E75F7042152C30DC79517E8A804D7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299939   (594519) от 04.05.2019
 
 Г.Г. Бондарчук, Е.А. Бурая | Основные различия между британским и американским английским (2007) [PDF]
@@ -6,7 +60,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +244,7 @@ Michael McCarthy, Felicity O'Dell | English Collocations in Use. Intermediate (2
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +670,7 @@ Celeste Zawadzka и др. | Учебник итальянского языка [
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,60 +681,6 @@ Celeste Zawadzka и др. | Учебник итальянского языка [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:707EFBC2E156E934787B41FB6A93398E36623014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549738   (592780) от 08.05.2022
-
-Antonia Clare, J. J. Wilson | Speak Out 2nd Advanced (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
-Данная подборка уровня Advanced (C1), включает следующие книги и материалы (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FE1C8E37F6201E3C515CF7223A068D95296D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300552   (592775) от 07.05.2019
-
-Л.Л. Лазаренко | Итальянский с итальянскими писателями. L'italiano Attraverso gli Scrittori Italiani (2017) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для чтения содержит отрывки из произведений итальянских писателей XX века. Каждый текст (разной степени сложности) сопровождается комментариями, упражнениями и вопросами, которые не только помогают усвоить определенный объем лексики, но и способствуют пониманию и закреплению изучаемого материала.
-Учебное пособие предназначено для студентов младших курсов, изучающих (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EC0C1AEC7D7E14F03C5D0E9EAD8A072A8EEA6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

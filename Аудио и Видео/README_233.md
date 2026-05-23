@@ -1,3 +1,32 @@
+###  Публикация: 1541780   (242422) от 05.04.2022
+
+VA - White Sands (Chill-Out & Electronic Collection), Vol. 4 (2022) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Breaking Clouds (4:50)
+02. Aquascape - Atlantis (Part One) (4:55)
+03. Stuce The Sketch - Mawazo (5:32)
+04. Dub Mars - Snatch Of A Melody (4:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509EC73A9084C1E80EB08D41876785D9555A4CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542123   (242374) от 05.04.2022
 
 VA - Friends List Vol. 1 (2018) [AAC|~309 Kbps] <Deep House, Tech House>
@@ -6,7 +35,7 @@ VA - Friends List Vol. 1 (2018) [AAC|~309 Kbps] <Deep House, Tech House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Hotel Skt. Petri - Boxed Pleasures, Vol. 2 (2014) [AAC|~320 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Sunday Afternoon, Vol. 3 (20 Lovely Lounge Cookies) (2017) [AAC|~332 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -119,7 +148,7 @@ VA - Uncertain Chillout Nights (2016) [AAC|~303 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -148,7 +177,7 @@ VA - Cigar Lounge Beats, Vol. 1 (2016) [AAC|~304 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -177,7 +206,7 @@ VA - We Chill del Mar, Vol. 6 (2017) [AAC|~329 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -206,7 +235,7 @@ VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection), Vol. 1 (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -235,7 +264,7 @@ EASTERN WIZARD - The Land of Mysteries (2022) [AAC|~326 Kbps] <Organic House, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -264,7 +293,7 @@ VA - Chilling Tunes for Heart & Soul (2020) [AAC|~315 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -293,7 +322,7 @@ VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection), Vol. 2 (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -322,7 +351,7 @@ VA - Cookin' Jazz, Vol. 2 (2020) [AAC|~327 Kbps] <Jazz, Nu Jazz, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -351,7 +380,7 @@ VA - Chillin' on the Foreshore (2021) [AAC|~295 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -380,7 +409,7 @@ Sarah Davachi - Cantus, Descant (2020) [AAC|~229 Kbps]<Electronic, Ambient, Mode
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -409,7 +438,7 @@ Francesco Polito - Trip (2020) [AAC|~344 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -438,7 +467,7 @@ Paul Williams - Colours of Joy (2020) [AAC|~310 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -467,7 +496,7 @@ Blue Öyster Cult - The Symbol Remains (2020) [AAC|~337 Kbps]<Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -496,7 +525,7 @@ Amazonics - Amazónico (Amazonico) (2020) [AAC|~308 Kbps] <Chillout, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -525,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -554,7 +583,7 @@ Energy Voice - Best of Energy Voice (Expanded Edition, New Italo Disco Hits) (20
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -583,7 +612,7 @@ Amandus - Sing a Song (2020) [AAC|~325 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -612,7 +641,7 @@ Róisín Murphy - Róisín Machine (Deluxe) (2020) [AAC|~321 Kbps]<Electronic, P
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -641,7 +670,7 @@ Fancy - Sail Away (2020) [AAC|~329 Kbps]<Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -670,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -699,7 +728,7 @@ VA - Refreshing Jazz Lounge: Chillout Your Mind (2020) [AAC|~304 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -713,35 +742,6 @@ VA - Refreshing Jazz Lounge: Chillout Your Mind (2020) [AAC|~304 Kbps] <Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43624A5086DCBD4190FC96410315284D77FA52CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422055   (239784) от 07.11.2020
-
-VA - Relax Your Mind Lounge: Chillout Your Mind (2020) [AAC|~314 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Remembrance (Original Mix) (3:50)
-02. Peter Pearson - Beyond the Mist (Original MIx) (4:12)
-03. Lynn Tredeau, Sherry Finzer - Behind the Door (Original Mix) (3:02)
-04. Shoshana Michel - Nocturne in E Flat (4:24)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B450597A9169A9A58DB7ADB594E2A4194DF939
 ```
 
 https://mybot314.ru/tekegram_catalog/

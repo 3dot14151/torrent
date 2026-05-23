@@ -1,3 +1,55 @@
+###  Публикация: 1211912   (776716) от 09.03.2018
+
+NG: Инстинкт выживания. Моря-убийцы / Primal survivor. Killer seas (2017) HDTVRip (Сезон 2, эпизод 5)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В бурлящих водах удаленного вулканического острова Понгсо Но Тао исследователь Хейзен Одел начинает свое уникальное путешествие по океану в маленькой традиционной деревянной лодочке под названием татала.Производство: США, National GeographicЖанр: Документальный, экстремальные путешествия, фаунаРежиссер: Алистэр СмитПеревод: Одноголосый закадровый, профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C28E2CCFED2BCA00A3FB1A9D82B1C5056D8F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212125   (776343) от 10.03.2018
+
+NG: Инстинкт выживания / Primal Survivor (2017) WEBRip (Сезон 2, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хейзен Одел, эксперт по выживанию в условиях дикой природы, в одиночку отправляется в самые опасные места планеты, чтобы проверить себя и испытать свои знания, умения и навыки. В этом ему помогут древние техники племён, живших в этих местах на протяжении тысяч лет.Производство: США, Icon Films for National Geographic ChannelsЖанр: Документальный, экстремальные путешествия, фаунаРежиссер: Энтони Баруэлл, Розалинд БэйнПеревод: Одноголосый закадровый, профессиональный (Велес)Продолжительность: 6x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA3EAD6DD13B4AEEBC96619178F24E6658B0A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212086   (776339) от 10.03.2018
 
 NG: Инстинкт выживания / Primal Survivor (2015) SATRip (Сезон 1, серии 1-9 из 9)
@@ -6,7 +58,7 @@ NG: Инстинкт выживания / Primal Survivor (2015) SATRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG: Тайны корабля-сокровищницы династии Тан /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NGW: Спасение слонёнка / Baby Elephant Rescue (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NGW: Рожденные в Африке. Опасная игровая площ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ NG: C точки зрения науки: Вымирание человечес�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ History Channel: Автомобильная нация / Car Nation (2017) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ NGW: Дикая Корея. За границей / Wild Korea. Voice of nature 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Animal Planet: Знакомство с пингвинами / Meet the Penguins 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ Discovery: Мир стволовых клеток со Стивеном Хоки
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ Animal Planet: Дом для рептилий. Приключения цепко
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ Discovery. Шахты на Луне / Mining the Moon (2008) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_771148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -529,7 +581,7 @@ NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ PBS. Восстание дронов / Rise of the Drones (2013) WEB-DLRip [H.26
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +659,7 @@ NG. Комета века / Comet of the century (2013) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,58 +670,6 @@ NG. Комета века / Comet of the century (2013) HDTVRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8EC58C73052F332DC69FCE5CD78E54FB606AC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391713   (769716) от 24.06.2020
-
-Дети / Babies (2020) WEB-DL [H.264/720p-LQ] (Сезон 2, серии 1-2 из 6) (Обновляемая)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели этого документального сериала наглядно рассказывают посредством инновационных технологий, как младенцы открывают для себя окружающий мир в течение первого года жизни.Производство: США, NetflixЖанр: Документальный, познавательный, научно-популярныйРежиссер: Аннабель ГиллингсПеревод: Одноголосый закадровый, профессиональный (Sound Film)Субтитры: отсутствуютПродолжительность: серии x ~00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73A91C54CEBE5D8D7F995E757AA47C08082B046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385607   (769659) от 24.06.2020
-
-NG: Королевство белого волка / Kingdom of The White Wolf (2019) HDTV [H.264/1080i] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотограф и биолог National Geographic Ронан Донован путешествует по Арктике, чтобы запечатлеть жизнь знаменитых белых волков, которые не боятся людей и стараются держаться к ним как можно ближе. Ронан Донован в поисках неуловимого арктического волка. Начиная с первого года дневного взгляда на остров Элсмир, зрители познакомятся с семьей арктических волков, которые (   Читать дальше...   )Производство: США, Market Road Films, National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Тони ГерберПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 3 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441A3088BDAC01A3AC0B696290E2B4AF43BC84D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

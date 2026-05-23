@@ -1,109 +1,3 @@
-###  Публикация: 713478   (401753) от 21.10.2013
-
-Хелен Фокс | Игрек (2005) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далекое будущее…
-Корпорация Жизни — самая крупная и влиятельная компания в мире — контролирует земные ресурсы и самостоятельно принимает все важные решения. Практически все работы выполняют машины. В остальном жизнь весьма напоминает нашу с вами (за тем лишь исключением, что разумные чайники спрашивают вас, сколько чашек чая вам налить, и вы запросто можете побеседовать (   Читать дальше...   )Жанр: Детская фантастикаПеревод: Мария ВиноградоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F345B5C2FB1A97621FAA74478DA8A34A320495A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713437   (401744) от 21.10.2013
-
-Кэтрин Кейв | Генри Гоббс, покоритель космоса (2006) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родная планета Генри Гоббса — место такое скучное, что туда давным-давно никто не заглядывает. Однажды Генри нечаянно ломает насос от мотороллера своего старшего брата, и похоже, возмездие уже близко... Надо спасаться! Генри решает бежать с Омикрона, пробравшись на борт звездолета. И только в открытом космосе выясняется, что путешествие может затянуться на пятьдесят (   Читать дальше...   )Жанр: Детская фантастикаПеревод: Анастасия БродоцкаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6E6C54C862D16CF9E81B6281C88EA1CBC84F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713422   (401740) от 21.10.2013
-
-Челси М. Кэмпбелл | Отчаянный и непобедимый Ренегат Икс (2012) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Ренегат Икс».
-16-летний Дэмиен Локи определенно знает, чего он хочет от жизни: поступить в специальный университет, стать таким же гениальным суперзлодеем, как его знаменитая мамочка, и не позволять никому морочить себе голову. Но в своей день рождения он узнает неожиданные подробности своего происхождения. Оказывается, суперзлодей он лишь наполовину, (   Читать дальше...   )Жанр: Детская фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2231F068891431AEA588331016D7407284F303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713622   (401739) от 21.10.2013
-
-Георгий Почепцов | Замок на загадочной планете (1989) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как представить будущее нашей планеты без электроники, космических странствий, открытий неизведанных способностей человека? Именно эти аспекты рассматривает автор этой книги. Его герои летают к далеким галактикам, с помощью машины времени переносятся в прошлые столетия. И хотя на их пути возникают злые колдуны, коварные злодеи и заманчивые соблазны, добро и справедливость (   Читать дальше...   )Жанр: Детская фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94EA5F2C332C08879B7F174951A1891B84FAD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169905   (400605) от 30.09.2017
 
 Бьянка Питцорно | Послушай мое сердце (2011) [PDF]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -669,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -680,6 +574,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66029C6C1BFD2D463C8C7EE815FC9C29D7E16405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253304   (385549) от 08.10.2018
+
+Туве Янссон | Опасное лето (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лето выдалось тревожным — наводнение пришло в долину и затопило дом муми-троллей. Семья отправилась искать новое жильё. На их удачу, волнами к берегу прибило вполне подходящий дом, который, правда, вёл себя немного странно. У него была крыша, похожая на створку раковины, и вращающийся пол, а если дёрнуть за шнурок — с потолка упадёт картина. Или польёт дождь. Или (   Читать дальше...   )Жанр: Детские приключения, СказкиПеревод: Евгения Канищева, Мария ЛюдковскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984280A4641A1B6FC944ACC571347FC5C9644101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253305   (385540) от 08.10.2018
+
+Туве Янссон | Мемуары Муми-папы (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Однажды летом, в самую жару, Муми-папа умудрился простудиться. Никогда не знаешь, чем закончится простуда — особенно если подхватил её впервые в жизни, — так что лучше заранее позаботиться о том, чтобы остаться в памяти грядущих поколений. А ведь до того как сделаться почтенным отцом семейства, Муми-папа был искателем приключений, бороздил речные и морские просторы (   Читать дальше...   )Жанр: Детские приключения, СказкиПеревод: Мария ЛюдковскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881D18958F950277B6766516F1EBE2B80D5C992E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572150   (385476) от 08.11.2012
+
+Кэза Кингсли | Цикл «Эрек Рекс» [3 книги] (2011) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эрек Рекс отправляется на поиски пропавшей приёмной мамы. Ведомый своим шестым чувством он, вместе с девочкой Бетани, попадает в небесное королевство, где узнаёт, что наша Земля — лишь часть системы миров, в которых работает волшебство. Трое правителей этих мест устали за долгие годы власти, а потому организуют состязание, чтобы выбрать наследников. И Эрек Рекс принимает (   Читать дальше...   )Жанр: ФантастикаПеревод: С. Першина, Е. АлексееваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEBFC14CE2450F6B652181A11174AC5A7B35D7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067813   (384771) от 30.10.2016
+
+Владимир Железников | Чудак из шестого «Б» (1970) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны три повести: «Чудак из шестого «Б», «Каждый мечтает о собаке» и «Путешественник с багажом». Герои этих повестей — чудак Борис Збандуто, паренек со странным прозвищем Сократик, путешественник Севка Щеглов. Они прелюбопытные ребята, и на их долю выпали многочисленные необыкновенные приключения.
+
+Естественно, они никогда не были знакомы, но если (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE5DBE27AEAF209A3C3534630F75F80F21C3AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

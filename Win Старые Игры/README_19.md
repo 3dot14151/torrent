@@ -1,3 +1,55 @@
+###  Публикация: 1163773   (445742) от 07.09.2017
+
+Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы – журналист, которому один старый путешественник захотел рассказать свою историю, хотя его уже более 50 лет считают обманщиком и чудаком. История эта – о путешествии в таинственную страну Центральной Америки под названием Амерзон. По словам старика, оттуда он привез с собой большое яйцо, связанное с верованиями и ритуалами индейского племени, в том числе с размножением (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroidsЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85654724AF11350360203DE203B5CB6229F44CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164102   (443499) от 08.09.2017
+
+Gangland (2004) [Ru/En] (1.4.0) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Однажды жаркой ночью в итальянском Палермо на одной из улочек старого города произошла заварушка. Тишину прорезали крики и выстрелы. На следующее утро на тротуаре было найдено тело Чико Магнано с огнестрельными ранениями. Пистолет обнаружился неподалеку. По свидетельствам двух очевидцев, Чико убили его собственные братья: Романо, Анджело и Сонни. Полиция начала облаву, (   Читать дальше...   )Тип издания: LicenseРазработчик: MediaMobstersЖанр: Strategy, Tactics, Mafia simulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993F4C9FACAC44FDCF297024009CE4DD84530B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553241   (442988) от 28.09.2012
 
 Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Catalyst
@@ -6,7 +58,7 @@ Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Cataly
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +86,7 @@ Shadow Man (1999) [En/Fr] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ MDK 2 (2000) [Ru/En] (1.003) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ Warlords: BattleCry 3 (2004) [Ru/En] (1.0.3) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Jagged Alliance 2 / Jagged Alliance 2: Агония власти (1999) [En] (1.
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru] (84.4)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ Moto Racer (1997) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ MegaRace 3 (2001) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ Sky Break (2016) [Ru/Multi] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ Moto Racer 2 (1998) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ Pendragon (2020) [En] (1.2.13) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (ReP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -600,32 +652,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 562255   (405391) от 19.10.2012
-
-Second Sight [Ru/En] (RePack) 2005 | R.G. Механики
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он очнулся в исследовательской лаборатории и теперь не может вспомнить ничего, кроме собственного имени. Все, кого он встречает на своем пути, бояться его или хотят убить. Таинственная организация охотится за ним, как за опасным зверем, желая заполучить живым или мертвым. Но Джон Ваттик, искалеченный и лишенный памяти, не так беззащитен, как может показаться на первый взгляд. Чудовищные эксперименты превратили Джона в могущественного телепата, возможности которого позволяют контролировать как неодушевленные предметы, так и живых людей! С таким оружием Джон становится грозным противником для любого, кто попытается встать у него на пути, а желание узнать правду и наказать виновных делает его еще опаснее.  (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D814AA575BF54797FCB377889ECE7D3B213CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168782   (404662) от 25.09.2017
 
 Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
@@ -634,7 +660,7 @@ Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -645,32 +671,6 @@ Simon the Sorcerer 3D (также известна как Simon 3D) - компь
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61361A9BA6D129FB106ED62D4358E2F5654D5DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169561   (402151) от 28.09.2017
-
-Stonekeep (1995) [Multi] (1.2) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в эпическое приключение – более масштабное и реалистичное, чем вы могли себе представить. Революционные технологии полностью затягивает вас в мрачный мир Stonekeep, и совсем скоро вы забываете, что это игра. Ваши ноги пройдут по холодным камням древних коридоров. Ваши руки загудят от тяжести стальных клинков и мощи магических заклинаний. Сражайтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: InterplayЖанр: Ролевая игра, От первого лица, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED67E269D57ED8167095104AA878F090C241A194
 ```
 
 https://mybot314.ru/tekegram_catalog/

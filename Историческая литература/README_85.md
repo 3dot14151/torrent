@@ -1,3 +1,86 @@
+###  Публикация: 1340955   (262880) от 26.11.2019
+
+Е. М. Ярославский | История ВКП(б). Изд. 2-е [2 части] (1935) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+От издательства:
+
+Настоящее издание учебника выходит с некоторыми изменениями, внесенными в текст 1-го издания автором и редакцией. Эти изменения внесены с учетом замечаний, сделанных преподавателями и слушателями различных учебных заведений.
+(   Читать дальше...   )Жанр: История, политология, публицистика, социологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9FBAEACF49333B342729AF7BD14BF4C8486498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192653   (262837) от 18.12.2017
+
+Д. Пэдмор | Африка — третья империя Англии (1950) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Автор, публицист Джордж Пэдмор, потомок негров-рабов, опубликовал ряд книг, разоблачающих эксплуатацию и порабощение народов Африки британским империализмом. В данной книге Пэдмор собрал обильный фактический материал, на основе которого он анализирует экономическое положение каждого из африканских владений Англии, жизненный уровень коренного населения, методы управления, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7643C32F3DA2AD63F50024157F0337AEEEDE1280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192608   (262806) от 18.12.2017
+
+Е. В. Маят | Социальный прогресс и кризис религии (1971) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одной из недостаточно исследованных проблем научного атеизма — влиянию социального прогресса на взгляды людей, на их мировоззрение.
+
+Анализируя причины кризиса религии и роста атеизма в современном мире, автор обстоятельно рассматривает факторы, определяющие этот неизбежный процесс. Выводы, которые делает автор, анализируя причины кризиса религии (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A141762D6D7B7346EB6F466AD311220C520E8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341378   (262571) от 27.11.2019
 
 Александр Бушков | Остров кошмаров. Паруса и пушки (2019) [FB2]
@@ -6,7 +89,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -60,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -88,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -117,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -143,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -169,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -196,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -227,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -253,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -279,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -305,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -333,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -360,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -388,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -414,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -440,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -466,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -492,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -518,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -544,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -598,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -609,88 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D18290B5043BA16E2835F104AAE75142F15AC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424185   (229365) от 16.11.2020
-
-Пётр Панкратов | Добрые люди. Хроника расказачивания (2013) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229365.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге Петра Панкратова «Добрые люди» правдиво описана жизнь донского казачества во время гражданской войны, расказачивания и коллективизации.
-
-Просто и безхитростно, не смакуя ужасы, автор рассказывает о событиях гражданской войны, ломке старой, устоявшейся за века, жизни казачества, о голоде, о «строительстве нового мира», а правильнее сказать, о выживании под (   Читать дальше...   )Жанр: ИсторияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626273D3ECC59E9C2913B60AB66DEA2BB0DC0E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341747   (228982) от 29.11.2019
-
-Николас Рейнольдс | Писатель, моряк, солдат, шпион. Тайная жизнь Эрнеста Хемингуэя, 1935–1961 гг (2020) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная история скрытой стороны жизни Хемингуэя, в том числе связь с советскими спецслужбами и такими американскими ведомствами, как ФБР, Госдепартамент, разведуправление ВМС и Управление стратегических служб, предшественник ЦРУ. Книга представляет собой литературную биографию, написанную в духе триллера.
-Она значительно расширяет существующие представления о загадочной (   Читать дальше...   )Жанр: БиографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766E2330C79D5A9AB50DC4DDF500AC741A34394F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586463   (228872) от 08.12.2012
-
-Сергей Лесной | История руссов. Славяне или норманны? [2012] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вопрос о происхождении русского государства и его культуры, вопрос становления Киевской Руси и возникновения Руси Новгородской, истоки славянской общности, языка и государственности, - вот главные темы, на протяжении многих лет интересовавшие русского эмигранта, биолога-энтомолога Сергея Яковлевича Парамонова (литературный псевдоним Сергей Лесной). В своих работах ("Слово о полку Игореве", "Откуда ты, Русь?", "Влесова Книга", "Пересмотр основ истории славян" и др.) он аргументированно, с привлечением многочисленных источников, разоблачает устоявшиеся мифы древней русской истории. Издательство предлагает вниманию читателей первый том самого известного труда С. Лесного "История руссов в неизвращенном виде", изданного в 10 выпусках за собственный счет автором в 1953-1960 гг. В настоящем томе С. Лесной исследует вопросы взаимоотношений Древней Руси с ее соседями - Византией и Скандинавией, истории призвания варягов на Русь и раннего христианства на Руси.
-Почему новгородцы (   Читать дальше...   )Формат: PDF интерактивное оглавление
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AFE1A230B26087F78B065559FCCADCEDC97322
 ```
 
 https://mybot314.ru/tekegram_catalog/

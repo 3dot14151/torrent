@@ -6,7 +6,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/En] (1.0.4) Repack by xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +32,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +62,7 @@ Spec Ops: The Line (RePack) [En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -92,7 +92,7 @@ Kingdoms of Amalur: Reckoning (RePack/1.0.0.2) [Ru] 2012 l Ininale
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -120,7 +120,7 @@ Spec Ops: The Line (Rip) [Ru/En] 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -150,7 +150,7 @@ Krater: Collector's Edition [En] (RePack/1.0.4/DLC) 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +177,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -207,7 +207,7 @@ Tom Clancy's Ghost Recon: Future Soldier (NoDVD/vv1.1) [EN] 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -233,7 +233,7 @@ Spec Ops: The Line (L) [Multi5/-] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -261,7 +261,7 @@ Kingdoms of Amalur: Reckoning [Ru/En] (RePack/1.0.0.2) 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -289,7 +289,7 @@ Ninja Blade [Ru] (Lossless RePack) 2009 |  R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_652936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -315,7 +315,7 @@ Kingdoms of Amalur: Reckoning [Ru] (RePack/1.0.0.2) 2012 l R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -343,7 +343,7 @@ Spec Ops: The Line (RePack/1.0.6890.0) [Ru/En] 2012 l R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +371,7 @@ Ice Age: Continental Drift (RePack/1.0) [En] 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +397,7 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +423,7 @@ Krater. Shadows over Solside - Collector's Edition (Lossless RePack/1.0.4/DLC) [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +450,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | Mailchik
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +480,7 @@ Spec Ops: The Line (RePack/1.0.6890.0) [Ru/En] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_651315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,7 +569,7 @@ LEGO Batman 2 : DC Super Heroes (RePack/1.0) [Ru] 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,7 +597,7 @@ LEGO Batman 2 : DC Super Heroes (RePack/1.0) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -625,7 +625,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -655,7 +655,7 @@ Spec Ops: The Line (RePack) [Ru] 2012 | R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_650940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -711,7 +711,7 @@ LEGO Batman 2 : DC Super Heroes (RePack) [Ru] 2012 l UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 

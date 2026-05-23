@@ -1,3 +1,107 @@
+###  Публикация: 1566676   (211616) от 30.07.2022
+
+Big Earth (2022) [En] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Big Earth - платформер со сложными головоломками и потрясающими визуальными эффектами. Отправляйтесь в это крошечное-огромное приключение вместе с доктором Кайлом Сидом и лично станьте свидетелем его путешествия по возвращению Земли и восстановлению будущего человечества. Природа задает нам насущные вопросы, а Большая Земля вносит в обсуждение совершенство и напоминает (   Читать дальше...   )Тип издания: LicenseРазработчик: PlayPlay StudiosЖанр: Приключенческие игры, Казуальные игры, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E4E558CE383AC3362E96C9A0A5B173EA914E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566557   (211561) от 30.07.2022
+
+Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В Трези-Трилиас находится покинутый отель St. Dinfna – окруженное слухами место, где исчезают люди и наблюдается паранормальная активность. Надеясь раскрыть тайну, молодой журналист Роберто Лейте Лопес по наводке подруги Стефани прибывает в Санта-Катарину. Ему придется стать следователем, чтобы не только узнать истину, но и выжить: найденная камера показывает разное (   Читать дальше...   )Тип издания: RepackРазработчик: Pulsatrix StudiosЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Португальский (Бразильский)Язык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5975A14525A96844C4D211AE55E3E98A6E8366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566857   (211525) от 31.07.2022
+
+Swallow (2022) [Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Swallow - это психологический хоррор от первого лица с упором на историю и исследования. Основываясь на реальных событиях, опишите нераскрытый случай, произошедший на изолированном острове в Англии 20-го века. Игроки берут под свой контроль смотрителя маяка, чтобы узнать правду.Тип издания: LicenseРазработчик: 車底部隊MENЖанр: Психологический хоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (традиционный)Язык интерфейса: Английский, Китайский (традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BBC6F4D478EE6A4F3DEC209188F094E64DD86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567078   (211450) от 01.08.2022
+
+PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Наш персонаж - детектив с насыщенной деловой жизнью. Но у него плохая история. Он потерял жену и месячного ребенка в утробе матери в дорожно-транспортном происшествии. Вот почему он немного психиатр. После потери жены он пережил странные события. Отис полностью меняет свою жизнь после травмы и долго не может прийти в себя.Тип издания: LicenseРазработчик: GenemesicXЖанр: Экшены, ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7B0C4CF04E4E1D14752D87F1BA46AD038E91D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567765   (211135) от 04.08.2022
 
 South of the Circle (2022) [Ru/Multi] (1.0.0) Repack Other s
@@ -6,7 +110,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +162,7 @@ No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +214,7 @@ My Destiny (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +266,7 @@ A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Legend of Kyrandia - Book One (1992) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Twinsen's Little Big Adventure 2 Classic (1997) [Multi] (3.2.4.3/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Notch - The Innocent LunA: Eclipsed SinnerS (2012) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Hidden Folks (2017) [Ru/Multi] (2.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -474,7 +578,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.0 Build 9076338) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -552,7 +656,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -563,110 +667,6 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D756C67B3DC1FA12AEDF3BC0A8FEFD3C18BB410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602671   (204382) от 06.01.2023
-
-Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broken Pieces - приключенческая игра, сюжет которой вдохновлен многочисленными психологическими триллерами. События разворачиваются в одной из прибрежных деревень, застрявших во времени. В роли главной героини Элизы необходимо собирать по крупицам часть истории, выясняя загадку этого мистического побережья. Почему местные жители переживают одну эпоху снова и снова?Тип издания: LicenseРазработчик: Elseware Experience, Benoit Dereau, Mael VignauxЖанр: Приключение, Головоломка, МистикаЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAFF2EDDEC5757C9300CA1B62DF63A1E7881F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604350   (204094) от 13.01.2023
-
-Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unforeseen Incidents — интерактивная детективная игра в классическом стиле, действие которой происходит в красиво нарисованном вручную мире. Присоединяйтесь к Харпер Пендрелл (Harper Pendrell) и примите участие в сложном расследовании, умных диалогах и богатом наборе персонажей в этой захватывающей новой приключенческой игре.Тип издания: RepackРазработчик: Backwoods Entertainment, Application Systems HeidelbergЖанр: Adventure (Puzzle), Detective, 2DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF94693D525A61E945D5501C4AEA7CF7677A48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604537   (204048) от 14.01.2023
-
-Prison Princess (2020) [Multi] (1.1) License GOG [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204048.jpg" />
-</div>
-
-
-###  Подробнее
-
-События Prison Princess разворачиваются на Мейгарде, некогда процветающем континенте. Покой жителей нарушил Король Демонов, вырвавшийся из заточения. Два королевства стали выжженными пустошами, а их принцессы Зена и Ария попали в плен к злодею. Ничего этого не случилось бы, не проиграй великий герой последнюю битву. Однако надежда все еще есть, потому что воин не (   Читать дальше...   )Тип издания: LicenseРазработчик: qureateЖанр: Приключение, Визуальные новеллы, ДрaмаЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3998D02244B067216938E87A68D2E264B9DE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604715   (204000) от 15.01.2023
-
-Criminal Expert (2023) [Multi] (1.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204000.jpg" />
-</div>
-
-
-###  Подробнее
-
-При загадочных обстоятельствах случайный водитель обнаруживает на лесной дороге пребывающую без сознания женщину. В качестве детектива полиции вам предстоит найти разгадку всем нюансам данного происшествия. Кто эта женщина, как она оказалась в лесу? Найдутся ли всем обстоятельствам простые объяснения, либо дело окажется куда более запутанным?Тип издания: LicenseРазработчик: Forever Entertainment S. A.Жанр: Приключение, Визуальные новеллы, ДетeктивЯзык озвучки: ПольскийЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4630128B4B87243714D9D0C98DFA1085C1563C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

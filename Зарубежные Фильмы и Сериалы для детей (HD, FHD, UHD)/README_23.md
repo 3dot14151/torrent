@@ -1,3 +1,55 @@
+###  Публикация: 1653451   (205506) от 16.08.2023
+
+Пау / Paw / Boy of Two Worlds (1959) WEB-DL [H.264/1080p] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам одноименного романа Торри Гредстера. Герой картины — мальчишка по имени Пау, родом с Карибских островов, чей отец был датским моряком, женившимся на карибской девушке. Он потерял своих родителей и вынужден был переехать в Данию к тете. В новой и чуждой для него стране Пау сталкивается с издевательствами других детей и становится изгоем маленького (   Читать дальше...   )Производство: Дания / Laterna FilmЖанр: драма, семейныйРежиссер: Астрид Хеннинг-ЕнсенАктеры: Эдвин Адолфсон, Jimmy Sterman, Асбьёрн Андерсен, Нинья Тольструп, Хэльге Кьерулф-Шмидт, Карен Ликкеус, Пребен Нергор, Карл Стеггер, Ebba Amfeldt, Свенд БиллеПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, датскийСубтитры: русские, английские, датские (forced)Продолжительность: 01:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FAD4752E5124B228548161377C9866FFEFD4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653457   (205430) от 16.08.2023
+
+Фьерро... Тайны одного лета / El verano del potro / Summer of the Colt (1989) WEB-DL [H.264/720p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Лаура, Даниэль и Фелипе каждое лето проводят на ранчо своего деда Федерико в Аргентине. Приехав в очередной раз, Фелипе получает в подарок от деда нового щенка, а Даниэль впервые садится на лошадь. 13-летняя Лаура чувствует, что тоже уже не ребенок. Федерико приходится нелегко, но он готов на все, чтобы сохранить любовь своих внуков.Производство: Аргентина, Канада / GEA Producciones, Les Productions La Fête Inc.Жанр: драма, семейныйРежиссер: Андрэ МелансонАктеры: Эктор Альтерио, Чина Соррилья, Александра Лондон-Томпсон, Juan De Benedictis, Santiago González Crende, Мариано Бертолини, Gabriela Felperin, Мануэль Кальяу, Эмилия Фара, Херонимо ЭспечеПеревод: многоголосый профессиональный (InterCommunications)Язык озвучки: русский, испанский, английскийСубтитры: английскиеПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F3B5F942CD91E1707548192EED8D620CCB790C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653647   (205380) от 17.08.2023
 
 Большой Ред / Big Red (1962) WEB-DL [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +370,7 @@ SOS - лето загадок / S.O.S Svartskjaer / SOS: Summer of Suspense (200
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:423163BCC80A63448B4A576923B97C5491418D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627267   (199663) от 18.04.2023
-
-Марсель, ракушка в ботинках / Marcel the Shell with Shoes On (2021) BDRip [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсель — морская ракушка в туфельках. Он живёт с бабушкой Конни и хочет найти свою семью, с которой вынужден был расстаться. О Марселе снимают документалку, и историю необычной ракушки узнаёт весь мир.Производство: США / Chiodo Brothers Productions, Cinereach, StrongmanЖанр: мультфильм, фэнтези, драмаРежиссер: Дин Флейшер-КэмпАктеры: Дженни Слейт, Дин Флейшер-Кэмп, Изабелла Росселлини, Joe Gabler, Shari Finkelstein, Сэмюэл Пэйнтер, Blake Hottle, Scott Osterman, Jeremy Evans, Лесли СталПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7586D882889A809B73F31965D1672E3C8452FCF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627576   (199625) от 19.04.2023
-
-Сэм: Песочный эльф / Four Kids and It (2019) WEB-DL [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебный эльф Сэм обладает магической силой — исполняет любые желания. Четверо детей знакомятся с ним и получают все, о чем мечтали: розовый вертолёт, способность взбираться на любые скалы, летать и даже стать поп-звездой и кумиром миллионов. Но эльфа ждёт опасность. Но у коллекционера Тристана другие планы, с помощью Сэма можно получить золото и власть.Производство: Великобритания, Ирландия / Dan Films, Deadpan Pictures, Kindle EntertainmentЖанр: фэнтези, семейныйРежиссер: Энди де ЭммониАктеры: Билли Дженкинс, Элли-Мэй Сиаме, Эшли Ауфдерхайд, Тедди-Роуз Маллсон-Аллен, Пола Пэттон, Расселл Брэнд, Майкл Кейн, Пиппа Хэйвуд, Мэттью Гуд, Кэролайн ШинПеревод: Дублированный (МОСФИЛЬМ-МАСТЕР)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05C14ADC14DECDC4BC9F56D348D75B0AA66EE1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

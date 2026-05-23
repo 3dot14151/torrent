@@ -1,3 +1,55 @@
+###  Публикация: 1297525   (602578) от 25.04.2019
+
+Raymond Murphy / Раймонд Мёрфи | English Grammar in Use+Supplementary Exercises with Answers [5 Edit.] (2019) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Английская грамматика Рэймонда Мёрфи в использовании является первым выбором для учащихся среднего уровня (B1-B2) и охватывает всю грамматику, которая понадобится вам на этом уровне. Эта книга с ответами содержит четкие объяснения и практические упражнения, которые помогли миллионам людей во всем мире улучшить свой английский. Она идеально подходит для самостоятельного (   Читать дальше...   )Жанр: Учебное пособиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399DC0771509678C5876B697272093E0B8E31428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149104   (602437) от 09.07.2017
+
+Наталия Городнюк | FUTURE in English с Васей Пупкиным (2017) [FB2]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Любите английский язык? Хотите переехать за границу? Не понимаете грамматику? Плаваете во временах? Просто хотите узнать что-то новое - тогда эта книга для вас! Основной особенностью данной книги является простота, с которой преподаватель английского языка отвечает на вопрос "Как говорить о будущем по-английски?" Книга написана в форме живого диалога между (   Читать дальше...   )Жанр: Английский язык, Прочая образовательная литература, СамоучителиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09641A6AFF9A1A0E29E883E714DFD39C269C1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298476   (601734) от 28.04.2019
 
 Г.А. Эпштейн | Английский без ошибок. Имя существительное и его детерминанты и определители (2002) [PDF]
@@ -6,7 +58,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ American Education Publishing | The complete book of phonics (2003) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ M. Zaorob, E. Chin | Games for Grammar Practice (2001) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +322,7 @@ Derek Strange | Start Reading [6 книг] (1988) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +348,7 @@ Jake Allsop | Really Useful English Grammar (2008) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +402,7 @@ M. Duckworth и др. | Business Result (A0-C1) (2017) [PDF] [Including MP4, MP3
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:188FBA812E705851D03188190CC8A9B16D19D4C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914494   (597736) от 02.07.2015
-
-Наталия Городнюк | Английская грамматика с Васей Пупкиным (2015) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597736.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: Я, конечно же, не претендую на уникальность метода и его универсальность. Я только могу сказать, что за время моей преподавательской практики многие дети и взрослые наконец-то поняли, как строятся английские предложения. Решать, конечно, вам. Предназначена всем кто интересуется темой изучения иностранного языка, для кого это важно и ценно.Жанр: Английский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37B30D37906C513E9EBA51F77F6D5B53BAB3ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299488   (597683) от 02.05.2019
-
-М.А. Ефимова | Немецкий язык. Краткий экспресс-курс для начинающих (1992) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткий курс немецкого языка содержит диалоги, построенные на часто употребляемых речевых блоках, и задания к ним. Кроме того, в практическом пособии приведены необходимые сведения по грамматике. Для студентов технических вузов и широкого круга лиц, самостоятельно изучающих немецкий язык.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F3351145DCD466AC2E54831F77B69015A83E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

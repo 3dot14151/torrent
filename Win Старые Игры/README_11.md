@@ -1,3 +1,55 @@
+###  Публикация: 1280891   (756434) от 05.02.2019
+
+Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]  Repack R.G. Revenants
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Из деревни таинственным образом исчезает главный деревенский друид - Гетафикс, а это значит что герои французских комиксов Астерикс и Обеликс снова отправятся в захватывающее путешествие! На этот раз судьба забросит их в Лас-Вегум, город, построенный римлянами специально для развлечений.Тип издания: RepackРазработчик: tranges LibellulesЖанр: Arcdae, Action, 3dЯзык озвучки: Русский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2958DDF69D2573969DF5133447C6C0889FF491B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 204889   (754058) от 30.05.2010
+
+Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L) 2007
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: лицензияРазработчик: CauldronЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: русскийЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216718   (747477) от 01.04.2018
 
 Praetorians (2003) [En] (1.04) License GOG
@@ -6,7 +58,7 @@ Praetorians (2003) [En] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ UAZ Racing 4x4 / Полный привод: УАЗ 4x4 [Ru] (L) 2006
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_747160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Star Trek: Armada (2000) [En] (1.2_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Star Trek: Armada II (2001) [En] (1.1_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Apocalypse: Party's Over (2016) [En/Pt] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ FireStarter (2004) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Combat Chess (1997) [En] (3.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +659,7 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,60 +670,6 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505759   (689236) от 05.06.2012
-
-Theme Hospital / Частная клиника [En] 1997 | GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже давно известно, что лучшее лекарство от всех болезней — смех. В серии классических игр от Electronic Arts вам предлагается универсальный рецепт здоровья: руководство частной клиникой, специализирующейся на лечении десятков смешных недугов. Помогая страждущим — и не забывая при этом пополнять банковский счет! — вы сами сможете всегда оставаться в форме за счет полученного заряда бодрости и хорошего настроения. Будьте здоровы!
-
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Изометрическая экономическая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A288DA378F3747891FA666B940D5DC7E05DE554E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288984   (687821) от 15.03.2019
-
-Another War / Другая Война (2002) [Ru] (2.48) Unofficial
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра сделана в традициях лучших мировых шедевров ролевых игр, таких, как Diablo и Fallout, однако, вместо надоевших фентезийных миров действие происходит в реальности. Интереснейший сценарий и тонкий юмор долго не отпустят вас от монитора, заставляя переживать невероятные приключения и попадать в рискованные передряги. Главный герой игры - наемник и авантюрист, должен (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mirage InteractiveЖанр: Arcade, RPG, IsometricЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F53B11F743DB7BA191FAF093662C8D89CA9110
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,87 +1,22 @@
-###  Публикация: 478245   (98562) от 04.04.2012
+###  Публикация: 1765558   (101416) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers №1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98562.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №1
-Название: Desktop Wallpapers №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE679129D4BDAFFF7FE74C7E10E19B0A1355AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822179   (98561) от 05.10.2025
-
-NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98561.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смертельной авиакатастрофы, в результате которой четверо юных братьев и сестер оказываются запертыми в глубине колумбийских тропических лесов, разворачивается драматическая спасательная операция, объединяющая следопытов-аборигенов и военных в гонке со временем. Впервые создатели фильма предлагают нам эксклюзивный рассказ об этой невероятной реальной истории (   Читать дальше...   )Производство: США, Великобритания, Перу, Колумбия / Demolition Films, Lightbox, Little Monster Films, National Geographic Documentary Films, Lightbox, Pacha Films, Senal ColombiaЖанр: документальный, катастрофа, спасение, расследованиеРежиссер: Джимми Чин, Хуан Камило Крус, Элизабет Чай ВасархелиПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A299F4F78D4CF0094F4A67797022DA7FA078E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477823   (98560) от 04.04.2012
-
-VA - 538 Hitzone 58 2CD (2011) [MP3|320 кб/с]<Dance>
+PowerDirector – Video Editor v14.7.0 Mod by Balatan [Ru/Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-CD1. Время звучания 01:18:10
------------------------------
-01.Coldplay - Every Teardrop Is A Waterfall.mp3audio9.17 MB.mp3
-02.Sak Noel - Loca People.mp3audio8.20 MB.mp3
-03.Adele - Someone Like You.mp3audio10.98 MB.mp3
-04.Pitbull Ft. Neyo, Nayer & Afrojack - Give Me Everything Tonight (Radio Edit).mp3audio9.28 MB.mp3
-05.Racoon - No Mercy.mp3audio6.33 MB.mp3
-06.Caro Emerald - Riviera Life.mp3audio8.00 MB.mp3
-07.Blof - Hou Vol Hou Vast.mp3
-08.Anouk - Down and Dirty.mp3audio7.33 MB.mp3(   Читать дальше...   )2011Жанр: DanceПродолжительность: 02:41:48
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.12.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8F7BDFE2C4F5736D8A7BDF3461493236755534E
+magnet:?xt=urn:btih:39EF5496CAAE9317551E2F0453222C8A9A8D8424
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -89,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822180   (98559) от 05.10.2025
+###  Публикация: 1765502   (101415) от 13.12.2024
 
-Аббатство Даунтон 3 / Downton Abbey: The Grand Finale (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit] [MVO]
+Журнал | Цветок №23 (декабрь 2024) [PDF]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Начало 1930-х годов. Когда Мэри оказывается в центре публичного скандала, а семья Кроули сталкивается с финансовыми трудностями, все обитатели имения ощущают угрозу потери репутации. Кроули должны адаптироваться к переменам: персонал готовится к новому этапу, а следующее поколение берёт на себя управление поместьем Даунтон.Производство: Великобритания, США / Carnival Films, Focus FeaturesЖанр: драмаРежиссер: Саймон КёртисАктеры: Мэрлин Каттс, Лорна Никсон Браун, Дэйзи Мэй, Софи Колкухоун, Оливер Баркер, Зак Баркер, Стюарт Баррет, Саймон Расселл Бил, Люси Блэк, Хью БонневилльПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русский (AI), АнглийскийПродолжительность: 02:03:56
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08CC5277E1DB12683F378741EAB962E2CE6D6DA1
+magnet:?xt=urn:btih:21918D4B8D7E9D6177703838B118E8D88DF97122
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,34 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478075   (98558) от 04.04.2012
+###  Публикация: 1765535   (101414) от 13.12.2024
 
-Various Artists - Tranceffect 16 (2012) [MP3|320 кб/с]<Trance>
+David Hasselhoff - You Are Everything (1993) [FLAC|Lossless|tracks + .cue] <Pop>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. 5 Steps (Original Mix) - Sergey Wednesday
- 02. Waterland (Original Mix) - DJ Geri
- 03. Reset (James Poulton Remix) - Rene Dale
- 04. Absolute (Original Mix) - DJ Geri
- 05. Iridium (Luke Warner & Mat Lock Remix) - Mr Carefull
- 06. Magic Island (Sandeagle Remix) - Alpha Force
- 07. Penn Road (Sandeagle Remix) - Dj Ange
- 08. After All (Sandeagle remix) - Ion Blue
- 09. I ll Go With You (Sandeagle Remix) - Olbaid & Alpha Force
- 10. Donne Moi Ton Corps (Sandeagle Vocal Mix) - Physical Phase feat. Loreen Chimenti(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:46
+01. Dance Dance D'Amour 3:18
+02. Miracle Of Love 4:45
+03. Hot Shot City 3:48
+04. Give Me Something Real 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0FD76DB0DE8EDAC9A63AD71B383062BA25C0C1C
+magnet:?xt=urn:btih:660552DF5FE1E872DE7285FF79B6437E0F758D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -150,25 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822145   (98557) от 05.10.2025
+###  Публикация: 1765541   (101413) от 13.12.2024
 
-Академия загородного строительства, Михаил Кристов, Георгий Лутов, Сергей Киселев | Проектирование дома из газобетона в Archicad (2025) WEB-DL [AD] [RU]
+Молли Магуайерс / The Molly Maguires (1970) BDRip [H.264]
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Курс по проектированию загородных домов с нуля из газобетона в Archicad.Производство: Академия загородного строительстваЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 96:24:25Реклама: наложение на видео (плашка спонсора)
+Фильм основан на книге Артура Х. Льюиса «Плач по Молли Магуайерс» о реальных событиях... Угольные шахты Пенсильвании. 1876 год. Группа ирландских шахтёров-эмигрантов, известная под именем "Молли Магуайерс" борется против жестокости добывающей компании, устраивая саботаж с убийством. Детектив МакПерлан, также являющийся ирландцем, должен вывести на чистую (   Читать дальше...   )Производство: США / Paramount Pictures, Tamm Productions See moreЖанр: драма, историяРежиссер: Мартин РиттАктеры: Шон Коннери, Ричард Харрис, Саманта Эггар, Фрэнк Финлей, Энтони Зербе, Bethel Leslie, Арт Ланд, Филип Бурнюф, Энтони Костильо, Брендан Диллон, Фрэнсис Хефлин, Джон Алдерсон, Мэлаки МакКорт, Сьюзэн Гудман, Иэн ЭберкромбиПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A015B357479B6735F0FEA2BAEBE0D928E1B3114E
+magnet:?xt=urn:btih:8F2B798FEABA3E7C664A71A462E3C500781A93F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -176,25 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822183   (98555) от 05.10.2025
+###  Публикация: 1765508   (101412) от 13.12.2024
 
-Счастье / Happiness (1998) BDRip [H.264/720p] [MVO]
+Helloween - Live At Budokan(Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Картина знакомит с жизнью нескольких персонажей, объединённых жутким внутренним одиночеством. Из лёгкой последовательности эпизодов складывается органичная мозаика повествования. Хотя фильм называется «Счастье», речь в нём идёт о его отсутствии. Все герои жаждут счастья, пытаются его поймать, но… Семейство Джорданов несёт под откос. Младшей дочери Джой катастрофически (   Читать дальше...   )Производство: США / Good Machine, Killer FilmsЖанр: драма, комедияРежиссер: Тодд СолондзАктеры: Филип Сеймур Хоффман, Джейн Адамс (II), Дилан Бэйкер, Лара Флинн Бойл, Синтия Стивенсон, Джастин Элвин, Бен Газзара, Луиз Лэссер, Джаред Харрис, Джон Ловиц, Лила Гланцман-Лейб, Джерри Бекер, Руфус Рид, Камрин Менхейм, Артур Дж. НаскареллаПеревод: профессиональный многоголосый, авторский (Пётр Карцев)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:19:56
+01. Orbit (Live) (1:59)
+02. Skyfall (Live) (12:52)
+03. Eagle Fly Free (Live) (8:04)
+04. Mass Pollution (Live) (4:58)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 02:00:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:356A581A4385E951A28922E87D8871AF87B8AFF6
+magnet:?xt=urn:btih:9853C8B851DF5E1052766752A08CA240AC8CF63D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -202,27 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477931   (98554) от 04.04.2012
+###  Публикация: 1765585   (101411) от 13.12.2024
 
-War Master - Pyramid Of The Necropolis (2011) [MP3|320 кб/с]<Death Metal>
+VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
->>Архив торрентов
->>Архив Музыки
+>>Other Styles
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Mass Cremation 05:23
- 02. Into the Abysmal Fire 04:10
- 03. Cult of Greed 04:12Жанр: DeathПродолжительность: 00:34:58
+1. Darles Flow - Atreides (5:20)
+2. Florian Gasperini - No Need to Know More (8:00)
+3. Tibetania - Dau Ayuni (6:06)
+4. The Friend - The Road to Egypt (6:36)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D4B6CC517C9B0E4504E8769609F1148F4830FFE
+magnet:?xt=urn:btih:82C4969557B1D22E1784BAA505C00A5D44D4504F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,25 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822090   (98553) от 05.10.2025
+###  Публикация: 1765398   (101410) от 13.12.2024
 
-Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | Konosuba: God's Blessing on This Wonderful World! - Legend of Crimson | Этот замечательный мир! Багровая легенда [2019, Movie] BDRemux 1080p ...
+Jessica Simpson - Sweet Kisses (1999) CD, Album [FLAC|Lossless|tracks + .cue] <Pop,  Ballad, Vocal>
 
->>Аниме разное
->>Аниме Blu-ray, Remux
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Приключения четырёх неудачливых героев продолжаются! На этот раз родная деревня Мэгумин и Юн-юн находится под угрозой уничтожения Владыкой демонов, который направляет туда одного из своих генералов. В отчаянии Юн-юн приходит к Казуме и просит его о помощи. Команда приключенцев направляется в деревню, чтобы предотвратить её уничтожение.Производство: Япония, J.C. StaffЖанр: приключения, комедия, фэнтези, пародияРежиссер: Канасаки ТакаомиОзвучка: Dancel & Лизавета & Pandora (SHIZA) - Трёхголосая (муж/жен)Язык озвучки: Японский и русскийПродолжительность: 90 мин.
+01. I Wanna Love You Forever (4:26)
+02. I Think I’m in Love With You (3:19)
+03. Where You Are (4:33)
+04. Final Heartbreak (3:40)(   Читать дальше...   )Жанр: Pop,  Ballad, VocalПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1C91D9736C12553BA551DE4FB0CD46FD5CC4158
+magnet:?xt=urn:btih:3E00CC6FF0AE63BD00D233CA07341481DC6660F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,314 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477705   (98552) от 04.04.2012
+###  Публикация: 1765550   (101409) от 13.12.2024
 
-VA - Off Said (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time In Motion & Flexus - Lakrids 08:53
-02. Omsphere vs Snow - Bambino Nuovo 07:51
-03. Hi Profile - Ro-Bo-Tix 06:50
-04. SattelLight - Biometric Data 06:45
-05. Interactive Noise And Fabio And Moon - Coming Home Late 07:23
-06. Querox - Rest In Peace (Odd Sequence remix) 08:15
-07. Twelve Sessions - Earth Dance 08:42
-08. Ananda Shake - Heart Beat 08:09
-09. Erotic Dream - Big Red Bus 07:07
-10. Slow Control - Strong Poison 07:05(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76834096879A3A8DA911CA704FB8976C95D04CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822177   (98551) от 05.10.2025
-
-Александр Воробьёв | Путь Чжао (Книга 1) (2025) [MP3, Дамир Мударисов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98551.jpg" />
-</div>
-
-
-###  Подробнее
-
-История марсианского мятежа и войны за Пояс.
- К середине тридцатых годов двадцать четвертого столетия экономический рост суверенной корпорации Директорат Марса стал вызывать опасения среди элит Земной Лиги. Ряд принятых правительством законодательных актов сделал конфликт неизбежным. Позже этот конфликт назовут «Войной за пояс».
-Что же ждет обычного сисадмина Виктора (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастика, Боевая фантастикаИздательство: Редакция Кирилла ГоловинаПродолжительность: 16:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC9F40C15852BC21285CBA692D7E39194734791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822176   (98549) от 05.10.2025
-
-Markus Schulz - Global DJ Broadcast World Tour: In Search Of Sunrise, Eden Ibiza, Spain (2025-10-02) [MP3|320 Kbps] <Trance, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woo York ft. Mark Tarmonea - Feeling (Korolova Remix)
-02. Jerome Isma-Ae - Perception
-03. Rebūke - Glow
-04. Markus Schulz & BLR - Ten Seconds Before Sunrise(   Читать дальше...   )Жанр: Trance, Melodic House, TechnoПродолжительность: 02:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3E262FF8E66E4C0E9044555CC4B51BB8192FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477483   (98548) от 04.04.2012
-
-Ankhagram - Where Are You Now (2010) [MP3|320 кб/с]<Dark Funeral Doom / Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98548.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Life's Ocean 11:00
- 2. The Mistress 10:53
- 3. Trees of Feeling 10:27
- 4. Shade You 09:08
- 5. K.O.D 09:04
- 6. Kids (MGMT cover) 06:422010Жанр: Dark Funeral Doom / DeathПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038C5D1A90EECED4A17B12BD817E214A9A873B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822166   (98547) от 05.10.2025
-
-Lane 8 - Fall 2025 Mixtape (2025-09-24) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niilas & Bicep - Alit
-02. ID - ID
-03. Lane 8 & Arctic Lake - The Choice (SK Remix)
-04. OLING - Wanna Wou(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 03:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CA1BF13F5D472876BCF9AFA987D84C753E515E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477696   (98546) от 04.04.2012
-
-VA - XXXL зарубежный (2012) [MP3|192-256 кб/с]<Pop ,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98546.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Robert M And Dirty Rush - Heart Of You (Radio Edit).
-002 David Guetta Feat. Sia - Titanium.
-003 Arash - Melody (Radio Edit).
-004 Evanescence - What You Want.
-005 Avril Lavigne - Wont Let You Go.
-006 Lady Gaga - You And I (Radio Edit).
-007 Dj Antoine Feat. Mad Mark - I Feel (Radio Edit).
-008 Timbaland Feat. Pitbull And David Guetta - Pass At Me.
-009 Bruno Mars - Lighters (Asalto Remix).
-010 Melanie C - Think About It.2012Жанр: Pop ,DanceПродолжительность: 06:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A56A995D8EB3209137DFD87163C517C27818EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822003   (98545) от 05.10.2025
-
-VA - Nothing But... Trancetopia, Vol. 30 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystery & Mist - For You (Original Mix) [6:57]
-02. Regas Adreo - Epanastatis (Original Mix) [6:38]
-03. Soul Synth - God Rays (Extended Mix) [5:53]
-04. Ozo Effy - Samburu (Extended Mix) [6:17](   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92F564516B5C80766BCD09FCCB1A4CDEA5F43EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821993   (98543) от 05.10.2025
-
-Иван Кучин - Любовь хулигана (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отцвела черёмуха за оградкой чёрной (4:45)
-02. Любовь хулигана (3:31)
-03. Образ божественный (5:26)
-04. Моя ошибка (3:57)(   Читать дальше...   )Жанр: Шансон, авторская песняПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB5F319C699A8A84F7E05A9BEAEC12F01451056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477914   (98542) от 04.04.2012
-
-VA - Танцевальный клубный поп хит vol.4 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flo Rida feat. T-Pain & LMFAO - Run To You
-02. David Guetta - Stay (Johan K Horny Remix)
-03. Josh Gabriel Presents Winter Kills - Falling Back
-04. Алабама - Отпускаю
-05. Алишер - Море
-06. Чугунный Скороход - Попса (I love pop)
-07. Chris Brown feat. Rihanna - Turn Up The Music (Funk3d Radio Edit)
-08. Fontano - Облака (DUDKIN extended mix)
-09. Inna - Endless (LuKone Remix)
-10. Lika Star - Точка росы (Tone Project club mix)2012Жанр: Pop,Dance, ClubПродолжительность: 06:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC710A27C492C98385F7ECCA02D3B79034476180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474574   (98541) от 04.04.2012
-
-Dylath-Leen - Cabale (2011) [FLAC|Lossless]<Death Metal/Gothic Metal>
+Nanowar of Steel - XX Years of Steel (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Rising Sun (4:30)
-02. End Of Time (3:28)
-03. The Elder Sign (5:29)
-04. I Dreamt (4:38)
-05. Last Moments (4:31)
-06. I'M The Crusher (5:00)
-07. Silent Land (4:11)
-08. Forever... (3:00)
-09. ...Still (6:14)
-10. Unveiled (4:43)(   Читать дальше...   )Жанр: Death Metal/Gothic MetalПродолжительность: 00:51:38
+01 - Stormwarrior of the Storm [4:23]
+02 - HelloWorld.java [3:59]
+03 - Afraid to shoot into the eyes of a stranger in a strange land [6:39]
+04 - Armpits of Immortals (feat. Ross the Boss) [4:12](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Hard RockПродолжительность: 02:28:01
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6AC96EA5731FB6FBA5E72E3A0549EBF55CF1E256
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,29 +221,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478275   (98539) от 04.04.2012
+###  Публикация: 1765602   (101408) от 13.12.2024
 
-[Wallpapers] Green Wallpapers 3
+Snoop Dogg - Missionary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Fore Play [00:01:15]
+02. Shangri-La [00:01:37]
+03. Outta Da Blue [00:02:39]
+04. Hard Knocks [00:04:13](   Читать дальше...   )Жанр: Hip-Hop/RapПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A6140ACB689D76F318E6D73AA73302131BDAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765416   (101407) от 13.12.2024
+
+Журнал | Homebuilding & Renovating №11 (2024) [PDF][EN]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0601AF58AA90DC0BBBCAF7C0694A5F1AA0385394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765546   (101406) от 13.12.2024
+
+Молли Магуайерс / The Molly Maguires (1970) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на книге Артура Х. Льюиса «Плач по Молли Магуайерс» о реальных событиях... Угольные шахты Пенсильвании. 1876 год. Группа ирландских шахтёров-эмигрантов, известная под именем "Молли Магуайерс" борется против жестокости добывающей компании, устраивая саботаж с убийством. Детектив МакПерлан, также являющийся ирландцем, должен вывести на чистую (   Читать дальше...   )Производство: США / Paramount Pictures, Tamm Productions See moreЖанр: драма, историяРежиссер: Мартин РиттАктеры: Шон Коннери, Ричард Харрис, Саманта Эггар, Фрэнк Финлей, Энтони Зербе, Bethel Leslie, Арт Ланд, Филип Бурнюф, Энтони Костильо, Брендан Диллон, Фрэнсис Хефлин, Джон Алдерсон, Мэлаки МакКорт, Сьюзэн Гудман, Иэн ЭберкромбиПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA03FDE8B654EF2ECBFBEA91988C81AAD9D82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765560   (101405) от 13.12.2024
+
+Все коды регионов. Штрафы ГИБДД v10.00.05 Mod от Alex.Strannik [Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Green Wallpapers 3
-Название: Green Wallpapers 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Узнать откуда машина - не проблема! 🚗🚙. По гос.номеру автомобиля вы можете определить из какого региона этот автомобиль, к какому роду войск принадлежит, или за посольством какой страны закреплен. Удобный инструмент для определения региона регистрации автомобиля по индексу в номере. Встроена база по регионам СНГ. Присутствует встроенная игра на запоминание (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.12.2024Разработчик: RunIQ SoftПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C64B81A887E4A90B05327043DD74993C4C3053C
+magnet:?xt=urn:btih:D1C42C28AD7D8F8CBA861699055ACEAC36D2B269
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,25 +328,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477877   (98538) от 04.04.2012
+###  Публикация: 1765417   (101404) от 13.12.2024
 
-Журнал | Просто. Вкусно № 3 [март 2012] [PDF]
+Журнал | Homebuilding & Renovating №12 (2024) [PDF][EN]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для тех, кто любит вкусно готовить. «ПРОСТО. ВКУСНО» создает особенное настроение: кухня превращается в гастрономическую лабораторию, где происходят удивительные открытия. «ПРОСТО. ВКУСНО» — это кулинарный журнал, который помогает повысить качество жизни простыми и доступными способами.март 2012Формат: PDF
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DECC99E074758277BEF3E5EFC8318C5BAE9CC7A
+magnet:?xt=urn:btih:E7365A239369C479C3118882313F148532A6408E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,34 +354,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477831   (98537) от 04.04.2012
+###  Публикация: 1765568   (101403) от 13.12.2024
 
-ChipaChip - Постоянство (2012) [MP3|320 кб/с]<Rap>
+НХЛ 2024-2025. Вашингтон Кэпиталз - Коламбус Блю Джекетс (12.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Из города с улицей Лизюкова
-02. Про растения (ft. PlaZo)
-03. Где-то вдали
-04. Очередь вникуда (ft. Sandz)
-05. Дай мне драпа
-06. Это уже где-то было (Скит)
-07. Сентябрь (ft. Серёжа Внатуре, Филя Файя, parachute)
-08. Постоянство
-09. Заморочки (ft. Артём Татищевский, Ворошиловский андеграунд)
-10. Пути назад нет (Скит)(   Читать дальше...   )2012Жанр: RapПродолжительность: 01:01:50
+13 декабря 2024, пятница. 03:00 МСК. Стадион: Нейшнвайд-Арена (Коламбус, США), 15 962 зрителя (84% при вместимости 19 115)
+Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Кори Сиврет (Милгров, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA592F2771A11B2AF1B082ADC0D7C954E58DCDCE
+magnet:?xt=urn:btih:E827E4D0BD801B83B0F253696DAF02C03AFF60AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,34 +381,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477456   (98534) от 04.04.2012
+###  Публикация: 1765572   (101402) от 13.12.2024
 
-Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
+НХЛ 2024-2025. Питтсбург Пингвинз - Монреаль Канадиенс (12.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01.Tears Of Horizon (Breaking Dawn Mix) (02:23)
-02.The Rising Of a New Day (Original Mix) (09:07)
-03.Water (Original Mix) (05:13)
-04.Norther Lights (Extended Mix) (06:06)
-05.Falling Stars 9.0 (Radio Edit) (03:52)
-06.Nature 2.0 (Extended Mix) (09:04)
-07.No Silence (DNA Revolutions Remix) (08:28)
-08.When The Rain Falls (Original Mix) (03:52)
-09.The Beauty Of Life (Extended Mix) (09:28)
-10.Beach Breeze (Original Mix) (03:59)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:26:35
+13 декабря 2024, пятница. 03:00 МСК. Стадион: Белл-центр (Монреаль, Канада), 21 105 зрителей (100% при вместимости 21 105)
+Главный судья: Гислейн Эбер (Батерст, Канада); Главный судья: Кайл Реман (Стеттлер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A7F934A86F61CED6E7986E701419837A3726C6A
+magnet:?xt=urn:btih:B271AB66E98A5FF295141F5EABD42A020B28A44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,34 +408,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477721   (98533) от 04.04.2012
+###  Публикация: 1765513   (101401) от 13.12.2024
 
-VA - Муз-прорыв Record 50/50 (2012) [MP3|160-320 кб/с]<Club>
+Alberto Rigoni - Nemesis Call (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Prog>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01 Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased)
-02 David Guetta feat. Sia - Titanium (eSQUIRE remix)
-03 Женя Юдина - Дыши (DJ Южанин remix)
-04 Sarvi - Amore (Chuckie remix)
-05 NikitA - Машина (Dj Fisun remix)
-06 Tempo Giusto and Ima'gin - Oszma (original mix)
-07 Юлия Савичева - Сердцебиение (Trojan Project remix)
-08 Starkillers, Nadia Ali - Keep It Coming (original mix)
-09 Steel Deluxe - Сердце открой (Johan K remix)
-10 Magic Solutions - Lilly Was Here (club mix)2012Жанр: ClubПродолжительность: 08:50:01
+01. Rage of Olympus (3:01)
+02. Blade of Despair (3:51)
+03. Paradox (4:03)
+04. Poseidon (3:58)(   Читать дальше...   )Жанр: Heavy ProgПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2055BB29F673634A6ECF985EB5C554FA523E402E
+magnet:?xt=urn:btih:D46B011E0DDEF7523293563F714684261E6ADE17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -732,34 +437,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477690   (98531) от 04.04.2012
+###  Публикация: 1765374   (101400) от 13.12.2024
 
-Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
+Shelly Manne & Bill Russo - Deep People (1951, 1952) 1992, Savoy Jazz [FLAC|Lossless|image + .cue] <Cool, Bop, West Coast Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. Vid Elden (01:38)
-2. Ripeluokte (06:24)
-3. Himlalågor (07:40)
-4. Tjåkkå (04:22)
-5. Stállo (06:03)
-6. Ripeluokte II (08:50)
-7. Nordafejd (05:41)
-8. På Fjället (04:22)
-
-"...Lönndom seems to be situated elsewhere, in its own still lively world, listening to inner and outer voices most of the civilized people in the Western societies might never hear, even when they made a trip into the outback - these two musicians have a truly individual and sensitive approach towards nature and spiritual matters..."(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:00
+01. The Princess of Evil [3:19]
+02. Slightly Brightly [2:38]
+03. Deep People [3:04]
+04. The Count on Rush Street [3:10](   Читать дальше...   )Жанр: Cool, Bop, West Coast JazzПродолжительность: 00:40:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A675062C8B45827EF5121DDB8FE5DF22F42E8B0
+magnet:?xt=urn:btih:64D9742DDA1AD7735358B69173DB3377E7EBDE16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -767,34 +466,256 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478138   (98529) от 04.04.2012
+###  Публикация: 1765524   (101399) от 13.12.2024
 
-VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance>
+Trouble County - Blacken the Sky (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Manuel Rocca - Time Happens Flying (Araya & Wach 'Polisia' Remix) 07:20
-02. Araya & Wach - Tunland (Aiera Remix) 07:11
-03. Miroslav Vrlik - Love In Us (Manuel Rocca Levitated Mix) 07:04
-04. Miroslav Vrlik - Sweetheart (Original Mix) 06:43
-05. Ahmed Romel - City Of Life (Running Man Remix) 08:46
-06. Ico - And She Made It All Of Light (Thomas G 303 Mix) 07:58
-07. Evo & Faveon - Essence (Denis Sender Remix) 07:01
-08. K-Narf & Tristan Armes - Glimmer (N&R Project Remix) 07:57
-09. Kaimo Kerge - For What Its Worth (Airway 7 Vs Alter Future Remix) 07:53
-10. Inca - Time (Original Mix) 08:362012Жанр: TranceПродолжительность: 01:16:32
+01. Wasted (5:14)
+02. Awake (5:02)
+03. Rapturous Me (3:48)
+04. Gotta Try (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:489BABA50135FB59CD2814ACC6E1F3A42DE421BC
+magnet:?xt=urn:btih:C8F9DDBE871E8B7A64F6F03ADFD0AEE945BA28E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765618   (101398) от 13.12.2024
+
+Reviver - Carnival of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Wind of Destiny (0:58)
+02. What's In Thy Command (3:54)
+03. Along the Crusade (3:57)
+04. Carnival of Chaos (4:09)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7594CF980A2C24C9CF90FFE0DD779EE41DB9D56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765635   (101397) от 13.12.2024
+
+After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow People (4:54)
+02. Clones (5:46)
+03. Dust to Dust (4:08)
+04. Thanks But No Thanks (5:02)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A66577F41F8D9A1F7C4495B93C756DC440C88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765521   (101396) от 13.12.2024
+
+Blue Oyster Cult - 50th Anniversary Live - Third Night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Career Of Evil (Live) (4:18)
+02. Subhuman (Live) (5:02)
+03. Dominance And Submission (Live) (5:17)
+04. M E 262 (Live) (8:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6338912EBFA95E64AC68972838C773E13DF584BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765447   (101395) от 13.12.2024
+
+Nine Days - The Madding Crowd (2000) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. So Far Away (3:56)
+02. Absolutely (Story of a Girl) (3:09)
+03. If I Am (4:18)
+04. End Up Alone (3:58)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DF3F303383AEE6C190C18EEB3574F8CEC6093F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765578   (101394) от 13.12.2024
+
+Violet - Mysteria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Sex in Harmony (4:18)
+02. Angelina (Talk to Me) (4:50)
+03. Bad Dream (4:59)
+04. That Night (4:14)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FDC813CA675D7A14ED7A9FAFFEECAECE78F9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765510   (101393) от 13.12.2024
+
+The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Drowning - группа из Уэльса, Великобритания. Основана в 2003 году.2005 - Withered (EP)
+2006 - When the Light Was Taken from Us
+2008 - This Bleak Descent
+2010 - Black Lights And Silent RoadsЖанр: Melodic Doom/Death MetalПродолжительность: 05:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEDA3B6CC9F506BA68A6A11F134267D17A85B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765705   (101392) от 14.12.2024
+
+A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Бартон" (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую мистическую серию игр. Добро пожаловать в отель «Бартон»! Этот просторный особняк, превращенный в отель, достался последнему члену семьи после смерти патриарха. Новый владелец готов к тому, чтобы его отполировали, вычистили и выставили на продажу. Только есть проблема. Прошлое отеля, тесно переплетённое с историей вашей семьи, возвращается странным (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09416A84E426878B1671BDCF8FD008DF25505EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765765   (101391) от 14.12.2024
+
+Н.В. Иноземцева, С.И. Прач. | Подшипники скольжения и их расчет (2023) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В разработанном учебно-методическом пособии приведены сведения, относящиеся к подшипникам скольжения.
+Содержит методики и примеры расчета и выбора посадки с зазором для подшипника скольжения по дисциплине «Нормирование точности и технические измерения».
+Основной целью данного пособия являлось оказание помощи студентам при выполнении курсовой работы по дисциплине (   Читать дальше...   )Жанр: учебное пособие, детали машинИздательство: Гомельский государственный технический университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B4508D3792D2D3F38C18D5CC15AB62A3A33A94
 ```
 
 https://mybot314.ru/tekegram_catalog/

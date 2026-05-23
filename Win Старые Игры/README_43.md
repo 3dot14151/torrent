@@ -1,3 +1,29 @@
+###  Публикация: 1803215   (13874) от 21.06.2025
+
+Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Очнувшись после падения, Мишель Ардан не сразу пришёл в себя. Капсула, в которой он совершал полёт с двумя компаньонами, приземлилась на Луне вместо того, чтобы вернуться на Землю. Как теперь отправиться на свою планету? Что случилось с друзьями Мишеля? Чтобы найти ответы на эти вопросы, нашему герою потребуется познакомиться с обитателями спутника Земли селенитами, (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroidsЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8013ECEEB0A740CC90371D15FEC2A0C1E507342C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803648   (13637) от 24.06.2025
 
 BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
@@ -6,7 +32,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Far Cry (2004) [Ru] (1.40) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Manhunt (2004) [Ru] (1.1) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ OpenSCP (2025) [Ru/En] (01.05) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Emergency: Fighters for Life (1998) [En] (1.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | P
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ The Blackwell Legacy (2006) [En] (4.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D55B868D257112F38C67F8A175606B068786D7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718246   (4731) от 02.09.2025
-
-Emperor of the Fading Suns / Император Угасающих Звезд (1997) [En] (1.5.2a-p1) License GOG [Enhanced]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emperor of the Fading Suns – это глобальная пошаговая стратегия с необычным сеттингом. На дворе пятое тысячелетие. Люди освоили подобие звездных врат, начали колонизировать далекие планеты и стали знакомиться с пришельцами. Так продолжалось до тех пор, пока не начали гаснуть солнца. В результате миры стали умирать, а человечество утратило технологии и деградировало. (   Читать дальше...   )Тип издания: LicenseРазработчик: Holistic Design, Inc.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079C0852C84086A0D07969E7CEF2AA7767AD5B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

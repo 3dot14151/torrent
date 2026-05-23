@@ -1,3 +1,108 @@
+###  Публикация: 976525   (968258) от 18.01.2016
+
+Иерей-сан. Исповедь самурая (2015) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой - Такуро Накамура, в крещении отец Николай - священник японской православной церкви, в прошлом профессиональный спортсмен, а в настоящем - родной брат главы одного из влиятельных кланов якудза. Однажды он не смог пройти мимо насилия и защитил обычную девушку, вступив в схватку с людьми из враждебной брату группировки. Война кланов якудза неизбежна. (   Читать дальше...   )Производство: Россия / Студия ОртодоксЖанр: боевик, драмаРежиссер: Егор БарановАктеры: Кэри-Хироюки Тагава, Пётр Фёдоров, Иван Охлобыстин, Игорь Жижикин, Петр Мамонов, Дарья Екамасова, Любовь Толкалина, Людмила Чурсина, Надежда Маркина, Алина Бабак, Вадим МедведевПеревод: Не требуется (Русский, Лицензия BD RUS)Язык субтитров: РусскийПродолжительность: 01:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D6D1C7A6304AB539462743A2C1ED9319466545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618826   (968154) от 15.02.2013
+
+На Байкал 2: На абордаж (2012) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Как мы помним, в первой части фильма студент питерского института кинематографии отправился на Байкал, чтобы снять там свою дипломную работу, а заодно от души повеселиться. Валентина и его друзей ждало множество самых немыслимых приключений, которые они запомнили на всю оставшуюся жизнь. Надо ли говорить, что в фильме «На Байкал 2: На абордаж» будет еще больше безумия, (   Читать дальше...   )Производство: Россия, SinemaЖанр: КомедияРежиссер: Михаил КозловАктеры: Сергей Никонов, Евгений Жамцуев, Михаил Козлов, Александр Хамнушкин, Максим Покровский, Евгений Ганелин, Дарья Прокопьева, Мария Галимова, Юлиана Шкабарова, Юлия Борисова, Наян Сагаев, Артем БурловПеревод: Не требуется (Русский)Продолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093BE42F04F0BD8EAE5794D2CCD4A6813148322E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168953   (968130) от 22.01.2010
+
+Обстоятельства (2009) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Две супружеские пары собираются провести вечер за ужином. Однако в назначенный час в квартире оказываются лишь трое из них. Наконец, приходит и та, которую все заждались. Очень странной походкой. В очень странной шапочке. С нечеловеческим аппетитом и совершенно человеческой жаждой любви. Что могут скрывать друг от друга верные мужья и жены? На что готовы пойти ради вашего семейного счастья ваши закадычные друзья? И чем может обернуться тихий дружеский ужин, приготовленный из обид и подозрений, опасности и страха, нежности и настоящей любви?Жанр: Комедия
+ Ссылка на IMDB /исправлено/Режиссер: Павел РуминовАктеры: Илья Любимов, Михаил Крылов, Полина Кутепова, Елена Морозова, Павел Руминов, Николай КуликовПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977097   (967297) от 19.01.2016
+
+Без комментариев / No comment (2015) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Во имя первой любви к прекрасной турчанке молодой немец отказывается от своего прошлого, сжигая семейные фотографии. Он больше не Томас. Теперь его зовут Хамза. И он завербован. Алексей Басаргин — капитан российской армии, разведчик, любящий муж и отец. Они ведут видеодневники своей жизни. Две судьбы. Два мира. Столкновение неизбежно.Производство: РоссияЖанр: ДрамаРежиссер: Артём ТемниковАктеры: Александр Новин, Леонард Проксауф, Дмитрий Журавлев, Евгений ОреховПеревод: Не требуется (русский)Продолжительность: 01:47:15Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4338A44CFD9D8B737909FEA9BD7BB15ED72272E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358913   (967135) от 09.02.2020
 
 Брошенный (2019) WEBRip
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67CE0EFA89945A03CC3884C5F8260BE63D7F4F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360169   (961840) от 14.02.2020
-
-Три дня Клавы Грачевой (2018) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1951 год. Клава Грачёва едет забирать своего мужа из колонии-поселения, в которой он пробыл 9 лет. Тот не сильно рвётся домой. У Клавы есть всего три дня на то, чтобы во всем разобраться и забрать мужа.Производство: Россия / ВГИКЖанр: Короткометражный, драмаРежиссер: Иван ГриголюнасАктеры: Ольга Калашникова, Наргис Абдуллаева, Сергей УдовикСубтитры: ОтсутствуютПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A8FB0D8B3362D8604A0CED8A9803ADD754B4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360194   (961714) от 14.02.2020
-
-Красавица и воры (2019) SATRip [H.264] (сезон 1, серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Валерия — следователь прокуратуры. Вся её жизнь — служба закону, в жертву которой принесена и недолгая семейная жизнь. Валерия готовится получить очередное звание. Однако вместо повышения её «временно отстраняют» от дел — пропало пустяковое дело о дорожном хулиганстве, которое вела наша героиня.Производство: Россия / NRG FILMЖанр: детектив, мелодрамаРежиссер: Андрей СилкинАктеры: Светлана Антонова, Максим Щёголев, Анастасия Панина, Анатолий Лобоцкий, Максим Коновалов, Михаил Дорожкин, Ирина Баринова, Вахтанг Беридзе, Александр Красовский, Иван Гришанов и др.Продолжительность: ~ 00:42:53+00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7890293C728DC1503C997575C78B28207CAF21C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622009   (961303) от 21.02.2013
-
-Белый мавр, или Интимные истории о моих соседях (2012) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это ироничная, местами откровенно смешная и в тоже время грустная история о буднях так называемого «верхнего среднего класса» — воспетой в Америке Вуди Алленом, но пока еще весьма малочисленной в нашей стране прослойке состоятельных граждан. Помимо завидного достатка, всех этих погрязших в экзистенциальных сомнениях и банальных адюльтерах бизнесменов, кинозвезд, (   Читать дальше...   )Производство: РоссияЖанр: Драма, КомедияРежиссер: Дмитрий ФиксАктеры: Александр Галибин, Андрей Соколов, Екатерина Стриженова, Жанна Эппле, Игорь Верник, Сергей Астахов, Олеся Железняк, Анна Якунина, Галина Петрова, Ирина Гринёва ...Субтитры: ОтсутствуютПродолжительность: 01:39:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747721   (961222) от 20.01.2014
-
-Девушка в приличную семью (2012) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961222.jpg" />
-</div>
-
-
-###  Подробнее
-
-В старом подмосковном поселке, на даче, принадлежащей известному художнику Сергею Волынскому, проживает его сын Саша с женой Мариной и дочкой шести лет.
- Отношения в браке непростые: Саша старше Марины на 12 лет, у него проблемы с алкоголем, а после периода первоначальной влюбленности выясняется, что у мужа и жены мало общего. Марина - девушка из простой семьи, а (   Читать дальше...   )Производство: Россия, Новый проектЖанр: МелодрамаРежиссер: Виктория ЛопачАктеры: Анастасия Савосина, Михаил Полицеймако, Александр Половцев, Юлия Майборода, Николай Аверюшкин, Ольга Науменко, Алексей Фатеев, Кристина Пакарина, Елизавета ЗарубинаПродолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FCACB5672F0FCD43E7163FB18FBA28D5E079FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

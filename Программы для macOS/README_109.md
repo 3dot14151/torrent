@@ -1,3 +1,29 @@
+###  Публикация: 1258993   (332856) от 01.11.2018
+
+iSkysoft PDF Editor 6 Pro - Edit & OCR 6.7.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+iSkysoft PDF Editor 6 Pro - программа для общего редактирования документов PDF формата, инструмент из серии все-в-одном. В функции редактирование входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR ( оптическое распознавание символов ), есть режим конвертирования документа в разные другие форматы (Поддерживает форматы Microsoft Word, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2018Разработчик: iSkysofПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7256331D229583B7F40868CFB8B123B978C5CB28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331488   (332345) от 15.10.2019
 
 KeeWeb 1.11.9 [Multi/Ru]
@@ -6,7 +32,7 @@ KeeWeb 1.11.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ MPV 0.12.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ PhpStorm 10.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ MarsEdit 4 v4.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ iTunes 10.1.0.54 [x86 64] (dmg)
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +166,7 @@ FileMaker Pro Advanced 14.0.4.406 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +195,7 @@ ABBYY Lingvo Dictionary для Mac 1.9.6 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +224,7 @@ PhotoDesk for Instagram 3.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +253,7 @@ DxO Optics Pro Elite 10.5.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -253,7 +279,7 @@ BiglyBT 1.2.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -280,7 +306,7 @@ App Uninstaller 4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -308,7 +334,7 @@ Newsletters Templates for Pages 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -337,7 +363,7 @@ Graphics 2.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -365,7 +391,7 @@ TextLab 1.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -391,7 +417,7 @@ Resume Templates 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,7 +445,7 @@ Brochures Templates for Pages 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +473,7 @@ Posters Templates for Pages 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -473,7 +499,7 @@ Aktuell - RSS news reader 3.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +553,7 @@ Toast 11 Titanium (11.1) [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +583,7 @@ DxO OpticsPro for Photos 1.4.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +611,7 @@ zCommander 3.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +637,7 @@ ColorSnapper 2 v1.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -640,7 +666,7 @@ TurnTable 3.2.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -669,7 +695,7 @@ ToothFairy 2.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -681,33 +707,6 @@ ToothFairy поможет вам перейти от одного выбранн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:702E33B7BBC2679541F9890B109AD84C6F05A2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959426   (317079) от 24.11.2015
-
-Network Utility X 4.2.6 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Network Utility X - полный набор сетевых инструментов.
-С Network Utility X Вы можете быстро найти всю информацию о своей сети. Информация, такая как внутренний и внешний IP, имя ISP, сетевое имя, MAC-адрес, адрес шлюза, маска подсети и адреса DNS.  Кроме того, одним щелчком Вы можете PING домен, запросить сервер или использовать службу NSLookup/Dig. Вы можете скопировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 ноября 2015Разработчик: Fausto RistagnoПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др;
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F7A0EE59C8F903A46989ABB6683F676E208D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

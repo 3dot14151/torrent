@@ -6,7 +6,7 @@ Qik - Alba (2020) Aula Magna Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Exhibition #100 (2020) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ex
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tauon - Somewhere (2020) Sine Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, H
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bersarin Quartett - Discography 6 Releases (2008-2020) Denovali Records [FLAC|Lo
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +119,7 @@ Ian Wellman - Bioaccumulation (2019) Room40 [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +148,7 @@ Khotin - Beautiful You (2018) Khotin Industries [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +177,7 @@ Liquid Bloom - Tylepathy Remixes - One With Nature (2020) Desert Trax [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +235,7 @@ Dead Can Dance - Dionysus (2018) [pias] [FLAC 2.0|44.1/24|tracks|WEB-DL] <Tribal
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -264,7 +264,7 @@ Jose Vizcaino - Disconnection (2019) Seven Villas Voyage [FLAC|Lossless|WEB-DL|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Losing Today (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +322,7 @@ Sangam - Finder (2018) House of the Leg [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +351,7 @@ Hank Hobson - Unline Mix (2018) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient, Dr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +380,7 @@ Pulusha - Isolation (1997) Evolution [FLAC|Lossless|tracks+.cue] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +407,7 @@ Olafur Arnalds - some kind of peace (2020) Decca / Mercury KX [FLAC 2.0|44.1/24|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Full Circle (2018) A Strangely Isolated Place [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +465,7 @@ BT - Between Here And You (2019) Black Hole Recordings [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +494,7 @@ Steve Good (aka Puff Dragon) - 間 = Ma (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +523,7 @@ Alphaxone & Xerxes the Dark - Aftermath (2018) Cryo Chamber [FLAC|Lossless|WEB-D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +552,7 @@ Arc Of Doves - Discography 7 Releases (2009-2017) [FLAC|Lossless|tracks + .cue] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +581,7 @@ Gamardah Fungus - Collection 8 Releases (2011-2020) [FLAC|Lossless|Web-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +611,7 @@ Orla Wren - Moccasin Flowers (2015) silentSEED [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -640,7 +640,7 @@ Atrium Carceri & Cities Last Broadcast - Black Stage of Night (2019) Cryo Chambe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -669,7 +669,7 @@ Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -698,7 +698,7 @@ Nigel Stanford - Solar Echoes (2014) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -727,7 +727,7 @@ Ana Roxanne - Because Of A Flower (2020) Kranky [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 

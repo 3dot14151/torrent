@@ -1,3 +1,29 @@
+###  Публикация: 1008924   (797540) от 26.04.2016
+
+Нетронутые уголки дикой природы / Natures Microworlds (2012-2014) SATRip (сезон 1-3 из 3, серии 1-16 из 16)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наша планета – величайшая загадка Вселенной. Миры внутри других миров, каждый из которых - это самостоятельная экосистема, наполненная жизнью. Для того чтобы понять, как эти миры устроены, мы попытаемся исследовать их по отдельности. Мы сможем разобрать эту необыкновенную мозаику по кусочкам и обнаружить главный элемент – ключ к самой жизни, спрятанный глубоко в (   Читать дальше...   )Телекомпания: Великобритания, British Broadcasting Corporation (BBC)Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~00:30:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61834014E25578D900E040F3CB8FF5CC37939024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010369   (797353) от 26.04.2016
 
 Тайны квантовой физики / The Secrets of Quantum Physics (2 серии из 2) (2014) HDTVRip (1080p-LQ)
@@ -6,7 +32,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC. Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC: Удивительный мир данных / The Joy of Data (2016) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC. Искусство Германии / Art of Germany (2010) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC. Искусство Испании / The Art of Spain (2008) SATRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC. Искусство России / The Art of Russia (2009) HDTVRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +344,7 @@ BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +370,7 @@ BBC: Планеты / The Planets (2019) HDTVRip [H.264/720p-LQ] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +396,7 @@ BBC: Сексуальная эксплуатация малолетних в Я�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +422,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) UHD BDRemux [H.265/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +448,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +474,7 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +500,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +526,7 @@ BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +552,7 @@ BBC: Вулканы Солнечной системы (Космические В
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +578,7 @@ BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +631,7 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -631,7 +657,7 @@ BBC: Как найти любовь по интернету / How to Find Love O
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,32 +668,6 @@ BBC: Как найти любовь по интернету / How to Find Love O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654ABD4B0A176B11B3430FAF5617D2B475314059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210891   (778083) от 05.03.2018
-
-BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/1080i-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед нами могучая река Инд, давшая название целому субконтиненту. По этой реке мы отправимся на 5000 лет назад в древнюю Индию, чтобы найти скрытые сокровища. На берегах Инда развивались древние цивилизации. Мы откроем утраченную буддийскую культуру северного Пакистана, насладимся расцветом архитектуры империи великих моголов и причудливыми храмами южной Индии. (   Читать дальше...   )Производство: Великобритания, Tern Television Production Ltd for BBCЖанр: Документальный, путешествия, история, архитектураРежиссер: Хью Томпсон, Спайк ГейлинджерПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 3 х ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F6A07CC962962C6E922369776D0E48F3C46A38
 ```
 
 https://mybot314.ru/tekegram_catalog/

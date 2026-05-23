@@ -1,108 +1,3 @@
-###  Публикация: 1780084   (27431) от 16.02.2025
-
-Арсений Замостьянов | Русские народные сказки с объяснялками для взрослых и детей (2023) [PDF, EPUB, FB2, FB3, RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему мы любим сказки? Они увлекательны! С раннего детства мы влюбляемся в этот страшноватый и лукавый фольклорный мир. Еще сравнительно недавно – в начале ХХ века – сказки заменяли детям и взрослым и радио, и библиотеку, и телевидение, и интернет. Сказитель был важнейшей фигурой в жизни любого села. У него набирались уму-разуму, его сказки слушали и взрослые, и (   Читать дальше...   )Жанр: детская познавательная и развивающая литература, русские сказкиИздательство: РодинаФормат: PDF, EPUB, FB2, FB3, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADE401D84282789E1D458249A591F9FBF2A68A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780878   (26992) от 20.02.2025
-
-Саша Станишич | Волк (2024) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский лагерь в лесной глуши. Отдых на природе, походы, картошка на костре, докучливые комары... На несколько дней подростки оторваны от цивилизации, гаджетов и социума. Два одноклассника — изгой класса Йорг и одиночка Кеми — становятся соседями по домику. Йорга, замкнутого и тихого парня, несколько одноклассников подвергают насмешкам, унижениям и всяческим издёвкам. (   Читать дальше...   )Жанр: детская проза, зарубежные детские книги, психологическая проза, социальная прозаПеревод: Ольга ТеремковаИздательство: СамокатФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CFDD78B591BE827414754D7E2A35DB3319E3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782118   (26245) от 27.02.2025
-
-Книжная серия | Наша марка [7 книг] (2016-2022) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги серии «Наша марка» — это стихи и сказки для малышей, познавательные истории для школьников о природе и животном мире, рассказы и повести о детях. В серию входит множество классических произведений известных русских писателей и художников и книги современных авторов.
-Маленькие герои «Нашей марки» — активные и деятельные ребята, мечтатели и фантазеры. Они любознательны (   Читать дальше...   )Жанр: Детская проза, Детские приключенияИздательство: Детская литератураФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BDD281EC299C23A309DE1B736C59F16E353A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785225   (24584) от 15.03.2025
-
-Жозеф-Шарль Мардрюс | Тысяча и одна ночь. Арабские сказки (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перевод этой книги сделан с французской версии сказок «1001 ночи» под редакцией Ж.-Ш. Мардрюса, отличающейся от других изданий наиболее пикантным изложением. Специально к изданию Мардрюса художник Леон Карре создал иллюстрации, полные восточной неги и чувственности.Жанр: ПрозаИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0624F253E18204A75D5246F809916C252F7F674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786827   (23835) от 22.03.2025
 
 Йон Бауэр | Среди эльфов и троллей. Сказки скандинавских писателей (2022) [PDF]
@@ -111,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -137,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -164,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -192,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -218,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -244,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -270,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -296,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -322,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -348,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -587,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -613,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -667,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -679,6 +574,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6643A2EED4A761CB89935CB5CBB7E63B6B730E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815506   (5167) от 30.08.2025
+
+Питер Браун | Дикий робот [3 книги] (2018-2025) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Удивительная сказка про одного робота по имени Роз, попавшего на необитаемый остров. История начинается с кораблекрушения. Попавшее в шторм судно идет на дно вместе со своим грузом — многочисленными коробками, в которых аккуратно упакованы сотни роботов. Постепенно обломки прибивает волнами к затерянному в бескрайних водах острову. Все коробки разбились о прибрежные (   Читать дальше...   )Жанр: Фантастика, сказка, приключенияИздательство: Манн, Иванов и ФерберФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C70011649B277F9F8807CE8BE47EA1263561D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815897   (4796) от 01.09.2025
+
+Рудольф Распе | Приключения барона Мюнхгаузена (2025) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Первый перевод этой книги на русский язык, сделанный в 1791 году, назывался «Не любо – не слушай, а врать не мешай». Но если бы барон Карл Фридрих Иероним фон Мюнхгаузен об этом узнал, он наверняка вызвал бы переводчика на дуэль. Ведь всем на свете известно, что никто из Мюнхгаузенов никогда не врал и врать не будет! И какими бы невероятными ни выглядели приключения (   Читать дальше...   )Жанр: Художественная, приключения, детскоеИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DFBD1B66CAB529CC5EBE8F0AD5C4C2FE8D285E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815855   (4774) от 01.09.2025
+
+Анатолий Уреевский | Аквариум (1958) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли 8 коротких поучительных рассказов для детей младшего школьного возраста.
+Иллюстрации П.П. Давыдова.Жанр: РассказИздательство: Новосибирское книжное издательствоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AE29558840BF6449729F69FF990C3D70ECDD05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010798   (3975) от 07.09.2025
+
+Михаил Лермонтов | Бородино (1985) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Бородино́» — стихотворение Михаила Юрьевича Лермонтова. Было написано в начале 1837 года. Опубликовано в журнале «Современник» в 1837 году. Посвящено Бородинскому сражению 7 сентября 1812 года, в котором русская армия сражалась против наполеоновского войска.Жанр: ПоэзияИздательство: Детская литератураФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994AAD1AB1D63FDCF7AD6B56332B79B324A4C2E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

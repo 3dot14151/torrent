@@ -1,3 +1,55 @@
+###  Публикация: 1455966   (1025485) от 20.03.2021
+
+Индия: Королевство Тигра / India: Kingdom of the Tiger (2002) HDTVRip [H.264/720p] [EN / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+"Индия - Королевство Тигра" окружает нас пейзажем одной из древнейших цивилизаций мира, ставит нас лицом к лицу с одним из самых величественных животных в мире - Бенгальским тигром. Путешествуя по этой экзотической земле огромной красоты, мы идем по стопам истории Джима Корбетта - писателя, охотника и защитника природных ресурсов, который еще в начале 1900-ых (   Читать дальше...   )Производство: Канада, National Wildlife Productions, Primesco Communications Inc.Жанр: Документальный, познавательный, путешествияРежиссер: Брюс НейбаурПеревод: ОтсутствуетСубтитры: Русские (ред. Kenny911STYLER)Продолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E96F3EB37DBF729E402F4B05908EFDC2A69F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456885   (1024762) от 24.03.2021
+
+BBC. Дневник большого медведя / Big Bear Week (2006) SATRip (серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Медведи-мамы - свирепые и нежные; маленькие медвежата - беспомощные и уязвимые в детстве - но самые жестокие убийцы в будущем. Съемочные группы отправляются в самые удаленные уголки планеты: их цель - отыскать среди медведей уникальные персонажи и показать зрителям удивительно насыщенную жизнь этих животных.Производство: Великобритания, BBC Bristol, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Брюс Райтерман, Гэвин ТёрстонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 5x ~00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF9963AF2C6850B62085CA4B2BD76DA0CE1387B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457375   (1024427) от 26.03.2021
 
 Щенячья школа / Pick of the Litter (2018) WEB-DL [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A97988C51FF7083618F31C4645B707E9E233F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468518   (1017067) от 08.05.2021
-
-Слон / Elephant (2020) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об африканском слоне Шани и её энергичном сыне Джомо, когда их стадо совершает эпическое путешествие на сотни миль через обширную пустыню Калахари. Возглавляемая своим великим матриархом Геей, семья сталкивается с сильной жарой, проблемами с ресурсами и назойливыми хищниками, когда они следуют по стопам своего предка в поисках густого, зелёного (   Читать дальше...   )Производство: США, DisneynatureЖанр: Документальный, приключения, семейныйРежиссер: Марк Линфилд, Ванесса БеровицПеревод: Двуголосый закадровый, любительский (KinoPub)Субтитры: Английские, французскиеПродолжительность: 01:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980FDBB1525B3E0FF339F20890C7A053A7B13D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468652   (1016852) от 09.05.2021
-
-Крошечный мир / Tiny World (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 2, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал исследует крошечных существ в различных экосистемах по всему миру, а также изучает их необычные навыки, помогающие приспосабливаться к переменчивому и жестокому миру природы. Зрителю предоставляется возможность познакомиться с образом жизни слоновой землеройки, термитов, карликовых мангустов, навозных жуков и многих других удивительных созданий. (   Читать дальше...   )Производство: США, Plimsoll ProductionsЖанр: Документальный, природа, фаунаРежиссер: Alex Ranken, Эд Уоткинс, Lucy WellsПеревод: Двуголосый профессиональный (HDRezka Studio)Субтитры: Русские, украинские, английскиеПродолжительность: серии x ~00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97DC568DF65A570F5488AFBF91405BB59A68744
 ```
 
 https://mybot314.ru/tekegram_catalog/

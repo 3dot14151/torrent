@@ -1,3 +1,166 @@
+###  Публикация: 1796667   (9573) от 02.08.2025
+
+Музыка на советском телевидении. Гостелерадиофонд (2025) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "Музыка на советском телевидении" @gtrfmusic по состоянию на 11 мая 2025 года.
+
+Канал посвящается советским песням. Их хорошо знают наши старшие члены семьи, и они почти не известны молодым.
+(   Читать дальше...   )Жанр: музыка, концерт, документальный, искусство, история, телепередачаПродолжительность: 1735:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7FAC67DE8A8F05D86CB8E8C87ADABDDD6D1DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812013   (8306) от 12.08.2025
+
+Лебединое озеро / Schwanensee (1966) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых знаменитых и красивых постановок балета. Композитор: Петр Ильич Чайковский.
+В четырех актах балета чередуются реальные и фантастические картины. Празднуя свое совершеннолетие в дворцовом парке, принц Зигфрид веселится среди друзей, однако пролетевшая над парком стая лебедей манит его за собой. В лесу, на берегу озера среди девушек-лебедей принц находит (   Читать дальше...   )Производство: Германия (ФРГ), Австрия, США / ORF, Neue Thalia, Seven Arts PicturesЖанр: балет, музыкаРежиссер: Трак БрансУчастники: Марго Фонтейн (Одетта / Одиллия), Рудольф Нуреев (Принц Зигфрид), труппа Венского балета, Венская Опера (Wiener Staatsoper). Венский Симфонический Оркестр (Wiener Symphoniker)Перевод: не требуетсяСубтитры: английские (forced hardsub) либреттоПродолжительность: 01:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA57C59E845A13FCD9707B4B6DB65BB48A10756E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732216   (7796) от 15.08.2025
+
+Кино и Виктор Цой. Концерт в СКК Олимпийский (1990) DVBRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет запись одного из последних концертов Виктора Цоя и группы "Кино", состоявшегося 5 мая 1990 года в московском спорткомплексе "Олимпийский". Пройдёт три с половиной месяца, и 15 августа 1990 года, легендарный советский рок-музыкант погибнет на 35-м километре автодороги Р-126 "Слока-Талси" в Тукумском районе Латвии.01. Группа крови
+02. Песня без слов
+03. Звезда по имени Солнце
+04. Закрой за мной дверь(   Читать дальше...   )Жанр: рок, музыкальный, концерт, документальныйПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812549   (7759) от 15.08.2025
+
+Роджер Уотерс - Это не учения - Концерт в Праге / Roger Waters: This Is Not a Drill - Live from Prague (2025) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E420B45A5AC41AEDBA0D384C1F5AC9AF5E8306B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812728   (7516) от 16.08.2025
+
+Roger Waters: This Is Not a Drill - Live from Prague (2025) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812836   (7509) от 16.08.2025
+
+KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A10C75BCA635315E48078E3A2BF24B2B40A44CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812882   (7480) от 16.08.2025
 
 Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
@@ -6,7 +169,7 @@ Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +195,7 @@ NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +221,7 @@ HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +247,7 @@ STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +352,7 @@ NEMOPHILA - 5th Anniversary. JIGOKU NO YURUFUWA LIVE at NIPPON BUDOKAN (2024) BD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +382,7 @@ Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +434,7 @@ Whitney Houston - Концерт в Южной Африке / Whitney Houston - 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -355,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -384,7 +547,7 @@ Gorillaz - The Happy Dictator ft. Sparks (2025) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +573,7 @@ Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -436,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -465,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1402160   (691797) от 19.08.2020
+
+Твин Пикс / Twin Peaks (1990) BDRip [H.264] (сезон 1, серии 1-8 из 8) NovaMedia
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История начинается с известия о находке обнажённого тела Лоры Палмер, «завёрнутого в полиэтилен» и выброшенного волнами на берег озера. В ходе расследования перед внимательными взглядами агента Купера, шерифа Трумана и его помощников проходят разные жители Твин Пикс. Постепенно зритель открывает для себя тёмную и страшную сторону жизни обитателей на первый взгляд (   Читать дальше...   )Производство: США /  Lynch/Frost Productions, Propaganda Films, Spelling EntertainmentЖанр: триллер, драма, криминал, детектив, фантастикаРежиссер: Дэвид Линч, Лесли Линка Глаттер, Калеб ДешанельАктеры: Кайл МакЛоклен, Майкл Онткин, Шерил Ли, Лара Флинн Бойл, Шерилин Фенн, Рэй Уайз, Мигель Феррер, Дэвид Линч, Билли Зейн, Хизер Грэм и др.Перевод: Многоголосый, профессиональный - NovaMediaПродолжительность: ~00:46:00 серия (1 серия - 01:34:08)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADEE3D6CF827C97CA725B9149DA765F53E1BEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538240   (691285) от 10.05.2015
+
+Тихий Дон (1957) DVD9 (серия 1 из 3)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Одно из выдающихся произведений российского кинематографа с большой художественной силой и достоверностью воссоздающее драматические события, связанные с установлением советской власти на Дону и разрушением векового уклада жизни русского казачества. Исторический, психологический и эмоциональный стержень фильма — судьба донского казака Григория Мелехова и его рода.Жанр: Драма, ВоенныйРежиссер: Сергей ГерасимовАктеры: Петр Глебов, Николай Смирнов, Людмила Хитяева, Наталья Архангельская, Даниил Ильченко, Антонина Филиппова, Александр Благовестов, Элина Быстрицкая, Александр Жуков, Александра Денисова, Зинаида Кириенко, Александр Новиков, Карпов, Елена Максимова, Карякин, Валентина Хмара, Александр Шатов, Игорь Дмитриев, Вильям Шатуновский, Михаил Глузский, Александр Титов, Вадим (   Читать дальше...   )Продолжительность: 01:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C0845ED0CADA22197DD53B6267107737E20F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402942   (689883) от 20.08.2020
 
 Твин Пикс / Twin Peaks (1991) BDRip [H.264] (сезон 2, серии 1-22 из 22) NovaMedia
@@ -6,7 +58,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E65757EFA9F381D895D018E2935B075302F8BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786935   (622414) от 08.06.2018
-
-Ликвидация (2007) DVDRip [H.264] (14 серий из 14)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1946 года. Маршал Жуков в опале. Он отправлен в ссылку в Одессу, где нет житья от воров, убийц и вымогателей, а дерзкая безжалостная банда «Степные волки» повадилась грабить военные склады. И всем заправляет неуловимый немецкий шпион «Академик», которого никто не знает в лицо. И только начальник угрозыска Давид Гоцман и Георгий Жуков могут спасти город. Они (   Читать дальше...   )Жанр: Детектив, Криминал, ВоенныйРежиссер: Сергей УрсулякАктеры: Владимир Машков, Михаил Пореченков, Владимир Меньшов, Сергей Маковецкий, Светлана КрючковаПродолжительность: 00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C612B1AD84D6CF93D53974DCF6A4EC4D3A1A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542220   (619565) от 16.04.2022
-
-Тихий Дон (1957-1958) DVDRip [H.264] (серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного романа советского писателя, лауреата Нобелевской премии Михаила Шолохова.
-Одно из выдающихся произведений российского кинематографа, с большой художественной силой и достоверностью воссоздающее драматические события, связанные с установлением советской власти на Дону и разрушением векового уклада жизни русского казачества. Исторический, психологический (   Читать дальше...   )Производство: СССР, киностудия им. ГорькогоЖанр: Революционно-эпическая драмаРежиссер: Сергей ГерасимовВ ролях: Петр Глебов, Элина Быстрицкая, Зинаида Кириенко, Даниил Ильченко, Людмила Хитяева, Николай Смирнов, Александр Жуков, Наталья Архангельская, Александра Денисова, Александр Благовестов, Борис Новиков, Игорь Дмитриев, Михаил Глузский, Вильям Шатуновский, Вячеслав Бутенко, Петр Чернов, Александр Граве, Дмитрий Капка, Валентина Хмара, Петр Любешкин, Елена Максимова, Ольга (   Читать дальше...   )Язык субтитров: РусскийПродолжительность: 01:43:56 х 01:50:10 х 01:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB30E20E098632D1EA85B1A31BE37E5313E6CCE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

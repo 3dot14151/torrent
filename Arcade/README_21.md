@@ -1,3 +1,29 @@
+###  Публикация: 1110468   (603258) от 07.07.2017
+
+Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В игре присутствует 14 эпизодов, разбитых на 3 сезона различной сложности, а перед ними — ещё и три пилотных (подготовительных) эпизода, позволяющих игроку научиться тонкостям игры. Первый сезон состоит из 6 эпизодов. В нём игроку доступны кухня, гостиная, холл и ванная. Во втором сезоне присутствуют только 4 эпизода, и игроку открываются спальня и балкон. Третий (   Читать дальше...   )Тип издания: LicenseРазработчик: JoWooD Productions SoftwareЖанр: Приключение, Квест, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC83D31C3EB790788106F061E07337D8CF501B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975374   (602810) от 08.07.2017
 
 Mitsurugi Kamui Hikae (2014) [En/Jap] (1.1.4.0) License GOG
@@ -6,7 +32,7 @@ Mitsurugi Kamui Hikae (2014) [En/Jap] (1.1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Outland (2014) [Ru/En] (1.13) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Fly and Destroy (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Black The Fall (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Cast of the Seven Godsends - Redux (2016) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Omensight (2018) [Ru/Multi] (1.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Oddworld: Munch’s Oddysee HD (2010) [En] (1.0/upd 14) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Swords of Ditto (2018) [Ru/Multi] (1.15.04-202) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +293,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.0.41.212) RePack xGhos
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Alien Shooter 2: Золотое издание [Ru] (L) (2007)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Inked (2018) [Ru/Multi] (20180528-1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +371,7 @@ Bubsy: Paws on Fire! (2019) [Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +397,7 @@ Lock's Quest (2017) [Multi] (20170716) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +423,7 @@ Mortal Kombat Anthology (1997-2015) [Ru/En] Repack R.G. Catalyst [Fatality Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +449,7 @@ Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +475,7 @@ Dark Future: Blood Red States (2019) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +501,7 @@ Risky Wings (2018) [Ru/Multi] (502) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +527,7 @@ Risky Wings (2018) [Ru/Multi] (502/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +553,7 @@ Milanoir (2018) [Ru/Multi] (1.1.0.213) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +579,7 @@ Ice Age 4: Continental Drift - Arctic Games [Ru] (RePack/1.0) 2012 l R.G. Elemen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +605,7 @@ Grow Up (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +631,7 @@ Marvel: Ultimate Alliance 2 (2016) [En] (1.0/upd20160804) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -631,7 +657,7 @@ Foreign Legion: Buckets Of Blood [Ru] (P) 2009
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -642,32 +668,6 @@ Foreign Legion: Buckets of Blood - полная русская версия - с
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043818   (570116) от 17.08.2016
-
-Mind Dead (2016) [En] (1.0) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mind Dead — это аркадный шутер-хоррор. Вы играете  за Макса  Купера - агента SSF, который на нефтедобывающей станции должен спасти группу ученых от вспышки инфекции и сопроводить их обратно в научно-исследовательский центрТип издания: LicenseРазработчик: GBROSSOFTЖанр: Action (Survival horror), Arcade, 3D, 3rd PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21CF361BFEAC85D5CDC849AFCE7FC38E86BA3A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

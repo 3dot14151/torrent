@@ -1,3 +1,133 @@
+###  Публикация: 292166   (906130) от 07.02.2011
+
+AP Guitar Tuner 3.08 [Английский]
+
+>>След.
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Audio Phonics Guitar Tuner это быстрый и точный гитарный тюнер. Используя оригинальную технологию определения высоты тона, программа точно определяет ноты с задержкой, не превышающей 50 миллисекунд. К тому же алгоритм определения тона автоматически адаптируется к быстродействию процессора для более устойчивой работы. Программа проста в использовании, имеет красивый интерфейс и главное совершенно бесплатна. Мне кажется, это лучшая программа для настройки гитары с помощью компьютера!Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490530   (903599) от 29.02.2016
+
+Plug&Mix - V.I.P. Bundle v.2.0.0 x86.x64[VST][En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В условиях современного рынка, музыкальная продукция постоянно развивается. Продюсерам и артистам необходимы профессионально звучащие плагины, которые еще и просты в использовании. Очень часто, драгоценное студийное время тратится впустую из-за слишком сложных аудио плагинов. Плагины необходимы чтобы раскрыть ваш потенциал, а не сдерживать его. В ответ на ваши запросы (   Читать дальше...   )Язык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88F214997CF734FEE3F6A3979FFB710E5FF8AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997218   (870985) от 18.03.2016
+
+Nuance Vocalizer Expressive: Katya, Milena, Yuri, Allison, Susan 5.2.3 RePack by Zongot [Ru/En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Vocalizer Expressive представляет из себя движок для преобразования текста в речь, который оптимизирован для чтения длинного текста. Продвинутые алгоритмы цифровой обработки сигналов улучшают общую плавность голоса, а расширенный синтаксический анализ обеспечивает естественное звучание.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A75624322390D541B161B2856D4B8B33FF4EE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310196   (838833) от 17.03.2011
+
+Pinnacle Steinberg MyMp3PRO 5.1.0.21 Portable [ENG]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Pinnacle myMP3PRO является совершенным инструментом для каталогизации и управления музыкой. myMP3PRO сочетает в себе высокое качество MP3 и MP3 Pro кодирования с профессиональным уровнем аудио редактирования, микширования, специальных эффектов и записи компакт-дисков возможности доставить невероятный контроль над вашей музыкальной библиотеки. Захват и хранение всей любимой музыку в пользовательские списки воспроизведения, добавлять пользовательские обработки эквалайзером и другие интересные эффекты, а затем сохранить ваши миксы на компакт-диск или в ваш портативный MP3-плеер.Язык интерфейса: ENG
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120149   (802844) от 30.03.2017
+
+Voxal Voice Changer Plus 2.0 [En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Voxal Voice Changer - программа с помощью которой можно изменять голос, что достигается благодаря применению различных эффектов ( изменение высоты тона, добавление эха и др.) в режиме реального времени. Эффекты могут добавляться в любой последовательности, что позволяет до неузнаваемости изменить Ваш голос. Захват звука может осуществляться из разных источников, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FE868ED0A993747B429BF5780E651235F269C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202756   (789342) от 30.01.2018
 
 Neuratron PhotoScore & NotateMe 8.0.4 Ultimate [En]
@@ -6,7 +136,7 @@ Neuratron PhotoScore & NotateMe 8.0.4 Ultimate [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +164,7 @@ Tag&Rename 3.9.5 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -60,7 +190,7 @@ Jajuk 11.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +217,7 @@ LMMS (Linux MultiMedia Studio) 1.2.2 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +244,7 @@ Aerodrums 1.0.22 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +270,7 @@ Tag&Rename 3.9.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +296,7 @@ Line6 - Pod Farm Platinum 2.50.0 STANDALONE, PORTABLE (VST, RTAS) [Eng]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_622885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +328,7 @@ VOCALOID4 Editor 4.3.0 Repack by AlexVox и csf22 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +354,7 @@ AudioBook Reader 0.0.7.1 + Portable [Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +380,7 @@ Sam Broadcaster STUDIO 2016.7
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +406,7 @@ Sam Broadcaster PRO 2016.7 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +432,7 @@ Virtual Audio Cable 4.15 Retail [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +458,7 @@ MiniLyrics 7.7.49 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +484,7 @@ Tag&Rename 3.9.15 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +510,7 @@ Magix Mp3 Deluxe 19.0.1.47 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +538,7 @@ Album Art Downloader 1.0.5 + Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +566,7 @@ Js Stuff - jBridge 1.74 RePack by unknown author [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +592,7 @@ TuneBlade 1.4.1.0 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +618,7 @@ Tau Analyzer 1.2 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +644,7 @@ Sam Broadcaster PRO 2016.10 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +670,7 @@ Tag&Rename 3.9.11 Final RePack (& Portable) by Trovel [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -551,144 +681,6 @@ Tag&Rename - утилита для ручного управления музы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFECB5061C78029EEBB8D36E1141A3CDD8CD826F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264905   (276070) от 26.11.2018
-
-eJay Dance 6 Reloaded [De]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ejay Dance возвращается! Программное обеспечение, которое вдохновило болельщиков со всего мира теперь даже лучше, чем когда-либо.
-У Ejay Dance 6 reloaded это получается: не имеет значения, вы настоящий музыкант или вы просто хотите развлечься, создавая классные треки.
-И это еще не все: в 3D VJ Box вы можете создать видеоклипы с визуальными эффектами для вашей музыки (   Читать дальше...   )Язык интерфейса: Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEA6F019F84D2A0D877AD022F258CFF940DFE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501141   (258411) от 25.05.2012
-
-[Оболочки, Скины] Скины для AIMP
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный пак скинов на любой вкус и цвет для популярного проигрывателя AIMP.
-Различные поверхности: Глянец, Матовые, Стеклянные.
-В папке 192 скина, они подходят как к AIMP 2 так и к AIMP 3.
-Примечание: Скины с форматом .acs3 могут некорректно отображаться во второй версии плеера.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648299   (208308) от 22.07.2023
-
-Crescendo Music Notation Editor 9.62 [En]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Написание нотных записей с использованием произвольной схемы, которая может быть настроена под конкретные нужды. Работайте с набором нотных символов, контролируйте размещение и проверку ключевых и временных подписей, forte, piano, crescendo и всех прилегающих производных.
-
-Написание нот - очень трудоемкий и кропотливый процесс, поскольку сначала нужно записать ноты, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31544F4BE1C52F9E86C5E0DF49E5A1D119FD2DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658835   (190871) от 09.09.2023
-
-Everyone Piano 2.5.9.4 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный продукт представляет собой графический интерфейс виртуального пиано с возможностью управления клавиатурой компьютера, а также подключением внешних MIDI клавишных. Расширение функций за счет подключаемых плагинов пользователь сможет сделать непосредственно из приложения.
-Данная программа  проста и легка в использовании, имеется возможность работы с компьютерной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5AD40430A069D17AF3E3C7577275D5A2694A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271624   (147892) от 24.12.2018
-
-IVONA voices 2 v.1.6.76 + Speech2Go v.1.128 [Multi/Ru]
-
->>След.
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальная программа, использующая все функции и возможности синтезаторов речи. Позволяет читать и слушать текст в документах и приложениях. Встроенный OCR-модуль распознаёт изображения, содержащие текст, и преобразует его пригодный для чтения вид.Язык интерфейса: Русский (русификатор), Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB41EA2E4F45F676DFE5A4B4AA02F3D510AE6235
 ```
 
 https://mybot314.ru/tekegram_catalog/

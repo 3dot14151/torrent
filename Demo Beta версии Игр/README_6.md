@@ -1,3 +1,81 @@
+###  Публикация: 251426   (377555) от 29.10.2010
+
+[Benchmark] Tom Clancy's H.A.W.X. 2 [En] 2010
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В Tom Clancy’s H.A.W.X. 2 у тебя есть все шансы стать элитным пилотом, находящимся за штурвалом современных боевых истребителей. Используй свои способности для управления совершенными технологическими устройствами. В твоем распоряжении окажутся грозные истребители, штурмовики, бомбардировщики, беспилотники и другие типы самолетов, обладающие разрушительной огневой мощью. Управление вектором тяги и СДР (система дополненной реальности) – лишь малая часть технологий, которые позволят тебе почувствовать себя настоящим асом! От Москвы до Персидского залива, от Северного полярного круга до Индийского океана – со спутниковыми картами высокого разрешения от GeoEye ты везде сможешь насладиться реализмом происходящегоТип издания: BenchmarkЖанр: Simulator (Flight Combat) / 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175753   (375719) от 19.10.2017
+
+The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Падение самолета — лишь начало. Восемь выживших остались брошенными посреди суровых лесов Аляски, полных секретов и тайн. The Wild Eight — это суровое приключение в случайно генерируемом мире, полном опасности и испытаний. Добывай ресурсы для выживания и исследуй локации в поисках спасения бок о бок с другими игроками. Или ты попробуешь выбраться отсюда в одиночку?Тип издания: RepackРазработчик: HypeTrain DigitalЖанр: Simulator (Survival, Top-Down), RPG, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57ADFCCB9C637669CE5DDD1D4D195C94490E555A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339509   (373517) от 13.10.2020
+
+Stranded Deep (2015) [Ru/Multi] (0.74.00) Repack Other s
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Stranded Deep — это квест с видом от первого лица с элементами экшена от студии Beam Team Games. Издателем игры выступает Beam Team Games. Сюжет игры прост - терпя авиакрушение ваш герой оказывается посреди Тихого океана. Сооружаем все что попадется под руку, едим все что движется...Тип издания: RepackРазработчик: Beam Team GamesЖанр: Adventure, Action (Survival), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1CCD6DEB4FD63D73FEAF6BB8E189EC75ADC429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070242   (368120) от 06.11.2016
 
 hack_me (2016) [Ru/En] (0.1/Early Access) Repack Other s
@@ -6,7 +84,7 @@ hack_me (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Spacebase DF-9 (2013) [En] (early access alpha 2 taste oddity) Repack Elektra
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +139,7 @@ Vagante (2014) [En] (Alpha 28b) Unofficial CheatBraker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +165,7 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +191,7 @@ REVERSE SIDE / ОБРАТНАЯ СТОРОНА (2015) [Ru/En] (1.0.2.6.F) SteamR
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +217,7 @@ Salt (2015) [En] (1.6) Repack Hazestalker [Early Acsess]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +243,7 @@ In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +269,7 @@ Bus World (2022) [Ru/Multi] (Build 9649353) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +295,7 @@ Stranded Deep (2015) [En] (0.50.01) SteamRip R.G. Игроманы
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +321,7 @@ Agony (2017) [Multi] (Demo) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +347,7 @@ Thick Air (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +373,7 @@ Visage (2018) [Ru/Multi] (2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +399,7 @@ Off-Road Paradise: Trial 4x4 (2016) [En/Es] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +425,7 @@ The Coma 2: Vicious Sisters (2019) [Ru/Multi] (0.2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +451,7 @@ BIOS (2016) [Ru/Multi] (0.32) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +477,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -425,7 +503,7 @@ Kingdoms Reborn (2020) [Ru/Multi] (0.250) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -451,7 +529,7 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -477,7 +555,7 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +581,7 @@ The Last Starship (2023) [Ru/Multi] (18a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -529,7 +607,7 @@ The Last Caretaker (2025) [Ru/Multi] (0.5.0.581804) Repack Other s [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -555,7 +633,7 @@ PARANOIA PLACE (2023) [Multi] (0.48) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -581,7 +659,7 @@ The Scouring (2025) [Ru/Multi] (02.11.25) Repack R.G. Freedom [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -592,88 +670,6 @@ The Scouring - это стратегия в реальном времени, в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F207C9EF6CC028697227AE95901D0B7AEA70E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492866   (248970) от 08.05.2012
-
-Cisco Aspire (L / Beta) [En] 2011
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisco Aspire — это потрясающая обучающая игра, основанная на моделировании ситуаций. Игра Aspire позволяет развивать бизнес умения и практиковать финансовые навыки с помощью учебных ситуаций в моделированной среде сетевых коммуникаций.
-
-В этой новаторской игре участники действуют под видом выбранного ими аватара. Главная цель состоит в выполнении максимума проектов, в которых Вы выступаете как главный исполнитель каждого контракта по сетевым технологиям. Игрок получает кредитные баллы за каждый выполненный контракт.
-
-Игра подойдет к концу, когда Вы успешно выполните все проекты или когда закончатся кредитные баллы, и невозможно будет делать дальнейшие расходы. Благодаря исследованию учебных бизнес-ситуаций, развиваются предпринимательское мышление, умение творчески подходить к проблемам, а также формируется навык принятия решений.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Симулятор ITшникаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40604C31FDE23E800A1B15A1F6DCBDA0A5DF37D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833183   (246246) от 01.11.2025
-
-Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter Edition Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочное сообщение от пропавшего отца приводит вас на отдалённый остров, скрывающий мрачные секреты. Некогда на этом острове проводились секретные эксперименты, последствия которых каждую ночь вспыхивают странным, мистическим лучом, оживляющим заброшенные электроприборы и пробуждающим чудовищных созданий. Что именно здесь произошло? И какую роль сыграл в этом ваш (   Читать дальше...   )Тип издания: RepackРазработчик: Tiny MagiciansЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008AAFAE4A8C1534D5C5C66D0BBF878E003E218B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642977   (234149) от 30.06.2023
-
-RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачем вы сюда пришли - за сытным пиршеством из разрушения и хаоса. Мы это знали и приготовили для вас щедрую порцию R.I.C.E. Но что же мы туда положили? Глубокий драматичный сюжет, который из кожи вон лезет, чтобы показать, какой он серьёзный и взрослый? Ни капельки. Целую толпу персонажей, которые постоянно жалуются и ноют? Мы срезаем весь жир. Стремительные бои (   Читать дальше...   )Тип издания: LicenseРазработчик: Pirate-RobЖанр: Экшены, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE599B0DE02FB8B8C72FA4396BBAB5A7B372F988
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Fast & Furious Crossroads / Форсаж Перекрестки (2020) [Ru/Multi
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +32,7 @@ Virtual Sports (2017) [En] (1.0) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +58,7 @@ NBA Playgrounds (2017) [Ru/Multi] (1.0) License RELOADED
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +84,7 @@ Combat Chess (1997) [En] (3.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +110,7 @@ Euro Fishing (2015) [Ru/En] (1.0/dlc) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +136,7 @@ MTB Downhill Simulator (2016) [Ru/Multi] (1.04) License HI2U
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +162,7 @@ Virtual Pool 4 (2015) [En] (4.1.4.1) License PLAZA
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hockey Question Mark (2017) [En] (0.55 uh .59) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +214,7 @@ Super Mega Baseball 2 (2018) [En] (1.0.29017.0/dlc) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +240,7 @@ Pro Evolution Soccer 2018 / PES 2018 (2017) [Ru/En] (1.0.5.00) Repack xatab [FC 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +266,7 @@ PES 2016 / Pro Evolution Soccer 2016 (2015) [Ru/En] (1.05.00/dlc) Repack Mizantr
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +292,7 @@ London 2012: The Official Video Game of the Olympic Games (RePack) [En] 2012 | A
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +322,7 @@ London 2012: The Official Video Game of the Olympic Games (RePack) [Multi4\-] 20
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +352,7 @@ Football Club Simulator - FCS 18 (2017) [En] (3.6.1.0) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +378,7 @@ Football, Tactics & Glory (2018) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +404,7 @@ Rugby Challenge 2 (2013) [En] (1.0.0.0) RePack R.G. Revenants
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +430,7 @@ Rugby Challenge 2: The Lions Tour Edition (2013) [Multi] License FAIRLIGHT
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +456,7 @@ F1 2016 (2016) [Ru/Multi] (1.8/dlc) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +482,7 @@ Football Manager Touch 2017 (2016) [Ru/Multi] (17.3.1/dlc) License STEAMPUNKS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +508,7 @@ Football Manager 2017 (2016) [Ru/Multi] (17.3.1/dlc) License STEAMPUNKS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +534,7 @@ Football Manager Touch 2017 (2016) [Ru/Multi] (17.3.1/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +560,7 @@ MotoGP 15 (2015) [Multi] (1.0) Licence CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +588,7 @@ Virtua Tennis 4 (L) [En] 2011 | SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_608025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -641,7 +641,7 @@ FIFA 17 (2016) [Ru/En] (1.0) Repack xatab [Super Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -667,7 +667,7 @@ Descenders (2019) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 

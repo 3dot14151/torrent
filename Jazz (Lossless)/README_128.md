@@ -1,3 +1,61 @@
+###  Публикация: 1294959   (624256) от 10.04.2019
+
+Benny Waters - Live At The Pawnshop (1976) 1999, Opus 3 Records [FLAC|Lossless|image + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Out of Nowhere [5:04]
+02. Some of These Days [8:46]
+03. Summertime [7:43]
+04. Ziggin' and a Zaggin' [6:05](   Читать дальше...   )Жанр: SwingПродолжительность: 01:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE70AF285C6369B8DE1D2B463397065D2B72BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294954   (624123) от 10.04.2019
+
+Benny Waters - From Paradise (Small's) To Shangri-La (1989) Muse Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Topsy [4:18]
+02. Everything Happens to Me [8:53]
+03. Hit That Jive Jack [3:36]
+04. Strollin' Along the Rhine [5:59](   Читать дальше...   )Жанр: SwingПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D15E65EA55BADEFF793ECD27BF6E1736DE13B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145075   (624034) от 24.06.2017
 
 Jenny Scheinman - Mischief & Mayhem (2012) Tzadik [FLAC|Lossless|tracks + .cue] <Modern Creative, Violin Jazz>
@@ -6,7 +64,7 @@ Jenny Scheinman - Mischief & Mayhem (2012) Tzadik [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Anthony Wilson - Anthony Wilson (1997) Mama Foundation [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Dexter Gordon - Four Classic Albums: Second Set (1961, 1962) 2CD, 2019, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Anthony Davis - Of Blues And Dreams (1978) Sackville[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ The Carla Bley Band - Musique Mecanique (1978) 1979, ECM Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ina Forsman - Ina Forsman (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Ret
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Nubiyan Twist - Jungle Run (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Afr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +325,7 @@ The Pentagon - The Pentagon (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Larry Young - Of Love And Peace (1966) /2014, Universal/[FLAC|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Sonny Rollins - Freedom Suite (1958) /2008, Concord/[FLAC|tracks+.cue]<Jazz, Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +412,7 @@ Norah Jones - Begin Again (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +441,7 @@ Anthony Wilson - Goat Hill Junket (1998) Mama Foundation [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +470,7 @@ Mario Biondi - Beyond (2015) /[FLAC|tracks|WEB-DL]<Funk, Soul, Disco>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +499,7 @@ Stephane Grappelli - Jazz Collection (1973, 1974, 1989) 1989, Object Enterprises
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +528,7 @@ Blue Mitchel - Blue Mitchel (1971) 2014, Boplicity Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Andre Hodeir - Essais Par Le Jazz Groupe De Paris (1949 - 1954) 2017, Sony Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +586,7 @@ Anthony Wilson - Campo Belo (2010) Goat Hill Recordings [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Bridges with Seamus Blake - Continuum (2019) [FLAC|Lossless|tracks + .cue] <Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +644,7 @@ Tim Weisberg - Naked Eyes (1994) Fahrenheit Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +673,7 @@ Anne Paceo - Bright Shadows (2019) [FLAC|Lossless|tracks + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +702,7 @@ Gary McFarland Sextet - Point Of Departure (1963) /1998, Impulse!/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +731,7 @@ Ester Rada - I Wish (2015) [FLAC|image+.cue]<Ethno Jazz, Funk, Soul, Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -687,64 +745,6 @@ Ester Rada - I Wish (2015) [FLAC|image+.cue]<Ethno Jazz, Funk, Soul, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AED513601A834BC165341B24071BE73717FB0C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910855   (620367) от 21.06.2015
-
-David Benoit ft. Jane Monheit - 2 In Love (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barcelona Nights
-02. This Dance
-03. Too In Love
-04. Dragonfly(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196E254A3A70209C3B9BE055F29FCE0CC287D1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145564   (620100) от 26.06.2017
-
-Gregoire Maret - Gregoire Maret (2012) M.A.T. [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucilla's Dream [04:57]
-02. The Secret Life Of Plants [04:49]
-03. The Man I Love [04:58]
-04. Travels [04:55](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FDAA1C956AFF093F47E62158E72E72E6B02F32C
 ```
 
 https://mybot314.ru/tekegram_catalog/

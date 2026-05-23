@@ -1,3 +1,30 @@
+###  Публикация: 1395638   (29303) от 30.01.2025
+
+BBC: Теории заговора: Тайное правительство и Джордж Сорос / The Conspiracy Files: The Billionaire Global Mastermind (2019) WEB-DLRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Многочисленные теории заговора связывают имя Джорджа Сороса со всемирным еврейским заговором, тайным правительством, миграционным кризисом, биржевыми скандалами.
+Как возникают подобные теории, кто и зачем их цитирует, и причём здесь политтехнологии – в документальном фильме Би-би-си над этими и другими вопросами размышляют писатели, политики, учёные, и те, кто пострадал (   Читать дальше...   )Производство: Великобритания / BBC Current Affairs, British Broadcasting Corporation (BBC)Жанр: ДокументальныйРежиссер: Michael RudinУчастники: James Hoft, Jack Kingston, Leonard BenardoПеревод: Двуголосый профессиональный (Lucky Production)Субтитры: отсутствуютПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B42C6656421685572D6B019E186E087DD1147FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682340   (28997) от 01.02.2025
 
 BBC. Подделка или удача / Fake or Fortune? (2011) HDTVRip (сезон 1, серии 1-4 из 4)
@@ -6,7 +33,7 @@ BBC. Подделка или удача / Fake or Fortune? (2011) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +60,7 @@ BBC. История возникновения лекарств (Спасите�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +86,7 @@ BBC. Охота / The Hunt (2015) BDRemux [H.264/1080p] (сезон 1, сери�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +112,7 @@ BBC: Майти Буш / The Mighty Boosh (2004-2007) DVDRip (сезоны 1-3) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +140,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +192,7 @@ BBC: Чем мы кормим наших детей? / What Are We Feeding Our K
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +220,7 @@ BBC. Чудеса природы: жизнь на краю Земли / Earth's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +247,7 @@ BBC: Тайны Тихого океана / South Pacific (Wild Pacific) (6 се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +273,7 @@ BBC: Плотоядные. Касатка  / Wildlife Specials. Killer Whale (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +299,7 @@ BBС. Внутренняя вселенная: Тайная жизнь клет�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +325,7 @@ BBC. Операция Стоунхендж: Тайна, скрытая под к
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +351,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +377,7 @@ BBC. Суперчувство / Суперчувства животных / Supe
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +403,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +455,7 @@ BBC: Саймон Шама - История Британии / BBC: Simon Schama
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +507,7 @@ BBC: Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +559,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +585,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +611,7 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +637,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -636,7 +663,7 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -647,32 +674,6 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:212D12E1F7A24872CDCA5FCC2992899A1A7B54C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802178   (14504) от 15.06.2025
-
-BBC. Легендарные тигры Индии / Легендарні тигри Індії / My Tiger Family / Legendary Tigers of India (2024) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпическая 50-летняя история индийского клана тигров и его пяти самых харизматичных и сильных тигриц, которые рассказали о жизни тигров больше, чем кто-либо мог себе представить. Их дом — Рантхамбор, волшебный ландшафт в Раджастане, где доминируют огромный древний форт и три озера, полные крокодилов и добычи тигров. Один страстный человек, Валмик Тапар, посвятил свою (   Читать дальше...   )Производство: Великобритания / Mike Birkhead AssociatesЖанр: документальный, фауна, природаРежиссер: Майк Биркхед, Бет ДжонсУчастники: Валмик ТапарПеревод: дублированныйЯзык озвучки: русский, украинский (компания Кіт)Субтитры: отсутствуютПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8650D07EBEA78A24D5BFFEAD2D7A1A57BFEBA36
 ```
 
 https://mybot314.ru/tekegram_catalog/

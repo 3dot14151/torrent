@@ -1,3 +1,148 @@
+###  Публикация: 1362019   (949460) от 23.02.2020
+
+VA - Sounds Trance Euphoria (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. The Wellkum - It's You
+02. Dj Xboy - Never Ever Give Up
+03. Dark Matter - When Faith Fades
+04. Ehren Stowers - Swarm (Club Mix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 07:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E40CE50194FBC3D636150C6C15FD0BA15BF8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982153   (948280) от 03.02.2016
+
+VA - Top 250 Tracks in the CAR Vol.2 (2015) [MP3|320 кб/с] <Club, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001 3rd Planet - Sevas (Original Mix)
+002 Aaliyah - If Your Girl Only Knew (Liva K Edit)
+003 Ad Brown - From Within (Sebastian Weikum Summer Style Remix)
+004 Ad Brown Feat. Painted Face - Undreamt (Original Mix)(   Читать дальше...   )Жанр: Club, Deep House, Electro HouseПродолжительность: 24:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE80D0090AE8724C598F72F3B6A5DB2967B4315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089943   (947697) от 06.01.2017
+
+VA - Global House Lighting Club (2017) [MP3|320 Kbps] <House, Funky, Tech House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  Daddy's Groove - Where I Belong (Radio Edit) 3:29
+02.  Ambient P - Hot Stuff (Ivan Paganessi Club Remix) 6:06
+03.  Felipe C - Cantores (Original Mix) 4:47
+04.  Aldy Th - Knockout (Original mix) 4:51(   Читать дальше...   )Жанр: House, Funky, Tech House, Progressive, ClubПродолжительность: 08:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40108495D23BB6CD3137CC7B50F607957F47868F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090235   (947692) от 06.01.2017
+
+VA - Progressive Logic House Hits (2016) [MP3|320 Kbps] <House, Progressive, Tribal, Future House, Funky, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin Van Buuren - Mirage (Martijn Ten Velden Extended Remix) 7:01
+02.  Fedde Le Grand - Down On Me (Extended Mix) 4:45
+03.  Deadmau5 - Strobe (Feed Me Remix) 9:27
+04.  David Guetta & Cedric Gervais ft. Chris Willis - Would I Lie To You (Radio Edit) 3:18(   Читать дальше...   )Жанр: House, Progressive, Tribal, Future House, Funky, ElectroПродолжительность: 03:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291394CAB104985A7E4391C0D12FAF4394A5F60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090229   (947660) от 06.01.2017
+
+VA - Selected DJ Tracks Impact (2017) [MP3|320 Kbps] <Future House, Funky, Bigroom, Bassline, Jackin, Drum n Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  Dirty Disco ft Jeanie Tracy - Fabulous (E Thunder & Rob Phillips Fab Mix) 6:08
+02.  Maroon 5 ft Kendrick Lamar - Dont Wanna Know (Mark Anthony vs San Holo Next Episode Bootleg) 3:29
+03.  Evgeny Lebedev - Behind You (Original Mix) 6:08
+04.  Dash Berlin & DBSTF Ft. Jake Reese & Waka Flocka & DJ Whoo Kid - Gold (Club Mix) 2:26(   Читать дальше...   )Жанр: Future House, Funky, Bigroom, Bassline, Jackin, Drum n BassПродолжительность: 07:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93EB1E4984530CBD184F0811CB912330E2647337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090121   (947539) от 06.01.2017
 
 VA - Deep House + Kizomba (2017) [MP3|320 Kbps] <Deep House>
@@ -6,7 +151,7 @@ VA - Deep House + Kizomba (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Traxsource Top 200 Tracks of (2016) [MP3|320 Kbps] <House, Deep House, Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Dream Dance Vol.82 (2017) [MP3|320 Kbps] <Trance, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Cozy Winter Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Deep and Sexy: 20 Deep House and Funky House Music Tunes Vol.6 (2016) [MP3|
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - House Nation Volume 1 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Lounge At The Seashore 4 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Goa Session By Rocky Tilbor (2 CD) (2016) [MP3|320 кб/с] <Psychedelic, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Freezing Trance Mix: 100 Hit January (2017) [MP3|320 Kbps] <Trance, Melodic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - Similar Sound: Winter Drum And Bass (2017) [MP3|320 Kbps] <Drum And Bass, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Kontor Top Of The Clubs: The Best of 20 Years (2017) [MP3|320 Kbps] <House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Car Satellite: Full Set EDM (2016) [MP3|320 кб/с] <Electro, House, Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Beatport Techno: Electro Sound Pack #13 (2020) [MP3|320 Kbps] <Techno, Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Beatport Trance: Pack Electro Sound #12 (2020) [MP3|320 Kbps] <Trance, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - Disco At Chiken (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - GNO: New Disco Funk (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Enormous Digital Reading House (2017) [MP3|320 Kbps] <House, Tech House, Fu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - Ultimate Party Colors January (2017) [MP3|320 Kbps] <Future House, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Top 100 EDM Songs & DJ Tracks December (2017) [MP3|320 Kbps] <Electronica, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Top 100 DJs Alive Sound (2017) [MP3|320 Kbps] <Tech Trance, Electro, Dutch,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,162 +745,6 @@ VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE01F47CA3F69F90803E425B890846C2AD044F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363095   (944931) от 26.02.2020
-
-VA - Winter Bash: Mega Dance Hands Up Party (2020) [MP3|320 Kbps] <Dance House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944931.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moam - Run With It
-002. Marwell - Jaipur (Radio Edit)
-003. Sunrider - Instant Moments
-004. Big Box - Nichtraucherzone(   Читать дальше...   )Жанр: Dance House, Tech HouseПродолжительность: 07:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284CD0617947AD77AF44750CB09FCD1C9016437F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091005   (944573) от 08.01.2017
-
-VA - 100 Physical Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Physical Dreams & Ana Ruth - I Will Always Carry With Me  8:15
-002.  ReLocate - Venom (F.G. Noise Remix)  7:04
-003.  Jo Cartwright - Embrace You (Maratone Remix)  6:49
-004.  Kaimo K - Rise & Smile  7:59(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 11:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EE49C02D83EBAE9BF8A1A5DFBAF8195A684004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626475   (944559) от 05.03.2013
-
-VA - Club Dubstep №29 (2013) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gemini feat. Fabienne - 3D Romeo (Original Mix)
-02. J.Nitrous - Anywhere But Here (Original Mix)
-03. Quba ft. Daniella - Be Better (Original Mix)
-04. Infuze - Black Out
-05. Rye Rye - Boom Boom (EOS Remix).
-06. Beauty Brain, Poisound - Bullfighter
-07. Jibbs - Chain Hang Low (Crizzly & AFK Remix)
-08. Zeds Dead & Omar Linx - Crank
-09. Majai - Crumble (Klaypex Remix)Жанр: DubstepПродолжительность: 02:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CE791580E1783AB9C958A627DB44A2E6F4EB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624076   (944462) от 05.03.2013
-
-VA - Exotic. The Finest Eastern Melodies (2012) [MP3|320 кб/с]<Chill Out, Lounge, Ethnic, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944462.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Продолжительность: 01:09:43
-
-01. Karunesh - Vishnu
-02. Wellness Pur - Die Innere Starke
-03. Blue Planet - Latin Masala
-04. Hiroshi Nagashima - Karvan
-05. Karunesh - Bollywood Delight
-06. Buddha Sounds Ft. Kantik & Shankari Lasya - Dakhenha
-07. Thievery Corporation - Indra(   Читать дальше...   )Жанр: Chill Out, Lounge, Ethnic, New AgeПродолжительность: 03:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72CF4BD87745552D5754DFD1BE5A2C84C6E60FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983342   (943871) от 06.02.2016
-
-VA - Lucid Dreams: Mermaid Party (2016) [MP3|320 кб/с] <Electro, Club, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zoo Brazil ft. Philip - Heart's A Legend (Solarstone Pure Remix) 08:56
-002. Paris & Simo - Avon 05:14
-003. Western Disco Feat. Lura - The Sun (Black Box Remix) 03:56
-004. Tim Shaft - Unstoppable 04:06(   Читать дальше...   )Жанр: Electro, Club, Funky HouseПродолжительность: 09:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D235CEFDE0B0B7F1621C5289F6D2C807BC54C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

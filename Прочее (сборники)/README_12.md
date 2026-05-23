@@ -1,3 +1,206 @@
+###  Публикация: 1464735   (1019622) от 23.04.2021
+
+VA - Workout Motivation  1 (2021) [MP3|320 Kbps] <Dance, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Ilkan Gunuc, Emrah Turken - Polkka (2:16)
+02. Siedah Garrett, Eden Prince - Do You Want It Right Now (2:41)
+03. JUDICI, Molinoir, Bright Lights - Pump It Up (2:33)
+04. Poylow, CPX, Britt Lari - Blinding Lights (2:07)(   Читать дальше...   )Жанр: Dance, House, OtherПродолжительность: 03:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A2A651413FB0D9FE150603B586A3BBB8ECDFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465342   (1019291) от 25.04.2021
+
+VA - Music News vol.94 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Diana Brescan feat. Frijo - Felina (Chopin Beats Remix) (02:46)
+ 002. Ahzee & TWINNS feat. Nissa Seych & Odreii - Ou te Baba (02:43)
+ 003. Akord - Где Ты, Где Ты (03:36)
+ 004. Alcatrash - Eisai Oti Eho (03:51)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A55B325F542F5D99191CB0AB88F0C8D37E9DDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465172   (1019290) от 25.04.2021
+
+VA - The Official UK Top 100 Singles Chart 23.04.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Nas X - MONTERO (Call Me By Your Name)
+02. Justin Bieber, Daniel Caesar, Giveon - Peaches
+03. Joel Corry, Raye, David Guetta - BED
+04. POLO G - RAPSTAR(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D70154CD6559D8318BAC1C0C20E29367C5C09CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465306   (1019288) от 25.04.2021
+
+VA - Music News vol.93 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. RYZE - Девочка Повзрослела (02:51)
+ 002. Alzabi - Улети (02:55)
+ 003. AMI feat. Tata Vlad - Enigma (02:54)
+ 004. Anet Fadeeva - Скажу Я Спасибо! (04:04)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614B0EE3C9C11B9D14993FFFD389CAD514DF5349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465365   (1019283) от 25.04.2021
+
+VA - Music News vol.95 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Mira - Nave Spatiale (Adrian Funk & OLiX Remix) (03:40)
+ 002. Adriana Mezzadri - Marcas De Ayer (Starix Remix) (02:21)
+ 003. Akha - Какая Ты Красивая (03:11)
+ 004. Aleksia - Лавшеринг (02:35)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139A5F4C50FB3FA88EDC35C0940A67A7CCC8FF26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465761   (1018943) от 27.04.2021
+
+VA - Workout Motivation 2 (2021) [MP3|320 Kbps] <Dance, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Sophie Francis - Six Pack (2:33)
+02. Lucas Estrada, Wahlstedt, AMAYA - Naked (3:16)
+03. Broder - Mood (2:00)
+04. Emdi, Ardo - drivers license (3:00)(   Читать дальше...   )Жанр: Dance, House, OtherПродолжительность: 03:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201BAE585B3233FF66F6775FFEC29817C636E1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466282   (1018581) от 29.04.2021
+
+VA - Music News vol.96 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Inna - Oh My God (02:48)
+ 002. Ahmet Kilic & Caglar Bal - Save The Day (Radio Mix) (03:57)
+ 003. Alperen Ocak - Broken Heart (02:43)
+ 004. ARCHI & WEGAS - Апрель (03:50)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C799990C8E06104910B074E29EFD189A9D047164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466505   (1018416) от 30.04.2021
 
 VA - Workout Motivation 3 (2021) [MP3|320 Kbps] <Dance, House, Other>
@@ -6,7 +209,7 @@ VA - Workout Motivation 3 (2021) [MP3|320 Kbps] <Dance, House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Beast Mode Dance (2021) [MP3|320 Kbps] <House, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Beast Mode Latin (2021) [MP3|320 Kbps] <Pop, Latin, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - just hits (2021) [MP3|256 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Richard Jacques, TJ Davis & Planet Perfecto - Metropolis Street Racer (1996-2021
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Red & Black: Hardstyle DJ Zone (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Shazam Хит-парад World Top 200 Апрель (2021) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - Music News vol.97 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Апрель) (2021) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Новинки Русских Ремиксов Май (2021) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - 30(4) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Most live performances (2021) 10CD [MP3|320 Kbps] <Rock, Pop, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Music News vol.98 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Music News vol.100 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - Громкие новинки Мая (2021) [MP3|320 Kbps] <Pop, Dance, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Music News vol.101 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - Зайцев.нет Лучшие новинки Мая (2021) [MP3|320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - Топ 100 Лучшие русские треки 2020-2021 [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +731,7 @@ VA - Music News vol.102 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -542,209 +745,6 @@ VA - Music News vol.102 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55D5190DBF30827BA7D55944BD6DEC26526D71D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471990   (1014672) от 23.05.2021
-
-VA - The Official UK Top 100 Singles Chart 21.05.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tion Wayne, Russ Millions - Body
-02. Olivia Rodrigo - good 4 u (New Entry)
-03. Doja Cat, SZA - Kiss Me More
-04. Lil Nas X - MONTERO (Call Me By Your Name)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9DF28F18C95A6DA7932AC5ECAD2D6A20DB042C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472619   (1014238) от 26.05.2021
-
-VA - Chocolate Funky House (2021) [MP3|320 Kbps] <Funky, Disco House, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодии и само построение трек листа сборника "Chocolate Funky House" напоминает что то старое, что то, уже проверенное временем, но до сих пор пользующееся определённым успехом в музыке. Можно назвать эту музыку "Кругосветное путешествие во времени" - переплетение стран, времени и стилей!001. Silver Nail - You're A Woman
-002. DJ Hypnosis - I Believe I Can
-003. Alessio Oldani - Funking
-004. Bass Funk - Get Ready(   Читать дальше...   )Жанр: Funky, Disco House, Nu DiscoПродолжительность: 09:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941039993EEDC0F7400DE5AF018F1A0CAFC49FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472622   (1014198) от 26.05.2021
-
-VA - Evrybody Clap: Disco Party (Vol.01) (2021) [MP3|320 Kbps] <Disco, Nu Disco, Disco House, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка не стоит на месте и постоянно движется вперед. Возникают какие-то новые стили, модные тенденции и направления. Но иногда можно услышать довольно старые хиты в новой обработке, которые не уступают новейшим песням по звучанию и мелодичности. Сборник именно таких хитов, возможно уже забытых многими, представляем вам для прослушивания. Многие меломаны оценят звучание (   Читать дальше...   )001. Electro Potato - Video Game
-002. Donna Summer - When Love Takes
-003. Dave Rodgers - Wild Heaven
-004. Roberto Lee - Love Games(   Читать дальше...   )Жанр: Disco, Nu Disco, Disco House, FunkyПродолжительность: 09:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEA5A0CEC5A19714F8736CF843D6A783F440CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472752   (1014195) от 26.05.2021
-
-VA - Music News vol.103 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014195.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кристина Орбакайте - Я-Кристина Орбакайте (03:14)
- 002. 3 Sud Est feat. Andra - Jumatatea Mea Mai Buna (Moonsound & Cristi Nitzu Remix) (02:59)
- 003. 1986zig feat. Bozza - Goldraub (02:21)
- 004. ABAKAR - Ночные Огни (04:13)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9F9CDB98AC7659E0D222A0EE1A538EEB6C0695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473346   (1013667) от 29.05.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 28.05.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INNA - Flashbacks (2:33)
-02. The Weeknd - Save Your Tears (3:35)
-03. Nessa Barrett & JXDN - La Di Die (3:15)
-04. HVME & Travis Scott - Goosebumps (Remix) (2:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE3F3F1F3A01E0341BC7CFC2A28022918D264B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473757   (1013383) от 31.05.2021
-
-VA - Music News vol.104 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013383.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Franka - Пофигизм (02:59)
- 002. Alesso feat. Stray Kids & CORSAK - Going Dumb (Mike Williams Remix) (02:47)
- 003. Alexandra Stan - Aleasa (Moonsound & Cristi Nitzu Remix) (02:27)
- 004. Alok & Bloodline feat. The Vamps - Another You (02:39)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 11:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C65B0D37A0BE55B75D5BD77A1B148EE0F2D49C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473891   (1013331) от 31.05.2021
-
-VA - All Out 80s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013331.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cutting Crew - (I Just) Died In Your Arms (4:40)
-002. UB40, Chrissie Hynde - I Got You Babe (3:09)
-003. Paul McCartney, Stevie Wonder - Ebony & Ivory (3:43)
-004. Queen - I Want To Break Free (4:18)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 10:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B873D8D592FE3C245CD06EDCEB853AEDBDDC8CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

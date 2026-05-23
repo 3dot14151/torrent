@@ -1,3 +1,55 @@
+###  Публикация: 1341705   (893313) от 04.09.2021
+
+Фантоцци / Fantozzi (1975-1999) DVDRemux [Антология]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+По книгам Паоло Вилладжо. Популярнейший итальянский комик сам придумал Уго Фантоцци, среднего итальянца, невезучего, милого балбеса, ставшего героем комедии на долгие годы.Производство: Италия / Rizzoli Film S.p.a., Maura International Films, Reteitalia, Scena FilmЖанр: КомедияРежиссер: Лучиано Салче , Нери Паренти, Паоло ВилладжоАктеры: Паоло Вилладжо, Анна Маццамауро, Джиджи Редер, Джузеппе Анатрелли, Умберто Д’Орси, Лью Босисио, Дино Эмануэлли, Плинио Фернандо, Паоло ПаолониПеревод: Дублированный, многоголосый, двухголосый, авторский, одноголосыйЯзык озвучки: Русский, украинский, итальянскийСубтитры: Русские, итальянскиеПродолжительность: 01:43:21 / 01:44:59 / 01:33:34 / 01:23:47 / 01:29:40 / 01:34:36 / 01:22:19 / 01:32:31 / 01:36:59 / 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85F069A50426A3E3BC7D9881455598F1BB709F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868276   (891967) от 14.02.2015
+
+Ганнибал Лектер: Коллекция / Hannibal Lecter Collection (1986-2007) BDRip [1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Серия фильмов о докторе Лектере — чрезвычайно выдающемся, образованном психиатре и хирурге, одновременно чудовищном серийным убийцей, практикующем на своих жертвах каннибализм...Производство: Великобритания, Чехия, Франция, Италия / Young Hannibal Productions, Dino De Laurentiis Productions, Carthago Films S.a.r.l.Жанр: Триллер, драма, криминалРежиссер: Питер ВебберАктеры: Гаспар Ульель, Гун Ли, Рис Иванс, Доминик Уэст, Кевин МакКидд, Ингеборга Дапкунайте, Ричард Лиф, Ааран Томас, Хелена Лиа Тачовска, Мишель ВэйдПеревод: Дублированный Парадиз + Профессиональный (многоголосый, закадровый) Киномания + Авторский (одноголосый, закадровый) С. Рябов + ОригиналСубтитры: РусскиеПродолжительность: 2:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD075433272C70552E84487BD19BFB670479B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869343   (888847) от 16.02.2015
 
 Восставший из ада / Hellraiser (1987-1996) BDRip [1080p] [Коллекция]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_824278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B081F53F01AA6328B37C22E4E26BA831767D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881772   (822354) от 26.03.2015
-
-Заложница  / Taken (2008-2012) BDRip [1080p] [дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодую девушку похитили во время туристического отдыха. Её отец пускается в опасное приключение-спасение, чтобы вернуть дочь и наказать виновных лично.
-Брайану Миллсу придется расхлебывать последствия своих действий. Спасая свою дочь, он убил главаря банды, у которого - сюрприз! - есть отец по имени Мурад. Мурад жаждет отмщения и описывается как человек, отдающий (   Читать дальше...   )Производство: Франция, США Великобритания / Europa Corp.Жанр: Боевик, Триллер, КриминалРежиссер: Пьер Морель / Оливье МегатонАктеры: Лиам Нисон, Мэгги Грейс, Фамке Янссен, Горан Костич, Лиланд Орсер и др...Перевод: Дублированный (лицензия)Язык субтитров: Русский (форс,полные), AнглийскийПродолжительность: 01:33:25 / 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED431126184466CB2D6E33C06A5EDCE8850B2F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775656   (817812) от 12.04.2014
-
-Три ниндзя / 3 Ninjas (1992-1998) DVDRip [Квадрология]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817812.jpg" />
-</div>
-
-
-###  Подробнее
-
-На живописной горе Мега раскинулся парк развлечений. Ничто не омрачало отдых беззаботной детворы, пока террористы злодейки Медузы не похитили телевизионную суперзвезду Дэйва Дракона, потребовав огромный выкуп.
-Но она не предполагала, что среди посетителей аттракционов окажутся трое неразлучных братьев — Рокки, Кольт и Там Там, которые великолепно владеют искусством (   Читать дальше...   )Производство: США, ЯпонияЖанр: Боевик, Комедия, СемейныйРежиссер: Шон МакНамараАктеры: Халк Хоган, Лони Андерсон, Джим Варни, Мэтью Ботучис, Майкл О’Ласки II, Джеймс Пол Рёске II, Виктор Вонг, Алан МакРей, Маргарита Франко, Челси ЭрлиуайнПеревод: Авторский одноголосый - Александр Кашкин (Первомайский)Продолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443CDC30FFCC57D9123E6EA785431E0A5097AFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

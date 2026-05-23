@@ -6,7 +6,7 @@ a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +35,7 @@ Depeche Mode - Archive 12 Inch Boxes (2018-2022) Sony Music, RM. [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +64,7 @@ Moxy The Band - Dream Feeling (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -93,7 +93,7 @@ Groove Master Juno - The Last Prism (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -122,7 +122,7 @@ We Are Magonia - Triangle Unicode (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gunship - Unicorn (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -180,7 +180,7 @@ Carrellee - Scale Of Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -209,7 +209,7 @@ Neon Nox - Payback (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lone Runner - Memories of 2082 (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -267,7 +267,7 @@ Makeup and Vanity Set - FM (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dark
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dimi Kaye - The Neon Shredder (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +325,7 @@ New Arcades - Leave Something Behind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eleventyseven - Gloom & Bloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -383,7 +383,7 @@ Acryl Madness - Afterlife (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -412,7 +412,7 @@ Depeche Mode - Delta Machine | The 12" Singles (2023) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -499,7 +499,7 @@ Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +528,7 @@ Cicero - Future Boy (1992) Expanded Edition, 2023, SFE [FLAC|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Spacedance, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kanga - Under Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +615,7 @@ Volkor X - The Loop (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,7 +644,7 @@ Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -673,7 +673,7 @@ Lost Engineer - Antigravity (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -702,7 +702,7 @@ OMD (Orchestral Manoeuvres In The Dark) - Bauhaus Staircase (2023) [FLAC 24/44.1
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -731,7 +731,7 @@ Malik Djoudi - UN (2017) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <Fr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1189109   (272535) от 04.12.2017
+
+Matthias Lupri Group - Same Time Twice (2000) 2002, Summit Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Same Time Twice [07:23]
+02. Song of Change [08:35]
+03. Jade [07:49]
+04. You Just Never Know [06:54](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E85A036424F49DA935C53AC2ADA9ACD4614E589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084077   (272481) от 17.12.2016
+
+Matt Bianco (Mark Reilly) meets New Cool Collective - The Things You Love (2016) [FLAC|Lossless|image + .cue] <Pop Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. We Should Be Dancing
+02. The Things You Love
+03. Double Stich
+04. Do The Right Thing(   Читать дальше...   )Жанр: Pop Jazz, Smooth JazzПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8596FCF5958DC8DA78C9414A589E4BA94F7AD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189087   (272431) от 04.12.2017
 
 Donald Byrd & Pepper Adams Quintet - Out of This World: The Complete Warwick Sessions (1961) 2003, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +64,7 @@ Donald Byrd & Pepper Adams Quintet - Out of This World: The Complete Warwick Ses
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Frank Sinatra - The Sinatra Christmas Album (1987) Capitol[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Chick Corea & Gary Burton - Hot House (2012) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Sir Roland Hanna - Colors From A Giant's Kit (2011) IPO Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Ben Webster - Live At The Haarlemse Jazzclub (1972) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Cannonball Adderley with Milt Jackson - Things Are Getting Better (1958) 1993, R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Guy Lafitte - Blue And Sentimental (1954) 2011, Universal[FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Betty Carter & Trio - I Didn't Know What Time It Was (1993) Jazz Door[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Earl Klugh - Life Stories (1986) Warner [FLAC|Lossless|tracks + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +325,7 @@ Charlie Haden & Brad Mehldau - Long Ago And Far Away (2007) 2018, Universal [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Bebo Valdes - Bebo de Cuba (2004) 2CD, Calle 54 Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Bryan Ferry And His Orchestra - Bitter-Sweet (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +412,7 @@ James Williams, Richard Davis, Ronnie Burrage - I Remember Clifford (1990) DIW [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +441,7 @@ Jay Thomas With The Oliver Groenewald Newnet - I Always Knew (2018) Origin Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +470,7 @@ Floris Kappeyne Trio - Interchange (2017) Challenge Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +499,7 @@ Lou Levy - By Myself (1993) 1995, Verve [FLAC|Lossless|tracks + .cue] <Cool, Pia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +528,7 @@ Steve Lacy - More Monk (1989) 1991, Soul Note [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Bud Shank Quintet & Lou Levy Trio - Jazz in Hollywood Series (1954) 1997, Origin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +586,7 @@ Stan Kenton & His Orchestra - 7.5 On The Richter Scale (1973) 1991, Creative Wor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Count Basie - Basie's Beatle Bag (1966) 1998, Verve [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +644,7 @@ Katharine McPhee - I Fall In Love Too Easily (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +673,7 @@ Aaron Weinstein - A Handful of Stars (2005) Arbors Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -644,7 +702,7 @@ Sabina Hank - Blue Moments (2001) Quinton Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -673,7 +731,7 @@ Lee Morgan - Taru (1968) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -687,64 +745,6 @@ Lee Morgan - Taru (1968) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2ECAACC65ED67C58094967786250A15C81437BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266487   (270083) от 02.12.2018
-
-Dorothy Ashby - Dorothy's Harp (1969) 2014, Universal [FLAC|Lossless|tracks + .cue] <Cool, Third Stream, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Time I Get to Phoenix [3:32]
-02. Canto de Ossanha [3:37]
-03. Love Is Blue [2:53]
-04. Reza [3:02](   Читать дальше...   )Жанр: Cool, Third Stream, Soul-JazzПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF60DACD0BC495957C83C3E2C843904E3770820B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266483   (270078) от 02.12.2018
-
-Barry Harris Plays Tadd Dameron (1975) 1998, Prevue [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot House [4:34]
-02. Soultrane [5:43]
-03. The Chase [5:10]
-04. Ladybird [5:06](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FE83FA0C60A9F688FAFC7F4F6D2C9FA91104EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

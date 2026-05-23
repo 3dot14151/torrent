@@ -1,3 +1,29 @@
+###  Публикация: 1754569   (4509) от 04.09.2025
+
+Tiny Glade (2024) [Ru/Multi] (1.14.2) Repack dixen18
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Tiny Glade – это спокойный и даже местами медитативный симулятор строительства. Никаких сражений, никакого распределения ресурсов, никакой боязни ошибиться. Вы просто творите красоту. Устраивайтесь поудобнее и начинайте возводить прекрасные и величественные замки на живописных лужайках. Забудьте о правилах и координационной сетке. Ваш замок сам будет подстраиваться (   Читать дальше...   )Тип издания: RepackРазработчик: Pounce LightЖанр: Казуальные игры, Инди, СимуляторыЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466F81B6FEA5728653E88B975FA74C3174A192ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760187   (4506) от 04.09.2025
 
 Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack SE7EN
@@ -6,7 +32,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack SE7EN
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Central Bank / Центральный Банк (2025) [Ru/Multi] (0.99b) Scene T
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack seleZen [Premium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.10.370/dlc) Repack FitGirl [Inne
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ SnowRunner (2020) [Ru/Multi] (38/dlc) Repack FitGirl [4-Year Anniversary Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ SnowRunner (2021) [Ru/Multi] (38/dlc) Repack Let'sРlay [4-Year Anniversary Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Vending Machine Business Simulator (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.4 CL#433351) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Factorio (2020) [Ru/Multi] (2.0.66/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.13.07) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ravenous Devils (2022) [Ru/Multi] (Build 9180250) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ FACEMINER (2025) [Ru/Multi] (1.41) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.3.0) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Monster Prom 4: Monster Con (2025) [En] (1.42.a/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Metro Simulator 2 (2022) [Ru/Multi] (1.6.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.547) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Metro Simulator (2019) [Ru/Multi] (5.1c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.43050s/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ RoadCraft (2025) [Ru/Multi] (4.1.PATCH.529928/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack Wanterlude [4-Year Anniversary Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Kitaria Fables (2021) [Ru/Multi] (1.10/dlc) License GOG [Digital Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.741703/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ RoadCraft (2025) [Ru/Multi] (4.0/dlc) Repack seleZen [Rebuild Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ RoadCraft (2025) [Ru/Multi] (4.2/dlc) Repack Let'sРlay [Rebuild Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ RoadCraft (2025) [Ru/Multi] (4.2/dlc) Repack Let'sРlay [Rebuild Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA21A1E6EC114DECE4DBF3CB21E24B178BC55B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791718   (2117) от 19.09.2025
-
-Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры разворачивается на разрушенной экологической катастрофой Земле. Чтобы выжить и понять, что произошло, герой собирает ресурсы, борется с опасностями, ищет лекарство от неизвестной болезни и изучает руины человеческой цивилизации. Одна из главных фишек игры - возможность путешествовать по миру на высокотехнологичном дирижабле - он станет для героя не (   Читать дальше...   )Тип издания: RepackРазработчик: Far From HomeЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6486C20D46E35E54FBBBDAC31F4354AEBA1004F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

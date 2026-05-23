@@ -1,3 +1,110 @@
+###  Публикация: 656912   (816273) от 29.03.2015
+
+Kono Naka ni Hitori, Imouto ga Iru! / Nakaimo: My Little Sister is among Them! / Одна из них – моя сестра! [2012, TV, 12 ep + SP] BDRip Hi10p 720p Raw+Rus x5(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После смерти отца 17-летний Сёго Микадоно стал наследником огромной корпорации. Впрочем, чтобы окончательно вступить в права, он должен выполнить два условия завещания покойного родителя – окончить престижную академию и… еще до выпуска найти подругу на всю жизнь, чтобы вступить в мир большого бизнеса женатым и солидным человеком. Будучи нормальным молодым мужчиной, Сёго не против ни того, ни другого, тем более что заботливая мать уже сняла сыну апартаменты для «укрепления отношений». В новой школе девушки из (   Читать дальше...   )Жанр: комедия, эттиРежиссер: Нава МунэнориФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7B84AE232200BF0A06C59D9176D53818F43C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503910   (815394) от 21.10.2021
+
+Gekijouban Bishoujo Senshi Sailor Moon Eternal | Pretty Guardians Sailor Moon Eternal the Movie | Красавица-воин Сейлор Мун: Вечность [2021, Movie, 2 из 2] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Темная сила окутывает землю после полного солнечного затмения, и воины в матросках должны объединиться снова, чтобы вернуть миру свет.
+
+Фильм 1: После полного солнечного затмения в городе появляется мрачная цирковая труппа. Мамору мучает таинственный недуг, и повсюду начинают происходить странные события.
+(   Читать дальше...   )Производство: Toei Animation / 東映アニメーション, Studio Deen / スタジオディーンЖанр: приключения, фэнтези, махо-сёдзёРежиссер: Кон ТиакиПеревод: Джулия ШипинаЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 2 фильма по 80 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE4F1D6DEAE6C4CBE61A5E726F347A21952B282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382936   (814668) от 13.05.2020
+
+Blend S | Садистская Смесь [2017, TV, 12 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Майка Сакураномия — обычная школьница, которая пытается найти подработку, чтобы поехать обучаться за границу. Только вот девушке постоянно отказывают из-за её «особенного» взгляда... После очередного проваленного собеседования Майка, возвращаясь домой, натыкается на Дино, озабоченного темноволосыми девушками менеджера, который предлагает ей работу в кафе «Stile». (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Комедия, ПовседневностьРежиссер: Масуяма РёдзиОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA0E82E1C8D198941D15471C8EBED45E2F1E7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360462   (814667) от 13.05.2020
+
+Sword Art Online: Ordinal Scale | Мастера Меча Онлайн: Порядковый Ранг [2017, Movie] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2026 год, на смену «Амусферы» приходит «Augma» — устройство расширенной реальности, которая вместо функции «полного погружения», использует дополненную реальность, что делает процесс использования устройства безопаснее и удобнее. Благодаря этому новое устройство расширенной реальности получило большую популярность, а вместе с ней и «Ordinal Scale» — ARMMORPG, разработанная (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Ито ТомохикоОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 02:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A36E1D4AEBD695EAD7F2DCF5E549EBC2EBBF248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858168   (814308) от 30.03.2015
 
 Death Parade / Парад смерти [2015, TV, 12 ep] HDTV 720p Raw+Rus
@@ -6,7 +113,7 @@ Death Parade / Парад смерти [2015, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +141,7 @@ Ruby Weiss Blake Yan (RWBY) / Red White Black Yellow (RWBY) / Красная, Б
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +168,7 @@ Robot Carnival | Карнавал роботов [1987, OVA, 9 из 9] BDRip 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +194,7 @@ Pet Shop of Horrors | Магазинчик ужасов [1999, OVA, 4 эп.] DVD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +220,7 @@ Nanako Kaitai Shinsho | Amazing Nurse Nanako | Изумительная медс
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +246,7 @@ Minami Kamakura Koukou Joshi Jitensha Bu / Женский велоклуб ст�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +272,7 @@ Shoujo Shuumatsu Ryokou / Girls' Last Tour / Последнее путешест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +298,7 @@ Kaguya Hime no Monogatari / The Tale of the Princess Kaguya / Сказание �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +324,7 @@ Nanatsu no Taizai: The Seven Deadly Sins / Семь Смертных Грехо�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +352,7 @@ Garo: Honoo no Kokuin / Гаро: Клеймо пламени [2014, TV, 24 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +378,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +404,7 @@ Tokyo Ghoul Root A | Токийский гуль [ТВ-2] [2015, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +430,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +457,7 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +483,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +510,7 @@ Konohana Kitan | Загадочная история Коноханы [2017, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +536,7 @@ Boku no Hero Academia | Моя геройская академия OVA [2016-201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +562,7 @@ Eikyuu Kazoku | Eternal Family | Вечная семейка [1997, Movie] DVDRi
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +588,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +614,7 @@ Toaru Majutsu no Index II | Некий Магический Индекс [TV-2] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +640,7 @@ Angel Beats! | Ангельские Ритмы! [2010, TV, 13 ep + 3 sp] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +667,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,111 +678,6 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505381   (805877) от 26.10.2021
-
-BECK: Mongolian Chop Squad | БЕК: Восточная Ударная Группа [2004, TV, 26 из 26] BDRip 1064p raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805877.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале была Песня – так верят многие народы, и не зря музыка все так же объединяет нас спустя тысячелетия после начала писаной и неписаной истории. Бек – это аниме про молодых людей, ищущих свой жизненный путь, и про уже состоявшихся людей, которым музыка помогла и помогает в жизни. Бек – это аниме про универсальный язык, на котором могут разговаривать разные поколения. (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: комедия, повседневность, музыкальныйРежиссер: Кобаяси ОсамуПеревод: BECK Sub BandЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC58DA6F835CE2956667E20AA449DFF7AD50F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505355   (805870) от 26.10.2021
-
-Tattoon Master | Мастер Таттун [1996, OVA, 2 из 2] DVDRip 480p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никак не ожидал старшеклассник Хибио Хибино такой подлости от собственной матери: без него его женили. И всё ради чего? Его мать, Масаэ Хибино, та ещё авантюристка, отдала сына в мужья верховной жрице Ниме за возможность беспрепятственно изучать её таинственное племя Таттун. Жрица же — прекрасная юная девушка с магическими способностями, которая, случайно завидев (   Читать дальше...   )Производство: AICЖанр: приключения, комедия, повседневностьРежиссер: Хирокава СюитиПеревод: Егор ЗайцевЯзык озвучки: японский, русскийСубтитры: русские, английскиеПродолжительность: 2 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08D34A77C9C563B7FAB8D78D20F572E4C48C66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505143   (805713) от 26.10.2021
-
-Honoo no Labyrinth | Labyrinth of Flames | Пламенный лабиринт [2000, OVA, 2 из 2] DVDRip 576p 10-bit raw+rus+ukr
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная Россия, Дальний Восток, параллельный мир.
-В середине XIX века после поражения в Японии сторонников сёгуната Токугава его наиболее ярые приверженцы отплыли в Россию. Выкупив у царя большой участок земли, они построили город, спроектированный в полном соответствии с японской традицией - храмами, замками и так далее. Так на Дальнем Востоке появился японский (   Читать дальше...   )Производство: Studio Fantasia / スタジオ・ファンタジアЖанр: комедия, приключения, эттиРежиссер: Нисидзима КацухикоПеревод: Blast Off, PradedЯзык озвучки: японский, русский, украинскийСубтитры: русские, английскиеПродолжительность: 2 эп. по 35 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E5BAD9E27BCBBDB9DD935A02F1538EEB42622E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505568   (803997) от 27.10.2021
-
-Jungle de Ikou! | В джунгли! [1997, OVA, 3 из 3] DVDRip 480p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятилетняя Нацуми – обычная жизнерадостная школьница: беспечная, энергичная, не прочь подраться и/или слинять с доп.занятий... Вернее, Нацуми была обычной школьницей – до того, как ее легкомысленный папаша подарил дочке странный артефакт, вывезенный из гвинейских раскопок: загадочную статую с изумрудными инкрустациями, которые девочка приспособила в качестве серег. (   Читать дальше...   )Производство: Chaos Project / カオスプロジェクトЖанр: комедия, приключения, этти, мистикаРежиссер: Морияма ЮдзиПеревод: Игорь Батуев (Watson), Павел Батуев (Shalcker)Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 3 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCE124CA32692F5DFAF5DF68EDD70BA044A9D9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,110 +1,3 @@
-###  Публикация: 917886   (588641) от 13.07.2015
-
-Б. Житков | Как я ловил человечков (1963) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588641.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Когда я был маленький, меня отвезли жить к бабушке. У бабушки над столом была полка. А на полке пароходик. Я такого никогда не видал. Он был совсем настоящий, только маленький. У него была труба: желтая и на ней два черных пояса. И две мачты. А от мачт шли к бортам веревочные лесенки. На корме стояла будочка, как домик. Полированная, с окошечками и дверкой. (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84AB27D1632DA88B35F11AB8F666F46E2DF1A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917887   (588069) от 14.07.2015
-
-Петер Брок | Тео Носик и Генерал (1965) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Точка и Генерал, Бублик и Герберт, Ирена и Пингвин — пионеры седьмого класса «В» — задорные, озорные, неутомимые выдумщики. Но одни хотят своими выдумками и делами принести пользу школе и родному городу. Другие же затевают проказы и каверзы, и игры их быстро всем наскучивают.
-Как объединить ребят, как найти веселое, настоящее дело?
-Точке и всему отряду неожиданно (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9D9BA8BF40C003F487C5DD8625FABB2030BB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039945   (588017) от 03.08.2016
-
-Джоан Кэтлин Роулинг | Гарри Поттер. Полное собрание [7 книг] (2005-2007) [PDF, DJVU, FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается комплект из 7 книг "Гарри Поттер". Книги, покорившие мир, эталон литературы, синоним успеха. Книги, ставшие культовыми уже для нескольких поколений.Жанр: Зарубежная литература для детейФормат: PDF, DJVU, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9565F3C25C7051809C1C4F433F812B27B38777C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916836   (587995) от 14.07.2015
-
-Риталий Заславский (сост.) | Где ты, барвинок, рос, вырастал (1975) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается сборник песенок, считалок и скороговорок из украинской народной и классической поэзии.
-Удивительная книга, необыкновенная... Читаешь ее - словно по сказочному морю плывешь: от волны к волне, к таинственному острову собственного детства. И радостно на душе, и немножко грустно. Ах, как давно звучали эти милые песенки и потешки на маминых (   Читать дальше...   )Жанр: Детская литература, классическая поэзияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A741130A5D0AE5C7C23E977D74F2B1A5D797FCE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552355   (587709) от 20.05.2022
 
 Игорь Акимушкин | Это всё антилопы (1977) [PDF]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -358,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -674,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,6 +578,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6E41ACCB474291888DC54FB4EEE6B8565A08BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919398   (584109) от 18.07.2015
+
+Иннокентий Жуков | Приключения пионеров в Египте (1926) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Приключения пионеров в Египте" – вторая фантастическая повесть Иннокентия Николаевича Жукова (1875-1948) – скульптора, педагога, писателя, одного из организаторов и идеологов сначала скаутского, а потом пионерского движения. В ней, в отличие от "Путешествие звена «Красной звезды» в страну чудес", пионеры попадают не в будущее, а в прошлое. Через (   Читать дальше...   )Жанр: Приключения, Детская литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E0472C0E97AA8921D2A021D925587A0AEF65DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919300   (584020) от 18.07.2015
+
+Игорь Стрелков | Сказки Заколдованного Замка (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Даже капризные принцессы иногда становятся романтичными и поклади­стыми девушками. Особенно если они оказываются в заколдованном замке, в котором живут волшебник, дракон, прекрасный рыцарь с портрета и семейство удивительных существ - снулей. Изменится ради принцессы волшебник? И почему одни и те же истории рассказываются разными геро­ями книги по-разному?Жанр: Сказки, Фэнтези для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5B35C2CA8FA157983100E698C408A8F8BBD29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301838   (583998) от 12.05.2019
+
+Астрид Линдгрен | Лучшие сказки [Сборник] (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Писательница, подарившая детям удивительно обаятельного персонажа Карлсона и симпатичную сумасбродку Пеппи Длинный чулок, стала родной всем детям мира. Трудно найти семью, где не читали добрые и увлекательные книжки Астрид Линдгрен. Шведская писательница, как никто другой, разгадала детскую душу и нашла к ней тропинку. Простыми словами она очертила главные проблемы (   Читать дальше...   )Жанр: СказкиПеревод: Л.З. ЛунгинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F5D48BE64A01FCA94F3C3CA148E02F0265D197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919173   (583974) от 18.07.2015
+
+Шарль Перро | Кот в сапогах (2004) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В сборник сказок Ш. Перро включены наиболее популярные из них: Золушка, или хрустальная туфелька; Подарки феи; Спящая красавица; Кот в сапогах; Мальчик-с-пальчик; Ослиная шкура; Синяя борода.
+
+Для младшего школьного возраста.Жанр: СказкиПеревод: И. С. ТургеневФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276DC16CC5A51792DD451DC3CE073AA4106696AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

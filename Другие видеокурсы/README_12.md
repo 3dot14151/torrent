@@ -1,3 +1,30 @@
+###  Публикация: 1664766   (184401) от 27.09.2023
+
+Liveclasses, Анатолий Ясинский | Массовый человек и массовая культура (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Разберитесь, как современная культура влияет на нас:
+В этом классе вы изучите, как современная культура пронизывает все аспекты нашей жизни, представляя множество точек зрения. Мы рассмотрим эволюцию культуры от модерна до постмодерна и метамодерна, а также разберемся с культурными кодами. Изучим влияние массовой культуры на современное общество, включая развлечения, (   Читать дальше...   )Производство: LiveclassesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:17:24Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B125C2D04388BBAC5EC9E75E80A5B9B090409D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427580   (182857) от 28.11.2020
 
 MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинарии / Gordon Ramsay Teaches Cooking (2017) HDRip [En / En Sub]
@@ -6,7 +33,7 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +87,7 @@ Udemy, Fabrizio Guerrieri | Базовый курс по электричест�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +142,7 @@ Udemy, Krista King | Станьте Мастером Теории Вероятн
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +197,7 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Обратная с
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -225,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +281,7 @@ Sinclaire Institute | Секреты совершенного секса [2005] 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -281,7 +308,7 @@ Mark Schoen | Секреты совершенного секса / The Better Se
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -307,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -333,7 +360,7 @@ Patricia Llewellyn | Жить Вкусно с Джейми Оливером / Ja
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -359,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -388,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -414,7 +441,7 @@ OratoricaMedia, Владимир Тарасов - Искусство управ�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +468,7 @@ SovaFilm, Игорь Пелинский | Худеем с умом! Меню д�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -467,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -493,7 +520,7 @@ Mark Schoen | Увлекательный секс: Продвинутая сек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -519,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -548,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -577,7 +604,7 @@ Udemy, Krista King | Станьте Мастером Математическо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -606,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -633,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -661,7 +688,7 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -674,32 +701,6 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C011B5F98213C2F4726CFF2829086DDD6C944C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674126   (162128) от 04.11.2023
-
-PBS, Джозеф Кэмпбелл, Билл Мойерс | Сила Мифа (1988) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джордж Лукас после выхода на экраны «Звёздных войн» в конце 1970-х годов заявил, что они были основаны на идеях, описанных в книгах Кэмпбелла. Известная серия интервью с Кэмпбеллом «Сила мифа» была снята на ранчо Лукаса. В этих интервью Джозеф Кэмпбелл помимо прочего рассказывает, как Лукас использовал книгу «Путешествие героя» в «Звёздных войнах» для создания современной (   Читать дальше...   )Производство: PBSЖанр: ИнтервьюЯзык озвучки: РусскийПродолжительность: 07:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2537B65F34BAFEEBDE629DE9F8089C6D830BA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

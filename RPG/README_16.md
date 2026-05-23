@@ -1,3 +1,81 @@
+###  Публикация: 1082788   (785175) от 04.02.2018
+
+Kim (2016) [En] (1.4.1.1) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ролевая игра с открытым миром, вдохновленная одним из самых известных романов Р. Киплинга. Если вы по каким-то странным причинам прогуливали уроки литературы, особенной иностранной, то это была большая ошибка: как много вы упустили! Одно только творчество Р. Киплинга чего стоит...Тип издания: LicenseРазработчик: The Secret Games CompanyЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856A242BE3E20EFFB6475A04DC6EBBF579C2FF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257507   (785034) от 08.06.2020
+
+Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. Истории (2018) [Ru/Multi] (1.0.2.12) Repack Other s
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Thronebreaker: The Witcher Tales» — ролевая карточная игра с одиночной кампанией, события которой разворачиваются в мире «Ведьмака». В ходе кампании вы познакомитесь с самыми разными героями, столкнетесь с полчищами чудовищ и не раз встанете перед выбором, от которого будет зависеть судьба мира Геральта из Ривии. «Thronebreaker: The Witcher Tales» создана авторами (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: RPG, Strategy, FantasyЯзык озвучки: Русский, Английский, ПольскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07199142C15F32D0681CF062E9AC32664A8FE3AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204619   (784526) от 06.02.2018
+
+FINAL FANTASY X/X-2 HD Remaster (2016) [Ru/En] (1.0) Repack xatab
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+FINAL FANTASY X рассказывает историю героя по имени Tidus, звезды невероятного спорта Blitzball, который встречает обаятельную юную чародейку по имени Yuna и отправляется вместе с ней в долгое путешествие. Им предстоит спасти мир Spira от бесконечного цикла гибели и перерождения, причиной которого является колоссальное чудовище Sin.Тип издания: RepackРазработчик: Square Enix Product Development Division 1, VirtuosЖанр: RPG, Third-person, 3D, JapaneseЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED28F4DC8B38D0006B94D8F603868D052AE1B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389728   (783829) от 12.06.2020
 
 Trials of Mana (2020) [Multi] (1.0/dlc) License CODEX
@@ -6,7 +84,7 @@ Trials of Mana (2020) [Multi] (1.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Star Ocean: The Last Hope 4K & Full HD Remaster (2017) [Multi] (1.0.0.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Of Orcs and Men (2012) [Ru/Multi] (1.0.0.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Legend of Heroes: Trails of Cold Steel II / The Legend of Heroes: Trails of 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +188,7 @@ DYNASTY WARRIORS 9 (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Zombasite (2016) [En] (1.021/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Usurper (2018) [En] (1.000/hf3) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.0.8.1/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Elder Scrolls Anthology (1994-2016) [Ru/Multi] Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Technomancer (2016) [Ru/Multi] (1.0.3638) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Aurion: Legacy of the Kori-Odan (2016) [En/Fr] (1.02 update 1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Pyre (2017) [Ru/Multi] (1.50257) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Skyshine's BEDLAM Redux! (2015) [En] (3.10) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Transistor (2014) [Ru/Multi] (1.49815) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Bombshell (2016) [En] (1.2) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Ember (2016) [En] (1.046) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Ember (2016) [En] (1.046) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:367305A2C7B36D8B96562CAEF7FD208925DD7B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212774   (774889) от 13.03.2018
-
-Beast Quest (2018) [Multi] (1.0) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спасите королевство Авантия (Avantia) от разрушения! В приключенческой игре Beast Quest вас ждёт богатый сюжет, интересный мир и множество испытаний.Тип издания: LicenseРазработчик: Torus GamesЖанр: Adventure, RPG, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE83F4906C7B678DE400EE186874EE129E12D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213603   (774789) от 22.01.2019
-
-Ghost of a Tale (2018) [Ru/Multi] (7.91) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghost of a Tale рассказывает историю отважного мышонка-менестреля Тило, который отправился в полное опасностей путешествие, надеясь выбраться из подземелий крепости Тающие башни и узнать судьбу своей возлюбленной по имени Мерра.Тип издания: RepackРазработчик: SeithCGЖанр: Action, АdventureЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E194AEE02E5C9C6CB0DBBABEC0237E7AA649FCF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124925   (772738) от 13.04.2017
-
-Planescape Torment (2017) [Multi] (3.0.3.0) License CODEX [Enhanced Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Planescape: Torment: Enhanced Edition - переработанное издание классической ролевой игры 1999 года. Оригинальная игра Planescape: Torment вышла в 1999 году и сразу же заслужила единогласное признание критиков. Многие журналы назвали ее игрой года и по достоинству оценили необычную историю, запоминающихся персонажей и великолепную музыку. Откройте для себя невероятно (   Читать дальше...   )Тип издания: LicenseРазработчик: BeamdogЖанр: RPG, Strategy (Real-time), FantasyЯзык озвучки: Английский, Французский, ПольскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FCE95569F6D51B5E75BD1272F1477DAB055C223
 ```
 
 https://mybot314.ru/tekegram_catalog/

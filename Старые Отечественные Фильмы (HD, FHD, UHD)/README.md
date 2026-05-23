@@ -1,4 +1,84 @@
 https://t.me/izofen
+###  Публикация: 1872120   (1070174) от 
+
+Опыты академика Павлова (1939) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный фильм «Опыты академика Павлова» сняли по материалам Всесоюзного института экспериментальной медицины им. М.Горького в 1939 году. Консультантами выступили профессора Леонид Андреев и Эразм Вацуро, которые работали с физиологом Иваном Павловым и после его смерти продолжили развивать теорию о высшей нервной деятельности. Киноочерк рассказывает об опытах, (   Читать дальше...   )Производство: СССР / МостехфильмЖанр: научно-популярный, короткометражныйРежиссер: Борис СветозаровСубтитры: в некотоых эпизодах поясняющие интертитры по-русскиПродолжительность: 00:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0D8C5FD572C75900552ACE549E4137D815B5F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870596   (1069005) от 
+
+Руслан и Людмила (1938) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Поставленный по мотивам знаменитой поэмы А. С. Пушкина, фильм погружает зрителя в мир волшебной сказки. Доблестный Руслан, отправившийся на поиски похищенной невесты, одолевает коварство, обман, злое колдовство - и, в конце концов, обретает любовь...Производство: СССР / МосфильмЖанр: сказка, детский, семейный, экранизацияРежиссер: Иван Никитченко, Виктор НевежинАктеры: Сергей Столяров, Людмила Глазова, Николай Бубнов, Николай Чаплыгин, Б. Керопьян, К. Комаров, М. Шлёнская, В. СавицкийСубтитры: В некоторых эпизодах русские интертитры (цитаты из поэмы)Продолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6CB28EB02346580433D02ACEE7BE50159A1A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870023   (1068759) от 
+
+Будь готов (1938) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Фильм создан по заказу Азербайджанского Института Переливания Крови. В приключенческой форме рассказывает о значении донорства, спасающего жизнь человека, о необходимости увеличения количества доноров на случай, "если завтра война".
+
+Фильм из коллекции Госфильмофонда России и опубликован в интернете в рамках совместного проекта "Культура.РФ" и (   Читать дальше...   )Производство: СССР / Азгоскино (Бакинская киностудия)Жанр: научно-популярный игровой культурфильмРежиссер: Микаил МикаиловАктеры: Мирза Мустафаев, Я. Фрик, Фуад Эфендиев, Алексей Попов, Леон Аристакесов, Н. Кясаманский, Мамед БабаевСубтитры: отсутствуютПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B930BBB7C34382631174F91F8114F57BAC63B7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868865   (1067989) от 02.05.2026
 
 Том Сойер (1936) WEBRip [H.264/1080p]
@@ -7,7 +87,7 @@ https://t.me/izofen
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -489,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -516,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -610,86 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A05E99D6C7D0F121F9D582DFFAF46E54EBA2A71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863073   (1063742) от 02.04.2026
-
-Здравствуйте, доктор! (1974) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063742.jpg" />
-</div>
-
-
-###  Подробнее
-
-В деревню на отдых приехал молодой хирург Александр. Он доволен собой, у него все удачно складывается в жизни: позади институт, готовит диссертацию, работает в известной клинике. Однако в скором времени Александр принимает решение остаться работать в сельской больнице.Производство: СССР / Одесская киностудияЖанр: ДрамаРежиссер: Василий ЛевинАктеры: Василий Лановой, Галина Яцкина, Сергей Медведский, Николай Волков, Татьяна Веденеева, Альберт Иричев, Борис Сабуров, Борис Сапегин и др.Продолжительность: 01:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19AB60B254683FCC023CD98FA0A4BA584B538CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863086   (1063730) от 02.04.2026
-
-Джульбарс / Собака с Памира (1935) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063730.jpg" />
-</div>
-
-
-###  Подробнее
-
-О борьбе пограничников и их верного пса Джульбарса с шайкой бандитов, возглавляемой бывшим баем. Проводник Шо-Мурад вместе с внучкой Пэри сопровождает караван в горные кишлаки. Внезапно налетает банда басмачей, и они становятся пленниками. В погоню за бандитами был послан пограничный отряд. Первыми похитителей нашел пограничный пес Джульбарс...
-
-Фильм из коллекции (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: боевик, истерн, фильмы о животныхРежиссер: Владимир ШнейдеровАктеры: Николай Черкасов, Наталья Гицерот, Николай Макаренко, Иван Бобров, Андрей Файт, Н. Телешов, Эммануил ГеллерСубтитры: отсутствуют, в некоторых эпизодах уточняющие интертитры по-русскиПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACBAF5435E2A827553A2E17C4B89E30A1492290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863232   (1063633) от 03.04.2026
-
-Миргород и его обитатели (1983) WEBRip [H.264/1080p] (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063633.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам произведений Н.В. Гоголя «Старосветские помещики», «Повесть о том, как поссорились Иван Иванович с Иваном Никифоровичем», «Иван Федорович Шпонька и его тетушка».Производство: СССР / Киностудия имени А. Довженко, Гостелерадио СССРЖанр: комедия, история, экранизацияРежиссер: Михаил ИльенкоАктеры: Богдан Бенюк, Виктор Павлов, Фёдор Шмаков, Роза Макагонова, Юрий Мажуга, Николай Гринько, Леонид Куравлёв, Римма Маркова, Ирина Бунина, Александр Потапов, Виктор Ильичёв и др.Субтитры: русскиеПродолжительность: 01:11:10 + 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C845DB65F3D79AB8426F0FDB381EF15824903A35
 ```
 
 https://mybot314.ru/tekegram_catalog/

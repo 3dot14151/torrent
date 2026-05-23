@@ -1,3 +1,84 @@
+###  Публикация: 1665216   (182863) от 29.09.2023
+
+Gumroad, Emilis Baltrusaitis | Monsoon – Tutorial Large Scale Environment Creation (2018) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Подробный урок, посвященный моей недавней работе «Муссон».
+Целью этого урока является создание в одиночку профессионально выглядящего изображения, для создания которого обычно требуется команда художников. Используемые методы, как 2D, так и 3D, разработаны для того, чтобы предоставить нам наилучший результат в кратчайшие сроки.
+Помимо создания концепции, я показываю, (   Читать дальше...   )Производство: GumroadЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 24:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900F66D56112020508C534AFEE640927F544F672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664573   (182845) от 29.09.2023
+
+Wingfox, Ors Barczy | Use Arnold for Lighting, Rendering and Compositing (2021) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+There is a lot of lighting knowledge that you cannot have access to in one organized tutorial. I can give you a solution for that because my lectures are following an understandable path from the very basics through some complex to advanced lighting, shading, rendering, and compositing workflow (in ACES Colour Space) and show some of my own artistic approaches to (   Читать дальше...   )Производство: WingfoxЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 22:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B7D2612CD467D8872101E7A411AEC65C6331A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665171   (182745) от 29.09.2023
+
+Liveclasses, Дмитрий Ларионов | Fusion в DaVinci Resolve: быстрый старт (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Как работать с Fusion в DaVinci?
+...Этот класс посвящен закладке Fusion в DaVinci Resolve, предназначенной для наложения визуальных эффектов, вещательной графики и 3D-анимации. Благодаря огромному набору функций Fusion поможет вам качественно изменить любой материал, будь то эфирная программа, сериал или полнометражная художественная картина!...В этом классе вы научитесь (   Читать дальше...   )Производство: LiveclassesЖанр: КомпозитингЯзык озвучки: РусскийПродолжительность: 03:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46B090D407AA331D842BAC7F82D35A79695FEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427611   (182723) от 28.11.2020
 
 Udemy, Кирилл Несмелов | Создание сайта в Photoshop для новичков (2020) PCRec
@@ -6,7 +87,7 @@ Udemy, Кирилл Несмелов | Создание сайта в Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Udemy, Кирилл Несмелов | Профессия Ui/Ux веб-диза�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +140,7 @@ Domestika, Gemma Roman | Adobe Photoshop for Illustration (2022) WEB-DL [ES / ES
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -114,7 +195,7 @@ lectoroom, Елизавета Залегина | Натюрморт «Завтр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -141,7 +222,7 @@ Gumroad, FlippedNormals, Tim Bergholz | Полное Руководство По
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -168,7 +249,7 @@ Stepik, Askarov Workshop | Рисунок карандашом - построе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -197,7 +278,7 @@ Udemy, VFX 3D Pro | PolyModeling in Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -226,7 +307,7 @@ OF3D Academy, Ander Alencar | Masterviz (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -255,7 +336,7 @@ Skillbox, Евгений Тонконогий | Иллюстрация на iPad
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -284,7 +365,7 @@ Kalyakin School, Максим Калякин | Дизайн персонажей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -313,7 +394,7 @@ Gumroad, FlyCat | Cyberpunk Style Girl Blender Modeling (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -339,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -368,7 +449,7 @@ CG Cookie, Chris Kuhn | Риггинг транспорта в Blender 2.6 / Rig
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +478,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma Про-уро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -426,7 +507,7 @@ CG Cookie, Louis du Mont | Создание анимированного жут�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +533,7 @@ CG Cookie, Wayne Dixon | Управление камерой в Blender 2.83 и 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -507,7 +588,7 @@ Dream&Draw, Анастасия Козлова | Клуб "Мечтай и рис
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -536,7 +617,7 @@ FlippedNormals, Emiel Sleegers | Создание научно-фантасти�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -562,7 +643,7 @@ CG Cookie, Kent Trammell | Искусство скульптинга в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -588,7 +669,7 @@ CG Cookie, Kent Trammell | Моделирование реалистичных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,7 +696,7 @@ FlippedNormals, Chunck Trafagander | Создание тримов для игр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -628,89 +709,6 @@ Trim sheet или «тримы» — это текстуры для вытяну
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D120EA7B2C14D02A1C5CDD4FC215ADB78AEE298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666453   (179501) от 04.10.2023
-
-Enterclass, Татьяна Анисимова | Натюрморт с фруктами (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем пахнут спелые фрукты? Гранат опьяняет наши чувства сладко-терпкими винными нотками, груша ласкает обоняние мускатным ароматом, разрезанная дыня наполняет комнату оттенками ванили или мёда, а сочный зеленый виноград успокоит буйство запахов свежим и нежным дыханием.
-
-Хотите окунуться в этот чарующий мир и написать «ароматную» акварель?
-Во время этого мастер-класса (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:04:57Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAEF9A7E821B03E1191CD0104CBA886A940B767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483020   (179470) от 28.11.2022
-
-Школа дизайна интерьеров ARTUM, Олег Кононыхин | Интерьер. Станьте 3D-визуализатором за 6 месяцев (2018) WEB-DL
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый раз визуализатор проходит 3 шага, чтобы создать визуализацию: создает модели, назначает материалы и выставляет камеры и свет. Эти 3 шага — и есть главные разделы нашего курса.
-Но прежде чем перейти к ним я ввёл еще нулевой раздел «Инструменты», из которого вы узнаете базовые понятия и некоторые фишки, которые ускоряют работу в программе в 2+ разаПроизводство: Школа дизайна интерьеров ARTUMЖанр: 3d, графика, дизайнПродолжительность: 58:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E29E7D8C961AB66191C4903C8CB322869137464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666530   (179377) от 04.10.2023
-
-Enterclass, Сергей Курбатов | Зеленый цвет в пейзаже (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом вокруг огромное количество зелени. И цвет её очень разный: теплый и холодный, светлый и темный, насыщенный и неяркий...
-А ещё иногда зелень рисуют вовсе не зелёным! Вместе с художником Сергеем Курбатовым разберемся, как работать с этим сложным цветом, поговорим о композиции и ритмах и напишем четыре картины с разными видами и состояниями природы.Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 08:28:20Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D4A1F3D0D6B138BBF16DA3A3F97191069989CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

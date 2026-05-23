@@ -6,7 +6,7 @@ Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +35,7 @@ Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +64,7 @@ Pet Shop Boys - Hotspot (2020) 2CD Special Edition [FLAC|Lossless|tracks + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dvar - Roah (2003)  [FLAC|Lossless|image + .cue] <Darkwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +122,7 @@ The New Division - Hidden Memories (2020) [FLAC|Lossless|WEB-DL|tracks] <Synth, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pet Shop Boys - Story / 25 Years Of Hits (2009) [FLAC|Lossless|tracks + .cue] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +180,7 @@ MRUKS - Last Round (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +209,7 @@ Simple Minds - New Gold Dream (81-82-83-84) (1982) SACD, 2003 Virgin [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +238,7 @@ Depeche Mode - Ultra / Rejoined (1998) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +267,7 @@ New Arcades - Returning Home (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Re
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +296,7 @@ Turboslash - Speed (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +325,7 @@ Howard Jones - Celebration (30th Anniversary) (2013) [FLAC|Lossless]<SynthPop, N
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stars Crusaders - Welcome To Hydra (2017) [FLAC|Lossless|image + .cue] <Synth-po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Ninthwave Records 2000-2002 (Promo CD) (2003) [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rupesh Cartel - Death With Soft Names (2005) [FLAC|Lossless|image + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -469,7 +469,7 @@ La Roux - Supervision (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -498,7 +498,7 @@ Pet Shop Boys - Monkey Business (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +527,7 @@ Banks - Goddess (2014) Deluxe Version [FLAC|Lossless|tracks + .cue] <Electronic,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +556,7 @@ Rupesh Cartel - Mainland (2005) 2CD, Limited Edition [FLAC|Lossless|image + .cue
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Best Of The 80's Volume 1 (1997) [FLAC|Lossless|tracks + .cue] <House, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -614,7 +614,7 @@ Depeche Mode - Spirit (2017) 2CD, Dlx. Ltd. Japanese Edition [FLAC|Lossless|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -643,7 +643,7 @@ Boytronic - The Original Maxi-Singles Collection (2014) [FLAC|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -672,7 +672,7 @@ Depeche Mode - 101 (2006) 2CD, Gala Records, RE. [FLAC|Lossless|tracks + .cue] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -701,7 +701,7 @@ Boytronic - Love For Sale (1988) Remastered, Deluxe Edition, 2014, SP Records [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -730,7 +730,7 @@ Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 

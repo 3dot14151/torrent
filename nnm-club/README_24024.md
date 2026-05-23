@@ -1,25 +1,25 @@
-###  Публикация: 1713395   (111899) от 06.04.2024
+###  Публикация: 1705712   (113798) от 09.03.2024
 
-VA - Pure Synthwave, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Massive Z & Rogue VHS - Floating Point (4:29)
-02. Kidburn - Insomnia (4:32)
-03. Tenebran - Synthetic Lovers (3:18)
-04. SelloRekt / LA Dreams - Automation (2:36)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:19:27
+01. S.O.B.
+02. Pig Corporation
+03. Deviant
+04. Away Form Us All(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBC2B5E1D4C834E7583CE7467D7273602F467B86
+magnet:?xt=urn:btih:42A392190C61C1FC7FBFCAD6BF49CFA25AF82632
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713682   (111898) от 06.04.2024
+###  Публикация: 1705730   (113797) от 09.03.2024
 
-U2 - Discothèque (1997) Remastered, 2024, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Experimental>
+Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Rock, Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Discothèque (Radio Edit / Remastered 2024) [00:04:38]
-02. Holy Joe (Garage Mix / Remastered 2024) [00:04:22]
-03. Holy Joe (Guilty Mix / Remastered 2024) [00:05:10]
-04. Discothèque (DM Deep Club Mix / Remastered 2024) [00:07:01](   Читать дальше...   )Жанр: Pop Rock, ExperimentalПродолжительность: 01:12:42
+01. Intro [00:01:11]
+02. My Sentence [00:04:13]
+03. Your Friend [00:03:36]
+04. Death's Mark [00:04:37](   Читать дальше...   )Жанр: Progressive Metal, Hard Rock, Gothic MetalПродолжительность: 00:39:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D0154B6FFCE29B2F40F57066B2DA8456DBE6FD3
+magnet:?xt=urn:btih:78C887739D89894F99584A030FE7CC407CDF416E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,269 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713729   (111897) от 06.04.2024
+###  Публикация: 1705704   (113796) от 09.03.2024
 
-Мария Кокова | Смертельный номер. Как пережить утрату, помочь горюющим и изменить своё отношение к смерти (2023) [MP3, Мария Кокова, Дина Пятро Дабришюте]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда умирает близкий человек, кто-то замыкается в себе, а кто-то относится к известию более спокойно и не меняет образ жизни. О том, почему реакция на утрату может быть разной, сколько длится горевание и как помочь себе или близкому пережить потерю, вы узнаете из этой книги. Здесь обсуждаются самые разные случаи, связанные с переживанием утраты, — смерть близкого (   Читать дальше...   )Жанр: практическая психология, психотерапия, саморазвитие / личностный рост, семейная психологияИздательство: Эксмо, БомбораПродолжительность: 03:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4563065E4D1AB50C7EE85552DB857B5F462FC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713661   (111896) от 06.04.2024
-
-Джон П. Стрелеки | Что хорошего в красивом пейзаже, если вы не смотрите в окно (2024) [MP3, Всеволод Кузнецов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга из серии «Кафе на краю земли. Вдохновляющие открытия Джона Стрелеки» — это настоящая находка для всех ценителей философии знаменитого американского автора! В ней собраны открытия и мысли Джона Стрелеки, которые помогут вам взглянуть на мир иначе и найти вдохновляющие моменты в повседневной жизни. Джон Стрелеки всегда носит с собой небольшую записную книжку, (   Читать дальше...   )Жанр: зарубежная психология, саморазвитие / личностный ростПеревод: Элеонора МельникИздательство: Эксмо, БомбораПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9374F548E30C8CACC49E13F9965CD976FC6BEA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713676   (111895) от 06.04.2024
-
-Garbage - Bleed Like Me (2005) Remaster, 2024, Liberator Music [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative rock, post-grunge, electro-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boyfriend (2024 Remaster) (3:47)
-02. Run Baby Run (2024 Remaster) (3:58)
-03. Right Between the Eyes (2024 Remaster) (3:56)
-04. Why Do You Love Me (2024 Remaster) (3:54)(   Читать дальше...   )Жанр: Alternative rock, post-grunge, electro-rockПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0181FB9CEAD37030FD4BDF573FC28D2D0916549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713739   (111894) от 06.04.2024
-
-Джоконда (DЖОКОНDА, Елена Минина) - Коллекция (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111894.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Джоконда» - российская рок-группа, главным образом работающая в жанре симфонического метала. Вокалисткой и лидером группы является Елена Минина.2021 - Каждый Охотник Желает Знать
-2024 - Последний законЖанр: Symphonic Metal/RockПродолжительность: 01:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA8D2A14151DCE3F81C3BDAE081E59736F9F63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713752   (111893) от 06.04.2024
-
-Нил Пасрич | Радость в мелочах. Найди повод для счастья в каждом дне (2024) [MP3, Данила Глухов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автору этой книги довелось пройти через тяжелые испытания: смерть друга, расставание с возлюбленной, затяжная депрессия. Чтобы справиться с происходящим, он начал искать поводы для радости в каждом дне и писать о своих открытиях и наблюдениях в личном блоге, который очень быстро стал популярным. Короткие истории Нила о привычных вещах, на которые мы так редко обращаем (   Читать дальше...   )Жанр: зарубежная психология, саморазвитие / личностный ростПеревод: Э. А. ЧенцоваИздательство: Эксмо, БомбораПродолжительность: 08:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A79E6573A7BD2FEC6628726E65EEE7FF881D86C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713532   (111892) от 06.04.2024
-
-Все оттенки тьмы / Tutti i colori del buio / All the Colors of the Dark (1972) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночами Джоан страдает от страшных снов, а днем ее преследует человек из кошмаров. Новая соседка обещает помочь и приводит женщину в секту, культивирующую колдовские кровавые ритуалы и свальный грех.Производство: Италия, Испания, Великобритания / Lea Film, National Cinematografica, Astro C.C.Жанр: ужасы, триллерРежиссер: Серджо МартиноАктеры: Джордж Хилтон, Эдвиж Фенек, Иван Рассимов, Хулиан Угарте, Жорж Риго, Клементина Кумани, Ниевес Наварро, Марина Малфатти, Лучано Пигоцци, Доминик БошероПеревод: Одноголосый любительский (Виталий Арсеньев)Язык озвучки: русский, итальянский, английскийСубтитры: английскиеПродолжительность: 01:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63811C56A200D8E1118536021FF14D31C1F74700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713755   (111891) от 06.04.2024
-
-Кристи Гибсон | Дар травмы. Как прожить травмирующие события и превратить их в точку роста (2024) [MP3, Дина Бобылёва]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое психотравма и как она возникает? Как организм реагирует на травму? Каковы симптомы психотравмы и как она влияет на качество жизни? Детская, наследственная, коллективная – какие виды травмы существуют? Автор предлагает комплексный подход для проработки болезненного опыта и укрепления психического здоровья.Жанр: клиническая психология, психотерапияПеревод: Иван ЧорныйИздательство: Эксмо, БомбораПродолжительность: 10:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96076669C1CCAFBC9E15F146421FA48C7624F256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713653   (111890) от 06.04.2024
-
-Chris Standring - As We Think (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chocolate Shake
-02. Good Gracious
-03. Come Closer
-04. Top Hat & Tails(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2262AA02521C312FE4F147899D25085DB388E1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713668   (111889) от 06.04.2024
-
-Missy Higgins - The Sound of White (2004) 20 Year Anniversary Edition, 2024, Eleven A Music Company Pty Ltd[FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for Believing [00:03:29]
-02. Don't Ever [00:02:54]
-03. Scar [00:03:36]
-04. Ten Days [00:03:48](   Читать дальше...   )Жанр: PopПродолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8706B42BCD4ED96CEC574EE9B5DF6AE69007DD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713726   (111888) от 06.04.2024
-
-Своя игра (06.04.2024) WEBRip [H.264/1080p]
+Своя игра (09.03.2024) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:42:07
+В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:41:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F48F7B0800C6AD1981E01A7562A0E7B5F3FBE3A5
+magnet:?xt=urn:btih:2CACE35DF3DFA97A25037AE55A59E42070DD46AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,167 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713745   (111887) от 06.04.2024
+###  Публикация: 1705692   (113795) от 09.03.2024
 
-Живая еда с Сергеем Малозёмовым (06.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съедобный шеллак, все о лапше быстрого приготовления и тайны профессии дегустатораТелекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A837636F0186CC491AE1F057AC75C919DDB7A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713573   (111886) от 06.04.2024
-
-Вадим Гареев - 3 Albums (2024) [MP3|320 Kbps] <Punk Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-''ВЕЧНЫЙ ВЫХОДНОЙ''
-''ВЕСНА''
-''АНТИДЕПРЕССАНТЫ''Жанр: Punk Rock, AcousticПродолжительность: 3 CD, 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4C846C4F1CE02ACB9AFF5B267AD6630BA42480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713664   (111885) от 06.04.2024
-
-Асмодеевы крылья - Утопический вакуум тотального одиночества (2024) [MP3|320 Kbps] <doommetal, funeraldoom>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - В ожидании [00:08:10]
-02 - Еще один день, год [00:08:23]
-03 - Пути инфантильности [00:09:25]
-04 - Голод к жизни [00:08:13](   Читать дальше...   )Жанр: doommetal, funeraldoomПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64CE8CB8B91CAFE7883D0B97F0D2F43563AEB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713278   (111884) от 06.04.2024
-
-Мамульки бенд - Светлый (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Счастье [00:04:55]
-02. Смотрю [00:03:35]
-03. Лечу [00:03:43]
-04. Ввысь-Вниз [00:04:05](   Читать дальше...   )Жанр: Ska, Pop-RockПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF6FA104E636DB79B27F6EDBA0C12236B7496B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713548   (111883) от 06.04.2024
-
-Минтранс. Тест-драйв Субару Форестер (06.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тест-драйв Субару Форестер 2022Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A217151DB2711BE91965C73FAE081A94F0884115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713533   (111882) от 06.04.2024
-
-Attic - Return of the Witchfinder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+Synthsoul - Cosmic Funk Chronicles (Original Mix) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Covenant
-02. Darkest Rites
-03. Hailstorm And Tempest
-04. The Thief's Candle(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:11
+01. Cave (Original Mix) (3:51)
+02. Cosmic Funky (Original Mix) (3:50)
+03. Green Gold (Original Mix) (3:27)
+04. Inside (Original Mix) (3:27)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADF0CC6ACB8F00EFF2D58BD4B24B43E3C5083AC8
+magnet:?xt=urn:btih:BFBFED42256F22725946E3B0BB47354118E8AFCA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713352   (111881) от 06.04.2024
+###  Публикация: 1705501   (113794) от 09.03.2024
 
-VA - Miami Vibes (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
+Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Grunge, Hard Rock>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Timeless (ofc) - Find Us (Original Mix) [5:30]
-02. Ali Maher - Overtaking (Original Mix) [6:02]
-03. Jaiza(SL) - Anarcrusan (Original Mix) [8:02]
-04. Two R - Something Dark Almost Real (Nikko Mavridis Remix) [7:37](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 10:24:24
+01. Break Away [00:03:23]
+02. Broken Bones [00:02:59]
+03. Day By Day [00:04:05]
+04. Dig Deep [00:03:10](   Читать дальше...   )Жанр: Alt. Rock, Post-Grunge, Hard RockПродолжительность: 00:37:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5528C23C36CABC7E978D563467584B38C8DF3F0E
+magnet:?xt=urn:btih:CD3981D244487F247600A0C7663E367E855D9289
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,54 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713438   (111880) от 06.04.2024
+###  Публикация: 1705547   (113793) от 09.03.2024
 
-Markus Schulz - Global DJ Broadcast World Tour (MAD Club Wynwood Miami, Miami Music Week) (2024-04-04) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz (Recorded Live from MAD Club in Wynwood, Miami - March 23 2024)
-01. Anyma - Chordial
-02. Pryda - The Hiidden
-03. Frenckel & Ton TB - Dark Cloud(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50300C86DACD2115121212CB2D53C7221CEB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713555   (111879) от 06.04.2024
-
-Поедем, поедим! Круиз в Турцию: самый странный ресторан Стамбула и тальята с пастой орзо (06.04.2024) WEBRip [H.264/720p]
+Сто к одному (09.03.2024) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Федерико Арнальди снова отправился в круиз! Путешественник осмотрел самую красивую турецкую мечеть, пообедал в самом странном стамбульском ресторане, прогулялся по древнему городу Эфес, попробовал рыбу святого Петра, а еще — поднялся на измирском лифте, приготовил тальяту с пастой орзо и сотэ из мидий соусом бешамель.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:23
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Многодетные мамы" против команды "Писатели"Язык озвучки: РусскийПродолжительность: 00:39:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4485DA796727DDAD16E4FC90BBB89F9E68C126E5
+magnet:?xt=urn:btih:49EE63A0E69B011A375606A900D9AC6EB733A310
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,25 +169,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713504   (111878) от 06.04.2024
+###  Публикация: 1705560   (113792) от 09.03.2024
 
-Дон Аврора Хант | Волшебство на кухне (2024) [MP3, Ирина Ефросинина]
+iNet Network Scanner 3.0.6 [En]
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Волшебство на кухне. Гайд по рецептам для любви и романтики» расскажет о самом простом виде волшебства – кулинарии. В этой книге Аврора Дон Хант делится рецептами самых любимых блюд – жареный сыр, суп из запеченного картофеля, киш для воскресного бранча, печеные персики со сливками, – и магическими практиками, которые помогут вам изменить жизнь и привлечь любовь.Жанр: КулинарияИздательство: ЭксмоПродолжительность: 04:35:06
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 BananaGlue GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Испанский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1F10A04746F9083FC76B2D3EFBF27493DC33E9F
+magnet:?xt=urn:btih:817DBE6B78975D491A2310719CE61284BDA19B64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,27 +196,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713561   (111877) от 06.04.2024
+###  Публикация: 1705616   (113791) от 09.03.2024
 
-Главная дорога (06.04.2024) WEBRip [H.264/720p]
+Looper - Up A Tree (1999) 25th Anniversary Edition, 2024, Mute [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip Hop, Indie Rock>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+11 – Back to the Treehouse (Ambient Mix)
+12 – Ray’s Golden Fist (Bananahand Remix)
+13 – Burning Flies (Acoustic)
+14 – Columbo’s Car (Peugeot 413 Mix)(   Читать дальше...   )Жанр: Downtempo, Trip Hop, Indie RockПродолжительность: 01:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26C42BB10F3FF2B44FCD40263BA5763158D5A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705628   (113789) от 09.03.2024
+
+Gost - Prophecy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Judgment [00:01:28]
+02. Prophecy [00:03:58]
+03. Death in Bloom [00:03:46]
+04. Deceiver [00:03:42](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C41F0BAE8420BE2F7C0FD71251245EF05600E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705322   (113788) от 09.03.2024
+
+Пятеро на одного (08.03.2024) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
->>За рулем
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Авария на переезде с 7 жертвами из-за пьяного диспетчера, «подвиги» подростка на тонированном седане, кругом вода и затопленный автобус на Алтае.
- Глюки, ржавчина и сюрпризы во время движения: китайское качество по цене квартиры.
- С виду обычный самокат, а даст фору любом мопеду, а то и мотоциклу! Чем опасны СИМ, как правильно ими управлять, где этому учиться и какие (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:53
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E0C6795368BAA9BACCF2328A361F0CB1BC71475
+magnet:?xt=urn:btih:EE8E8EEBAC126236CAF168D4201C13E12265A2A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,28 +280,254 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713508   (111876) от 06.04.2024
+###  Публикация: 1705583   (113786) от 09.03.2024
 
-Rob Van Bavel Trio - The Ghost, The King And I (2010) 2CD, 2023, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
+FocusSee for Mac 1.0.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+FocusSee — это нативное средство записи экрана, предназначенное для пользователей, которые хотят быстро получать профессионально выглядящие видеоролики без ручной постобработки. Он автоматически обрабатывает видео, автоматически отслеживая движение курсора, применяя эффекты динамического масштабирования и щелчков, а также добавляя привлекательный фон, что позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.02024Разработчик: © 2024 Hongkiat.com (HKDC)Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B6D746C2A1DA9884122E53D5079BEA1A0FDBBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705686   (113785) от 09.03.2024
+
+Electro Deluxe - NEXT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Nakie Nakie (4:38)
+02. One In A Million (4:17)
+03. 1979 (4:48)
+04. Who's Got Your Back? (5:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D184607725D99D06D09A9E5B294C4A00B77AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705544   (113783) от 09.03.2024
+
+Судьба человека с Борисом Корчевниковым. Группа На-На. (16.02.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
+
+В этом (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Группа "На-На"Язык озвучки: РусскийПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87736D897A7A0A09A2516E7CFED01ED883F880FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705588   (113782) от 09.03.2024
+
+Sonata Arctica - Clear Cold Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. First In Line (5:22)
+02. California (4:25)
+03. Shah Mat (4:09)
+04. Dark Empath (6:05)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50F2EC87CAC8594EA5CF41EE0AA5AB2233AF280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705699   (113781) от 09.03.2024
+
+Живая еда с Сергеем Малозёмовым (09.03.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История буженины и все ее плюсы, а также минусы: за что это мясо любят диетологи?
+  Съедобный драгметалл: как отличить пищевое золото от его подделки? Что происходит с ним в организме человека? И как оно влияет на цену блюда?
+  Овощи и фрукты улучшают сон. А какие продукты провоцируют бессонницу?
+  Почему дефицит витамина D приводит к хронической усталости.(   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994244C1BD5A6FF432D1F2EEE0BE3521D4315394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705734   (113780) от 09.03.2024
+
+НашПотребНадзор (03.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Уловки продавцов морепродуктов, листерии в курином фарше и средства для домашнего маникюра.
+Как продавцы изобретают более звучные названия для морепродуктов, чтобы продать подороже? Какая рыба маскируется под названием «черная треска», и каких гадов продают под видом камчатских крабов и королевских креветок? Куриный фарш от каких брендов проеден листерией и успел (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаПеревод: Не требуется (русский)Продолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229E44AA4E26145D569CA0494D67FC062F7F84EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705637   (113779) от 09.03.2024
+
+Madder Mortem - Desiderata (2006) [FLAC|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. My Name is Silence
+02. Evasions
+03. Plague on this Land
+04. Dystopia(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F25BE34D67338C38334A61DC23AEF9685E26C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705525   (113778) от 09.03.2024
+
+Madder Mortem - All Flesh Is Grass (2001) [APE|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Breaker Of Words
+02. To Kill and Kill Again
+03. The Cluster Children
+04. Ruby Red(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3562C81294D39B23229521C1A82C87F7A83425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705558   (113777) от 09.03.2024
+
+Cedar Walton - Firm Roots (1972 - 1990) 2СD, 1999, Camden [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Announcement [0:49]
-02. You Dig [9:38]
-03. Announcement [1:36]
-04. Vicio [5:54](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 01:56:54
+01. Firm Roots [7:28]
+02. Shoulders [7:18]
+03. Young and Foolish [6:01]
+04. Meaning of the Blues [9:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 02:22:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABA150BB2D0F8A509D839C1FBEB273FC37CFE68C
+magnet:?xt=urn:btih:971E141F06B31655FF924C99522AC0E4E588B915
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,28 +535,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713595   (111875) от 06.04.2024
+###  Публикация: 1705575   (113776) от 09.03.2024
 
-Circle Of Friends - Cherokee Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Madder Mortem - Deadlands (2002) Reissue, 2009, Peaceville [APE|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Starligh (4:02)
-02. Eternal Love (4:17)
-03. Princess of the Night (4:05)
-04. House of Shadows (3:54)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:30
+01. Enter
+02. Necropol Lit
+03. Omnivore
+04. Rust Cleansing(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:08:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58DFF4F8DF4B8B7456D59FE8FA1207AA0C5D72BD
+magnet:?xt=urn:btih:7B0D954532F6166C73E9FB5178BD151B3CC2CEDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,25 +564,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713512   (111874) от 06.04.2024
+###  Публикация: 1705760   (113775) от 09.03.2024
 
-Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
+Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Progressive Metal>
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Live at Zepp DiverCity Tokyo, Japan February 21, 2020Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:46:53
+01 - Untethered (00:01:18)
+02 - Liberator (00:03:59)
+03 - Moonlight Over Silver White (00:05:43)
+04 - Until You Return (00:06:40)(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:53:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35019408864125B8788AC8A329FF07C1BBD5786D
+magnet:?xt=urn:btih:7EA3DA7A573FC24C079686F48D997CBB918F19EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705565   (113774) от 09.03.2024
+
+Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The Honeydripper (1961) 2013, Groove Hut Records [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctified Waltz [4:54]
+02. Goodnight, It's Time to Go [6:16]
+03. I'll Be Seeing You [7:40]
+04. A Smooth One [10:50](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C35612366D21E0E4664EE78AD840B51C4B0CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705564   (113773) от 09.03.2024
+
+Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby in Rhythm [3:08]
+02. Embraceable You [4:39]
+03. Love for Sale [5:09]
+04. Along with Me [3:19](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBF974D60C3ACC930624FF5C8F72EF92FE37BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705608   (113772) от 09.03.2024
+
+Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Icehouse [00:05:11]
+02. Force Majeure [00:04:44]
+03. Killing Time [00:02:52]
+04. Behind the Tears [00:05:23](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F1F27FBC24DE45207F8143352BFD16A61BED5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705563   (113771) от 09.03.2024
+
+Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [8:20]
+02. April in Paris [5:05]
+03. Cherokee [2:26]
+04. Goodbye [8:17](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5F78302854161D3901575A2CA3F52EF705ADEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705748   (113770) от 09.03.2024
+
+Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Formaldehyde
+02. The Little Things
+03. Armour
+04. Resolution(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4151D12AB3A26AD4287DA4F9BBB484327DB793
 ```
 
 https://mybot314.ru/tekegram_catalog/

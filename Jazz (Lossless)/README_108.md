@@ -1,3 +1,61 @@
+###  Публикация: 1134332   (689569) от 15.05.2017
+
+Vladimir Tolkachev (Владимир Толкачев) Big Band - Plays Duke (2001) Landy Star Music [APE|Lossless|image + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Such Sweet Thunder [03:37]
+02. Sonnet For Caesar [02:56]
+03. Sonnet To Hank Cinq [01:21]
+04. Lady Mac [03:47](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64760D289A8CCCFA107E241608DD88530225EAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134304   (689098) от 15.05.2017
+
+Alice Francis - Electric Shock (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Neoswing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. How Is Trix Intro
+02. Too Damn Hot
+03. Getting Cross
+04. Beatptized Aclapella(   Читать дальше...   )Жанр: Electro Swing, Neoswing, Nu JazzПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B5446180F7D3979AEF9B0D21355C6DCB9A6044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028645   (688949) от 23.06.2016
 
 Cy Touff - His Octet & Quintet (1955) 1998, Pacific Jazz Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -6,7 +64,7 @@ Cy Touff - His Octet & Quintet (1955) 1998, Pacific Jazz Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Brother Jack McDuff & David Newman - Double Barrelled Soul (1967) Remaster, 2012
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Jimmy Smith - The Complete Sermon Sessions (1957-1958) 2CD, 2009, Groove Hut Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Camille - I Sing Stevie: The Stevie Wonder Songbook (2014) [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Max Kaminsky - When The Saints Go Marching In Jazz On The Campus, Ltd (1953, 195
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Horace Tapscott with The Pan Afrikan Peoples Arkestra - Why Don't You Listen?: L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sir Roland Hanna - Apres un Reve (2003) Venus Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +267,7 @@ The Cinematic Orchestra - To Believe (2019) [FLAC|Lossless|WEB-DL|tracks] <Acid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Joe Newman - Four Classic Albums (1955 - 1958) 2CD, 2012, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +325,7 @@ Sheila Jordan - Little Song (1977) 2002, HighNote [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Duke Ellington - Live from the 1956 Stratford Festival (1989) Music and Arts Pro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Dorothy Donegan - One Night with the Virtuoso (1957 - 1960) 2CD, 2012, Jasmine R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +412,7 @@ Jan Garbarek, Arild Andersen, Edward Vesala - Triptykon (1973) Remaster, 1992, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +441,7 @@ Kenny Dorham & Barry Harris Quartet - New York 1964 (2006) Rare Live Recordings 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +470,7 @@ Joanne Brackeen & Ryo Kawasaki - Trinkets And Things (1978) Remaster, 2015, Soli
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +499,7 @@ Stacy Sullivan - Stranger In A Dream (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +528,7 @@ Buddy Rich - Swingin' New Big Band (1966) 1995, Pacific Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Corduroy - Return Of The Fabric Four (2018) [FLAC|Lossless|tracks + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +586,7 @@ Siril Malmedal Hauge - Uncharted Territory (2019) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Maynard Ferguson - Verve Jazz Masters 52 (1994) Verve Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Smooth Jazz - Sweet Love (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_685998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -621,7 +679,7 @@ Duke Ellington - Rockin' in Rhythm (1958, 1959) 1989, LaserLight Digital [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -650,7 +708,7 @@ Duke Ellington - 2 Great Concerts 1952/1965 (1987) Accord [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -679,7 +737,7 @@ Duke Ellington - Orchestral Works (1970) 1989, MCA Classics [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -693,64 +751,6 @@ Duke Ellington - Orchestral Works (1970) 1989, MCA Classics [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8BBEBD64B4CB0CB3494208E1A3F5327DE25D538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222559   (685310) от 29.04.2018
-
-Fats Navarro - Fat Girl (1946) 1989, Vogue [FLAC|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boppin' a Riff [05:50]
-02. Fat Boy [05:35]
-03. Everything's Cool [05:41]
-04. Webb City [05:41](   Читать дальше...   )Жанр: BopПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9351E4B88B0BB6D54D462379B3D5E865239F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222442   (685307) от 29.04.2018
-
-Art Pepper - Tokyo Encore (1979) 1991, Disques Dreyfus [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Besame Mucho [11:15]
-02. True Blues [09:36]
-03. Landscape [09:32]
-04. Over The Rainbow [09:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCA036FB5B67296D55A3C1CB5854E372A49DE73
 ```
 
 https://mybot314.ru/tekegram_catalog/

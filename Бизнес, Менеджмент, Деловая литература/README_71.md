@@ -1,3 +1,81 @@
+###  Публикация: 967578   (158592) от 20.12.2015
+
+Оюна Кожушко и др. | Интернет-маркетинг и digital-стратегии. Принципы эффективного использования (2015) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит практический материал для увеличения продаж за счет составления эффективной стратегии интернет-маркетинга. Впервые в России в учебном пособии собраны развернутые кейсы реальных клиентов, которые помогут понять проблематику сайтов и возможности для увеличения их конверсии. Все рекомендации и инструменты, которые можно применять уже сегодня, основаны (   Читать дальше...   )Жанр: Бизнес, Маркетинг и рекламаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3E2C15BF7227088ACDF98CD420363E77BC8C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967731   (158370) от 21.12.2015
+
+Алексей Воронин (редактор-составитель) | Мошенничество в платежной сфере. Бизнес-энциклопедия (2016) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Активное использование информационных технологий в платежной сфере привело к появлению разнообразных специфических форм мошенничества, основанных на применении достижений современных ИТ. Мошенничество с банковскими картами, электронными деньгами и при обслуживании клиентов в системах дистанционного банковского обслуживания; регулирования — эти и многие другие аспекты (   Читать дальше...   )Жанр: Финансы. Банковское делоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9655BBC6BF06A551B78730E689C2DD6C5554B217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967227   (158253) от 22.12.2015
+
+Елена Васильева, Юрий Пернатьев | 50 знаменитых бизнесменов XIX - начала XX в (2004) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В XIX веке героев этой книги называли деловыми людьми. И они действительно делали много полезного не только для себя, но и для общества. Благодаря организаторскому таланту, энергии, смелости и предприимчивости Форда и Карнеги, Кузнецова и Фаберже, Ротшильдов, Дюпонов, Морозовых, Круппов, Морганов и других предпринимателей, в мире были созданы огромные промышленные, (   Читать дальше...   )Жанр: Бизнес, ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7F621D26855B45EE98FF6966384B79D63EBEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967267   (158164) от 22.12.2015
 
 Сергей Фоменков | Порвать всех. Как построить большой бизнес в России. Реальная история "Евросети" (2015) [PDF, DOCX, FB2]
@@ -6,7 +84,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -303,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -329,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -358,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -384,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -463,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -516,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -542,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,84 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB9C1E265624CF0DDAC95AA58BE64AB66E1679AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086518   (152062) от 24.12.2016
-
-Адриан Шонесси | Как стать дизайнером, не продав душу дьяволу (2015) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152062.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Дизайнеры очень любят рассказывать о полете своей мысли и источниках вдохновения, но они гораздо менее открыты, когда речь заходит о таких важных вопросах, как найти заказы, как определить расценки и что делать, когда клиент отказывается от заказа, на который было потрачено несколько месяцев. Эта книга, выходящая уже во втором издании, призвана помочь (   Читать дальше...   )Жанр: Маркетинг. Общие вопросыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42FD4C6845C989A9A07C853DD44951CEE5D47356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968879   (150477) от 25.12.2015
-
-Ричард Брэнсон | Мои правила. Слушай, учись, смейся и будь лидером (2015) [RTF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэр Ричард Брэнсон, всемирно известный предприниматель, эксцентрик и миллиардер-бунтарь, создал огромное количество совершенно разнородных бизнесов, объединенных брендом Virgin. В новой книге он с присущей ему откровенностью и юмором рассказывает о своих принципах и правилах жизни, которые позволили проблемному подростку, в 16 лет бросившему школу, основать десятки (   Читать дальше...   )Жанр: ПредпринимательствоФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6B74A397FFB50B65906A53439E4FBFD9F48CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968633   (149475) от 26.12.2015
-
-Владимир Вербицкий | Из идеального реальному. Что действительно нужно компаниям для своей практики из Corporate Governance Best Practices (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы собственник или руководитель компании и перед вами стоит задача построить эффективную систему корпоративного управления и грамотно внедрить corporate governance best practices, прочтите эту книгу. Автор, Владимир Вербицкий, подробно рассказывает о корпоративном управлении как инструменте управления компаниями. Он убежден, что международные стандарты корпоративного (   Читать дальше...   )Жанр: Бизнес, менеджмент, лидерствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F7E1D4F75B6E17F075E7DA1AF6677477228CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

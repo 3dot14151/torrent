@@ -1,3 +1,107 @@
+###  Публикация: 1683821   (128337) от 12.12.2023
+
+Подвал господина Гринберга (2023) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В маленьком провинциальном городке начали пропадать молодые девушки. Подозрение полиции вызвал Артур Гринберг, которого видели в баре с последней пропавшей. Но так ли все просто и сможет ли полиция поймать преступника?Производство: Россия / АРНИ СинематрониксЖанр: Триллер, криминалРежиссер: Андрей ПаюковАктеры: Агата Муцениеце, Влас Зубов, Дарья Эгерман, Вадим Кошмай, Серафим Долбунов, Анастасия Бактимирова, Никита ЕнкинПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9378FE2EB0E4C7D7F94E39754320D1780EAA22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683838   (128316) от 12.12.2023
+
+Последний богатырь (2017) BDRip [H.264/1080p-LQ] [Open Matte]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Победитель 5-го сезона «Битвы магов» белый маг Святозар, а на самом деле — обычный парень Иван, привычно пудрит мозги телезрителям и доверчивым клиентам, готовым поверить во что угодно. Однажды, спасаясь бегством от крепких охранников мужа очередной одураченной им домохозяйки, парень внезапно переносится из Москвы в сказочную страну Белогорье. А встреченный там старец (   Читать дальше...   )Производство: Россия / Кинослово, Walt Disney Pictures, Yellow, Black & WhiteЖанр: комедия, фэнтези, приключенияРежиссер: Дмитрий ДьяченкоАктеры: Виктор Хориняк, Мила Сивацкая, Екатерина Вилкова, Елена Яковлева, Константин Лавроненко, Евгений Дятлов, Александр Семчев, Сергей Бурунов, Александр Кухаренко, Марина КалецкаяСубтитры: ОтсутствуютПродолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF38FBA5C5A119F1FFB5F59110E8D204785898DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683843   (128308) от 12.12.2023
+
+Отпуск в октябре (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодая актриса Света окончила театральную академию, живет в Санкт-Петербурге и мечтает сниматься не в проходных сериалах, а в серьезных фильмах и играть серьезные роли. Ей везет, она попадает в болливудский проект, в котором собраны звезды кино, лучшие диджеи и хореографы страны. Но все оказывается не очень просто. Никто не знает сценария, актеры месяцами живут (   Читать дальше...   )Производство: Россия / Фрут ТаймЖанр: драмаРежиссер: Роман МихайловАктеры: Мария Мацель, Геннадий Блинов, Анна Завтур, Евгений Ткачук, Юлия Марченко, Кирилл Полухин, Фёдор Лавров, Виталий Коваленко, Варвара Павлова, Екатерина СтарателеваСубтитры: ОтсутствуютПродолжительность: 01:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB3BA04F1928D049201CD391776488A6ADA6A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683819   (128294) от 12.12.2023
+
+Подвал господина Гринберга (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В маленьком провинциальном городке начали пропадать молодые девушки. Подозрение полиции вызвал Артур Гринберг, которого видели в баре с последней пропавшей. Но так ли все просто и сможет ли полиция поймать преступника?Производство: Россия / АРНИ СинематрониксЖанр: триллер, криминалРежиссер: Андрей ПаюковАктеры: Агата Муцениеце, Влас Зубов, Дарья Эгерман, Вадим Кошмай, Серафим Долбунов, Анастасия Бактимирова, Никита ЕнкинСубтитры: ОтсутствуютПродолжительность: 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D265ABB8A81B4FDC8FE1171DD685873B9DB01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683884   (128193) от 13.12.2023
 
 Человек ниоткуда (2023) WEBRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D7441D7D18139462AF90FEDCE4E7FC1528294A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685019   (127301) от 18.12.2023
-
-Скольжение (2013) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой с необычным именем-прозвищем Пепл – оперативный сотрудник, однако и он, и вся группа, к которой он принадлежит, типичные, погрязшие в криминальной деятельности, «оборотни в погонах». В отлаженной преступной схеме этой сработавшейся команды начинают возникать сбои, и становится очевидным, что в их рядах есть осведомитель. Обозначенная сюжетная канва (   Читать дальше...   )Производство: Россия / Blackbriar production, MultilandЖанр: триллер, криминалРежиссер: Антон РозенбергАктеры: Владислав Абашин, Алексей Игнатов, Михаил Солодко, Владимир Лукьянчиков, Наталья Швец, Ольга Смирнова, Александр Борисов, Николай Козак, Мария Слидовкер, Алексей ШкатовСубтитры: отсутствуютПродолжительность: 01:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570D38FECA742A8D437F74DFD4AA3444FC2C6452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685410   (127300) от 18.12.2023
-
-Всадник по имени смерть (2004) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия начала XX века. Совершен ряд кровавых террористических актов, направленных против высоких должностных лиц государства. Главная цель террористов — убийство Великого князя Сергея Александровича. Покушение готовят члены так называемой «Боевой организации» — ее руководитель Жорж.
-Процесс подготовки теракта раскрывает психику, чувства и стремления террористов, (   Читать дальше...   )Производство: Россия / МосфильмЖанр: драмаРежиссер: Карен ШахназаровАктеры: Андрей Панин, Ксения Раппопорт, Артём Семакин, Ростислав Бершауэр, Анастасия Макеева, Алексей Казаков, Дмитрий Дюжев, Валерий Сторожик, Василий Зотов, Дмитрий ГусевСубтитры: отсутствуютПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DA88E35AE74137C13D697AFE10A3F383B5CF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685355   (127289) от 18.12.2023
-
-Неестественный отбор (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127289.jpg" />
-</div>
-
-
-###  Подробнее
-
-В провинциальном городе существует фонд, поддерживающий бездомных инвалидов, людей с ограниченными физическими возможностями и бедняков. Однако владельцы фонда имеют с благотворительности свою выгоду, управляя местными жителями и их судьбами. Инвалид Егор Колчак, только что потерявший мать, решает противостоять меценатам и положить конец их своеволию.Производство: Россия, ВВП Альянс / Кинокомпания АльянсЖанр: триллер, криминалРежиссер: Татьяна ЯрмакАктеры: Михаил Пореченков, Сергей Юшкевич, Евгений Михеев, Илья Антоненко, Алексия Белавина, Диана Милютина, Полина Северная, Сергей Мухин, Александр Танхилевич, Анна АфанасьеваСубтитры: ОтсутствуютПродолжительность: 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554FBD55D587270F651203762F84337F7232BE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332760   (127177) от 19.12.2023
-
-Несут меня кони (1996) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в наши дни в Крыму. Иван Лешков, некогда студент столичного вуза, а ныне рядовой адвокат в маленьком городке, тяготится скукой провинциальной жизни, пьет горькую и вымещает злобу за свои несбывшиеся надежды на любимой женщине и окружающих. Однажды друг его юности Эллер, желая проучить обидчика, как во времена Чехова и Пушкина, вызывает Лешкова (   Читать дальше...   )Производство: Россия, АРИОНЖанр: драмаРежиссер: Владимир МотыльАктеры: Андрей Соколов, Агнежка Вагнер, Сергей Виноградов, Геннадий Печников, Владимир Качан, Валентина КособуцкаяПродолжительность: 01:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821D9B4BE03604A38BEC974C144271E2BDB96E04
 ```
 
 https://mybot314.ru/tekegram_catalog/

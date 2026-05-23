@@ -1,23 +1,25 @@
-###  Публикация: 1792397   (67691) от 19.04.2025
+###  Публикация: 1784880   (69505) от 13.03.2025
 
-Текстуры - SAINT RICCHI - Behance - HOLO GLASS - FREE TEXTURES AND TUTORIAL - 173778673 [PNG]
+Александр Куприн | На разъезде (Радиоспектакль) (2024) [MP3, Светлана Коренникова, Вадим Бочанов]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные голографические стеклянные текстуры.
-Материал раздаётся с официальной документацией.Формат: PNGРазрешение файлов: 2500 x 1500
+Серия/Цикл: Театр у вас дома.
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+«На разъезде» – рассказ А.И. Куприна, написанный в 1894 году.
+Часто бывает трудно принять решение (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:537BB3F1D34736FC776D807231A7853D46FD575D
+magnet:?xt=urn:btih:1E4D5D4107CDBE1B9D322C17A64548A2995C063A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +27,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792508   (67690) от 19.04.2025
+###  Публикация: 1784889   (69504) от 13.03.2025
 
-Marilyn Manson - In The Air Tonight (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Industrial Metal, Alternative Rock>
+Ганс Христиан Андерсен | Девочка со спичками (2008) [MP3, Екатерина Хлыстова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детям.
+Сказки – «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» Ганса (Ханса) Христиана Андерсена (1805–1875) знают и любят дети и взрослые во всем мире. Великий сказочник сумел создать волшебный мир, полный любви, светлых чувств и гуманизма. Все его персонажи: растения и животные, люди и предметы – отличаются особым характером, (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 03:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC85A6BF0D4B50A2D2343316238622EEB4996E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784881   (69503) от 13.03.2025
+
+Александр Куприн | Олеся (Радиоспектакль) (2022) [MP3, Юлия Бочанова, Александр Строев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+«Олеся» – повесть А.И. Куприна, написанная в 1898–1899 годах. Впервые произведение было опубликовано (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F837E9CB80018001C4775FF9C49E6EB0F7D04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784797   (69502) от 13.03.2025
+
+David Rose - My Disguise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. In The Air Tonight
-2. As Sick As The Secrets Of (Sleep)Жанр: Industrial Metal, Alternative RockПродолжительность: 00:10:02
+01.  My Disguise (3:53)
+02.  Oldfashioned Reason (3:05)
+03.  Smooth Talker (2:06)
+04.  Bird Brains in Twos (3:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DB05F48FD03858E5652B81B669DF165C75EF845
+magnet:?xt=urn:btih:3A31D475F8C530D45F99A261A310CAA060824A36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,80 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792526   (67689) от 19.04.2025
+###  Публикация: 1784966   (69501) от 13.03.2025
 
-Дом мечты / Home Jacking (2024) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В модный дом супружеской пары буржуа вламывается человек в маске. Его истинные мотивы неизвестны: что это - кража, убийство или нечто совершенно неожиданное? Может, жертвы и преступник - не те, за кого себя выдают?Производство: Франция / Lincoln TVЖанр: триллерРежиссер: Эрве АдмарАктеры: Merwane Tajouiti, Мари Домпнье, Янник ШуараПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:30:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE94EE09B49394072DF3B0FD8AF8D81A7095BE3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792461   (67688) от 19.04.2025
-
-VivaCut v4.1.6 Mod by MustHave [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67688.jpg" />
-</div>
-
-
-###  Подробнее
-
-VivaCut для Android - это профессиональный видеоредактор с эффектами и бесплатное программа для монтаж видео. Обработка видео для ютуба с использованием многослойной временной шкалы и высококачественных функций редактирования. Редактировать видео для ютуба и инстаграм, вырезая или комбинируя клипы с удивительными стикерами и фильтрами. Отложите в сторону свой Афтер (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.04.2025Разработчик: VivaCut professional video editorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76803320A6AC659B14F13F470FD0B934083392B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792532   (67687) от 19.04.2025
-
-Hellsmoke - Hellucination (2025) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+Hamer - Бивни (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Wasted Times (03:31)
- 02 - Now You See Me (03:24)
- 03 - Hellucination (04:32)
- 04 - Shellshocked (03:17)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:42:14
+01. Адские кони/Hell's Horses  05:07
+02. Сердце - рок (Мы железно не станем другими-2)/The heart is rock (We will not become different ironically-2)  06:20
+03. Шампанское рок-н-ролл/Champagne rock and roll  04:03
+04. Бивни/Tusks  03:59(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:51:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25FCA2B1A51141C24619AF7FCDA606D3D6CBD955
+magnet:?xt=urn:btih:77559D4FC567901A49EC4CE76B22B1703FCE2A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,26 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792464   (67686) от 19.04.2025
+###  Публикация: 1784803   (69500) от 13.03.2025
 
-TikTok Private Plus v39.6.2 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
+T.G. Copperfield - All In Your Head (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-В этом Моде можно выкладывать видео для РФ.
-TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.04.2025Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+01.  Mule (3:34)
+02.  I'm On My Way (3:01)
+03.  Not Your Game (3:30)
+04.  Have Mercy On Me (2:58)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:38:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A04096E85B169F3612AEB812C89D48501A8AB51
+magnet:?xt=urn:btih:719F9030C949C4ABCEC9F6E0C1FA6C5D1D005ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792568   (67685) от 19.04.2025
+###  Публикация: 1784940   (69499) от 13.03.2025
 
-Схождение Благодатного огня (2025) WEBRip [H.264/1080p]
+Андрей Картавцев - В твоих глазах (2025) [MP3|320 Kbps] <Pop>
 
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Раз в год в Великую субботу в Иерусалиме сходит Благодатный огонь. Произошло чудо и в этом году. В честь этого знаменательного события тысячи паломников в канун православной Пасхи собирались в храме Гроба Господня. Благодатный огонь считается символом благословения Божия роду человеческому. Он разносится паломниками по всему православному миру. Из Иерусалима его (   Читать дальше...   )Телекомпания: «НТВ»Жанр: ДокументальныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:45
+01 - В твоих глазах [00:03:43]
+01 - Летний дождь [00:04:08]
+03 - Эта песня для тебя [00:03:33]
+04 - Курточка [00:03:22](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C49C6BAC1D088B15D7D67072696E3AC2B240AF9
+magnet:?xt=urn:btih:023A74E1A0DF86DC3B839307F3B5B4738B00C80F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,28 +198,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792377   (67684) от 19.04.2025
+###  Публикация: 1784873   (69498) от 13.03.2025
 
-YOTTO - Live @ We Belong Here (Historic Virginia Key Beach Park Miami) (2025-03-01) [MP3|320 Kbps] <Melodic House, Techno>
+Журнал | Лечитесь с нами №2 (230) (февраль 2025) [PDF]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Ben Böhmer - Wall Of Strings (YOTTO Edit)
-02. Kadosh & Severin Su - Let Me See You (Enamour Remix)
-03. Kaufmann - John Otto
-04. YOTTO - Heartbeat(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:54:56
+Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86E5E7C0B863A95A918040FC70A02CDEBDA7FB84
+magnet:?xt=urn:btih:FE5DC87CE051443AD37CAEA54EC6874275C91CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +224,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792389   (67683) от 19.04.2025
+###  Публикация: 1784871   (69497) от 13.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Floral Medley Seamless Patterns [JPG]
+Николай Лесков | Грабёж (Радиоспектакль) (2023) [MP3, Татьяна Михалевкина, Ирина Ракшина и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+«Грабеж» – рассказ Николая (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5582978E7ED4F5109B93566875F53F145489C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784832   (69496) от 13.03.2025
+
+Шрифты - Creative Market - Macwine - Beautiful Chic Serif - 290849394 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных цветочных узоров в пастельных тонах.Формат: JPGРазрешение файлов: 3600 x 3600
+Macwine — это изысканный шрифт с засечками, разработанный для придания элегантности и изысканности вашим проектам.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2DAD94C35FC72408F03DB79939C72FE49F79C25
+magnet:?xt=urn:btih:439080D6804C3159AC7E6A1860F20F7550472CC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,28 +280,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792607   (67682) от 19.04.2025
+###  Публикация: 1784765   (69495) от 13.03.2025
 
-VA - Trancespotting Vol.10 (2025) [MP3|320 Kbps] <Trance>
+Visions Of Atlantis - Armada LIVE Over Europe (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal, Power Metal>
 
->>Electronic
->>Trance
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Diago - Sequentia (Original Mix) (03:15)
-02. Guava Project - New Horizons (Original Mix) (03:59)
-03. MakeFlame & DJ Frost - Acid Rain 303 (Original Mix) (04:58)
-04. Rene Ablaze, Fischer & Miethig - Follow Me (Original Mix) (02:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:10
+01 - To Those Who Choose to Fight (LIVE at Lyon) [2:20]
+02 - The Land of the Free (LIVE at Lyon) [4:42]
+03 - Monsters (LIVE at Nuremberg) [3:49]
+04 - Heroes of the Dawn (LIVE at Paris) [4:42](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Power MetalПродолжительность: 01:25:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FE331B397ACEE4379F2D13BBA0D89A28277FEF1
+magnet:?xt=urn:btih:14A9BA338EE08FDD7643A1E1AF943BAD58F757A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,54 +309,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792510   (67681) от 19.04.2025
+###  Публикация: 1784804   (69494) от 13.03.2025
 
-VA - Progressive Trance Awakening, Vol. 04 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundtoys - Around Us (Original Mix) [7:03]
-02. OLBI - Moon (Original Mix) [3:34]
-03. The Trance Ensemble & AFTERUS - Dark (Extended Mix) [6:01]
-04. g-herb - Reflections (Original Mix) [5:47](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2DEEA9D38DAC22696535A8134322F01C3214F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792420   (67680) от 19.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Purple & Gold Floral Mug Wrap Sublimation Design [PNG]
+Шрифты - Creative Market - Leina Savira Stylish Serif Font - 290805668 [OTF, TTF, WOFF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Фиолетово-золотой цветочный дизайн сублимационной упаковки для кружек.Формат: PNGРазрешение файлов: 2925 × 1425
+Шрифт Leina Savira Stylish Serif — это яркий, современный шрифт с засечками, сочетающий элегантность с индивидуальностью. Благодаря своему изысканному дизайну этот шрифт добавляет ощущение изысканности и очарования любому проекту.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5682CD2DD8CE71575C74FB884A47E6527131E119
+magnet:?xt=urn:btih:73A4B1AE3659C73F6E36D2C8EF841B2B738A8012
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,54 +337,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792515   (67679) от 19.04.2025
+###  Публикация: 1784861   (69493) от 13.03.2025
 
-VA - Keep It Trance Vol. 28 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempo Giusto & Gabriel Thomas - Ikaros (Original Mix) [3:28]
-02. ARQLYTE - Foster Avenue (Extended Mix) [5:47]
-03. Denis Airwave & Ria Joyse - Гипноз (Extended Mix) [5:52]
-04. Chris Krystal - Guilty Art (Extended Mix) [5:54](   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410BA0DFDF2408D5C4B77B479D74709A24F72B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792391   (67678) от 19.04.2025
-
-Растровый клипарт - Creative Store - Creative Fabrica - Vintage Cottagecore Flowers Patterns [JPG]
+Шрифты - Creative Market - Mase - Branding Logo Font - 290833575 [OTF, TTF, WOFF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Винтажные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт Mase Font предлагает прекрасную типографическую гармонию для разнообразных дизайн-проектов, включая логотипы и брендинг.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0D40AFE87DF44E2EE37B8A98B09E0833588BBDF
+magnet:?xt=urn:btih:41868CC4CE1FD36294AAA31004600F1E2E4656D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,28 +365,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792215   (67677) от 19.04.2025
+###  Публикация: 1784933   (69492) от 13.03.2025
 
-Legacy Pilots - Night Flight (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
+Warbringer - Wrath And Ruin (2025) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Better Days (Live) [00:05:05]
-02. Nemesis (Live) [00:04:24]
-03. Ghosts of the Ocean (Live) [00:05:00]
-04. True Spirit (Live) [00:05:29](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:45:00
+Disc 1:
+01. The Sword And The Cross (06:07)
+ 02. A Better World (03:45)
+ 03. Neuromancer (05:28)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:53:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:794CA643B7964006A4A206DB8097E193ADA08B14
+magnet:?xt=urn:btih:D2C12D457B217B89EE99EF7A2439E8787539DD39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -409,26 +394,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792649   (67676) от 19.04.2025
+###  Публикация: 1784796   (69491) от 13.03.2025
 
-Растровый клипарт - MutchiDesign - Creative Fabrica - Fantasy Watercolor Digital Paper Set [JPG]
+David Rose - A Good Catch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  A Good Catch (2:42)
+02.  You Might Be the One (2:24)
+03.  As a Parrot Might (3:48)
+04.  Back Pocket (2:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1487E3BE68544C3898D7E6A709177B1AD68A292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784932   (69490) от 13.03.2025
+
+The Night Flight Orchestra - Give Us The Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Final Call (Intro) (0:33)
+02.  Stratus (5:06)
+03.  Shooting Velvet (3:58)
+04.  Like The Beating Of A Heart (4:45)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE60080D3C72D36DD5DBFEDF528367F40A072D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784897   (69489) от 13.03.2025
+
+Шрифты - Creative Market - Bridens - Modern Serif Display - 287079895 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Акварельные изображения на цифровой бумаге.
-Материал раздаётся с официальной документациейФормат: JPGРазрешение файлов: 3600 x 3600
+Представляем Bridens, современный шрифт с засечками, который излучает изысканность и стиль. Доступный как в обычной, так и в курсивной версии, Bridens предлагает широкий спектр творческих возможностей с его стильными альтернативами и лигатурами.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C16C06DE47BA914A7CA75DBB77B99D3B46D3A782
+magnet:?xt=urn:btih:76BF4ADEDAF531A0DA0714EA3D532DC48831B7AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,25 +480,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792394   (67675) от 19.04.2025
+###  Публикация: 1784917   (69488) от 13.03.2025
 
-Растровый клипарт - Creative Store - Creative Fabrica - Bohemian Seamless Pattern Digital Papers [JPG]
+Heldmaschine - Eiszeit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neue Deutsche Härte, Industrial Metal>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с богемным бесшовным рисунком.Формат: JPGРазрешение файлов: 3600 x 3600
+01. Meine Welt (4:15)
+02. Schlag mich (3:57)
+03. Raus (3:53)
+04. Schachmatt (4:28)(   Читать дальше...   )Жанр: Neue Deutsche Härte, Industrial MetalПродолжительность: 00:57:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9B798B5DD38216591E69F35B34EF8ED5ACCB48F
+magnet:?xt=urn:btih:612B4012937718F884855EA995C966893D034E4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,25 +509,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792419   (67674) от 19.04.2025
+###  Публикация: 1784808   (69487) от 13.03.2025
 
-Растровый клипарт - Artnoy - Creative Fabrica - Sliver Metallic Glitter Digital Papers [JPG]
+Art Pepper - Winter Moon (1980) 2005, Galaxy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с серебристым металлическим блеском.Формат: JPGРазрешение файлов: 3600 x 3600
+01. Our Song [5:32]
+02. Here's That Rainy Day [5:21]
+03. That's Love [4:53]
+04. Winter Moon [5:32](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:57:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E8E2B91F077EBE8688D96C2FBF007FBBCA54944
+magnet:?xt=urn:btih:CDD48FB73A8BEF4006D582A5DDA1505D8042864B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,25 +538,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792421   (67673) от 19.04.2025
+###  Публикация: 1784793   (69486) от 13.03.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Polka Dots 3d Flowers Mug Wrap Sublimation Design [PNG]
+Belleville Birds - Merle alors (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Дизайн сублимационной упаковки кружки в горошек с 3D цветами.Формат: PNGРазрешение файлов: 2925 × 1425
+01.  Rien ne va (4:49)
+02.  Apolline (Version courte) (2:43)
+03.  A la sauvette (4:07)
+04.  Self-Talk (3:53)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA7CE7B76A68D6BE77788DFE8100699E5A674F00
+magnet:?xt=urn:btih:D789CFC65524872E1CBC052497D9A69D87DE5F37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,25 +567,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792393   (67672) от 19.04.2025
+###  Публикация: 1784923   (69485) от 13.03.2025
 
-Растровый клипарт - Creative Store - Creative Fabrica - Cherry Blossom Flowers Digital Papers [JPG]
+The Bob Lanza Blues Band - Breadman's Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с цветами вишни.Формат: JPGРазрешение файлов: 3600 x 3600
+01.  Johnny Jihngo (3:18)
+02.  Cut Off My Right Arm (3:50)
+03.  Nicky's Blues (3:35)
+04.  Same Old Blues (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D10D99B8579A7124BF50BB08DB6D3FECFE0AB988
+magnet:?xt=urn:btih:E525AB6248E14244899411657FC2F7E18924EDD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,25 +596,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792422   (67671) от 19.04.2025
+###  Публикация: 1784811   (69484) от 13.03.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Pink and Purple Flowers Mug Wrap Sublimation Design [PNG]
+The Bud Powell Trio - Time Was (1956, 1957) 1987, Bluebird [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Дизайн сублимационной упаковки с розовыми и фиолетовыми цветами для кружек .Формат: PNGРазрешение файлов: 2925×1425
+01. There Will Never Be Another You [3:40]
+02. They Didn't Believe Me [3:21]
+03. I Cover the Waterfront [2:34]
+04. Time Was [3:07](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:04:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEEC43F764C6AD7F5215A12F91DC294650CCA214
+magnet:?xt=urn:btih:0B983D25143A3D1C3ECF475B330FA5B5B33997F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,28 +625,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792605   (67670) от 19.04.2025
+###  Публикация: 1784800   (69483) от 13.03.2025
 
-VA - Trancespotting Vol.9 (2025) [MP3|320 Kbps] <Trance>
+Tony Scott - Three Classic Albums Plus (1953 - 1958) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Rene Ablaze - Legends (Original Mix) (03:01)
-02. Alex Byrka - Now & Ever (Original Mix) (02:39)
-03. Yepzone & Andy Elliass - Suburbian Mist (Original Mix) (03:28)
-04. Plutian & Dalmoori - Frigoris (Original Mix) (04:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:00
+01. It's You Or No One [2:55]
+02. Rock Me But Don't Roll Me [2:34]
+03. Deep Purple [1:58]
+04. The Jitterbug Waltz [3:12](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:38:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E33D16CE1AD7A4CD69D2924A0FA6067D0621D52
+magnet:?xt=urn:btih:D01262E6672932E90B8282AB6BA6F8D353C8671E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,25 +654,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792417   (67669) от 19.04.2025
+###  Публикация: 1784893   (69482) от 13.03.2025
 
-Фоны - Artnoy - Creative Fabrica - Unicorn Blur Background Digital Papers [JPG]
+Ганс Христиан Андерсен | Русалочка (Инсценировка) (2023) [MP3, Марианна Мокшина, Александр Васильев и др.]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с размытыми фоном.Формат: JPGРазрешение файлов: 3600 x 3600
+Серия/Цикл: Театр у вас дома.
+Ганс (Ханс) Христиан Андерсен (1805–1875) – датский писатель и поэт, автор всемирно известных сказок для детей и взрослых: «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» и др.
+Сказка «Русалочка» (1837) – в ней рассказывается о трогательной истории любви Русалочки к красивому принцу. История Русалочки – волшебная (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C50382CD4A6B12FAD87967405F2AAB35CC2713DA
+magnet:?xt=urn:btih:722BDDF8AD2E66D69D8916223E99F156C2D4F2C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,28 +682,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792354   (67668) от 19.04.2025
+###  Публикация: 1784802   (69481) от 13.03.2025
 
-VA - Black Hole House Music 04 - 25 (2025) [MP3|320 Kbps] <House, Progressive House>
+Surya - Into the Emerald (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Electronic
->>House
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Krismi - Set Me Free (Extended Mix) (06:22)
-02. PARAFRAME & Avis Vox - Bird Life (Extended Mix) (06:06)
-03. Dennis Sheperd, Freak E Beatz & Katty Heath - Afraid to Feel (Extended Mix) (03:48)
-04. Amun Starr, DirtyHertz & ARANAVA - Dreaming (Extended Mix) (04:58)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:15:52
+01.  Evergreen River (1:28)
+02.  A Blazing Crusade (3:43)
+03.  Through the Stone (4:15)
+04.  Beyond Eyes of Gold (8:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:084774244322BC4BE213EB0A4BF1224D0AAD6867
+magnet:?xt=urn:btih:AD3E323D8CA5A1C18BB6ECD6A5F7A211EE7C9BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,55 +711,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792550   (67667) от 19.04.2025
+###  Публикация: 1784936   (69480) от 13.03.2025
 
-Meredith Brooks - Meredith Brooks: I Wouldn’t Want It Any Other Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+The Witches´ Dream - Muses & Conjurations (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Bitch (4:13)
-02. Bad Bad One (4:46)
-03. Shatter (4:00)
-04. Queen Latifah - Lay Down (Candles In The Rain) (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:27
+01.  Calamity (5:07)
+02.  Eradicate (4:55)
+03.  Grand Conjuration (3:33)
+04.  Stones In The Rainy Forest (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB47C5D484FE67266D0AFFEBAB187A76F23123FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792557   (67666) от 19.04.2025
-
-Живая еда с Сергеем Малозёмовым (19.04.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творожная пасха: сырая, заварная, ленивая, из творога, тофу и в виде эскимо! Почему на юге и на севере России «пасхой» называют совершенно разные блюда, какой рецепт одобряет церковь, а какой — диетологи, как выбрать самый подходящий творог и неужели этим десертом легко отравиться?
- Луковая шелуха: от чего ею лечатся и чем опасны такие процедуры? Правда ли, что в (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CB502662486B1B1939716B1E541095EA890364
+magnet:?xt=urn:btih:2BE99D995FF9A02272B876741FF53F5E2FD723E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 1606819   (1044266) от 23.01.2023
+
+The Gnomon Workshop, Daniel Zeni | Создание модели в Zbrush точно повторяющей стилизованный концепт (2021) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Из 2D концепта в 3D персонаж используя Zbrush и Photoshop c Daniel Zeni
+
+Узнайте в этом 6-часовом воркшопе от Дэниела Зани. Используя ZBrush и Photoshop, Дэниел проведет вас через весь рабочий процесс, начиная от подбора концепта и заначивая финальной обработкой изображения.
+Начнет Дэниел с того, как создать концепт в ZBrush и как использовать Spotlight projection (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 06:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2965B5377DDA9BF1483FD76A4914C800FE831F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606944   (1044181) от 24.01.2023
+
+Udemy, Creativity Unleashed | Blender Character Creation Megacourse: Beginner to Expert (2023) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как использовать Blender для создания 3D-персонажей для игр и анимации!
+В этом курсе вы узнаете всё о том, как с помощью Blender и других бесплатных инструментов можно перейти от 2D-концепта к готовому к игре 3D-ассету. Начиная со сбора референсов и заканчивая созданием собственного дизайна персонажей, мы проведем полный обзор процесса 3D-производства готовых (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 53:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B9D6622C4DCF822A3F61322122F4D6BD89E66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607092   (1044111) от 25.01.2023
+
+SideFX, Nikola Damjanov | TheComplete A-Z Terrain Handbook:  ND edition (2022) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эта серия уроков охватывает все, что вам, вероятно, когда-либо понадобится, чтобы понять, как создавать ландшафты в Houdini. Начиная с базового слоя нод Heightfields и их функций, до использования сгенерированных масок для создания текстур в COP, до скаттеринга геометрии с использованием упомянутых масок, до применения и рендеринга их в LOPnet с помощью Karma.Производство: SideFXЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 03:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC229EF7AC4FF54E06F8655F31688A543160E6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607220   (1044105) от 25.01.2023
 
 CG Boost, Kevin Ramirez | Master Grease Pencil in Blender (2022) PCRec [AD] [EN / EN Sub]
@@ -6,7 +88,7 @@ CG Boost, Kevin Ramirez | Master Grease Pencil in Blender (2022) PCRec [AD] [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +116,7 @@ FlippedNormals | Unreal Engine 5 - How to Create Professional Cinematics (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +142,7 @@ Stepik, Evgen Marfel | Веб-дизайн в Figma 2023 (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -89,7 +171,7 @@ Udemy, Vince Petrelli | Unreal Engine 5: One Course Solution For Material (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +197,7 @@ Stepik, Evgen Marfel | Создание UI KIT в FIGMA. Делаем и про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +225,7 @@ Art-Kustova-school, Анастасия Кустова | Акварельный �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -171,7 +253,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 04. Creation Technics. Forms (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +280,7 @@ Michael Pavlovich | Zbrush for Ideation Unit 01 The Basics (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -224,7 +306,7 @@ Steven Knipping | Applied Houdini Rigids VI (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +332,7 @@ Steven Knipping | Applied Houdini Rigids V (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +358,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 05. Creation Techniques. Details (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +385,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 03. Exploration (2018) PCRec [En, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -332,7 +414,7 @@ Ioannis Karathomas | Military Mech Design (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -359,7 +441,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 06. Creation Techniques. Surface (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -386,7 +468,7 @@ Michael Pavlovich | Zbrush for Ideation Unit 07 Presentation (2018) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -413,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +522,7 @@ Photofox, Ростислав Литвицкий | Illustrator Beginner (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -469,7 +551,7 @@ Skillshare, Jake Bartlett | Texturing in Adobe After Effects (2022) WEB-DL [EN /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -495,7 +577,7 @@ Photofox, Ростислав Литвицкий | Illustrator PRO (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -524,7 +606,7 @@ Udemy, CG Masters, Chris Plush, Lee Salvemini | The Blender 2.8 Encyclopedia [Ch
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -550,7 +632,7 @@ Carlo Sansonetti | Character Rigging Production Techniques (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -576,7 +658,7 @@ Simon Fuchs | Military Radio Tutorial Part 1-3 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -602,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -613,84 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0DA0116DC846918D058BBE764CB9645BB20CAC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437409   (1042127) от 04.01.2021
-
-Madeleine Scott-Spencer | Introduction to Zbrush 2020 (2020) PCRec [En, Ru]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс представляет Madeleine Spencer. Он включает в себя 54 занятия длительностью более 20 часов. Мы начнем со вводного курса ZBrush. Он предназначен для полных новичков. разберемся с основными инструментами и функционалом, такими как dynamesh, уровни сабдивов, интерфейс и навигация ZBrush. После вводного курса мы начнем углубляться в более сложные аспекты работы (   Читать дальше...   )Производство: The Gnomon workshopЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 21:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CD7F8477844AF3806E01847E51226EB9D54B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406009   (1042065) от 08.02.2023
-
-Gumroad, Josh Gambrell, Ponte Ryuurui | The Hard Surface Handbook for Blender (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник по твёрдотельному моделированию был создан для того, чтобы помочь понять различные темы моделирования твердых поверхностей. Существует так много различных важных тем в моделировании твердых поверхностей, от автоматического сглаживания, веса фаски, булевых операций, многоугольников, шейдинга и т. д.. Это руководство предназначено для того, чтобы подробно (   Читать дальше...   )Производство: GumroadЖанр: 3D моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA3632267D88CD4A87AA5DBFA6117C8696A59D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437752   (1041951) от 05.01.2021
-
-Jonathan Rush | Photogrammetry for Games (2016) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотограмметрия это процесс получения визуальной информации из массива фотографий с целью создания полностью затекстурированных высокополигональных моделей. Это инструмент, который используется во многих индустриях, таких как создание карт, археологии и кинематографе.Производство: CGWorkshopsЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 06:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE4D36C9495B32F00989E201ADEFD48289875F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

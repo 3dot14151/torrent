@@ -1,3 +1,81 @@
+###  Публикация: 1654664   (193997) от 22.08.2023
+
+VPN Russia - VPN сервера в России 1.168 Mod by ANiK555 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и бесплатный Vpn Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения VPN с ключом 2048 бит.Тип издания: ProРазработчик: Local networksПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654880   (193956) от 23.08.2023
+
+Радио онлайн - PCRADIO 2.7.2.2 Mod by NURIK [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Радио онлайн - PCRADIO - отличный проект, что благодаря своим качествам завоевал весьма впечатляющих размеров аудиторию пользователей. Им предлагается удобная и функциональная платформа для поиска и прослушивания радиостанций и всего прочего потокового аудиоконтента. Порадует и серьёзная экономия трафика. Это обеспечивает совершенно невысокий уровень потребления (   Читать дальше...   )Тип издания: ModРелиз состоялся: 26.12.2022Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E3649FE3B370C31962B3EE020D6AE38F584B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654978   (193892) от 23.08.2023
+
+QR & Barcode Scanner / Сканер QR и штрих- кодов 2.5.39 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+QR & Barcode Scanner Pro - очередное приложение для считывания штрих-кодов и QR-кодов. Пользователи смогут быстро получать исчерпывающую информацию скрывающуюся за полосками и квадратиками. Товары и продукты, реклама и объявления, билеты и зашифрованные полезные знания. Подобные элементы окружают нас со всех сторон в современном мире. И зачастую мы их просто-напросто (   Читать дальше...   )Тип издания: Pro (Patched)Релиз состоялся: 12.04.2023Разработчик: Gamma PlayПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D801E9EC402693107E1572FE33D2117E2E80C41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654995   (193883) от 23.08.2023
 
 Очиститель для WhatsApp (от LookAndFeel Lab) v2.9.4 [Ru/Multi]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ XY VPN - Security Proxy VPN 4.6.112 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Smart AudioBook Player Pro v10.0.6 Mod by Balatan, Kirlif', Alex.Strannik [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ LazyIPTV Deluxe v2.46 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ InviZible Pro: Tor & Firewall v7.3.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -164,7 +242,7 @@ MultiTimer: МультиТаймер v1.10.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -268,7 +346,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.109 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -295,7 +373,7 @@ DIGI Clock Widget Plus 3.3.2 (build 25412) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -321,7 +399,7 @@ iTranslate  v5.10 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -347,7 +425,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -399,7 +477,7 @@ FFmpeg Медиа-кодер v6.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -452,7 +530,7 @@ Flibusta Downloader v4.5.1 Test [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -504,7 +582,7 @@ All Language Translate App 1.65 Mod by ModdingUnited [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E243972EF29ABE0A9DB20CB071ED72DD46DB4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533728   (192489) от 31.10.2022
-
-Буковки: учимся читать весело v5.32 [Ru/En]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192489.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Буковки” - это инструмент для обучения чтению общепризнанным звуко-буквенным методом, в сочетании с преимуществами небезызвестной методики Зайцева и других методик обучения чтению. Приложение “Буковки” позволит составлять любые слова с помощью удобной озвученной клавиатуры. С ним дети учатся читать по-русски с удовольствием! Слова автоматически разбиваются на склады*. (   Читать дальше...   )Тип издания: Full (Разблокированы все буквы, Disabled Google services)Релиз состоялся: 22.10.2022Разработчик: EditaleПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4296A568A6CC164690E96DBC2E4D27ABE22B0CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657634   (192378) от 04.09.2023
-
-Windy.app: погода и ветер 40.0.6 Mod by GIP-79 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windy.app - очень и очень востребованное погодное приложение, что детально визуализирует прогнозы на ближайшее время. Владельцы гаджетов смогут воочию наблюдать за вероятным течением ветра, перемещением осадков и прочими аспектами. Это поможет и пилотам и рабочим, что так или иначе зависят от подобных условий и спортсменам, что не хотят рисковать понапрасну. Высокое (   Читать дальше...   )Тип издания: ModРелиз состоялся: 11.07.2023Разработчик: Windy Weather World IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D34D94B5F8864916E65020E9C778FF5283AE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657664   (192363) от 04.09.2023
-
-Windy.com - Weather Forecast 39.1.5 Mod by Jenny66 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windy.com - Weather Forecast - очень и очень востребованное погодное приложение, что детально визуализирует прогнозы на ближайшее время. Владельцы гаджетов смогут воочию наблюдать за вероятным течением ветра, перемещением осадков и прочими аспектами. Это поможет и пилотам и рабочим, что так или иначе зависят от подобных условий и спортсменам, что не хотят рисковать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 10.08.2023Разработчик: Windyty SEПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC504A7E9AB4B6181611AA8F6C30A98246B944ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

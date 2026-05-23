@@ -1,3 +1,58 @@
+###  Публикация: 141321   (475908) от 18.09.2009
+
+Планета обезьян / Planet of the Apes (1968/1970/1971/1972/1973/2001) [H.264] BDRip [пенталогия + римейк]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Будущее. 2029 год. На гигантской космической станции астронавт Лео Дэвидсон обучает обезьян управлять летательными аппаратами. Неожиданно один из его учеников теряет контроль над космолетом и его уносит в еще не изученную область пространственно-временных туннелей.
+
+Не раздумывая ни секунды, Лео бросается на выручку шимпанзе, но его постигает та же участь. Пройдя (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, Триллер, ПриключенияАктеры: Марк Уолберг, Тим Рот, Хелена Бонем Картер, Майкл Кларк Дункан, Пол Джаматти, Эстелла Уоррен, Кэри-Хироюки Тагава, Дэвид Уорнер, Крис Кристофферсон, Эрик Авари и др.Язык субтитров: 1.Продолжительность: 01:59:58
+-----------------------------------------------------------
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546708   (475412) от 14.09.2012
+
+Трансформеры: Трилогия / Transformers: Trilogy (2007-2011) [H.264/720p-LQ] BDRip
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Фантастика Триллер Приключения БоевикРежиссер: Майкл БэйАктеры: Шайа ЛаБаф /Shia LaBeouf/, Джош Дюамель /Josh Duhamel/, Джон Туртурро /John Turturro/, Тайриз Гибсон /Tyrese Gibson/, Роузи Хантингтон-Уайтли /Rosie Huntington-Whiteley/, Патрик Демпси /Patrick Dempsey/, Кевин Данн /Kevin Dunn/, Джули Уайт /Julie White/, Джон Малкович /John Malkovich/, Питер Каллен /Peter CullenПеревод: ДубляжПродолжительность: 02:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CDC097C29C75D36E1F7458D059475F7D38ECD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546695   (475409) от 14.09.2012
 
 Трансформеры: Трилогия / Transformers: Trilogy (2007-2011) [H.264] BDRip
@@ -6,7 +61,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -616,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D99321DAE7FA76A01EE27EEECA1C60226FADC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241395   (441288) от 20.09.2018
-
-Ким Ки-Дук: фильмография / Kim Ki-Duk: filmography (1996-2008) DVDRip [H.264]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Ки-дук родился 20 декабря 1960 года. Он был трудным ребёнком, рос в селе, на севере провинции Кенсан. Переехавшие в город родители отдали подростка в сельскохозяйственную школу, откуда будущий художник и режиссёр пошёл работать на завод, а потом - на пять лет в морскую пехоту. В одном из интервью, Ким признаётся, что долгое время вообще не считал важными культурные (   Читать дальше...   )Жанр: ДрамаРежиссер: Ким Ки-ДукАктеры: Джо Одагири, На-йеон Ли, Mi-hie Jang, Тхэ-хён Ким, Пак Чи АПеревод: Многоголосый закадровыйПродолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86DDCF46B7E76FD940F360A7CE2ECF58AFB07EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164606   (438679) от 10.09.2017
-
-Superнянь 1-2 / Babysitting 1-2 (2014-2015) BDRip [H.264/1080p-LQ] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влюбленная парочка Фрэнк и Соня приглашают своих друзей на отдых в Бразилию, в роскошный отель богатенького папы Сони. Планировалось, что это будет отдых мечты, а Фрэнк сделает Соне предложение посреди всей этой экзотики. Но его попытки получить одобрение отца оборачиваются полным провалом. Ведь с такими друзьями, как у него, и враги не нужны!
-Но настоящая катастрофа (   Читать дальше...   )Производство: Франция / Universal Pictures International (UPI)Жанр: комедияРежиссер: Николя Бенаму, Филипп ЛашоАктеры: Филипп Лашо, Алис Давид, Венсан Дезанья, Тарек Будали, Кристиан Клавье, Жюльен Аррути, Грегуар Людиг, Давид Марсе, Шарлотта Габрис, Бето БенитесПеревод: Дублированный (iTunes)Субтитры: Русские (полные), украинские (полные)Продолжительность: 01:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCAB5644841441CF2B91119AD56C1034176DFD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

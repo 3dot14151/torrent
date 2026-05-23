@@ -1,3 +1,81 @@
+###  Публикация: 1094133   (930586) от 17.01.2017
+
+Debian GNU/Linux 8.7.0 Jessie Live (free + nonfree) [i386] 14xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Debian выпустили седьмое корректирующее обновление для стабильного дистрибутива Debian 8 (Jessie). Релиз 8.7 в основном исправляет проблемы с безопасностью, а также вносит некоторые коррективы в работу. Выпуск включает 87 обновлений с устранением проблем со стабильностью и 86 обновлений с устранением уязвимостей. Из изменений в Debian 8.7 можно отметить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7DD4EAD3C5D43E3771353061856474A691E599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093979   (930463) от 17.01.2017
+
+Debian GNU/Linux 8.7.0 Jessie [i386] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Debian выпустили седьмое корректирующее обновление для стабильного дистрибутива Debian 8 (Jessie). Релиз 8.7 в основном исправляет проблемы с безопасностью, а также вносит некоторые коррективы в работу. Выпуск включает 87 обновлений с устранением проблем со стабильностью и 86 обновлений с устранением уязвимостей. Из изменений в Debian 8.7 можно отметить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CB23BB1ACE9208BEA1B31CF7B88DC613EE38D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094433   (930235) от 17.01.2017
+
+Debian GNU/Linux 8.7.1 Jessie [x86-64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Через три дня после выпуска версии 8.7.0, по не объявленным пока причинам, разработчики Debian выпустили версию 8.7.1 корректирующее обновление для стабильного дистрибутива Debian 8 (Jessie). Релиз 8.7 в основном исправляет проблемы с безопасностью, а также вносит некоторые коррективы в работу. Выпуск включает 87 обновлений с устранением проблем со стабильностью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A863DDA4C4271066B30BB5ADB42C98706C34F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094434   (929064) от 18.01.2017
 
 Debian GNU/Linux 8.7.1 Jessie [i386] 3xDVD
@@ -6,7 +84,7 @@ Debian GNU/Linux 8.7.1 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [x86-64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Debian Edu - Skolelinux 11.0.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Kubuntu 14.04.4 LTS [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Lubuntu 14.04.4 Trusty Tahr (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Xubuntu 14.04.4 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Edubuntu 12.04.4 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +346,7 @@ Linux Mint 18.1 Serena KDE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +372,7 @@ Linux Mint 18.1 Serena XFCE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +398,7 @@ Zentyal 3.0.2 [Сервер для дома и малого бизнеса] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +426,7 @@ Linux Mint Debian Edition (MATE/Cinnamon) 201303 [x32 + x64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +456,7 @@ Sabayon 16.03 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +482,7 @@ Window Maker Live 0.95.7-3 (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +508,7 @@ Parrot Security OS 4.8 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +534,7 @@ KDE neon 5.9.0 (20170202) [x86-64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +560,7 @@ BlackArch Linux 2017.01.28 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +586,7 @@ ELive Livecd/LiveUSB Topaz kernel update 002 - дистрибутив Linux дл
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -538,7 +616,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [x8
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,7 +644,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -594,7 +672,7 @@ Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,90 +685,6 @@ Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D7E5B900A864BF5D98DD72E87CC1F3B34051278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762256   (892067) от 02.03.2014
-
-Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) [i686] 9xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net.
-
-Новости в дистрибутиве: обновлен пакетный менеджера Pamac 0.9.7; возможность включения/отключения поддержки AUR (пользовательских репозиториев); у иконки уведомлений в трее пакетного менеджера Pamac изменен период обновлений; удалены ненужные зависимости; изменены настройки через pamac-manager/updater GUI; добавлена запись 'Просмотр истории' в меню pamac-менеджера; добавлена поддержка AUR в инсталляционный скрипт менеджера pacmac (данная функция работает, если она включена в конфигах pamac.conf). Добавлены новые возможности в MHWD (Manjaro Hardware Detection): поддержка сетевых карт. Добавлен раздел «/home» в режиме автоматической установки. Исправлена проблема изменения размера окна в настройках языка. Исправлена проблема (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516B4096A56C902AF39E849603363993B1082DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641565   (880799) от 10.04.2013
-
-OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики OS4 (ранее проект носил название PC/OS) выпустили очередной новый релиз своего дистрибутива. OS4 представляет собой дружественный к пользователю настольный и серверный дистрибутив на базе Xubuntu, его основными особенностями являются поддержка многих популярных плагинов для браузеров, дополнительное ПО для работы с мультимедиа, создания контента и разработки, а также инновационная компоновка рабочего стола.
-
-Релиз OS4 Workstation 13.4 доступен для архитектур 32- и 64-бит, среди его компонентов – ядро 3.2.0,  Firefox 20.0; Thunderbird 17.0.4; Google Maps сменивший Nokia Maps, а также многое другое. Существенные изменения были внесены в более чем 200 пакетов. Ранее в дистрибутив были включены новые системные темы на базе Radiance и Ambiance, новые границы окон, интегрированное главное меню.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764664   (879650) от 09.03.2014
-
-Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновился Slackel Live – использующий последнюю стабильную версию рабочей среды KDE - 4.10.5,  GNU/Linux на базе current-ветки Slackware. Поддерживается установка на жесткий диск, клонирование.
-
-Редакция Slackel использует ядро Linux 3.10.30 и KDE 4.10.5 доступна в виде комплекта из 2-х ISO-образов: 32-bit и 64-bit образов, которые могут быть установлены с DVD или с USB-носителя. В составе дистрибутива Firefox 24.3.0esr, KMail, KTorrent, Akregator, Kopete, OpenJRE 7u51, Pidgin, gFTP, GParted, wicd, slapt-get и Gslapt, sourcery. В разделе мультимедиа - Bangarang 2.1, Clementine 1.2.1, K3b 2.0.2, Calligra Words, Calligra Stage, Calligra Tables
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C6EA4A3381248625EADFFBA8121C9B130FB0AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

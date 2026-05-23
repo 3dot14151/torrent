@@ -1,3 +1,206 @@
+###  Публикация: 1098274   (908862) от 30.01.2017
+
+Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New Age, Celtic, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. An Cuilfhíonn (3:43)
+02. Our Wedding Day (She Moved Through The Fair) (4:31)
+03. The Lark In The Clear Air (3:52)
+04. The Norwegian Minstrel Boy (3:25)(   Читать дальше...   )Жанр: New Age, Celtic, Neo-ClassicalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30D78B9BF6135B6F0C6096668C5E976C38BC6E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966507   (908812) от 20.03.2020
+
+Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Affair (Mosaic 1995) [05:55]
+02. Endless Time (Classica Nouveau 1994) [05:43]
+03. After The Rain (Journey 1996) [05:56]
+04. More Than Words (Sedona Suite 1992) [04:13](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCED9E62D45D319BFD4A40A1FC247C39A5A3E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098475   (908721) от 30.01.2017
+
+Sacred Earth - Inyan (2005) [FLAC|Lossless|image + .cue] <Meditative, New Age, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Inyan 8:08
+2. Hey Ma Durga 9:25
+3. Guru Charanam 9:52
+4. Devakinanda 10:00(   Читать дальше...   )Жанр: Meditative, New Age, MantrasПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B347BB57A7869DDDB9C688B7403AEA55D9F14C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367830   (908697) от 20.03.2020
+
+American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American, Tribal, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Quanah Parker
+02. Great Father
+03. Talking Owl
+04. Victory Dance(   Читать дальше...   )Жанр: Native American, Tribal, FolkПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B0E1359BECDC51CD357EEC001610117DF1DE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342583   (908569) от 20.03.2020
+
+Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Грег Марони очень одаренный пианист. Его песни, тепло и естественность, которые говорят со слушателем - приближают их к своим собственным сердцам. Его жизнь и окружение, вместе со своим прошлым и настоящим, все это является частью его музыки.
+Он изучал классическое и джазовое фортепиано с пяти лет и в настоящее время выступает на концертах в качестве сольного пианиста, (   Читать дальше...   )Список альбомов:
+2003 - Harmony Grove
+2005 - Wind ChimesЖанр: New Age, Instrumental, Solo PianoПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE69EA68568404CDFB9E3A10CAC7F5B9E248A004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257973   (908494) от 20.03.2020
+
+Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetic Fields 1 (5:59)
+02. Oxygene (Pt.4) (4:15)
+03. Equinoxe (Pt.5) (3:47)
+04. Magnetic Fields (Pt.2) (4:02)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413119B3D01A6CAF2AD025EE27A77C132E54DE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 227951   (908465) от 20.03.2020
+
+Алекс Сильванни - Электроорган (1975) Vinyl Rip, Remastered, 2007, Raritet Music [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это исключительно мягкий, классический Easy Listening с обилием звуков "Hammond Organ" в весьма интересной интерпретации автора.01. Музыкальный Автомат - Disco Stomp (H. Bohannon) (4:03)
+02. Вечером В Субботу - Sabato Pomeriggio (C. Baglioni - A. Coggio) (4:56)
+03. Чтобы Ты Знала - Para Que No Me Olvides (R. Girado) (3:55)
+04. Какой Он Спокойный - Sereno E ... (E. Riccardi  - L. Albertelli) (4:28)(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C086B3FF08AABA85A96486C95E66D4DA72F1FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 235773   (908437) от 20.03.2020
 
 VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
@@ -6,7 +209,7 @@ VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -94,7 +297,7 @@ Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -123,7 +326,7 @@ Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -152,7 +355,7 @@ Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -181,7 +384,7 @@ VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Ele
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -210,7 +413,7 @@ Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -239,7 +442,7 @@ David Arnold & Michael Price - Sherlock  - The Final Problem (2017) OST Sherlock
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +471,7 @@ Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +500,7 @@ Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +529,7 @@ Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Musi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +558,7 @@ Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -384,7 +587,7 @@ Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soun
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -413,7 +616,7 @@ Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -442,7 +645,7 @@ Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -471,7 +674,7 @@ Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native Ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +703,7 @@ Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +732,7 @@ Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,209 +746,6 @@ Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099714   (903278) от 02.02.2017
-
-Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Misty Morning Across the Water (05:48)
-02. Drifting (05:09)
-03. Lonely Shore (05:21)
-04. On a Mountain (05:49)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099710   (903264) от 02.02.2017
-
-Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinetic (08:34)
-02. Horizons (05:02)
-03. Static Rain (06:06)
-04. Solar (05:45)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F240EC9AEB11C50969CE06C7169F56C0441CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992168   (902692) от 01.03.2016
-
-VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellis Island - Mother Earth Round Dance (5:45)
-02. Western Voices - The Calling (3:27)
-03. Cyberland - Circle Round The Sun (4:43)
-04. Cyberland - Explora (4:06)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A0D7B76AF46319855F0B92CA8F6099032A9F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991929   (902336) от 01.03.2016
-
-VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902336.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aria Arianna (05:04)
-2. Anitime Anywere (03:17)
-3. Ave Maria (03:51)
-4. L' Amour Est Un Oiseau Rebelle ''Carmen'' (02:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C45682BA02C4D3D020419C516CD5DE726D0EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369447   (901708) от 24.03.2020
-
-VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nazca - Mother Earth
-02. Nazca; Wayra Rodriguez - Vision
-03. Nazca; Wayra Rodriguez - Circle of Friendship
-04. Indians - Sunrise(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33643B10116402B9943898F98A22BDED8702A3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099985   (901581) от 03.02.2017
-
-Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Oceans 06:20
-02. Aquata 07:31
-03. Song of Frogs 05:12
-04. Call from the Forest 06:05(   Читать дальше...   )Жанр: Ambient, Downtempo, RelaxationПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC559B99538010E53478CBF9F7B3DC3C8DB4AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100093   (901482) от 03.02.2017
-
-VA - Acoustic R&B Chill Playlist. Eighteen Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Cry Me a River
-02. Olivia Keast - Every Breath You Take
-03. Ginnie - I Can't Make You Love Me - Acoustic Version
-04. Hannah Dorman - Hurts(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2CB32F32045DE2043605D9A013341CB3F47CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

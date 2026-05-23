@@ -1,3 +1,29 @@
+###  Публикация: 1802560   (66035) от 18.06.2025
+
+Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019, Movie] Blu-ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Родители Аой и Аканэ погибли 13 лет назад, и, чтобы заботиться о младшей сестре, Аканэ пришлось отказаться от планов переехать в Токио вместе со своим парнем Синносукэ. С тех пор Аой чувствует себя в долгу перед сестрой. Однажды известный исполнитель песен в жанре энка по имени Данкити приглашает Аой, только делающую первые шаги на музыкальном поприще, выступить (   Читать дальше...   )Производство: CloverWorksЖанр: романтика, повседневность, драмаРежиссер: Нагай ТацуюкиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 107 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DEF6CF72B36CC3CBBA89A95D03B2FD26B24859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802561   (66033) от 18.06.2025
 
 Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019, Movie] BDRemux 1080p raw+rus
@@ -6,7 +32,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Nagi no Asukara | Nagi-Asu: A Lull in the Sea | Безоблачное завт�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVDRem
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Jibaku Shounen Hanako-kun | Toilet-bound Hanako-kun | Туалетный мал�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -345,7 +371,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -372,7 +398,7 @@ Grand Blue | Grand Blue Dreaming | Необъятный Океан [2018, TV, 12
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -399,7 +425,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnation
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -425,7 +451,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -451,7 +477,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -477,7 +503,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [2019, Movie] BDRemux 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -503,7 +529,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -529,7 +555,7 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +581,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +607,7 @@ Momo e no Tegami | A Letter to Momo | Письмо для Момо [2011, Movie]
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -607,7 +633,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Еванг
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -633,7 +659,7 @@ Summer Wars | Летние Войны [2009, Movie] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,32 +670,6 @@ Summer Wars | Летние Войны [2009, Movie] BDRemux 1080p raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E74C7BF543E27A3F954C53349251A502AB63EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795729   (19127) от 06.05.2025
-
-Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movie] Blu-ray 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19127.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате некой произошедшей в прошлом катастрофы человечество разделилось на два народа. Для первого народа гравитация действует наоборот, и его представители, а также используемые ими вещи, падают в небеса. Однако, эти люди живут под землей, поэтому большой угрозы для них эта особенность не представляет. Для второго народа гравитация действует обычным образом, (   Читать дальше...   )Производство: Studio RikkaЖанр: приключения, фантастикаПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 99 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71701D4FD4D7EBA1E26751B455986A502C18D69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

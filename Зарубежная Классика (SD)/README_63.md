@@ -1,3 +1,110 @@
+###  Публикация: 916739   (571338) от 27.07.2015
+
+Дикарь / Le sauvage (1975) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нелли и Мартен случайно повстречались в Каракасе. Он помог ей сбежать от жениха, за которого она передумала выходить замуж, и отвёз в аэропорт, чтобы она уехала из Венесуэлы. Однако Нелли не захотела покидать своего спасителя. Обманом она проникла на остров, где он жил в полном одиночестве, и теперь им предстоит провести вместе несколько дней...Производство: Франция, ИталияЖанр: Драма, мелодрама, комедия, приключенияРежиссер: Жан-Поль РаппноАктеры: Ив Монтан, Катрин Денёв, Луиджи Вануччи, Тони Робертс, Бобо Льюис, Дана Уинтер, Габриэль Каттан, Вернон Добчефф, Луис Херардо Товар, Джефри Кэри, Тони Маэстри, Рина Франкетти, Луиза Марис, Аврора Марис, Густаво Бланко, Пегги РомероПеревод: Профессиональный многоголосыйПродолжительность: 01:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2B064861CD10440D85BA2EF970B0DEE2840B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361733   (571128) от 13.07.2011
+
+Троих нужно убрать / 3 hommes a abattre (1980) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный картежник Мишель Жерфо, возвращаясь темной ночью домой, замечает раненого человека. Не раздумывая, он отвозит его в больницу, но внезапно понимает, что попал в западню: за ним следят. Мишель выбирает игру ва-банк и решает выяснить, кто же стоит за преступлением, невольным свидетелем которого он стал.
+
+Разведав про мафию торговцев оружием, он подставил (   Читать дальше...   )Жанр: Боевик, Драма, КриминалРежиссер: Жак ДереАктеры: Ален Делон, Далила Ди Лаззаро, Мишель Оклер, Паскаль Робер, Лин Шардонне, Жан-Пьер Даррас, Бернар Ле Кок, Франсуа Перро, Андре Фалькон, Феодор АткинПеревод: ДублированныйПродолжительность: 01:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6F8076B299DD59717CDF60E9B6C875C3DF6961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233499   (570615) от 05.07.2018
+
+Убийца / Le tueur (1971/1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Комиссар полиции разыскивает сбежавшего из тюремной психушки убийцу Гассо, оставляющего за собой кровавый след из мертвых тел. Тем временем Гассо влюбляется в проститутку-немку, сидевшую в концлагере, и они оба мечтают уехать в солнечную Южную Америку. Комиссар все уже смыкает кольцо, а Гассо звереет, уничтожая всех, с кем соприкасается.Производство: Франция, Италия, Германия (ФРГ) / C.O.F.C.I., Europa Films, Gafer, Mondial Televisione Film, Rialto FilmЖанр: Драма, КриминалРежиссер: Дени де Ля ПателльерАктеры: Жан Габен, Фабио Тести, Уши Глас, Бернар Блие, Жак Ришар, Жерар Депардье, Феликс Мартен, Жинетт Гарсен, Филипп Валлори, Сади Реббо, Жак Дебари, Жорж СтакеПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF3BCD9C6C7F200AAD5A4DF22C0790E905EE2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040802   (570212) от 17.08.2016
+
+Секс и незамужняя девушка / Sex and the Single Girl (1964) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По роману Хелен Герли Браун.
+Редактор «желтого журнала» «Стоп» Боб Вестон процветает! Чем скандальнее его статьи — тем в больший экстаз впадают главный редактор и редколлегия! Последним его «шедевром» стало исследование книги молодого психолога, очаровательной Хелен Браун. Ей 23 года, она не замужем и при этом пустилась в книге в исследования любви, секса и семейной (   Читать дальше...   )Производство: США. Fernwood Productions Inc., ReynardЖанр: КомедияРежиссер: Ричард Ричард КуайнАктеры: Тони Кертис, Натали Вуд, Генри Фонда, Лорен Бэколл, Мэл Феррер, Фран Джеффрис, Лесли Пэрриш, Эдвард Эверетт Хортон, Ларри Сторч, Стабби КэйПеревод: Двуголосый, одноголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C16CC337FD78F44D3392102B02DA161452FFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148506   (570042) от 20.07.2017
 
 Человек дождя / Rain Man (1988) BDRip [H.264]
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,114 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54346AE254164580DD9D7DAB7A35A626E4076271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 813681   (563054) от 18.08.2014
-
-Суп из капусты (Суп с капустой) / La soupe aux choux (1981) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два старика — Клод Ратинье по прозвищу «Дохлый» и Франк Черазе по кличке «Горбатый» уже век как живут в заброшенной деревеньке, только и делая, что ежедневно и ежечасно накатывая по рюмочке своей любимой настойки, наслаждаясь окрыляющей свободой и довольствуясь своей безмятежной старческой жизнью.
-Но в один прекрасный вечер эти двое неразлучных друзей кладут конец (   Читать дальше...   )Производство: Франция / Films A2, Les Films Christian FechnerЖанр: Комедия, ФантастикаРежиссер: Жан ЖироАктеры: Луи де Фюнес, Жан Карме, Жак Вильре, Клоди Жансак, Анри Жене, Марко Перрен, Кристин Дежу, Гаэлль Легран, Катрин Охотникоф, Филипп Ружиери и др.Перевод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E2BD00993D5A43095F99DAC852875A6309309D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919058   (562570) от 01.08.2015
-
-Высокий незнакомец / The Tall Stranger (1957) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нэд  Бэннон отправляется на поиски сводного брата Харди Бишопа, дабы прекратить многолетнюю вражду и зарыть топор войны. По пути, Нэд встречает бандитов, промышляющих воровством скота. Подстреленный в бок, он вовремя найден обозом, направляющимся в Калифорнию. Нэду удается выкарабкаться из лап смерти. Отправившись вместе с караваном в дорогу, он случайно узнает, что (   Читать дальше...   )Производство: США / Allied Artists Pictures CorporationЖанр: ВестернРежиссер: Томас КаррАктеры: Джоэл МакКри, Вирджиния Майо, Бэрри Келли, Майкл Ансара, Уит Бисселл, Джеймс Добсон, Джордж Н. Нейс, Адам Кеннеди, Майкл Пэйт, Лео ГордонПеревод: Авторский (Ю. Медведев)Субтитры: ОтсутствуютПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7FF8514F942B28156879074737DD59E311434E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529108   (562416) от 02.08.2012
-
-Близнец / Le jumeau (1984) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация по произведению Дональда Э. Уэстлейка
-Проигравшись в карты, Ришар приезжает к другу в курортное местечко, где знакомится с красивой блондинкой-американкой, наследницей огромного состояния, Лиз Кернер.
-У Лиз оказалась сестра-близнец, Бетти, а Ришар после любви зачем-то брякнул, что у него тоже есть брат-близнец. Будучи игроком по натуре, он продолжил игру (   Читать дальше...   )Производство: Франция / Fideline Films, Les Productions de la GuévilleЖанр: КомедияРежиссер: Ив РоберАктеры: Пьер Ришар, Жан-Пьер Кальфон, Камилла Мор, Кэри Мор, Жак Франц, Франсуаза Дорнер, Жан-Пьер Кастальди, Поль Ле Персон, Изабель Страва, Жан-Клод БуйоПеревод: Профессиональный многоголосыйСубтитры: РусскиеПродолжительность: 01:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739ED311BCC036484CCCBCEC73D349B0551C64C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232561   (561924) от 10.07.2018
-
-Антоний и Клеопатра / Antony and Cleopatra (1972) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного произведения Уильяма Шекспира.
-В фильме «Антоний и Клеопатра» показана история возникновения и развития отношений великого полководца и самой легендарной женщины Египта. Ей было менее 30 лет, когда Клеопатра впервые увидела Марка Антония и поняла, что ее сердце всегда будет принадлежать этому мужчине. Их роман получил бурное развитие и продолжался (   Читать дальше...   )Производство: Великобритания, Испания, Швейцария / Folio FilmslmsЖанр: Драма, историяРежиссер: Чарлтон ХестонАктеры: Чарлтон Хестон, Хильдегард Нил, Эрик Портер, Джон Касл, Фернандо Рей, Хуан Луис Гальярдо, Кармен Севилья, Фредди Джонс, Питер Арне, Луис БарбуПеревод: Многоголосый закадровыйСубтитры: РусскиеПродолжительность: 02:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D5F86ADA7A79A142A50F0F9B9B55611D144C94
 ```
 
 https://mybot314.ru/tekegram_catalog/

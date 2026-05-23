@@ -1,3 +1,81 @@
+###  Публикация: 1461319   (1021898) от 09.04.2021
+
+Гадалка (2021) WEBRip (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Катя работает медсестрой в областном городке. Девушка обладает даром ясновидения, но считает свои мистические способности психическим отклонением. Волею судьбы она переезжает в столицу и начинает работать в полицейском участке. Там она осознает, что ее дар – вовсе не недостаток, и с его помощью находит разгадки в самых запутанных криминальных делах. Приняв себя, (   Читать дальше...   )Производство: Украина / «IQ Production»Жанр: детектив, мелодрама, мистикаРежиссер: Олег ЗборовскийАктеры: Ирина Авдеенко, Антон Батырев, Анастасия Цымбалару, Леся Самаева, Владислав Никитюк, Александр Пожарский, Владимир Абазопуло, Григорий Бакланов, Юрий Высоцкий, Виктор Жданов и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9880047DD049ED75FF97500705D3AA522D26795B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460864   (1021875) от 09.04.2021
+
+Гадалка (2021) WEBRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Катя работает медсестрой в областном городке. Девушка обладает даром ясновидения, но считает свои мистические способности психическим отклонением. Волею судьбы она переезжает в столицу и начинает работать в полицейском участке. Там она осознает, что ее дар – вовсе не недостаток, и с его помощью находит разгадки в самых запутанных криминальных делах. Приняв себя, (   Читать дальше...   )Производство: Украина | «IQ Production»Жанр: Мистика, детектив, драмаРежиссер: Олег ЗборовскийАктеры: Ирина Авдеенко, Антон Батырев, Анастасия Цымбалару, Леся Самаева, Владислав Никитюк, Александр Пожарский, Владимир Абазопуло, Григорий Бакланов, Юрий Высоцкий, Виктор ЖдановЯзык озвучки: РусскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75F09064328ABE41B1C0429D2EF90E852F08D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458887   (1021847) от 09.04.2021
+
+Папик (2021) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В продолжении истории актёр на пенсии Александр Меркулов снова пытается начать новую жизнь. Только теперь не со смены имиджа, а с выхода из тюрьмы. Ведь дольче вита в чужом особняке с гламурной охотницей за «папиками» Лизой обернулась заключением в камере. Тем временем Лиза после удачного выступления в телешоу попадает в поп-группу и уезжает в первое турне. Хотя (   Читать дальше...   )Производство: Украина / "Квартал 95"Жанр: комедия, мелодрамаРежиссер: Андрей ЯковлевАктеры: Станислав Боклан, Дарья Петрожицкая, Сергей Сипливый, Олеся Жураковская, Екатерина Кистень, Вера Кобзарь, Вячеслав Гиндин, Михаил Кукуюк и др.Язык озвучки: русскийПродолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E653A7E7EABEC6A36A661FFAFD7C4869C33CA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458646   (1021837) от 09.04.2021
 
 Папик (2021) WEBRip (сезон 2, серии 1-16 из 16)
@@ -6,7 +84,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5022EF7757B1E3165431F3AE7E6C627113CA845A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479670   (1009385) от 25.06.2021
-
-240 часов (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-7 из 7)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009385.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Двести сорок часов» — это молодежный комедийный сериал, который рассказывает историю о 18-летней дочери известного бизнесмена. Разумеется, что у такого мужчины денег достаточно, и вполне ожидаемо, что дочка выросла избалованной. Девушка имеет популярные аккаунты в Тик-ток и Инстаграм, и из-за них чуть не стала террористкой! Отец Дианы — вдовец, он собирается жениться (   Читать дальше...   )Производство: Казахстан | Salem social mediaЖанр: КомедияРежиссер: Дамир ТастембековАктеры: Дамели Тастанбекова, Ильяс Джапаров, Тамерлан Бейсенов, Мусахан Жумаханов, Акерке Сулейменова, Рустем Жаныаманов, Роза Мукатаева, Ансар БерлибекЯзык озвучки: РусскийПродолжительность: ~00:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704569C728D1C415DAFD66B45A4A57ED138E4945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481974   (1007864) от 06.07.2021
-
-Тайные двери (2020) HDTVRip (сезон 1, серии 1-40 из 40)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал от создателей культовых сериалов "Пёс" и "Отдел 44" рассказывает о работе вымышленного специального отдела по раскрытию особо сложных преступлений. Главным отличием этого отдела от других заключается в том, что преступления раскрываются в первые сутки после совершения преступления.Производство: Украина / Кинокомпания "Виктория - Универсал Продакшн"Жанр: детективРежиссер: Александр Сальников, Виталий Ващенко, Артем ТитеевАктеры: Анатолий Котенёв, Вадим Цаллати, Дарья Егоркина, Андрей Фединчик, Влад Никитюк, Александр Попов, Антон Соловей, Арсен Босенко, Владлена Марчак, Вероника Мишаева и др.Язык озвучки: русскийСубтитры: Украинские (hardsub)Продолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDB17D8918BC959E9532D43BD064DD59EDBBEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482218   (1007361) от 09.07.2021
-
-Эксперт (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007361.jpg" />
-</div>
-
-
-###  Подробнее
-
-После аварии Борис Крылов может передвигаться только на инвалидной коляске. Но, несмотря на проблемы со здоровьем, он по-прежнему эксперт-криминалист высочайшего уровня. Его исключительные способности – внимание к деталям, массив знаний в области криминалистики, дотошность и оригинальность мышления обеспечивают победу в расследовании даже самого запутанного и сложного (   Читать дальше...   )Производство: Украина / Star MediaЖанр: детектив, драмаРежиссер: Олег ТуранскийАктеры: Алексей Морозов, Алина Сергеева, Дмитрий Соловьев, Олеся Жураковская, Ольга Сафронова, Анна Арефьева, Алексей Нагрудный, Елизар Назаренко, Павел Вишняков, Артур ЛогайЯзык озвучки: РусскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4BDB3FC3A9E85C03C85EF368D625DE16196933
 ```
 
 https://mybot314.ru/tekegram_catalog/

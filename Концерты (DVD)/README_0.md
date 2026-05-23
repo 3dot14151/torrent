@@ -1,32 +1,3 @@
-###  Публикация: 88548   (978744) от 09.01.2016
-
-Ямато Японские барабанщики / Yamato The Drummers of Japan (1995) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ультрасовременное, синтезирующее традиционную и авангардную музыку шоу японских барабанщиков
-с элементами театра и танца. В чистом виде «Wadaiko Yamato Show» представляет собой уникальное
-представление, соединяющее виртуозное мастерство исполнения и древние магические техники воздействия
-на человеческую психику. Проводя время в постоянных тренировках и совершенствовании (   Читать дальше...   )Жанр: МузыкаПеревод: ОригинальныйПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 88643   (978661) от 09.01.2016
 
 Ямато Японские барабанщики / Yamato The Drummers of Japan (1995) DVD5
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +35,7 @@ Il Divo - Live In London (2011) DVD 9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +62,7 @@ Scorpions. Концерт Moment Of Glory Live (Berliner Philharmoniker) (2000) 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -117,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -146,7 +117,7 @@ Various ‎– Nightmoves (2008) 3 х DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -175,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -201,7 +172,7 @@ Jacques Loussier Trio - Play Bach... and more (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -232,7 +203,7 @@ Roger Taylor - The Lot (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -262,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -291,7 +262,7 @@ Gregorian - Epic Chants Tour 2013 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +291,7 @@ UFO - On Air At The BBC TV 1979-1982 (Disc Six) (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +349,7 @@ Cerrone - Culture (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +407,7 @@ Radiohead – 27 5 94 The Astoria London Live (1995, remastered 2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -465,7 +436,7 @@ New Order - A Collection (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -494,7 +465,7 @@ Radiohead - The Best Of (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -523,7 +494,7 @@ Saga - World Apart Revisited (2007) 2 x DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +523,7 @@ Enigma - A Posteriori (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -610,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -639,7 +610,7 @@ Shirley Bassey - Divas Are Forever (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -668,7 +639,7 @@ Stray Cats - Greatest Hits! (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -697,7 +668,7 @@ Chris Norman: One Acoustic Evening - Live at the Private Music Club (2005) 2xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -726,7 +697,7 @@ Queen + Paul Rodgers: Super Live in Japan (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -737,6 +708,35 @@ Super Live in Japan — второй DVD группы Queen + Paul Rogers. Ра�
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984097   (940159) от 08.02.2016
+
+Siouxsie - Dreamshow: Live At The Royal Albert Hall With The Millennia Ensemble  (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1	Say Yes!	5:20
+2	Around The World	3:20
+3	Seven Tears	8:39
+4	Godzilla!	5:34(   Читать дальше...   )Жанр: Alternative Rock, PostPunk, AvantgardeЯзык субтитров: English, Francais, Italiano, Espanol, PortuguesПродолжительность: 03:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9750004FED748595574271CF345E3D0D4D867977
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1802413   (14343) от 17.06.2025
+
+Far Cry 2 (2008) [Ru] (1.03) Repack EXROW [Fortune's Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы - наемник, заброшенный в раздираемую войной и малярией африканскую страну. Ваше задание: найти и уничтожить оружейного барона, для которого эта война неплохой источник дохода. Против вас действует целая армия вооруженных до зубов профессионалов. Внезапность, изобретательность и точный расчет - ваше основное оружие на этой войне.Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Шутеры, ЭкшеныЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECACFE75BB4265B5C85F1EEDC100EF5EA8D6B719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802679   (14268) от 18.06.2025
+
+SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack FitGirl [Complete Bundle]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Миру недостаточно простых развлечений. Теперь он жаждет крови, и медийный гигант TEC1 готовит премьеру второго сезона телевизионной сенсации SCUM, чтобы удовлетворить потребности зрителей. В новом сезоне участники не будут ограничены закрытыми аренами; их ждут густые леса, холмистые поля и труднопроходимая местность на персональном острове TEC1 - SCUM. Новые заключенные (   Читать дальше...   )Тип издания: RepackРазработчик: Gamepires, CroteamЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AFC7D4119B5109EA8A1B3BDA8CC184496EC4BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802687   (14260) от 18.06.2025
+
+SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack seleZen [Complete Bundle]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Миру недостаточно простых развлечений. Теперь он жаждет крови, и медийный гигант TEC1 готовит премьеру второго сезона телевизионной сенсации SCUM, чтобы удовлетворить потребности зрителей. В новом сезоне участники не будут ограничены закрытыми аренами; их ждут густые леса, холмистые поля и труднопроходимая местность на персональном острове TEC1 - SCUM. Новые заключенные (   Читать дальше...   )Тип издания: RepackРазработчик: Gamepires, CroteamЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96E45D4ABE5197FD6A2862CF58D9B4BE8075C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802646   (14257) от 18.06.2025
+
+Far Cry 4 (2014) [Ru/Multi] (1.12.0/dlc) Repack Other s [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Кират – затерянную среди вершин Гималаев страну с богатыми традициями, мир которому угрожает деспотичный правитель. Ваш герой, Аджай Гейл, прибыл сюда, чтобы исполнить последнюю волю матери, но оказался втянут в гражданскую войну: местные жители пытаются свергнуть самозванца Паган Мина. Отправляйтесь в путешествие по открытому миру, но будьте осторожны: (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal, Red Storm, Shanghai, Toronto, KievЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1E57B58F3027647E3F2080369F428C38C83864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802597   (14253) от 18.06.2025
 
 Call of Duty: WWII (WW2) (2017) [Ru/En] (1.25.2244937.32767.0/dlc) Repack Decepticon
@@ -6,7 +110,7 @@ Call of Duty: WWII (WW2) (2017) [Ru/En] (1.25.2244937.32767.0/dlc) Repack Decept
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Viscerafest (2021) [Ru/Multi] (1.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack EXROW [Gold Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Aliens vs. Predator (2010) [Ru] (2.27u7/dlc) Rip EXROW [Expanded Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Far Cry (2004) [Ru] (1.40) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Blood West (2023) [Ru/Multi] (4.4.1/dlc) Repack FitGirl [Dead Man's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Dishonored (2012) [Ru/Multi] (334700) Repack EXROW [RHCP Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Let'sРlay [Dwar
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.10) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Perfect Heist 2 (2021) [Ru/Multi] (03.07.2025) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDBBDF7B6915623D1345B56EAD5C9745A3735666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805500   (12403) от 06.07.2025
-
-Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Shatterline - эпицентр апокалипсиса. Shatterline - это напряжённый и динамичный одиночный шутер от первого лица. Погрузитесь в мир взрывного действия, плавной и удовлетворяющей стрельбы, а также поразительных пейзажей, полных наград и смертоносных противников. Загадочный межзвёздный объект взорвался неподалёку от Земли, разметав огромные зазубренные (   Читать дальше...   )Тип издания: RepackРазработчик: Frag LabЖанр: Экшены, Шутеры от первого лицаЯзык озвучки: Английский, УкраинскийЯзык субтитров: Английский, Японский, УкраинскийЯзык интерфейса: Английский, Японский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4252AF349F6AEABF5F52CD984BD544169C1145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798925   (12201) от 08.07.2025
-
-Bloodshed (2024) [Ru/Multi] (1.0.14) Repack Let'sРlay
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodshed - это захватывающий сплав элементов упрощенного рогалика с ретро-графикой и экшена от первого лица в стиле Survivors. Отражайте бесконечные волны нежити, собирайте очки опыта и улучшайте свои навыки и оружие, чтобы получить шанс пережить ночь. Заработанные тяжким трудом деньги останутся с вами даже после смерти. На них вы сможете приобрести постоянные улучшения (   Читать дальше...   )Тип издания: RepackРазработчик: com8com1 SoftwareЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5751D2C0444B26B3C6DA238F4AF5E2AD63777095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781415   (11971) от 10.07.2025
-
-Dying Light 2: Stay Human (2022) [Ru/En] (1.23.2/dlc) Repack seleZen [Reloaded Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива.Тип издания: RepackРазработчик: TechlandЖанр: Action, Open World, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABD72862F8E8437577BADC5E94547283E3649BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806810   (11469) от 15.07.2025
-
-Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - стрелок в лимбе, воюющий с "Картелем" - безжалостной организацией, собирающей души, чтобы освободиться от оков загробной жизни. С каждым пробегом становитесь сильнее, собирайте сущность утраченных душ, чтобы противостоять самым опасным угрозам в этом Мире. Превратитесь в настоящего вестника смерти - самую опасную душу в Лимбе, обладающую воистину невероятной (   Читать дальше...   )Тип издания: LicenseРазработчик: Elder GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BDF7FAF923A7C125FEA6070B90E19F4617C847
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1856524   (1059115) от 28.02.2026
+
+Screen Mirroring - TV Miracast v4.0.0.232 Mod by vadj [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Приложение для зеркалирования и трансляции экрана на телевизор. Хотите легко отразить экран своего телефона на телевизоре? Хотите, чтобы проекция экрана была быстрой, стабильной и отзывчивой? Используйте Screen Mirroring – Miracast for TV — бесплатное приложение для дублирования экрана, которое обеспечивает плавное зеркальное отображение вашего смартфона на экране (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 27.02.2026Разработчик: StudiosoolterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EC8996B9674D480924FD74B734CA486831DD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856521   (1059099) от 28.02.2026
 
 Mubert: AI Music Streaming v4.2.2 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +32,7 @@ Mubert: AI Music Streaming v4.2.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Vanced Tube v5.5.80.503 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Device Info / Информация об устройстве v3.4.1.4 Mod by Bal
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Genius Art: Image AI Generator v1.5.6 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +190,7 @@ Grok - ИИ ассистент v1.1.33-release.18 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +216,7 @@ FBReader Premium v3.8.23 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +242,7 @@ Remini / Улучшение Фото v3.7.1288.202519828 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +268,7 @@ LazyMedia Deluxe v3.434 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +294,7 @@ Battery Guru: Monitor & Health v2.4.6.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +320,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.2.59179 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +346,7 @@ Smart Tools v2.1.17 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +372,7 @@ Smart Tools 2 v1.2.4 Mod by TryRoon [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +424,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +450,7 @@ HiPER Calc Pro v11.3.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +476,7 @@ Eatr・Здоровые рецепты v2.52.0 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +502,7 @@ Ventusky: Прогноз погоды v51.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +528,7 @@ Mary’s recipes: рецепты, меню v7.3.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +580,7 @@ Signal for Android 7.74.5 Stable и 8.0.4 Pre-release [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -582,7 +608,7 @@ Solid Explorer File Manager v3.4.1 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -611,7 +637,7 @@ Grok - ИИ ассистент v1.1.30-release.12 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -637,7 +663,7 @@ Exo Player - Видеоплеер и IPTV v3.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -648,32 +674,6 @@ Exo Player - Видеоплеер и IPTV v3.0.1 Mod by Alex.Strannik [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FDA4B13F4D495F1DB225FE959C239F8B54BA9C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855122   (1058040) от 21.02.2026
-
-HiPER Calc Pro v11.3.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и стильный научный калькулятор с обширными настройками внешнего вида. В наличии несколько удобных тем оформления, построение графиков и возможность поделиться подробным результатом вычислений в виде изображения. Поддерживается смена системы счисления. Реализовано вычисление превеликого числа функций.Тип издания: Pro / ModРелиз состоялся: 20.02.2026Разработчик: HiPER LabsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B531D10A096C85FD4F5205022EDDFA8E444FD95D
 ```
 
 https://mybot314.ru/tekegram_catalog/

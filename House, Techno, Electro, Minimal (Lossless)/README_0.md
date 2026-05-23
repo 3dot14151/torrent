@@ -1,3 +1,90 @@
+###  Публикация: 1856641   (1059041) от 01.03.2026
+
+VA - Tech House Winter Dance Hits 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. AK RENNY - Flirt (2:53)
+02. 2SLAV - Bling Bling (2:26)
+03. SUER - Blow the Roof Off (2:40)
+04. HEYDIZ & ZEVS - Sleep When Im Dead (3:18)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F360DE334D67D2615924B7401D099E1B14C2299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856666   (1058985) от 01.03.2026
+
+Martin Schulte - Forest (2014) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.After Summer Storm 07:10
+02.Aqua 06:48
+03.Atmo 06:49
+04.Dreamliner 06:51(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD14E9B395444E2273744E3F5F8478FE3030734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856723   (1058967) от 01.03.2026
+
+VA - Afro House Winter Dance Hits 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Mindloco - Alafia (3:28)
+02. Marlie Chunes - Love & Oxygen (2:38)
+03. the Gang - Be The End (3:33)
+04. Sevenkey - Don't Let Me Go (3:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40D36169B660A14DB7B7AB0A97D739DD544A562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856122   (1058768) от 26.02.2026
 
 VA - Blue Twilight EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -6,7 +93,7 @@ VA - Blue Twilight EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +122,7 @@ As If - At Night (2012) [FLAC|Lossless|tracks] <Dub Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Anton Ishutin Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Andreiclv - Cityscapes EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +209,7 @@ DeepWoods - Right on Time (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Coppice Halifax & Monoaxial - ABX10 (2011) [FLAC|Lossless|tracks + .cue] <Dub Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -179,7 +266,7 @@ VA - Lounge Mix 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -208,7 +295,7 @@ VA - February Afro House Essentials (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -237,7 +324,7 @@ Decoside - Reload (2012) 2CD [FLAC|Lossless|tracks + .cue] <Techno, Dub Techno, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +353,7 @@ VA - Cafe del Mar Ibiza 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +382,7 @@ VA - Ultimate Dance 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +411,7 @@ VA - Dance EDM Workout 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -353,7 +440,7 @@ cv313 - Altering Illusions (Chapter One) (2014) 2CD [FLAC|Lossless|tracks + .cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -381,7 +468,7 @@ VA - Lounge Hits February 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -410,7 +497,7 @@ VA - Winter Dance Hits 2026 (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -439,7 +526,7 @@ VA - Chill House Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -468,7 +555,7 @@ Rigooni - Serenade (2020) [FLAC|Lossless|tracks] <Deep House, Organic House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -497,7 +584,7 @@ VA - Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +613,7 @@ VA - Winter Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -555,7 +642,7 @@ VA - Winter Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -584,7 +671,7 @@ VA - Lounge Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -613,7 +700,7 @@ VA - Winter Dance Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -642,7 +729,7 @@ VA - Afro Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -656,92 +743,6 @@ VA - Afro Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3960EF8294F07DD46B639AA68ACBC160E123A4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847134   (1051963) от 10.01.2026
-
-VA - Power Workout Mix 2026 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooster - You're in My System (2:30)
-02. Bohemian - Takadum (5:54)
-03. Owell - Big Money (3:37)
-04. RainDropz! - Brand New Day (3:13)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F0F76B7755540624FA060CDB0A0FAA01D2EB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845100   (1050513) от 29.12.2025
-
-VA - Winter Lounge Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Desert Bloom (3:09)
-02. Johny Luv - She Likes (3:28)
-03. N.E.O.N - Obsession (Radio Edit) (3:06)
-04. Elegant Ape - Sunset Echoes (3:39)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9051A7343E74917619724FDC5BC91A7D5F77859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842791   (1048872) от 17.12.2025
-
-Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tool 4 (Original Mix)
-02. Tool 5 (Original Mix)
-03. Tool 6 (Original Mix)Жанр: HouseПродолжительность: 00:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F279F9755A644D56091DC02FE227D5D9428540D
 ```
 
 https://mybot314.ru/tekegram_catalog/

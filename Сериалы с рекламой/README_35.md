@@ -1,3 +1,55 @@
+###  Публикация: 1660255   (189754) от 12.09.2023
+
+Блаженный / Il Santone (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Энцо Барони - простой кабельщик из римского Ченточелле. В один прекрасный день он куда-то пропадает, а спустя несколько месяцев так же неожиданно возвращается, но уже c бородой, в белых индийских одеждах и с блаженной улыбкой на лице. Где он был и что с ним случилось - не может сказать никто, даже сам Энцо. Но одно ясно точно: герой изменился, начал предсказывать (   Читать дальше...   )Производство: Италия / Stand By MeЖанр: комедияРежиссер: Лаура МускардинАктеры: Кьяра Бассерманн, Нери Маркоре, Карлотта Натоли, Росселла Брешия, Гуя Йело, Алессандро Ричечи, Давид Девенуто, Клаудио Сегалусио, Beatrice De Mei, Фабрицио Джаннини и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, итальянскийСубтитры: РусскиеПродолжительность: ~00:30:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C269A693B76DB28783CA80AA2F7A22CBC59D5140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660256   (189710) от 12.09.2023
+
+Блаженный / Il Santone (2022) WEBRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Энцо Барони - простой кабельщик из римского Ченточелле. В один прекрасный день он куда-то пропадает, а спустя несколько месяцев так же неожиданно возвращается, но уже c бородой, в белых индийских одеждах и с блаженной улыбкой на лице. Где он был и что с ним случилось - не может сказать никто, даже сам Энцо. Но одно ясно точно: герой изменился, начал предсказывать (   Читать дальше...   )Производство: Италия / Stand By MeЖанр: комедияРежиссер: Лаура МускардинАктеры: Кьяра Бассерманн, Нери Маркоре, Карлотта Натоли, Росселла Брешия, Гуя Йело, Алессандро Ричечи, Давид Девенуто, Клаудио Сегалусио, Beatrice De Mei, Фабрицио Джаннини и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, итальянскийСубтитры: Русские (отдельно)Продолжительность: ~00:30:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C6E85E6F30425F65A5B12D05276DEC17A510BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660735   (189343) от 13.09.2023
 
 Я Лилло / Sono Lillo (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE46247352B67DBE417D807F7842EBB44518590F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423016   (184810) от 26.11.2020
-
-Лунная база 8 / Moonbase 8 (2020) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои сериала — три астронавта, которые не отличаются высоким профессионализмом, умом и скоростью реакции. Они живут в пустыне на прототипе лунной базы NASA в надежде однажды полететь в космос и по-настоящему исследовать спутник Земли. Конкурируя между собой, астронавты стараются продемонстрировать все свои лучшие качества, но зачастую перебарщивают и попадают (   Читать дальше...   )Производство: США / A24, Abso Lutely ProductionsЖанр: фантастика, комедияРежиссер: Джонатан КриселАктеры: Джон Си Райли, Тим Хайдекер, Фред Армисен, Джошуа Дэвис, Джо Абрахам, М. К. Гейни, Фред Гранди, Travis Kelce, Адам Ламберт, Джанет Хоскинс и др.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские (отдельно)Продолжительность: ~00:25:00 серииРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD356E6C946C8C04AE241551DFBE784A3DE2A702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423014   (184785) от 26.11.2020
-
-Лунная база 8 / Moonbase 8 (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои сериала — три астронавта, которые не отличаются высоким профессионализмом, умом и скоростью реакции. Они живут в пустыне на прототипе лунной базы NASA в надежде однажды полететь в космос и по-настоящему исследовать спутник Земли. Конкурируя между собой, астронавты стараются продемонстрировать все свои лучшие качества, но зачастую перебарщивают и попадают (   Читать дальше...   )Производство: США / A24, Abso Lutely ProductionsЖанр: фантастика, комедияРежиссер: Джонатан КриселАктеры: Джон Си Райли, Тим Хайдекер, Фред Армисен, Джошуа Дэвис, Джо Абрахам, М. К. Гейни, Фред Гранди, Travis Kelce, Адам Ламберт, Джанет Хоскинс и др.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:25:00 серииРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D5C6DD1D1E73373B65BDD4F98BC880D4422517
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,344 @@
+###  Публикация: 1256016   (358583) от 20.10.2018
+
+Экшены - Advanced Double Exposure Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Advanced Double Exposure - очередной вариант двойной экспозиции для вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB8CA5B0C2B268B8A81FFC3D48C68039A6B32A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256010   (358582) от 20.10.2018
+
+Экшены - GraphicRiver - Energy 3 Photoshop Action - 22643056 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Energy - этот экшен фотошоп даёт вашим изображениям удивительный энергетический эффект.  После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B157A570340B1CB3627B9EF2D78B23F7B22D6C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256099   (358344) от 20.10.2018
+
+3D модели - Hum3D - VAZ Lada Vesta Cross 2015 [V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки VAZФормат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4543158993533146C4B70D36B0C690519DE5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589113   (358148) от 02.10.2019
+
+Шаблоны - Портфолио ученика и ученицы начальной школы [PSD, PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Портфолио ученика и ученицы начальной школы.
+Автор: fantastisch.Формат: PSD, PNG, JPGРазрешение файлов: 2480x3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F9DA1D079DFE3382A13A2A562AD981A5856BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178170   (357986) от 27.10.2017
+
+Экшены - GraphicRiver - Colorfull Ink Photoshop Action - 20831076 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Colorfull Ink - этот простой в использовании экшен фотошоп, превратит ваши фото в красочную картину разноцветных чернильных пятен. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.
+Для достижения наилучших результатов, рекомендуется использовать фотографии с высоким разрешением в (   Читать дальше...   )Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E68D7A50CC1633AE208CF63E5167A77D1B2D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178201   (357983) от 27.10.2017
+
+Экшены - GraphicRiver - Picturesque Sketch Photoshop Action - 20319580 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Picturesque Sketch - этот экшен фотошоп превратит ваши фото в живописный этюд. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEB0C9930E8911CD11647C4FD11045107750011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952226   (357570) от 31.10.2015
+
+Шаблоны - PSD исходники с цветами часть 4 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Многослойные PSD исходники для вашего творчества
+Автор сборки:Формат: PSDРазрешение файлов: 6000х4154 - 6000х6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BACA09939250C07E7D149FB5465FD3821A9964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951981   (357563) от 31.10.2015
+
+Кисти - Daz 3D - Ron's Text Effects - 23011 [ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Набор инструментов Photoshop, созданный знаменитым Ron Deviney, который Вам пригодится не раз и поможет в Ваших творческих начинаниях. Данный пакет кистей позволяет создавать текстовые эффекты с использованием каллиграфии, типографики, облаков слов, букв, цифр, сонетов, абстрактных конструкций и поговорок, плюс он имеет некоторые интересные гранж - текстуры. Включены (   Читать дальше...   )Формат: ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10008C939BEDB5B29C9B0A2A22479C43EEBE5DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417421   (357534) от 20.10.2020
+
+Футажи - Triune Digital - Extinction: Sci-Fi Weapons FX (4K) [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+EXTINCTION - это коллекция предварительно обработанных высококачественных VFX-ресурсов. Эти ресурсы идеально подходят для научно-фантастического оружия, магических и силовых эффектов, анимированной графики и многого другого.Формат: MOVРазрешение файлов: 4416x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D768548E9D65EC0C13F5F10A8A9BF09CDD03B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 723264   (357205) от 17.11.2013
+
+Векторный клипарт - Календарь 2014-8 /  Calendar 2014-8 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Календари 2014Формат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35A5F1C658A624E4362D8AEC145713B89FE7704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577683   (357156) от 19.11.2012
+
+Digital Juice - Juice Drops 47: merryCHRISTMAS (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 300 dpiФормат: ISO (PSD - 5175×3375)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182176E842E34CD9E6D6D65905505BB87F874782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071567   (356723) от 11.11.2016
+
+Экшены - GraphicRiver - Music Photoshop Action - 17296287 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Music - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EFC817717B96CF7069906F2F472B360B202A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071572   (356719) от 11.11.2016
+
+Экшены - GraphicRiver - PARTICLES Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+PARTICLES - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4986A0A25CD9D69AA236FF420A9F56FB06A6A040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071878   (356718) от 11.11.2016
 
 Экшены - GraphicRiver - WatercolorArt - Photoshop Action [ATN, ABR, PAT]
@@ -6,7 +347,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +373,7 @@ Native Instruments - Scarbee Jay-Bass 1.1.0 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +400,7 @@ Spitfire Audio - Symphonic Woodwinds [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,349 +672,6 @@ Water Color Painting - этот простой в использовании э�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2009D8FCE3CB654454401FB2F8C3AEDF74706DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178451   (355500) от 28.10.2017
-
-Экшены - GraphicRiver - Sticker Photoshop Action - 20795176 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sticker - этот экшен фотошоп, удачное решение для оформления всевозможной рекламной продукции или можно применить в декоративных целях.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2628A90FCECD791616B0C5C1C47B293D7F332AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178476   (355489) от 28.10.2017
-
-Экшены - GraphicRiver - Pencil Sketch Photoshop Action - 20792519 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pencil Sketch - этот экшен фотошоп поможет вам создать реалистичный карандашный набросок изображения из ваших фотографий.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34865CE37842EDFB83134F016261B0B9E312DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178421   (355483) от 28.10.2017
-
-Шаблоны - CreativeMarket - Software / Product Box Mockup - 1985748 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор макетов реалистичной коробки. Идеально подойдёт для дизайн презентации вашего продукта.Формат: PSDРазрешение файлов: 3000 х 2000 рх / 72 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CEDB657F0ABD60D78F61F3BDDA8D8DDEA52206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952357   (355348) от 01.11.2015
-
-Кисти - Daz 3D - Ron's Ink - 20394 [ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ron's Ink - набор кистей, созданный знаменитым Ron Deviney, который пригодится Вам еще не раз и поможет в реализации Ваших творческих замыслов. Элегантные изображения растворенных в воде чернил. В этом наборе только 50 кистей, но очень много различных вариантов для творчества.Формат: ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BED66B54D63C92E419A7A80FCF4A506CFB97D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952643   (355329) от 01.11.2015
-
-Векторный клипарт - Приглашения с лентами для дизайна [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторные приглашения с лентами для дизайна.
-23 EPS | 23 AI + JPG PreviewФормат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA8750DC61D94DBDC140F4CC23347ADD3061B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832838   (355246) от 28.10.2017
-
-Футажи - Artbeats - Digital Aire HD [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь "синтетических" HD-бэкграундов. Все "зацикленные" (seamlessly loopable).
-
-Перевод от Яндекса: Представьте себе мир, где земного шара покрыта в двоичном коде, где цифровые данные пальто стены, и где молекулярные модели спин или электрические импульсы скорости сквозь пространство. Вы получили все это и многое другое в этой коллекции cyber-tech, (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B8FD6C8AD36F3CE3F36AC5EFFC4DFFCCF4BFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952364   (355239) от 01.11.2015
-
-Кисти - Daz 3D - Ron's Detail Smoke - 13984 [ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ron's Detail Smoke - набор кистей, созданный знаменитым Ron Deviney, который пригодится Вам еще не раз и поможет в реализации Ваших творческих замыслов. В коллекции подробных кистей дыма внимание в деталях приятно перетекает в замысловатые линии, очень четкие и ясные - плюс некоторые интересные кадры края дыма. Имеется краткое руководство по лёгкому превращению дыма (   Читать дальше...   )Формат: ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97EA353F58BA18F4E9496A456A80304163017BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952343   (355238) от 01.11.2015
-
-Сборник инструментов Photoshop - Daz 3D - Ron's Blood II - 19989 [ABR, PSD, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ron's Blood II - набор инструментов Photoshop, созданный знаменитым Ron Deviney, который пригодится Вам еще не раз и поможет в реализации Ваших творческих замыслов.
-Брызги и пятна крови с Photoshop слоями готовы к операции перетаскивания вместе с кистями и стилями слоя. В искусстве это известный визуальный эффект для показа иллюстраций ужасов. Все они очень подробно (   Читать дальше...   )Формат: ABR, PSD, ASL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284B1D5D9F6C984B9BEF503EDEFDD5A8348D9005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952367   (355232) от 01.11.2015
-
-Кисти - Daz 3D - Ron's Ripped Fabric - 21675 [ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ron's Ripped Fabric - набор кистей, созданный знаменитым Ron Deviney, который пригодится Вам еще не раз и поможет в реализации Ваших творческих замыслов. - Содержит 123 кисти разорванных элементов наряду с 17 кистями рваного дизайна для вашего творчества, нужно просто покрасить, где вы хотите, чтобы легко получить разрыв.Формат: ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E732C39FED3D27C1CF645F96AA27CA2562030FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952331   (355226) от 01.11.2015
-
-Сборник инструментов Photoshop - Daz 3D - Ron's Apocalypse - 15850 [ABR, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ron's Apocalypse - набор инструментов Photoshop, созданный знаменитым Ron Deviney, который пригодится Вам еще не раз и поможет в реализации Ваших творческих замыслов. В этом разрушительном наборе печальных событий, руины городов, растрескавшаяся земля, разбитый бетон, развалины, дым, пустоши и многие элементы в стиле катастрофы. Кисти, фоны и PSD слои, чтобы помочь (   Читать дальше...   )Формат: ABR, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C70217E2B0F5B549413B4B4D603C9CE5CF5A7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952346   (355108) от 01.11.2015
-
-Сборник инструментов Photoshop - Daz 3D - Ron's Space Brushes - 21193 [ABR, JPG, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ron's Space Brushes - набор инструментов Photoshop, созданный знаменитым Ron Deviney, который пригодится Вам еще не раз и поможет в реализации Ваших творческих замыслов. В этом пакете представлены кисти, фоны и стили слоя космического пространства для использования в Sci-Fi визуализации и помощи в создании перспективных проектных решений для ваших художественных (   Читать дальше...   )Формат: ABR, JPG, ASL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE41B2C7CBE0B673820B142E7B353A9135CBA616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952624   (354949) от 01.11.2015
-
-Шаблоны - Обложка и задувка на DVD диск - Выпускной в детском саду [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обложка и задувка на DVD диск, к выпускному в детском саду.
-Автор:Формат: PSDРазрешение файлов: 3248x2161 / 3508х4961 / 1431х1431 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CF90E49C2A86FBCA655EDB75169869538770F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578290   (354622) от 20.11.2012
-
-Digital Juice - VideoTraxx HD 2 (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: HD — 1920х1080Формат: .iso (.mov)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEDAAC75CA2F750DA31287A47E4F60B59175568
 ```
 
 https://mybot314.ru/tekegram_catalog/

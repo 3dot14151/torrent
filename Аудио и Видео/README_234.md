@@ -1,3 +1,32 @@
+###  Публикация: 1422055   (239784) от 07.11.2020
+
+VA - Relax Your Mind Lounge: Chillout Your Mind (2020) [AAC|~314 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - Remembrance (Original Mix) (3:50)
+02. Peter Pearson - Beyond the Mist (Original MIx) (4:12)
+03. Lynn Tredeau, Sherry Finzer - Behind the Door (Original Mix) (3:02)
+04. Shoshana Michel - Nocturne in E Flat (4:24)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B450597A9169A9A58DB7ADB594E2A4194DF939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422004   (239711) от 07.11.2020
 
 VA - Restaurant Lounge: Chillout Your Mind (2020) [AAC|~328 Kbps] <Downtempo, Lounge, Chillout>
@@ -6,7 +35,7 @@ VA - Restaurant Lounge: Chillout Your Mind (2020) [AAC|~328 Kbps] <Downtempo, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [AAC|~323 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - I Love the Rain Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Autumn Leaves Lounge: Chillout Your Mind (2020) [AAC|~325 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -179,7 +208,7 @@ VA - Fireplace Chill, Vol. 1 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -208,7 +237,7 @@ VA - The Perfect Soulful Vol.2 (Chillout Your Mind) (2021) [AAC|~299 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -237,7 +266,7 @@ VA - Fifty Shades of Lounge - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (201
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +295,7 @@ VA - Beautiful Metamorphosis, Vol. 1 (2021) [AAC|~307 Kbps] <Downtempo, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -295,7 +324,7 @@ VA - Smooth Jazz n Chill 2 (2017) [AAC|~344 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -324,7 +353,7 @@ VA - Fireplace Chill, Vol. 2 (2020) [AAC|~313 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -353,7 +382,7 @@ VA - Fifty Shades of Lounge, Vol. 2 - 50 Smooth & Sexy Chill Tunes 4 Erotic Mome
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -382,7 +411,7 @@ VA - Smooth Jazz n Chill 6 (2021) [AAC|~347 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -411,7 +440,7 @@ Epica - Omega (2021) [AAC|~345 Kbps] <Symphonic Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -440,7 +469,7 @@ VA - Fireplace Chill, Vol. 4 (2020) [AAC|~324 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -469,7 +498,7 @@ VA - Fireplace Chill, Vol. 3 (2020) [AAC|~320 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -498,7 +527,7 @@ Imaginature - Imaginature (2021) [AAC|~346 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -527,7 +556,7 @@ VA - Los Angeles Beach Lounge, Vol. 4 (2021) [AAC|~326 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -556,7 +585,7 @@ VA - Fifty Shades of Jazz (2017) [AAC|~330 Kbps] <Downtempo, Lounge, Balearic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 1 (2021) [AAC|~318 Kbps] <Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -643,7 +672,7 @@ VA - The World Series of Lounge, Vol. 2 (2021) [AAC|~319 Kbps] <Balearic, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - The Lounge Chill Out Chapter, Vol. 2 (2021) [AAC|~329 Kbps] <Chill Out, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -701,7 +730,7 @@ VA - Lounge Remixes (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -715,35 +744,6 @@ VA - Lounge Remixes (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E4E4DD397CAA6E542B71DF53FF0895CE2C0BEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498630   (237611) от 14.10.2021
-
-VA - Relaxing Jazzy Beats (Abstract Electronic Chill Jazz Vibes) (2021) [AAC|~333 Kbps] <Jazz, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Y Garcia - Un peu de jazz (5:27)
-02. Lo Greco Bros, Flow Bop - One Man (4:47)
-03. Agostino Maria Ticino - If I Had Said to You (3:01)
-04. Paolo Sessa, Polose - The Moon (3:53)(   Читать дальше...   )Жанр: Jazz, Lounge, Chill OutПродолжительность: 01:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B19B544825D0AC4CA68C92F2128C23E24DF62D
 ```
 
 https://mybot314.ru/tekegram_catalog/

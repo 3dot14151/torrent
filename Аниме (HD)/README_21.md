@@ -6,7 +6,7 @@ Ore no Nounai Sentakushi ga, Gakuen Love Comedy wo Zenryoku de Jama Shiteiru / N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hoozuki no Reitetsu 3 / Хладнокровный Ходзуки [ТВ-3] [2018
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cutie Honey Universe | Вселенная Милашки Хани [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +84,7 @@ Caligula | Калигула [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +110,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +136,7 @@ High School DxD BorN | High School DxD Third | High School DxD 3rd Season | Де
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +162,7 @@ Love Live! Sunshine!! (2017) | Живая любовь! [ТВ-4] [2017, TV, 13 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +188,7 @@ Souryo to Majiwaru Shikiyoku no Yoru ni... / Жаркая ночь с монах
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +214,7 @@ Koukaku no Pandora: Ghost Urn (2016) | Pandora in the Crimson Shell: Ghost Urn |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +240,7 @@ Piano no Mori (2019) | Рояль в лесу [ТВ-2] [2019, TV, 12 из 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hinamatsuri | Праздник Хины [2018, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +293,7 @@ Yamada-kun to 7-nin no Majo / Ямада и семь ведьм [2015, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +319,7 @@ Aoi Tamago | Pale Cocoon | Бледный Кокон [2006, OVA] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +345,7 @@ Plastic Memories | Синтетические воспоминания [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +371,7 @@ Date a Live II / Рандеву с Жизнью 2 [2014, TV, 10] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +397,7 @@ Angel Beats! / Ангельские ритмы! (2010, 13 +2 sp) BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +424,7 @@ Danna ga Nani o Itteiruka Wakaranai Ken 2 Sureme / Я своего мужа со
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +450,7 @@ Fate/Stay Night: Unlimited Blade Works | Судьба: Ночь Схватки [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +476,7 @@ Planetarian: Chiisana Hoshi no Yume / Planetarian: The Reverie of a Little Plane
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +504,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +533,7 @@ Golden Time / Золотая Пора [2013, TV, 24] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +559,7 @@ Alice or Alice | Алиса или Алиса: Брат-сестролюб и е
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +585,7 @@ Boku wa Tomodachi ga Sukunai Next | Haganai Next | У меня мало друз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +611,7 @@ Ginga Eiyuu Densetsu: Die Neue These - Kaikou | Легенда о героях �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -639,7 +639,7 @@ Tada-kun wa Koi o Shinai | Tada Never Falls in Love | Тада-кун не вл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Я — девочка-волшебница
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 

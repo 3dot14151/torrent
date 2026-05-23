@@ -1,3 +1,138 @@
+###  Публикация: 1775541   (29574) от 27.01.2025
+
+Шрифты - Mont Font Family [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Mont — геометрический шрифт без засечек, состоящий из 10 начертаний от Hairline до Black с соответствующим курсивом. Он поддерживает расширенную латиницу, кириллицу и греческий — всего более 130 языков. Сбалансированная характеристика Mont с уникальными деталями, такими как заостренная «t» и выдающаяся x-высота, делает его идеальным для сильных заголовков и выдающихся (   Читать дальше...   )Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2593FCE47B09DCE09AE12D283A8F6DB7E73C46C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775663   (29571) от 27.01.2025
+
+Шрифты - Redmark - Elegant Serif Font [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Redmark — это винтажный, но чистый шрифт, вдохновленный гарнитурой 80-х годов, с альтернативными и лигатурными глифами, которые сделают вашу типографику по-настоящему уникальной!Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F0E593E5676067B46772963B8C2898870503FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775825   (29518) от 28.01.2025
+
+Шрифты - Церковные и старославянские шрифты [OTF, TTF, PFM, WOFF, PFB]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Церковные и старославянские шрифты разных форматов с кириллицей. Есть немного демо-версий, а так вполне полноценные в основном.Формат: OTF, TTF, PFM, WOFF, PFB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF6B0CCBCE6C6FA02A28BD5D14A4A26B0864F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775726   (29487) от 28.01.2025
+
+Шрифты - Slabdense [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Slabdense — это уникальная смесь шрифтов с засечками и сгущенных шрифтов, пронизанная яркой западной тематикой. Идеально подходит для дизайн-проектов, вызывающих винтажное или старомодное настроение.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81C19F4F310449B538786290CE8D1260F9C8081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775884   (29471) от 28.01.2025
+
+Шрифты - Darrell Flood - Game Of Squids [OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт на тему сериала "Игра в кальмара".
+Разработчик: Darrell Flood
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская).
+(   Читать дальше...   )Формат: OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9BC7049A421BC139E550CB18B2B3A63C2EC69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776014   (29391) от 29.01.2025
 
 Шрифты - Helvetica - Ultimate Font Collection [OTF, TTF]
@@ -6,7 +141,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -34,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -62,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -90,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -118,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -144,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -172,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -200,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -226,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -281,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -307,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -333,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -361,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -390,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -416,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -444,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -472,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -498,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -524,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -550,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -561,142 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64F47C8593BF57943ABECF4834197EBA0E82201E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780277   (27330) от 17.02.2025
-
-Шрифты - Fontfabric - Gilam [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gilam — шрифт без засечек с полусжатыми пропорциями. Шрифт основан на знаменитом DIN, но сочетает в себе его популярный неогротескный вид с такими характеристиками, как заостренные края в «W» и «M».Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F60CA1DE32FA01260901376C70BAC8280F45042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780252   (27324) от 17.02.2025
-
-Шрифты - Creative Masrket - Tenkai - Japanese Brushes Font - 290895106 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь с Tenkai, смелым и аутентичным японским шрифтом кистей, вдохновленным красотой и мастерством традиционной японской культуры. Разработанный в стиле мазков от руки, Tenkai привносит динамичность и органичность в ваши проекты. Его несовершенные, но гармоничные штрихи передают дух японской каллиграфии, что делает его идеальным для проектов, которые стремятся (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A01BCC12FC1B7376B73ADDBA359BDBD0BA300A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780191   (27310) от 17.02.2025
-
-Шрифты - Creative Market - Valentine Bellia - 290889177 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentine Bellia - красивый и элегантный рукописный шрифт. Этот шрифт имеет обычные и курсивные версии с заглавными буквами, строчными буквами, лигатурами, цифрами, знаками препинания, многоязычной поддержкой, альтернативными вариантами и росчерками. Этот шрифт идеально подходит для свадеб, приглашений и валентинок.
-
-Кириллица не поддерживается.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8065016EA233078A4CEAA328D914F620A6965144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780297   (27304) от 17.02.2025
-
-Шрифты - Fontspring - Franca [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Franca — это неогротескное семейство в девяти весах плюс соответствующие курсивы. Вдохновение для дизайна пришло через постоянный интерес к новым интерпретациям классической модели гротеска и изучение «нейтральных» шрифтов, таких как Helvetica, Univers или Normal Grotesk.
-
-Кириллица не поддерживается.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B877B75FC139832030B55AEBA208DF98A43887F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780194   (27302) от 17.02.2025
-
-Шрифты - Creative Market - Champilon - 290895097 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Champilon — современный шрифт без засечек с чистым и элегантным дизайном. Благодаря гладким лигатурам и альтернативному шрифту он добавляет современный штрих к любому дизайну.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB4D42C0CF564E768521F6498DCCE923C224ECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

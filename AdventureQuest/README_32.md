@@ -1,3 +1,108 @@
+###  Публикация: 1033715   (635694) от 12.07.2016
+
+Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В игре Haven Moon, вы перенесетесь в таинственный мир, где вы будете исследовать необитаемые острова, чтобы раскрыть их секреты и найти клад. В этом Myst-Like, вдохновленном миром Жюля Верна, вы можете использовать свое 6-ое чувство и интеллект, чтобы найти путь через тайные ходы и странные машины.Тип издания: LicenseРазработчик: Francois RousselЖанр: AdventureЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926A187EE8C2F8C0A2D6760EC13AC72650E88CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033857   (635551) от 12.07.2016
+
+Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В игре Haven Moon, вы перенесетесь в таинственный мир, где вы будете исследовать необитаемые острова, чтобы раскрыть их секреты и найти клад. В этом Myst-Like, вдохновленном миром Жюля Верна, вы можете использовать свое 6-ое чувство и интеллект, чтобы найти путь через тайные ходы и странные машины.Тип издания: SteamRIPРазработчик: Francois RousselЖанр: AdventureЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D24BF0947925696DAB99B0B9201A0412713C3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519989   (634513) от 07.07.2012
+
+Gemini Rue / Gemini Rue: Заговор на Барракусе [Ru/En] (RePack) 2012 | R.G. ReCoding
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Азраил Один, бывший пособник мафии, а ныне законопослушный гражданин, высаживается на планете Барракус, чтобы провести расследование. Он должен был встретиться здесь со своими друзьями, но его расследование принимает неожиданный оборот. Азраил попадает в серьезные неприятности: чтобы добыть необходимую информацию, он волей-неволей вынужден пойти на сделку с местной мафией — борекудан.
+В то же время, в другой части галактики в таинственном помещении просыпается человек по имени Дельта-6. Он ничего не помнит о своем прошлом. Как выясняется позже, таинственное помещение — это центр коррекции преступников, где всем по прибытии стирают память. Руководитель центра, человек, которого все называют «Директор», заставляет своих подопечных участвовать во всевозможных тестах. Любое неповиновение карается очередным стиранием памяти. Дельта-6 никому не доверяет и должен выбраться из этого центра.Тип издания: RePackЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC1AAF5D37DAFBF6A776070580D44117EC1A5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083512   (632839) от 19.06.2017
+
+J.U.L.I.A. - Among The Stars (2014) [En/Ge] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+35 летняя женщина, космический биолог по имени Рэйчел Мэннерс, на конец-то пробудилась после нескольких лет сна и обнаружила то, что она пребывает на космической станции. Как она туда попала и с какой целью, Рэйчел это очень смутно помнит.Тип издания: LicenseРазработчик: CBE SoftwareЖанр: Adventure, QuestЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567DDB801D98C5172ECD1C11C29061614E0710BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294183   (631389) от 06.04.2019
 
 Pineview Drive - Homeless (2019) [Ru/Multi] (1.0) License PLAZA
@@ -6,7 +111,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Afterparty (2020) [Ru/Multi] (1.4.26f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Tunnels of Despair (2018) [Ru/En] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Beholder 2 (2018) [Ru/En/Ch] (Upd20190129) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5.1805151406/dlc) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +348,7 @@ Oxenfree (2016) [Ru/En] (2.1.0f26) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +374,7 @@ Ridge (2016) [Ru/Multi] (1.0 u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +400,7 @@ Ridge (2016) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +429,7 @@ Night in the Woods (2017) [En] (5.6.2.23522822) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +455,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +481,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +507,7 @@ Sylvio (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +534,7 @@ Detective Gallo (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +560,7 @@ Finding Paradise (2017) [Ru/Multi] (1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +586,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +612,7 @@ Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +638,7 @@ The Assembly (2016) [En/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +664,7 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,112 +675,6 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6B2F06C24F4B020FCA0C2BDD41935D58F4FE55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073443   (619296) от 26.06.2017
-
-Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Началась война. Во время авианалета 16-летний Ноа со своей младшей сестрой Рени укрылись в бункере. Здесь они нашли не только спасение от бомб, но и мир-перекресток между жизнью и смертью: Безмолвный мир. Сестра Ноа заблудилась, и мальчику пришлось отправиться на ее поиски в этой небезопасной, как оказалось, идиллии.Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, 3DЯзык озвучки: Английский, немецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F2C388537D9840EDF0AA17E8CCD8FD97A187FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101837   (617583) от 27.06.2017
-
-Virginia (2016) [Ru/Multi] (1.02a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Virginia - триллер от первого лица про маленький городок со скелетом в шкафу. В роли начинающего агента ФБР Анны Тарвер вы попытаетесь разыскать пропавшего мальчика. Вместе с опытным агентом Марией Гальперин вы отправитесь в городок Кингдом в округе Бёрджесс, Вирджиния, где бесследно пропал мальчик. Скоро Анна столкнется с конфликтом интересов, выяснит мотивы участников (   Читать дальше...   )Тип издания: LicenseРазработчик: Variable StateЖанр: Adventure, 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43DE0596AE274865BA511F5279DB16773AF9270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036865   (616872) от 22.07.2016
-
-Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дезире – это поэтичный черно-белый классический квест. Когда учительница спрашивает Дезире, почему он не нарисовал солнце, как все другие ученики, мальчик непринужденно отвечает: «В моей голове всегда ночь.» Дезире от рождения не различает цвета, так что он станет вашим гидом в мир черного и белого.Тип издания: RepackРазработчик: Sylvain SecciaЖанр: AdventureЯзык озвучки: ФранцузскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D196DAB4B43037AC584D76EA1784A0D35CA873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036931   (616798) от 22.07.2016
-
-Bohemian Killing (2016) [En/Pl] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bohemian Killing — это стимпанк-драма от студии Moonwalls, рассказывающая историю человека по имени Альфред Итон, обвиняемого в жестоком убийстве. Действие происходит в Париже 19-го века, полном расизма и напряжения.
-
-В игре присутствует два временных периода. Первый - настоящее время, зал суда, где представляются улики, доказывающие вину Итона, которому приходится (   Читать дальше...   )Тип издания: RepackРазработчик: The MoonwallsЖанр: Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D455FCE3D705F4322E7A7F8AB7AD73F43BF386C
 ```
 
 https://mybot314.ru/tekegram_catalog/

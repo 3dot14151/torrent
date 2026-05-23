@@ -1,3 +1,32 @@
+###  Публикация: 1506731   (799567) от 01.11.2021
+
+Marco Bedini - Bufalo Essentials, vol. 2 (2021) [AAC|~339 Kbps] <House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Pretender (8:37)
+02. History (7:29)
+03. Loopmoon - Ancestral Technology (Marco Bedini Remix) (5:48)
+04. Flavours (6:47)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 01:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C665048D5A750612D2714598349BFC8D6AD8EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506636   (799565) от 01.11.2021
 
 VA - Mykonos Chillout Café, Vol. 4 (Feelings Del Mar) (2009) [AAC|~338 Kbps] <Downtempo, Lounge, Chill Out>
@@ -6,7 +35,7 @@ VA - Mykonos Chillout Café, Vol. 4 (Feelings Del Mar) (2009) [AAC|~338 Kbps] <D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Marco Bedini - Bufalo Essentials, vol. 3 (2021) [AAC|~308 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Tribal Lineage (Compiled by Boom Shankar) (2019) [AAC|~343 Kbps] <Psy-Tranc
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Mykonos Chillout Café, Vol. 3 (Feelings Del Mar) (2009) [AAC|~339 Kbps] <D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +151,7 @@ Marco Bedini - Bufalo Essentials (2019) [AAC|~332 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +180,7 @@ October Noir - Thirteen (2019) [AAC|~312 Kbps] <Gothic, Doom Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Tribal Lineage 3 (Compiled by Boom Shankar) (2021) [AAC|~329 Kbps] <Psy-Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Mykonos Chillout Café, Vol. 2 (Feelings Del Mar) (2008) [AAC|~341 Kbps] <D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - In Love with Lounge, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Mykonos Chillout Café (Feelings Del Mar) (2007) [AAC|~328 Kbps] <Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +325,7 @@ October Noir - Fate, Wine, & Wisteria (2021) [AAC|~305 Kbps] <Gothic, Doom Metal
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - In Love with Lounge, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Mykonos Chillout Café, Vol. 5 (Feelings Del Mar) (2010) [AAC|~333 Kbps] <D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Chillout Your Mind, Vol. 2 (Ultimate Chillout Collection) (2021) [AAC|~296 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Tribal Lineage 2 (Compiled by Boom Shankar) (2020) [AAC|~336 Kbps] <Psy-Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Chillout Your Mind, Vol. 1 (Ultimate Chillout Collection) (2020) [AAC|~317 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +499,7 @@ Limp Bizkit - STILL SUCKS (2021) [AAC|~321 Kbps] <Nu Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -551,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,7 +632,7 @@ VA - Istanbul Orange: Urban Chillout Music (2021) [AAC|~339 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +661,7 @@ VA - Chillout Your Mind, Vol. 4 (Ultimate Chillout Collection) (2021) [AAC|~310 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -661,7 +690,7 @@ VA - Chillout Your Mind, Vol. 3 (Ultimate Chillout Collection) (2021) [AAC|~322 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -690,7 +719,7 @@ VA - Chillout Your Mind, Vol. 5 (Ultimate Chillout Collection) (2021) [AAC|~323 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -704,35 +733,6 @@ VA - Chillout Your Mind, Vol. 5 (Ultimate Chillout Collection) (2021) [AAC|~323 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC974DA0E774EF582B81D4413B6626B500656AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506888   (799138) от 02.11.2021
-
-VA - Relaxing Therapy Session with José Sierra (Pt 1) (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sami Sivananda - Shikantaza (Original Mix) (2:47)
-02. Finland & Aaskoven - Fontanelle (Original Mix) (6:19)
-03. Dellasollounge - Authum Winds (10:20)
-04. Prana Tones - Mystical Relaxation (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F1FA0A89FC7E475AC3ED58826AB29AB679A35C
 ```
 
 https://mybot314.ru/tekegram_catalog/

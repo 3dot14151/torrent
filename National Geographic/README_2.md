@@ -1,3 +1,29 @@
+###  Публикация: 440588   (969430) от 17.01.2016
+
+NG: Расследования авиакатастроф: Посадка на Гудзон / National Geographic: Air Crash Investigation: Landing on the Hudson (2011 (эфир от 21.01.2012)) IPTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая история самолета, который вскоре после взлета из-за столкновения со стаей птиц совершил аварийную посадку на воду в центре города.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29CE1E9608D1AC38F078D1360FAC87D903EF79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359094   (965961) от 10.02.2020
 
 NGW: Настоящая чёрная пантера / The Real Black Panther (2020) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +136,7 @@ NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +162,7 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +188,7 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +214,7 @@ NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +294,7 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +346,7 @@ NG: Подъём Коста Конкордия / The Raising Of The Costa Conkor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +372,7 @@ NG. Расследование на месте катастрофы / Crash Scen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +398,7 @@ NG: Осушить океан. Бермудский треугольник / Dra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +529,7 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +555,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +581,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +607,7 @@ N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,7 +633,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -633,7 +659,7 @@ NG: Христианство. Восхождение к власти / Иису�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -644,32 +670,6 @@ NG: Христианство. Восхождение к власти / Иису�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE10D47CF07993DB455B7DAAE8DD1C9B837C8253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102560   (889223) от 10.02.2017
-
-Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нильский крокодил - крупное пресмыкающееся семейства настоящих крокодилов. Самый большой из трёх видов крокодилов, обитающих в Африке, и второй по величине в мире после гребнистого крокодила. Благодаря району обитания, размерам и силе, известен как крокодил-людоед, в древние времена являлся предметом страха и поклонения. До настоящего времени остаётся, пожалуй, наиболее (   Читать дальше...   )Телекомпания: США, Earth-Touch and SNI/SI Networks L.L.C.Жанр: Документальный, познавательный, флора, фаунаРежиссер: Бенджамин ХьюлеттПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228F6EAF4416239EFFAEAE13F1017BD17BD014C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

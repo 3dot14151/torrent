@@ -1,3 +1,81 @@
+###  Публикация: 1595574   (174805) от 06.12.2022
+
+Дневник слабака: Правила Родрика / Diary of a Wimpy Kid: Rodrick Rules (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+По роману Джеффа Кинни "Дневник Слабака: Родрик рулит". Грег Хеффли идет в школу после летних каникул. Все, чего он хочет сейчас, - стереть последние три месяца из памяти своего старшего брата, Родрика, который узнал о Грегори одну очень постыдную вещь. Грегори понимает, что Родрик готов рассказать всему свету об этом позоре… и готов на все, чтобы этого (   Читать дальше...   )Производство: Канада, США / 20th Century Fox Animation, Disney+, DisneyToon Studios, Nickelodeon Movies, Pinkfong, Twentieth Century Animation, Walt Disney Company, TheЖанр: мультфильм, драма, комедия, семейныйРежиссер: Luke CormicanАктеры: Брэйди Нун, Ethan William Childress, Хантер Диллон, Эрика Серра, Крис Диамантополос, Эдвард Эснер, Линда Лавин, Лоретта Дивайн, Присцилла Лопес, Нэйтан АренасПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA3AD516691622AB8C5A4789739466327C4B2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595481   (174765) от 06.12.2022
+
+Я краснею / Turning Red (2022) BDRip [H.265/1080p] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Торонто, 2002 год. Активная и неунывающая 13-летняя Мэйлинь всеми силами пытается быть первой во всём, чтобы угодить строгой гиперопекающей матери. Семья девочки живёт при храме и поклоняется Богине-прародительнице. Одним прекрасным утром Мэйлинь просыпается и вместо привычного отражения в зеркале видит красную панду — теперь, когда она волнуется, злится или испытывает (   Читать дальше...   )Производство: США, Канада / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Доми ШиАктеры: Розали Чян, Сандра О, Ава Морс, Майтреи Рамакришнан, Пак Хе-ин, Джеймс Хун, Саша Ройз, Джордан Фишер, Финнеас О’Коннелл, Вай Чин Хо, Лори Тан ЧиннПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, АнглийскиеПродолжительность: 01:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5084094B9E00C541AD83BB21A08A357A59F2454A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668201   (174290) от 11.10.2023
+
+Чип и Дейл спешат на помощь / Chip 'n Dale: Rescue Rangers (2022) WEB-DLRip [AV1/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Чип и Дейл спешат на помощь» — известное шоу, в котором когда-то снимались бурундуки и их друзья. Прошло 30 лет. Чип стал страховым агентом, а Дейл зарабатывает, рассказывая о своих прежних успехах на разных фестивалях. Но когда пропадает их друг, бурундуки снова объединяются, чтобы спасти товарища.Производство: США / Mandeville Films, Walt Disney PicturesЖанр: мультфильм, фантастика, боевик, комедия, приключенияРежиссер: Акива ШафферАктеры: Энди Сэмберг, Джон Малэйни, КиКи Лэйн, Уилл Арнетт, Эрик Бана, Флула Борг, Дэннис Хэйсбёрт, Кигэн-Майкл Ки, Тресс МакНилл, Тим РобинсонПеревод: Многоголосый профессиональный (Jaskier, HDRezka Studio, TVShows, Flarrow Films)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99586AB851D610899E9244DC55F1ED6E4AE004AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595896   (174235) от 07.12.2022
 
 Босс-молокосос: Рождественский бонус / The Boss Baby: Christmas Bonus (2022) WEB-DL [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B280E1F552BD8715BB493D1BA12C57E4877F35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595378   (170238) от 09.12.2022
-
-Астерикс: Земля Богов / Asterix: Le domaine des dieux (2014) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астерикс и его лучший друг Обеликс продолжают свою многолетнюю борьбу с Цезарем, который хочет наконец-то расправиться с неукротимыми галлами. Вокруг деревни Астерикса Цезарь приказывает построить новый Рим — Землю Богов. В галльской деревне хаос и смятение. Но Астерикс и Обеликс не сдаются!Производство: Франция, Бельгия / M6 Studio, SND Films, BelvisionЖанр: мультфильм, приключения, фэнтези, комедия, семейныйРежиссер: Луи Клиши, Александр АстьеПеревод: дублированный (лицензия Blu-Ray 3D)Субтитры: отсутствуютПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F768A14820E81BA87C448DB5EF1AD24DB5BB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515160   (170203) от 06.12.2021
-
-Митчеллы против машин / The Mitchells vs. the Machines (2021) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своеобразная семейка, которую едва ли можно назвать идеальной, отправляется в поездку на машине и оказывается посреди восстания роботов. Кто бы мог подумать: теперь они последняя надежда человечества на спасение!Производство: США, Канада, Гонконг / Sony Pictures Animation, Lord Miller, Columbia PicturesЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Дублированный (Netflix)Субтитры: Русские (Forced, Full), английские (Forced, SDH)Продолжительность: 01:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4EFF52FBA047533573139392E02FA5F9DB8907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596277   (170175) от 09.12.2022
-
-Пиноккио Гильермо дель Торо / Pinocchio (2022) WEB-DL [H.264/1080p] [EN/ RU, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170175.jpg" />
-</div>
-
-
-###  Подробнее
-
-История про деревянную куклу, которая превращается в настоящего мальчика.Производство: США, Мексика, Франция / Netflix Animation, The Jim Henson Company, PathéЖанр: мультфильм, мюзикл, фэнтези, драма, семейныйРежиссер: Гильермо дель Торо, Марк ГустафсонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские (full, SDH) и др.Продолжительность: 02:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2722586DD8E253BCF1E142CF8B3AE7B343EF8141
 ```
 
 https://mybot314.ru/tekegram_catalog/

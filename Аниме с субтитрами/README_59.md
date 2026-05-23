@@ -1,3 +1,109 @@
+###  Публикация: 1125867   (615815) от 28.06.2017
+
+Фантазия Гранблю / Granblue Fantasy [TV, 2017, 13] HDTV 720 raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В один прекрасный день жизнь простого паренька по имени Гран перевернулась с ног на голову. Хотя можно ли назвать простым парня, который дружит с говорящей летающей ящерицей по имени Вирн и живёт на летающем острове Зинкенстилл? Тем не менее, именно таков мир в нашей истории, и в нём это вполне обычно. Итак, наш Гран однажды замечает в лесу неподалёку странное свечение. (   Читать дальше...   )Производство: Япония, A-1 Pictures Inc.Жанр: приключения, фэнтезиРежиссер: Ито ЮкиПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022559F1C9931CEBDD74DC419D928B519CC3BDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911522   (615787) от 23.06.2015
+
+Haiyore! Nyaruko-san F | Няруко-сан: Крадущийся хаос F [2015, OVA, 1 ep.] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Земля – единственная во Вселенной планета, жители которой постоянно изобретают что-то новое, а жители дальнего космоса лишь развивают земные идеи в собственной индустрии развлечений. Такой ценный ресурс надо охранять от шпионажа и пиратства, чем и занимается галактический Интерпол. Одна из лучших команд службы охраны Земли держит базу в доме японского школьника Махиро (   Читать дальше...   )Производство: студия XebecЖанр: комедия, романтикаРежиссер: Нагасава ЦуёсиПеревод: Dreamers TeamСубтитры: русские (отключаемые)Продолжительность: 1 серия на 27 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAFB58B2E16C1913663C633027AD750BDC19AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230003   (615412) от 12.06.2018
+
+Just Because! | Просто так! [2017, TV, 12 эп.] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эйта Идзуми приезжает в Камакуру, где не был четыре года: когда-то его отца перевели по работе, а теперь семья вернулась в родной город. До выпускного остается всего один триместр, а потом начнется взрослая жизнь, с которой нужно определиться именно сейчас. В новой школе, где Эйте предстоит доучиваться, он встречает Сому Харуто – тот был его лучшим другом, но на (   Читать дальше...   )Производство: студия Pine Jam / パインジャムЖанр: романтика, повседневностьРежиссер: Кобаяси АцусиПеревод: Елена Родионова (laci)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D88BB953828FA69A7E21C50418D8592C3BEDBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778748   (615031) от 12.07.2014
+
+Break Blade / Broken Blade / Сломанный Меч [2014, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Компиляция шести фильмов с некоторыми новыми сценами.
+
+Действие разворачивается на континенте Крузон, практически все обитатели которого обладают способностью управлять кварцем. Основанная на этой способности технология позволяет местным жителем выполнять массу задач, например, поднимать в воздух предметы силой мысли или управлять огромными мобильными боевыми костюмами, называемыми Големами. Главный герой Райгарт Эрроу – «не-колдун», не способный заставить левитировать даже самый крошечный кристалл. Он тихо (   Читать дальше...   )Жанр: приключения, фэнтези, мехаРежиссер: Амино ТэцуроПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685F3CDB6BF5E8D5F41208E29F588170E9694977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545340   (614791) от 19.04.2022
 
 Ultraman Season 2 | Ультрамен 2 [2022, Web, 6 эп.] WebRip 720p raw+eng
@@ -6,7 +112,7 @@ Ultraman Season 2 | Ультрамен 2 [2022, Web, 6 эп.] WebRip 720p raw+en
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Eromanga Sensei | Эроманга-сенсей [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ Triage X | Отбор Икс [2015, TV, 10 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +242,7 @@ Fukumenkei Noise / Не скрывая крик [2017, TV, 12 из 12] HDTV 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +268,7 @@ Gekijouban Shingeki no Kyojin | Вторжение гигантов (фильм)
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +294,7 @@ Gunslinger Stratos: The Animation | Небо стрелков [2015, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +320,7 @@ Subete ga F ni Naru: The Perfect Insider | Everything Becomes F: The Perfect Ins
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +346,7 @@ Punch Line / Punchline / Трусы всему виной [2015, TV, 12 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +373,7 @@ Peace Maker Kurogane / Железный миротворец [2003, TV, 24 из 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +401,7 @@ Outlanders / Гости с далеких планет [1986, OVA, 1 ep.] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +427,7 @@ Kyokuguro no Tsubasa / Legend of Lemnear / Легенда о Лемнеар [198
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +453,7 @@ Supernatural | Supernatural The Anime Series | Supernatural the Animation | Св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +480,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] BDRip 1080p R
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +506,7 @@ Major Complete Collection | Мэйджор Полное собрание (6 Се
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +532,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +558,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Мой п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +584,7 @@ Mushishi Zoku Shou / Мастер Муси [ТВ-2] [2014, TV, 10 ep] HDTVRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +613,7 @@ Gokushufudou | The Way of the Househusband | Путь домохозяина [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +639,7 @@ Enen no Shouboutai | Fire Force | Пламенный отряд [2019, TV, 24 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +665,7 @@ Enen no Shouboutai Ni no Shou | Fire Force (2020) | Пламенный отря�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,111 +676,6 @@ Enen no Shouboutai Ni no Shou | Fire Force (2020) | Пламенный отря�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DEEC391AEE844288295E3EC17D4A709BD80FF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126307   (604201) от 05.07.2017
-
-Ani ni Tsukeru Kusuri wa Nai! / Нет лекарства для моего брата! [2017, TV, 12 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о девушке Миао которая часто бьет своего тупого старшего брата Фэн.Производство: Япония, Fanworks / ファンワークスЖанр: комедия, повседневностьРежиссер: РарэкоПеревод: Наталия Ишова, YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (12 эп.), 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0987844153F00063B4804BFE3582B6C42A2797A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546877   (603958) от 26.04.2022
-
-Bakumatsu Kikansetsu Irohanihoheto | Intrigue in the Bakumatsu: Irohanihoheto | Борьба за власть времён бакумацу - никто не вечен [2006, ONA, 26 из 26] BDRip 720p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в эпоху Реставрации Мэйдзи непосредственно предшествующей падению сегуната Токугава, в январе 1868 года, ровно через три месяца после убийства легендарного самурая и предпринимателя Ремы Сакамото, и накануне начала Войны Года Дракона, гражданской войны, в которой решилась судьба реставрации императорского правления. Главный герой сериала - молодой (   Читать дальше...   )Производство: SunriseЖанр: Приключения, история, мистика, драмаРежиссер: Такахаси РёсукэСубтитры: РусскиеПродолжительность: 26 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769665125663FCF2152A5C459D5C4D524382F744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547207   (603428) от 27.04.2022
-
-Junod | Жюно [2010, Movie] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсель Жюно - швейцарский врач, который служил в Красном Кресте в ходе всей Второй мировой войны, но он известен прежде всего в Японии организацией поставки 15 тонн медикаментов в Хиросиму после бомбежки.
-В 60-минутном фильме две школьницы, Мии и Юко, посещают Хиросиму, переместившись во времени назад ко Второй мировой войне. Девушки видят не только усилия Жюно (   Читать дальше...   )Производство: студия Studio Hibari / スタジオ雲雀Жанр: драмаРежиссер: Кимура СинъитироПеревод: Orphan; Poccu9iЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 64 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A414C56D4FC429710DEE3297EBAA092921B609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148965   (602440) от 09.07.2017
-
-Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью: Суд Маюри [2015, MV, 1] BDrip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто бы мог подумать, что духам из другого мира, понадобится не вселенское уничтожение, а всего лишь тепло молодого юноши. Да, бывает и такое. Наш главный герой Ицука Шидо проснулся как-то с утра, а уже в обед он был заклеймен любовником духов из другого мира. Хотя, *любовник* это слишком высокое слово. Он просто стал ходить с ними на свидания, тем самым сдерживая (   Читать дальше...   )Жанр: приключенияПеревод: Alvakarp / Angara / ArarararagiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 75 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80732374B41CB604BDBDF75138924EF1E2D1DD6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

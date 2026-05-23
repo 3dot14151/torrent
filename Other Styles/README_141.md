@@ -1,3 +1,203 @@
+###  Публикация: 1336803   (277184) от 08.11.2019
+
+Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Исполняют музыку, звучавшую в 1920–40 годах на улицах, в кафе и в популярных танцевальных залах Парижа. Репертуар квартета состоит из вальс аккордеон, танго, пасодоблей, фокстротов, маршей и песен из классического французкого шансона. Они записали пять компакт-дисков: A La Noce (2010), Toujours (2004), Chez Moi (2001), Rendez-Vous (1998) и L'air de Paris (1995). (   Читать дальше...   )Список альбомов:
+1995 - L'air de Paris
+1998 - Rendez Vous
+2001 - Chez Moi(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 04:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5451569F3648D1D5FCF4191D0A89F6BBD81122C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265222   (276417) от 26.11.2018
+
+Sade - The Big Unknown (From the motion picture "Widows") (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Big Unknown (4:21)Жанр: Pop, SoulПродолжительность: 00:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0799FBB6ED10C363B5E3A5408FFF2C19029044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336604   (276042) от 09.11.2019
+
+Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Your Song (3:48)
+02. Heroe (4:34)
+03. Can't Get You out of My Head (3:09)
+04. Morning Has Broken (3:10)(   Читать дальше...   )Жанр: New Age, Instrumental, Piano, Relaxation |Продолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B4C0457D502EBDD21A19E696182DA91C04EA7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337185   (276010) от 09.11.2019
+
+Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Major Lazer & Khalid - Trigger (02:52)
+02. Au/Ra & Alan Walker - Ghost (02:59)
+03. CHVRCHES - Death Stranding (05:19)
+04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BE3874C93B8431E0E0A3BB81EBAED69EBF7CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188262   (275974) от 01.12.2017
+
+Yiruma - Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Embrace of Silence (2:53)
+ 02. Dance (4:05)
+ 03. Lamentation (3:42)
+ 04. Papillon (Replayed Version) (3:10)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9338C1C271840B91C7F517FECD8489F60A6E991F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188082   (275957) от 01.12.2017
+
+Marco Allevi - Spa Music (Music For Relaxation Meditation Massage) (2017) [MP3|320 Kbps] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.  Genesis (Part 1) (6:26)
+ 02.  Genesis (Part 2) (7:05)
+ 03.  Genesis (Part 3) (6:37)
+ 04.  Chromatic Vibrations (7:36)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F3556559CA4267724A06A7DB756544301BDCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337184   (275860) от 09.11.2019
+
+Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Major Lazer & Khalid - Trigger (02:52)
+02. Au/Ra & Alan Walker - Ghost (02:59)
+03. CHVRCHES - Death Stranding (05:19)
+04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFB1FE972900F7C910E51FD6B7ED3165370A41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337186   (275540) от 09.11.2019
 
 Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC 2.0|48/44.1/24|tracks|WEB-DL] <Soundtrack, Score>
@@ -6,7 +206,7 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC 2
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +235,7 @@ Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +264,7 @@ Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +293,7 @@ Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +322,7 @@ Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +351,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 8 (1994) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +380,7 @@ VA - Greatest Hits of Classical Rock Vol. 4 (1993) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +409,7 @@ Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +438,7 @@ Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +467,7 @@ James Horner & Simon Franglen - The Magnificent Seven / Великолепная
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +496,7 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +525,7 @@ James Horner & Simon Franglen - The Magnificent Seven / Великолепная
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +554,7 @@ Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +612,7 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +641,7 @@ Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +670,7 @@ Cris Velasco, Sascha Dikiciyan, Jesper Kyd, Raison Varner - Borderlands 2 Origin
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +699,7 @@ VA - Forever Instrumental:  Accordion  (2005) [FLAC|Lossless|image + .cue]<Accor
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +728,7 @@ Jerry Holland - Romantic Accordion (2001) [FLAC|Lossless|image + .cue]<Accordion
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,207 +742,6 @@ Jerry Holland - Romantic Accordion (2001) [FLAC|Lossless|image + .cue]<Accordion
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6AB9C8AF7B4E8530864BFE28F7BCE930A0C835D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188849   (273236) от 03.12.2017
-
-ERA - The 7th Sword (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Ethereal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273236.jpg" />
-</div>
-
-
-###  Подробнее
-
-1/9. Hurricane (3:17)
- 2/9. 7 Seconds (4:04)
- 3/9. Kilimandjaro (4:00)
- 4/9. Ameno (3:35)(   Читать дальше...   )Жанр: Electronic, New Age, EtherealПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55355215C94F1B47CA54BB6FD2A60C46A90264DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083747   (273056) от 16.12.2016
-
-Jean-Michel Jarre - Essentials & Rarities (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiness Is A Sad Song (5:54)
-02. Hypnose (3:30)
-03. Erosmachine (2:58)
-04. La Cage (3:24)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F1ABFF0A66A4C52298987C4C09B391EC21EF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88140   (272862) от 29.11.2018
-
-Мартин Казарян - Поет дудук (2003) [MP3|256]<Classic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Армянская народная мелодия
-2. Армянская народная мелодия
-3. Караван
-4. Армянская народная мелодия(   Читать дальше...   )Жанр: Classic, FolkПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B624D9B66FC9C0CFA25D3008A71ACD48B020277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 135669   (272818) от 29.11.2018
-
-VA - Лучшие песни французских мюзиклов (2008) [MP3|320 kb/s]<музыка театра и кино>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкий альбом, объединяющий в себе песни наиболее популярных французских мюзиклов, которые покорили весь мир. Хорошее качество, отличное оригинальное исполнение, делают этот диск прекрасным подарком всем романтикам, которые найдут тут и песни из «Нотр-Дама» и довольно редкие арии из других менее известных, но не менее красивых постановок.
-Рекомендую использовать (   Читать дальше...   )Жанр: музыка театра и киноПродолжительность: 02:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4336A79329C5828444CE7E2243EBEF79E12EA66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 40433   (272813) от 29.11.2018
-
-Евгения Смольянинова - В лунном сиянии... (2005)
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В лунном сиянии... (муз. и ст. Е.Юрьева)
-02. Степь да степь кругом (муз. неизв. авт., ст. И. Сурикова)
-03. Затворница (муз. неизв. авт., ст. Я.Полонского)
-04. Вот мчится тройка удалая (муз. И.Иваново, ст. Ф.Глинки)(   Читать дальше...   )Жанр: Народная песня / романсПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356976C3A0E10EEA2F8F8147F97B8B956664F7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337453   (272629) от 12.11.2019
-
-VA - Autumn is Coming: Soft Music Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Adam Fielding, James Wordsworth, John Westbourne - Starting Over (2:45)
-2.Luigi Seviroli - Minimal Skies (2:53)
-3.John Paul Rushton, James Wordsworth, John Westbourne - Terminal (2:44)
-4.Daniel Finot, Arnaud Rozenblat - Changing Colours (4:17)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666EFF82BFFFA4958906C03A377F3E1A0A7310D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 139281   (271758) от 30.11.2018
-
-VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Lai - Un Homme Et Une Femme (02:45)
-02. Nino Rota - Love Theme From The Godfather (02:41)
-03. Henry Mancini - The Windmils Of Your Mind (& His Orchestra) (03:01)
-04. Francis Lai - Love Story (04:12)(   Читать дальше...   )Жанр: Soundtrack (Pop)Продолжительность: 01:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243FDFF78FEB7C8DFA831539A3DC9723E7A6AA9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

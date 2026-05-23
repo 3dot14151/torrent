@@ -1,109 +1,3 @@
-###  Публикация: 919398   (584109) от 18.07.2015
-
-Иннокентий Жуков | Приключения пионеров в Египте (1926) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584109.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Приключения пионеров в Египте" – вторая фантастическая повесть Иннокентия Николаевича Жукова (1875-1948) – скульптора, педагога, писателя, одного из организаторов и идеологов сначала скаутского, а потом пионерского движения. В ней, в отличие от "Путешествие звена «Красной звезды» в страну чудес", пионеры попадают не в будущее, а в прошлое. Через (   Читать дальше...   )Жанр: Приключения, Детская литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E0472C0E97AA8921D2A021D925587A0AEF65DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919300   (584020) от 18.07.2015
-
-Игорь Стрелков | Сказки Заколдованного Замка (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже капризные принцессы иногда становятся романтичными и поклади­стыми девушками. Особенно если они оказываются в заколдованном замке, в котором живут волшебник, дракон, прекрасный рыцарь с портрета и семейство удивительных существ - снулей. Изменится ради принцессы волшебник? И почему одни и те же истории рассказываются разными геро­ями книги по-разному?Жанр: Сказки, Фэнтези для детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5B35C2CA8FA157983100E698C408A8F8BBD29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301838   (583998) от 12.05.2019
-
-Астрид Линдгрен | Лучшие сказки [Сборник] (2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писательница, подарившая детям удивительно обаятельного персонажа Карлсона и симпатичную сумасбродку Пеппи Длинный чулок, стала родной всем детям мира. Трудно найти семью, где не читали добрые и увлекательные книжки Астрид Линдгрен. Шведская писательница, как никто другой, разгадала детскую душу и нашла к ней тропинку. Простыми словами она очертила главные проблемы (   Читать дальше...   )Жанр: СказкиПеревод: Л.З. ЛунгинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F5D48BE64A01FCA94F3C3CA148E02F0265D197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919173   (583974) от 18.07.2015
-
-Шарль Перро | Кот в сапогах (2004) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583974.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник сказок Ш. Перро включены наиболее популярные из них: Золушка, или хрустальная туфелька; Подарки феи; Спящая красавица; Кот в сапогах; Мальчик-с-пальчик; Ослиная шкура; Синяя борода.
-
-Для младшего школьного возраста.Жанр: СказкиПеревод: И. С. ТургеневФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276DC16CC5A51792DD451DC3CE073AA4106696AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717155   (583373) от 08.08.2016
 
 Шел Силверстайн | Лафкадио, или Лев, который отстреливался (2011) [PDF]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -683,6 +577,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98246C363B4591930528C2E778DA2534A40F35FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041897   (581420) от 10.08.2016
+
+Александр Андерсон | Аликс и монеты (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Элизиум»
+Первая книга захватывающей серии фэнтези ЭЛИЗИУМ. Автор, молодой российский писатель Александр Андерсон, — победитель конкурса «Новая детская книга». Героиня книги девочка Аликс в поисках пропавшей семьи проникает в таинственный мир Междустенья, у которой есть и другое, тайное, название — Элизиум. Проводник по этому миру — таинственный (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999F7C0D5475E62050EB105C1B159BDF1FDE3CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041854   (581392) от 10.08.2016
+
+Евгений Гаглоев | Спящая во льдах (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Пардус»
+В третьей книге серии «Пардус» Никита возвращается в Санкт-Эринбург после каникул. Позади – бурное лето, знакомство с оборотнями, девушкой-клоном Ксенией и смертельно опасными дамами Оболдиной и Савицкой. Впереди – школа, уроки, дополнительные занятия по химии. Но враги не оставляют Никиту в покое. Они уже знают, где его искать, они подобрались (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90EBA97A89990A48409CFB563DACDEFE133D012D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041850   (581389) от 10.08.2016
+
+Евгений Гаглоев | Повелевающая огнем (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Пардус»
+Во второй книге серии «Пардус» Никита еще глубже проникает в страшный мир экспериментов профессора Штерна, а также слегка приоткрывает завесу над тайной предсказания о Наследнике-оборотне. Но, похоже, он слишком часто сует любопытный нос в чужие тайны, — у него появляется множество могущественных врагов, которые мечтают уничтожить его. (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D2D10BCBD012460EC0FD1B37380E29930CB685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041856   (581380) от 10.08.2016
+
+Евгений Гаглоев | Сотрясающий землю (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый роман цикла «Пардус»
+В четвертой книге серии «Пардус» из тени наконец-то выходит профессор Штерн со своей прекрасной дочерью. Их появление вызывает цепь страшных и кровавых событий, которые конечно же затрагивают Никиту и самых близких ему людей. И в буквальном, и в переносном смысле земля уходит у него из-под ног, тучи воронья кружат над головой, да еще (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2BF5FFFB526C34E5F6F9EAB999A795292183E6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

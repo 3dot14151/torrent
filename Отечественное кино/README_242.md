@@ -1,3 +1,107 @@
+###  Публикация: 1694083   (121299) от 23.01.2024
+
+Для начинающих любить (2010) HDTVRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм о нелюбви, точнее о неумении любить. Герои картины как будто бы любят друг друга. Все правильно, все как у всех, но вот за этим «как будто» и кроется подмена, исчезает самое главное - подлинность чувств, ответственность, готовность жертвовать. И тогда любовь становится «как бы любовью». И только Ирина, юная героиня фильма, будучи существом поэтичным и (   Читать дальше...   )Производство: Россия / ДебютЖанр: мелодрамаРежиссер: Людмила ГладункоАктеры: Дмитрий Миллер, Александр Власов, Анна Казючиц, Дарья Михайлова, Ирина Климова, Наталья Пярн, Мария Радькова, Мария Шамшина, Екатерина Радченко, Алексей ЦокурСубтитры: отсутствуютПродолжительность: 01:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152DE943E682364830BE69BA1403353102844644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694212   (121233) от 24.01.2024
+
+Своя война. Шторм в пустыне (2021) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Иван давно вернулся с войны. Но война не отпускает его: он продолжает в нее играть, что уже стоило ему отношений с женой, а теперь может стоить и жизни. Иван отправляется в Сирию под видом иностранного военного корреспондента по имени Джон.Производство: Россия, Кинокомпания 22, Кинокомпания CTB / СТВЖанр: военный, драма, триллер, историяРежиссер: Алексей ЧадовАктеры: Алексей Чадов, Виталий Кищенко, Кристина Асмус, Виктор Сухоруков, Ола Кейру, Невия Тафара, Джалил Асретов, Никита Кологривый, Александр Красовский, Петр КоролёвПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A784158214D7470CC0B5434A8DEB42BB5F91538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693966   (121230) от 24.01.2024
+
+Капитан Волконогов бежал (2021) BDRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ленинград, 1938 год. Сотрудник органов капитан Фёдор Волконогов, поняв, где он работает и что делает, пускается в бега от бывших сослуживцев. Ему является расстрелянный сослуживец-друг и сообщает, что в аду его ждут муки вечные, но этого можно избежать, если перед смертью покаяться, и если хотя бы один из родственников репрессированных его простит. Капитан Волконогов (   Читать дальше...   )Производство: Россия, Эстония, Франция / Homeless Bob Production, KinoVista, Look-filmЖанр: триллер, драмаРежиссер: Наташа Меркулова, Алексей ЧуповАктеры: Юра Борисов, Тимофей Трибунцев, Александр Яценко, Никита Кукушкин, Владимир Епифанцев, Анастасия Уколова, Наталья Кудряшова, Дмитрий Поднозов, Виктория Толстоганова, Юрий КузнецовСубтитры: отсутствуютПродолжительность: 02:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDCD76E49D7FB8CECB11CE3E818A617D6186C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694791   (120831) от 26.01.2024
+
+Как Спрятать Труп? (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара, во время ссоры в машине сбивает человека. Пытаясь скрыть труп, попадая в нелепые ситуации, они неожиданно начинают разбираться в собственных отношениях.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Артём ВоронАктеры: Алексей Савин, Дарья Ключарева, Никита Мышкин, Александр ПирковСубтитры: отсутствуютПродолжительность: 00:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBA80B4B9EF2A08675E26BD4ABD238A9949F243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694085   (120784) от 26.01.2024
 
 Для начинающих любить (2010) HDTVRip [H.264]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1F9B1509515BE3CD6DF804F84380DEC2962A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698333   (118527) от 09.02.2024
-
-Мерцание (2023) WEB-DL [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кажущаяся незначительной травма головы приводит к тому, что молодая красивая девушка заболевает психическим расстройством, проявление которого именуется медицинским термином «мерцание». Теперь в ее теле живут два совершенно противоположных человека. Одна из них любит и готова любить, другая готова убивать всех ради достижения своей цели. Неизвестно, уживутся ли они (   Читать дальше...   )Производство: Россия / Берг СаундЖанр: Триллер, фантастикаРежиссер: Павел ЕреминАктеры: Марианна Васильева, Кристина Беккер, Владимир Кочуров, Тимофей Якомульский, Игорь Лебедев, Наталья СамойловаПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B290F81D5749B4558DBE60533F316A8D3E162C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698050   (118519) от 09.02.2024
-
-Панические атаки (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вика страдает паническими атаками и нервными проявлениями. В её родном городе это связывают с экологией или древним проклятием. Но попадая в другую страну, она совершает преступление, найти причины которого оказывается совсем не просто.Производство: Россия /  ВЕГА ФильмЖанр: драмаРежиссер: Иван И. ТвердовскийАктеры: Лена Тронина, Сергей Двойников, Дарья Савельева, Светлана Камынина, Ксения Мери, Аня Нова, Сергей Уусталу, Алина Шульга, Елизавета Медведева, Марина КлещёваПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5D8335B5C8ADBCB618F6830FB7CD5A6938A268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699404   (117837) от 13.02.2024
-
-Рядовой Чээрин / Siberian Sniper (2021) BDRip [H.264/1080p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубокая осень 1943 года. Немецкие снайперы хозяйничают на передовой. Молодой охотник Егор Чээрин, только прибывший на фронт, становится снайпером. В первом же бою ему удается проявить себя, он вступает в схватку с немецкими захватчиками и меняет баланс сил на передовой.Производство: Россия / MAGDIS, СахафильмЖанр: военный, история, боевик, драмаРежиссер: Дмитрий КольцовАктеры: Айтал Степанов, Александр Казанцев, Даниил Журавлев, Дмитрий Кольцов, Павел Погодаев, Геннадий Куникеев, Вячеслав Югов, Юрий Гаретовский, Дмитрий Варенов, Юрий МарковСубтитры: Русские (Forced)Продолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5574777B387846A2037B907173B8693BC0B4DBB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699769   (117724) от 14.02.2024
-
-Русский характер (2014) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117724.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013-й год. Украина. Военный моряк Максим Фадеев приезжает из Санкт-Петербурга в Крым, получив телеграмму о смерти деда. Здесь, в Крыму, прошло детство Максима. Отсюда он уехал поступать в Суворовское училище. Здесь живут его друзья и близкие... Максим узнает, что расположенный на берегу моря поселок терроризирует банда некоего Волощука, жестокого и беспринципного (   Читать дальше...   )Производство: Россия / Триикс МедиаЖанр: драма, криминалРежиссер: Александр ЯкимчукАктеры: Александр Фисенко, Сергей Никоненко, Евгений Бакалов, Наталья Мартынова, Александра Никифорова, Любовь Завадская, Кирилл Полухин, Егор Баринов, Глеб Степан Каллистов, Витас ЭйзенахСубтитры: РусскиеПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FE3E2A9E96DD2F5988AD173A5FE12DF64F55D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

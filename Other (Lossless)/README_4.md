@@ -1,3 +1,32 @@
+###  Публикация: 957122   (327503) от 17.11.2015
+
+VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Quintento Real / Canaro En Paris    [0:02:50.59]
+02. Melingo / Noche Trasfigurada    [0:01:31.10]
+03. Ramiro Gallo Quinteto / Al Amiga Pablo Rago    [0:04:21.01]
+04. Carlos Gardel / Anclao En Paris    [0:02:07.12](   Читать дальше...   )Жанр: tangoПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C9F667DB7402B9E9CC074C1DABA4BCFD15131D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958050   (325628) от 19.11.2015
 
 VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Electronic, Jazz, Rock, Latin, Funk / Soul>
@@ -6,7 +35,7 @@ VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Elect
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +93,7 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -94,7 +123,7 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -123,7 +152,7 @@ VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Sound
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -152,7 +181,7 @@ Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -181,7 +210,7 @@ Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hug
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -210,7 +239,7 @@ Various Artists - Наши песни - Песни Победы (2001) [APE|loss
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -236,7 +265,7 @@ Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -265,7 +294,7 @@ I.E.M. (The Incredible Expanding Mindfuck) - Untitled (Complete IEM) - 2010 [FLA
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -295,7 +324,7 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -329,7 +358,7 @@ CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -365,7 +394,7 @@ Subaudition - 2 albums (2006-2009) [APE/FLAC|Lossless] <Neofolk, Atmospheric Roc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +426,7 @@ Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Me
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -432,7 +461,7 @@ Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neof
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -467,7 +496,7 @@ Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chil
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +531,7 @@ VA - Cтаринные русские романсы. Золотая колле�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -537,7 +566,7 @@ Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listenin
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -601,7 +630,7 @@ Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -630,7 +659,7 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -665,7 +694,7 @@ David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -700,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -729,7 +758,7 @@ ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -758,7 +787,7 @@ VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossle
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -772,35 +801,6 @@ VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B6884CD959A72C8D8FF7204F1DC91174137F892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641765   (235120) от 25.06.2023
-
-Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional Mexican>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ROSA PASTEL [00:03:24]
-02. LUNA [00:02:43]
-03. 77 [00:03:35]
-04. RUBICON [00:03:58](   Читать дальше...   )Жанр: Regional MexicanПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8AAC90B402128D0441ED6E3FB3DBDB613724A00
 ```
 
 https://mybot314.ru/tekegram_catalog/

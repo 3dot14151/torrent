@@ -1,3 +1,83 @@
+###  Публикация: 616744   (974434) от 10.02.2013
+
+Antology Gothic / Антология Gothic [Ru/En/De] (L) 2001 - 2011
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Игрок, попавший в мир «Готики», получает небывалую для ролевых игр степень свободы. Трёхмерная вселенная Мордрага дарует ему возможность пройти по ней любым путём, жить и умереть под небом Миртаны так, как захочется именно ему. Для решения любого квеста найдётся несколько разных способов, а выбор может изменить судьбу персонажа. Только одной свободы игрок будет лишен — он не сможет покинуть этот мир, не изучив его до мельчайших подробностей, не исследовав все его земли и не познакомившись со всеми его обитателями. Он не сможет уйти, не освоив искусство боя, первоначально кажущееся простым, но постепенно раскрывающее все свои тонкости, овладев которыми можно за счет мастерства побеждать противников, значительно превосходящих силой. И даже когда покажется, что все уже изведано, обязательно откроётся что-нибудь новое — таков уж этот прекрасный, полный опасностей и загадок мир. Мир, которым награждает своих пленников «Готика».
+(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Spellbound EntertainmentЖанр: Add-on (Standalone) / RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17159C84C1D49A99A4DC961932BE1102712FCD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357193   (973885) от 03.02.2020
+
+Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В течение многих лет жители Вамп’Ира жили в мире и покое. Однако, всё чаще люди говорят о властелине тёмной магии - Чернокнижнике. Опасаясь, что слухи подтвердятся и готовясь к худшему, деревня собирает отряд сопротивления. Вы новобранец, примкнувший к рядам защитников, но ещё не знаете, что для вас судьба приготовила нечто особенное... Эта игра – дань классическим (   Читать дальше...   )Тип издания: RepackРазработчик: Early Morning StudioЖанр: RPG, Strategy, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3881C31255D1251F34C56DD8E39223189618FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617084   (973053) от 11.02.2013
+
+Drakensang Dilogy / Дилогия Drakensang [Ru/En] (L) 2009-2010
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Перед вами – настоящее возрождение жанра! Игра основана на самой успешной серии немецких настольных ролевых игр – Das Schwarze Auge. Порядочно подзабытые каноны ролевых игр возвращаются вместе с эпическими приключениями отряда героев. Всего в игре представлено порядка двадцати различных классов, у девяти из них есть возможность выбора особой специализации. Продвинутая ролевая составляющая и многочисленные возможности развития персонажей специально адаптированы и упрощены по сравнению с настольным вариантом игры. Диалоги с NPC играют важную роль и напрямую зависят от различных умений и способностей героев.
+(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Radon LabsЖанр: RPG / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F986DA90FB489929364702FCB1D5F7184FC911B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331466   (972699) от 04.02.2020
 
 Pine (2019) [Ru/Multi] (1a21a22c/Patch 7) Repack Other s
@@ -6,7 +86,7 @@ Pine (2019) [Ru/Multi] (1a21a22c/Patch 7) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +112,7 @@ Divinity: Original Sin (2015) [Ru/Multi] (2.0.119.430) Repack xatab [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +138,7 @@ GOD EATER 3 (2019) [Ru/Multi] (2.40) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +164,7 @@ The Quest (2015) [En] (1.6.7) Repack Animanyak
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +190,7 @@ Atelier Dusk Trilogy (2020) [Multi] (1.0) License CODEX [Deluxe Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +216,7 @@ Ys I & II Chronicles [En] (L) 2013 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +242,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +268,7 @@ Victor Vran ARPG (2015) [Ru/En] (2.07.20190131/dlc) Repack Other s [Overkill Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +294,7 @@ WARSAW (2019) [Ru/Multi] (Build 103) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +320,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru/En] (1.0.0.2/dlc) Repack R.G. Меха�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +346,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (ph3 update/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +372,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +398,7 @@ Costume Quest + 1 DLC [Ru] (Repack/1.0.0.11) 2013 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +424,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +450,7 @@ Risen 3: Titan Lords (2015) [Ru/Multi] (3.0.30.0/dlc) License PLAZA [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +476,7 @@ Risen [Ru/En/Multi7] (L) 2009 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +504,7 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +530,7 @@ Conglomerate 451 (2020) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +556,7 @@ Inquisitor / Инквизитор (2012) [Ru/En] (1.10.17) Repack R.G. Меха�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +582,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +608,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +634,7 @@ Mount & Blade: With Fire and Sword / Mount & Blade. Огнем и мечом - �
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +660,7 @@ Fallout 2 (1998) [En] (1.02d) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -591,84 +671,6 @@ Fallout 2 - культовая ролевая игра, справедливо �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:437430D1A419AE4C54A84B25B35ECA83F4839E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092624   (938098) от 12.01.2017
-
-Darkest Dungeon (2016) [Ru/Multi] (16708) SteamRip Let'sPlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkest Dungeon — сложная пошаговая ролевая roguelike-игра с готической атмосферой, в которой приключения персонажей сказываются на их душевном здоровье. Вам предстоит собрать, обучить и возглавить команду героев, у каждого из которых есть свои недостатки.Тип издания: SteamRipРазработчик: Red Hook StudiosЖанр: RPG (Rogue, Action)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865BC18F8DF179A441A63389501B8D3517C7CC76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628324   (936097) от 10.03.2013
-
-Sword of the Stars: The Pit [En] (L) 2013 | COGENT
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра создается по мотивам серии космических стратегий Sword of the Stars. По сюжету игрокам предстоит спасти планету от ужасной эпидемии, и для этого главному герою предстоит отправиться в недра древней лаборатории пришельцев, чтобы отыскать заветное лекарство.(   Читать дальше...   )Тип издания: ЛицензияЖанр: RPG (Rogue/Action) / Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F66D7977B6F182654190BE271F584C4344467E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092797   (934699) от 14.01.2017
-
-Transistor (2014) [Ru/Multi] (1.42500) SteamRip Let'sPlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transistor — научно-фантастическая игра в жанре Action RPG от создателей Bastion, в которой вам предстоит путешествовать по завораживающему футуристическому городу, защищая свою жизнь при помощи невероятного оружия неизвестного происхождения.Тип издания: SteamRipРазработчик: Supergiant GamesЖанр: RPG, Action, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5720BCE7BD7BF1873EFB562DB83DA0003F80ADE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

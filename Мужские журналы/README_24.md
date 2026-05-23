@@ -1,3 +1,115 @@
+###  Публикация: 1807060   (11253) от 17.07.2025
+
+Журнал | BOUDOIR Inspiration (BOUDOIR) (июль 2025) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07958A3D883CEE6A88CFE31D726DEA8479C4513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812505   (7807) от 15.08.2025
+
+Журнал | BOUDOIR Inspiration (ARTISTIC NUDE) (август 2025) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: ARTISTIC NUDE IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF678C24DC1BC6EA11BB8172D3DC623EF0E112A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812642   (7773) от 15.08.2025
+
+Журнал | BOUDOIR Inspiration (BOUDOIR) (август 2025) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85F918683EECA23B6BCABB1D7DC000DE918EBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817838   (3059) от 13.09.2025
+
+Журнал | BOUDOIR Inspiration (ARTISTIC NUDE) (сентябрь 2025) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: ARTISTIC NUDE IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E597989B4F31D4F94DE107AD95CCACD0F59FB05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817845   (3058) от 13.09.2025
 
 Журнал | BOUDOIR Inspiration (BOUDOIR) (сентябрь 2025) [PDF] [EN]
@@ -6,7 +118,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

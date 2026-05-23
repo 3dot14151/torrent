@@ -1,3 +1,81 @@
+###  Публикация: 1337339   (274646) от 10.11.2019
+
+Город влюблённых (2018) WEBRip (сезон 1, серии 1-20 из 20)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Саша, Ева и Инга – три подруги, которые пытаются справиться с личными проблемами. Александра тележурналистка, Инга ресторатор, а Ева переводчица. Несмотря на несостоявшуюся личную жизнь, все они пытаются продолжать поддерживать позитивный настрой и не терять надежды на то, что в скором времени им наконец-то удастся познать женское счастье...Производство: УкраинаЖанр: мелодрамаРежиссер: Антон ГойдаАктеры: Екатерина Мельник, Марина Коняшкина, Кирилл Жандаров, Юлия Такшина, Марина Бородина, Евгений Морозов, Андрей Финягин, Анастасия Сердюк, Артемий Егоров, Анатолий Зиновенко и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3B357A05AEB67F2FF23C82C55556EDE41DD465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264381   (271746) от 30.11.2018
+
+Кто ты? (2018) WEBRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В центре истории - психотерапевт Инга Штефан, которая после странной гибели нескольких пациентов и исчезновения жениха, начинает сотрудничество с убойным отделом полиции. Помогая правоохранительным органам расследовать очередное дело, героиня пытается поставить себя на место убийцы и найти ответы на вопросы: "Кто ты?", "Что тобой движет?". Параллельно (   Читать дальше...   )Производство: Украина / Кинокомпания "УПС"Жанр: детектив, криминалРежиссер: Анатолий МатешкоАктеры: Екатерина Кузнецова, Антон Батырев, Ярослав Гуревич, Мирослав Павличенко, Игорь Пазыч, Анастасия Походенко-Матешко, Олег Примогенов, Ренат Сеттаров, Владимир Абазопуло, Елена Хохлаткина и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83BF77D470AB0BD2548F0068DCD93D162B1081C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264352   (271744) от 30.11.2018
+
+Кто ты? (2018) WEBRip [H.264/1080p-LQ] (серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В центре истории - психотерапевт Инга Штефан, которая после странной гибели нескольких пациентов и исчезновения жениха, начинает сотрудничество с убойным отделом полиции. Помогая правоохранительным органам расследовать очередное дело, героиня пытается поставить себя на место убийцы и найти ответы на вопросы: "Кто ты?", "Что тобой движет?". Параллельно (   Читать дальше...   )Производство: Украина | Кинокомпания "УПС"Жанр: детектив, криминалРежиссер: Анатолий МатешкоАктеры: Екатерина Кузнецова, Антон Батырев, Ярослав Гуревич, Мирослав Павличенко, Игорь Пазыч, Анастасия Походенко-Матешко, Олег Примогенов, Ренат Сеттаров, Владимир Абазопуло, Елена Хохлаткина и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F1C6BB28940746E164A71F88E52A458F43B973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265983   (269100) от 03.12.2018
 
 Кто ты? (2018) WEB-DLRip (сезон 1, серии 1-16 из 16)
@@ -6,7 +84,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -590,85 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9D9B57DED0FE4AD5FA8351CEA191679ECC6070B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424467   (227403) от 17.11.2020
-
-Семейный портрет (2020) HDTVRip (сезон 1, серии 1-4 из 4)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родные братья Артём и Фёдор Быковы выбрали разные жизненные пути. Артём сделал карьеру в столице, став правой рукой крупного бизнесмена Степана Крылова. Фёдор остался в родном городе и скромно работал с отцом в местном автосервисе. Братья знали: что бы ни случилось, они могут прийти в родительский дом и здесь найти помощь и утешение. Однажды с отцом братьев случается (   Читать дальше...   )Производство: Украина / Filmstream, Vileton FilmsЖанр: мелодрамаРежиссер: Николай МихайловАктеры: Артур Логай, Пётр Рыков, Анастасия Иванова, Дарья Легейда, Александр Крыжановский, Лариса Руснак, Юрий Гребельник, Георгий Хостикоев, Наталия Васько, Полина Носыхина и др.Язык озвучки: РусскийСубтитры: Украинские (hardsub)Продолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADE4F8052513684474146EE47FE25788FC8DCD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341947   (227061) от 30.11.2019
-
-Мертвый. Живой. Опасный (2006) HDTVRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня — молодая, милая и интеллигентная сотрудница библиотеки Лада, которая становится жертвой обстоятельств и неожиданно попадает в жизненный водоворот, который в один миг разрушил ее спокойный устоявшийся мир. Ее жизнь чем дальше, тем больше напоминает кошмарный сон или фильм ужасов, в котором нет надежды на хэппи-энд. Любимый муж пропал, а следователь (   Читать дальше...   )Производство: Украина / Film.uaЖанр: триллер, детективРежиссер: Сергей КрутинАктеры: Александр Ефимов, Анна Герм, Максим Аверин, Елена Коренева, Алексей Маклаков, Надежда Маркина, Михаил Горносталь, Владимир Талашко, Нина Антонова, Вячеслав НиколенкоЯзык озвучки: русскийПродолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB699140261FCD48CB77FD32917F878D19715317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736510   (223289) от 20.12.2013
-
-Нюхач (2013) HDTVRip [H.264/1080p-LQ] (серии 1-8 из 8)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его зовут Нюхач. Он обладает сверхчувствительным обонянием, для него не существует тайн и нераскрываемых преступлений. По запаху Нюхач может рассказать все и даже больше о любом человеке: что он ел, с кем он спал, есть ли у него алиби. Уникальная способность Нюхача — его дар и проклятие одновременно.
-С одной стороны, он раскрывает самые изощренные и запутанные преступления, (   Читать дальше...   )Производство: Украина, Film.ua ProductionЖанр: Детектив, Драма, КриминалРежиссер: Артем ЛитвиненкоАктеры: Кирилл Кяро, Иван Оганесян, Мария Аниканова, Нина Гогаева, Борис Каморзин, Тимофей Каратаев, Виолетта Трыкова, Тарас Готовцев, Денис Мартынов, Александр Новосёлов, Дмитрий Усов, Пётр КрыловПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7EAED8709E4BA4E0ED53361D2FCF92FCA763F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

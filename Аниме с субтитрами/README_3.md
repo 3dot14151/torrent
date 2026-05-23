@@ -1,3 +1,111 @@
+###  Публикация: 1847836   (1052495) от 21.01.2026
+
+Odayaka Kizoku no Kyuuka no Susume. | A Gentle Noble's Vacation Recommendation | Отпуск для скромного дворянина [2026, TV, 2 из 12] WEBRip 720р raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Когда Лизел таинственным образом оказывается в городе, который странным образом напоминает его родной, но явно им не является, он быстро смиряется с невероятной правдой: это совершенно другой мир. Но даже несмотря на это, спокойный Лизел не из тех, кто поддается панике. Он сразу же решает узнать больше об этом странном месте и, чтобы помочь себе в этом, нанимает (   Читать дальше...   )Производство: SynergySPЖанр: повседневность, фэнтезиРежиссер: Noda KentaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B292F2CC3777E16D59C8F8395A7345188F3B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847564   (1052161) от 19.01.2026
+
+Hime-sama Goumon no Jikan Desu (2026) | Tis Time for Torture, Princess (2026) | Время пытки, принцесса [ТВ-2] [2026, TV, 1 из 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории "пыток" ^_^
+
+Война между королевством и демонической ордой не утихает, и принцесса, вооружённая легендарным мечом, попадает во вражеский плен. В темнице её ожидают страшные пытки: свежеиспечённые тосты, густой рамэн и другие лакомства. Удастся ли принцессе сохранить секреты королевства?
+© crunchyrollПроизводство: студия Pine Jam / パインジャムЖанр: комедия, фэнтезиРежиссер: Канамори ЁкоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF2A167CB532915FFB0FDABDF7DCBF1E7117F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847545   (1052160) от 19.01.2026
+
+Fate/Strange Fake | Судьба: Странная подделка [2026, TV, 2 из 13] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о Фальшивой Войне Святого Грааля, основанной на Третьей Войне Святого Грааля, происходившей в городе Фуюки. После её завершения базирующаяся в США организация магов, отличная от лондонской Ассоциации Магов, использовала данные о ней для своего собственного ритуала. Семьдесят лет спустя город Сноуфилд в Калифорнии был избран Священной Землёй для (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Энокидо СюнПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477ED752CF8F3AA13855BCB344ADB5FB827A32F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847353   (1052106) от 18.01.2026
+
+Akuyaku Reijou wa Ringoku no Outaishi ni Dekiai Sareru | The Villainess Is Adored by the Prince of the Neighbor Kingdom | Принц соседней страны обожает злодейку [2026, TV, 1 из 12] WEBRip 720р raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+За день до своего падения леди Тиарароуз Лапис Клементиль вспоминает, что она находится в игре отомэ, в которую она когда-то играла в своей прошлой жизни. Раньше она обожала главного героя, принца Хартнайта Лапис-Лазули Лактомута, но, к сожалению, она реинкарнировалась не в героиню, а в его злейшую врагиню — злодейку-невесту.
+На церемонии вручения дипломов Хартнайтс, (   Читать дальше...   )Производство: Studio DeenЖанр: романтика, фэнтезиРежиссер: Hamana TakayukiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0236A803FEEEC3365D0BB802C6A9B8DE9CE32420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847372   (1052091) от 18.01.2026
 
 Uruwashi no Yoi no Tsuki | In the Clear Moonlit Dusk | Прекрасная вечерняя луна [2026, TV, 1 из 12 эп.] WEBRip 720р raw
@@ -6,7 +114,7 @@ Uruwashi no Yoi no Tsuki | In the Clear Moonlit Dusk | Прекрасная ве
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +140,7 @@ Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +167,7 @@ Hikuidori: Ushuu Boro Tobi-gumi | Oedo Fire Slayer: The Legend of Phoenix | Ог
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -88,7 +196,7 @@ You and I Are Polar Opposites | Seihantai na Kimi to Boku | Ты и я полн�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -115,7 +223,7 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -143,7 +251,7 @@ Jingai Kyoushitsu no Ningengirai Kyoushi / A Misanthrope Teaches a Class for Dem
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -169,7 +277,7 @@ Yuusha no Kuzu / Scum of the Brave / Герой-мерзавец [2026, TV, 1 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -195,7 +303,7 @@ Kuro no Tsuki: Tsuki no Saidan | Dark Moon: The Blood Altar Animation | Тёмн
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -222,7 +330,7 @@ Dead Account | Мёртвый аккаунт [2026, TV, 1 из 12 эп.] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -248,7 +356,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кая не боится [2026,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -274,7 +382,7 @@ Champignon no Majo | Champignon Witch | Шампиньонная ведьма [2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +409,7 @@ Enen no Shouboutai San no Shou (2026) | Fire Force (2026) | Пламенная �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -327,7 +435,7 @@ Douse, Koishite Shimaunda. 2 | Anyway, I`m Falling in Love with You. (2026) | В
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -355,7 +463,7 @@ Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen | Jujutsu Kaisen: The Culling Game Part
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -381,7 +489,7 @@ Eris no Seihai / The Holy Grail of Eris / Святой Грааль Эрис [20
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -407,7 +515,7 @@ Toumei Otoko to Ningen Onna: Sonouchi Fuufu ni Naru Futari / The Invisible Man a
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -433,7 +541,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na to Yuusha Party o Tsuihou Sareta node, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -459,7 +567,7 @@ Champignon no Majo / Champignon Witch / Грибная ведьма [2026, TV, 2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -486,7 +594,7 @@ Shibou Yuugi de Meshi o Kuu. | Playing Death Games to Put Food on the Table | С
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -512,7 +620,7 @@ Tsutsu Yume Gunnm / Battle Angel Alita / Боевой Ангел Алита [199
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -538,7 +646,7 @@ Shibou Yuugi de Meshi o Kuu. / Playing Death Games to Put Food on the Table / И
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,7 +672,7 @@ Arne no Jikenbo | The Case Book of Arne | Дело Арне [2026, TV, 1 из 12
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -575,111 +683,6 @@ Arne no Jikenbo | The Case Book of Arne | Дело Арне [2026, TV, 1 из 12
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1DD16D5EAF5FC2E654FED9D6B1A90AF839F57B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846463   (1051337) от 21.01.2026
-
-Okiraku Ryoushu no Tanoshii Ryouchi Bouei |  Весёлая защита владений беспечного лорда: Превращение безымянной деревни в неприступную крепость с помощью производственной магии [2026, TV, 1 из 12] WE ...
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой переродился в другом мире четвёртым сыном могущественного дворянина по имени Ван. Но из-за того, что Вану была дарована сила «производственной магии», не подходящая для дворянина, его изгнали из родового дома в отдалённую бедную деревню и назначили её лордом. Однако Ван начинает счастливо жить в изгнании, использую свои магию и знания из прошлой жизни, (   Читать дальше...   )Производство: NazЖанр: фэнтези, исекайРежиссер: Kuriyama Takayuki, Tatamitani TetsuyaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7A75EF5105948FFC92A184478B0A99FF919D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846496   (1051322) от 21.01.2026
-
-29-sai Dokushin Chuuken Boukensha no Nichijou / The Daily Life of a Single 29-Year-Old Adventurer / Повседневная жизнь одинокого 29-летнего авантюриста [2026, TV, 1 из ?] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о Синономе Хадзиме, авантюристе из Серебряного хребта. Он посвятил себя выполнению заданий от гильдии. Однажды, выполняя квест по добыче мяса монстров, он находит в подземелье странную девушку по имени Лили, которая доставляет ему гораздо больше хлопот, чем приносит пользы. Спасая девушку от верной гибели, он вспоминает о своем похожем прошлом и берет (   Читать дальше...   )Жанр: приключения, комедия, повседневность, фэнтези.Режиссер: Фукусима ТосинориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 минут.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D26FF58312FDB37DDD98731F98E21FD505426F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846310   (1051315) от 
-
-Isekai no Sata wa Shachiku Shidai | Isekai Office Worker: The Other World's Books Depend on the Bean Counter | Судьба параллельного мира в руках трудоголика [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже находясь на грани отчаяния, 29-летний корпоративный раб Сэйитиро Кондо внезапно становится свидетелем того, как земля раскрывается и поглощает женщину. В попытке спасти ее, они оба попадают в другой мир. Вскоре он узнает, что жители этого мира вызвали святого, чтобы спасти свое королевство от чумы. В качестве компенсации за то, что втянули Кондо в эту заварушку, (   Читать дальше...   )Производство: Studio DeenЖанр: исекай, фэнтезиРежиссер: Ishihira ShinjiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB2136C4663B410BC97956976E7ADBAE37FFC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846330   (1051311) от 20.01.2026
-
-Maou no Musume wa Yasashi Sugiru!! / The Daughter of the Demon Lord is Too Kind! / Дочь короля демонов слишком добрая! [2026, TV, 2 из ?] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051311.jpg" />
-</div>
-
-
-###  Подробнее
-
-У демона Аримана есть проблема: его дочь Ду любит всех! В результате Ариман был вынужден приостановить свое вторжение в мир, опасаясь, что поведение его дочери не соответствует ее роду. Она любит заводить друзей, помогать другим и приносить счастье всем существам, включая своих врагов, людей.
-Однако Ариман, вместо того чтобы ругать Доу, поздравляет ее с добрыми поступками. (   Читать дальше...   )Жанр: комедия, повседневность, фэнтези.Режиссер: Ота МасахикоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 минут.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870E86AF91FB005EE582A969320A2E4F5DE3945E
 ```
 
 https://mybot314.ru/tekegram_catalog/

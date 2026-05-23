@@ -1,3 +1,61 @@
+###  Публикация: 1427630   (181567) от 30.11.2020
+
+Tab Smith - Top 'N' Bottom (1953, 1954) 1997, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Top 'n' Bottom [2:50]
+02. My Ideal [3:19]
+03. Mr. Gee [2:49]
+04. Don't Get Around Much Anymore [2:59](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC5EBAF7A02C2DDFBDD0F235AF1C9E86FCACF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427629   (181541) от 30.11.2020
+
+Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Cottage for Sale [3:28]
+02. Sunny Side of the Street [2:42]
+03. Tis Autumn [2:55]
+04. Teddy's Brannin' [2:50](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927C2F1867FA29C57AD81CCB210D238E67F37818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431716   (181454) от 25.11.2022
 
 Candy Dulfer - 16 albums, 4 singles, 26 CD (1989-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Jazz, Funk, Soul>
@@ -6,7 +64,7 @@ Candy Dulfer - 16 albums, 4 singles, 26 CD (1989-2022) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Peggy Lee - The Best of Miss Peggy Lee (1945-1969)1998, Capitol Records[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The Columbia Jazz Piano Moods Sessions (1949 - 1952) 7CD, 2000, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Paul Bley Trio - Complete Savoy Sessions (1962-1963) 2008, Gambit Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Paquito D'Rivera & Trio Corrente - Song For Maura (2013) Sunnyside [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Jack McDuff - The Heatin' System (1972) 2007, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Vainoras and the altar of the drill - Develop your eyesight for the darkness (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Barbara Lea - Remembering Remembering Lee Wiley (1995) Audiophile[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - The Complete Bee Hive Sessions (1977 - 1984) 12CD, 2015, Mosaic Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Hal Galper Quintet - Live At The Berlin Philharmonic (1977, 19768) 2CD, 2021, Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Art Pepper - The 1975 Garden State Jam Sessions (2005) 2CD, Lone Hill Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +412,7 @@ Eddie Daniels & Roger Kellaway - A Duet Of One (2005) 2008, IPO Recordings [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -383,7 +441,7 @@ Konstantin Klashtorni - Smooth Essence (The Best Of) (2022) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -412,7 +470,7 @@ George Freeman - Rebellion (1995) Southport Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -441,7 +499,7 @@ George Freeman - George Burns! (1999) Southport Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -470,7 +528,7 @@ John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -528,7 +586,7 @@ George Freeman - The Good Life (2023) [FLAC|Lossless|tracks + .cue] <Hard Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Scherzoo - 05 (2020) [FLAC|Lossless|image + .cue] <Zeuhl, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +644,7 @@ Clark Terry - Live At The Village Gate (1991) Chesky Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,7 +673,7 @@ Lee Wiley - Sings the Songs of George & Ira Gershwin & Cole Porter (1939 - 1940)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -644,7 +702,7 @@ Herb Geller - Plays The Arthur Schwartz Songbook (2005) Hep Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -673,7 +731,7 @@ J.C. Heard & Bill Perkins Quintet - Live At The Lighthouse (1964) 2018, Fresh So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -687,64 +745,6 @@ J.C. Heard & Bill Perkins Quintet - Live At The Lighthouse (1964) 2018, Fresh So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D4E5240020A41814761B6E6CC190893D641F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594195   (178811) от 30.11.2022
-
-VA - Kenton Presents Bob Cooper, Bill Holman & Frank Rosolino (1954 - 1961) 4CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178811.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Bob Cooper & Bill Holman:
-01. The Way You Look Tonight [3:15]
-02. Polka Dots and Moonbeams [3:05]
-03. Solo Flight [3:20](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, BopПродолжительность: 04:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB39257E34F6E54AA8A9C4B456E356EB4811246E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428868   (178465) от 04.12.2020
-
-Sonny Clark Trio - Complete Studio Recordings (1954 - 1960) 3CD, 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178465.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Didn't Know What Time It Was (alternate take) [4:22]
-02. I Didn't Know What Time It Was [4:21]
-03. Two Bass Hit [3:47](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 03:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9178A7331345F1786ABC4122E472A4EE93976654
 ```
 
 https://mybot314.ru/tekegram_catalog/

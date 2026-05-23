@@ -1,3 +1,82 @@
+###  Публикация: 1800794   (15459) от 06.06.2025
+
+Анна Петрова | Тайны русской речи (2025) [MP3, Елена Соловьева, Александр Аравушкин, Елена Шемет, Анна Петрова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Данная аудиокнига раскрывает секреты правильной речи и работы с голосом через теорию и интервью с великими мастерами сцены.
+Она поможет вам улучшить дикцию, интонацию и выразительность, что полезно не только актерам, но и каждому, кто хочет научиться лучше говорить.Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 15:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371C5DC350FC0B65497403B445AA380FAB16F995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800930   (15343) от 07.06.2025
+
+Ирина Булюбаш | Руководство по гештальт-терапии (2011) [MP3, Дядюшка Китай]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Одно из наиболее полных пособий по теории и технике гештальт-терапии адресовано всем, кого интересуют вопросы психологии и философии. Простым и внятным языком гештальттерапевт Ирина Булюбаш рассказывает об основных идеях и концепции гештальт-подхода в психологии и терапии, расшифровывает его базовые принципы и понятия, рассказывает об этических аспектах психотерапии, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 24:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3805A31C51BECAF509AF61158DBAB255CA63746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801081   (15248) от 08.06.2025
+
+Скотт Диккерс | Уже смешно: Как писать комические тексты (2025) [MP3, Сергей Двинянинов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига «Уже смешно: Как писать комические тексты» – ваш путеводитель в мире комедии и юмора. Если вы задавались вопросом, как рассказывать шутки друзьям, как добавить юмора в свои тексты или презентацию, как сделать остроумным устное выступление, то здесь вы найдете простую формулу написания шуток, которую используют профессионалы. Скотт Диккерс научит вас придумывать (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 03:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C233213FA62C27EC7BE153525CD180C68DDD7E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801496   (14992) от 11.06.2025
 
 Алиса Фокс | Техники и позы для всех твоих желаний (2025) [MP3, Дамир Хисматов]
@@ -6,7 +85,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -600,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD932C0AFCD233C54775A9E67277165348C9A4DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820986   (8518) от 30.09.2025
-
-Томас Хертог | О происхождении времени, последняя теория Стивена Хокинга (2025) [MP3, Алексей Ядренников]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бестселлер «Нью-Йорк Таймс».
-Книга, которую ждали и о которой говорят в научных сообществах по всему миру.
-Автор Томас Хертог, ближайший сотрудник, ученик и соратник Стивена Хокинга, озвучивает финальные мысли главной научной суперзвезды о космосе, Вселенной и нашем месте в ней. Томас Хертог провел 20 лет бок о бок с великим ученым, работая над новой теорией космоса, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: БОМБОРА, Правообладатель ЭксмоПродолжительность: 13:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084E1D7385ECDC3224E92FCEE6F07590A5324E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811338   (8439) от 11.08.2025
-
-Михаил Геллер | К началу. История Российской империи (Главы 1, 2) (2025) [MP3, Роман Ильин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Яковлевич Геллер (31 августа 1922, Могилёв, БССР — 3 января 1997, Париж, Франция) — историк, публицист, писатель, критик, диссидент. Автор ряда книг, исследующих различные аспекты русской истории и литературы советского периода, издававшихся в Англии, Франции, Польше, Венгрии и других странах.
-Книга Михаила Геллера «К началу. История Российской империи» представляет (   Читать дальше...   )Жанр: ИсторияИздательство: Аудиокнига своими рукамиПродолжительность: 05:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F273088F001CFD773970F7D5084B9F54A6DF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811650   (8409) от 11.08.2025
-
-Фиби Гансуорси | Выбирай себя каждый день (2022) [MP3, Людмила Пахмутова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная жизнь нередко заставляет нас забывать о главном — о внимании к собственным желаниям и потребностям. В погоне за успехом и внешними достижениями мы забываем прислушиваться к себе и заботиться о внутреннем покое и балансе. Между тем, ощущение гармонии и внутреннего удовлетворения создает условия для прихода настоящего счастья, любви и успеха. Книга Фиби (   Читать дальше...   )Жанр: Аффирмации, Медитации, Привлечение денегИздательство: БОМБОРАПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF691268FE7B1FB5130F49B1EDCE1F74C2228E2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

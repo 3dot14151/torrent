@@ -1,109 +1,3 @@
-###  Публикация: 869118   (894539) от 13.02.2015
-
-Иван Андреевич Крылов | Басни (1948) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Андреевич Крылов - автор замечательных басен, которые любят и взрослые, и маленькие читатели. Его басни стали неотъемлемой частью национальной культуры. Живой разговорный язык, тонкая аллегоричность, беспощадная сатира присущи этим высочайшим образцам русской литературной классики.Жанр: Детская литература, КлассикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DD4A71A2894E06CAC8AAB359A8E523364CA92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993771   (894095) от 06.03.2016
-
-Иван Федорович Крузенштерн | Первое российское плавание вокруг света (2015) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записки выдающегося российского мореплавателя Ивана Федоровича Крузенштерна - увлекательный и подробный рассказ о первой русской кругосветной экспедиции, о том, как Россия налаживала связи с тогда еще российскими Аляской и Калифорнией. Во время плавания «Надежды» и «Невы» был собран такой огромный астрономический, географический и этнографический материал, что он (   Читать дальше...   )Жанр: Детская проза, Путешествия и ГеографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639D0C08A45EC88789C88C0633E730F9C3F1C98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993767   (894081) от 06.03.2016
-
-Фаддей Фаддеевич Беллинсгаузен | Открытие Антарктиды (2015) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894081.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Открытие Антарктиды» - это подробный путевой дневник, который вел выдающийся российский флотоводец Фаддей Фаддеевич Беллинсгаузен во время своего знаменитого кругосветного плавания (1819-1821). За эти годы два российских шлюпа - «Восток» и «Мирный» - исследовали Антарктиду, последнюю неоткрытую до того часть света, континент-загадку, в самом существовании которого (   Читать дальше...   )Жанр: Детская проза, Путешествия и ГеографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713E47D0514E5067B0EBF4A5FE8ED700FB29E099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994047   (893930) от 06.03.2016
-
-Никс Гарт и др. | Звери-воители . Цикл из 4 книг (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конор и Волк, Абеке и Леопард, Мейлин и Панда, Роллан и Ястреб. Жизнь каждого из них отныне связана с их Зверем. Старинная легенда обернулась явью. Но почему магия вернулась в мир людей? Какие испытания ждут юных воинов?
-
-Немногие в королевстве Эрдас могут вызывать дух Зверя-Воителя. Но Конор, Абеке, Мейлин и Роллан обладают этим даром. Открыв в себе суперспособности (   Читать дальше...   )Жанр: Детская фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4D370EC8C9ACE6D061A7A6B547B9C4C6E92A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493704   (893702) от 04.09.2021
 
 Туве Марика Янссон | Сборник произведений [221 книга] (1948-2018) [PDF, FB2, DJVU, EPUB]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -460,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -567,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -593,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -646,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -673,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -684,6 +578,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F36B8D4E8B29A0F73CDDDF8627CB87F58D6F9849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371500   (890196) от 31.03.2020
+
+Павел Соколов | Мальчик с пальчик (1894) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сказки народов мира. В произведениях русских поэтов и писателей.
+Для детей младшего школьного возраста.Жанр: Детская проза, СказкаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D03BB9DEA7E941E81BA4678DE6D062DF84F3BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371551   (890143) от 31.03.2020
+
+Народная сказка | Баба-Яга [4 книги] (1908, 1916, 1918, 1930) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Русская народная сказка.
+Баба-Яга - 1908. Типография Т-ва И.Д. Сытина, Москва. (32 стр.)
+Баба-Яга - 1916. Типография Т-ва И.Д. Сытина, Москва.  (22 стр.)
+Баба-Яга - 1918. Типография Т-ва И.Д. Сытина, Москва.  (22 стр.)(   Читать дальше...   )Жанр: Русские народные сказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F74A424F4DA3516C0614B036704FF4674D1BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994538   (889874) от 08.03.2016
+
+Виктор Авдеев | Моя Одиссея (1960) [FB2, DOC]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: FB2, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CC54ED8ECCAB5E6AB2E590E59A0B147FC7B408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994678   (889737) от 08.03.2016
+
+Галина Щербакова | Вам и не снилось (1977) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+История Ромео и Джульетты, снова вернувшихся в этот мир, история, принесшая известность автору и ставшая бестселлером. Между девятиклассниками Романом и Катей возникает нежное и светлое чувство. Мать юноши, не желающая понять влюбленных, обманом разлучает их. Несмотря на все препятствия, Рома и Катя стремятся быть вместе. Нежелание взрослых понять их чувства в результате (   Читать дальше...   )Жанр: Современная русская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090917E1595923B674E046E55C408B4B653013F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

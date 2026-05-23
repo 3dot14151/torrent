@@ -1,3 +1,81 @@
+###  Публикация: 1638281   (197271) от 08.06.2023
+
+Братья Супер Марио в кино / The Super Mario Bros. Movie (2023) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Братья-водопроводчики Марио и Луиджи открывают портал в подземный город, из которого должны вызволить пленённую принцессу Пич и сразиться с заклятым врагом Боузером.Производство: США, Япония / Universal Pictures, Nintendo Co. Ltd., Illumination EntertainmentЖанр: мультфильм, фэнтези, приключения, комедияРежиссер: Аарон Хорват, Михаэль ЕленикПеревод: дублированный (HotVoice 41)Язык озвучки: русский, английскийСубтитры: русские (forced, full), украинские (forced, full), английскиеПродолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78827FD0FAFA14579305B94FA9E426D6570B6556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640267   (196963) от 17.06.2023
+
+Новые боги: Ян Цзянь / Xin shen bang: Yang Jian / New Gods: Yang Jian (2022) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Спустя тринадцать лет после того, как Ян Цзянь (известный некоторым как Эрлан) заточил свою сестру под горой, некогда могущественный бог теперь перебивается как нищий охотник за головами. Когда загадочная женщина нанимает его для новой работы, Ян Цзянь вскоре обнаруживает, что гоняется за знакомой фигурой. Он должен остановить своего давно потерянного племянника, (   Читать дальше...   )Производство: Китай / Bilibili, Light Chaser Animation Studios, Zhejiang Dongyang Xiaoyuzhou Movie & MediaЖанр: мультфильм, фэнтези, боевикРежиссер: Чжао ЦзиАктеры: Ван Кай, Ли Ланьлин, Цзи Гуаньлинь, Ли Лихун, Ян Тяньсян, Лю Сяоюй, Чжао И, Вэнь Цзинъюань, Тан Шуйюй, Син ЧаоПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBEC64406E9095A5E8E5FDC2151EF6AB1FFAB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639591   (196953) от 16.06.2023
+
+Братья Супер Марио в кино / The Super Mario Bros. Movie (2023) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Братья-водопроводчики Марио и Луиджи открывают портал в подземный город, из которого должны вызволить пленённую принцессу Пич и сразиться с заклятым врагом Боузером.Производство: США, Япония / Universal Pictures, Nintendo Co. Ltd., Illumination EntertainmentЖанр: мультфильм, фэнтези, приключения, комедияРежиссер: Аарон Хорват, Михаэль Еленик, Pierre LeducАктеры: Крис Пратт, Чарли Дэй, Аня Тейлор-Джой, Джек Блэк, Кигэн-Майкл Ки, Сет Роген, Фред Армисен, Себастьян Манискалко, Кевин Майкл Ричардсон, Хари ПэйтонПеревод: Дублированный (Red Head Sound, HotVoice 41), многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DA7B11DE6CF674F1B0A66068A3DE4D94BDE0F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641500   (196766) от 22.06.2023
 
 Братья Супер Марио в кино / The Super Mario Bros. Movie (2023) BDRemux [H.264/1080p] [MVO]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0EB943E8A4A1096D4237552106FA53987EE68E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652030   (194517) от 09.08.2023
-
-Человек-паук: Паутина вселенных / Spider-Man: Across the Spider-Verse (2023) WEB-DL [H.264/1080p] [VO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майлз Моралес отправляется в приключение по мультивселенной вместе с Гвен Стейси и новой командой Людей-пауков, которым предстоит столкнуться с могущественным злодеем.Производство: США / Arad Productions, Lord Miller, Marvel Entertainment, Pascal Pictures, Sony Pictures Animation, Sony Pictures Entertainment (SPE)Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Жуакин Душ Сантуш, Кемп Пауэрс, Джастин ТомпсонАктеры: Шамеик Мур, Хейли Стайнфелд, Брайан Тайри Генри, Луна Лорен Велес, Джейк Джонсон, Оскар Айзек, Джейсон Шварцман, Исса Рэй, Дэниэл Калуя, Каран СониПеревод: Одноголосый любительскийЯзык озвучки: русский, английскийСубтитры: русские (full), английские (SDH)Продолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECECA31760530EF7456C868526FA01A94B31E4FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652256   (194458) от 10.08.2023
-
-Человек-паук: Паутина вселенных / Spider-Man: Across the Spider-Verse (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [МVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майлз Моралес отправляется в приключение по мультивселенной вместе с Гвен Стейси и новой командой Людей-пауков, которым предстоит столкнуться с могущественным злодеем.Производство: США / Arad Productions, Lord Miller, Marvel Entertainment, Pascal Pictures, Sony Pictures Animation, Sony Pictures Entertainment (SPE)Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Жуакин Душ Сантуш, Кемп Пауэрс, Джастин ТомпсонАктеры: амеик Мур, Хейли Стайнфелд, Брайан Тайри Генри, Луна Лорен Велес, Джейк Джонсон, Оскар Айзек, Джейсон Шварцман, Исса Рэй, Дэниэл Калуя, Каран СониПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC753527841868199045B0A017A215152F80DA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652252   (194439) от 10.08.2023
-
-Человек-паук: Паутина вселенных / Spider-Man: Across the Spider-Verse (2023) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [МVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майлз Моралес отправляется в приключение по мультивселенной вместе с Гвен Стейси и новой командой Людей-пауков, которым предстоит столкнуться с могущественным злодеем.Производство: США / Arad Productions, Lord Miller, Marvel Entertainment, Pascal Pictures, Sony Pictures Animation, Sony Pictures Entertainment (SPE)Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Жуакин Душ Сантуш, Кемп Пауэрс, Джастин ТомпсонАктеры: амеик Мур, Хейли Стайнфелд, Брайан Тайри Генри, Луна Лорен Велес, Джейк Джонсон, Оскар Айзек, Джейсон Шварцман, Исса Рэй, Дэниэл Калуя, Каран СониПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DD6DDEE3DD840D47488D2383048D73E24FCF10
 ```
 
 https://mybot314.ru/tekegram_catalog/

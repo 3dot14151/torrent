@@ -1,3 +1,81 @@
+###  Публикация: 1776204   (29206) от 31.01.2025
+
+Нико: За Северным сиянием / The Magic Reindeer: Saving Santas Sleigh / Niko: Beyond the Northern Lights (2024)  WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Нико — маленький летающий северный олень, который мечтает стать частью летучих сил Санты. Но вместо этого он теряет сани Санты, и, пытаясь их вернуть, узнает, как важны настоящая дружба и умение делать всё по-своему.Производство: Финляндия, Германия, Дания, Ирландия / Anima Vitae, Animaker, Moetion FilmsЖанр: мультфильм, приключения, фэнтези, семейныйРежиссер: Кари Юуусонен, Юрген ЛердамАктеры: Пол Тайлак, Эйлин Митен, Рольф Берг, Тобиас Бреклингхаус, Демет Феи, Маркус Хаазе, Ребекка Мадита Хундт, Энно Калиш, Бернд Кольхепп, Йозефина ПройссПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B322656A89DD3720AE7A6ADC9A1B6A6D52A5809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775634   (29200) от 31.01.2025
+
+Нико: За Северным сиянием / The Magic Reindeer: Saving Santas Sleigh / Niko: Beyond the Northern Lights, Nikos Arctic Adventure (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Нико — маленький летающий северный олень, который мечтает стать частью летучих сил Санты. Но вместо этого он теряет сани Санты, и, пытаясь их вернуть, узнает, как важны настоящая дружба и умение делать всё по-своему.Производство: Финляндия, Германия, Дания, Ирландия / Anima Vitae, Animaker, Ulysses FilmproduktionЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Кари Юуусонен, Юрген ЛердамАктеры: Пол Тайлак, Эйлин Митен, Рольф Берг, Tobias Brecklinghaus, Демет Феи, Маркус Хаазе, Ребекка Мадита Хундт, Энно Калиш, Bernd Kohlhepp, Йозефина ПройссПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C612CDC81E36219A58F95BB3701A7B5D7FC5419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776558   (29025) от 01.02.2025
+
+Моана 2 / Moana 2 (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Получив вызов от предков-искателей, Моана и Мауи отправляются в далёкие и опасные воды Океании.Производство: США, Канада / Disney Television Animation, The Walt Disney Company, Walt Disney Animation CanadaЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Дэвид Деррик мл., Джейсон Хэнд, Дэна Леду МиллерАктеры: Дуэйн Джонсон, Аулии Кравальо, Алан Тьюдик, Рэйчел Хаус, Николь Шерзингер, Темуэра Моррисон, Роуз Матафео, Awhimai Fraser, Khaleesi Lambert-Tsuda, Hualalai ChungПеревод: дублированный (MovieDalen, Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89DFD180C1BA67CABF140A9BE571A91FED00DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776559   (28936) от 02.02.2025
 
 Моана 2 / Moana 2 (2024) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision P8, 10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38B70EBFB396EB54DDFC22B6E3E6C00FB91B5EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780827   (27047) от 20.02.2025
-
-Моана 2 / Moana 2 (2024) WEB-DLRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив вызов от предков-искателей, Моана и Мауи отправляются в далёкие и опасные воды Океании.Производство: США, Канада / Disney Television Animation, The Walt Disney Company, Walt Disney Animation CanadaЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Дэвид Деррик мл., Джейсон Хэнд, Дэна Леду МиллерАктеры: Аулии Кравальо, Дуэйн Джонсон, Хуалалай Чун, Роуз Матафео, Дэвид Фейн, Авимаи Фрейзер, Калиси Ламберт-Цуда, Темуэра Моррисон, Николь Шерзингер, Рэйчел ХаусПеревод: дублированный (MovieDalen, Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58BB2638F9E5951AAA5F6F8CE0A683E7402E1D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780825   (27018) от 20.02.2025
-
-Моана 2 / Moana 2 (2024) WEB-DLRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив вызов от предков-искателей, Моана и Мауи отправляются в далёкие и опасные воды Океании.Производство: США, Канада / Disney Television Animation, The Walt Disney Company, Walt Disney Animation CanadaЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Дэвид Деррик мл., Джейсон Хэнд, Дэна Леду МиллерАктеры: Аулии Кравальо, Дуэйн Джонсон, Хуалалай Чун, Роуз Матафео, Дэвид Фейн, Авимаи Фрейзер, Калиси Ламберт-Цуда, Темуэра Моррисон, Николь Шерзингер, Рэйчел ХаусПеревод: дублированный (MovieDalen, Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91B1B6C1DBFB648593DB83A8375924D9B326EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780557   (26387) от 26.02.2025
-
-Муфаса: Король Лев / Mufasa: The Lion King (2024) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26387.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Муфаса: Король Лев» рассказывает о происхождении и нелегком пути любимого короля Земель Прайда, опираясь на легенду, которую Рафики передает Киаре, дочери Симбы и Налы. История поведает о потерянном осиротевшем детёныше Муфасе, который встречает сочувствие и поддержку наследника королевских кровей по имени Така. Судьбоносное путешествие, в которое отправляется эта (   Читать дальше...   )Производство: США, Канада / Walt Disney Pictures, Québec Production Services Tax Credit, Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, фэнтези, драма, приключения, семейныйРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет РогенПеревод: Дублированный (MovieDalen официальный; Red Head Sound неофициальный)Язык озвучки: Русский, английскийСубтитры: Русские (2xForced, Full), английские (Full, SDH)Продолжительность: 01:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DA05E716F837917CA7197B95D126C5D1C4AD2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

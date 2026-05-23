@@ -1,3 +1,86 @@
+###  Публикация: 1529326   (732627) от 06.02.2022
+
+Rebelway, Igor Zanic | Water FX in Houdini (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Houdini стал популярным инструментом в индустрии FX. Того, кто освоит его потенциал, будет невозможно остановить!
+«Ныряйте глубже» в водные эффекты и не бойтесь навести «брызг» в этом обширном мастер-классе. В нем Вы не только «намочите ножки». А если Вас нужно немного подтолкнуть, чтобы Вы зашли в воду, мы поможем с этим. Научитесь создавать полный спектр водных (   Читать дальше...   )Производство: RebelwayЖанр: 3D-моделированиеЯзык озвучки: АнглийскийПродолжительность: 16:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FEF44BBD6326793CA25525E08FBD9F5E0CFC319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529724   (732455) от 07.02.2022
+
+Gumroad, Daniel Thiger | Rock Creation Techniques Part 2: Surface Detailing (2019) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Скалы и камни это одни из моих любимых материалов для создания в Substance Designer. В данной серии уроков по созданию скал я буду показывать мои самые частоиспользуемые техники.
+В данной второй части мы собираемся посмотреть на то как применить состаривание и эрозию поверхности. Мы начнем с базовых форм и постепенно добавим слои трещин, ям и так далее. Я пройдусь (   Читать дальше...   )Производство: GumroadЖанр: Созданию материаловЯзык озвучки: Русский (отдельным файлом)Продолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09B2832A2DFB50CC3DCB361ECB34841E3670E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529738   (732451) от 07.02.2022
+
+Grant Warwick | Mastering Vray Part 1-12 (2013) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Mastering V-ray это элитный учебный курс для профессиональных CGI художников, разработанный с целью предоставления самого актуального и высококачественного образовательного материала на сегодняшний день.
+Сейчас в курсе участвуют около 700 человек, включая художников из ILM, Weta и Sony, а также других студий мирового уровня.
+
+Я (Grant Warwick) обладатель многочисленных (   Читать дальше...   )Жанр: 3D рендерЯзык озвучки: Английский, РусскийПродолжительность: 18:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F80962BC70DEF1E9D47BC97928F0B50761B292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529576   (732443) от 07.02.2022
 
 Pluralsight, Winston Powell | Game Character Rigging Fundamentals (2017) PCRec [EN, RU]
@@ -6,7 +89,7 @@ Pluralsight, Winston Powell | Game Character Rigging Fundamentals (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +115,7 @@ VFX learning, Amin Sadeghvand | Advanced Facial Rig in Maya 2018 (2018) PCRec [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +141,7 @@ The Gnomon Workshop, Perry Leijten | Creature Rigging for Production (2016) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +167,7 @@ Mold3d academy, Gio Nakpil | Master organic Modeling (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +194,7 @@ Udemy, Yassine Larayedh | The Ultimate Guide to 3D Environments in Blender 3.0 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +221,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 5: Imaginary Subjects (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +247,7 @@ Udemy, Nexttut | Introduction to Blender 3.0 (2022) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +274,7 @@ Gumroad, Gianpietro "Ganjica" Fabre | Wastelander - Texture Breakdown in Substan
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +301,7 @@ CGMA, Tyler Edlin | Fundamentals of Design with Tyler Edlin (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +327,7 @@ Austin Batchelor | Курс по креативному проектирован
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +355,7 @@ Udemy, Too Much Sugar Productions, Emilio Padulo | The Psychology of Color in Ga
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +382,7 @@ Levelup.Digital, Pauline Boiteux | Advanced Pattern & Fabric Creation in Substan
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +409,7 @@ Allan McKay | FX Technical Director Transformation Module 13 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +437,7 @@ Allan McKay | FX Technical Director Transformation Module 14 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +491,7 @@ IAMAG Master Classes, Jorge Barrero | Creating Cinematic Frames (2020) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +517,7 @@ Gumroad, Jorge Barrero | Storyboarding in Blender 2.9 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +572,7 @@ Vladimir Chopine | Изучение цифрового композитинга 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +627,7 @@ Levelup.Digital, Simon Barle | Game-Ready Tree Creation from Maya to Unreal (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,88 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E0B94C8D4B028FE89467D79D8DD61931D2282D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285508   (720523) от 26.02.2019
-
-Джама Джурабаев | Blender 2.8: Расширенное руководство по Grease Pencil / Blender 2.8: Advanced Grease Pencil Tutorial (2018) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следующая глава моей серии курсов по Blender.
-Этот курс показывает творческий рабочий процесс с использованием Grease Pencil в версии 2.8 и Photoshop для создания: окружения, персонажей, транспортных средств.Производство: GumroadЖанр: 3D моделирование, Рисование, Blender, Grease PencilПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9A5400DA403724F5CFA7FAA7574EAFB7600DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285793   (718686) от 27.02.2019
-
-Джама Джурабаев | Как создать панорамное 360/VR изображение. Часть I / How to create a panoramic 360/VR painting VOL.I (2016) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый курс из серии руководств по панорамным изображениям в 360 градусов и VR.
-В этом курсе я покажу, как создать панорамный рисунок в 360 градусов с нуля, используя только Photoshop.Производство: GumroadЖанр: Рисование, PhotoshopПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED115102173EBC9D0C2C5816B7476611044B62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531806   (718366) от 17.02.2022
-
-CGcircuit, Daviv CGMK | Houdini Elements - Smoke (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718366.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом онлайн-курсе вы узнаете о том, как создавать реалистичный дым в Houdini, который взаимодействует с окружающей средой, а также с анимированными объектами.
-
-Курс начнется с изучения DOP и создания дыма в Houdini, как способа познакомить вас с моделированием явлений реального мира в Houdini. Мы будем работать над небольшими проектами, такими как дымный портал, (   Читать дальше...   )Производство: CGcircuitЖанр: СимуляцияЯзык озвучки: АнглийскийПродолжительность: 08:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E83520A515CE7A43D666FF603468CA2AC237D00
 ```
 
 https://mybot314.ru/tekegram_catalog/

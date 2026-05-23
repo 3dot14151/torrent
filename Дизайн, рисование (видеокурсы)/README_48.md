@@ -1,3 +1,82 @@
+###  Публикация: 1329499   (351867) от 05.10.2019
+
+Udemy, Darrin Lile | Blender 2.8 Создание персонажа / Blender 2.8 Character Creation (2019) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс проведет вас через всё, что вам нужно знать, чтобы создать своего собственного 3D персонажа.
+В этом курсе вы будете использовать Blender 2.8 для моделирования лица персонажа с правильным Edge Flow, поэтому он будет правдоподобно анимироваться. Вы узнаете, как создавать руки и ноги, а также космический костюм и шлем персонажа. Мы будем использовать инструменты (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 16:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F6A3B8F20B6EBBF47DA6FB4E3118421244814F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256746   (351684) от 23.10.2018
+
+Lynda.com | Photoshop CC 2019 New Features (2018)  PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обучающее видео о новых возможностях Photoshop CC 2019 от Lynda.com и Deke McClelland.Производство: Lynda.comЖанр: Photoshop, Обучающее видеоПеревод: ОтсутствуетПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B261C7F81D5A82074C8E5EB8C9BB6296575C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418184   (350799) от 23.10.2020
+
+Igor Staritsin | Создание эпического мэтт-пейнт шота. Продвинутые техники с Игорем Старициным / Create an Epic Matte Painting Shot Advanced Techniques (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой курсе Игорь Старицын проведет вас через весь процесс создания эпического мэт-пэйнт шота. Он начнет с того, что нарисует несколько эскизов, объясняя при этом фундаментальные принципы искусства создания удачного окружения. Затем Игорь начинает создавать композиционный эскиз, создавая настроение. Затем используется Maya для создания базовой модели для архитектурных (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Digital ArtПродолжительность: 07:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE20CDB4CBCB3BF19FEED99376716076E9D239D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418089   (350796) от 23.10.2020
 
 Skillshare, Neil Bettison | Создание стилизованной 3D модели для игр в Blender 2.83 / Blender 2.83 & More: Stylised 3D Game Model Complete Beginners Guide (2020) PCRec [EN / EN Sub]
@@ -6,7 +85,7 @@ Skillshare, Neil Bettison | Создание стилизованной 3D мо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +138,7 @@ Udemy, Darrin Lile | Blender 2.8 Создание игрового персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +165,7 @@ Videosmile, Максим Кузнецов | Супер Figma  (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +219,7 @@ Lynda.com | Photoshop CC 2019 Essential Training Photography (2018) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +245,7 @@ Lynda.com | Photoshop CC 2019 Essential Training: The Basics (2018) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +271,7 @@ Udemy | Создание Sci-Fi ассета для игр в Blender 2.81 / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +298,7 @@ HighLights | Основы веб-дизайна (2016) PCRec [H.264]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +353,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Modular Environments in Unreal Engine 5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +380,7 @@ Skillshare | Explaining How We Use Face-Tracking In Our Videos (Tiktok Filter) (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +406,7 @@ Skillshare | Create a Pixelated Glitch Effect using Adobe After Effects (2020) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +432,7 @@ Gumroad | Митч Леуве 7 книг + уроки / Mitch Leeuwe 7 Books + T
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +511,7 @@ Udemy, Joakim Tornhill | Become a Material Guru in Blender 2.8 (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +673,7 @@ Broadcast Design School | Remastered Records (2015-2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,88 +686,6 @@ Broadcast Design School | Remastered Records (2015-2020) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1586B3C899B4F3DA368F8DBCA9A0FE83D45A0785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420343   (333265) от 31.10.2020
-
-[Udemy] Cristian Doru Barin | Дизайн мобильных приложений: UI, UX и прототипирование в Adobe XD и PS / Design Mobile Apps: UI, UX & Prototyping in Adobe XD & PS (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите создавать выдающиеся приложения? Впечатляющие прототипы, похожие на настоящие, но без кода? Этот курс представляет собой мастер-класс - комплексный подход к разработке мобильных приложений. Я научу вас всему, что вам нужно знать, от А до Я. Мы будем использовать Photoshop, Adobe XD, Zeplin. Я обучил более 220 000 студентов на Udemy, и я самый продаваемый (   Читать дальше...   )Производство: UdemyЖанр: Дизайн мобильных приложенийЯзык озвучки: АнглийскийПродолжительность: 14:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565149408BE95B3424FB4D880A21BC6F9345C303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331338   (333243) от 14.10.2019
-
-Udemy | Создание ретро футуристичного автомобиля в Blender 2.78 / Creating a Retro Futuristic Car in Blender 2.78 (2019) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уроке мы сделаем ретро футуристичный автомобиль. В процессе урков мы рассмотрим основные инструменты моделирования, создадим модель автомобиля. Затем мы займемся процедурным текстурированием и рендерингом.
-Весь этап можно разделить на три части. Первый-это моделирование. Второй-установка материалов, установка света. И третье-это визуализация, то есть рендер, (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 08:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28B68EA09342883E9A7767B79907BDBE0A5E385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580004   (332765) от 29.09.2022
-
-Вольница, Александр Санакоев | VFX-ZEN (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная идея Дзена — ускорить ваш профессиональный рост
-Не просто научить парочке приемов, нужным кнопкам и как быстрее экспортить свои труды в инсту\тик-ток. А помочь вырасти мастером, который не боится трудностей,
-знает альтернативы в пайплайне и ловко обходит "подводные камни" в работе.
-(   Читать дальше...   )Производство: ВольницаЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 21:35:58Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14A6B23A2F70DE6F7BC41AF08BF3228749A4300
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1765392   (34272) от 13.12.2024
+
+Н.В. Илиевский, А.М. Сокролов, Д.М. Филлиповых | СССР во Второй мировой войне: вопросы и ответы (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Разрушение СССР стало величайшей геополитической катастрофой и подлинной трагедией для многих стран и народов. Новая демократическая Россия в течение тридцати лет прилагала гигантские усилия, искренне желая выстроить с Западом подлинные партнерские отношения, основанные на взаимных интересах и общечеловеческих идеалах. Однако, этого не случилось. Соединенные Штаты (   Читать дальше...   )Жанр: монография, политологияИздательство: Наукоемкие технологииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A7C7980B26F4B28ED3D73041AA6D9EC57EC5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765953   (34062) от 15.12.2024
+
+Золотов В.В. (ред.) | Войска НКВД СССР в годы Великой Отечественной войны. Книга-альбом (2019) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В издании представлены материалы об участии войск НКВД СССР в Великой Отечественной войне 1941-1945 гг. Особое внимание обращено на применение войск НКВД в боевых действиях и выполнение личным составом войск служебно-боевых задач в сложных условиях военного времени. Данная книга-альбом может быть использована для разработки военно-исторических трудов и проведения (   Читать дальше...   )Жанр: история, военная литератураИздательство: Военно-научное управление, Научный центр стратегических исследованийФормат: PDF, DJVUКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D7A83612A7C8D016A557ED94CCBE1F8650F572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766111   (34016) от 16.12.2024
+
+А. Колпакиди, А. Север | Литерные дела Лубянки [2 книги] (2018, 2022) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Литерные», или «расчетные», дела. Так на сленге советских разведчиков назывались спецмероприятия по негласной ликвидации врагов государства - как на территории нашей страны, так и за рубежом. Разумеется, подобные операции практикуются всеми спецслужбами мира и являются их самой охраняемой тайной.
+Тайные ликвидации проводились весь период существования СССР. Среди (   Читать дальше...   )Жанр: монография, историяИздательство: Алгоритм, РодинаФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A538B87974DC92E0EA6083800E7C284AEF351842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766278   (33852) от 17.12.2024
 
 Д.И. Иловайский | Разыскания о начале Руси. Вместо введения в русскую историю [2 книги] (1876, 2015) [PDF, DJVU]
@@ -6,7 +85,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -221,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -404,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -600,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27D114D29502512D19A701686BF16AE3F33DDDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801020   (15369) от 07.06.2025
-
-Валентин Бережков | Рядом со Сталиным (1998) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сталин - одна из самых великих и противоречивых исторических фигур ХХ века. Относиться к нему можно по разному, но не признавать его роль и значение для всего исторического процесса не только нашей страны, но и всего мира, нельзя. Нашу жизнь и сегодня во многом определяют деяния этого человека.
-Около четырех лет в самый экстремальный период истории СССР В. Бережков (   Читать дальше...   )Жанр: история СССР, мемуары, политология, СталинИздательство: ВагриусФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E63179E9FB06E9E755DBE3B51754B5D79310520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802799   (14082) от 19.06.2025
-
-В. Россов | Еврейский вопрос (1906) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14082.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Еврейский вопрос" в контексте исторических дискуссий и политических дебатов относится к широкому спектру проблем, связанных с положением, правами, ассимиляцией и восприятием еврейского народа в различных обществах. Этот вопрос часто рассматривался как часть более широкого "национального вопроса" в Европе, особенно в XIX и XX веках.
-Книга состоит (   Читать дальше...   )Жанр: историческая публицистика, политологияЯзык: Русский дореформенныйИздательство: Типография Санкт-ПетербургаФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BDC5329AE5330E8C468B97191E7CD2573C784F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808823   (10283) от 26.07.2025
-
-Юрий Фролов | Крушители империи СССР [6 книг] (2001-2002) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему распалась, казалось бы, несокрушимая держава?" Ответ на этот вопрос исследуется Юрием Фроловым в шеститомнике "Крушители империи СССР". Как ему это удалось, лучше всего свидетельствуют те рецензии, которые написаны на это издание видными его современниками. Данная многотомная работа, написанная в историко-популярном жанре, уникальна своей документально-архивной (   Читать дальше...   )Жанр: ИсторияИздательство: ДонеччинаФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81599A06CA533F2E6FD55C7BA12047D38F3C901
 ```
 
 https://mybot314.ru/tekegram_catalog/

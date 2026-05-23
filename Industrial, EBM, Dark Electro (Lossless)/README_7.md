@@ -6,7 +6,7 @@ Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Syn
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +35,7 @@ Miseria Ultima - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +64,7 @@ Interstellar Sequence - Out Of The Deeps (2017) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Musik (Vanity Records) (1981/2019) Kyou Records | Reissue, Remastered [FLAC
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Owls Are Not What They Seem: David Lynch Tribute Remixes (2017) kultFRO
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +151,7 @@ Rein - God Is A Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro-Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +180,7 @@ GDS Project - Chess (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark-Electro, EBM, Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +209,7 @@ Van Roy Asylum - Unsaint Petersburg (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +238,7 @@ Neuroticfish - The Demystification Of The Human Heart (2023) [FLAC|Lossless|WEB-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +267,7 @@ Van Roy Asylum - Т​р​е​в​о​ж​н​ы​е м​ы​с​л​
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +296,7 @@ Vatican Shadow - Destroy Chemical Weapons (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +324,7 @@ Laibach - 3 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Class
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +353,7 @@ L'ame Immortelle (L'Âme Immortelle) - Ungelebte Leben (2024) [FLAC|Lossless|WEB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -382,7 +382,7 @@ Antania - The God Complex (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -411,7 +411,7 @@ Golden Apes - Our Ashes At The End Of The Day (2024) [FLAC|Lossless|WEB-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -440,7 +440,7 @@ Morgenstern - Zeitgeist (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Luna Sequence - I Only Remember Falling (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -498,7 +498,7 @@ Kmfdm - Let Go (2024) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +527,7 @@ Cyberaktif - eNdgame (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +556,7 @@ Celldweller - Celldweller (2003) Definitive Edition, 2024, FiXT [FLAC|Lossless|W
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -585,7 +585,7 @@ Elektrikill - Propaganarchy! (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industri
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -614,7 +614,7 @@ Kanka + Bodewell - Stroboscope (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthp
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -643,7 +643,7 @@ Industrial Destruction - Indifference (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -672,7 +672,7 @@ Black Nail Cabaret - Chrysanthemum (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Sy
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -701,7 +701,7 @@ Persher - Sleep Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -730,7 +730,7 @@ Sacrothorn - Та сторона (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

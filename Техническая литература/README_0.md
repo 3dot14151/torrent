@@ -1,3 +1,113 @@
+###  Публикация: 1849396   (1054080) от 04.02.2026
+
+Технические нормы и правила (обновления) [01.01.2026] (2026) [HTML]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Обновления электронной базы документов "Технические нормы и правила" (01.01.2026)
+
+Данная сборка представляет собой структурированный архив нормативных и правовых документов, предназначенный для удобного офлайн-доступа, хранения и поиска информации.
+Для использования нужно открыть файл cat.html в директории prod.Жанр: Нормативные документыФормат: HTMLКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1CF40D83BBB50E500F895E4C1396ED76B273A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849228   (1053441) от 21.01.2026
+
+Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engineering. 3rd Edition (2023) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+This book contains information obtained from highly regarded resources. Reprinted material sources are
+indicated. Copyright for individual articles remains with the authors as indicated and published under
+Creative Commons License. A Wide variety of references are listed. Reasonable efforts have been made
+to publish reliable data and views articulated in the chapters (   Читать дальше...   )Жанр: Электротехника, ЭлектроникаЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97A0726DBA059C8DEC0B6F69DB518E36361AFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848499   (1052673) от 17.01.2026
+
+Г. Крон | Применение тензорного анализа в электротехнике (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена применениям разрабатываемого автором метода расчета сложных электрических цепей и вращающихся электрических машин. В книге собраны в сокращенном и переработанном виде результаты опубликованных ранее работ автора. Материал основных глав изложен в форме, доступной для инженеров-электриков с обычной математической подготовкой. В конце книги приводится (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Государственное энергетическое издательствоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B930ACC29B83CE3AE373C57AABB2EDDBADB1AAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848502   (1052658) от 17.01.2026
+
+Г. Крон | Исследование сложных систем по частям - диакоптика (1972) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена эффективному методу исследования сложных систем самой различной физической природы: электрических, механических, экономических и, возможно, биологических. Сложная система по определенным правилам расчленяется на некоторое число малых подсистем и на основе этого строятся топологические модели — графы исходной системы. Для каждой из подсистем в отдельности (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3959793CB378E7CC1AED07741FA3AAEB6D5C1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848503   (1052651) от 17.01.2026
 
 Г. Крон | Тензорный анализ сетей (1978) [PDF]
@@ -6,7 +116,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -113,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +432,7 @@ Gareth Halfacree, Ben Everard | Get Started with MicroPython on Raspberry Pi Pic
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ED8BFC37BC5535353DA8F38D56EDD0BF777C89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447614   (1031546) от 14.02.2021
-
-С.В. Богданов | Умный дом 2-е изд. (2005) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого это все написано? Если вы способны включать телевизор с пульта, вы в состоянии понять все, что здесь написано, а при желании — и добавить «ума» своему дому. Все оборудование «Умного Дома» отличается от обычных выключателей, розеток, ламп, как старый телевизор с ручкой переключения каналов отличается от современного телевизора с пультом дистанционного управления. (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE632848080B00D7D62CA134495E5352EFF913E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448661   (1030680) от 18.02.2021
-
-А.П. Достанко (ред.) | Технологии субмикронных структур микроэлектроники (2018) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены и обобщены результаты исследований и разработок в области технологии и оборудования для производства и диагностики субмикронных структур полупроводниковой микроэлектроники.
-Предназначена для инженерно-технических работников предприятий электронной и других отраслей промышленности, специалистов научно-исследовательских институтов, аспирантов, магистрантов (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89B233F0FD74A81AE98919C3D9EAE164F94C5EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449510   (1029915) от 21.02.2021
-
-Л. Браутман и др. | Композиционные материалы [8 томов] (1978) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпущенный издательствами Мир и Машиностроение 8-томный справочник по композиционным материаламЖанр: МатериаловедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8A2250243B0DEE2CEE8D0F4CCCAFB7049CC2CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449857   (1029492) от 23.02.2021
-
-Л.А. Сена | Единицы физических величин и их размерности (1988) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены принципы построения систем единиц, а также основы теории размерностей. Наряду с описанием СИ дано представление о других системах единиц, а также о некоторых внесистемных единицах, имеющих практическое применение. Особое внимание уделено методам перевода единиц из одной системы в другую. Новое издание переработано и обновлено по сравнению с преды дущим изданием (   Читать дальше...   )Жанр: ФизикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2FD045EF74E3A1ACB6CEF91B3CA27EF326BC1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

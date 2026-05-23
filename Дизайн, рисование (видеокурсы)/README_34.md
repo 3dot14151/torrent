@@ -1,3 +1,87 @@
+###  Публикация: 1402331   (701414) от 14.08.2020
+
+Allan McKay | FX Technical Director Transformation Module 1 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
+Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
+Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 04:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189E42CBA80E4E1281AE4EB34AB94B63F2799C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402295   (701410) от 14.08.2020
+
+Allan McKay | FX Technical Director Transformation Module 4 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
+Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
+Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 05:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C686653DAB8CEF12BCCA4B0B805A6518A14847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402306   (701316) от 14.08.2020
+
+Allan McKay | FX Technical Director Transformation Module 2 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
+Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
+Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 06:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48E4D1E0057AFDCC533A19C25E008ABF700CC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287707   (701208) от 08.03.2019
 
 Джама Джурабаев | Как создавать кинематографичные городские ландшафты / How to create cinematic cityscapes (2018) PCRec [H.264/1080p-LQ] [EN]
@@ -6,7 +90,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +116,7 @@ Udemy, Дмитрий Фокеев | Веб дизайн в Figma 2021 - с ну
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +173,7 @@ Andrew Conroy | The Anatomy of an Expression for Facial Animation in Maya (2013)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +225,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part E (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +253,7 @@ Nathan Glemboski | Animating a Short Film in Maya and Unreal Engine (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +305,7 @@ akmshik | Создание видео в After Effects на основе шаб�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +331,7 @@ Jakub Krompolc | Exploring Human Muscles Setup in Maya (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +357,7 @@ Design+Code | Flutter для дизайнеров / Flutter for Designers (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +464,7 @@ Udemy, Nexttut, Arash Arefnia | Creating Next-Gen Environments in UE5 (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +491,7 @@ SideFx, Ari Danesh | Intro to PDG (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +517,7 @@ MZED, Марк Эдвард Льюис | Sound Advice Tour (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -459,7 +543,7 @@ Entagma, Moritz Schwind | PDG for Design in Houdini (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -485,7 +569,7 @@ Digital Tutors, Tim Callaway | Joint-Based Facial Rigging in Maya (2013) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -511,7 +595,7 @@ FXPHD, Andrew Lowell | Houdini Procedural Spline Modeling (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +622,7 @@ Pluralsight, Alex Jerjomin | Game Environment Modeling Fundamentals (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +648,7 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +675,7 @@ CGMA, Ben Keeling | Intro to Substance for Environment Art (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,86 +686,6 @@ CGMA, Ben Keeling | Intro to Substance for Environment Art (2016) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33437A9D8D050F9F3576E747ACD4058891647935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535318   (674180) от 12.03.2022
-
-Uartsy, Mike Defeo | Stylized Character Development (2014) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Дефео - скульптор, который специализируется на превращении 2D персонажей в полноценные 3D модели. На протяжении 15 лет Майкл возглавлял студии по моделированию и скульптурированию в Blue Sky Studios, вдохнув жизнь в бессчетное количество персонажей, из таких проектов, как Ледниковый период (1-4 части), Роботы, Хортон, Рио и Эпик.
-Разработка стилизированных (   Читать дальше...   )Производство: UartsyЖанр: СкульптингЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 26:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED6B79B7BD6D2231EEDE073CA1BC6D2C9DD4D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535537   (674179) от 12.03.2022
-
-Udemy, Daniel Krafft, Design School Online | Make Hyper-Realistic Outdoor Environments in Unreal Engine (2019) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674179.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Не может быть, чтобы это было не фото!" - Это то, что говорит большинство людей, когда я показываю им свою недавнюю работу. Разве не для этого мы все это делаем? Удивление и недоверие, вызванные потрясающим мастерством в искусстве. Дизайн игры - это искусство, поэтому позвольте мне показать вам кисть, холст и краску.
-Unreal Engine всегда был известен своей (   Читать дальше...   )Производство: UdemyЖанр: Создание окруженияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62414637550286910AFDA62BA82BB8AB625B0E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535718   (674173) от 12.03.2022
-
-Entagma, Мануэль и Мориц | Patreon Advanced CG Tutorials Part 1-5 (2019) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нас зовут Мануэль и Мориц, мы CG-художники, работающие на стыке искусства, VFX и технологий. Работая над коммерческими проектами, мы постоянно сталкиваемся с необычными задачами, которые требуют нестандартных решений. И в свое свободное время мы часами сидим перед экраном, исследуя интересные алгоритмы и подходы. Мы решили поделиться с вами этими техниками и создать (   Читать дальше...   )Производство: EntagmaЖанр: 3D-моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 28:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261265039FFC4FCADAFEDD1D242B5B8E00B8F6B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

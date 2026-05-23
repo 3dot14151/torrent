@@ -1,3 +1,107 @@
+###  Публикация: 1606449   (203700) от 22.01.2023
+
+Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 из 12 + OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Земле грозит опасность – пришельцы из иного измерения самим фактом появления в нашем мире вызывают страшные бедствия. Зачастили они, как положено, в Страну восходящего солнца, и люди быстро привыкли, что кроме цунами и подземных толчков надо бояться еще и «возмущений пространства». Да, методом страуса проблему не решить, только стоит ли биться насмерть с незваными (   Читать дальше...   )Производство: студия AIC PLUSЖанр: приключения, комедия, мистика, романтикаРежиссер: Мотонага КэйтароЯзык озвучки: Японский, русский (AniLibria, Wakanim)Субтитры: Русские (GMC)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DCEA687E711E2C7C07B509D9F3E94568C67D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608297   (203385) от 29.01.2023
+
+Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before I Knew It, My Life Had It Made | Плод эволюции [ТВ-1] [2021, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Каждый день над Сэйити Хираги издевались в школе, так как он уродливый, отвратительный, грязный, вонючий толстяк. Всё изменилось резко и очень неожиданно, когда в один прекрасный день из школьного динамика раздался голос Бога, который объявил, что всем нужно подготовиться к перемещению в другой мир. Голос также объяснил, что мир этот — фантастический мир, там существуют (   Читать дальше...   )Производство: Япония, студия HotlineЖанр: пародия, комедия, фэнтези, исекайРежиссер: Окумура ЁсиакиЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV); English, Español, Português - дублированный (Crunchyroll)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5141B1057780F2CEEA9B6F6F0932A91B7B6C073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610698   (202945) от 08.02.2023
+
+Повелитель [ТВ-4] | 	Overlord IV [2022, TV, 13 из 13] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Настала пора Назарику выйти из тени. Следуя своему великому плану, Айнз Уол Гоун создал свою страну — Колдовское Королевство — и, заключив ложный союз с Империей Багарут, с лёгкостью захватил Эрантел. Присвоив титул Короля-заклинателя, он взошёл на трон своего нового царства. Цель велика — под стать правителю: создать утопичное и процветающее королевство, основанное (   Читать дальше...   )Производство: Япония / Студия MadhouseЖанр: Приключения, фэнтезиРежиссер: Ито НаоюкиЯзык озвучки: Русский (Studio Band, AniLibria.TV, Dream Cast, SHIZA Project); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll); (AniLibria.TV)Продолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2471969850D8CA1826823B0EBAE8ECBAB51B1C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612795   (202633) от 17.02.2023
+
+Armitage III: Dual Matrix | Армитаж: Двойная матрица [2002, Movie] BDRip 1080p HEVC 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Наоми Армитаж и Росс Силибус укрылись под вымышленными фамилиями на Марсе и тихо растят дочку Йоко. Однако спокойной семейной жизни приходит конец, когда в одном из земных предприятий по производству антиматерии происходит бунт роботов. Армитаж узнает, что восстание - лишь повод для сокрытия информации о разработке новых роботов «третьего типа». Наоми отправляется (   Читать дальше...   )Производство: AICЖанр: приключения, фантастика, меха, киберпанкРежиссер: Акияма КацухитоПеревод: MC Entertainment, NarsusЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EF2AAADF54230FC2667BC507516BCEA10951BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614122   (202527) от 21.02.2023
 
 Восхождение в тени [ТВ-1] | Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow [2022, TV, 20 из 20] WebRip 396p Raw+Rus
@@ -6,7 +110,7 @@
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -34,7 +138,7 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов [ТВ-1] [2013,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Futoku no Guild | Immoral Guild | Развращённая гильдия [2022,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +216,7 @@ One Piece Film: Red | Ван-Пис: Фильм пятнадцатый [2022, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -249,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -276,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -303,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -329,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -356,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -382,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -438,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -464,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -490,7 +594,7 @@ Schwarzesmarken | Schwarzes Marken | Чёрные метки [2016, TV, 12 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -517,7 +621,7 @@ Megaton-kyuu Musashi 2nd Season | Мегатон 2 [2022, TV, 15 эп.] HDTVRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -544,7 +648,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -570,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -581,116 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE6DCB9FADD1A1DB6904B3011A609E4C4947E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634219   (198215) от 19.05.2023
-
-Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 2nd Season | Classroom of the Elite II | Добро пожаловать в класс превосходства [ТВ-2] [2022, TV, 13 из 13] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e.
-
-Описание к первому сезону
-(   Читать дальше...   )Производство: студия Lerche / ラルケЖанр: драма, повседневностьРежиссер: Киси СэйдзиЯзык озвучки: Японский, русский (AniLibria, AniFilm)Субтитры: Русские (Сrunchyroll, Alvakarp)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC629D1D6DC8B27215BE596A6AE11C6686924D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635166   (197996) от 25.05.2023
-
-Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Невинность [2004, Movie] BDRip 4K HDR 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Близкое будущее, 2032 год. Техника достигла невиданного прогресса, люди делят мир с киборгами и роботами. Бато — дeтeктив отдела полиции по борьбе с терроризмом. Он — живой киборг, оснащенный искусственными руками, ногами и прочими частями тела. Остался лишь его прежний мозг да память о ней, о Мотоко Кусанаги.
-Вместе с напарником Тогусой Бато расследует серию убийств (   Читать дальше...   )Производство: Япония / Bandai Visual Co. Ltd.Жанр: аниме, мультфильм, фантастика, фэнтези, боевик, триллер, драмаРежиссер: Мамору ОсииАктеры: Акио Юцука, Ацуко Танака, Коити Ямадэра, Тамио Оки, Ютака Накано, Наото Такэнака, Гоу Аоба, Ёсукэ Асакура, Питер Эмшвиллер, Юдзуру Фудзимото и др.Перевод: Многоголосый профессиональный (R5, MC Entertainment)Язык озвучки: русский, японскийСубтитры: русские (forced, full) (PGS), японские (forced, full) (PGS)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E51330011EB64263F67B9FD71F17662C22BC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639078   (197170) от 11.06.2023
-
-Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | В подземелье я пойду, там красавицу найду! 4 [2022, TV, 22 из 22] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашный искатель приключений Белл Кранел поднял свой уровень, но он еще не может почивать на лаврах в подземельях. Семье Гестии еще предстоит пройти долгий путь, прежде чем она сможет сравняться с другими семьями Орарио.
-
-Но не успел Белл отправиться на следующее задание, как сообщество искателей приключений сотрясают сообщения о жестоком убийстве! Один из верных (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Татибана ХидэкиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 22 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5B5FFB4ACCE54A2B209AD0F0F022F34A380AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640557   (196944) от 18.06.2023
-
-Black Clover: Mahou Tei no Ken | Black Clover: Sword of the Wizard King | Чёрный клевер: Меч короля магов [2023, Movie] WebRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196944.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фестивале магических битв «Триумф», который проходит в славном Королевстве Клевера раз в десять лет, Аста намерен показать себя и вновь сразиться со своим другом детства Юно. Но радость предвкушения достойной битвы была прервана появлением Конрада Лето, прошлого короля магов. Вместе с приспешниками Конрад Лето планирует уничтожить Королевство Клевера, а на его (   Читать дальше...   )Производство: Япония / студия PierrotЖанр: Сёнен, экшен, комедия.Режиссер: Аятака ТанэмураЯзык озвучки: Русский (DejzDub)Субтитры: ОтсутствуютПродолжительность: 113 мин 01 секРеклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D1685BC15D60C4B7381AB10B5048A9F261D53B
 ```
 
 https://mybot314.ru/tekegram_catalog/

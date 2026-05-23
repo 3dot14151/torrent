@@ -1,3 +1,55 @@
+###  Публикация: 1852386   (1055806) от 07.02.2026
+
+Тайник у Красных камней (1972) WEBRip [H.264/1080p] (серии 1-4 из 4)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Агент иностранной разведки Мирсаид, попав к советским пограничникам, по приговору суда направляется в колонию строгого режима. Ему удается скрыть местонахождения тайника, где хранится план-карта. Вскоре границу успешно переходят новые агенты — Лойнаб и Гулям. Их цель проста: навестить Мирсаида в колонии, узнать местонахождение тайника и взять спрятанную карту. Чекисты (   Читать дальше...   )Производство: СССР / Киностудия им. А. ДовженкоЖанр: семейный, детектив, приключенияРежиссер: Григорий КоханАктеры: Вадим Медведев, Александр Пархоменко, Алексей Эйбоженко, Борис Ставицкий, Евгений Шах, Ирина Скобцева, Антонина Лефтий, Отар Коберидзе, Ефим Копелян, Александр Быструшкин и др.Продолжительность: ~01:03:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89088BD6B835B24D55E5A8541E7C90A9DF5C4558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852267   (1055797) от 12.02.2026
+
+Тайник у Красных камней (1972) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Агент иностранной разведки Мирсаид, попав к советским пограничникам, по приговору суда направляется в колонию строгого режима. Ему удается скрыть местонахождения тайника, где хранится план-карта. Вскоре границу успешно переходят новые агенты — Лойнаб и Гулям. Их цель проста: навестить Мирсаида в колонии, узнать местонахождение тайника и взять спрятанную карту. Чекисты (   Читать дальше...   )Производство: СССР | Киностудия им. А. ДовженкоЖанр: семейный, детектив, приключенияРежиссер: Григорий КоханАктеры: Вадим Медведев, Александр Пархоменко, Алексей Эйбоженко, Борис Ставицкий, Евгений Шах, Ирина Скобцева, Антонина Лефтий, Отар Коберидзе, Ефим Копелян, Александр Быструшкин и др.Продолжительность: ~01:03:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2590191AF708884B8B65A12DF18BB31774B0CA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851756   (1055420) от 10.02.2026
 
 Поднятая целина (1959-1961) HDTVRip [H.264] (сезон 1, серии 1-3 из 3)
@@ -6,7 +58,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E941BFBE9322013B5D28EC6311EC0F12A929C61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827147   (1045967) от 06.01.2023
-
-Мушкетеры двадцать лет спустя (1992) DVDRip [H.264] [Серии 1-4 из 4]
-
->>След.
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045967.jpg" />
-</div>
-
-
-###  Подробнее
-
-В неспокойное для Франции и себя лично время кардинал Мазарини требует у королевы Анны поделиться с ним именами четверки друзей, которые с успехом помогали ей в борьбе против кардинала Ришелье. Королева называет имя д’Артаньяна, лейтенанта королевских мушкетеровЖанр: ПриключенияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Михаил Боярский, Вениамин Смехов, Валентин Смирнитский, Игорь Старыгин, Виктор Авилов, Анатолий Равикович, Олег Белов, Алиса Фрейндлих, Игорь Дмитриев, Ольга Кабо, Инга ИльмПродолжительность: 05:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A498B662093E4F366FF95BB16C8E3BC688C922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563894   (1045010) от 16.01.2023
-
-ТАСС уполномочен заявить… (1984) DVDRip [H.264] (серии 1-10 из 10)
-
->>След.
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045010.jpg" />
-</div>
-
-
-###  Подробнее
-
-“ТАСС уполномочен заявить, что на днях советская контрразведка разоблачила и пресекла операцию ЦРУ, направленную против Советского Союза…” В XX веке эта фраза была знакома всем и каждому!
-В Луисбурге, столице южноафриканского государства, сотрудниками ЦРУ был завербован агент из состава советского посольства. Об этом узнают в КГБ. Для разоблачения предателя туда (   Читать дальше...   )Жанр: Политический детективРежиссер: Владимир ФокинАктеры: Вячеслав Тихонов, Юрий Соломин, Николай Засухин, Алексей Петренко, Ивар Калныныш, Ирина Алферова, Борис Химичев, Аристарх Ливанов, Николай Михеев, Николай Скоробогатов, Вахтанг Кикабидзе, Жанна Прохоренко, Георгий Юматов, Владлен Давыдов, Михаил Глузский, Борис Клюев...Продолжительность: 11:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6D83CEC6320D8AC371DA94768CA9C57765A49A
 ```
 
 https://mybot314.ru/tekegram_catalog/

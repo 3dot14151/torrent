@@ -1,3 +1,82 @@
+###  Публикация: 1293348   (628262) от 08.04.2019
+
+Томас Кун | Структура научных революций (2019) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Структура научных революций» Томаса Самуэля Куна, американского физика и философа, впервые опубликованная в 1962 году, вызвала широкий резонанс в научных кругах. В этой работе Томас Кун впервые сформулировал новую концепцию развития науки и научного знания, которая произвела настоящий переворот во всей философии науки. Сейчас, сорок лет спустя, эта концепция, некогда (   Читать дальше...   )Жанр: ФилософияПродолжительность: 10:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC0E6BA6B9F679C21859EAE93B1519C22E4A62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293350   (628257) от 08.04.2019
+
+Владимир Малов | Тайны знаменитых кораблей (2014) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+К кораблям у людей отношение особое. Корабли помогали открывать новые земли, прокладывать морские пути между континентами, защищать родные берега от неприятеля. Многие из них навсегда вошли в историю.
+Мореплавание всегда считалось самым рискованным занятием, Тысячи судов погибли, унося в морскую пучину какую-либо тайну. На борту фрегата "Ваза", помимо материальных (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21951C1140CA09684D76B09CB97F4782085540D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293810   (628139) от 08.04.2019
+
+Марков Александр | Рождение сложности (2019) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Как зародилась и по каким законам развивалась жизнь на нашей планете? Что привело к формированию многоклеточных организмов? Как возникают и чем обусловлены мутации, приводящие к изменениям форм жизни? Социологические исследования показывают, что в поисках ответов на эти краеугольные вопросы люди сегодня все реже обращаются к данным науки, предпочитая довольствоваться (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 10:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B13B20E2A7D9C16407AA932FD0B4BCA29B07B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292956   (628119) от 08.04.2019
 
 Анатолий Максимов | Никола Тесла. Три феномена гения (2017) [MP3]
@@ -6,7 +85,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,87 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9253DFB8A7262BC3C1126C42C7E85ECEB7F63F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554195   (579014) от 29.05.2022
-
-Фёдор Конюхов | На грани возможностей (2018) [MP3, Роман Волков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закалить характер и испытать свою веру. Каждое путешествие Фёдора Конюхова – это проверка на прочность силы и духа.
-В этой книге – дневниковые записи Фёдора Конюхова во время его одиночного плавания вокруг Антарктиды в 2008 году. Тогда, при подходе к ключевой точке – мысу Горн, – Фёдор Конюхов несколько дней провёл в условиях сильнейшего шторма и каждый поворот его (   Читать дальше...   )Жанр: книги о путешествиях, морские приключенияПродолжительность: 08:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C99D353EFBDC1884F8A2D39C2C379264152112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554214   (578951) от 29.05.2022
-
-Уилл МакКаллум | Как отказаться от пластика. Руководство по спасению мира (2019) [MP3, Роман Волков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примерно 12,7 миллиона тонн пластика попадает в океан ежегодно. Это приводит к гибели более 1 000 000 морских птиц и 100 000 млекопитающих. Пластик — экологическое бедствие нашего века. Как ЛИЧНО ВЫ можете помочь?
-Книга «Как отказаться от пластика» – это больше, чем руководство по уборке своего дома от нежелательного пластикового мусора. Это настольная книга о том, (   Читать дальше...   )Жанр: научно-популярная литература, экологияПеревод: Т. Л. ПлатоноваПродолжительность: 04:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A76F97F558AAFAAC73DF8CACF0471D3727D4BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554179   (578939) от 29.05.2022
-
-Стивен Хокинг | Чёрные дыры и молодые вселенные (2018) [MP3, Вадим Максимов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые лекция под названием "Чёрные дыры и молодые вселенные" была прочитана в Калифорнийском университете в Беркли. Дополненная размышлениями Стивена Хокинга на эту и смежные темы, она стала частью настоящего сборника, составленного из 13 эссе и развёрнутого интервью.
-Самый известный астрофизик современности толкует наиболее вероятные модели устройства (   Читать дальше...   )Жанр: астрономия, зарубежная образовательная литература, научно-популярная литература, физикаПеревод: Наталья ЛипуноваПродолжительность: 07:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E1D87B75E6E6B070F090BB5D683CAE7FE77EF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

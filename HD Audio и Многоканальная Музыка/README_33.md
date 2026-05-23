@@ -1,3 +1,119 @@
+###  Публикация: 1311165   (543687) от 28.06.2019
+
+Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 Song Of Songs
+A2 At The Balalaika
+A3 Granada
+A4 Shine Through My Dreams(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27BF96131A3EEC9E00077F216931169E6E8BE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153806   (542648) от 29.07.2017
+
+ВИА ''Ритм'' - Дискотека «А». Из Репертуара Аллы Пугачевой (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 Все Силы Даже Прилагая · Exerting All Powers
+A2 Улетай, Туча · Fly Away, Cloud
+A3 Женщина, Которая Поет · The Woman Who Sings
+A4 Три Желанья · Three Wishes(   Читать дальше...   )Жанр: Pop, Disco, FunkПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011E5CC6EB1A6F6C9E8F2F162A92F7ED6E6E1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661593   (542556) от 05.08.2015
+
+Джо Дассен - Поет Джо Дассен (1980) [FLAC 2.0 96/24|traks(Vinil-Rip)]<Pop, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Et Si Tu N'Existais Pas - Если бы тебя не было  3:24
+2. L' Albatros - Альбатрос	3:08
+3. Ma Musique - Моя музыка	2:54(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20652EE75E8A853E4972B70D0989FDE6ADFBD402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818408   (541029) от 03.09.2014
+
+Pink Floyd - The Division Bell (1994) 2LP, 20th Anniversary /2014, Parlophone Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+C1. Take It Back (6:18)
+C2. Coming Back To Life (6:14)
+C3. Keep Talking (6:07)
+D1. Lost For Words (5:13)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643BE2B96630075DE560959D2BEF05EC6203370D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531893   (539717) от 06.08.2012
 
 Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
@@ -6,7 +122,7 @@ Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -50,7 +166,7 @@ Tina Turner - Simply The Best (1991) [DTS 5.1|image (Upmix)]<Pop, Rock, R&B>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +201,7 @@ Electric Light Orchestra - Zoom (2001) 2LP /2013, Big Trilby Records/ [FLAC 2.0 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +230,7 @@ Nicole - Alles fliesst (2005) [DTS 5.1 CD-Extra|44.1/16| .bin+.cue (Audio-DVD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +259,7 @@ Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -172,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -207,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -236,7 +352,7 @@ Electric Light Orchestra - Balance Of Power (1986)  [FLAC 2.0 24/96|image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -257,34 +373,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557908   (535704) от 18.06.2022
-
-Triptykon - Studio Albums (2010 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Black/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triptykon — швейцарская экстремальная метал-группа из Цюриха, основанная в 2008 году Томасом Габриэлем Фишером, одним из основателей новаторских хэви-металлических групп Hellhammer, Celtic Frost и Apollyon Sun.2010 - Eparistera Daimones
-2014 - Melana Chasmata
-2020 - Requiem (Live At Roadburn 2019)Жанр: Death/Black/Doom MetalПродолжительность: 03:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8858B6C68B50D2C584EB7AF16EE12E55E915DF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155340   (535070) от 02.08.2017
 
 Каролина (Люба Орлова/Гусева) - Дискобар (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
@@ -293,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +439,7 @@ Black Jack - Hot Passion (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +555,7 @@ Smokie - Midnight Cafe (1976) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Soft Rock, Pop R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -524,7 +612,7 @@ David Hazeltine Trio - Senor Blues (2018) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Ja
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +641,7 @@ Genesis - Abacab (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +670,7 @@ Eric Clapton - Reptile (2001) [FLAC 2.0|88.2/24|tracks|DVD-Audio] <Blues, Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +699,7 @@ Black Sabbath - Russian Vinyl Collection/Блэк Сэбэт - Русская к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -640,7 +728,7 @@ Luciano Pavarotti - The Essential Pavarotti (1991) [FLAC 2.0 24/192|image+.cue (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -669,7 +757,7 @@ Roger Hodgson - Hai Hai (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -683,93 +771,6 @@ A4. You Make Me Love You (5:10)(   Читать дальше...   )Произв�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40E82248AF276620639AF249BD1BBEFAF7F3002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229812   (513758) от 26.08.2010
-
-Fleetwood Mac - Say You Will (2003) [MLP 2.0, 5.1 96/24 |DVD-Audio]<rock>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's The World Coming To [03:48]
-02. Murrow Turning Over In His Grave [04:12]
-03. Illume (9-11) [04:51]
-04. Thrown Down [04:02](   Читать дальше...   )Жанр: RockПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931025   (512811) от 25.08.2015
-
-Vangelis - Spiral (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<New Age>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512811.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Spiral
-A2 Ballad
-A3 Dervish D.
-B1 To The Unknown Man(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10969C4F1F95E26EBFF2388AF0F51039C120C967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315486   (512612) от 20.07.2019
-
-В. С. Высоцкий - Лучшие песни 3 (1980/1996) [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Chansone>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня о погибшем лётчике
-02. Мой друг уехал в Магадан
-03. ''Гололёд на земле, гололёд...''
-04. Прерванный полёт(   Читать дальше...   )Жанр: ChansoneПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1BF96D00DE9F5E9CDD3449344D853F184B62BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,86 @@
+###  Публикация: 1516959   (164041) от 13.12.2021
+
+Gumroad, Eugene Petrov | Handgun for Video games Tutorial (2019) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе я расскажу о полном процессе создания оружия, готового к игре, предназначенного для современных шутеров от первого лица.
+Я покажу свой пайплайн по созданию высокополигональных твердотельных моделей в Zbrush с использованием функции Live Boolean, а затем создам оптимизированную низкополигональную сетку в Maya.
+Также я расскажу о своих методах создания (   Читать дальше...   )Производство: GumroadЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 36:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327C119E9BCF16C908F5C64BEE4C8FB04FC6F1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673693   (163965) от 02.11.2023
+
+Motionguru, Jafar Fazel | Motion Design Course (Motion Hero) (2021) WEB-DL [AD] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задавались вопросом, почему некоторые, казалось бы, простые видеоролики имеют такую ​​потрясающую анимацию, а другие смотреть больно?
+Это связано с тем, что многие начинающие аниматоры не знакомы с принципами анимации или теорией анимации в целом, они не знают, на каких аспектах им следует сосредоточиться, чтобы улучшить свою работу, почему (   Читать дальше...   )Производство: MotionguruЖанр: Моушен дизайнЯзык озвучки: АнглийскийПродолжительность: 12:23:16Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6969F7CE962F8B979F78171AEF52B93E986C3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598047   (163747) от 17.12.2022
+
+Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы научитесь создавать персонажа под руководством профессионального 3D художника Розы Ли, она работала над многими AAA проектами и теперь вместе с Levelup.Digital покажет вам, как создается персонаж Харли Квин.
+На каждом этапе этого курса вы получите пошаговое руководство к действиям.
+Сначала Роза объяснит как настроить интерфейс ZBrush для более эффективной (   Читать дальше...   )Производство: Levelup.DigitalЖанр: 3D моделирование, СкульптингЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 07:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE95201C16E2458737DE39DA487B44D535D1F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598024   (163732) от 17.12.2022
 
 CG Cookie, Jonathan Lampel | ASSEMBLE: Introduction to Procedural Modeling with Geometry Nodes in Blender (2022) PCRec [EN / EN Sub]
@@ -6,7 +89,7 @@ CG Cookie, Jonathan Lampel | ASSEMBLE: Introduction to Procedural Modeling with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +116,7 @@ Domestika, Luis Alberto Gayoso Berrosp | Digital Sculpture of Fantastic Creature
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +142,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Guide to Unreal Engine 5 (2022) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +168,7 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +197,7 @@ Gumroad, Tim Bergholz | Blade Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +223,7 @@ Gumroad, Tim Bergholz | Blade Tutorial Extended Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +250,7 @@ Cubebrush, Marc Brunet | Drawing and Coloring Techniques (2014) WEB-DLRip [RU, E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +276,7 @@ Kalachevaschool, Ирина Артамонова | Цветущая пастел
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +333,7 @@ CG Cookie, Kenan Proffitt | ASTRAY: Environment Building Workflow in Blender (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +359,7 @@ CG Cookie, Kent Trammell | CUBICITY: Creating and Utilizing Asset Libraries with
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -303,7 +386,7 @@ CG Cookie, Paul Caggegi | PANELS: Create a Comic Book with Grease Pencil in Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -331,7 +414,7 @@ CG Cookie, Wayne Dixon | OFF-ROAD: Rig and Animate an RC Monster Truck in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -357,7 +440,7 @@ CG Cookie, Jonathan Lampel | POTHEAD: Create a Hard Surface Character in Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -384,7 +467,7 @@ Skillshare, Neil Bettison | Дизайн и рендер стилизованн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -411,7 +494,7 @@ Skillshare, John Knowles | Введение в анимацию: Основы Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -438,7 +521,7 @@ CG Fast Track | Основы анимации в Blender 2.82 / Blender Animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -464,7 +547,7 @@ Udemy, 3D Tudor | Blender Beginner’s Bootcamp (2023) WEB-DL [AD] [EN, RU / EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -492,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -521,7 +604,7 @@ Gumroad, Duard Mostert | AAA Game Assets with Fusion 360 Tutorial (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -548,7 +631,7 @@ XYZ School, Женя Пак | Hard Surface (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -576,7 +659,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create the military Black Hornet d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -602,7 +685,7 @@ Kalachevaschool, Виктория Акулова | Эмоциональная а
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -616,87 +699,6 @@ Kalachevaschool, Виктория Акулова | Эмоциональная а
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DF798A6610460ED42ED70B3A3B542866308C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674230   (162074) от 04.11.2023
-
-Schoolism, Thomas Fluharty | Oil Painting (2016) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас Флуэрти познакомит вас с тем, как писали маслом великолепные Фламаднские художники. В этом курсе Томас расскажет вам о принципах, которым следовали Фламандцы и покажет, как нарисовать портрет, подражая этим великим художникам. Будут подняты такие вопросы, как создание первоначального наброска, грунтование холста, работа маслом и завершение. Так-же Томас поделится (   Читать дальше...   )Производство: SchoolismЖанр: РисованиеЯзык озвучки: Русский (отдельным файлом)Продолжительность: 11:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3E85220639428AE9F397AF2369C20EF381A306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674179   (162055) от 04.11.2023
-
-KkartSchool, Карина Кино | Создание книги (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь создавать авторскую книгу с нуля. Узнаете, как создавать иллюстрации, сделать макет книги для издательства или самостоятельной печати, научитесь подбирать шрифты и узнаете о структуре книги, сетке и композиции. В курс входят очень познавательные лекции об истории книжной графики и иллюстрации. Вы узнаете о том, как работать с издательствами. Вам понравятся (   Читать дальше...   )Производство: KkartSchoolЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 14:21:29Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5C3F8AF192568509EFFAFE3A01E3BFE3433734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674212   (162044) от 04.11.2023
-
-Schoolism, Jonathan Hardesty | Essentials of Realism (2016) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс - подробное описание всего, что нужно художнику для того, чтобы достичь реалистичности в своих работах. Студенты глубоко изучат реалистичную манеру рисования и научатся использовать эти знания в своих собственных проектах. В курсе освещаются следующие темы:
-
-   Пропорциональность (Все элементы на своем месте)
-   Светлота (Насколько ярким или светлым должен быть (   Читать дальше...   )Производство: SchoolismЖанр: РисованиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 12:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B714EAEA6385BC06F842876A7571015C71E1A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

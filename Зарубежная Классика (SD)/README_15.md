@@ -1,3 +1,108 @@
+###  Публикация: 972031   (959528) от 26.01.2016
+
+Петулия / Petulia (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+По роману Джона Хааса в адаптации Барбары Тёрнер. Немолодой хирург из Сан-Франциско Арчи Боллен, намедни бросивший жену и двоих детей, встречает на скучной ему вечеринке смешную девчонку с лепестковым именем Петулия, также утомленную своим шестимесячным замужеством. Она тащит его в мотель. Говорит, что должны пожениться. Экспериментирует с жизнью, пока наконец богатый (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Драма, мелодрама, экранизацияРежиссер: Ричард ЛестерАктеры: Джули Кристи, Джордж К. Скотт, Ричард Чемберлен, Артур Хилл, Ширли Найт, Пиппа Скотт, Кэтлин Уиддоуз, Роджер Боуэн, Ричард А. Дайсарт, Рут Кобарт, Джозеф Коттен, Эллен Гир, Лу Гилберт, Нэйт Эсформс, Мария Вэл, Винсент Ариас, Эрик УайссПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2623606C73F842E5FC56E0471D5E15E874580A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453231   (959417) от 26.01.2016
+
+Дорогой мамочке в день рождения / Alla mia cara mamma nel giorno del suo compleanno (1974) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В фильме показана трагедия богатого аристократического семейства, в центре которой графский сын — Дидино, уже зрелый мужчина вечно опекаемый мамой. Ее любовь к нему настолько велика что она готова контролировать любой его шаг, не желая понимать что мальчик уже давно созрел и готов и хочет любить. Да еще и в доме появляется новая служанка. Тут то и все и начинается.Производство: Италия / Rusconi Film S.p.a.Жанр: КомедияРежиссер: Лучано СальчеАктеры: Паоло Вилладжо, Лиля Кедрова, Элеонора Джорджи, Антонино Фаа Ди Бруно, Ренато Кьянтони, Орхидея Де Сантис, Гуидо Чернилья, Кармине Феррара, Карла Манчини, Энцо СпиталериПеревод: Одноголосый закадровыйПродолжительность: 01:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3D18C12F980EA413D1F83AD7DB6E0342376ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748274   (958456) от 22.01.2014
+
+Тройной крест / Triple Cross (1966) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Учтивый, остроумный, смелый, красивый и крайне аморальный английский взломщик сейфов Эдди Чапман берется за самые невероятные дела и с блеском их проводит. Он грабит дворцы и замки богатых вельмож с такой легкостью и выдумкой, что, кажется, любой желающий может сделать так же. Он ведет красивую жизнь плейбоя, общается с самыми изысканными красавицами Старого и Нового (   Читать дальше...   )Жанр: Приключения, Военный, ДрамаРежиссер: Теренс ЯнгАктеры: Кристофер Пламмер, Роми Шнайдер, Тревор Ховард, Герт Фрёбе, Клодин Оже, Юл Бриннер, Жорж Ликан, Джесс Хан, Гарри Мейен, Джил БарберПеревод: Одноголосый закадровыйПродолжительность: 02:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFD652CAAA36832A66917B15CEE008E5AF63C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748480   (958453) от 22.01.2014
+
+Гром небесный / Le tonnerre de Dieu (1965) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бриссак, старый нотариус и по совместительству ветеринар, который одинаково любит и животных и напитки, мизантроп и анархист, живет в своем загородном особняке вместе с женой, незаметной, тихой, привыкшей к странностям и капризам мужа.
+Бриссак любит приводить в свой дом бродячих собак, грязных мусорщиков, уличных девчонок — одним словом, чуть ли не всех несчастных (   Читать дальше...   )Жанр: Комедия, ДрамаРежиссер: Дени де Ла ПательерАктеры: Жан Габен, Мишель Мерсье, Робер Оссейн, Лилли Палмер, Жорж Жере, Эмма Даниели, Эллен Швирс, Нино Винджелли, Даниэль Секкальди, Луи АрбесьеПеревод: ДублированныйПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05086F62BC5E46E06FB20BA1998D2933F9F2D389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972289   (958367) от 27.01.2016
 
 Идущие тяжёлыми шагами / Gli uomini dal passo pesante (1965) DVDRip [H.264] [АVO]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,112 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A601623BF64CD1102831290F6B43A62E7D410F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973855   (950924) от 01.02.2016
-
-Человек, который смеется / L'homme qui rit (1971) DVDRip [H.264]
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноимённого романа Виктора Гюго.
-Действие происходит в Великобритании в конце XVII — начале XVIII веков. Умирающего от голода мальчика Гуинплена и слепую девочку Дею приютил путешествующий философ Урсус. Главный герой Гуинплен, — человек, который смеётся, — в раннем детстве был похищен и обезображен компрачикосами, на его долю выпало огромное количество (   Читать дальше...   )Производство: Франция (2me chane ORTF)Жанр: Драма, история, экранизацияРежиссер: Жан КершбронАктеры: Ксавье Депра, Эрик Дамэ, Филипп Букле, Дэльфин Дезье, Жорж Маршаль, Джульетт Виллар, Филипп Клэй, Мари Летурнер, Клодин Рера, Рауль Марко и др.Перевод: Многоголосый закадровый - 1 каналЯзык субтитров: РусскийПродолжительность: 02:25:27 + 01:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E607AE62C569B4CC4DC9BC57D11325F5289E208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749781   (950777) от 27.01.2014
-
-Знахарь / Znachor (1981) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950777.jpg" />
-</div>
-
-
-###  Подробнее
-
-С гениальным хирургом Рафалом Вильчуром происходит трагедия, изменившая всю его жизнь. Уходят жена и дочь, в тот же день он оказывается на улице без денег и документов. Ему приходится пережить несколько лет скитаний и горя. И все-таки судьба поворачивается к нему лицом.Производство: ПольшаЖанр: ДрамаРежиссер: Ежи ГоффманАктеры: Ежи Биньчицкий, Анна Дымна, Томаш Стокингер, Бернард Лядыш, Божена Дыкель, Артур БарцисПеревод: ДублированныйПродолжительность: 02:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A73C17B1ADABC303662C2F89E5C276686764B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874844   (950619) от 22.02.2020
-
-Веревка / Rope (1948) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое молодых людей, Брэндон Шоу и Филлип Морган без всякой причины, для развлечения убивают своего приятеля-сокурсника, Девида Кентли, задушив верёвкой. Спрятав тело в сундук, Брендон и Филлип устраивают вечеринку в той же квартире. Среди приглашенных — отец Девида, его невеста Жанет и их преподаватель Руперт. В ходе вечеринки Филипп постепенно осознает весь ужас (   Читать дальше...   )Производство: США / Transatlantic Pictures, Warner Bros. PicturesЖанр: Триллер, Драма, КриминалРежиссер: Альфред ХичкокАктеры: Дик Хоган, Джон Долл, Фарли Грейнджер, Джеймс Стюарт, Эдит Эвансон, Дуглас Дик, Джоан Чэндлер, Седрик Хардвик, Констанс Колльер, Альфред ХичкокПеревод: Дублированный, многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C65C387AF56E0BF2495174EDFAC55BD5444A131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086722   (950547) от 04.01.2017
-
-Монтана / Montana (1950) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — непритязательный пастух овец Морган Лэйн, прибывший из Австралии в США и решивший попытать счастья в Новом Свете. Она — Баронесса Мария Синглетон, владелица огромного стада рогатого скота в самом плодородном штата Америки — Монтана. Среди бескрайних пастбищ им суждено испытать ненависть и любовь.
-Ковбои не любят овцеводов, считая, что овцы вытаптывают их поля, (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Боевик, Мелодрама, Приключения, ВестернРежиссер: Рэй Энрайт, Рауль УолшАктеры: Эррол Флинн, Алексис Смит, Ш.З. Шакалль, Дуглас Кеннеди, Джеймс Браун, Йен МакДональд, Чарльз Ирвин, Пол Э. Барнс, Тудор Оуэн, Лестер МэтьюзПеревод: Авторский (С. Визгунов)Язык субтитров: АнглийскийПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613180F5BF880EB5B9E04EDE1973050ADF44E1D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

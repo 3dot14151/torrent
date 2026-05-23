@@ -1,3 +1,348 @@
+###  Публикация: 1251162   (419869) от 30.09.2018
+
+Векторный клипарт - Creative Market - Big CAT bundle - 2199896 [EPS, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это очень большой и симпатичный набор кошек & котов! Он идеально подходит для карт, приглашений на вечеринки, баннеров, наклеек, заголовков, презентаций шрифтов, детских интерьеров и многого другого.Формат: EPS, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F4FB26F535489FBC11589B5C68BAB323587682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251232   (419863) от 30.09.2018
+
+3D модели - ArtStation - Yanaka Coffee Shop [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кофейня Янака, сделал это во время моего свободного времени, вдохновленного настоящим кафе в Японии.Формат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B63E624C26AC63A06C24D817710AE6FCF030F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251163   (419856) от 30.09.2018
+
+Векторный клипарт - Creative Market - Collection Christmas - 2149924 [AI, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Красивая новогодняя коллекция для Вашего творчества, в которую входят различные абстрактные фоны, как вертикальные так и горизонтальные а также бесшовные рисунки. Идеально подходит для зимних поздравительных открыток, приглашений, плакатов, подарков и многое другое.Формат: AI, PSD, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA0F116793A0E82286F3818B630F16AB17C8C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251259   (419849) от 30.09.2018
+
+Экшены - GraphicRiver - Gif Animated Smoke Double Lighting Photoshop Action - 21838009 [ATN, ABR, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Gif Animated Smoke Double Lighting - это действие преобразует ваши изображения в анимацию клубов дыма с добавлением эффекта двойного света. Лучший эффект на портретные изображения. Это действие работает неразрушающим образом, чтобы добиться высокого качества. Таким образом, исходный слой изображения останется неизменным.Формат: ATN, ABR, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C198898A3733086144D564B64843E0D6AE26C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251192   (419709) от 30.09.2018
+
+Шаблоны - GraphicRiver - Professional 10 Text Effects Bundle - 22563076 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сделайте свои тексты / заголовки / логотипы профессиональными и привлекательными. Просто поместите свой текст в смарт объект, и все будет готово. Вы можете редактировать тени и огни на эффектах 360 градусов, поэтому у вас есть неограниченные возможности. Файл инструкции PDF присутствует.Формат: PSDРазрешение файлов: 2000x1500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C7A2A9035F524C9C47CE93486277DD81E4CDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251277   (419700) от 30.09.2018
+
+3D модели - Sketchfab - Little Robot Dude [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3d модель небольшого роботаФормат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA3CAE0FE4801A02A30102349DC95B73CB7A613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251221   (419506) от 30.09.2018
+
+3D модели - Unity Asset Store - Assault Character Pack Remastered - 16771 [FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+BlocBros Studio с гордостью представляет версию Remastered предыдущего бестселлера Assault Character Pack, вкл. Оружие, но теперь  увеличено в 10х количество полигонов и более четким скелетом с классическим 6 оружием. Создано для следующего поколения ПК / консольных / мобильных платформ с учетом текстур PBS и совместимой с MotionBuilder / Unity Mecanim установкой.Формат: FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34156D688D3ACA683D716535B34735C9C0DDC49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167187   (419442) от 19.09.2017
+
+Растровый клипарт - Set Flowers [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт цветы на прозрачном фоне (18 шт).Формат: PNGРазрешение файлов: 728х1894-5187х8000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8608ED1A769B2C29AC50AB291EAF4CFF7A47259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167179   (419264) от 19.09.2017
+
+Векторный клипарт - Natural Bio Organic [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Наклейки здоровая еда. Превью в JPG.Формат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC5110EECA7E3EB2B15CDA463BFC332D6E095A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166931   (419260) от 19.09.2017
+
+Растровый клипарт - CreativeMarket - Fine Art Blossom Overlays [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Включены в этот набор...
+4 Цветка с изменением оттенков, цвета.
+16 PNG лепестки цветок в пастельных розовых тонах.
+3 сладких PNG цветы.(   Читать дальше...   )Формат: PNGРазрешение файлов: 682х682-6016х4016
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199039A89D9C061FADB0B36992E20F2A6F2816AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167024   (419095) от 19.09.2017
+
+Экшены - CreativeMarket - Water Color Photoshop Action v.2 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Water Color - экшен фотошоп с эффектом красочного акварельного полотна. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC201E199BC82612FC739625F25647A4865E5A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166822   (419093) от 19.09.2017
+
+Стили - GraphicRiver - 10 3D Text Styles V.39 [PSD, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+> 10 различных стилей
+> 100% редактируемые
+> легко изменить
+> высокое разрешение(   Читать дальше...   )Формат: PSD, ASLРазрешение файлов: 2500 х 2500-3600 х 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D0E5A6315D0EA5C52422391BE5B9E20DB379B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166925   (419082) от 19.09.2017
+
+Кисти - CreativeMarket - DigitalPainting Assets for Creatives [ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+600 образцов кожи (30 оттенков) 330 глаз образцы, 581 образцы волос, 171 губ образцов, 15 золотых образцов 15 серебряных образцов 15 медных образцов 30 накладок блеска (2000px x 2000px, 300 dpi, прозрачный PNG файлов), 45 веснушек образцов, 31 веснушками кисти (между 8px and 30px каждый), 143 портрета кисти, 405 пастельных цветовых палитр (45 комбинаций), 52 ювелирные (   Читать дальше...   )Формат: ABRРазрешение файлов: 2000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B55AC2C9C66591FE62ABA971411FC9A916D8E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 831349   (418961) от 15.10.2014
 
 Футажи - Artbeats - Dreamlight 1 [MOV]
@@ -6,7 +351,7 @@
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +406,7 @@ Native Instruments - Abbey Road Modern Drums [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +432,7 @@ Native Instruments - Alicia`s Keys [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +511,7 @@ Hum3D - Volkswagen Crafter Panel Van L1H2 2017 [Scanline|Mental Ray|V-Ray|*.max,
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +537,7 @@ Digital Juice - Juice Drops 34-71 (Files PSD)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -336,345 +681,6 @@ Abstract Explosion - экшен фотошоп с эффектом соврем�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A1CAC013AD66DC35F1C5724A79EDFD8E1C24D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251315   (417611) от 01.10.2018
-
-3D модели - GrabCAD - Combat Boat 90 H [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417611.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель Сторожевой катер шведская верфи DockstavarvetФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6800BDF2C0DF90A4DC09B89C3B2CC83C8AF8C238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251446   (417597) от 01.10.2018
-
-3D модели - TurboSquid - Mercedes Benz X Class Power 2018 - 1189889 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417597.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-BenzФормат: V-Ray|Scanline|*.max, FBX, OBJ, MB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3FFBD30BDD33565D1CE56F088D78B0281E1A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251381   (417595) от 01.10.2018
-
-Экшены - GraphicRiver - Animated Electric Energy Photoshop Action - 19993233 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Animated Electric Energy Photoshop Action - представляет собой пакет, содержащий 18 анимированных эффектов, связанных с электричеством, и с помощью этого действия Photoshop очень легко размещает эффекты в ваши изображения. Эффекты действуют в течение 1 секунды и могут повторяться бесконечно при воспроизведении (анимация цикла). Вы можете использовать их для создания (   Читать дальше...   )Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F96890460BC0FB811D5FD77B3762BC738FD5FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251378   (417506) от 01.10.2018
-
-Шаблоны - Creative Market - Cloud Image Toolkit - 1282433 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свежий и уникальный проект для быстрого создания легкого облачного эффекта с вашими фотографиями. Вам не нужно импортировать никаких действий, patter и т. д. Просто отредактировать один Smart Object, чтобы создать облачный эффект.Формат: PSDРазрешение файлов: 3000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F867A5BFF785463FBBEBF3772EDEE10FED3CC452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251459   (417504) от 01.10.2018
-
-Растровый клипарт - Creative Market - Autumn Mockup Scene Creator - 2952342 [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что вам нужно для создания великолепных осенних макетов и графики, находится внутри. Получайте удовольствие от сумасшедших Джек-о-Фонари, тыквы всех размеров и цветов, подсолнухи, падающие листья, рогалики, сбор яблок и многое другое. Создавайте изображения и графику в социальных сетях для Fall, Halloween и Thanksgiving.Формат: JPG, PNGРазрешение файлов: 500x3000-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2C78041516A1293E8D4ADE94F2AECA516F9AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251579   (417499) от 01.10.2018
-
-Стили - Creative Market - 3D Text Effects Bundle Vol.3 - 2348490 [ASL, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417499.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 3D Text Effects Bundle Vol.3 - стили для Вашего творчества.Формат: ASL, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D58F27539186369B66B6B8CA19A80271C379AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251383   (417497) от 01.10.2018
-
-Кисти - Creative Market - Grunge Texture Photoshop Brushes V1 - 1287093 [ABR, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grunge Texture Photoshop Brushes - это первая часть сказочно красивых, современных и стильных кистей с высоким разрешением, которые идеально подходят для того, чтобы украсить ваши фотографии, макеты, художественное журналирование, коллажи, открытки и другие цифровые творения. От тонкого гранжа до более тяжелого. Нет ничего интереснее, чем играть с кистями Photoshop!Формат: ABR, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3182BBB0F4BAD90B0FF8DABDC39405F646053891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251565   (417496) от 01.10.2018
-
-Растровый клипарт - Creative Market - Pre-Colombian Mockup Creator - 2459353 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417496.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 элементов моей Pre-Колумбийской коллекции. Смарт-объект используется, чтобы вы могли изменять их размеры без потери качестваФормат: PSDРазрешение файлов: 3300x2550-12000x12600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7428EF43AF8F3D0BCD766A768FA79A70BF26EB86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251384   (417495) от 01.10.2018
-
-Кисти - Creative Market - Grunge Texture Photoshop Brushes V2 - 1287298 [ABR, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grunge Texture Photoshop Brushes - это вторая часть сказочно красивых, современных и стильных кистей с высоким разрешением, которые идеально подходят для того, чтобы украсить ваши фотографии, макеты, художественное журналирование, коллажи, открытки и другие цифровые творения. От тонкого гранжа до более тяжелого. Нет ничего интереснее, чем играть с кистями Photoshop!Формат: ABR, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C202D2BA903081B371E051926FAD7FB55AB8FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251513   (417492) от 01.10.2018
-
-Экшены - GraphicRiver - Oil Painting Photoshop Actions - 22575133 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oil Painting - картина маслом, без особого усилия данный экшен фотошоп превратит ваши фото в шедевр художественного полотна. Лёгкость в настройках для улучшения конечного результата.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D19D61BB25DB142E133E2C225DEEB2A0E87536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251412   (417382) от 01.10.2018
-
-Текстуры - Creative Market - Watercolor Seamless Textures Brown - 1208253 [PNG, PAT, AI]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Seamless Textures Brown - это маленький, но очень полезный пакет акварельных текстур ручной работы. Наслаждайтесь ими и сделайте что-нибудь приятное и эффектное с этими текстурами!Формат: PNG, PAT, AIРазрешение файлов: 1500x1500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9E7434051D6DC8DBE6F8706D789CB932E48E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251385   (417378) от 01.10.2018
-
-Кисти - Creative Market - Grunge Texture Photoshop Brushes V3 - 1287416 [ABR, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grunge Texture Photoshop Brushes - это третья часть сказочно красивых, современных и стильных кистей с высоким разрешением, которые идеально подходят для того, чтобы украсить ваши фотографии, макеты, художественное журналирование, коллажи, открытки и другие цифровые творения. От тонкого гранжа до более тяжелого. Нет ничего интереснее, чем играть с кистями Photoshop!Формат: ABR, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084CA164C912422D790E668D99FEA49B53CAFF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251535   (417273) от 01.10.2018
-
-Шаблоны - Creative Market - YearBook - Ru - Выпускной альбом - 2546328 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпускной альбом на 60 страниц
-20 x 30 cmФормат: PSDРазрешение файлов: 4819x3425
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4BCF933035F570CCC1A3D68106A8B1D0A7CAE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

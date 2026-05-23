@@ -1,3 +1,29 @@
+###  Публикация: 1036012   (620928) от 20.07.2016
+
+NG: Когда сталкиваются континенты / When Continents Collide (2010) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Два континента. Разные и незнакомые миры. На каждом из них обитали странные и экзотические существа. За миллионы лет геологические силы образовали перемычку между ними. Там, где сейчас походит Панамский канал, раньше плескалось море. Северная и Южная Америки столкнулись. Сегодня ученые изучают это столкновение, собирая обломки и изучая следы. Доисторические хищники (   Читать дальше...   )Телекомпания: New Pony Productions, National Geographic TelevisionЖанр: ДокументальныйРежиссер: Рон БоуманПеревод: Одноголосый закадровый профессиональныйПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DEE6CF55655BA65DC61A1729F2A4F3178F15051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 702568   (620738) от 20.07.2016
 
 NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes) / Tauchen im Labyrinth (2010) BDRip [H.264/1080p]
@@ -6,7 +32,7 @@ NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG: В пещере кристаллов / Into the Crystal Cave (2010) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG.Запреты: Экстремальное лечение / NG.Taboo: Freaky 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ NG: 42 способа убить Гитлера / National Geographic 42 Ways to
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_618066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +214,7 @@ NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ NG: Осушить океан: глубокое погружение. Сабот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ NGW: Акула против тунца / Shark vs Tuna (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +370,7 @@ NG: С точки зрения науки: Магнитное поле Земл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +396,7 @@ NGW: Самые опасные животные Африки: Ботсвана /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +422,7 @@ NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +474,7 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +500,7 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +526,7 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +552,7 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +578,7 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +604,7 @@ NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +630,7 @@ NG: Египет с высоты птичьего полета / Egypt from Abov
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,33 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B12620574694346A72DA66B2A801AEEDDD27845F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147614   (607420) от 03.07.2017
-
-NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.264/1080i-LQ] (Сезон 42, эпизод 13)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делает нас людьми и откуда мы взялись? После появления теории эволюции Дарвина, ученые пытались определить как выглядели первые существа, покинувшие мир обезьян и вступившие в мир человека. За последние 50 лет новые находки археологов помогли заполнить часть пробелов в истории эволюции человека.
-Но кости наших предков попадаются крайне редко, позволяя лишь мельком (   Читать дальше...   )Производство: США, National Geographic Studios, NOVA/WGBH BostonЖанр: Документальный, научно-популярныйРежиссер: Грэхэм ТаунслиПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E363A146497223259F646F5AA5916C97B7256D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

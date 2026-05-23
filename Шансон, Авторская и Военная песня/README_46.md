@@ -1,3 +1,120 @@
+###  Публикация: 1631430   (198881) от 06.05.2023
+
+VA - Белорусский вокзал <<Лучшие песни военных лет>> (2004) [MP3|320 Kbps] <Военная песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Инна Афанасьева - Тёмная ночь
+02. гр. J Морс - Землянка
+03. виа Харлi - Бери шинель, пошли домой
+04. Наташа Кудрина - Мы за ценой не постоим ( Песня из к/ф Белорусский вокзал )(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C387168F8E31A4CD57274716BB3E54879A5A2963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633159   (198323) от 18.05.2023
+
+Владимир Высоцкий - Золотой альбом (2002) RCD [FLAC|Lossless|image + .cue] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Утренняя гимнастика
+02. Она была в Париже
+03. Скалолазка
+04. Москва-Одесса(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:45:19
+Сканы: Да
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8CCA0CF29A44D8A5DFAEBBF135730BB61B7454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639613   (196989) от 17.06.2023
+
+VA - Шансон 2023 (Музыкальный хит-парад) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Владимир Ждамиров - Всё пройдёт (4:11)
+02. Михаил Шуфутинский - Шарфик (3:38)
+03. Ольга Стельмах - Я не скажу тебе прощай (3:53)
+04. Алёна Петровская - Обыкновенный (3:20)(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C3BE720805136A9F6BDB47CDA8D7E73ED60D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280006   (195100) от 27.07.2023
+
+Ирина Круг - Я прочитаю в твоих глазах (2010) [APE|Lossless]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01 - Я прочитаю в глазах твоих [3:30]
+02 - Дом на горе [3:24]
+03 - Качают небо золотые купола (Дуэт с В.Королёвым) [4:07]
+04 - То , что было [3:11](   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06AF00DDBFB8A6E4F30DE78A9BE89608E1BBE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659044   (190550) от 10.09.2023
 
 Виктор Королёв - Украденная ночь (2003) [FLAC|Lossless|tracks + .cue]<Шансон>
@@ -6,7 +123,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -64,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +210,7 @@ VA - Виктор Королёв и Ирина Круг•Букет из бел
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -122,7 +239,7 @@ VA - Музыка РУ. Шансон (2005) [FLAC|Lossless|tracks + .cue]<Шан
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +268,7 @@ iSenin - Не воскрес (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -180,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -238,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -267,7 +384,7 @@ Marie Laforet - Marie Laforet (2001) [FLAC|Lossless|image + .cue] <Chanson, Pop>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -296,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -325,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +587,7 @@ SHEILA - Live à Bruxelles, 2022 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +616,7 @@ VA - Пацанам городских окраин (2004) [FLAC|Lossless|tracks
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -629,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B3F66254C740C393F98187D685801805C380C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583173   (168356) от 12.12.2020
-
-Валентин Гафт и Игорь Карташев - Отдушина (2012) [MP3|320 кб/с]<Авторская песня,Стихи>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск 2 (Игорь Карташев:) 00:41:30
-01. Театр
-02. Петух
-03. Мышка(   Читать дальше...   )Жанр: Авторская песня,СтихиПродолжительность: 01:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB5617164C3008B798375618B283C94AA4CAD89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596680   (168226) от 12.12.2022
-
-Лёша Закон (Алексей Глухов) - Беспредельщик Всея Руси (2022) [MP3|320 Kbps] <Chanson, Acoustic>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Беспредельщик Всея Руси [00:02:21]
-02-В ЧВК [00:02:07]
-03-Ветер облачко несёт (Лирическая) (Слепаков cover) [00:03:04]
-04-С женщиной любимою [00:02:27](   Читать дальше...   )Жанр: Chanson, AcousticПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD99DF12424698B6D806684463C59BD1C4FFB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298945   (167935) от 13.12.2019
-
-Голубые береты - Не стесняйтесь наград, мужики... (2019) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167935.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Нас все меньше в строю
-2. Не стесняйтесь наград, мужики
-3. Две судьбы
-4. В нашем БэТэРе(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9C2B0A80AEF23ED2D29583B287ED14F7F8D30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431462   (167887) от 13.12.2020
-
-Сергей Серафимов - Еще не поздно (2020) [FLAC|Lossless|tracks] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Еще не поздно любить
-02. А я люблю тебя
-03. Вот опять я иду
-04. Женщина любимая(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B3A21C4A5ABCAB6E8DF4430C1F7EE5C8580CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

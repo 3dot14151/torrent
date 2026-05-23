@@ -1,3 +1,81 @@
+###  Публикация: 1472860   (1013989) от 27.05.2021
+
+Jason Scheier | Composition 101 (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эта вводная лекция ориентирована на начинающих и переходящих к среднему уровню художников в деле создания запоминающихся композиционных решений для создания изображений. Я перейду к деталям, создавая определенную иерархическую структуру путем формирования блоков основных элементов композиции и постепенно переходя к проработке более конкретных аспектов ваших композиций (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F73E2F10B2BE5C9FFB1CB0AF6F2CB4AC85ADEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287995   (1013921) от 27.05.2021
+
+Джама Джурабаев | Как создавать кинематографичные ландшафты / How to create cinematic landscapes (2018) PCRec [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе я покажу вам, как создавать кинематографичные ландшафты с помощью World Creator 2 и Octane Standalone.Производство: GumroadЖанр: 3D моделированиеЯзык озвучки: Русский, АнглийскийПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EDF109994CEB1AEAF5DC2D25AD64CFDDB856B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287298   (1013913) от 27.05.2021
+
+Джама Джурабаев | Сюжетный концепт арт/ Narrative Concept Art (2016) PCRec [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Научитесь передавать идею повествования, используя различные простые, но эффективные техники Photoshop и рисования. Ветеран индустрии Джама Джурабаев покажет студентам, как сосредоточиться на творческом аспекте своей работы, а не на техническом.Производство: Learn SquaredЖанр: Рисование, Концепт арт, PhotoshopЯзык озвучки: Русский, АнглийскийПродолжительность: 17:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88443902D14F2A88CF52B7B39C777CE1C0A47C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472865   (1013827) от 28.05.2021
 
 Jason Scheie | Visual Development for Animation (2015) PCRec [En, Ru]
@@ -6,7 +84,7 @@ Jason Scheie | Visual Development for Animation (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +111,7 @@ John Park | Introduction to Vehicle Design - The Basics (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +140,7 @@ Creative Shrimp | Реалистичное освещение в Blender 2.76-2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +168,7 @@ Matthias De Muylder | Marvelous Designer For Concept Art (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +194,7 @@ Creative Shrimp | Космические визуальные эффекты: С
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +221,7 @@ Sjoerd de Jong | Materials: Essential Concepts (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +247,7 @@ Michael Pavlovich | ZBrush 2018 Image Based Lighting (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +273,7 @@ Marek Okon | Part Two: Illustrating Colossus (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +299,7 @@ Maciej Kuciara | Environment for Video Games: Production Illustration (2014) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +326,7 @@ Jake Parker | How To Draw Everything (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +354,7 @@ Trevor Kerr, Chad Ashley | Guide to Redshift (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -304,7 +382,7 @@ Rich Nosworthy | learn Redshift for Cinema 4D: V02 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -333,7 +411,7 @@ Udemy, Mrawan Hussain | Создание реалистичного BMW 507 от
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -360,7 +438,7 @@ Terryl Whitlatch | Creature Anatomy (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -388,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -416,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -443,7 +521,7 @@ Digital tutors, Delano Athias | Introduction to Animation in Maya (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -471,7 +549,7 @@ Dice Tsutsumi и Robert Kondo | Painting with Light and Color (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -497,7 +575,7 @@ Daniel Arriaga | Characters for Animated Film (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -524,7 +602,7 @@ Sam Nielson | Fundamentals of Lighting (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -550,7 +628,7 @@ Stephen Silver | Fundamentals of Character Design (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Udemy, Rob Tuytel | Создание 3D окружения в Blender 2.81 / Cre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -605,7 +683,7 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 2 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -618,85 +696,6 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 2 PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B5ED4951CC738361219A6E51EBB0F87AF46735B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474868   (1012613) от 04.06.2021
-
-Alan Ayoubi | Мега-курс Adobe Illustrator - от новичка до продвинутого иллюстратора / Adobe Illustrator Mega Course - From Beginner to Advanced Illustrator  (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс Adobe Illustrator разработан, чтобы шаг за шагом вводить абсолютных новичков в продвинутые уровни дизайна и иллюстрации.Производство: SkillshareЖанр: ИллюстрацияЯзык озвучки: АнглийскийПродолжительность: 18:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C4870AFFC7AC6745744FC4C75BA8B697A16E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475002   (1012491) от 05.06.2021
-
-Роман Круглов | Рисунок цветными карандашами ПРОдолжение (2021) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под наблюдением преподавателя вы будете рисовать многопредметные натюрморты и пейзажи с несколькими пространственными планами. Всего на курсе вы создадите 9 работ! Вы научитесь выделять главное, расставлять акценты и управлять вниманием зрителя, работать с тоном и передавать разные фактуры. Поймете, как максимально использовать возможности цветных карандашей и увидите, (   Читать дальше...   )Производство: Hudozhnik OnlineЖанр: Создание видеоПродолжительность: 21:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363728D4E3F114FB2ABC1CBBCB541C7515F28F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475917   (1011959) от 09.06.2021
-
-Justin Marshall | Quick Start to Modeling in Maya. Volume 4 PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011959.jpg" />
-</div>
-
-
-###  Подробнее
-
-В четвертом томе этого курса мы будем продолжать, и отталкиваться от знаний, полученных в предыдущих.
-Начнем с выкладывания корпуса нашего дрона. Используем полигональные инструменты для создания панелей и механических деталей. Будем работать методично, добавляя структурные кусочки, которые должны находится на дроне и делают его визуально интересным. Комбинируем (   Читать дальше...   )Производство: Digital tutorsЖанр: 3D графикаЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954CE5DA414636443E9467D1AB204274181EB355
 ```
 
 https://mybot314.ru/tekegram_catalog/

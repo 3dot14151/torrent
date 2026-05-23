@@ -1,3 +1,30 @@
+###  Публикация: 1104249   (880954) от 14.02.2017
+
+MX Nitro (2017) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Мотокросс, заряженный Нитро, безбашеными трюками и скоростью - это MX Nitro!
+Свист в ушах и адреналин разгоняет кровь до предела, в мире MX Nitro мотокросс не знает границ. Решишься ли ты на очередной безрассудный трюк чтобы добыть Нитро и победить? Гони на полной скорости, вылетай с трамплинов и крути невообразимые трюки изо всех сил. Заводи мотор, крепко ухватись (   Читать дальше...   )Тип издания: LicenseРазработчик: Saber InteractiveЖанр: Racing (Moto), Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F87EB75874EF33DC85CA19125D22B5B21F2097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104829   (879143) от 15.02.2017
 
 MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack R.G. Механики
@@ -6,7 +33,7 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +86,7 @@ Rally Championship 2000 [Ru] (L) 2000
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +112,7 @@ Need for Speed Most Wanted (2012) [Ru/Multi] (1.5.0.0/dlc) License PLAZA [Limite
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +138,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/11dlc) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +164,7 @@ Radial-G: Racing Revolved (2016) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +190,7 @@ Rally Trophy / Ралли Трофи (2001) [Ru] (1.01) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +216,7 @@ GRIP / GRIP: Combat Racing (2018) [Ru/Multi] (1.5.3v2) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +242,7 @@ DiRT Rally (2015) [Ru/En] (1.1) Repack Valdeni
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +268,7 @@ Driver: San Francisco (2011) [Ru/En] (1.04) Rip xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +294,7 @@ F1 Race Stars (2012) [Ru/Multi] (1.1/13dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +320,7 @@ RIDE (2015) [Ru/Multi] (1.0/2dlc) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +346,7 @@ Cyberline Racing (2017) [Ru/En] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +372,7 @@ Desert Car (2015) [Ru/En] (1.4) License TT Games/deema35
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +398,7 @@ RIDE: Game (2015) [Ru/Multi] (1.0/dlc) Repack Repack R.G. Games
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +426,7 @@ Electro Ride: The Neon Racing (2020) [Ru/Multi] (1.0upd24/dlc) License PLAZA [Ha
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +452,7 @@ Bike Rush (2018) [Ru/Multi] (1.0) License HI2U
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +478,7 @@ MX vs ATV All Out (2018) [Ru/Multi] (2.9.6hf/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +504,7 @@ Pure (2008) [Ru/Multi] (1.0) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +530,7 @@ Horizon Chase Turbo (2018) [Ru/Multi] (1.9.5/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +556,7 @@ Cyberline Racing (2017) [Ru] (1.0) Unofficial
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +582,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) SteamRip Let'sPlay [Gold Pa
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +608,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +634,7 @@ Descenders (2019) [Ru/Multi] (1.0upd20211028/dlc) License PLAZA [The Grand Tour]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -633,7 +660,7 @@ Flaklypa Grand Prix (2021) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,32 +671,6 @@ Flaklypa Grand Prix (2021) [Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7841ED843D2EDDB1BCD9E7EA80417A2A24B4B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507857   (798038) от 06.11.2021
-
-Fast & Furious: Spy Racers Rise of SH1FT3R (2021) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast & Furious Spy Racers: Rise Of SH1FT3R - увлекательная гоночная аркада с видом от третьего лица в серии "Форсаж", основана на популярном детском мультсериале Fast & Furious Spy Racers от Netflix. В игре вы выступите в роли юного племянника Доминика Торетто, который вместе со своей командой отправляется на яркий турнир, чтобы остановить бандитов.Тип издания: LicenseРазработчик: 3D CloudsЖанр: RacingЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CE23865D13ED61E761EAACE51F5A4BCDA1A2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

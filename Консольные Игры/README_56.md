@@ -1,29 +1,3 @@
-###  Публикация: 1565506   (212055) от 24.07.2022
-
-Minecraft (2019) [PS4] [EUR] 9.00 [HEN] [License / 2.35 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте случайным образом генерируемые миры и стройте самые разные сооружения: от простейших домов до грандиозных замков и дворцов. Играйте в творческом режиме с неограниченными ресурсами или вгрызайтесь в дебри мира в режиме выживания, изготавливая оружие и доспехи для защиты от опасных мобов. Эта версия позволяет играть с друзьями на разных устройствах, предоставляет (   Читать дальше...   )Тип издания: LicenseРазработчик: MojangЖанр: Аркада, ПлатформерЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18AFF20DED3CBC867E4FF6663D44E220A3713159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585915   (211514) от 24.10.2022
 
 Farm Together (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] [Ru/Multi]
@@ -32,7 +6,7 @@ Farm Together (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +32,7 @@ Martha Is Dead (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +58,7 @@ MX vs ATV Legends (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +84,7 @@ NBA 2K22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.13] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +110,7 @@ Cuphead Delicious Last Course (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DL
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Quarry (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +162,7 @@ Prey (2017) [PS4] [EUR] 9.0 [HEN] [License / 1.12 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +188,7 @@ Tom Clancy's Ghost Recon: Wildlands (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.3
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +214,7 @@ Manhunt [Uncensored] (2004) [Xbox360] [PAL] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [PS4] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +266,7 @@ Bus Simulator 21 (2021) [PS4] [USA] 5.05 [HEN] [License / 2.21 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +292,7 @@ Nickelodeon All-Star Brawl (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.15 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +318,7 @@ Tiny Tina's Wonderlands (2022) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +344,7 @@ Fullmetal Alchemist and the Broken Angel (2005) [PS2] [NTSC] [Unofficial] [Ru/En
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +370,7 @@ DiRt Rally 2.0 (2019) [USA] 5.05 [HEN] [License / 1.26 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +397,7 @@ Remnant From The Ashes (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.24 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +423,7 @@ Worms Collection (2012) [PS3] [EUR] 4.21+ [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +449,7 @@ In Nightmare (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +475,7 @@ Saints Row (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.06 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +501,7 @@ Kena: Bridge of Spirits (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +527,7 @@ Ultra Age (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,7 +553,7 @@ The Dark Pictures Anthology Little Hope (2020) [PS4] [EUR] 5.05 [HEN] [License /
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +579,7 @@ F1 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -631,7 +605,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [PS4] [USA] 5.05 [HEN] [Repack / 1.07 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -657,7 +631,7 @@ WWE 2K22 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.18 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -668,6 +642,32 @@ WWE 2K22 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.18 / DLC] [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6A6275AB0557111F667C86A8B2AE7BAB488BD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556950   (205090) от 18.10.2022
+
+ACE COMBAT 7: SKIES UNKNOWN (2019) [PS4] [EUR] 5.05 [HEN] [License / 2.20 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Ace Combat 7: Skies Unknown направляет всю мощь современных систем на создание впечатляющих воздушных битв на фоне потрясающего облачного неба в головокружительных трех измерениях. Еще достовернее происходящее станет благодаря разнообразным визуальным эффектам и различным погодным условиям, которые вам предстоит использовать для достижения тактического преимущества. (   Читать дальше...   )Тип издания: LicenseРазработчик: BANDAI NAMCO StudiosЖанр: SimulatorЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3059427B065DF732681C596BD52AB70B4D1DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

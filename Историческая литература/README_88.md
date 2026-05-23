@@ -1,3 +1,81 @@
+###  Публикация: 1587971   (192007) от 02.11.2022
+
+Джерри Тонер | Бесславие: Преступный Древний Рим (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В своей новой книге замечательный исследователь античного мира и автор бестселлеров профессор Джерри Тонер рассматривает формы и содержание преступности в Римской империи. Опираясь на многочисленные источники – как широко известные, так и архивные, – автор раскрывает социально-экономические причины, толкавшие на преступление людей из разных слоев общества. В поле (   Читать дальше...   )Жанр: История Древнего мираПеревод: Г.И. АгафоновФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4A23300E1CF7F1FEF26DC8724BFA27CF6FC1FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896391   (191758) от 06.09.2023
+
+Владимир Черемисинов | Нападение англо-французского флота на Одессу в 1854 году: к 50-летию боевого крещения города (1904) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено истории защиты г. Одессы войсками Российской империи в период Крымской войны 1853 –1856 гг. Особое внимание автор уделяет подвигу героя Крымской войны двадцатиоднолетнего прапорщика Александра Петровича Щеголева, удостоенного Великим князем Александром Николаевичем (будущим императором Российской империи Александром II) наградой в виде собственного (   Читать дальше...   )Жанр: ИсторияЯзык: Русский (дореформенный)Издательство: коммерческая типография В. СапожниковаФормат: PDFКачество: Удовлетворительный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3351FC1DF7169377D158CE24CD64BFBE7AD82390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588722   (190786) от 07.11.2022
+
+Е. К. Дулуман | Введение христианства на Руси: легенды, события, факты (1988) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Ученые с материалистических позиций исследуют предпосылки введения христианства на Руси. Привлекая большой круг публикаций, в том числе и древнерусские летописи, литературные памятники, они разоблачают церковные штампы, тенденциозные объяснения причин, обстоятельств и последствий данного явления. В книге освещаются малоисследованные стороны общественной жизни Древнеруссного (   Читать дальше...   )Жанр: научно-популярноеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9D0A05CD54BE81406D373FB4169F0607AB70BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589686   (189939) от 10.11.2022
 
 Арсений Замостьянов | Александр Суворов. Первая шпага империи (2022) [EPUB]
@@ -6,7 +84,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -602,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:659904D7E7E0AC2DAD1B415EDF468D9DCF3C9A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967247   (173755) от 20.12.2015
-
-Марина Щербак, Нина Костромина | 50 знаменитых звездных пар (2003) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неиссякаемый интерес к жизни звездных пар служит живительным источником для всевозможных СМИ, которые исправно снабжают своих потребителей сенсациями - настоящими и вымышленными. А порой и сами звезды в целях рекламы `подбрасывают` прессе легенды собственного сочинения. И тут уже трудно понять, где правда, а где вымысел. Авторы этой книги предлагают читателям самим (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BBACA20E2356A4CE329BFD4C73D41C345F9524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596170   (170794) от 08.12.2022
-
-Николас Старгардт | Мобилизованная нация. Германия 1939–1945 (2021) [PDF, FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга оксфордского профессора, одного из самых авторитетных исследователей нацизма, рассказывает о Второй мировой войне с точки зрения граждан Германии. В ее основу легли частные письма и дневники времен войны. В хронологическом порядке, с 1939 по 1945 г., изложено, как немцы восприняли начало войны, какие у них были надежды и страхи и как менялись их мысли и чувства (   Читать дальше...   )Жанр: ИсторияФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2B8399E5B12D8BC41B7D7D16DE5665651DAA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344480   (170454) от 10.12.2019
-
-Майкл Грант | Юлий Цезарь. Жрец Юпитера (2005) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Грант предлагает увлекательную и наиболее полную из существующих биографий Цезаря, избегая предвзятых оценок и непроверенных мнений. Грант использует не только свидетельства великих историков древности, но и достижения современной научной мысли. В книге воссозданы реалии политики, экономики и быта Древнего Рима.Жанр: История, БиографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5119CBC8DB57F3452A17B5C6F6E6FA6EB77C970
 ```
 
 https://mybot314.ru/tekegram_catalog/

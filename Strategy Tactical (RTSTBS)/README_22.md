@@ -1,3 +1,55 @@
+###  Публикация: 1800942   (15384) от 07.06.2025
+
+Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (Build 14218760) Repack FitGirl
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Lysfanga: The Time Shift Warrior бросает вас в битву, которую можно выиграть, только переписав время. В роли Имэ, защитницы королевства, вы обладаете временной силой, которой нет ни у одной другой Лисфанги: перематывать время в бою.Но это не кнопка "отмотать назад".Считайте, что вы вызываете армию своих прошлых сущностей - так их называют.Каждая перемотка (   Читать дальше...   )Тип издания: RepackРазработчик: Sand Door StudioЖанр: Экшены, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F9A0C89480813D577B1A4061397A2B86507FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802823   (14153) от 19.06.2025
+
+Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack FitGirl [Vanguard Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Командуйте современными военными действиями с размахом. Broken Arrow - это масштабная военная тактическая игра реальном времени, где сочетается комплексный подход варгеймов, в которых используются разные рода войск, с динамичным, тактическим игровым процессом. В игре насчитывается более 300 реалистичных военных подразделений и технологий, а каждая битва дает полное (   Читать дальше...   )Тип издания: RepackРазработчик: Steel BalalaikaЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F4D314D244CD4182A436FC5C1458FA07ABECC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725849   (14149) от 19.06.2025
 
 Songs of Conquest (2022) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Complete Bundle]
@@ -6,7 +58,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.0/dlc) Repack FitGirl [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.2/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19225) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Ratten Reich (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Kingdom Ascension (2025) [Ru/Multi] (1.0.0.4) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3P2_85055/dlc) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Sears: The Sky Frontier (2023) [Ru/Multi] (EA 0.3.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ SGS Spain at War (2025) [Ru/Multi] (25.06.11) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Day of the Shell (2025) [Ru/Multi] (build 19397550) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ No Plan B (2024) [Ru/Multi] (1.2/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Crossfire Legion (2022) [Ru/Multi] (2.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack seleZen [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.06.06/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF3A74F5C6B1D4596599403163E417DD866A8EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804072   (7585) от 16.08.2025
-
-Guards II (2): Chaos in Hell (2025) [Ru/Multi] (1.1) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guards II – это тактическая пошаговая стратегия с простыми на первый взгляд правилами, но глубокой и продуманной механикой. Чтобы атаковать, вам нужно лишь поменять местами двух героев – но не дайте себя обмануть, ведь дьявол кроется в деталях: каждое решение может решить исход битвы. Вы заключили сделку с демоном и теперь отправляетесь в самое сердце Ада. Пройдите (   Читать дальше...   )Тип издания: LicenseРазработчик: Battlecruiser GamesЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453446BAA4153712D7EE4E11CD9BDA48D50B62C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767437   (7582) от 16.08.2025
-
-Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение критически прославленной космической стратегии, которая идеально сочетает тактику реального времени с глубиной 4X. Будучи одновременно императором и военачальником, вам предстоит возглавить одну из шести играбельных фракций и привести её к победе в борьбе против угрозы вымирания! Здесь нет ходов. Нет боевого режима. Нет стратегического режима. Здесь всего (   Читать дальше...   )Тип издания: RepackРазработчик: Ironclad Games Corporation, Stardock EntertainmentЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB98B2FD50DF2A703EA69F9BBFEFE0E2519C555
 ```
 
 https://mybot314.ru/tekegram_catalog/

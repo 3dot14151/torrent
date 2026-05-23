@@ -1,3 +1,167 @@
+###  Публикация: 926257   (533312) от 10.08.2015
+
+Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+7 июня 2013 года, «Europe» вышли на сцену на своей родине Швеции по особому поводу: празднование своей 30-й годовщины в рок-музыке. Эта Шведская рок-группа праздновала это событие вместе с 30 тысячами человек на популярном Шведском Рок Фестивале, играя подборку из 28 песен собирая свои персональные любимые моменты, начиная с ранних лет вплоть до их наиболее свежих (   Читать дальше...   )01. Intro / Riches To Rags
+02. Firebox
+03. Not Supposed To Sing The Blues
+04. Scream Of Anger(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalРежиссер: Patric UllaeusПродолжительность: 02:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C964C9524F3D299AD74D0C9C01ECA4597A465FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926350   (533304) от 10.08.2015
+
+В жизни раз бывает 60. Юбилейный концерт Игоря Крутого (2014) HDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В праздничной программе "В жизни раз бывает 60" примут участие: Лара Фабиан, Ирина Аллегрова, Филипп Киркоров, Лайма Вайкуле, Валерий Леонтьев, Николай Басков, Кристина Орбакайте, Григорий Лепс, Лариса Долина..01. Вступление
+02. Always - Lara Fabian
+03. Счастье ты мое - Алсу
+04. Признание (Буду я любить) - Доминик Джокер(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:49:42 + 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11B08F4BA66BA82C498F9C21EACF47F47F70017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926442   (533108) от 10.08.2015
+
+NikitA - Avocado (2012) MasterRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Солистки группы «NikitA» вооружены красотой и сексуальностью, и очень опасны!
+Дария Астафьева – главная «playmate» журнала «Playboy». Титул «девушки Playboy» Даша завоевывыла дважды: первый раз – у себя на родине в Украине, второй – в США, став главной юбилейной «рlaymate» в честь 55-летия американского издания «Playboy».
+Анастасия – певица, танцовщица, мастер спорта (   Читать дальше...   )Жанр: PopПродолжительность: 00:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD01C1ADC09B18680F161E280E32F0C24A869F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533605   (532748) от 10.08.2012
+
+Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D63687F9E3E4B8190ED5F57EA44603B3C59C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367535   (532722) от 25.07.2011
+
+Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock/Country RockПеревод: ОтсутствуетПродолжительность: 02:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11977AD6850C2A0E2DEEB4C79B6E1B6A7042F6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050646   (532548) от 11.09.2016
+
+Лунин или смерть Жака (1986) SATRip (2 части) (Московский драматический театр на Малой Бронной)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Исповедь главного героя - декабриста Михаила Сергеевича Лунина. Стены Акатуйской тюрьмы, где Лунин провел свои последние дни. Но тут же присутствует и другой мир - прежний мир Лунина. Он - в воспоминаниях, в фантазиях... Спектакль начинается с последнего дня жизни Лунина. Именно в этот день ему предстоит подвести последнюю черту прожитому, сделать вывод. Множество (   Читать дальше...   )Производство: СССР, Московский драматический театр на Малой БроннойЖанр: Драма, спектакльРежиссер: Александр ДунаевАктеры: Олег Вавилов, Анна Каменкова, Геннадий Коротков, Анатолий Спивак, Геннадий Сайфулин, Андрей Котов, Виктор Лакирев, Татьяна Кленова, Кирилл Глазунов, Константин Бердиков, Николай СеребренниковПродолжительность: 2 x ~ 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B003609A310D573F5D04D39CC4E506F37A3B2604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533597   (532070) от 10.08.2012
 
 Deep Purple: Phoenix Rising (2011) BDRip [720p]
@@ -6,7 +170,7 @@ Deep Purple: Phoenix Rising (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -36,7 +200,7 @@ Blackmore's Night - A Knight In York (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -71,7 +235,7 @@ The Doors - The Very Best Of (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -100,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -129,7 +293,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -158,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -185,7 +349,7 @@ Rick Astley. Live in Berlin 27.08.2016 DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +378,7 @@ Alice Cooper - Live at Bonnaroo Festival (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +407,7 @@ A MusiCares Tribute to Carole King (2015) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +466,7 @@ Alice Cooper - Raise the Dead – Live from Wacken (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +524,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -445,7 +609,7 @@ Lara Fabian - En Toute Intimite a l'Olympia (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +720,7 @@ Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,165 +731,6 @@ Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09C4499E47F07E1215569BB127DD54E5EA30670F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052952   (526607) от 16.09.2016
-
-Александр Даргомыжский - Каменный гость (1966) DVBrip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-опера, по одноименной опере А.С. Даргомыжского на сюжет трагедии А.С. Пушкина.Производство: СССР, МосфильмЖанр: Фильм-опера, драмаРежиссер: Владимир ГориккерАктеры: Владимир Атлантов, Ирина Печерникова, Тамара Милашкина, Евгений Лебедев, Александр Ведерников, Георгий Шевцов, Максим Киселев, Лариса Трембовельская, Гурген Тонунц, Фёдор Никитин, Александр Локшин, Алексей Гелева, Эммануил Геллер, Виктор Кулаков, Людмила Власова, Людмила Дианова, Макс МаксимовПродолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD2BAE7D6C2B51587B8C40A709E95D9D52A7E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036399   (526579) от 16.09.2016
-
-Самуил Маршак - Петрушка-иностранец (1977) SATRip (Театр кукол им. C. Образцова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526579.jpg" />
-</div>
-
-
-###  Подробнее
-
-О веселых проказах Петрушки.
-Спектакль поставлен по пьесе одного из лучших детских писателей С.Я. Маршака. Самуил Яковлевич создал это произведение специально для кукольного театра.Производство: СССР, ТО "Экран", Театр кукол им. С. ОбразцоваЖанр: Телеспектакль, кукольный, детский, сказкаРежиссер: Сергей ОбразцовАктеры: Сергей Образцов, Владимир Кусов, Лена Кусова, Григорий Толчинский, Константин Гуркин, Наталья Меркулова, Роман БогомольныйПродолжительность: 00:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AA1CF8683C0B04FB4C71504E11CEA96B3A1C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052948   (526565) от 16.09.2016
-
-Эжен Ионеско - Стулья (2010) TVRip (Театр "Школа современной пьесы")
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль театра "Школа современной пьесы". Телеверсия 2010 года.
-Сергей Юрский перевел трагифарс франко-румынского классика Эжена Ионеско в вольном стиле, перенеся европейский абсурд на русскую почву. Получилась грустная история о любви, одиночестве и смерти. На сцене только он и она, муж и жена, старик и старуха, Сергей Юрский и Наталья Тенякова. Они (   Читать дальше...   )Производство: Россия, Канал "Культура"Жанр: Трагифарс, спектакльРежиссер: Сергей ЮрскийАктеры: Сергей Юрский, Наталья Тенякова, Александр АронинПродолжительность: 01:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B4C7DE0F5C607811AAF179DF27FAE757B681E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053157   (526523) от 16.09.2016
-
-Шарль Перро - Кот в сапогах (2015) SATRip (2 части) (Театр имени Евгения Вахтангова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересная, невероятно остроумная, музыкальная история, рассказывающая о приключениях находчивого кота, перехитрившего всех ради того, чтобы его любимый хозяин был счастлив.Производство: Россия, Театр имени Евгения ВахтанговаЖанр: Спектакль, сказкаРежиссер: Владимир ИвановАктеры: Александр Фокин, Федор Бавтриков, Максим Бойцов, Сергей Шаталов, Александр Галочкин, Кирилл Каленов, Николай Лиханов, Андрей Удалов, Денис Самойлов, Артем Блинов, Татьяна Полосина, Ксения Кубасова, Ася Домская, Нина Амелина, Екатерина Ходырева, Виктория Коваленко, Данил МожаевПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEA8ABE6AF6DC54ED85A87D3B677789EB7B5E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663102   (526499) от 16.09.2016
-
-Капитанская дочка (1978) DVDRip (2 части)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_526499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль по мотивам повести А.С. Пушкина.
-Авторы этой версии повести поставили перед собой задачу - максимально точно процитировать пушкинский текст. И преуспели в этом. Актеры не играют, не входят в образ, они статичны, они читают повесть. Костюмы, прически, сценический антураж лишь подчеркивает задачу: мы собрались затем, чтоб прочитать любимый текст. И каждый (   Читать дальше...   )Жанр: ТелеспектакльРежиссер: Павел РезниковАктеры: Александр Кутепов, Александр Абдулов, Елена Проклова, Владимир Самойлов, Б. Телегин, Евгения Ханаева, Леонид Филатов, Лев Дуров, Юрий Катин-Ярцев, Андрей Мартынов, Е. Велихов, М. Андрианова, С. Усин, С. Ляхницкий, Григорий Лямпе, Елизавета Никищихина, Наталья Гундарева, Константин МихайловПродолжительность: 01:25:32 + 01:14:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926599   (526466) от 16.09.2016
-
-Необыкновенный концерт (1972) DVDRip [H.264] [Театр кукол им. С. Образцова]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526466.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1931-м Сергей Образцов создал кукольный театр и был его бессменным руководителем более 65 лет. Коллекция кукол, собранных Сергеем Владимировичем, является крупнейшей в мире, а спектакль "Необыкновенный концерт" занесен в Книгу рекордов Гиннесса.По количеству посетивших его зрителей ему нет равных до сих пор! По словам его создателя это парадийно-сатирическое (   Читать дальше...   )Производство: СССРЖанр: Комедия, Кукольный спектакльАктеры: З.Герд, С.Самодур, Е.Синельникова, М.Петров, И.Мазинг, Н.СамошинаПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0F59D71896BC9987B980AE0D3CF53C78FD9CBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

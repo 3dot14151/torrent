@@ -1,3 +1,87 @@
+###  Публикация: 1683043   (130686) от 09.12.2023
+
+Udemy, Alex Cordebard | The Ultimate Blender 3D Animated Short AI Course (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в преобразующее более чем 50-часовое путешествие в мир анимации, где мы проведем вас через пересечение художественного творчества и передовых технологий. В этом комплексном курсе вы узнаете, как использовать возможности Blender 3D, ведущего пакета для создания 3D-изображений с открытым исходным кодом, чтобы вдохнуть жизнь в ваши короткометражные анимационные (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 56:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD689F3EE3C9F8AF6E9062F6897CD8A84070B630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682995   (130682) от 09.12.2023
+
+Udemy, Unreal magic | Unreal Engine 5:Enhance animation skill with Ladder Climbing (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на наш курс Udemy, где творчество процветает даже без ресурсов первоклассной компании! Если вы когда-либо чувствовали себя стеснёнными бюджетными ограничениями, не бойтесь — мы здесь, чтобы раскрыть весь потенциал Unreal Engine и его инструментов.
+
+Мы не компания тройного А
+У нас нет денег нанимать аниматоров(   Читать дальше...   )Производство: UdemyЖанр: 3D Графика, GameDevЯзык озвучки: АнглийскийПродолжительность: 08:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33970E2E7F88398700D6944E24AD221A1E8ADED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682973   (130680) от 09.12.2023
+
+Greech, Анастасия Гречушникова, Вадим Киселев | Дизайнер SMM. Тариф Профи (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Стань дизайнером соцсетей и получи стабильный доход от 50000 р в месяц
+
+Тебя ждет более 40 уроков: от введения в профессию до создания портфолио, поиска клиентов и продаж на высокие чеки!
+(   Читать дальше...   )Производство: GreechЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 21:21:24Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213B04E8143502C13E0E5B5E58B23666DB396FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683095   (130662) от 09.12.2023
 
 Udemy, Mrawan Hussain | BLENDER: Creating Jeep Gladiator Rubicon from A to Z (2023) WEB-DL [EN]
@@ -6,7 +90,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating Jeep Gladiator Rubicon from A to Z (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +117,7 @@ VideoSmile, Артём Слаква | Супер Blender (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +146,7 @@ ArtCraft, Александр Шаповалов | 3D Pro. Game environment pipel
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -118,7 +202,7 @@ Udemy, Gary Pettie, Ben Tristem | Math For Video Games: The Fastest Way To Get S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +230,7 @@ Proko, Stan Prokopenko | Figure drawing fundamentals (2012) WEBRip [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -175,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -202,7 +286,7 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -231,7 +315,7 @@ Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Int
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -260,7 +344,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -289,7 +373,7 @@ Domestika, David Drazil | Architectural Drawing: From Paper to Photoshop (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -316,7 +400,7 @@ Enterclass, Сергей Курбатов | Осенний Павловск (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +429,7 @@ Domestika, Luke Adam Hawker | Artistic Architectural Drawing with Ink (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +487,7 @@ Ben Marriott | Motion Foundation (2023) WEB-DL [AD] [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +516,7 @@ Motion Science, Cameron Pierron | AE Volume I: The Fundamentals (2019) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +544,7 @@ Artefactoschool, Константин Стерхов | Пора цветения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,7 +573,7 @@ Motion Science, Cameron Pierron | AE Volume II: Intermediate Techniques (2019) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -518,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -547,7 +631,7 @@ Alexunder Hess | Figma Pro Secrets (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -576,7 +660,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -605,7 +689,7 @@ Hudozhnik Online, Дарья Куцаева | Акварельный портр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -633,7 +717,7 @@ Hudozhnik Online, Роман Круглов | Графические зарис�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -647,89 +731,6 @@ Hudozhnik Online, Роман Круглов | Графические зарис�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B04A8C4E9AB5B28EE1137D779539F44B93E870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684153   (128017) от 14.12.2023
-
-Motion Science, Cameron Pierron | Typography 101 (2020) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда дело доходит до моушн-дизайна, важна каждая деталь. Вплоть до выбранного вами шрифта и гарнитуры. Этот курс покажет вам, как создавать красивую типографику, а также даст вам советы, приемы и приемы для улучшения ваших навыков.
-
-Шрифты могут серьёзно улучшить или разрушить ваш дизайн. Они производят неизгладимое впечатление, демонстрируя индивидуальность и стиль. (   Читать дальше...   )Производство: Motion ScienceЖанр: Моушен дизайнЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 00:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EFEE16B3C4B64EB86E7502546FFBAC6D3E8D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684407   (127935) от 15.12.2023
-
-Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127935.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Освоение Blender для начинающих: 3D-дизайн и усиление» Рендеринг" — это комплексный курс, призванный провести вас через увлекательный мир 3D-моделирования и рендеринга с использованием Blender, одного из самых популярных пакетов для создания 3D-изображений с открытым исходным кодом. Этот курс тщательно структурирован для учащихся всех уровней: от новичков, (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 03:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B038397C4E644808C01DCDE50182E68BF885401D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677737   (127920) от 15.12.2023
-
-Videosmile, Михаил Бычков | Супер Cinema 4D (2023) WEB-DL [AD] [RU]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinema 4D — мощный профессиональный инструмент для моделирования, текстурирования, освещения, рендеринга и анимации трёхмерных объектов
-При этом у программы интуитивный и лёгкий в использовании интерфейс: вы научитесь делать «вау», даже если только начинаете свой путь в 3D.
-С нуля освоите Cinema 4D — самую популярную программу для создания трёхмерной графики.
-Научитесь (   Читать дальше...   )Производство: VideosmileЖанр: 3D ГрафикаЯзык озвучки: РусскийПродолжительность: 42:07:03Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641EFB9743F1EB7BEA19F7990F8466C84567E0CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

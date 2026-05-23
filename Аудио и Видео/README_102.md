@@ -1,3 +1,32 @@
+###  Публикация: 1528277   (734994) от 01.02.2022
+
+VA - Cafe Arte (Finest Chillout & Lounge Downbeat Playlist) (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Bonnee - Slow Motion (Atmospheric Lounge Mix) (4:00)
+02. Bernon - Into the Cloud (Electronic Vocal Chill Cut) (4:12)
+03. Oliver Schlolaut, Frank Doberitz - The Sun is Shining (Sunray Vocal Mix) (5:53)
+04. Area 42 - Part of the Heart (Low Percussion Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B4CD80C2ED1B119152136B8E0FA4A5971C7E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528283   (734993) от 01.02.2022
 
 VA - Raylinx Music Best of 2021 (2021) [AAC|~314 Kbps] <Dubstep>
@@ -6,7 +35,7 @@ VA - Raylinx Music Best of 2021 (2021) [AAC|~314 Kbps] <Dubstep>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Cafe Arte, Vol. 2 (Finest Chillout & Lounge Downbeat Playlist) (2019) [AAC|
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Sicilian Lounge, Vol. 1 (2015) [AAC|~315 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - ReCovered Hits, Vol. 3 (2010) [AAC|~332 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Bar Lounge Costes, Vol. 5 (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Nu Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +180,7 @@ Simon Le Grec - 25 Years Anniversary (Unique Music) (2020) [AAC|~337 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - ReCovered Hits, Vol. 4 (2010) [AAC|~338 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - ReCovered Hits, Vol. 5 (2010) [AAC|~325 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - ReCovered Hits, Vol. 2 (2010) [AAC|~328 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Sexy Sax & Chill (2017) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo, Smoo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - ReCovered Hits, Vol. 1 (2010) [AAC|~331 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +406,7 @@ VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [AAC|~321 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +435,7 @@ Bhakta - India all Over (2003) [AAC|~291 Kbps] <Tribal, Downtempo, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +464,7 @@ Darpan & Bhakta - Temple of Glowing Sound, Vol. 1 (2006) [AAC|~341 Kbps] <Tribal
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +493,7 @@ VA - Ibiza Live Radio 2 (2019) [AAC|~318 Kbps] <Chill Out, Downtempo, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +522,7 @@ Bhakta - Snow on Venus (2003) [AAC|~345 Kbps] <Tribal, Downtempo, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +551,7 @@ VA - Ibiza Live Radio 1 (2018) [AAC|~326 Kbps] <Chill Out, Downtempo, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -551,7 +580,7 @@ VA - The Best of Lump Records (2020) [AAC|~320 Kbps] <Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +609,7 @@ VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 4 (2021) [AAC|~325 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +638,7 @@ VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 2 (2021) [AAC|~324 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -638,7 +667,7 @@ VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 3 (2021) [AAC|~333 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -667,7 +696,7 @@ VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 1 (2021) [AAC|~325 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -696,7 +725,7 @@ Chillhop Guitar, Sebastien Zunino - Secret Lover (2022) [AAC|~306 Kbps] <Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -710,35 +739,6 @@ Chillhop Guitar, Sebastien Zunino - Secret Lover (2022) [AAC|~306 Kbps] <Chill O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E794839ACC604309C86E3F7FD3A1FD074B5C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528555   (734450) от 02.02.2022
-
-VA - Олег Кваша "Суббота есть суббота" (Лучшие песни 1982 - 1992) (1997) [AAC|~329 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алла Пугачёва - Крысолов (3:32)
-02. Михаил Боярский - Горбун (5:07)
-03. Лариса Долина - Бегущая по волнам (4:58)
-04. Тынис Мяги - Воздухоплаватель (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06139553A492A3725E03C0FC8F49B93FF2259C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

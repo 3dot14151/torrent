@@ -1,3 +1,86 @@
+###  Публикация: 969584   (146530) от 27.12.2015
+
+Лев Николаевич Толстой | Собрание сочинений в 22-х томах [22 книги] (1978-1985) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+К 150-летию со дня рождения Л. Н. Толстого приурочено новое, юбилейное Собрание его сочинений в 22-х томах. В него входят все художественные произведения, статьи о литературе и искусстве, избранные публицистические статьи, избранные письма и дневники.
+Каждый том сопровождается историко-литературными комментариями.Жанр: Классическая литератураИздательство: Художественная литератураФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935415D1E79D1DDE3C20F47D9F688A161C692361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397368   (146281) от 25.12.2021
+
+Сергей Зайцев | Собрание сочинений [26 книг] (2000-2021) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Современный российский писатель-фантаст. Сергей Григорьевич Зайцев появился на свет 17 ноября 1968 года в Брянске. Окончил политехнический техникум, затем служил в армии. Тяжелый постперестроечный период не позволил писателю окончить Кыргызский технический университет им. И. Раззакова. Сейчас автор живет в Волгограде.
+
+Особенности творчества
+Сергей Зайцев работает (   Читать дальше...   )Жанр: Научная фантастика, Боевая фантастика, Юмористическая фантастика, Боевое фэнтези, Героическое фэнтези, ЛитРПГ, Постапокалипсис, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C11D75D373AC732489CC7071155B5A0A98FA954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802292   (146167) от 27.12.2015
+
+Николай Леонов, Алексей Макеев | Собрание сочинений [221 книга. Обновляемая] (1965-2015) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Николай Иванович Леонов (1933 - 1999) - Известный советский российский писатель, сценарист и кинодраматург, классик советского детектива.
+Автор многих известных книг и киносценариев - «Вариант "Омега"», "Трактир на Пятницкой", цикла повестей об сыщике инспекторе Льве Гурове. Сотрудник МУРа, капитан милиции. Родился 16 июня 1933 года, в городе (   Читать дальше...   )Жанр: Полицейский детективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32E31E930189F4E7DA1193B0D6DC0F48C8D22B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761512   (146129) от 27.12.2015
 
 Александр Тамоников | Собрание сочинений [137 книг. Обновляемая] (2002 - 2015) [FB2]
@@ -6,7 +89,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -282,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -308,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -334,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -361,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -388,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -418,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -444,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -623,86 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C572B1F4EFFBF158379A76F90413B9C057FD66C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704324   (114528) от 03.03.2024
-
-Николай Гумилев | Полное собрание сочинений в десяти томах [8 томов] (1998 - 2007) [FB2, PDF]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гумилев Николай Степанович (3(15). 4.1886, Кронштадт, — 24.8.1921, Петроград), русский поэт. Выступил в печати в 1902. Начинал как ученик символистов, в частности В. Я. Брюсова. В 1911 организовал литературную группу "Цех поэтов". В 1913 вместе с С. Городецким провозгласил акмеизм. Г. много путешествовал, трижды был в Африке, увлекался Востоком. Основные (   Читать дальше...   )Жанр: Поэзия, ПрозаИздательство: Воскресенье, МоскваФормат: FB2, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E382863BA5C5E3A0929450D1DE5238D7A92097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490654   (102477) от 01.05.2012
-
-Лев Кассиль | Собрание сочинений (47 книг) [RTF, FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лев Абраамович Кассииль (27 июня [10 июля] 1905 — 21 июня 1970) — русский советский писатель, член-корреспондент АПН СССР. Лауреат Сталинской премии третьей степени.
-Родился в Покровской слободе (ныне город Энгельс) Саратовской губернии, учился в гимназии, которая после революции была преобразована в Единую трудовую школу. Впоследствии о родном городе Лев Кассиль писал: «В России мы жили в слободе Покровской (потом город Покровск), на Волге, против Саратова, на Базарной площади, в первом этаже».
-Первые книги Л.Кассиль опубликовал первые книги - «Вкусная фабрика», «Планетарий», «Лодка-вездеход» и другие, автобиографическая повесть «Кондуит» (1930) и «Швамбрания» (1933).В 1935 году повести «Кондуит» и «Швамбрания»были объединены в один том «Кондуит и Швамбрания». Именно эти повести и стали своеобразным трамплином – Лев Кассиль стал известен и популярен. В те годы молодое советское государство уделяло большое внимание детской литературе, и произведения Льва Кассиля публиковались большими тиражами, переводились на (   Читать дальше...   )1928-1970Жанр: Художественная литература для детей и подростковФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686B056E42B2A7D97D00994042FCFE480623C62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489256   (101910) от 28.04.2012
-
-Николай Гоголь | Сочинения. Полное собрание в одном томе [1902] [PDF]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Васильевич Гоголь (20 марта (1 апреля) 1809 — 21 февраля (4 марта) 1852) — великий писатель, драматург, поэт, критик, публицист, автор бессмертных произведений «Ревизор», «Вечера на хуторе близ Диканьки», «Тарас Бульба», «Вий», «Мертвые души» и многих других. Удивительный талант Н.В.Гоголя проявляется в этих столь непохожих друг на друга произведениях по-разному (   Читать дальше...   )Жанр: Раритеты / Художественная литература / КлассикаЯзык: Русский (старая орфография)Издательство: Типографiя Товарищества «Общественная польза» / С.-Петербургъ / Россiйская ИмперiяФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A4B6CADCE253095C886569800FA85C530E1852
 ```
 
 https://mybot314.ru/tekegram_catalog/

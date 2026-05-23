@@ -1,3 +1,55 @@
+###  Публикация: 1857146   (1059332) от 04.03.2026
+
+Catwoman (2004) [En] (1.0) License
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Всем известно, что каждая кошка от рождения наделена девятью жизнями. Это утверждение вы сможете на деле проверить в игре от Electronic Arts, созданной по мотивам одноименного фильма. Став игровым персонажем, неподражаемая Хелли Берри ничуть не теряет своей привлекательности, и действие от этого становится еще более захватывающим - ведь теперь вы принимаете в нем (   Читать дальше...   )Тип издания: LicenseРазработчик: Electronic Arts UKЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E23AD3DDC8228B5A5F39B1A7C7D532C4422AD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856470   (1059063) от 01.03.2026
+
+Hitman: Contracts (2004) [En] (1.74) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Два выстрела, и в комнату отеля вваливается истекающий кровью Хитмен. Спецслужбам удалось его выследить и серьезно ранить, и теперь единственная надежда на спасение - врач, высланный Агентством для помощи 47-му. А пока жизнь киллера висит на волоске, перед его глазами пролетает вся его жизнь, заполненная до отказа кровью и страданиями его жертв. Воспоминания лишь (   Читать дальше...   )Тип издания: LicenseРазработчик: IO InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA713C7DB3D3F6B0C719672541C3AD1684AB858C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856414   (1059017) от 01.03.2026
 
 Rome: Total War (2004) [Ru/Multi] (1.5/dlc) Repack kosak4 [Launcher Edition]
@@ -6,7 +58,7 @@ Rome: Total War (2004) [Ru/Multi] (1.5/dlc) Repack kosak4 [Launcher Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ FlatOut 2 (2006) [Ru] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ FlatOut (2004) [Ru] (1.1) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Need for Speed: Underground 2 (2004) [En] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Total Overdose (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Serious Sam 2 (2005) [Ru] (2.0.7.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Juiced (2005) [En] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +293,7 @@ The Punisher / Каратель (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +345,7 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +371,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +397,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +423,7 @@ Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +449,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +475,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +501,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Dungeon Keeper KeeperFX (2008) [Ru/Multi] (1.3.0) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +553,7 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +605,7 @@ Rome: Total War - Alexander (2006) [En] (v1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,7 +631,7 @@ Total War: MEDIEVAL II (2) (2006) [En] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +657,7 @@ Total War: MEDIEVAL II (2) (2006) [Ru] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -616,58 +668,6 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:275F1D8378471F376030342EF64DB011E39DDEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845747   (1050905) от 03.01.2026
-
-No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет вечно 2: С.Т.Р.А.Х. возвращается (2002) [Ru/En] (1.3) Repack dixen18
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращения Кейт Арчер, главной героини игры «Никто не живет вечно», ждали миллионы. «Никто не живет вечно 2» сделана в лучших традициях жанра, а тонкость и ироничность сюжета игры, комичность персонажей, иллюзия яркости и беззаботности атмосферы шестидесятых годов прошлого века, позволяют почувствовать себя настоящим секретным агентом. Это не история про Джеймса (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith ProductionsЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7FF018AB047C65300EDF6B93EE589E16C9C25F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845749   (1050903) от 03.01.2026
-
-SHOGUN: Total War (2000) [Multi] (v1/dlc) License GOG [Collection]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shogun: Total War – это стратегический симулятор командования государствами и нациями, погружающий в эпоху монгольских захватчиков. Игра выполнена в виде глобального пошагового геймплея, где предстоит мыслить наперед и просчитывать доступные варианты и решения на политической арене. Во время схваток между армиями, происходит приближение камеры и появляется возможность (   Читать дальше...   )Тип издания: LicenseРазработчик: CREATIVE ASSEMBLYЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C212DF2E25A617ADE36640079C652A5AF4BBF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

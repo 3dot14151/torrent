@@ -1,3 +1,110 @@
+###  Публикация: 1774938   (29899) от 24.01.2025
+
+Архимандрит Лазарь (Абашидзе) | Пасха без креста, или еще раз об экуменизме (1998) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+«Сегодня каждый православный христианин должен однозначно ответить самому себе на вопрос: на стороне ли он экуменизма или же на стороне Православия. Расплывчатые и отвлеченные рассуждения об этой болезненной проблеме все более и более приобретают характер явной лжи. Дух экуменизма, экуменического движения проявился со всей очевидностью, сделаны вполне конкретные (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318FA46EEC5AF1C39E1B965D4A45D7BE1DCA67E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774939   (29898) от 24.01.2025
+
+Нина Малахова | Преподобный Сергий Радонежский. Игумен земли Русской (2014) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – о жизни преподобного Сергия Радонежского, о его монашеском подвиге и том великом деле, которое призвал его Господь совершить на Руси.
+
+Эта книга – о том времени, когда преподобный Сергий и его ученики в Радонежской глуши творили молитву и жили по законам Божией любви: любви, с которой началось духовное возрождение Руси.
+(   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0421589987DE372D627FDC73DE816FDF4D5E2659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774934   (29891) от 24.01.2025
+
+Вольный странник | Молитва всё исправит. Старцы Псково-Печерского монастыря о молитве (2019) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Данный сборник поучений Псково-Печерских старцев посвящен молитве. Молитва – дыхание души, ее воздух, ее жизнь… Духовная жизнь без молитвы невозможна. В сборнике рассказывается и о чудесах по молитвам наших старцев. Высказывания Псково-Печерских отцов учат нас тому, что с молитвой всё можно пережить, ибо на нее откликается Небо. «Молитва всё исправит», – говорил (   Читать дальше...   )Жанр: ПравославиеИздательство: Вольный странникФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BB9EB007A1FB0E8DD822375522F55D7CDB8569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517571   (29777) от 26.01.2025
+
+Книжная серия | Православная Энциклопедия [Том 0-73] (2000-2024) [PDF,  DJVU] [Обновляемая]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"Православная энциклопедия" является специализированным справочным изданием, ставящим перед собой две задачи: 1) дать всеобъемлющую информацию по двухтысячелетней истории и современному состоянию вселенского Православия; 2) ознакомить читателя с др. христианскими конфессиями, нехристианскими религиями, а также с явлениями науки, культуры, философии, искусства, (   Читать дальше...   )Жанр: ПравославиеИздательство: Церковно-научный центр "Православная Энциклопедия"Формат: PDF, DJVUКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670F3B5504A1078BA0FFD93B7E71F118C65C25FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775412   (29583) от 27.01.2025
 
 Протоиерей Василий Шустин, митрополит Вениамин (Федченков), князь Н. Д. Жевахов | Встречи со старцами: Воспоминания протоиерея Василия Шустина, митрополита Вениамина (Федченкова), князя Н. Д. Жевах ...
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -141,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -572,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24EA9DA18948CC6EEE9CD80EC3C2710FDF235AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812688   (7671) от 15.08.2025
-
-прот. Владимир Воробьев (ред.) | Отец Арсений (2020) [PDF, DJVU] [Шестое издание]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7671.jpg" />
-</div>
-
-
-###  Подробнее
-
-За двадцать с лишним лет со дня первого издания общий тираж книги «Отец Арсений» приблизился к миллиону. Она распространилась по всей России и за ее пределами и стала одной из самых любимых в православном мире. Книга переведена и издана на английском, французском, сербском, греческом, болгарском и других языках. Она явила образ святого, внутренне тождественный православной (   Читать дальше...   )Жанр: ХристианствоИздательство: Православный Свято-Тихоновский гуманитарный университетФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB359EFD079A54F3D26B077525A9C803F19570D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813311   (7155) от 18.08.2025
-
-СЗКЭО (изд.) | Библия. Новый завет (2025) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свыше 120 картин, рисунков и гравюр Гюстава Доре. Полный синодальный перевод с указанием параллельных мест. В настоящем издании Синодальный перевод Нового завета украшают работы талантливого французского художника Гюстава Доре (1832–1883). Во второй половине XIX века неподражаемый живописец и график создал один из самых масштабных циклов иллюстраций к Священному (   Читать дальше...   )Жанр: Религиозные книгиИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB2ABEAF0FDE606BA038E28A4AB5C4F92F88D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813295   (7125) от 18.08.2025
-
-СЗКЭО (изд.) | Библия. Новый завет (2025) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свыше ста гравюр Альбрехта Дюрера к полному синодальному переводу.
-Текст Нового завета в данном издании дан в классическом синодальном переводе. Книгу украшают гравюры знаменитого мастера — немецкого гравера и живописца Альбрехта Дюрера (1471–1528). Изящные иллюстрации Дюрера отличаются необыкновенной точностью в деталях. С подлинным мастерством художник рисует древнейшие (   Читать дальше...   )Жанр: Религиозные книгиИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945342B012FD053E488452581A2DBACF2A3B4E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813539   (6822) от 20.08.2025
-
-СЗКЭО (изд.) | Библия. Ветхий Завет (Книга вторая) (2025) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во втором томе Ветхого завета представлены тексты от книги Иова до книги Ездры в Синодальном переводе. Священное Писание украшено изящными гравюрами и изумительными картинами талантливого французского художника Гюстава Доре (1832–1883). Работы Доре вызывали восхищение публики с момента первого выхода проиллюстрированной им Библии в свет. Годы спустя его цикл иллюстраций (   Читать дальше...   )Жанр: Религиозные книгиИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA8C477CD7A2A88E306946271A636233686B487
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1791001   (10348) от 26.07.2025
+
+Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.5.1.13033) Repack Other s [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Into the Dead: Our Darkest Days представляет собой сайд-скроллер, посвященный выживанию в убежищах. Вам предстоит возглавить и вывести в безопасное место группу людей, уцелевших посреди зомби-апокалипсиса. Изготавливайте оружие, собирайте ресурсы, поддерживайте баланс потребностей вашей группы и постарайтесь, чтобы все выжили и спаслись!Тип издания: RepackРазработчик: PikPokЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0662443BAF9747E784FDD911ED6B5740F675AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758682   (9917) от 30.07.2025
+
+No Rest for the Wicked (2024) [Ru/Multi] (23939) Repack Wanterlude [Early Access]
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Идет 841 год, король Гарольд мертв. Пока весть о его кончине разносится по всему королевству, корона переходит к его высокомерному, не нюхавшему пороха сыну Магнусу. Хуже того, вернулся Мор - окаянная чума, о которой никто не слышал вот уже тысячу лет. Проклятое поветрие расползается по земле, разлагая все и всех, кого коснется. Матригаль Селина, безжалостная и амбициозная (   Читать дальше...   )Тип издания: RepackРазработчик: Moon Studios GmbHЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD2EA99AEA3F21AC89A1F515C8929AFF9E3EF2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769621   (9907) от 30.07.2025
+
+My Garage (2021) [Ru/Multi] (0.836) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+My Garage – игровой проект, разработанный в жанре симулятора, где мы исполним роль автомеханика и постараемся достичь успеха в любимом деле. В распоряжении тебе даётся небольшой гараж со всеми необходимыми деталями, который ты постепенно сумеешь совершенствовать по своему усмотрению. Берись за достаточно сложные работы, модифицируя разбитые, покрытые коррозией, послеаварийные (   Читать дальше...   )Тип издания: RepackРазработчик: Viking Game StudioЖанр: Инди, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Португальский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Португальский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F604A1A60C28CBBBC7B4666D559871CCF45D4A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802521   (9489) от 03.08.2025
 
 Cosmoteer: Starship Architect & Commander / Cosmoteer: Конструктор и командир звездолёта (2022) [Ru/Multi] (0.30.0) Repack Pioneer [Early Access]
@@ -6,7 +84,7 @@ Cosmoteer: Starship Architect & Commander / Cosmoteer: Конструктор и
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Choo Choo Survivor 2 (2025) [Multi] (Build 20180986) Repack Let'sРlay [Playtest
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Scouring (2025) [Ru/Multi] (11.08.2025) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (0.5) Repack Pioneer [Earl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Witchfire (2024) [Ru/En] (0.7.3) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Quasimorph (2023) [Ru/Multi] (0.9.5.1.100g.409ff48) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Stoneshard (2020) [Ru/Multi] (0.9.3.5/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Going Medieval (2021) [Ru/Multi] (0.26.42-rel) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ DREADZONE (2025) [Ru/Multi] (1.4.5.2) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ inZOI (2025) [Ru/Multi] (20250820.6849.W/dlc) Repack dixen18 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ FOUNDRY (2024) [Ru/Multi] (0.6.0.21821) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Becastled (2021) [Ru/Multi] (0.9102) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Enshrouded (2024) [Ru/Multi] (Build 19651931) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ DAVY x JONES (2025) [Ru/Multi] (0.12.1) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Valheim - The Bog Witch (2021) [Ru/Multi] (0.221.4) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Titan Quest II (2025) [Ru/En] (0.1.2-PUBLIC.99841) Repack Wanterlude [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Enshrouded (2024) [Ru/Multi] (729115) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.2.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Universe Sandbox (2015) [Ru/Multi] (35.3.3) License GOG [Early Access] (обно
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Sunkenland (2023) [Ru/Multi] (0.7.04) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Sunkenland - это увлекательное приключение, пред�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D14E2D855B48AA8330909DE9F1947754A298062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817786   (3032) от 13.09.2025
-
-STORROR Parkour Pro (2025) [En] (0.1 Hotfix) Repack Let'sРlay [Early Access]
-
->>Win Старые Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3032.jpg" />
-</div>
-
-
-###  Подробнее
-
-STORROR Parkour Pro - это игра о паркуре, которая использует передовую систему анимации, сочетающую захват движения и физику для создания реалистичного и аркадного геймплея. Действие игры развернется на Собачьем острове (Isle of Dogs) в Ист-Энде Лондона, а геймеры смогут насладиться лучшим в своем классе многопользовательским опытом паркура в открытом мире.Тип издания: RepackРазработчик: Hole in the Sleeve Game StudiosЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СпортЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DE78C86FD6ACCA1892177EDBA752F995C43F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809911   (2890) от 14.09.2025
-
-SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2890.jpg" />
-</div>
-
-
-###  Подробнее
-
-В SWAT Commander вы возглавляете элитное подразделение спецназа. Отдавайте приказы своему отряду, управляйте его членами и их снаряжением, но самое главное - успешно выполняйте задачи. Следуйте за своими оперативниками в ряде рискованных миссий, которые проверят ваши тактические способности. Не опускайте голову, не теряйте бдительности, но продолжайте действовать (   Читать дальше...   )Тип издания: RepackРазработчик: Red Mountain Games, Ritual InteractiveЖанр: Экшены, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E455072B6E3FC95020059285C5598B7459923F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818061   (2810) от 14.09.2025
-
-Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свое поселение на необитаемом острове! Разрабатывайте месторождения, занимайтесь сельским хозяйством, наукой, развивайте промышленность, производите товары и торгуйте - превратите свой остров в промышленную империю! Задача непростая - под силу ли она Вам?Тип издания: RepackРазработчик: MaFi GamesЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FC8B361773ECE43EB35051DC5A90C5EC75FEBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

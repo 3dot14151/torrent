@@ -1,3 +1,90 @@
+###  Публикация: 1008518   (816028) от 18.04.2016
+
+VA - House Rhythms (Special Edition) (2016) [MP3|320 кб/с] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Heaven feat. Lola London - To Be Cool (Jeffrey Marshal's House Mix) (03:27)
+02. Frankie Borrel - Analogue Deep (Fashion Modell Project Mix) (03:30)
+03. Brooklyn Boyz - Remain in Onor (Tribeca Mote's House Mix) (03:26)
+04. Tony Roiale feat. V6 - Get a Deep Slap (Jeorge Dee's House Mix) (03:27)(   Читать дальше...   )Производство: Kocca RecordsЖанр: House, Club HouseПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BEE561425B46FC444FC52778807E910887299E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117799   (815628) от 24.03.2017
+
+VA - Most Played Tracks (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.  John Slater - Boogie Down (Original Mix)  4:59
+02.  Anbargo - Anbargo (Original Mix)  5:26
+03.  Lykov - I Have A Choice (Original Mix)  4:40
+04.  Plastik Night - Bono (Original Mix)  4:15(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BC9F1357A29965BF1757293069666C1DF79C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117959   (815341) от 24.03.2017
+
+Dash Berlin - We Are (Part 2) (2017) [MP3|320 Kbps] <House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.  Dash Berlin & Matt Simons - With You  3:08
+02.  Dash Berlin & DBSTF ft. Jake Reese & Waka Flocka vs. DJ Whoo Kid - Gold  3:29
+03.  Dash Berlin & Do - Heaven  3:18
+04.  Dash Berlin & Luca Perra - Without The Sun  3:02(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E269526AABE3F320332B0A4962E816E5EBFBBDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 656336   (814331) от 16.05.2013
 
 Stanisha - The Ancient Galleries (2012) [MP3|320 кб/с]<progressive house>
@@ -6,7 +93,7 @@ Stanisha - The Ancient Galleries (2012) [MP3|320 кб/с]<progressive house>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -41,7 +128,7 @@ VA - Civil Dance Vol.1 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +157,7 @@ VA - Miami Music Week 2017 (Deluxe Version)  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -99,7 +186,7 @@ Yuriy From Russia - Distant Love (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +215,7 @@ VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +244,7 @@ VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +273,7 @@ VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +302,7 @@ VA - Progressive House Winter Essentials (2018) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +331,7 @@ VA - EDM Club Tracks Part 3 (2016) [MP3|320 кб/с] <House, Progressive House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +360,7 @@ VA - The Best Of Turbotronic: Mega Compilation Album (2017) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +389,7 @@ Dimitri Vegas and Like Mike - Garden Of Madness (2020) EP [MP3|320 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +418,7 @@ Class B Band - Movie T (2011) [MP3|320 kbps]<Tech House, Nu-Disco, Techno, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +444,7 @@ VA - House Ladies Vol 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +473,7 @@ VA - Ibiza Deep House 2017 Opening (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +502,7 @@ VA - House Progressive Resistant (2016) [MP3|320 кб/с] <House, Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -444,7 +531,7 @@ VA - Electrotastic Vol.21 (Everyone Wants Electro) (2016) [MP3|320 кб/с] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -473,7 +560,7 @@ VA - Ibiza Megamix 2020 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +589,7 @@ VA - Global Underground: Afterhours (2016) [MP3|320 кб/с] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +618,7 @@ VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +647,7 @@ Shingo Nakamura - Best of Shingo Nakamura (2017) [MP3|320 Kbps] <House,Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Bigtime EDM Vol.8 (2016) [MP3|320 кб/с] <House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - OTB-EDM Records Miami (WMC) (2017) [MP3|320 Kbps] <House, Progressive, Funk
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:337D7EA374467BD850AA72B1B8E96A3B2EA7A1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010247   (804391) от 24.04.2016
-
-VA - Vocal EDM Party (2016) [MP3|320 кб/с] <House, Electro House, Vocal House >
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Hot Body (Original Mix) 04:04
-02. Clubhunter - Me & You (Turbotronic Mix) 04:15
-03. Teknova - Drop The Bounce (Original Mix) 04:31
-04. Leng Yein - My Desire (Extended Mix) 05:43(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 03:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423386D8D66CA85787EDDB1F6238AE4ADD15736B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010350   (804389) от 24.04.2016
-
-VA - Venera Music Vol.10 (2016) [MP3|320 кб/с] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Teddy - Space 05:38
-02. Nashorn - Sayga 06:03
-03. Notches - Digital Frog 06:00
-04. Odner - Darkness 03:52(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D681D8C0C8F27599761BFF2854E291F6DAB7FBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505479   (804350) от 27.10.2021
-
-Purple Disco Machine - Exotica (2021) [MP3|320 Kbps] <Electronic, House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Enough (Feat. Sahara Beck) (4:21)
-02. At The Disko (With Lorenz Rhode) (4:32)
-03. Fireworks (Feat. Moss Kena & The Knocks) (3:20)
-04. Don't Stop (4:09)(   Читать дальше...   )Жанр: Electronic, House, Nu DiscoПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BF5C8298C9C489CA23BE753CEA995AA96BCF59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,112 @@
+###  Публикация: 893127   (714795) от 28.04.2015
+
+Grisaia no Meikyuu / Лабиринт Грисайи [2015, TV-спешл] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+TV-Спешл ко второму сезону.
+
+Описание к первому сезону.
+
+Юдзи Кадзами в 10 лет потерял родителей и был воспитан людьми, для которых писаные законы – пустой звук, а чужие жизни – что трава на ветру. Творя разное, парень быстро познал законы темного мира, и ныне его разум отточен, рефлексы – совершенны, а принципы гибки, как стальной клинок. Но даже сталь имеет предел усталости, и «рыцарь ночи» обратился к знакомой хозяйке частной школы с просьбой дать ему возможность пожить жизнью обычного старшеклассника со (   Читать дальше...   )Жанр: новелла, комедия, приключения, романтика, драма, триллер, психологическое, повседневность.Режиссер: Танака МотокиПродолжительность: 1 серия по 47 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F47CD6324A408A77A03ECFA91894D863E894C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129695   (714217) от 02.05.2017
+
+Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика заказывали? [ТВ-2] [2015, TV, 12] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В некотором царстве, странном государстве, где в культурно-историческом экстазе неведомым образом слились Европа и Япония, на неторопливой речке по-прежнему стоит милый городок с фахверковыми домами и бульварами, поросшими сакурой. Недалеко от реки притаилось кафе «Кроличья нора» - и там усталых путников ждут не только говорящий кролик и чудесный кофе, но и настоящий (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Хасимото Хироюки / Hashimoto Hiroyuki / 橋本裕之Перевод: Усатый НяЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFFFC0FA827833F9A703A65055B8EE944F0D04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401132   (713206) от 08.08.2020
+
+Ichigatsu ni wa Christmas | Рождество в январе [1991, OVA, 1 эп.] VHSRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Рождество в январе". Вроде привычное словосочетание для нашего уха, но японцы-то заимствовали 25е декабря. Запоздалый такой праздник для одинокого человека. Ведь в жизни есть якоря, какие-то традиции или привычки, соблюдение которых дает некое спокойствие и чувство, что так правильно, что ты вообще жил. А некоторые люди подобны снегу - они так же внезапно (   Читать дальше...   )Производство: студия Magic Bus / マジックバスЖанр: романтика, драмаРежиссер: Дэдзаки СатосиПеревод: World_Houp & Аццкий КритегЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 45 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9581B6DE2FB8DECA4B036BF22A337FE36EA067A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401114   (713189) от 08.08.2020
+
+Girls' Frontline | Shaonu Qianxian: Renxing Xiao Juchang | Девушки на фронте [2019, Web, 24 из 24] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация игры для смартфонов Girl's Frontline.
+Короткие зарисовки из трудовых будней боевых кукол, представляющих собой антропоморфные аватары различных видов ручного вооружения.Производство: Китай, BigFireBird AnimationЖанр: Комедия, БоевикПеревод: tengriЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 3 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B1F043CE66716F9F8E4AA174E0D6BCF932B93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401135   (713167) от 08.08.2020
 
 UFO Nitsukamatta Kodomo-tachi | Дети в плену инопланетян [1991, OVA, 1 эп.] VHSRip 240p raw
@@ -6,7 +115,7 @@ UFO Nitsukamatta Kodomo-tachi | Дети в плену инопланетян [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +141,7 @@ Mouretsu Pirates / Moretsu Uchuu Kaizoku / Bodacious Space Pirates / Лихие 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +167,7 @@ Mahou Shoujo Madoka Magica / Magical Girl Madoka Magica / Девочка-вол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +195,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +221,7 @@ Beatless | Без пульса | Слабый удар [2018, TV, 24 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +247,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +273,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 + 4sp] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +301,7 @@ Tales of Zestiria: The X / Tales of Zestiria: The Cross / Сказания Зе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +327,7 @@ Aku no Hana / Flowers of Evil / Цветы зла [2013, TV, 13] BDrip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +355,7 @@ Rakudai Kishi no Cavalry | Rakudai Kishi no Eiyuutan | Chivalry of a Failed Knig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +381,7 @@ Eromanga-sensei (2019) | Эроманга-сэнсэй OVA [2019, OVA, 2 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +407,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +433,7 @@ Caligula | Калигула [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +459,7 @@ Sword Art Online Alternative: Gun Gale Online | Мастера меча онла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +485,7 @@ Mirai no Mirai | Мирай из будущего [2018, Movie] BDrip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +511,7 @@ Imawa no Kuni no Alice | Alice in Borderland | Элис в Пограничье 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +537,7 @@ Code Geass Hangyaku no Lelouch | Code Geass - Lelouch of the Rebellion | Код 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +565,7 @@ Demi-chan wa Kataritai | Interviews with Monster Girls | Деми хотят п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +591,7 @@ Non Non Biyori Movie: Vacation | Деревенская глубинка: Кан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +619,7 @@ Kakyuusei (1999) | Какюсэй [ТВ] [1999, TV, 14 из 14] DVDRip 480p 10-b
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +647,7 @@ Teekyuu 3 | Теннис 3 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +675,7 @@ Teekyuu 5 | Теннис 5 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,111 +686,6 @@ Teekyuu 5 | Теннис 5 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28E7E38A1B79F569F7F54405E2146AD8F958C607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401641   (707587) от 11.08.2020
-
-Teekyuu 6 | Теннис 6 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестой сезон аниме, который рассказывает о жизни, драме и взаимоотношениях весьма незаурядных девочек из «Клуба любителей тенниса».Производство: Millepensee / ミルパンセЖанр: комедияРежиссер: Итагаки СинПеревод: VZbittenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 2 мин. + 2 спешиала по 2 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D194C702FA452916233089775C88E30E51123B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401637   (707585) от 11.08.2020
-
-Teekyuu 2 | Теннис 2 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клуб тенниса вновь радует своих поклонников безумными выходками, выходящими за грани разумного и нарушающими законы физики!
-Жизнь главных героинь чрезвычайно насыщенна: они помогут воспитателю в детском саду, подберут домашнего любимца для Насуно, поучаствуют в спортивном фестивале, расскажут в интервью о своем клубе и съездят в летний лагерь. Где бы ни оказались (   Читать дальше...   )Производство: MAPPA, Millepensee / ミルパンセЖанр: комедияРежиссер: Итагаки СинПеревод: VZbittenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 2 мин. + 2 спешиала по 2 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C50364106BAC09C847640A327F088718976B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401647   (707583) от 11.08.2020
-
-Usakame | Кролик и черепаха [2016, TV, 12 из 12 + 1 SP из 1] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только мы собрались забыть о новых сезонах «Тенниса», как авторы нашли обход: анонсировали спин-офф. Спин-офф «Тенниса» рассказывает про девочек-теннисисток, с которыми героини основной серии встречались в национальном командном турнире.Производство: Millepensee / ミルパンセЖанр: комедияРежиссер: Итагаки СинПеревод: VZbittenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин. + 1 спешиал на 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D4EE19075FB13E846896D1FCD7DC7BE8C17A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401636   (707579) от 11.08.2020
-
-Teekyuu | Теннис [2012, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме «Теннис» — экранизация одноименной манги в жанре «спортивная комедия», главными героинями которой являются четыре школьницы, участницы теннисного клуба.Производство: MAPPAЖанр: комедияРежиссер: Итагаки СинПеревод: VZbittenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 2 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64605EB5AAA18B6FDA941270E6D93E10A7D678AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

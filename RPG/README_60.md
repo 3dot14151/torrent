@@ -1,3 +1,81 @@
+###  Публикация: 1748022   (44326) от 07.09.2024
+
+CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Создайте своего персонажа, сделайте его бессмертным после нажатия кнопки - «готово». Дайте ему имя и отправляйтесь покорять мир фэнтези - CODE VEIN. Кооперативный слешер от третьего лица, где даже милая созданная японка будет разрубать на две части врагов, учит не сдаваться до последнего и преодолевать препятствия, даже если вы в теории не можете умереть.Тип издания: RepackРазработчик: Bandai Namco StudiosЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EC4ECFF6E0246B0041A8A92297586891C081D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748066   (44263) от 08.09.2024
+
+Fallout: London (2024) [En] (2.31r2) Repack/Mod FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Fallout: London - это глобальный мод для оригинальной Fallout 4, переносящий игроков в постапокалиптическю вселенную Фоллаут, а именно в английскую столицу Лондон. Добавлены новый сюжет, оружие, уникальная лондонская тематика и тщательно проработанный полуразрушенный городской пейзаж великобританской столицы. Мод представляет разросшийся постапокалиптический Лондон, (   Читать дальше...   )Тип издания: Repack/ModЖанр: Ролевые игры, ЭкшныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F15724DD929B1D028B45DF425D1EF0677FB339A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748225   (44223) от 08.09.2024
+
+Wartales (2021) [Ru/Multi] (1.0.36897/dlc) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Wartales - ролевое приключение в открытом мире, предлагающее возглавить свою команду наемников, чтобы отправиться на поиски сокровищ. События развиваются в средневековом фэнтезийном мире. Требуется путешествовать континентами, нанимать сопартийцев, исследовать древние гробницы и собирать награды. Сюжет начинается с падения великой Империи Эдоран. Королевство охватила (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Ролевая игра, ПошаговаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613528D476E04AF9C5C0E8E54F74DA99A3057ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748598   (43998) от 10.09.2024
 
 Marenian Tavern Story: Patty and the Hungry God (2019) [Multi] (1.0.2) License GOG
@@ -6,7 +84,7 @@ Marenian Tavern Story: Patty and the Hungry God (2019) [Multi] (1.0.2) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Lice
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.1.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ USC: Counterforce (2023) [Multi] (1.01.0a1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Yarimono (2024) [Multi] (1.16) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Mount and Blade: Warband (2010) [Multi] (2.069/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ EVOTINCTION (2024) [Multi] (build 15675746/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Scen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Roadwarden (2022) [En] (1.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Tactical Breach Wizards (2024) [En] (20240912) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.002.26228) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Castle of Lord Velimir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Garlant: My Story (2024) [Multi] (1.1.0.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.1 HotFix 3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Just a To the Moon Series Beach Episode (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Just A To the Moon Series Beach Episode - это казуальная прикл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BECB59201B3DEA48C4328AAAA3DBBC27E6B1755B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751299   (42158) от 28.09.2024
-
-Last Epoch (2024) [Ru/Multi] (1.1.7.4/dlc) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Last Epoch – приключенческая экшен-игра с глубокой системой прокачки в мрачной стилистике, геймплейно повторяющая легендарную Diablo. Вид камеры также взят оттуда, она изометричная, для лучшего обзора территорий вокруг. Сюжетная кампания на одного человека (мультиплеер не предусмотрен) предлагает изучать богатый, на различные живописные места и тёмные подземелья, (   Читать дальше...   )Тип издания: RepackРазработчик: Eleventh Hour GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CD2CA9F356094A69F230A30B70F2E76ED2FE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740131   (42147) от 28.09.2024
-
-Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник: Колесо судьбы Эрзы (2022) [Ru/Multi] (1.1.04/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frontier Hunter: Erza's Wheel of Fortune совмещает элементы проектов Метроида и Кастельвании. Основная задача пользователя – исследовать окружение и искать необходимые предметы. Сравнивая с предыдущей частью, данная игра имеет богатый сюжет, контент для изучения, большую разновидность монстров и противников, обширную систему развития и модернизированную графику.Тип издания: LicenseРазработчик: IceSitruunaЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игрыЯзык озвучки: Японский, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908C86675D9723BAF466922E16FC7380F8E353B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752206   (42054) от 29.09.2024
-
-Shadows of Doubt (2024) [Ru/Multi] (39.07) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры Shadows of Doubt происходит в 1980-х, в сверхиндустриализованной альтернативной реальности. Примерьте на себя роль сыщика: используйте специальные устройства, как настоящий детектив, ищите улики и получайте деньги за раскрытие преступлений, поиск и продажу полезной информации и так далее.Тип издания: RepackРазработчик: ColePowered GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6E84D10E8A82A85B7D0219DEB0541D2B2D5B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1533848   (700976) от 26.02.2022
+
+Бешеные кролики. Вторжение на Марс / Rabbids Invasion: Mission to Mars (2022) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Они могли бы отправить роботов… Но зачем, если есть Бешеные кролики? Вливайтесь в безбашенный экипаж — и вперед, на марсианскую миссию, где всё идет наперекосяк.Производство: США / Ubisoft Film & Television ProductionЖанр: мультфильм, комедия, семейныйРежиссер: Франц КиршнерПеревод: Дублированный (студия SDI)Субтитры: русские (forced, full), английские (full)Продолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962A63DFD1524D3DC11E21E9FAF2BC1790319B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144744   (700047) от 21.04.2018
+
+Рок Дог / Rock Dog (2016) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Встречайте, новый герой отправляется покорять город зверей! Он — пёс Боуди, и он не унывает, несмотря ни на что. Ему на роду написано сторожить родную деревню от волков, а он мечтает стать учеником живой рок-легенды, кота по имени Энгус. Однако у Энгуса совсем другие планы, да и волки подстерегают за каждым углом. Но если не вешать хвост, то всё в твоих лапах!Производство: Китай, США | Dream Factory Group, Eracme Entertainment, Huayi Tencent Entertainment CompanyЖанр: Мультфильм, комедия, приключения, семейный, музыкальный, полнометражныйРежиссер: Эш БраннонПерсонажи: Люк Уилсон, Эдди Иззард, Дж.К. Симмонс, Льюис Блэк, Кенан Томпсон, Мэй Уитман, Хорхе Гарсиа, Мэтт Диллон, Сэм Эллиотт, Уилл ФиннПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A03CE93FA6601E8C107EF141AD76A79FC17014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026813   (699600) от 17.06.2016
+
+Сезон охоты 4: Страшно глупо / Open Season: Scared Silly (2015) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Элиот, Буг и вся их лесная братва попадают в совершенно новое и очень-очень смешное приключение.Производство: США, Sony Pictures AnimationЖанр: МультфильмРежиссер: Дэвид ФейссАктеры: Кэтлин Барр, Гари Чок, Тревор Дивэлл, Донни Джеймс Лукас, Мелисса Штурм, Мэттью В. ТейлорПеревод: Дублированный (iTunes)Продолжительность: 01:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FEA573BE5F48034C426A09B1B18D4C89C53A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 895663   (698776) от 06.05.2015
 
 Безграничный Бэтмен: Животные инстинкты / Batman Unlimited: Animal Instincts (2015) BDRip [H.264/720p-LQ] [LINE]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_692103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,85 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDE14C22566C2B9EAB6509913A0A5C4730356461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791123   (687462) от 13.06.2014
-
-Лего. Фильм / The Lego Movie (2014) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная лего-фигурка соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / Animal Logic, LEGOЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Фил Лорд / Phil Lord, Кристофер Миллер / Christopher MillerАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Крэйг Берри, Элисон Бри, Дэвид Берроуз, Энтони ДэниелсПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (full, SDH, SDH-colored)Продолжительность: 01:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374B5205510F2D2ACA72333AEB6D6D6BC4377465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506830   (687396) от 06.06.2012
-
-Эдит и я / Technotise - Edit i ja (2009) [720p]  BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Белград, 2074 год. Эдит - студентка. После нескольких неудачных попыток сдать экзамен она решает имплантировать себе чип для улучшения памяти. И после этого с ней начинают происходить странные вещи...Жанр: мультфильм, фантастика, боевикРежиссер: Алекса Гайич, Небойша Андрич, Стеван ДжорджевичПеревод: Одноголосый закадровый, профессиональныйСубтитры: Russian (крако), Ukrainian (jonas93), EnglishПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF5EC81B3E6814E104FA10DC9EA8B46037FBF02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888413   (687200) от 12.05.2015
-
-Бэтмен против Робина / Batman vs. Robin  (2015) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот анимационный фильм является продолжением фильма 2014 года "Сын Бэтмена" (Son of Batman).
-В ходе одного из расследований на месте преступления Дэмиан встречает таинственного незнакомца, Талона, который направляет мальчика по иному пути, ведущему в глубины таинственного общества Суд Сов. В этом опасном путешествие Бэтмен и Робин сразятся со своими самыми (   Читать дальше...   )Производство: США, Warner Bros. Animation, DC ComicsЖанр: Рисованная анимация, ПриключенияРежиссер: Джей Олива, Дж. Эм., Боб Кейн, Грант МоррисонПерсонажи: Бэтмен, Робин, НайтвингЯзык субтитров: Русский (Dakota Family Translators)Продолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B51DFEDD42661CA808566C3A95FC86E85594EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

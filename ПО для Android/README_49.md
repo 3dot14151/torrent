@@ -1,3 +1,86 @@
+###  Публикация: 1402391   (701412) от 14.08.2020
+
+Vocaberry Karaoke v0.22.1 [Ru] - Научиться петь популярные песни Vocaberry (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С этим приложением вы сможете научиться красиво петь любимые песни.
+Без занятий с преподавателем вы сможете попадать в ноты и не фальшивить, развить слух и музыкальную память. Караоке с 21480 песнями на разных языках (включая RU). Во всех песнях поддерживается «фирменная» технология. По окончании исполнения показывается оценка в баллах.Тип издания: Пиратка (Mod)Релиз состоялся: 12.07.2020Разработчик: adhocappПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEC250B2FD15BD04E7CAF304AE365C09A0F669B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400349   (701168) от 14.08.2020
+
+Справочник электрика v1.0 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Справочник электрика" - это программа в которой собраны интересные и познавательные статьи про электрику.
+
+В этом приложении собраны статьи:
+- Последовательное соединение проводников(   Читать дальше...   )Тип издания: AdFree (без рекламы)Релиз состоялся: 13.08.2020Разработчик: strange theoryПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D99BA7F5C4A88F81B12FF26D3CCBA8C4F728604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301816   (700886) от 26.02.2022
+
+Lumii v1.483.106 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Lumii — это функциональный, но простой и практичный фоторедактор.
+Создавайте художественные работы высокого качества с помощью сенсорного экрана — без каких-либо профессиональных навыков. Приложение предлагает продвинутые инструменты и удобные готовые комплекты настроек и фильтров для редактирования и улучшения качества фото. Неважно, новичок вы или профессионал, (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 25.02.2022Разработчик: InShot Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA47E1BCDF2A69D115027C53DF37826CED2005A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241866   (700797) от 08.03.2019
 
 PowerTube v3.7.3 Ad-Free [Ru]
@@ -6,7 +89,7 @@ PowerTube v3.7.3 Ad-Free [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +115,7 @@ BitVPN - Fast VPN Proxy Master v1.3.2 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +193,7 @@ InternetRadio 2.0.1 [Ru] (Авторская раздача)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +245,7 @@ Parom.TV для Android v3.1.1 AdFree [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +298,7 @@ VMP - ВК Музыка v4.5.0 AdFree [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_691708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +350,7 @@ MyPhoneExplorer Client 1.0.43 + 1.8.8 PC [Ru] - Синхронизация с П
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +404,7 @@ Handyman Calculator Pro v2.3.7 [Ru/Multi] - Полный строительны�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +431,7 @@ Microsoft Translator 3.0.205 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +457,7 @@ Any Balance v3.9.808 [Ru/En] - баланс телефона на экране
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +483,7 @@ Smart Compass Pro 2.6.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +509,7 @@ Microsoft Outlook 2.1.209 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +564,7 @@ CalcKit v2.4.2 Premium [Ru/Multi] - Калькулятор Всё-в-одном
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +591,7 @@ TIDAL Music v2.56.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +617,7 @@ Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +643,7 @@ AndroiTS Compass Pro 1.01 - Компас (2012) <En>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +670,7 @@ Mobi Calculator PRO 1.4.0 Mod by Kirhe [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,84 +681,6 @@ Mobi Калькулятор PRO приложение, которое будет 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7451792F2ED556877E0C4897F84D09A5F8A6FE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537386   (667671) от 16.03.2022
-
-Mobi Calculator PRO 1.4.2 Mod by andrey.utasco [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mobi Калькулятор PRO приложение, которое будет полезно для всех, кто занимается математикой, инженерным делом и прочими работами связанными с вычислительными действиями. Приложение также будет полезно для студентов и преподавателей ВУЗов, которое значительно облегчит выполнение расчётов. Данный калькулятор работает с полными выражениями на основе RPN-алгоритмов. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.02.2019Разработчик: IPПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99AE79D38CCB65CF0D50DBADD28097FD40D1698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301795   (664049) от 19.03.2022
-
-Пикабу v1.21.13 Mod [Ru/En/Uk] - Официальный клиент портала Pikabu.ru
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пикабу - это информационное сообщество, где любой желающий может разместить пост в постоянно обновляемую ленту и проголосовать за новости других, формируя список наиболее интересных и горячих записей. Если Вам есть, что рассказать - добавьте свою запись и ее увидят сотни тысяч. Хотите - украсьте фотографиями и видео, хотите - оставьте просто текстом. Здесь Вы - хозяин (   Читать дальше...   )Тип издания: Пиратка (Mod без рекламы)Релиз состоялся: 28.01.2022Разработчик: PikabuПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB0A5AC7AB0CFAC4CE258D7385A324B08AF2D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064388   (662635) от 13.05.2018
-
-Монеты стран бывшего СССР v2.5 [Ru] - Более 1000 юбилейных монет и монет регулярного чекана стран бывшего СССР
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение может использоваться как инструмент для работы с коллекцией, либо как справочник. Содержит перечень юбилейных монет и монет регулярного чекана стран бывшего СССР (Азербайджан, Армения, Казахстан, Киргизия, Молдавия, Таджикистан, Туркменистан, Узбекистан, Украина, Латвия, Литва, Эстония, Грузия, Приднестровье). Более 1000 монет!Тип издания: Маркет + кейгенРелиз состоялся: 11.05.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F388A62D29C1624186FF6583E63AA8AA258905
 ```
 
 https://mybot314.ru/tekegram_catalog/

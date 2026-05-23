@@ -1,3 +1,109 @@
+###  Публикация: 1028594   (688518) от 23.06.2016
+
+Вор / Le voleur (1967) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённого романа Жоржа Дариена. Действие разворачивается в начале века. Джордж Рэндал по происхождению из хорошей семьи. После того, как его дядя растратил его наследство, а его кузина Шарлотта, на которой он рассчитывал жениться, (с подачи того же дяди) вышла замуж за богатого соседа, он из чувства мести становится на путь воровства…Производство: Франция, ИталияЖанр: Драма, комедия, криминал, экранизацияРежиссер: Луи МальАктеры: Жан-Поль Бельмондо, Женевьев Бюжо, Мари Дюбуа, Жюльен Гиомар, Поль Ле Персон, Кристиан Люд, Франсуаза Фабиан, Марлен Жобер, Бернадетт Лафон, Мартин Сарси ...Перевод: Профессиональный двухгоголосыйСубтитры: ОтсутствуютПродолжительность: 01:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AC86E30A4894A58B5BA9413A8BD44FAC84D662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533529   (688362) от 05.03.2022
+
+Торговцы грёзами / Nickelodeon (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1910 год. Новое развлечение с каждым днем становится все популярнее. Это никельодеон — «движущиеся картинки», немое кино под аккомпанемент пианино всего за 5 центов, рождение многомиллионной индустрии кино. Судьба сводит в этом новом чудесном мире молодых людей — первых кинематографистов, увлеченных, одержимых, фанатично преданных любимому делу.Производство: США, Великобритания / British Lion Film Corporation, Columbia Pictures, EMI FilmsЖанр: комедияРежиссер: Питер Богданович / Peter BogdanovichАктеры: Райан О’Нил, Берт Рейнолдс, Татум О’Нил, Брайан Кит, Стелла Стивенс, Джон Риттер, Джейн Хичкок, Джек Перкинс, Брайон Джеймс, Сидни АрмусПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Full) , Английские (Full)Продолжительность: 02:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B4F4588D3FD46A5222852955DE00D010DB3144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025861   (685949) от 24.06.2016
+
+Пятая печать / Az otodik pecset (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённой повести Ференца Шанты.
+В названии повести и фильма использован образ из Откровения Иоанна Богослова.
+Венгрия, осень 1944 года, Будапешт, в одном из трактиров по вечерам собираются пятеро мужчин и беседуют, спорят о судьбах человечества, о том, каким должен быть человек, когда идёт война, когда у власти негодяи. Но так случилось, что им пришлось (   Читать дальше...   )Производство: Венгрия, кинокомпания "Mafilm, Budapest Filmstdi"Жанр: Драма, военный, притчаРежиссер: Золтан ФабриАктеры: Лайош Эзе, Ласло Маркуш, Ференц Бенце, Шандор Хорват, Иштван Деги, Золтан Латинович, Габор Надь, Дьёрдь Банффи, Йожеф Вандор, Ноэми Апор и др.Перевод: Дублированный, одноголосый закадровыйПродолжительность: 01:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D59D2AD3465930FB46C996CB30CA26BD772A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505674   (685677) от 07.06.2012
+
+Жандарм в Нью-Йорке / Le gendarme a New York (1965) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дружная бригада французских полицейских отправляется в Нью - Йорк, где им поручено представлять Францию на международном конгрессе полицейских. Крюшо, Мерло, Фугас, Трикар и Берлико во главе с сержантом Жербером пускаются в дальний путь. Как не уронить чести мундира, если вас ждет страна соблазнов, да и по - английски вы не знаете ни слова? К тому же Крюшо с ужасом (   Читать дальше...   )Жанр: КомедияРежиссер: Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Кристиан Марен, Ги Гроссо, Мишель Модо, Алан Скотт, Жан Лефевр, Женевьев Град, Марино Мазе, Марио ПизуПеревод: Дублированный (советский)Продолжительность: 01:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A7FE4B5634073AE21844358890E438B2ECB445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505667   (685142) от 07.06.2012
 
 Жандарм из Сен-Тропе / Le gendarme de Saint-Tropez (1964) [H.264] DVDRip
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,112 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743FCD0FBEB00C5F997E3DFE74DAF31005F17FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027187   (677976) от 28.06.2016
-
-Три мушкетера / The Three Musketeers (1948) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Д`Артаньян молодой провинциал приезжает покорять столицу Франции — Париж. Юноша жаждет приключений и поступает на службу в королевский полк мушкетеров. Красавец и виртуозный фехтовальщик добьется своего: его ожидают приключения, тайны, новые друзья, новые враги, поединки и, конечно же, любовь.
-Судьба улыбнется Д`Артаньяну -он обретет верных, честных, веселых и благородных (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Драма, Мелодрама, ПриключенияРежиссер: Джордж СидниАктеры: Лана Тернер, Джин Келли, Джун Аллисон, Ван Хефлин, Анджела Лэнсбери, Фрэнк Морган, Винсент Прайс, Кинен Уинн, Джон Саттон, Гиг Янг, Роберт Кут, Реджинальд Оуэн, Иэн Кит, Патриция МединаПеревод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF84222B88843C75A6086A4DDCFBE0B5D9FFB422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221791   (677138) от 03.05.2018
-
-Небеса могут подождать / Heaven Can Wait (1943) WEB-DLRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дон Амичи в роли Генри Ван Клива, современного Казановы, чья жизнь показана с младенчества и до самой смерти (в возрасте 70 лет). Скончавшийся Ван Клив стоит перед Дьяволом, требующим предъявить пропуск в Ад. Для этого Дьявол должен тщательно изучить всю жизнь Ван Клива…Производство: США / 20th Century Fox Film CorporationЖанр: Фэнтези, Драма, Мелодрама, КомедияРежиссер: Эрнст ЛюбичАктеры: Джин Тирни, Дон Амичи, Чарльз Коберн, Марджори Майн, Лэйрд Крегар, Спринг Байинтон, Эллин Джослин, Юджин Пэллет, Синье Хассо, Луи КэлхернПеревод: Авторский (Г.Либергал)Субтитры: АнглийскиеПродолжительность: 01:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22401E34381F00B89B09EB60CB0A6215649E77AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506220   (676802) от 11.06.2012
-
-Шалако / Shalako (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в XIX в. В Нью-Мехико. Некие аристократы из Европы, решили поохотиться на территории дикого и воинственного племени апачей. Шалако наталкивается на лагерь охотников, когда спасает прекрасную женщину, находящуюся на грани гибели… Краснокожие устремляются на бледнолицых, расположившихся в полуразрушенной крепости. Шалако имеет богатейший опыт выживания и ведения войны в этих краях. Он прилагает массу усилий, чтобы спасти горе-охотников, но всех спасти не удается…Жанр: вестернРежиссер: Эдвард ДмитрикАктеры: Шон Коннери, Брижит Бардо, Стивен Бойд, Джек Хоукинс, Петер Ван Эйк, Хонор Блэкмен, Вуди Строуд, Эрик Сайкс, Александр Нокс, Валери Френч, Джулиан Матеос, Дон 'Красный' Бэрри, Родд Редвинг, Чиф Таг Смит, Ганс Де Фриз, Уолтер Браун, Чарльз Сталмакер, Боб Каннингэм, Джон Кларк, Боб Холл…Перевод: Профессиональный двухголосый закадровыйПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE2D7DED93A245868AF26BFD5F5D64D7384CE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397023   (676776) от 17.05.2015
-
-Синьор Робинзон / Il signor Robinson, mostruosa storia d'amore e d'avventure / Mr. Robinson (1976) DVDRip [H.264]
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робинзон Крузо проходит через множество комичных ситуаций, пока ему не удается хоть как-то освоиться на острове. У него появляется даже Пятница - только на этот раз это темнокожая красавица, с которой Робинзон поначалу тщетно пытается найти общий язык.
- Современный Робинзон не хочет отказываться от благ цивилизации и придумывает, как заменить телевизор, радио и все (   Читать дальше...   )Производство: ИталияЖанр: Комедия, ПриключенияРежиссер: Серджио Корбуччи / Sergio CorbucciАктеры: Паоло Вилладжо, Зеуди Арайа, Анна Ногара, Перси ХоганПеревод: Многоголосый закадровыйПродолжительность: 01:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCE99272225CE1E6A5A3B39787BEDCAF4CF5B9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

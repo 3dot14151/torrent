@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1871001   (1069772) от 
+
+VA - Let's Get 2 It (1992) 2 x CD [FLAC|Lossless|tracks + .cue] <House, Hip Hop, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Salt 'N' Pepa - Let's Talk About Sex 3:33
+02. Ce Ce Peniston - Finally 4:10
+03. P.M. Dawn - Set Adrift on Memory Bliss 4:00
+04. Cathy Dennis - Touch Me (All Night Long) 4:10(   Читать дальше...   )Жанр: House, Hip Hop, PopПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8477747151BA20364D39F09FE671A406E64F2B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870823   (1069388) от 
+
+Vengaboys - The Platinum Album (2000) [FLAC|Lossless|tracks] <Europop, Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1		Shalala Lala 3:35
+2		24/7 In My 911	3:11
+3		Kiss (When The Sun Don't Shine)	3:30
+4		Uncle John From Jamaica	3:08(   Читать дальше...   )Жанр: Europop, Euro House, EurodanceПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA9282C44470A11BED7EDE02BE06ABE5A90FC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869553   (1069235) от 
+
+T.H. Express - Love 4 Liberty (1996) [FLAC|Lossless|tracks] <Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1		Missing In The Rain	3:27
+2		Love 4 Liberty	3:38
+3		Crazy For Love	4:23
+4		Nite Away	4:03(   Читать дальше...   )Жанр: Euro House, EurodanceПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF1D0E2FAFDDA6D2939FF1BC54024243B90620B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869170   (1068327) от 07.05.2026
 
 ABBA-DJ - Non-Stop Club Remixes (2002) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
@@ -7,7 +94,7 @@ ABBA-DJ - Non-Stop Club Remixes (2002) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +123,7 @@ Zodiac - Ever More (1995) Maxi-Single [FLAC|Lossless|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -65,7 +152,7 @@ Real McCoy - One More Time (1997) [FLAC|Lossless|image + .cue] <Electronic, Euro
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -94,7 +181,7 @@ Alexia - The Party Alexia (1998) [FLAC|Lossless|image + .cue] <Euro House, Italo
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -123,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -152,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -181,7 +268,7 @@ Culture Beat - Serenity (1993) 1st German Press [APE|Lossless|image + .cue] <Eur
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -210,7 +297,7 @@ Snap! - The Madman's Return (1992) 1st German Press [APE|Lossless|image + .cue] 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -239,7 +326,7 @@ DJ Bobo - Dance With Me (1993) 1st German Press [APE|Lossless|image + .cue] <Eur
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +355,7 @@ DJ Hooligan - 3 Years To Become A Ravermaniac (1995) 1st German Press [APE|Lossl
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +384,7 @@ Captain Hollywood Project - Love Is Not Sex (1993) 1st German Press [APE|Lossles
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +413,7 @@ Dj Bobo - The Great Adventure (2026) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -355,7 +442,7 @@ A-Teens - The ABBA Generation (Remix) (2001) Reissue, 2021, Universal Music AB [
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -384,7 +471,7 @@ VA - VIVA Hit Collection Vol.5 (2000) (2000) [FLAC|Lossless|image + .cue] <Dance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -413,7 +500,7 @@ Imperio - Best of Imperio (2020) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Dream
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -442,7 +529,7 @@ Joy - Joy (Все золото мира) (2000) Unofficial Compilation МЕКК�
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -471,7 +558,7 @@ Fun Factory - Nonstop! The Album (1994) [FLAC|Lossless|tracks + .cue] <Euro Hous
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +587,7 @@ VA - Beat Unlimited (1994) [FLAC|Lossless|image + .cue] <Pop, Dance, Reggae-Pop,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +616,7 @@ Aqua - Greatest Hits (2009) Speciel Edition [FLAC|Lossless|WEB-DL|tracks] <Euro-
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +645,7 @@ Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -587,7 +674,7 @@ VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,7 +703,7 @@ Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|i
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -645,7 +732,7 @@ Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -659,92 +746,6 @@ Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349849   (1004060) от 03.01.2020
-
-Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Compares 2 U (The Ultimate Dance-Version) 6:32
-02. Nothing Compares 2 U (The Techno Mix) 5:09
-03. 1-4-U 5:32Жанр: Euro HouseПродолжительность: 00:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DD6D14CB61619C3A56D4C8E0CDEE78B8A03949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349873   (1003991) от 03.01.2020
-
-VA - Disco Hits Exclusive Collection (1989) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurobeat, Hi NRG>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Gail Berry My Miracle Is Love (Dance Mix) 6:06
-02 – Ken Laszlo Everybody Is Dancing 7:15
-03 – Pat & Bel Without You (Dance Mix) 6:13
-04 – Francesco Salvi Esatto! (Mix Version) 5:32(   Читать дальше...   )Жанр: Euro-Disco, Eurobeat, Hi NRGПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6004944AB040D60EEB46D812F041963579FAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350028   (1003763) от 04.01.2020
-
-Joy Winter - Frantic Romantic (1990) [FLAC|Lossless|image + .cue] <Hi NRG, Freestyle>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 In Time You'll See 4:34
-2 How Can I Be Sure 4:56
-3 Day And Night 3:42
-4 Why Can't We Be Lovers 5:11(   Читать дальше...   )Жанр: Hi NRG, FreestyleПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A79E379186E147B700EA64ACBED10252FAD3004
 ```
 
 https://mybot314.ru/tekegram_catalog/

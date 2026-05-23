@@ -1,3 +1,90 @@
+###  Публикация: 1097668   (912149) от 28.01.2017
+
+VA - Model Dreams: Winter Edition (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Fomichev - Sing It Back (Feat. Jenna Summer) 05:22
+02. Patric Brown - Rock This City (The Teachers Remix) 06:11
+03. Next Door But One - Positive Thinking (Paul Jacobson Remix) 08:38
+04. Rhythm Rockerz - 4 O'clock (Feat. Ann Bailey) (Rhythm Rockerz Anthem Mix) 06:37(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEC501D07CDB044DA5DDED68B5651B70F6CFEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988667   (911864) от 25.02.2016
+
+VA - Club Charts 2016.1 (2016) [MP3|256 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Show Me Love (feat. J.U.D.G.E.) 04:17
+ 02. DJ Tonka - She Knows You (Update Radio Mix) 03:04
+ 03. Gestort aber GeiL - Ich & Du (feat. Sebastian Hamer) 03:37
+ 04. EDX - Revered (Radio Edit) 03:15(   Читать дальше...   )Жанр: HouseПродолжительность: 03:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7858570329D65DC2EBD734D560493F44A97335BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368337   (911079) от 19.03.2020
+
+VA - Only For DJs - Spring 2020 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Berte' & Daniel Tek feat. Monika Kiss - Better Of Alone (Extended Mix) 5:11
+02. JBGL - Dance Monkey (Extended Mix) 3:36
+03. Skelectro & Allenx feat. Norah B. & Itto - No Time (Spikaa Remix) 4:08
+04. MJX feat. Pat Cole - Free (Radio Mix) 3:32(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFCC56E8222A748544217B0F4B5A36CD9A2555D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098106   (910904) от 29.01.2017
 
 VA - Commemoration 3 Years (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -6,7 +93,7 @@ VA - Commemoration 3 Years (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Electric Walls: Dance Floor Vol 2 (2016) [MP3|320 кб/с] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Armada Music Miami (2020) Extended Versions [MP3|320 Kbps] <House, Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Deep Balearic House Music Vol.1 (2016) [MP3|320 Kbps] <House, Deep House, B
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Body Language Vol.2 (Dive Into The Magic Of Deep House) (2017) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Workout Motivation Vol 2 (Pres By Sam Booka) (2016) [MP3|320 кб/с] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Dj Бинокль - Ночное Видение (2006) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +293,7 @@ VA - Mixed by Dj K.Doomski (2005) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -232,7 +319,7 @@ Dj Бинокль - Tribalhouse 2 (2004) [MP3|256 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -258,7 +345,7 @@ Kirill Doomsky - Housemission II - Only One In The World (2004) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -287,7 +374,7 @@ VA - Resonance Vol.2 (Mixed By DJ Arseniy) (2005) [MP3|320 Kbps] <House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -316,7 +403,7 @@ Dj Бинокль - Tribalhouse 1 (2003) [MP3|256 Kbps] <House, Disco, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +432,7 @@ VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +461,7 @@ VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +490,7 @@ VA - Bangin' Future House, Vol. 1 (2018) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +519,7 @@ VA - Bangin' Future House, Vol. 2 (2018) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -461,7 +548,7 @@ VA - EDM World Vol 10 (2020) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,7 +577,7 @@ VA - Ego In Miami (2020) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -519,7 +606,7 @@ VA - Nothing But... Soulful House Vibes, Vol. 07 (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -548,7 +635,7 @@ VA - Hypnotic Room (Best of 2016) (2017) [MP3|320 Kbps] <House, Tech House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -577,7 +664,7 @@ VA - Carnaval House (2017) [MP3|320 Kbps] <Tech House,Deep House,House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,7 +693,7 @@ VA - Kontor Sports: Nonstop Powermix 2020.03 (2020) [MP3|320 Kbps] <House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -635,7 +722,7 @@ VA - Bangin' Future House, Vol. 3 (2020) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -649,105 +736,6 @@ VA - Bangin' Future House, Vol. 3 (2020) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACEA5A77246C5292A7A10557EF6ABDA0BD266C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295059   (896546) от 13.02.2011
-
-VA - Record Super Chart № 177 (2011) [MP3|320 kbps]<House, Electro House, Trance, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex - Kill Everybody (Original Mix) (4:57)
-02. Swedish House Mafia and Tinie Tempah - 02. Swedish House Mafia feat. Tinie Tempah - Miami 2 Ibiza (2:49)
-03. Tiesto vs Diplo feat. Busta Rhymes - C'Mon (Catch 'Em By Surprise) (3:32)
-04. Armin Van Buuren Feat. Christian Burns - This Light Between Us (5:09)
-05. Black Eyed Peas - The Time (5:09)
-06. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix) (8:10)
-07. Deadmau5 & Wolfgang Gartner - Animal Rights (6:15)
-08. Matisse & Sadko - Hi Scandinavia! (2:11)
-09. Nadia Ali - Rapture (Avicii New Generation Extended Mix) (7:08)
-10. Pendulum - The Vulture (4:03)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 03:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6A0B34E2EA94F31E9A8810995B3700BD6A9C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636479   (895235) от 03.04.2013
-
-Various Artists - Underground Sound Of Miami Series 2 (2013) [MP3|320 кб/с]<Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stelios Vassiloudis - Underground Sound Of Miami Series 2 (Continuous Mixed Version)
-02. Guy J - Twenty 11
-03. Stelios Vassiloudis - Panda Keys
-04. Robert Babicz - It Just So Happens
-05. Phonogenic - Laine
-06. Ian O'Donovan - Crimson Flare
-07. Rob Hes - Simplicity
-08. Elio Riso & Tomas Wahl - Default In Your Mind
-09. Pig&Dan - The Sudden Rush
-10. Eagles & Butterflies - Pharoah(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6351AD64295868AB3E2C35CE553BF040CD2F93D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370754   (895190) от 28.03.2020
-
-Dj Arthur Project - Лето Уйдёт (2006) [MP3|192 Kbps] <House, Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Arthur Project - Intro
-02. DJ Arthur Project - Лето Уйдёт
-03. DJ Arthur Project - Моя Луна (Radio edit)
-04. DJ Arthur Project - Обернись(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6487F02FCEEF6870BF011F2B807D0CB740AEB2A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

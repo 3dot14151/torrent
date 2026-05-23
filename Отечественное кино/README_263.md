@@ -1,3 +1,107 @@
+###  Публикация: 1779878   (27592) от 15.02.2025
+
+В потоке трех стихий (2024) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Чемпион и рекордсмен по прыжкам в воду Влад Фокин сейчас переживает кризис: он переоценивает всю карьеру и не уверен, что в ней есть смысл. Когда-то давно Влад даже попал на Олимпиаду, но не получил места на пьедестале из-за оплошности своего партнера Семена. К Владу за помощью обращаются полицейские: на соревнованиях по клифф-дайвингу произошла серия ограблений. (   Читать дальше...   )Производство: Россия / МечтаЖанр: драма, спорт, детективРежиссер: Ирина ГобозашвилиАктеры: Александр Головин, Алексей Шевченков, Владимир Сычев, Олег Васильков, Валентина Светлова, Мария Сычева, Полина Ларина, Марсель Бакаев, Роман Измайлов, Артем СильченкоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB7C57ECF292BA91EB2111A9E937D51900DEE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779829   (27569) от 15.02.2025
+
+Совсем ошалели (2024) WEBRip [H.264/2160p] [4K, SDR, 8-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Ольга Гаврилова с молодым бойфрендом Кириллом приезжают на горнолыжный курорт встретить Новый год, но из-за ошибки турагентства оказываются под одной крышей с бывшим мужем Ольги Федором и его очаровательной подругой Мариночкой. Романтический новогодний уикенд грозит обернуться для обеих пар сущим кошмаром, поэтому Ольга и Федор решают скрыть от своих новых пассий, (   Читать дальше...   )Производство: Россия / ТНТ, PREMIER, Продюсерская компания «Яр&Ко»Жанр: комедия, мелодрамаРежиссер: Ольга ФренкельАктеры: Гоша Куценко, Анна Михалкова, Владимир Яглыч, Полина Максимова, Степан Девонин, Евгений Ковалюк, Никита РасхваловПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89704E2CB3F8D5512D3EC5088E00D44C68FDABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779607   (27478) от 16.02.2025
+
+Совсем ошалели (2024) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Ольга Гаврилова с молодым бойфрендом Кириллом приезжают на горнолыжный курорт встретить Новый год, но из-за ошибки турагентства оказываются под одной крышей с бывшим мужем Ольги Федором и его очаровательной подругой Мариночкой. Романтический новогодний уикенд грозит обернуться для обеих пар сущим кошмаром, поэтому Ольга и Федор решают скрыть от своих новых пассий, (   Читать дальше...   )Производство: Россия / ТНТ, PREMIER, Продюсерская компания «Яр&Ко»Жанр: комедия, мелодрамаРежиссер: Ольга ФренкельАктеры: Гоша Куценко, Анна Михалкова, Владимир Яглыч, Полина Максимова, Степан Девонин, Евгений Ковалюк, Никита РасхваловПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3635636C4D50A1EDD4F4BDE50F34F7E10206C010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780389   (27252) от 18.02.2025
+
+Последний ронин (2024) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+(Не)далекое будущее. В результате изменений климата, приведших к глобальной ядерной войне, цивилизация практически уничтожена: земли выжжены, города разрушены. Техника не работает, бензин давно потерял свои свойства. Главная валюта в этом мире — два патрона: 9 и 7,62 мм от АК-47. Преследуемый призраками прошлого одинокий путник Ронин странствует по пустошам в поисках (   Читать дальше...   )Производство: Россия / Централ Партнершип, Okko, ZOOM ProductionЖанр: фантастика, приключенияРежиссер: Макс ШишкинАктеры: Юрий Колокольников, Диана Енакаева, Даниил Воробьев, Тихон Жизневский, Александр Мизёв, Максим Колесниченко, Роберт Юсупов, Юрий Землянухин, Кирилл Папин, Александр ШеинСубтитры: русские (forced - hardsub)Продолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CF491C0D38B461BF76D14265F27F0CE5DAF592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780409   (27236) от 18.02.2025
 
 Постучись в мою Тверь (2024) WEBRip [H.264/720p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,112 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6D45F2D31CA3E6E4FE9E571ACC0BF307787C4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414199   (26418) от 26.02.2025
-
-Новый Одеон (1992)  DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимцы публики Александр Панкратов-Черный и Дмитрий Харатьян попадают в многочисленные комедийные ситуации, что позволяет им блеснуть каждый раз новой гранью своего таланта. Вы увидите их нищими в подземном переходе, гусарами на светском рауте, рэкетирами, миллионерами, героями порнофильма, ковбоями…Производство: Россия / Новый одеонЖанр: КомедияРежиссер: Анатолий ЭйрамджанАктеры: Александр Панкратов-Черный, Дмитрий Харатьян, Ирина Муравьёва, Татьяна Васильева, Марина Майко, Михаил Державин, Михаил Кокшенов, Елена Скороходова, Роксана Бабаян, Любовь ПолищукСубтитры: DVD SubpictureПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CB4F5A4125FCD1E761DE9D2B3B495BA00C9B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516626   (26410) от 26.02.2025
-
-Дневник его жены (2000) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагический рассказ о любви и одиночестве… о неизвестной частной жизни великого русского писателя Ивана Бунина. Запутанная любовная история, участниками которой являются сам Бунин, его жена Вера, молодая поэтесса Галина Плотникова, оперная певица Марга Ковтун и литератор Леонид Гуров.Жанр: ДрамаРежиссер: Алексей УчительАктеры: Евгения Григорьева , Евгений Миронов, Сергей Виноградов, Андрей Смирнов, Ольга Будина, Галина Тюнина, Дэни Коган, Татьяна МосквинаПродолжительность: 01:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAA0D20F1585D5204C847D67741A00395F9A7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586914   (26389) от 26.02.2025
-
-Богиня: Как я полюбила (2004) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Фаина работает в милиции и расследует загадочное преступление. Для того, чтобы найти и наказать злодеев, ей нужно совершить подвиг. Пройти путь воина, чтобы полюбить.Производство: Россия, Богвуд КиноЖанр: драмаРежиссер: Рената ЛитвиноваАктеры: Рената Литвинова, Максим Суханов, Виктор Сухоруков, Светлана Светличная, Константин Хабенский, Ксения Качалина, Дмитрий Ульянов, Константин Мурзенко, Елена Руфанова, Андрей КраскоСубтитры: отсутствуютПродолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3C1946A5E4E708F72EF38B954FFEFAD678CEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584125   (26380) от 26.02.2025
-
-Чеховские мотивы (2002) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вольная экранизация произведений Чехова – рассказа «Тяжелые люди» и неоконченной пьесы «Татьяна Репина».
-Провинциальный актер предпочел бедной суженной богатую невесту. Не пережив такого горя, брошенная девушка покончила с собой, а потом на свадьбу коварного любовника является призрак…
-Трагедия, соседствующая с бесшабашной клоунадой, сьемки в режиме реального времени, (   Читать дальше...   )Производство: Украина, Россия, Никола-фильм, Одесская киностудияЖанр: комедияРежиссер: Кира МуратоваАктеры: Сергей Бехтерев, Наталия Бузько, Жан Даниэль, Филипп Панов, Нина Русланова, Георгий Делиев, Александр БашировСубтитры: русские, английские, французские, испанские, немецкиеПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BC1AC1D15223E19569D8CDF429A17E064E03FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

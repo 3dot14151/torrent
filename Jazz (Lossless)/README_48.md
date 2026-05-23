@@ -1,3 +1,61 @@
+###  Публикация: 997828   (872126) от 18.03.2016
+
+Clark Terry - The Happy Horns of Clark Terry & It's What's Happenin' (1965/1967) 2011, Verve[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Rockin' In Rhythm [04:39]
+ 02.In A Mist [04:09]
+ 03.Return To Swahili [03:05]
+ 04.Ellington Rides Again (Medley) [02:58](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4E2471853918D770412A1BBDD57DDBE2C2751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997824   (872097) от 18.03.2016
+
+Kylie Auldist - Still Life (2012) Tru Thoughts[FLAC|Lossless|tracks + .cue] <Female Vocal, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Still Life [04:23]
+ 02.Counting On You [03:28]
+ 03.Changes [03:47]
+ 04.Daydream [04:41](   Читать дальше...   )Жанр: Female Vocal, Funk, SoulПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FD40BA93019A82BDAC358E51746D1DE6F5D33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765965   (871828) от 14.03.2014
 
 The Jazz Modes - The Most Happy Fella (1957) /2013 Remastered/ [FLAC|Lossless]<Cool, Mainstream Jazz>
@@ -6,7 +64,7 @@ The Jazz Modes - The Most Happy Fella (1957) /2013 Remastered/ [FLAC|Lossless]<C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Slide Hampton - Mellow-Dy (1968) 1992, LRC Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Joyce Cooling - Playing It Cool (1997) Heads Up [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Duke Ellington - The Real... Duke Ellington (2012) 3CD [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +325,7 @@ Judith Nijland - A Jazz Tribute To ABBA (2016) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Club Des Belugas - How To Avoid Difficult Situations (2021) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Harry Allen - I Won't Dance (1999) BMG Japan [FLAC|Lossless|image + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +412,7 @@ Vladimir Danilin, Alexei Kuznetsov, Alex Rostotsky (Владимир Данил�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +470,7 @@ Frank Sinatra - The Real... Frank Sinatra (2014) 3CD [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Quarantine Doom Jazz (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +528,7 @@ Leo Wright - Suddenly The Blues (1962) Remaster, 2012, WEA[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Wayman Tisdale - The Wayman Tisdale Story (2011) Mack Avenue Records[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +586,7 @@ Mike Mainieri - An American Diary (1995) [FLAC|Lossless|image + .cue] <Jazz, Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Cyrus Chestnut - Natural Essence (2016) HighNote [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +644,7 @@ Teddy Wilson Trio & Gerry Mulligan Quartet - At Newport (1957) Remaster, 2016, U
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +673,7 @@ Paul Lay & Isabel Sorling - Alcazar Memories (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +700,7 @@ Perez Prado - The Real... Perez Prado (2014) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +729,7 @@ Glenn Miller - The Real... Glenn Miller (2013) 3CD [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,64 +743,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59E229796266FBD230BF6B5CEBF7B0F567B8E04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496774   (869933) от 19.09.2021
-
-Sarah Vaughan - Sarah Vaughan's Finest Hour (2000) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty [3:01]
-02. How High the Moon [2:38]
-03. I'm Glad There Is You [5:12]
-04. Make Yourself Comfortable [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7AB66AF815CF887F1EC10DF5D7ED16D7534F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374979   (868995) от 12.04.2020
-
-Harry Allen & Randy Sandke witn The Rias Big Band - Turnstile: Music Of The Trumpet Kings (1997) Nagel–Heyer Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love Louis [5:17]
-02. Cloudy [5:25]
-03. Echoes of Harlem [4:25]
-04. Little Jazz Boogie [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42869398EBD442F95225D3B06B90A1381C449C97
 ```
 
 https://mybot314.ru/tekegram_catalog/

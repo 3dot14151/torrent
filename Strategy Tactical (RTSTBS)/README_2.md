@@ -1,3 +1,56 @@
+###  Публикация: 1325098   (929849) от 07.03.2020
+
+BATTLETECH (2018) [Ru/Multi] (1.9.1/dlc) Repack xatab [Digital Deluxe Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Battletech - это пошаговый ролевой экшен с роботами от создателей вселенной BattleTech и серии MechWarrior, который создается силами Harebrained Schemes, создателей последних частей Shadowrun, которые объединили усилия вместе с создателем оригинальной серии, Джорданом Вейманом. События новой части разворачиваются в 3025 году, а управлять игрокам предстоит отрядом (   Читать дальше...   )Тип издания: RepackРазработчик: Harebrained SchemesЖанр: Action, Strategy (TBS), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D0B8DF17E128418CA9768D185E75382429A4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500743   (929527) от 14.03.2013
+
+Warlock: Master Of The Arcane + 4 DLC [Ru/En] (Repack/1.4.1.56) 2012 | R.G. Catalyst
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Warlock: Master of the Arcane - новая стратегическая игра в фантастическом мире Ардания.
+Игроку предстоит взять на себя роль Великого Волшебника и построить могущественную волшебную империю, собрать армию и сразиться за Арданию от имени одного из восьми божеств.(   Читать дальше...   )Тип издания: RepackЖанр: Strategy (Turn-based) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07086AB3C8D7D324B27638F6DE1538D7E065534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365699   (928570) от 08.03.2020
 
 Warhammer 40,000: Mechanicus (2018) [Ru/En] (1.3.7/dlc) Repack xatab [Omnissiah Edition]
@@ -6,7 +59,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/En] (1.3.7/dlc) Repack xatab [Omnissiah 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Siegecraft Commander (2017) [En] (1.2.3962) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +111,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +137,7 @@ UFO: Alien Invasion (2007) [Ru/Multi] (2.5) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +163,7 @@ Stars in Shadow (2017) [En] (010917) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +189,7 @@ XCOM 2 (2016) [Ru/Multi] (1.0.0.33124/dlc) SteamRip Let'sРlay [Digital Deluxe]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +215,7 @@ Fantasy General II (2019) [Ru/Multi] (01.01.09312/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +268,7 @@ Spellcrafter (2015) [Ru/Multi] (1.0) License PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +294,7 @@ XCOM 2 (2016) [Ru/En/Pl] (1.0.0.33124/dlc) Repack R.G. Origami [Digital Deluxe E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +320,7 @@ Command: Modern Air / Naval Operations (2014) [En] (1.11 SR6 b870.4/dlc) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +346,7 @@ Dungeons 2 (2015) [Ru] (1.5.2.4-ae89b35a3232/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +372,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +398,7 @@ Frontline Zed (2019) [Ru/Multi] (1.30) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +424,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +450,7 @@ StarСraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219) Battle.Net-Rip OR
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +476,7 @@ Warhammer 40,000: Armageddon (2014) [Ru/Multi] (1.10/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +502,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +528,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.6.0/dlc) License GOG (обнов�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +554,7 @@ Halfway (2014) [En] (1.2.9) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +580,7 @@ Syrian Warfare (2017) [En] (1.0.0.0) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +606,7 @@ XCOM 2 (2016) [Ru/Multi] (374751/dlc) License GOG [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +632,7 @@ Panzer Corps (2010) [Ru/Multi] (1.30/dlc) License GOG [Gold]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +658,7 @@ XCOM 2 (2016) [Ru/En] (374751/dlc) Repack xatab [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +669,6 @@ XCOM 2 – это продолжение полюбившейся игрокам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E115C3BFF8154E1977E59A77C47BAB76AE23A4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001458   (853377) от 28.03.2016
-
-Ceres (2015) [Ru/Multi] (1.2.0) Repack ARMENIAC
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солнечная система опустошена. Земля погибла, рассыпавшись на кусочки. От нее ничего не осталось, кроме огромного пояса камней. Никто не знает, почему Врата сломались. Они были построены, чтобы соединять наш мир с другими звездами, но прежде чем разразилась катастрофа, люди успели отправить лишь несколько колонизаторских кораблей. Считается, что врата неожиданно соединились (   Читать дальше...   )Тип издания: RepackРазработчик: Jötunn GamesЖанр: Cosmic StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E38EB636F4A5C6041949CA0B13BC4532D65E17B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110455   (853230) от 02.03.2017
-
-Expeditions: Conquistador (2013) [Ru/Multi] (1.6.5) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853230.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли лидера экспедиции вам предстоит принимать много сложных решений по управлению своими солдатами и ресурсами, а также решать, как поступать с дикарями Нового мира. Пойдёте ли вы против истории и выберете путь дипломатии? Или же станете безжалостным завоевателем, который покорит империю Ацтеков? Expeditions: Conquistador - это тактическая ролевая игра с элементами (   Читать дальше...   )Тип издания: LicenseРазработчик: Logic ArtistsЖанр: Strategy (Turn-based, Tactical), RPG, 3DЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68223425210DC65E5E650B46E46FFBF379A42677
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 289416   (916872) от 01.02.2011
+
+BBC: Апокалипсис древних цивилизаций - 2 - Загадка Минойцев / BBC: Ancient Apocalypse - 2 - Mystery of the Minoans (2001) DVDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Почему исчезли древние цивилизации? Какую роль в этом сыграла стихия? Профессор Фекри Хассан пытается найти ответы в документальном сериале "Древний апокалипсис".
+
+Минойская цивилизация исчезла примерно 3,5 тысячи лет назад на острове Тира.Жанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902DA9D69FBF4E4A6E5611149224A25453C8E80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289407   (916865) от 01.02.2011
 
 BBC: Апокалипсис древних цивилизаций - 1 - Смерть На Берегах Нила / BBC: Ancient Apocalypse - 1 - Death on the Nile (2001) DVDRip
@@ -6,7 +34,7 @@ BBC: Апокалипсис древних цивилизаций - 1 - Смер
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +62,7 @@ BBC: Апокалипсис древних цивилизаций - 3 - Гибе
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +91,7 @@ BBC: Апокалипсис древних цивилизаций - 4 - Содо
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -117,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +171,7 @@ BBC. Семейка гепардов и Я (Семья гепардов и Я) /
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +197,7 @@ BBC. Аттенборо и Гигантский Слон / Attenborough and the 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +249,7 @@ BBC: Путешествие человека / The Incredible Human Journey   (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +301,7 @@ BBC: Охота на гравитационные волны / The hunt for grav
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +353,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +379,7 @@ BBC. Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +405,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +483,7 @@ BBC: Эйнштейн и Хокинг. Гении нашей Вселенной 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +509,7 @@ BBC: Внутри человеческого тела / BBC: Inside the Human Bo
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +535,7 @@ BBC: Мир природы. Каланы. Малышка на миллион / N
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -533,7 +561,7 @@ BBC: Секреты устройства античных городов. Афи
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +587,7 @@ BBC: Королевские дворцы / The Queen's Palaces (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -585,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -611,7 +639,7 @@ BBC: Секреты устройства античных городов. Рим
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -637,7 +665,7 @@ BBC: Невидимые миры. Вне поля зрения / Invisible World
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -649,32 +677,6 @@ BBC: Невидимые миры. Вне поля зрения / Invisible World
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D990F155D8E8CA36C9CA97951C7591EA3B03E16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374529   (872328) от 10.04.2020
-
-BBC: Гений Марии Кюри: женщина, осветившая мир / The Genius of Marie Curie - The Woman Who Lit up the World (2013) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая женщина, получившая Нобелевскую премию, Мария Кюри, была выдающейся женщиной, чья история в наше время звучит не менее невероятно, чем в прошлом веке.Производство: Великобритания / BBC ProductionsЖанр: ДокументальныйРежиссер: Gideon BradshawПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9918F5438031E3EAB747A1A47C26716FE36CC6D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

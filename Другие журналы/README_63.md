@@ -1,3 +1,113 @@
+###  Публикация: 1181061   (337999) от 05.11.2017
+
+Журнал | Le Figaro Histoire [French] №34 (октябрь-ноябрь 2017) [PDF] [Fr]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Waterloo: La chute de l'Aigle. Fouche et Tallerand rnenent le ball.
+La secrets de la Bataille.
+La tragedie des Sent-Jours.
+La crise de L'Empire Roman.(   Читать дальше...   )Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C5B135DEC21A07F0326D523FF4DE9080B23744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581430   (337931) от 27.11.2012
+
+Журнал | Forbes [Россия] №12 (декабрь 2012) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Forbes" является главным деловым журналом в мире, успех журнал получил благодаря своим дерзким расследованиям в мире бизнеса и справедливым оценкам событий. "Forbes" пишет об историях успеха и поражений предпринимателей, новых идеях для бизнеса и инвестиций, а также публикует ежегодные авторитетные рейтинги. Частично удалена реклама.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFAFE1E2D6AC59190A484D5CAAE010109392F0E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181083   (337896) от 05.11.2017
+
+Журнал | Focus Storia Collection [Italian] (2017) [PDF] [It]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Focus Storia: la rivista interamente dedicata alle vicende, ai personaggi, alle curiosita che hanno caratterizzato i secoli passati. Ogni mese un numero speciale da conservare, con i grandi temi approfonditi alla maniera di Focus, per entrare nella Storia in modo diverso e avvincente. Quello di Focus Storia, che racconta le curiosita del passato in modo divertente, (   Читать дальше...   )Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474AC89F4044CE5DAD6EC4ACB57D298A77D8A49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181071   (337895) от 05.11.2017
+
+Журнал | Muy Historia [Spanish] №9 (сентябрь 2017) [PDF] [Es]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Военно-исторический журнал.
+В номере:
+- Камикадзе: умереть, чтобы убить
+- Нацистские и российские пилоты-самоубийцы(   Читать дальше...   )Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD4FB1EDD22AD0CEBABA57E62984941DE0A0855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180986   (337894) от 05.11.2017
 
 Журнал | Storica National Geographic [Italy] №11 (103) (ноябрь 2017) [PDF] [It]
@@ -6,7 +116,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,111 +678,6 @@ Total Lighting - журнал об освещении. Здесь Вы найд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80AC0BC342B90C363408C42FCD9F35D4065B960F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181600   (323830) от 07.11.2017
-
-Газета | Тайны вселенной №6 (2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323830.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны вселенной» – Познавательное издание, в котором каждый читатель найдет для себя интересную тему. На страницах журнала множество рубрик, посвященных различным областям знаний, в которых освещаются последние достижения науки и техники. Читая материалы этого издания вы откроете тайны генной инженерии и альтернативной энергетики, узнаете о последних разработках (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2736A8D42B5796210AE97C284C8DC4C6B16C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181594   (323829) от 07.11.2017
-
-Газета | Тайны вселенной №5 (2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323829.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны вселенной» – Познавательное издание, в котором каждый читатель найдет для себя интересную тему. На страницах журнала множество рубрик, посвященных различным областям знаний, в которых освещаются последние достижения науки и техники. Читая материалы этого издания вы откроете тайны генной инженерии и альтернативной энергетики, узнаете о последних разработках (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E36EC0B773A3920DD8D98E5677E2C355725A1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181602   (323824) от 07.11.2017
-
-Газета | Тайны вселенной №7 (2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323824.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны вселенной» – Познавательное издание, в котором каждый читатель найдет для себя интересную тему. На страницах журнала множество рубрик, посвященных различным областям знаний, в которых освещаются последние достижения науки и техники. Читая материалы этого издания вы откроете тайны генной инженерии и альтернативной энергетики, узнаете о последних разработках (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B6B7C1C4AEEABA64698A670CF71B32CEBFCE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181592   (323722) от 07.11.2017
-
-Газета | Тайны ХХ века. Спецвыпуск №5. Секретные архивы (2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы сморите очередной номер нового издания «Секретные архивы".
-Редакция подготовила для вас захватывающие сюжеты о людях и событиях, до недавнего времени известных только узкому кругу лиц. В основе всех статей - документы, с которых лишь несколько лет назад был снят гриф "секретно" - деятельность спецслужб, тайны жизни и смерти людей, вершивших судьбы (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12034026CF235E75075BA9C32A74F089DAFD2124
 ```
 
 https://mybot314.ru/tekegram_catalog/

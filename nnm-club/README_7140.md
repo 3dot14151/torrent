@@ -1,77 +1,25 @@
-###  Публикация: 1206880   (781662) от 15.02.2018
+###  Публикация: 1205407   (783814) от 09.02.2018
 
-Onyx - Black Rock (2018) [MP3|320 Kbps] <Hardcore Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onyx!!
-02. Black Rock (feat. DJ Nelson)
-03. What U Want from Me
-04. Blinded by the Light (feat. Optimus)(   Читать дальше...   )Жанр: Hardcore Hip-HopПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5556E7B2CD3A984E3BF2F95546C09BC8AC828048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206804   (781661) от 15.02.2018
-
-Снеговик / The Snowman (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781661.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет в день, когда выпадает первый снег, бесследно исчезают замужние женщины. Сложить все части загадочного пазла под силу только знаменитому детективу. Он потерял покой и сон, ведь время следующего снегопада неумолимо приближается.Производство: Великобритания, США, Швеция, Universal Pictures, Perfect World Pictures, Another Park FilmЖанр: Ужасы, триллер, драма, криминал, детективРежиссер: Томас АльфредсонАктеры: Майкл Фассбендер, Ребекка Фергюсон (II), Шарлотта Генсбур, Йонас Карлссон, Ронан Вайберт, Дж.К. Симмонс, Вэл Килмер, Давид Денсик, Тоби ДжонсПеревод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные), английские (полные, SDH, SDH цветные)Продолжительность: 01:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4032CD8059544CCCEA0220B8F9C994041BBCC25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206687   (781660) от 15.02.2018
-
-Три билборда на границе Эббинга, Миссури / Three Billboards Outside Ebbing, Missouri (2017) BDRip [H.264/1080p] [AVO] [PR]
+VA - Fifth Listen (2017) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Abstract, Glitch>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Спустя несколько месяцев после убийства дочери Милдред Хейс преступники так и не найдены. Отчаявшаяся женщина решается на смелый шаг, арендуя на въезде в город три биллборда с посланием к авторитетному главе полиции Уильяму Уиллоуби. Когда в ситуацию оказывается втянут еще и заместитель шерифа, инфантильный маменькин сынок со склонностью к насилию, офицер Диксон, (   Читать дальше...   )Производство: Великобритания, США / Blueprint Pictures, Film 4, Fox Searchlight PicturesЖанр: Криминал, ДрамаРежиссер: Мартин МакДонаАктеры: Фрэнсис МакДорманд, Вуди Харрельсон, Сэм Рокуэлл, Джон Хоукс, Питер Динклэйдж Калеб, Лэндри Джонс, Лукас Хеджес, Эбби Корниш, Керри Кондон, Даррел Бритт-ГибсонПеревод: Одноголосый закадровый, авторский (Михаил Яроцкий) (Субтитры: Русские, АнглийскиеПродолжительность: 01:55:21
+01. Oror - Winter see und (05:57)
+02. Andrew Clam - Space Dance (Nearfield Remix) (04:12)
+03. VardenZenix - Triang and the farting snare (04:59)
+04. Kri Tik - Console napping (04:57)(   Читать дальше...   )Жанр: IDM, Ambient, Abstract, GlitchПродолжительность: 01:02:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA243B053476012819AD647C191E475D80973661
+magnet:?xt=urn:btih:A45EE00EBFD868F43B6E654805525AB79415428F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,104 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206671   (781659) от 15.02.2018
+###  Публикация: 1205405   (783813) от 09.02.2018
 
-Анатолий Дроздов | Хозяин дракона (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781659.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каком веке на Руси жить хорошо? В XXI, или в XII? Странный вопрос – смотря кому… И уж точно не подростку Ивану… И если Русь начала второго тысячелетия показалась ему сказочной страной, то уж в России нашего времени он точно ничего хорошего не видел. Оказавшись в далеком прошлом, Иван быстро нашел свое место. Он получил новое имя – Некрас. И вскоре Ивану-Некрасу, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 12:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CD929DCDF653102C56CFB608380461757DA87E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206745   (781638) от 15.02.2018
-
-Александра Лисина | Шепот темной стороны (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781638.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Шепот темной стороны" – фантастическая новелла Александры Лисиной, вторая книга цикла «Артур Рэйш», жанр детективное фэнтези.
-Небольшой городок на окраине Алтории мог бы считаться тихим местечком, если бы в нем было чуть меньше загадок, убийств и всевозможных проявлений сверхъестественного. Впрочем, для мастера Смерти убийство – это, в первую очередь, (   Читать дальше...   )Жанр: Детективное фэнтезиПродолжительность: 07:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17138D7262CE280C0B379D90D533C116B4E23D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206734   (781637) от 15.02.2018
-
-Медицинская "Справочник - Энциклопедия от А до Я" v2.0.2 f1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная офлайн Медицинская Энциклопедия (медицинский словарь) с легким и функциональным интерфейсом, охватывающим более 60.000 словТип издания: Пиратка (удалена реклама)Релиз состоялся: 14.02.2018Разработчик: TTdictionaryПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97EDAD0A97020B2E29E20D01330225165A057492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206727   (781636) от 15.02.2018
-
-PIDKey Lite 1.62 Portable by Ratiborus [Multi/Ru]
+VA - Fourth Listen (2016) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Experimental>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-PIDKey Lite предназначена для просмотра, обновления и сохранения в базе информации о ключах для продуктов M$.Язык интерфейса: Русский, Английский и другие
+01. the_empath - Autoverse (05:30)
+02. Alpturer - Kibo (03:50)
+03. Perfluxe - Illusion (03:52)
+04. Algesis - Misuse (05:47)(   Читать дальше...   )Жанр: IDM, Abstract, Downtempo, ExperimentalПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CED329488A0AFCA91F9C4B421E8981C3839E82A9
+magnet:?xt=urn:btih:D1340F25629CB20BA224DC7B0D6AED17F8B912ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206831   (781635) от 15.02.2018
+###  Публикация: 1205374   (783812) от 09.02.2018
 
-Валерий Поволяев | Король Красного острова (2016) [FB2]
+VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep House, Downtempo>
 
->>Художественная литература
->>Приключенческая проза
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Герой этого повествования граф Беневский считается одним из самых ярких авантюристов, путешественников и общественных деятелей восемнадцатого века. Будучи камчатским ссыльным, Беневский умудрился поднять восстание в Большерецкой крепости – главной на Камчатке, захватил военный корабль с пушками и отправился вместе с сотней своих сподвижников – в основном казаков (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2
+01.  Luca Guerrieri  -  Faithful (Original Mix)  6:06
+02.  Boss Axis  -  The Sun (Original Mix)  7:25
+03.  Dave Wincent  -  Family Affairs (Original Mix)  6:18
+04.  Ultravizion  -  Luode (Original Mix)  7:58(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 02:29:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BA23527E0EFB68F4E06F2CDA4F87FA75DC7EEE3
+magnet:?xt=urn:btih:B68C208E6D3B182F27EABF342319AED920D64750
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,25 +85,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206759   (781634) от 15.02.2018
+###  Публикация: 1205327   (783811) от 09.02.2018
 
-Avast Internet Security 18.1.2326 Final [Multi/Ru]
+VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 Kbps] <House, Classic House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  Erick Morillo & Eddie Thoneick feat. Shawnee Taylor  -  Live Your Life (Eddie Thoneick Dub)  6:25
+02.  Jerry Ropero & Denis The Menace feat. Jaqueline  -  Coracao (Denis & Jerry's New Bangin Mix)  7:00
+03.  Francesco Diaz & Karl Frierson  -  Say A Little Prayer (Raul Rincon Peaktime Mix)  7:58
+04.  Jonathan Ulysses & Pryce Oliver feat. Futuristic Polar (   Читать дальше...   )Жанр: House, Classic House, DanceПродолжительность: 02:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F83576C9341CA73F44A60EB9AE54003B39FE788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205392   (783810) от 09.02.2018
+
+Roman Slavka - Material That Has Been Stored For A Long Time (2017) CleanError Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Abstract, Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Avast Internet Security - комплексный антивирус, который предлагает все, что необходимо для защиты ваших компьютеров, вашей домашней сети, веб-серфинга и важных данных. Защититесь от кражи личности, фишинговых писем, зараженных и мошеннических сайтов и многого другого.Язык интерфейса: Русский, Английский и другие
+01. Morning Earth Hour (05:20)
+ 02. Evening Earth Hour (06:56)
+ 03. Creeping Wave (08:22)
+ 04. Rotation Pull (06:04)(   Читать дальше...   )Жанр: Experimental, IDM, Abstract, AmbientПродолжительность: 00:30:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFA607AC214625ECB81667756CCC3A05769D0812
+magnet:?xt=urn:btih:3CAA4E77DEC0643B6572D814F7FCD040B07C2EC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,27 +143,578 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206579   (781633) от 15.02.2018
+###  Публикация: 1205282   (783809) от 09.02.2018
 
-Уильям Могайар | Блокчейн для бизнеса (2017) [PDF, RTF]
+VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
 
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Блокчейн — технология хранения и обработки данных, способная преобразить мир вокруг нас. Блокчейн выглядит как распределенная база данных, система, при которой информация хранится не на каком-то одном централизованном носителе, а одновременно на всех компьютерах, которые есть в данной системе.
+01.  Solardo  -  On The Corner (Original Mix)  7:10
+02.  Mike Mago & Tiggi Hawke  -  Dangerous Behaviour (Extended VIP Mix)  4:18
+03.  CASSIMM & Sam Divine  -  What God Has Chosen (Original Mix)  6:02
+04.  Robosonic & Ferreck Dawn  -  Nine To Phife (Original Mix)  5:14(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222DEFFC5F4BD6603FED7C88C68B37537C3E9D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204999   (783808) от 09.02.2018
+
+VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  Sean Sines  -  It Ain't Right (Apollo & Les Afrique Remix)  5:15
+02.  Miss Luna  -  Daytona Race (Paul Lomax Mix)  8:08
+03.  Oz & Edmond Dantes  -  No Way Back (Vocal Mix)  7:43
+04.  Muzzaik  -  Work It (Alexey Romeo & Julia Luna Remix)  7:09(   Читать дальше...   )Жанр: HouseПродолжительность: 03:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A71A5E08B04D0B55FAF975AD33B24A2999A597A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205356   (783807) от 09.02.2018
+
+Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Lament [06:55]
+02. Four [04:37]
+03. Line for Lyons [06:33]
+04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204969   (783806) от 09.02.2018
+
+VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3|320 Kbps] <Progressive House, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 1)  1:08:22
+02.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 2)  1:07:36
+03.  Cristoph & Jem Cooke  -  Slowly Burning (Original Mix)  7:06
+04.  Dario D'Attis & Sven Tasnadi  -  I Need (Original Mix)  7:21(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 05:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4A429F243B54FC46FDD375FC2B554C01877D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204984   (783805) от 09.02.2018
+
+VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kbps] <Chillhouse, Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  Sixth Sector  -  Reverse Server (Deep & City Mix)  2:40
+02.  Salina  -  Lost Angels (South London Mix)  2:48
+03.  Rox Waltford  -  Red Clouds (Deephouse Mix)  2:50
+04.  Electronique 44  -  Robot 151 (High Soul Mix)  2:44(   Читать дальше...   )Жанр: Chillhouse, Deep House, DowntempoПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9A727B3A6DCFF744548260817F92F0760222D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205400   (783804) от 09.02.2018
+
+VA - Air Texture Volume V (Selected By Spacetime Continuum and Juju & Jordash) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Spacetime Continuum - Flux (06:40)
+ 02. Move D - Gli Ragazzi Di Baia Di Puolo (09:05)
+ 03. Fred P. - Vortex (06:26)
+ 04. Patrice Scott - Synchronicity (06:05)(   Читать дальше...   )Жанр: IDM, Ambient, DowntempoПродолжительность: 02:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488CFA2B61B1438EABA2131B973B1E756336D165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205215   (783803) от 09.02.2018
+
+VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.Aaron Ross feat. Gia Mellish - Love Potion (4:03)
+02.Wez Clarke & Maxime Hardcastle feat. The Lovely Laura on Sax - Another Chance (Richard Earnshaw Mix) (5:03)
+03.Notus feat. Shena - Still in Love (Original Club Mix) (5:17)
+04.Steve Haines - Be with You (5:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205011   (783802) от 09.02.2018
+
+VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  Alpha Carpet  -  Megabytes (Red Zone Mix)  2:33
+02.  Jin Tonique  -  Not Easy (Mark Kay's Deep Mix)  2:45
+03.  Diamond Marquees  -  Nightshadows (Frank Tee's Night Beats Mix)  2:47
+04.  Johnny Divine  -  Noises (Dean Franklin's Royce Mix)  3:21(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204909   (783801) от 09.02.2018
+
+James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 1) (01:08:21)
+02. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 2) (01:07:36)
+03. Cristoph - Slowly Burning (feat Jem Cooke) (07:05)
+04. Dario D'Attis & Sven Tasnadi - I Need (07:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205339   (783800) от 09.02.2018
+
+VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
+02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
+03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
+04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204873   (783799) от 09.02.2018
+
+VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.Dizzee Rascal - Dirtee Disco (4:46)
+02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
+03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
+04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204927   (783798) от 09.02.2018
+
+Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.	Loneliness	4:41
+02.	Relax	6:30
+03.	Green Eyes	4:37
+04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205075   (783797) от 09.02.2018
+
+VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
+02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
+03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
+04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204895   (783796) от 09.02.2018
+
+VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.Cicada - The Things You Say (Dirty South Remix) (3:47)
+02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
+03.Mason - Exeeder (Original Mix) (2:56)
+04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205114   (783795) от 09.02.2018
+
+VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  Oscar Bandersen  -  Running (feat. Bruce) (Original Mix)  3:35
+02.  Aussteiger  -  Zusammenkunft (Original Mix)  5:52
+03.  Willie Graff  -  Second Sun (Original Mix)  7:05
+04.  Troels Hammer  -  The Human Tree (feat. Mariana Sadovska) (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205353   (783794) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. Китай — Швейцария (08.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF637A7A04ED33D22FC22525D28535B3BDBDDE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205016   (783793) от 09.02.2018
+
+VA - Dance Party (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal  -  Call Me (SJ Remix Remix)  4:04
+02.  Jaki Nelson & Arcando  -  Don't Say That (Original Mix)  2:58
+03.  Corderoy  -  Touch Your Face (Original Mix)  3:31
+04.  Lash  -  I'm Gonna Be There (Andy Bianchini Remix)  2:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205359   (783792) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Южная Корея — Китай (08.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB67F9999003C27E30383B72B9FABE3D58ECFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205265   (783791) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Финляндия — Швейцария (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+Обзорная трансляция
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0569D61E9E135EAA517CC273B265F4AB6790FA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204992   (783790) от 09.02.2018
+
+Г.Я. Нейман | Внутренняя торговля СССР (1935) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Работа тов. Неймана излагает историю торговли в СССР. Вначале работы дается теоретический очерк, характеризующий природу торговли в СССР, после чего рассматривается ее развитие на различных этапах. Большое внимание уделено характеристике советской торговли на современном этапе и задачам ее развертывания во втором пятилетии.
 
-С этой системой становятся невозможными многие виды нарушений и преступлений. (   Читать дальше...   )Жанр: Финансовые инструментыФормат: PDF, RTF
+Автор основательно знакомит читателя с (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80277090831EB3A9E33B7341D6BA60B9DC95576A
+magnet:?xt=urn:btih:123B35D0AF20545977A4D74C7A44BE0396571537
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,422 +722,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206894   (781632) от 15.02.2018
+###  Публикация: 1205273   (783789) от 09.02.2018
 
-Елена Николаева | Делай сегодня! Опыт 64 успешных российских стартапов (2018) [FB2]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. США — Канада (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Книга известной журналистки и ведущей телеканалов РБК и «Россия-1» Елены Николаевой посвящена одновременно и бизнесу и самореализации. Точнее – самореализации в бизнесе.
-Автор журналов «Сноб» и «Эксперт», Николаева в течение ряда лет скрупулезно собирает материал о молодых российских компаниях. В книгу вошли 64 успешных кейса из различных отраслей – от сельского (   Читать дальше...   )Жанр: Истории успеха, Креатив, идеи, Российская практика, Стартапы и создание бизнеса, Эффективность бизнесаФормат: FB2
+08 февраля 2018 года, четверг. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:33:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91CAE5AE044A8C3659C15479AF223A029288ECAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206744   (781631) от 15.02.2018
-
-3D модели - Creative Market - Male mannequin Nike pack 1 - 2123419 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781631.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель манекенов в одежде. С разными позами. Семь видов одежды для каждой из поз: толстовка, жакет, шорты, футболка, длинный рукав, колготки, кроссовки. Несколько цветовых вариантов. Вся одежда была создана в MARVELOUS DESIGNER. Легко менять цвет и шаблон. Файл был создан в 3d max 2014,  содержит файлы с расширениями *.max, *.fbx, *.obj. Материалы Vray и растровые (   Читать дальше...   )Формат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9511D10C3355E3AD3DA9B980B38C878D020C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206826   (781630) от 15.02.2018
-
-Михаил Веллер | Веритофобия (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название новой книги Михаила Веллера «Веритофобия» поясняется в первых ее строках: «Ужас правды, неумение видеть правду, нежелание знать ее». Она о том, как с детства нам ловко и радостно мешают видеть мир собственными глазами и иметь собственные мысли. Это и судьба нынешнего поколения, и секреты Советского Союза, и скандальные страницы русской культуры. Автор разоблачает (   Читать дальше...   )Жанр: Современная русская литература, Психологическая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E3A974E9168C5E201BD9B5B1D7A465A59E0A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206786   (781629) от 15.02.2018
-
-Лига справедливости / Justice League (2017) WEB-DL AMZN Version [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брюс Уэйн, вдохновленный самопожертвованием Супермена, вновь обретает веру в человечество. Он заручается поддержкой новой союзницы, Дианы Принс, чтобы сразиться с еще более могущественным противником. Бэтмен и Чудо-Женщина быстро набирают команду сверхлюдей для борьбы с пробудившейся угрозой. Но несмотря на уникальный состав отряда супергероев — Бэтмен, Чудо-Женщина, (   Читать дальше...   )Производство: США, Великобритания, КанадаЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Зак СнайдерАктеры: Бен Аффлек, Генри Кавилл, Эми Адамс, Галь Гадот, Эзра Миллер, Джейсон Момоа, Рэй Фишер, Джереми Айронс, Дайан Лэйн, Конни НильсенПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  АнглийскиеПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E349B0EDB8814844A083C9F1094410F9D26602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206709   (781628) от 15.02.2018
-
-Темный рыцарь / The Dark Knight (2008) BDRip [H.264] [MP4|1280x720] [IMAX edition]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бэтмен поднимает ставки в войне с криминалом. С помощью лейтенанта Джима Гордона и прокурора Харви Дента он намерен очистить улицы от преступности, отравляющей город. Сотрудничество оказывается эффективным, но скоро они обнаружат себя посреди хаоса, развязанного восходящим криминальным гением, известным испуганным горожанам под именем Джокер.Производство: США, ВеликобританияЖанр: Фантастика, Боевик, Триллер, КриминалРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Майкл Кейн, Хит Леджер, Гари Олдман, Морган Фриман, Мэгги Джилленхол, Нестор Карбонелл, Эрик Робертс, Ричи Костер, Киллиан Мерфи, Чин ХанПеревод: Дублированный (Лицензия)Субтитры: Русские (полные), Английские (полные)Продолжительность: 02:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF4E444A3D6277B437870CF0E2A0D46C1481271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206797   (781627) от 15.02.2018
-
-Снеговик / The Snowman (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781627.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет в день, когда выпадает первый снег, бесследно исчезают замужние женщины. Сложить все части загадочного пазла под силу только знаменитому детективу. Он потерял покой и сон, ведь время следующего снегопада неумолимо приближается.Производство: Великобритания, США, Швеция, Universal Pictures, Perfect World Pictures, Another Park FilmЖанр: Ужасы, триллер, драма, криминал, детективРежиссер: Томас АльфредсонАктеры: Майкл Фассбендер, Ребекка Фергюсон (II), Шарлотта Генсбур, Йонас Карлссон, Ронан Вайберт, Дж.К. Симмонс, Вэл Килмер, Давид Денсик, Тоби ДжонсПеревод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные)Продолжительность: 01:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D72242BF30A5936FB303084C0F662A2B5AEEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206608   (781626) от 15.02.2018
-
-Елена Котова | Откуда берутся деньги, Карл? Природа богатства и причины бедности (2018) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек трудится только либо ради денег и выгоды, либо под страхом наказания или смерти. Не может у каждой страны быть своего особенного пути к деньгам. Экономические законы универсальны, пора бы их выучить.
-
-Известный экономист и финансист Елена Котова пишет о вечном поиске Россией своего особого пути развития от начала XX века до сегодняшнего дня. Сравнивает его (   Читать дальше...   )Жанр: Общая экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F87C28CB4A613BE5E455B3048810A81CA1F47C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206789   (781625) от 15.02.2018
-
-Ли Чайлд | Джек Ричер, или Без второго имени [сборник] (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где бы ни появился этот крупный, угрожающего вида мужчина, всем бросается в глаза, но, когда нужно, он умеет быть совершенно незаметным. Человек этот не ищет неприятностей – те сами находят его; но он их не боится. Его никто не сможет найти, если он этого не захочет; но, когда нужно, он находится сам. Он – по-настоящему хороший парень, хотя большинство людей считает (   Читать дальше...   )Жанр: Зарубежные детективы, Крутой детектив, Современные детективы, ТриллерыПеревод: Владимир Гольдич, Ирина ОганесоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D300F5764DC87350A8B5D0C50A4017FD817940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206881   (781624) от 15.02.2018
-
-3D модели - Daz 3D - Alexandra 8 Pro Bundle - 49591 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Alexandra 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B726B586F5A7861B226E56006B52FBBE621297ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206708   (781623) от 15.02.2018
-
-Темный рыцарь / The Dark Knight (2008) BDRip [H.264] [MP4|1920x1080] [IMAX edition]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бэтмен поднимает ставки в войне с криминалом. С помощью лейтенанта Джима Гордона и прокурора Харви Дента он намерен очистить улицы от преступности, отравляющей город. Сотрудничество оказывается эффективным, но скоро они обнаружат себя посреди хаоса, развязанного восходящим криминальным гением, известным испуганным горожанам под именем Джокер.Производство: США, ВеликобританияЖанр: Фантастика, Боевик, Триллер, КриминалРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Майкл Кейн, Хит Леджер, Гари Олдман, Морган Фриман, Мэгги Джилленхол, Нестор Карбонелл, Эрик Робертс, Ричи Костер, Киллиан Мерфи, Чин ХанПеревод: Дублированный (Лицензия)Субтитры: Русские (полные), Английские (полные)Продолжительность: 02:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9770D07CF92320147404CCF1C9F23F64C71D7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206840   (781622) от 15.02.2018
-
-Д. Кирина (сост.) | Самые свежие угарные анекдоты (2018) [FB2]
-
->>Художественная литература
->>Сатира, Юмор
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781622.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны самые смешные свежие и угарные анекдоты. Забавные ситуации, тонкий юмор, курьезные случаи из жизни – все это здесь, в новом выпуске анекдотов, который способен доставить немало веселых минут каждому читателю.Жанр: АнекдотыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3148A9A96C7E094DD3AF72472ADAB33741CF0D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206085   (781621) от 15.02.2018
-
-Джейн Эйр / Jane Eyre (1983) DVDRip (сезон 1, cерии 1-11 из 11)
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейн Эйр, скромная, но гордая и независимая девушка — сирота, устраивается гувернанткой в поместье мистера Рочестера. Полюбив друг друга, Джейн и Рочестер собираются пожениться. Став невестой любимого человека и испытав небывалое счастье, Джейн сохраняет самообладание и независимость.
-Она продолжает давать уроки его дочери и отвергает роскошные подарки жениха. Но (   Читать дальше...   )Производство: ВеликобританияЖанр: мелодрамаРежиссер: Джулиан ЭмьесАктеры: Зила Кларк, Тимоти Далтон, Колин Дживонс, Маркус Джеймс, Эндрю Бикнелл, Габриэль Глэйстер, Джуди Корнуэлл, Трэйси Чайлдс, Эмма Джейкобс, Мэри Тэмм, Сиэн Паттенден и др.Перевод: Многоголосый закадровый, профессиональныйСубтитры: Русские (Alibria) отдельным файломПродолжительность: ~00:28:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEC95F94749EBB2E0DDE046E2682FADC172A7A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206691   (781620) от 15.02.2018
-
-Портал / The Gateway (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина-учёный, чья специализация — физика элементраных частиц, теряет мужа в автокатастрофе. Отчаяние толкает женщину на опасный эксперимент: она отправляется в параллельный мир, чтобы отыскать там погибшего супруга. Дальнейшие события доказывают, что телепортация ни к чему хорошему не приводит.Производство: Австралия, Filmscope EntertainmentЖанр: ФантастикаРежиссер: Джон В. СотоАктеры: Жаклин МакКензи, Майлс Поллард, Шеннон Берри, Хейли МакЭлхинни, Бен Мортли, Трой Кауорд, Адам Ти Перкинс, Джаг Панну, Ryan Panizza, Джон МакФерсон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05791B8218079F62FCE0E7D7E834448C4712C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206851   (781619) от 15.02.2018
-
-Сурен Цормудян | Край земли. Затерянный рай (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781619.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Край земли. Затерянный рай» — третья книга Сурена Цормудяна, написанная в рамках «Вселенной Метро 2033» и первый том романа «Край земли». Входит в условный цикл «От края до края». Выпущен в январе 2018 года. Восемьдесят шестая книга серии.
-
-Группа учёных, исследующая природу геологических катастроф, ещё не подозревает, что ей предстоит столкнуться с катастрофой (   Читать дальше...   )Жанр: ПостапокалиптикаПродолжительность: 12:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA8C3A4454A3A9E722C1DACE0DFC1B9C3266D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206821   (781598) от 15.02.2018
-
-Снеговик / The Snowman (2017) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781598.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет в день, когда выпадает первый снег, бесследно исчезают замужние женщины. Сложить все части загадочного пазла под силу только знаменитому детективу. Он потерял покой и сон, ведь время следующего снегопада неумолимо приближается.Производство: Великобритания, США, Швеция, Universal Pictures, Perfect World Pictures, Another Park FilmЖанр: Ужасы, триллер, драма, криминал, детективРежиссер: Томас АльфредсонАктеры: Майкл Фассбендер, Ребекка Фергюсон (II), Шарлотта Генсбур, Йонас Карлссон, Ронан Вайберт, Дж.К. Симмонс, Вэл Килмер, Давид Денсик, Тоби ДжонсПеревод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные), английские (полные, SDH, SDH цветные)Продолжительность: 01:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D8535338757DFBD2138B411F1228E0FD328070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206777   (781597) от 15.02.2018
-
-Avast Premier 18.1.2326 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Premier совершенствует сканирование сети, включает установщик обновлений стороннего ПО, защищает от фишинговых и мошеннических сайтов, удаляет конфиденциальные данные без возможности восстановления, включает самый защищенный в мире браузер для совершения покупок и банковских операций онлайн в условиях абсолютной защищенности и без рекламы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66185925F286B0E16195AEAEA7F784AF466B852B
+magnet:?xt=urn:btih:CB644D297975526DD3B3BE6209580757322C8A72
 ```
 
 https://mybot314.ru/tekegram_catalog/

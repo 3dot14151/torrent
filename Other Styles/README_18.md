@@ -1,3 +1,206 @@
+###  Публикация: 1362314   (949692) от 23.02.2020
+
+Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+|02:32| 01. We Have a Fan Club?
+|04:19| 02. Entering Camp
+|03:03| 03. I Got Top Bunk
+|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA332C058E3476838F74D99646FC7D6BD52C840F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362313   (949677) от 23.02.2020
+
+Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+|02:32| 01. We Have a Fan Club?
+|04:19| 02. Entering Camp
+|03:03| 03. I Got Top Bunk
+|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C12E8C31AEC0D6E997ED7BE90FF735C89C8429E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362483   (949667) от 23.02.2020
+
+Gabriel Garrido Garcia - Etherborn (Original Game Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+|01:15| 01. Main Title
+|01:38| 02. Birth
+|01:36| 03. The Endless Tree - First Vision
+|01:36| 04. The Endless Tree - Second Vision(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88E061E39186459D8260160B397EF192FC959A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362293   (949611) от 23.02.2020
+
+Navid Hejazi - Mah (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+|02:27| 01. Inicio
+|04:50| 02. Titulos / La Cueva
+|02:14| 03. Amenaza
+|02:45| 04. Guanarteme  / La Busqueda(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3360352637F04533FEF4BE1C7332ED1CE4EC6916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362287   (949607) от 23.02.2020
+
+Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+|01:58| 01. Snow
+|01:11| 02. First Family Ski Run
+|01:19| 03. Morning Prep
+|00:34| 04. Second Ski Run(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A2784B6F9997ABCE67ADE2C4AE1C0C745C134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362288   (949604) от 23.02.2020
+
+Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+|01:58| 01. Snow
+|01:11| 02. First Family Ski Run
+|01:19| 03. Morning Prep
+|00:34| 04. Second Ski Run(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3D033A850C529FAA465694DD7BD3A03E0462D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362469   (949562) от 23.02.2020
+
+Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+|03:41| 01. Days Gone
+|03:36| 02. The Freakshow
+|03:36| 03. We've All Done Things
+|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362272   (949555) от 23.02.2020
 
 John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -6,7 +209,7 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +238,7 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +296,7 @@ NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +354,7 @@ The Cactus Blossoms - The Cactus Blossoms (2011) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +383,7 @@ Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +412,7 @@ The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +528,7 @@ Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +557,7 @@ Paul Haslinger - Exit Ghost (2020) [MP3|320 кб/с]<Electronic, Contemporary In
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +586,7 @@ Paul Haslinger - Exit Ghost (2020) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Con
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +615,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +644,7 @@ Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +673,7 @@ The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Coun
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +702,7 @@ Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [FLAC|Lossless|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC 2.0|44.1/24|trac
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -542,215 +745,6 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC 2.0|44.1/24|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BF58EA4DE069F1ACC0E8EE971330463B3768B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982412   (948096) от 03.02.2016
-
-Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirst For Life
-02. Rapture
-03. Drive
-04. What You Get(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F66A738FCF5DB704087FFDA4E1E0FCCA06BDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361079   (947936) от 24.02.2020
-
-Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DOOMSDAY PREPPER (04:47)
-02. CLOCKMAKER (03:49)
-03. A MAN WALKS INTO AN INTRINSIC FIELD (01:34)
-04. SPLICE OF LIFE (00:36)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3914F96E75C539F96E19A4459DB1A7A76478B1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750508   (947932) от 29.01.2014
-
-David Arnold & Michael Price - Sherlock - Original Television Soundtrack Music From Series Three (2014) [MP3|256 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How It Was Done (2:44)
-02. God Rest His Soul (1:44)
-03. Floating Dust (3:29)
-04. #Sherlocklives (2:49)
-05. Back to Work (2:57)
-06. Vanishing Underground (2:29)
-07. John is Quite a Guy (4:06)
-08. Lazarus (3:36)
-09. Lestrade - The Movie (3:07)
-10. To Battle (4:02)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F443EEFF5A103835358536EBCFEB2777A101CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090154   (947508) от 06.01.2017
-
-Louis Landon - Soul Healing Piano Music (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Conscious Love [00:05:04]
-02 -  Healing Words [00:04:41]
-03 -  No More Fear [00:04:42]
-04 -  Clear Direction [00:04:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B774F8D5B94205B77C80231DC640CD5CC4B160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982085   (947004) от 04.02.2016
-
-Leo Kottke - Standing In My Shoes (1997) [MP3|320 кб/с] <Folk, World, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing In My Shoes 03:59
-02. World Turning 04:00
-03. Dead End 04:17
-04. Vaseline Machine Gun 03:11(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D273CB9D789E840B3ABE8A0003D4484191150FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090555   (945975) от 07.01.2017
-
-Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consciousness Shift (feat. Sika) [00:08:08]
-02. First Light (feat. Sika) [00:09:51]
-03. Forest Spirit (feat. Sika) [00:11:48]
-04. Pure (feat. Sika) [00:10:27](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8451A35F0F0A27028EF98A1F2C35146A0D9E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090517   (945857) от 07.01.2017
-
-Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молитва Владимира (feat. Малый симфонический оркестр "Симфониетта") (02:47)
-02. Испытание водой (feat. Малый симфонический оркестр "Симфониетта") (02:07)
-03. Штурм Полоцка (01:26)
-04. Плач (Вокализ) (03:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D189D4751A240A181954F9DEC06B61470EB49D
 ```
 
 https://mybot314.ru/tekegram_catalog/

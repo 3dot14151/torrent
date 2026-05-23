@@ -1,3 +1,55 @@
+###  Публикация: 1425422   (162505) от 18.12.2020
+
+Бортпроводница / Стюардесса / The Flight Attendant (2020) WEBRip (сезон 1, серии 1-8 из 8) OmskBird [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+На утро после бурной ночи бортпроводница Кассандра Боуден просыпается в своем номере в отеле с мертвым телом. Боясь звонить полиции, она продолжает вести себя так, будто ничего не произошло, и направляется в аэропорт с другими бортпроводниками и пилотами. В Нью-Йорке ее встречают агенты ФБР, которые допрашивают её об остановке в Дубае. Всё еще не в состоянии привести (   Читать дальше...   )Производство: США / Warner Horizon Television, Yes, Norman ProductionsЖанр: триллер, драма, комедия, детективРежиссер: Сюзанна Фогель, Маркос Сига, Себастьян СильваАктеры: Кейли Куоко, Мерл Дэндридж, Нолан Джерард Фанк, Мишель Гомес, Михиль Хаусман, Т.Р. Найт, Заша Мэмет, Audrey Grace Marshall, Рози Перес, Колин Вуделл и др.Перевод: Многоголосый закадровый (OmskBird)Продолжительность: ~00:46:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D5E74B8AAFFACE9DE020CF66214D532774BE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420077   (162460) от 18.12.2020
+
+Мандалорец / The Mandalorian (2020) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8) OmskBird [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дэйв Филони, Дебора Чоу, Рик ФамуйиваАктеры: Педро Паскаль, Карл Уэзерс, Джина Карано, Джанкарло Эспозито, Мерседес Кестнер-Варнадо, Рио Хэкфорд, Кайл Пацек, Вернер Херцог, Ник Нолти, Тайка Вайтити и другие.Перевод: Многоголосый закадровый (OmskBird)Продолжительность: ~00:53:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CE2DD63ECA9D8FDA9A67163C18FB5C2C6F7BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433383   (161118) от 20.12.2020
 
 Рот песка / Hondar ahoak (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8DA49F245224EF08BA12380812BB2F23F9977B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433996   (154597) от 22.12.2020
-
-Соммердаль / The Sommerdahl Murders (2020) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154597.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком приморском городе детектив отдела убийств Дэн Соммердаль с командой помощников расследует запутанные преступления. Этот сериал вносит приятное разнообразие в лавину "нуара", которым скандинавы завалили международный телерынок. "Соммердаль" - легкое, красивое шоу. Детектив с элементами комедии и мелодрамы. На каждое расследование уходит (   Читать дальше...   )Производство: Дания, Германия / Sequoia Global AllianceЖанр: драма, криминалРежиссер: Карстен Миллеруп, Кеннет КайнцАктеры: Андре Бабикян, Лаура Драсбек, Петер Мюгинд, Лотта Андерсен, Дьем Камилль Гбогу, Петер Ганцлер, Mathias Käki Jørgensen, Laura Kjaer, Юлия Рудбэк, Лисбет Лундквист и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE4111CBFF16C2F87A5EE13F4679C0F6810C654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188100   (154575) от 25.12.2017
-
-Острые козырьки / Заточенные кепки / Peaky Blinders (2017) WEBRip/HDTVRip [H.264/1080p-LQ] (сезон 4, серии 1-6 из 6) Lostfilm [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие четвертого сезона «Острых козырьков» начинается в декабре 1925 года. Томми Шелби наконец приобретает долгожданный законный статус. Бывший гангстер одинок, живет отдельно от своей большой семьи и сосредоточен только на работе. В рождественский сочельник он получает таинственное письмо и понимает, что его друзья и родные находятся в большой опасности.Производство: Великобритания / Caryn Mandabach Productions, Tiger Aspect Productions, British Broadcasting Corporation (BBC)Жанр: драма, криминалРежиссер: Колм МакКарти, Тим Милантс, Дэвид Кэффри, Отто Баферст, Том ХарперАктеры: Киллиан Мёрфи, Пол Андерсон, Софи Рандл, Нед Деннехи, Джо Коул, Хелен МакКрори, Йен Пек, Аннабелль Уоллис, Тони Питтс, Эйми-Ффион Эдвардс, Эдриан Броуди и др.Перевод: Многоголосый закадровый, профессиональный - LostfilmПродолжительность: ~00:58:00 серияРеклама: присутствует заставка и логотип Lostfilm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1995F0CB355008FB497F659D6A92DE17C12ED920
 ```
 
 https://mybot314.ru/tekegram_catalog/

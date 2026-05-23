@@ -1,3 +1,111 @@
+###  Публикация: 1307874   (554695) от 11.06.2019
+
+Жан-Кристоф Рюфен | Бессмертным Путем святого Иакова. О паломничестве к одной из трех величайших христианских святынь (2014) [PDF, FB2, RTF, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жан-Кристоф Рюфен, писатель, врач, дипломат, член Французской академии, в настоящей книге вспоминает, как он ходил паломником к мощам апостола Иакова в испанский город Сантьяго-де-Компостела. Рюфен прошел пешком более восьмисот километров через Страну Басков, вдоль морского побережья по провинции Кантабрия, миновал поля и горы Астурии и Галисии. В своих путевых заметках (   Читать дальше...   )Жанр: Мемуары, паломничествоФормат: PDF, FB2, RTF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479E09E385B091423E042F1CFCE63A60A7EEC313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236434   (554528) от 17.07.2018
+
+О.О. Козарезова | Таинство Слова и Образ Троицы. Богословие исихазма в христианском искусстве (2013) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассматривается догматический аспект иконографии Троицы, Христа-Спасителя. Раскрывается символика Православного Храма, показывается тесная связь Православной Иконы с мистикой исихазма.
+
+Книга адресована педагогам, религиоведам, искусствоведам, студентам-историкам, культурологам, филологам.Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE43DD0869F06B77F8CFAE282F486C25FF31C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236385   (554527) от 17.07.2018
+
+Святой праведный Иоанн Кронштадтский | Христианский смысл жизни (2013) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли статьи и записи святого праведного Иоанна Кронштадтского (1829–1908), написанные им в разные годы, но объединённые одной темой — для чего живёт человек, в чём смысл жизни.
+
+«Чистому всё чисто, а нечистому всё нечисто, но осквернились у него и ум, и совесть, его всё соблазняет, и святыня кажется нечистою. Вот как грех заразил сердце и всё существо человеческое. (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB869E00D58BC9A04C7B4C333441FD731C23153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236531   (554271) от 18.07.2018
+
+Б. Алмазов | Петербургские святые [Святые, совершавшие свои подвиги в пределах современной и исторической территории Санкт-Петербургской епархии] (2014) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге известного писателя, старосты мемориального прихода собора Петра и Павла в Петербурге Бориса Алмазова в популярной форме рассказывается о православных святых, причисленных Священным синодом к Санкт-Петербургскому собору. И если первоначально было канонизировано 45, то теперь собор насчитывает более 134 человек, и с открытием новых документов и знаний число (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEF73FE53483DE6AEAA48123529D3AF5D0FD078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236497   (554269) от 18.07.2018
 
 Н.С. Посадский (сост.) | Иерусалим Небесный и земной (2017) [FB2, PDF]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,113 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA2935DFF3D80E0F6ACD75A5935C46978550A042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238948   (542528) от 03.08.2018
-
-В. Зоберн (сост.) | Светозарные гости. Рассказы священников (2014) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны многочисленные рассказы священников о чудесных случаях, в частности — о явлениях гостей из загробного мира, об их помощи и вреде живым людям. Эти истории, имевшие место в действительности, приводят читателя к истине бытия Божия, Творца видимого и невидимого миров. Читая эти истории, невольно понимаешь, что действительно есть безплотные силы — (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF67D95CF615704B3D5682F1CBC24BB72D21E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238917   (542519) от 03.08.2018
-
-Иван Ильин | Поющее сердце. Книга тихих созерцаний (2013) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542519.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Поющее сердце» — самое необычное сочинение великого русского мыслителя И.А.Ильина. Эта философская книга по глубине и поэтичности больше похожа на богословское сочинение, в котором автор открывает читателю таинственные уголки своего сердца.
-
-«Она посвящена не богословию, а тихому философскому Богохвалению... Я пытаюсь заткать ткань новой философии, насквозь христианской (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D184E41E21F9A45E51CD0E2E3573CB29AB67D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238918   (542517) от 03.08.2018
-
-Константин Грамматчиков (сост.) | «Православный» сталинизм [Сборник статей] (2017) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читая эту книгу, невозможно остаться равнодушным: множество фактов красноречиво свидетельствуют, что никакого «православного» сталинизма нет и быть не может.
-Среди авторов сборника — такие авторитетные в православной среде люди, как профессор Александр Дворкин, священники Димитрий Смирнов, Кирилл Каледа и Савва (Мажуко), историки Дмитрий Володихин и Петр Мультатули, (   Читать дальше...   )Жанр: Публицистика, История, РелигияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA92D0A5F8B64FE67D5503ED4C851BE22089295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239139   (542514) от 03.08.2018
-
-Протопресвитер Стефанос Анагностопулос | Беседы о литургической жизни Церкви (2016) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542514.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу настоящей книги легли 52 проповеди на тему толкования Божественной литургии, прочитанные в 90-х годах XX века отцом Стефаносом Анагностопулосом прихожанам храма святой Варвары в Керацини (Пирей). Опираясь на Священное Писание и труды святых отцов, а также на свой многолетний священнический опыт, о. Стефанос просто и доступно разъясняет современным христианам (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8817D9F7928B0602FEA9772C0D337993EE63EB8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

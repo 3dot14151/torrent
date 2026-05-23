@@ -1,32 +1,3 @@
-###  Публикация: 517666   (644556) от 02.07.2012
-
-[PS2] Ratchet & Clank [PAL] [RUS] (2002)
-
->>Консольные Игры
->>PS2
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ratchet & Clank — это серия игр жанра платформер, разработанная компанией Insomniac эксклюзивно для приставок Sony PlayStation. Игры повествуют о космических приключениях двух героев: Рэтчета — последнего представителя расы Ломбакс во вселенной — и Кланка — маленького робота и напарника Рэтчета, обладающего кучей технических свойств и хорошим чувством юмора.
-Главными «фишками» игры являются большой арсенал самого невообразимого и разнообразного оружия, необычные приспособления-гаджеты, и искромётный юмор, в том числе и пародийный.
-
-В данном релизе представляется первая часть саги, где Рэтчет работает над постройкой межзвёздного корабля. На одной из соседних планет на фабрике роботов Chairman Drek случился брак. Вместо огромного верзилы, готового исполнять приказания хозяина, с конвейера слез маленький добрый робот. Мало того — он случайно натолкнулся на дерзкий план Дрека по захвату власти. Схватив видеобота с описанием плана, он крадёт космический корабль, но в процессе погони совершил аварийную посадку на (   Читать дальше...   )Жанр: 3D Action/PlatformerЯзык интерфейса: RUS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC562CFF46FE19E073530CFB229A9E66462C398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518269   (642746) от 03.07.2012
 
 [PS2] Bloody Roar 4 [Мультиязычный] (2003)
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +62,7 @@ PAW Patrol The Movie: Adventure City Calls / Щенячий патруль в к
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +88,7 @@ Cocoto Festival [Wii] [PAL] [Multi 5] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +114,7 @@ The Tomb Raider Trilogy (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO ISO] [Un
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +142,7 @@ Cocoto Kart Racer [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +168,7 @@ Crash Time 5: Undercover (2013) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [U
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +194,7 @@ Death Track: Resurrection (2010) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +220,7 @@ Tank Battles (2009) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.0.1] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +247,7 @@ Saints Row IV + DLC (2013) [Xbox360] [Region Free] [Freeboot] [Repack] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +273,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +299,7 @@ HISTORY Great Battles Medieval (2011) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +325,7 @@ Mouse Craft (2014) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.0.1] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +352,7 @@ Onechanbara Z: Kagura with NoNoNo! (2013) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +379,7 @@ El Shaddai: Ascension of the Metatron (2011) [PS3] [USA] 3.56 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +407,7 @@ Bloodborne: Game of the Year Edition (2015) [PS4] [EUR] 4.05 [HEN] [Repack / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +465,7 @@ Cars 3: Driven to Win (2017) [PS3] [USA] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -520,7 +491,7 @@ Black (2006) [Xbox] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -546,7 +517,7 @@ Baldur's Gate: Dark Alliance (2002) [Xbox] [RegionFree] FreeBoot [Unofficial] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,7 +545,7 @@ Dreamfall: The Longest Journey (2006) [Xbox] [RegionFree] FreeBoot [Unofficial] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -600,7 +571,7 @@ Sid Meier's Pirates! (2005) [Xbox] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,7 +597,7 @@ Spider-Man 3 [PSP] [ENG] (2007)
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -652,7 +623,7 @@ Street Fighter III: Third Strike Online Edition (2011) [PS3] [EUR] 4.21 [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -678,7 +649,7 @@ LEGO Harry Potter: Years 5–7 (2011) [PS3] [EUR] 3.55 [Unofficial] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -689,6 +660,33 @@ LEGO Harry Potter: Years 5–7 (2011) [PS3] [EUR] 3.55 [Unofficial] [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E0B923F676147CB16BE58154D5C1B675D7B79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522000   (624178) от 12.07.2012
+
+[PSP] Grand Knight's History [ENG/JAP] (2011)
+
+>>Консольные Игры
+>>PSP
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Grand Knights History представляет собой пошаговую стратегию с возможностью игры онлайн, в которой вам предстоит вступить в битву за одно из трех королевств. Её действия происходят на континенте, где три государства находятся в состоянии войны. Игроки принимают роль рыцаря в одной из этих трех держав и сражается с другими сторонами конфликта. Как и в ранних играх от Vanillware бой будет показан в 2D.
+Вы можете также, экипировать своих персонажей различным оружием. Используя данное оружие в сражении, Ваши персонажи увеличат базовый навык владения этим оружием, и будут в состоянии изучить новые навыки.Жанр: JRPGЯзык интерфейса: ENG/JAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E388F0DF2615CC74D6404F40E590D918BB2555E
 ```
 
 https://mybot314.ru/tekegram_catalog/

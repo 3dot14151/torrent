@@ -1,3 +1,83 @@
+###  Публикация: 1160231   (476172) от 24.08.2017
+
+Глеб Благовещенский | Иоанн IV Грозный (2010) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Русские монархи всегда отличались своеобразием, что и говорить, но Иван Грозный затмил их всех!
+Он открыто практиковал черную магию, а в ходе управления державой постоянно прибегал к услугам астрологов, магов и колдунов. Это, однако, не мешало ему умерщвлять тысячи людей по обвинению в занятиях колдовством. Он нещадно терзал свою страну. Он создал особую карательную (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261B7A738BE1DC57314E3544BD7B83C0155ED92B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160237   (476169) от 24.08.2017
+
+Джеймс Вассерман | Тамплиеры и ассассины: Стражи небесных тайн (2008) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге Джеймса Вассермана сопоставляются две военно-религиозные организации: орден тамплиеров и орден ассассинов. При всей кажущейся на первый взгляд несопоставимости этих орденов автору удаётся показать, как много у них общего.
+Таинственный орден Храма, обвиняемый в еретичестве и погибший под ударами инквизиции, многое заимствовал у своих мусульманских собратьев (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9DB2A80C2999B40891954BCC7B2F999EF8E248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939808   (473474) от 22.09.2015
+
+Архимандрит Августин (Никитин) | Храмы Невского проспекта. Из истории инославных и православной общин Петербурга (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге, кроме рассказа о жемчужинах церковной архитектуры, расположенных на Невском проспекте Петербурга, обстоятельно изложены истории появления и существования православной и инославных общин Северной столицы от времен их зарождения до наших дней.Жанр: История Санкт-ПетербургаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DA006B3A4069E3E63D8D632C2E3A6FE9DA4243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057365   (473047) от 29.09.2016
 
 Д. Н. Ломан | Ко дню священного коронования и миропомазания их императорских величеств государя императора Николая Александровича и государыни императрицы Александры Фёдоровны. Чтение для народа. ( ...
@@ -6,7 +86,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6D87CDF16D578651633B9450B66700B4C80AEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161474   (465701) от 29.08.2017
-
-О.В Хлевнюк и др. (сост.) | Сталин и Каганович. Переписка. 1931-1936 гг (2001) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465701.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге опубликована переписка И.В. Сталина и его заместителя по партии Л.М. Кагановича.
-Выезжая летом-осенью 1931-1936 гг. на несколько месяцев на юг, Сталин оставлял Кагановича руководить работой Политбюро, однако сам получал все материалы к заседаниям Политбюро и фактически направлял его деятельность при помощи писем и телеграмм на имя Кагановича (некоторые из (   Читать дальше...   )Жанр: историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4308DA6A52CD26FFD6FC75E8A6465E874D6EE29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161682   (465699) от 29.08.2017
-
-Ю.Г. Фельштинский (сост.) | Был ли Сталин агентом охранки? Сборник статей, материалов и документов (1999) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Личность Иосифа Виссарионовича Сталина до сих пор оценивается историками неоднозначно, и вопрос, был ли Иосиф Сталин агентом Охранки и вел ли двойную жизнь как полицейский агент и революционер, так и остался открытым. Публикуемые в книге материалы - письма, статьи, документы, - проливают свет на загадочный вопрос, посвященный теме провокаторства как краеугольного (   Читать дальше...   )Жанр: историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB245D1BFF6B9B45B668A2A060F2FD4A9F18D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161738   (465646) от 29.08.2017
-
-В.М. Сойма | Запрещенный Сталин (2005) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга кандидата исторических наук, полковника запаса ФСБ, президента Регионального общественного фонда содействия социальной и правовой поддержки ветеранов и сотрудников ФСБ РФ Василия Соймы «Запрещенный Сталин» основана на документах из личного архива И. В. Сталина. Приведенные в ней материалы — письма, записки, неправленые стенограммы выступлений — никогда не анализировались (   Читать дальше...   )Жанр: историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AC66A5C0233BB55C98BDDE6866304165C242BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

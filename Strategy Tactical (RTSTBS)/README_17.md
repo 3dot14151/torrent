@@ -1,3 +1,55 @@
+###  Публикация: 1729847   (53475) от 13.06.2024
+
+A Game's Tale (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в уникальный фэнтези-мир и попробуйте узнать, почему мы играем. Участвуйте в неповторимых тактических схватках со множеством разнообразных существ. Действие игры происходит в приветливом, радостном и красивом мире. Чтобы одержать победу, нужно с умом выбирать существ и их способности! В игре шесть классов существ. Для каждого сражения нужно подбирать (   Читать дальше...   )Тип издания: RepackРазработчик: VisQoЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB6DE562C3166DFA56344779BDBC9CCF46B5F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731408   (52745) от 20.06.2024
+
+Starship Troopers: Terran Command (2022) [Ru/Multi] (3.00.01/dlc) Scene FairLight
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Starship Troopers: Terran Command - это захватывающая стратегия в реальном времени, действие которой разворачивается во вселенной фильмов «Звёздный десант». Приготовьтесь командовать отважными бойцами мобильной пехоты (Mobile Infantry) и выполнять свой долг в борьбе с арахнидами. Сделайте всё, чтобы человеческая цивилизация а не насекомые господствовала в галактике (   Читать дальше...   )Тип издания: SceneРазработчик: The ArtistocratsЖанр: Strategy, Real-time, TacticalЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831239667D477B8BB100A9C1434F7081A01121CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589837   (52522) от 22.06.2024
 
 Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
@@ -6,7 +58,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Troop (2023) [Ru/Multi] (20250930 build 20182560/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Undeadly (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Supreme Ruler 2030 (2023) [Multi] (1303/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Frozen Synapse 2 (2018) [En] (108) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Frozen Synapse (2011) [En] (35/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Scythe (2018) [Ru/Multi] (2.1.0/dlc) License GOG [Digital Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Shrot (2024) [Multi] (1.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Anomaly Collapse (2024) [Ru/Multi] (1.0.14117.737) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Classified: France '44 (2024) [Multi] (20240718/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Troop (2023) [Multi] (Build 15201092) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Arco (2024) [En] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Capes (2024) [Ru/Multi] (1.2.0.0/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Warriors of the Nile (2020) [Multi] (1.0310) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Warriors of the Nile 2 (2022) [Multi] (1.2030) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Combat Mission: Battle for Normandy (2023) [En] (Battle Pack 2/dlc) Scene Skidro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Dicefolk (2024) [Ru/Multi] (20240819) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Wargame: Red Dragon (2014) [Ru/Multi] (130278/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Master of Magic (2022) [Multi] (1.09.17/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.5.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Campaign Series: Vietnam (2022) [En] (1.00.00) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Campaign Series: Vietnam - тактическая пошаговая варге�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C34A22629D4603BC255C4FB8AF9683A82608AB1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746968   (44877) от 02.09.2024
-
-Sumerian Six (2024) [Ru/Multi] (1.0.0) Scene FAiRLIGHT
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumerian Six - это не типичная военная история. Конечно, она бросает вас прямо в центр Второй мировой войны, но это альтернативная история, где шепот фольклора и теории заговора так же реальны, как и нацистская угроза. Вы берете на себя командование отрядом "Энигма", странной командой ученых-солдат. Это мозговитые люди, способные обхитрить и перехитрить (   Читать дальше...   )Тип издания: SceneРазработчик: ArtificerЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA2BE7439A9EA96E5258269BC91E8EE61739EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747338   (44665) от 04.09.2024
-
-Sumerian Six (2024) [Ru/Multi] (1.0.0) Repack FitGirl
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumerian Six - это не типичная военная история. Конечно, она бросает вас прямо в центр Второй мировой войны, но это альтернативная история, где шепот фольклора и теории заговора так же реальны, как и нацистская угроза. Вы берете на себя командование отрядом "Энигма", странной командой ученых-солдат. Это мозговитые люди, способные обхитрить и перехитрить (   Читать дальше...   )Тип издания: RepackРазработчик: ArtificerЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88057B7A241F2EEBE59ABC094E35FA4366CFA2B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 452640   (76741) от 17.02.2012
+
+Мания величия / La folie des grandeurs (1971) BDRip [H.264 | iPad]
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Луи Де Фюнес в роли жадного сборщика налогов, обворовывающего короля. Его слугу Рюи Блаза играет Ив Монтан. Разбитной веселый мошенник постоянно издевается над хозяином и строит ему козни.
+Так он использует неописуемую алчность и жажду лести человека, считающего, что «бедные должны быть бедными, а богатые должны стать еще богаче», и подбивает Де Фюнеса соблазнить (   Читать дальше...   )Производство: Франция, Испания, Италия, Германия (ФРГ) /  Gaumont International, Mars Film, Coral FilmsЖанр: КомедияРежиссер: Жерар УриАктеры: Луи де Фюнес, Ив Монтан, Алис Саприч, Карин Шуберт, Альберто де Мендоса, Дон Хайме де Мора-и-Арагон, Эдуардо Фахардо, Антонио Пика, Хоакин Солис, Венантино Венантини и др.Перевод: ДублированныйСубтитры: Английские, Русские, ФранцузскиеПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447781   (75545) от 11.02.2012
 
 Мерлин / Merlin [сезон 4, эпизоды 13 из 13] (2011) BDRip [720p] ATV2/iPad
@@ -6,7 +33,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +60,7 @@ VA - Grand Prix 70's (2010) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +89,7 @@ Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -91,7 +118,7 @@ VA - Italo Disco - The Lost Legends Vol. 16 (2018) [AAC|320 Kbps] <Electronic, I
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -120,7 +147,7 @@ VA - Dance Classics Gold 2 (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -149,7 +176,7 @@ VA - Dance Classics Gold 3 (1992) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -178,7 +205,7 @@ VA - Dance Classics Gold 4 (1993) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -207,7 +234,7 @@ VA - Dance Classics Vol. 1 (1998) [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -236,7 +263,7 @@ VA - Dance Classics Vol. 4 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -265,7 +292,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +321,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +350,7 @@ VA - Italo Strikes Back (1997) [AAC|320 Kbps] <Electronic, Pop, Euro House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +379,7 @@ VA - Italo Strikes Back Vol. 2 (1998) [AAC|320 Kbps] <Electronic, Euro House, Sy
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +408,7 @@ VA - The Best Of Italo Disco Vol. 8 (1987) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +437,7 @@ VA - The Best Of Italo Disco Vol. 9 (1987) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -439,7 +466,7 @@ VA - The Best Of Italo Disco Vol. 10 (1988) [AAC|320 Kbps] <Electronic, Pop, Ita
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -468,7 +495,7 @@ VA - Modern 80's - The Best Of Discopop Vol.4 (1999) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -497,7 +524,7 @@ VA - I Love Tocata 80s (2012) [AAC|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +606,7 @@ Secret Service - Top Secret* (*Greatest Hits) (2000) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,7 +635,7 @@ The Flirts - Castle Gold Collection, Vol. 18 (1991) [AAC|320 Kbps] <Electronic, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -637,7 +664,7 @@ The Flirts - The Best Of The Flirts (1991) [AAC|320 Kbps] <Electronic, Pop, Hi N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -666,7 +693,7 @@ Secret Service - Spotlight (1988) [AAC|320 Kbps] <Electronic, Pop, Synth-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -695,7 +722,7 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [AAC|320 Kbps] <Electronic, Synth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -709,35 +736,6 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [AAC|320 Kbps] <Electronic, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62FC4BCEDCF0E83B06ED8A5A6752DB27F03EB34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773633   (30218) от 21.01.2025
-
-VA - The Best Of Made Up Records Vol. 2 (1999) [AAC|320 Kbps] <Electronic, Euro-Disco, Eurodance, Eurobeat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Debby Jason - Day By Day
-02. Gina - Baby Baby Baby
-03. Sheila Steward - No 1 Emotion
-04. Rygar - Hexameron(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Eurodance, EurobeatПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F620DE25A4F056153532537830E6B684BB186C
 ```
 
 https://mybot314.ru/tekegram_catalog/

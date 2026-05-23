@@ -1,3 +1,135 @@
+###  Публикация: 1758446   (38496) от 02.11.2024
+
+XLN Audio - Addictive Drums 2 Complete 2.5.2.1 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Addictive Drums 2 представляет из себя полноценную драм-студию на любой вкус: это плагин, который позволит вам легко создавать реалистичные барабанные ритмы, которые будут звучать так, как будто они записаны вживую. Звуки ударов содержат всевозможные нюансы: от легкого до самого сильного удара. Барабаны от Addictive Drums охватывают впечатляющий диапазон звуков, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799CCF4ACDF588B92B423EC7CF76D3C6BB4702CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758448   (38472) от 02.11.2024
+
+Steinberg - Retrologue 2 2.4.0 VSTi 3, AAX (x64) + Content [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Гибкий, интуитивно понятный Retrologue 2 имитирует теплоту и жирность классических аналоговых синтезаторов. Три виртуальных аналоговых осциллятора и первоклассный набор фильтров создают множество богатых звуков; его адаптируемый арпеджиатор, мощная система модуляции и FX-стойка делают Retrologue 2 первым выбором для продуцентов во всем мире.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297FF419E80C5F8E771AAB7D1A1A7ABBD0BC2D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758587   (38382) от 03.11.2024
+
+Thenatan - OPR8 1.0.0 VST, VST 3 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шагните в будущее звукового дизайна с OPR8
+Встречайте OPR8 (Operate) — революционный плагин Multi-FX, который объединяет 8 невероятных эффектов в одном интуитивно понятном интерфейсе. Поднимите свои биты, миксы и все, что между ними, на новый уровень с помощью Backvox, Reverse, Repeat, 8-Bit, Reverb, Delay, Chorus и Motion.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A972D1D7C9E836C5DA63DDF122D9469F772167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759626   (37795) от 09.11.2024
+
+Plug And Mix - VIP Bundle V4 4.0.0 VST, VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Пакет V.I.P. — это полный набор из 50 оптимизированных аудиоплагинов, каждый из которых предназначен для выполнения одной конкретной задачи с точностью и легкостью. Этот пакет идеально подходит для музыкантов, продюсеров и звукорежиссеров, он охватывает широкий спектр основных эффектов и аудиообработок, что позволяет без труда достичь профессиональных результатов (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5169706C3F33313F0E4B31B0C8450B1C1861E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759618   (37761) от 09.11.2024
+
+Ircam Lab - The Snail 1.4.2 STANDALONE, VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Snail — это высокоточный анализатор частотной области, обеспечивающий интуитивно понятное представление звуков на основе гамм и нот, выровненных в спектрально активных зонах.
+Этот плагин предлагает новый способ настройки и анализа инструмента чрезвычайно точным способом. Он отображает интонацию и визуализирует музыку и звуки таким образом, что это может помочь (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B07958E4B060A99C71FE2688423309CCD41464E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759554   (37760) от 09.11.2024
 
 Audiopunks - Spectra 610 Complimiter 1.0.0 VST 3, AAX (x64) [En]
@@ -6,7 +138,7 @@ Audiopunks - Spectra 610 Complimiter 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +165,7 @@ IK Multimedia - TONEX MAX 1.8.0 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +193,7 @@ u-he - Zebra Legacy 2.9.4 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +219,7 @@ Baby Audio - Transit 2 1.1.0 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +245,7 @@ Raising Jake Studios SideMinder Plu-ins 11.2024 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +271,7 @@ Eventide - Ensemble Bundle 2.20.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +297,7 @@ Sonic Academy - KICK 3 1.0.0 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +325,7 @@ Rhodes Anthology 1.0.0 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +352,7 @@ W.A. Production - BeatQuake 1.0.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +378,7 @@ Overloud - Gem ECHOSON 1.0.8 STANDALONE, VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +404,7 @@ iZotope - Aurora 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +430,7 @@ iZotope - Cascadia 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +456,7 @@ Valhalla DSP - Valhalla Delay 3.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +484,7 @@ Excite Audio - Bloom Drum Machine 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +510,7 @@ Acon Digital - Mix And Mastering Suite 1.5.1 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +536,7 @@ ToneBoosters Plugin Bundle 1.8.9 STANDALONE, VST / VSTi, VST 3 / VSTi 3, AAX (x6
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +563,7 @@ Unfiltered Audio - Silo 1.1.7 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +590,7 @@ Kirnu - Cream 1.2.6 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +617,7 @@ Waves Ultimate 2024.11.29 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +644,7 @@ Gilisoft Audio Recorder Pro 13.3.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +670,7 @@ FabFilter - Pro-Q 3 3.26, VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -550,139 +682,6 @@ FabFilter Pro-Q 3 обеспечивает максимально возможн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:447159D9AC30BDDE3B4F325B69083723A7E33E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765389   (34411) от 12.12.2024
-
-U-he - Repro-1 1.1.3 VSTi, VSTi 3, AAX, CLAP (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Repro-1 погружается в прошлое для аналогового вдохновения, благоговейно моделируя классический синтезатор. Каждая деталь оригинала была захвачена с помощью технологии моделирования на уровне компонентов, чтобы создать самую настоящую модель какую только возможно. Все тончайшие характеристики, найденные в оригинале присутствуют в Repro-1.
-Устанавливая плагин Repro (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B17FAEBCEA1289B87DA6884AA9C3B4A2246D4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765924   (34122) от 15.12.2024
-
-Celemony - Melodyne Studio 5.4.2.006 STANDALONE, VST 3, AAX (x64) Repack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта программа позволяет работать с записанными монофоническими аудио данными в привычном музыканту виде - редактирование и изменение звучания производится путем регулирования непосредственно музыкальных и мелодических характеристик аудио. А именно, программа читает исходный моно аудио материал, производит его анализ, на основе которого представляет аудио данные в (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3595352197976BCBC9CBB268F5F08214F8BCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765933   (34120) от 15.12.2024
-
-Plugin Alliance - MEGA Bundle Effects 12.2024 VST, VST 3, AAX [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите доступ ко всем плагинам Alliance Plugin для микширования, мастеринга, виртуальных инструментов, гитарных и басовых усилителей, эффектов, включая сэмплер с библиотекой сэмплов, насчитывающей более 7000 сэмплов.
-Благодаря лучшим плагинам от более чем 40 профессиональных аудио-брендов, включая все новейшие инструменты для создания музыки от ведущих аудиоплееров, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF7286054F95BE7325B1E386AF32591A413ECF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765919   (34079) от 15.12.2024
-
-Lunacy Audio  - CUBE 1.6.0 Standalone, VSTi 3, AAX  (x64) + Samples [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34079.jpg" />
-</div>
-
-
-###  Подробнее
-
-CUBE — это отмеченный наградами творческий виртуальный инструмент на основе сэмплов с сотнями вдохновляющих звуков и заводскими пресетами, объединенными в потрясающий 3D-интерфейс. Исследуйте красивые кинематографические пэды, грубые басовые импульсы, интимные войлочные пианино, дикие текстуры аналоговых синтезаторов и многое другое.
-Обладая такой универсальностью, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4871F0A9037EABA2B5A44B73E6CB863BD0BCA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766582   (33700) от 19.12.2024
-
-FabFilter - Total Bundle 2024.12.16 VST, VST 3, AAX, CLAP (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Bundle - это набор всех плагинов FabFilter. С этим комплектом вы получаете наш профессиональный эквалайзер, ревербератор, компрессор, многополосную динамику, лимитер, де-эссер и гейт / экспандер, креативный многополосный дисторшн, задержки, фильтры и синтезаторы.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2053863CC375023DD2F0E6A47C1ED27F6410BF01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1871819   (1069906) от 
+
+Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Школьница Рури Танигава, увлечённая ювелирными изделиями, неожиданно открывает для себя мир минералогии — не как сухую науку о минералах, а как живое, сверкающее пространство, полное тайн и красоты. Её путь проходит через горы, реки и таинственные пещеры, где каждый найденный камень становится не просто находкой, а фрагментом личной истории, поводом для размышлений (   Читать дальше...   )Жанр: повседневность, минералогия.Режиссер: Фудзии СингоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BD43FD1A2DE0AE87E3D3BF166865BE22B6E13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869833   (1068640) от 
+
+Kowloon Generic Romance | Обычный роман в Цзюлуне [2025, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Риелторы Рэйко Кудзирай и Хадзимэ Кудо живут и работают в городе-ностальгии Коулуне. И чем больше времени они проводят вместе, тем сильнее Рэйко влюбляется в своего коллегу. Всё меняется, когда девушка случайно находит фото его бывшей невесты — по какой-то причине та выглядит как точная копия Рэйко! И тут Кудзирай начинает задумываться, что она помнит из собственного (   Читать дальше...   )Производство: Студия Arvo Animation, ЯпонияЖанр: детектив, романтика, повседневностьРежиссер: Ёсиаки ИвасакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7599A78B563B792009877FD66CE9F2D5A33F1349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869747   (1068481) от 
 
 Babylon | Вавилон [2019, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
@@ -7,7 +59,7 @@ Babylon | Вавилон [2019, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +86,7 @@ Nemure Omoigo, Sora no Shitone ni | Сладко спи, моё дитя, в н�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +113,7 @@ Hateshi Naki Scarlet | Scarlet | Скарлет [2025, Movie] WebRip 1080p raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +139,7 @@ Class no Daikirai na Joshi to Kekkon suru Koto ni Natta | Я женился на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +167,7 @@ Arve Rezzle: Kikaijikake no Yousei-tachi | Арве Реззл: Механиче
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +194,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (※Muri ja Nakatta!?) | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +220,7 @@ Mahou Shoujo Magical Destroyers | Девочки-волшебницы: Волш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +246,7 @@ Mikadono San Shimai wa Angai, Choroi. | Три сестры Микадоно о�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +274,7 @@ Bungou Stray Dogs 5 | Великий из бродячих псов 5 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -248,7 +300,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?): Next
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -274,7 +326,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [ТВ-1] [2024, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +353,7 @@ Bungou Stray Dogs 4 | Великий из бродячих псов 4 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +381,7 @@ Sekirei | Wagtail | Сэкирэй [2008, TV, 12 эп. + 1 OVA] BDRip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +408,7 @@ Hibi wa Sugiredo Meshi Umashi | Food for the Soul | Дни проходят, а 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +434,7 @@ Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -409,7 +461,7 @@ Steins;Gate | Врата Штейна [ТВ] [2011, TV, 24 эп.] BDRip 1080p 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -435,7 +487,7 @@ Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -464,7 +516,7 @@ Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты жив
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -492,7 +544,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga | M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -518,7 +570,7 @@ ChaO | Чао [2025, Movie] WEBRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -544,7 +596,7 @@ Chou Kaguya-hime! / Cosmic Princess Kaguya! / Суперпринцесса Ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -571,7 +623,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -597,7 +649,7 @@ Haikara-san ga Tooru | Smart-san | Современная девушка | Го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -624,7 +676,7 @@ Shounan Bakusouzoku | Bomber Bikers of Shonan | Сёнанские байкер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -635,58 +687,6 @@ Shounan Bakusouzoku | Bomber Bikers of Shonan | Сёнанские байкер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66576C1C4811B97FFA3CB12999B28D52509B5674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855147   (1057983) от 22.02.2026
-
-Alma-chan wa Kazoku ni Naritai | Alma-chan Wants to Be a Family! | Альма хочет стать семьёй [2025, TV, 11 эп.] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альма, автономный самообучающийся робот с передовыми боевыми способностями, была создана двумя гениальными учеными, Энджи Камисато и Сузуме Йобане, которые разработали искусственный интеллект и робототехнику Альмы соответственно. После того, как их бывшие знакомые высмеяли их, дуэт начал работать вместе, чтобы показать миру свои истинные таланты. Но даже несмотря (   Читать дальше...   )Производство: Studio FladЖанр: комедия, повседневностьРежиссер: Кобаяси КосукэПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (11 эп.), 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743D25D0B5B9F425C425800F3C9DF7E08F86D12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855333   (1057947) от 22.02.2026
-
-Attack No.1 | Attack Number One | Mila Superstar | Лучшая подача [1969, TV, 104 из 104] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кодзуэ - старшеклассница и увлечённая волейболистка. Её мечта - играть в сборной Японии по волейболу. Она с усердием проходит путь от школьной окружной лиги, подбираясь ближе к международному чемпионату по волейболу. Но чем быстрее и выше Кодзуэ поднимается по карьерной лестнице вверх, тем больше она сталкивается с тёмной стороной успеха: слишком высокие ожидания, (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: спортРежиссер: Курокава ФумиоПеревод: GeraleЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 104 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8ACE5552DC9822BAEF71535DF34611712D9B0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

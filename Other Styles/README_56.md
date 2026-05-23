@@ -1,3 +1,206 @@
+###  Публикация: 1216015   (754590) от 28.03.2018
+
+Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, Lounge, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Ashem Vohu
+02. Aem Moi Idâ / Ye Vâxshayâns
+03. Jasa Me Avange Mazdao
+04. Humata(   Читать дальше...   )Жанр: Ethno folk, Lounge, JazzПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575824AD045301F2E7D6F3F9AA8D3BB47B062B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281043   (753251) от 07.02.2019
+
+Tom Holkenborg (Junkie XL) - Alita: Battle Angel (2019) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Discovery (03:14)
+02. I Don’t Even Know Y Own Name (05:44)
+03. What’s Your Dream? (03:17)
+04. Double Identity (01:54)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C4D15BE6545D09D92BF56B68B68162DEFFC2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395054   (753170) от 11.07.2020
+
+Александр Жихарев (А.И.Жихарев) - Поющие с бронзой (2012) [FLAC|Lossless|tracks + .cue] <Bells, Folk, Ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Прогулка (4:46)
+02. Река (7:59)
+03. Соло (6:06)
+04. Фантазия (4:12)(   Читать дальше...   )Жанр: Bells, Folk, EthnicПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FDB43FDC6C3D88173F01E02DC2423C071EE9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018812   (752259) от 22.05.2016
+
+Kory Caudill - Tree of Life (2015) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Beginnings    06:26
+02. Around the World    05:32
+03. Walz of Life    04:37
+04. Time    05:28(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF79874C8CF5CD57F74DCED9F0E6F2E491F029F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018781   (752253) от 22.05.2016
+
+Rosanna Cash - King's Record Shop (1987) [MP3|320 кб/с] <Folk, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rosie Strike Back (3:33)
+02. The Way We Make a Broken Heart (3:55)
+03. If You Change Your Mind (3:21)
+04. The Real Me (4:26)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7149055528DB274757BB7F9B1B983FB21E786FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018707   (752174) от 22.05.2016
+
+Dixie Chicks - Wide Open Spaces (1998) [MP3|320 кб/с] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Dixie Chicks — женское кантри-трио, которое было создано в Далласе, штат Техас, в 1989 году. Участницы группы: Эмили Робисон, Марти Магуайр и Натали Мэнс.01. I Can Love You Better (3:54)
+02. Wide Open Spaces (3:44)
+03. Loving Arms (3:38)
+04. There's Your Trouble (3:13)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4988722EE86214691DDDCF65FA0897D52212D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523038   (751547) от 11.01.2022
+
+Deuter - Eternity (2009) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Wind in the Trees
+02. Lovesong from the Mountains
+03. Uno
+04. Lotus(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD470C88C8166A03D09B46BC7C2C5B76C3FFC0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215718   (750935) от 30.03.2018
 
 Помни Имя Свое (Фандеева Ксения,Станислав Дорофеев,Фроленко Мария) - Птицы (2015) floe [MP3|320 Kbps] <Folk ,Neofolk ,Ethereal Wave>
@@ -6,7 +209,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Omnia - Reflexions (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, Celtic, Medieval>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Meav - The Calling (2013) [MP3|320 кб/с] <Folk, Celtic, Female Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Ernesto Cortazar - Concertos Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Audiomachine - Exogenesis (2019) [MP3|320 Kbps] <Soundtrack, Trailer music, Clas
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Singular Mind - Find Myself (2017) [MP3|320 Kbps] <Ambient, Chill Out, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Impressions from Da Vinchi (2006) 3CD [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Morgan Frazier - The Best (2015) [MP3|~245 кб/с (V0)] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Doug Blair - The End of Chaos (2018) [MP3|320 Kbps] <New Age, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +528,7 @@ Ennio Morricone - Conducts Morricone - His Greatest Hits (2016) [FLAC|Lossless|W
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +557,7 @@ Thierry David - Yoma (1996) [FLAC|Lossless|tracks + .cue] <Tribal, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +586,7 @@ Thierry David - Ocean Rhapsody (2007) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +615,7 @@ Thierry David - The Veil of Whispers (2011) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +644,7 @@ Thierry David - Hypnosis (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +673,7 @@ Tracy Lawrence - I See It Now (1994) [MP3|320 кб/с] <Country, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +702,7 @@ Andrew Lloyd Webber - The Very Best Of Andrew Lloyd Webber. The Broadway Collect
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Allister - Best Of... 20 Years & Counting (2019) [MP3|320 Kbps] <Pop-Punk, Punk 
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,207 +745,6 @@ Allister - Best Of... 20 Years & Counting (2019) [MP3|320 Kbps] <Pop-Punk, Punk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CCC16CED43FFACD37DA0F39451D4506326882BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217433   (743359) от 04.04.2018
-
-Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ease (5:20)
-02. Atme (8:32)
-03. Thank You (6:19)
-04. Sigh (4:50)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019549   (742434) от 28.05.2016
-
-Erik Wøllo - Visions - Visions (2016) [MP3|320 кб/с] <Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echotides No. 4 7:22
-02. Revealed In Time 7:00
-03. Gateway 5:27
-04. Visions 6:06(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31F26829CB240041039A97F709ECC2F0436AEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217500   (742139) от 05.04.2018
-
-VA - Яркость / Bright: The Album (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Logic - Broken People (3:32)
-02.Bastille - World Gone Mad (3:17)
-03.Machine Gun Kelly - Home (3:23)
-04.Camila Cabello - Crown (3:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C561AC05EF4E6D5A6F205778C79D04B0BD914544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217483   (742137) от 05.04.2018
-
-Sam Green - Just Stand Still (2017) [MP3|320 Kbps] <Acoustic Folk, Acoustic Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taken My Breath Away
-02. Change
-03. Worn out Shoes
-04. The Great Unknown(   Читать дальше...   )Жанр: Acoustic Folk, Acoustic RockПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17F33553587EDBC11F51F10365988ACA4C0ADFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217239   (742129) от 05.04.2018
-
-Shoji Meguro - Persona 5 Original Soundtrack (2017) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742129.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Wake Up, Get Up, Get Out There (4:38)
-02. Phantom (2:18)
-03. 脱出 (0:53)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B4F5470B734D09E05BAD959DE92459F67E2494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217371   (742128) от 05.04.2018
-
-Dr. Jeffrey Thompson - Journey of the Spirit (2016) [FLAC|Lossless] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey of the Spirit (Track 1) 31:39
-02. Journey of the Spirit (Track 2) 33:10Жанр: New Age, Meditative, RelaxПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFE4488F84C68B1DBB3BCFC115165684DAAFE88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217496   (742040) от 05.04.2018
-
-Dr. Jeffrey Thompson - Theta Meditation System (2001) 2CD [FLAC|Lossless] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CD1 Renewal Track 01 30:01
-02. CD1 Renewal Track 02 30:01
-03. CD2 Insight Track 01 32:02
-04. CD2 Insight Track 02 31:58Жанр: New Age, Meditative, RelaxПродолжительность: 02:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD884D6206CFB1C5384D1E0916C1BF713CBDCAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

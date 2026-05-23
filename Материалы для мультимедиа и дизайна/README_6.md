@@ -1,3 +1,322 @@
+###  Публикация: 1851749   (1055216) от 03.02.2026
+
+Пресеты - Gradefruit - Film Photography [XMP, DNG, CUBE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Воссоздайте вневременной стиль пленочной фотографии — от насыщенных, естественных цветов до причудливых цветовых переходов, характерных для просроченной пленки.Формат: XMP, DNG, CUBE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23B447212B98F547E8B3894D75538CB629D6270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851432   (1055206) от 01.02.2026
+
+Кисти - Creative Market - Ink Pen Brush vector - 383097 [EPS, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Высококачественные кисти для рисования чернилами от руки в Adobe Illustrator. Все кисти созданы вручную, от начала до конца, они имеют ощущение ручной работы, напоминающее мазки чернил. Кисти отлично подходят для простых черно-белых эскизов или графики, а также для создания иллюстраций, выполненных вручную.Формат: EPS, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C93581671D2DE2FC396A3ABAF6E8F8ABABFF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851295   (1055014) от 01.02.2026
+
+Пресеты - Ratta Studio Education - The Wedding Pack Color + BW Presets and Profiles [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Чистые, простые и универсальные пресеты и профили для свадебных фотографов. Независимо от того, являетесь ли вы опытным фотографом или только обдумываете свой первый опыт в фотографии, эти пресеты и профили окажут вам большую помощь.
+
+Они мягкие, подходят для различных условий освещения и готовы превратить ваши обработанные фотографии в прекрасный луч света.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09D83001B06484B97C538459BC76D3E669AE0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851322   (1054991) от 01.02.2026
+
+Ui Kits - UI8 - Zync – Chat & Team Communication App UI Kit [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Zync — это современный набор элементов пользовательского интерфейса для коммуникационных приложений в Figma, предназначенный для создания чат-приложений, платформ обмена сообщениями и инструментов для командной работы. Благодаря более чем 25 высококачественным мобильным экранам в светлой и темной темах, Zync помогает создателям продуктов, стартапам и командам дизайнеров (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF661F042934082ADF13E80635D605CEFA03521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851359   (1054969) от 01.02.2026
+
+Растровый клипарт (иллюстрации) - Watercolor Illustrated Cute Baby Valentine Animals [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Милые животные-детеныши ко Дню святого Валентина для ваших творческих задач.Формат: PNGРазрешение файлов: 4000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11AA4C79404F7852B0BD41C6F9211F739D811778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851369   (1054961) от 01.02.2026
+
+Пресеты - Alex Hutchinson - Lightroom & ACR Preset Pack: Black & White [XMP, LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Фирменная черно-белая коллекция, которая является неотъемлемой частью всего моего портфолио на протяжении последних 6 лет.
+
+В этом наборе представлено 8 различных вариантов, каждый из которых имитирует разные стили черно-белой фотографии, получаемые с помощью светофильтров и черно-белой пленки.
+(   Читать дальше...   )Формат: XMP, LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E78F1F5628A5EB86F215CA5430F20307D2FFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850937   (1054923) от 30.01.2026
+
+Кисти - Pixelbuddha - Multi-App Fur Brushes - 6955 [ABR, AFBRUSHES, AI, BRUSHSET, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+О, что это за очаровательная пушистость? Обычно мы представляем набор кистей с изюминкой, но эта коллекция — вне конкуренции. Мы собрали самые милые и пушистые образцы, чтобы создать универсальный набор кистей для создания меха, который работает во всех возможных программах.Формат: ABR, AFBRUSHES, AI, BRUSHSET, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA93804DC3F9B1C342DB92DE0A00A66CD61B7E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850955   (1054914) от 30.01.2026
+
+Пресеты - DIGITAL FILM ACTIONS - Julia Trotti - The America Series [XMP, DNG, LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Запечатлейте душу американского пейзажа с помощью серии пресетов «Америка» от Digital Film Actions. Эта первоклассная коллекция пресетов для Lightroom, созданная известным фотографом Джулией Тротти, тщательно разработана для превращения ваших цифровых снимков в кинематографические шедевры, передающие ностальгию и атмосферу автомобильного путешествия по стране. Независимо (   Читать дальше...   )Формат: XMP, DNG, LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1532273956D3F7128E08F200A6C35E81C97B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850981   (1054902) от 30.01.2026
+
+Шрифты - Creative Market - NORD - Minimal Display Font Family - 3930703 [OTF, TTF, WOFF, WOFF2, EOT, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+NORD — это минималистичный и современный шрифт без засечек (Sans Serif / Display / All-Caps), выделяющийся из толпы. NORD лучше всего подходит для создания логотипов, фирменного стиля, заголовков, корпоративных образов и маркетинговых материалов для веб-сайтов и печатной продукции, а также для любых минималистичных дизайнерских решений.
+
+Благодаря эффективным настройкам (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2, EOT, SVGПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BE620C5292263EB8EBB8684633F94D8E66649C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851041   (1054844) от 31.01.2026
+
+Пресеты - FilterGrade - 10 Vintage Film Lightroom Presets [XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эти пресеты специально разработаны для тех, кто хочет улучшить фотографии, придав им винтажный пленочный вид. Этот набор был протестирован на бесчисленном количестве снимков. Мы включили 10 различных пресетов с разными тонами, экспозицией и т.д. Благодаря такому разнообразию вариантов вы сможете найти подходящий пресет.Формат: XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E20C4C62594C6A65FF3C9EFA508E596939EC453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851071   (1054822) от 31.01.2026
+
+Шрифты - Github - Lilex [OTF, TTF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Lilex — это расширенный шрифт, созданный на основе IBM Plex Mono и предназначенный для разработчиков. Он содержит лигатуры, специальные символы (например, PowerLine), греческие символы и существует в вариативном формате.Формат: OTF, TTF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90840D606B02C05648244A4D7161B872FC29504B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851190   (1054727) от 31.01.2026
+
+Шрифты - GGBotNet - Xanmono [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Xanmono относится к категориям моно, гротески, для заголовков, для текстов. Гарнитура содержит 2 начертания. Поддерживает 129 языков. Можно использовать в коммерческой и не коммерческой деятельности .Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A33B8064858BF11781B33F4630C6363CDBEB203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850755   (1054717) от 29.01.2026
 
 Шаблоны и рамки - Creative Market - Frame Mockups Collection - 291971352 [PSD]
@@ -6,7 +325,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -359,323 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:665E7B878755B3BB911883D5878BE458D3DEC58B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850185   (1054317) от 26.01.2026
-
-Текстуры и оверлеи - Dopamine Frame - Film Artifacts & FX [PNG, MOV]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Придайте своим видео истинную винтажную пленочную эстетику с помощью набора Film Artifacts & FX Pack, включающего динамические оверлеи и статические текстуры. Мгновенно добавьте аутентичные повреждения пленки, пыль, царапины и органические текстуры для создания грубого, кинематографического эффекта.
-
-Этот набор идеально подходит для кинематографистов, монтажеров (   Читать дальше...   )Формат: PNG, MOVРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC965B01CC1E8B54B2C821585C47486293016CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850235   (1054258) от 26.01.2026
-
-Растровый клипарт - Adobe Stock - Vintage Lambs & Lambaders Isolated Transparent #2 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054258.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 стоковых изображений с лампами из Adobe Stock. Оригинальные названия сохранены.Формат: PNGРазрешение файлов: 4128x1152 - 9977x5779
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D4296A8D25C9F866E8B0BB504BC38A6AF5691F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850309   (1054209) от 27.01.2026
-
-Ui Kits - UI8 - Sport News App UI Kit [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ощутите максимальный комфорт, получая самые свежие новости о футбольных матчах в прямом эфире с помощью Sport Share - UI Kit — вашего полноценного приложения для спортивных новостей в режиме реального времени. Благодаря элегантному дизайну и интуитивно понятным функциям, это приложение революционизирует ваш подход к спортивным событиям.Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB5BEEFFE0DC44CC247A8EBA0702E58AD3E1969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850330   (1054192) от 27.01.2026
-
-Пресеты - Etsy - Soft White - 1540865205 [XMP, DNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054192.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 пресетов Lightroom Soft White для мобильных устройств и компьютеров для ваших творческих задач.Формат: XMP, DNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F4404B5FC003D32879C559BA936417E5A95B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850365   (1054166) от 27.01.2026
-
-Растровый клипарт - Adobe Stock - Birds #4 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054166.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 стоковых изображений с птицами из Adobe Stock.Формат: PNGРазрешение файлов: 2464x1856 - 11648x6528
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6430C6BBBE42666DA67353FC9E0249CD2069BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850383   (1054138) от 27.01.2026
-
-Пресеты - Alex Hutchinson - Lightroom & ACR Preset Pack: 35mm Film [XMP, LRTEMPLATE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это мой набор пресетов для Adobe Lightroom и Photoshop. Пресеты не универсальны, но достаточно близки к идеалу.
-
-Эта коллекция пресетов разрабатывалась годами, в течение которых я снимал на плёнку и стремился воспроизвести тонкий цветовой баланс в своих цифровых работах.
-(   Читать дальше...   )Формат: XMP, LRTEMPLATE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7030EA925623A519FD3599B46C2CD1240D26DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849977   (1054086) от 25.01.2026
-
-Ui Kits - UI8 - Sportly - Fittech Web App UI Kit [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор элементов пользовательского интерфейса Sportly App UI Kit поможет вашим приложениям для спорта, фитнеса и тренировок. Он выполнен в современном спортивном стиле, и вы можете легко редактировать и настраивать все элементы с помощью дизайнерских компонентов, которые ускорят процесс проектирования.Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745C622B4A9EB3DC1143F893B876B919C5DA5763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850024   (1054055) от 25.01.2026
-
-Растровый клипарт (иллюстрации) - Christmas Tree Pretty Illustrations #19 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немаленький набор рождественских елочек для ваших творческих задач.Формат: PNGРазрешение файлов: 1024x1024 - 4267x4267
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5307C0C607CCB5B07250A5194426C52D788E370B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850043   (1054035) от 25.01.2026
-
-Пресеты - FilterGrade - 10 KODAK PORTRA Lightroom Mobile and Desktop Presets [XMP, DNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054035.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 профессиональных пресетов под пленку для ваших творческих задач.Формат: XMP, DNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F914198EE80892CB6FE8DD2DB8118CCCCFFD9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850127   (1053966) от 26.01.2026
-
-Сборники - Hudsonfilms Editing Pack [JPG, FFX, TTF, OTF, MOV, MP4, WAV]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053966.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот набор входит всё, что я использую для создания своих видео. Внутри вы найдёте следующее: Hudsonfilms Sfx Vol.2 (более 200 звуков), наложения, видеоклипы, текстуры, зернистость/шум, цветокоррекция, световые блики и мои любимые шрифты.Формат: JPG, FFX, TTF, OTF, MOV, MP4, WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1851B950585ECEEE559F3171493A7A009D5205E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850136   (1053962) от 26.01.2026
-
-Пресеты - The Luxe Lens - Love Story Lightroom Presets [XMP, LRTEMPLATE, JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запечатлейте любовь с помощью нежных телесных оттенков и ностальгической атмосферы!  Коллекция Love Story от Brixton Film создана с учетом весенней романтики. Эта коллекция сочетает в себе палитру мягких пастельных оттенков с теплыми сияющими телесными тонами и насыщенными цветами аналоговой пленки. Идеально подходит для создания вневременных историй любви!Формат: XMP, LRTEMPLATE, JPG, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82655F9B9730B825D0B28D588A2B4A691D57CB3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849889   (1053925) от 25.01.2026
-
-Пресеты (LUTs & Powergrades) - Gumroad - Loris Marie - Negative Powergrade [CUBE, DPX, DRX]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ощутите органичный, текстурированный и неподвластный времени вид классических голливудских фильмов прямо в DaVinci Resolve (Studio и бесплатная версия). С помощью Negative Powergrade вы получаете уникальную структуру узлов, вдохновленную легендарной пленкой Kodak 5219 — той самой, что использовалась в таких шедеврах, как «Однажды в Голливуде» Квентина Тарантино.Формат: CUBE, DPX, DRX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9716ED6C75D1D1A45EF12E3A2941F7019DB6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

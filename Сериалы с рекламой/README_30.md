@@ -1,3 +1,55 @@
+###  Публикация: 1037973   (238780) от 28.04.2022
+
+Киллджойс / Килджой / Killjoys (2016) WEB-DLRip [H.264] (сезон 2, серии 1-10 из 10) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В далекой-далекой межпланетной системе трое смелых, ловких и чертовски привлекательных наемников ведут бесконечную охоту за преступными элементами. Кредо команды — не занимать ничью сторону. Однако в раздираемой локальными боями галактике сделать это очень непросто. Их мир стоит на грани межклассовой войны, а задания, которые получают охотники за головами, становятся (   Читать дальше...   )Производство: Канада, Mendacity Pictures, Bell Media, Temple Street ProductionsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Стефан Плещински, Паоло Барзмен, Питер СтеббингсАктеры: Ханна Джон-Кэймен, Аарон Эшмор, Люк МакФарлейн, Тамсен МакДонаф, Том Эллисон, Роб Стюарт, Патрик Гэрроу, Мэйко Нгуен, Келли МакКормак, Шон ПэкПеревод: Многоголосый профессиональный - BaibaKoОзвучка / Автор перевода: Лира Грим, Ольга Мотрич, Владимир Курдов и Акмал Гурезов / Наталья Черненко и Фиона КудреватыхЯзык озвучки: Русский, английскийПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701E8042E3B19ED2C0E8086CF416408832B9B400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076640   (238685) от 28.04.2022
+
+Стрелок / Shooter (2016) WEBRip [H.264] (сезон 1, серии 1-10 из 10) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Главным персонажем является бывший морской пехотинец и снайпер Боб Суэггер. Не по своей воле он оказывается вовлеченным в тайный заговор, главная цель которого заключается в ликвидации американского президента. Догадавшись о том, что его планируют подставить, Боб уходит в бега и готовится к тому, чтобы найти настоящего киллера...Производство: США, Closest to the Hole ProductionsЖанр: боевик, драмаРежиссер: Дэвид Стрейтон, Саймон Селлан Джоунс, Кристоф ШревеАктеры: Райан Филипп, Шантель Ван Сантен, Синтия Аддай-Робинсон, Омар Эппс, Лекси Колкер, Джесси Брэдфорд, Мэтт Шалленбергер, Дилэйна Митчелл, Эдди МакКлинток, Джералд МакРэйниПеревод: Многоголосый профессиональный - BaibaKoЯзык озвучки: Русский, английскийПродолжительность: ~00:42:00 серияРеклама: присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4871678AA81BDAA6C8B63CEC7323D294B32449C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375130   (237477) от 04.05.2022
 
 Ответный удар: Революция / Strike back: Revolution (2019) WEBRip [H.264] (сезон 7, серии 1-10 из 10) BaibaKo [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1572F0622085AA6C059A538A2827D8B25E7CC96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419737   (225012) от 28.11.2021
-
-Майбергер. В голове преступника / Meiberger - Im Kopf des Taters (2019) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас Майбергер работает судебным психологом в Зальцбурге. Его работа заключается в раскрытии преступлений, которые невозможно понять с помощью простых улик и недостаточных доказательств. Если правоохранительная система, как правило в лице прокурора Барбары Симмы и комиссара Непомука «Непо» Вальнера, не знает, что делать, она обращается к Майбергеру. В работе ему (   Читать дальше...   )Производство: Австрия / Mona Film Produktion, Servus TVЖанр: криминал, детективРежиссер: Маркус Ульбрихт, Солин Юсеф, Питер БауманнАктеры: Фриц Карл, Корнелиус Обонья, Ульрике С. Чарре, Jaschka Lämmert, Franz Josef Danner, Lino Gaier, Райнер Эггер, Хильде Далик, Отто Шенк, Таня Рауниг и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствует, 2 аудио вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E73C17A559C0095F4FA360C6DFCB30A167DA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940054   (224356) от 03.08.2023
-
-Морская полиция: Лос-Анджелес / NCIS: Los Angeles (2015) WEB-DLRip (сезон 7, серии 1-24 из 24) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224356.jpg" />
-</div>
-
-
-###  Подробнее
-
-7-й сезон NCIS: Los Angeles — драмы о сложной работе — наблюдении под прикрытием.
-Отдел особых проектов — подразделение NCIS, которое занимается опасными преступниками, угрожающими безопасности всей страны. Используя фальшивые личности и последние технологии, команда специалистов работает под прикрытием, рискуя собственными жизнями ради достижения цели.Производство: США / Shane Brennan Productions, CBS Television Studios, Belisarius ProductionsЖанр: триллер, драма, криминал, детективРежиссер: Тони Уормби, Терренс О’Хара, Джеймс Уитмор млАктеры: Крис О`Доннелл, LL Кул Джей, Линда Хант, Peter Cambor, Daniela Ruah, Адам Ямал Крэйг, Barrett Foa, Роки Кэрролл, Клер Кэри, Винсент Де Пол и др.Перевод: Многоголосый профессиональный - BaibaKoОзвучка: Татьяна Оболевич, Светлана Доманова, Дмитрий Глебов и Виталий ТкаченкоЯзык озвучки: Русский, английскийПродолжительность: ~00:43:00 серияРеклама: присутствуют видео, аудио вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C8A718EC16F8291D2B2F5FDB97901E88083301
 ```
 
 https://mybot314.ru/tekegram_catalog/

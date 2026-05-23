@@ -1,3 +1,84 @@
+###  Публикация: 1467823   (1017549) от 05.05.2021
+
+Electrohelper: EE Toolbox Pro v2.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Electrohelper - это приложение, идеально подходящее для студентов, изучающих электротехнику и электронику, а также для любителей / энтузиастов электроники. Это поможет вам быстро найти информацию об электронных компонентах. Вы также можете выполнять расчеты схем с помощью приложения, оно содержит подробную информацию о компонентах электроники и общих электронных (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 16 февраля 2021 г.Разработчик: Anas AbubakarПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE17DE31E0D56E75527AB266B8D82239F30D718E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467898   (1017544) от 05.05.2021
+
+Electronic toolbox Pro v5.1.15 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это приложение представляет собой набор основных электронных калькуляторов. Он подходит для любителей, инженеров-электронщиков или профессионалов.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 24 апреля 2021 г.Разработчик: Peter HoПоддерживаемая ОС: AndroidЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA63432A2374CC4C553B137516361360B2AE3FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086972   (1017502) от 05.05.2021
+
+radio.net PRIME v5.4.1.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+radio.net PRIME — радиоплеер без рекламных видеороликов и баннеров
+
+Вам нравится приложение radio.de, но надоели рекламные ролики и баннеры?
+Тогда оцените radio.de PRIME - альтернативное радио для тех, кто хочет поменьше рекламы. При этом все функции radio.de останутся доступны.Тип издания: Пиратка (Paid)Релиз состоялся: 4 мая 2021 г.Разработчик: radio.net - Webradio, News & PodcastsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF6C7CF3D7FE51A0BB2C4CD8547A2BFE35C7549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945740   (1017487) от 05.05.2021
 
 XiiaLive™ Pro - Internet Radio v3.3.3.0 [Ru]
@@ -6,7 +87,7 @@ XiiaLive™ Pro - Internet Radio v3.3.3.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Cloud Radio Pro v8.1.0 [Ru] - Record , Lyrics & Music
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +139,7 @@ Audials Play Pro v9.4.2-0-gaa8f88d97 [Ru] – Radio & Podcasts
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +296,7 @@ GIF Maker Pro 1.7.66 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +322,7 @@ nPlayer Pro 1.7.7.7_191219 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +348,7 @@ Polaris Office Pro 9.0.12 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +400,7 @@ Avee Music Player (Pro) 1.2.101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +584,7 @@ Picture Insect v2.2 [Ru/Multi] - Bug Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +610,7 @@ Photographer's companion v1.9.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +638,7 @@ Geometryx: Геометрия - Расчёты и формулы v3.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +664,7 @@ Hotspot Shield Free VPN v8.7.0 Elite [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -596,87 +677,6 @@ Hotspot Shield Free VPN v8.7.0 Elite [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A72A41920F05E748DCB961FF077113D8574493B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472384   (1014499) от 24.05.2021
-
-Audiomack v6.4.0 [Ru/Multi] - скачайте музыку для оффлайн бесплатно
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушайте и бесплатно скачивайте лучшие новые песни, альбомы и плейлисты и воспроизводите их в автономном режиме, не расходуя трафик! Просматривайте музыку из топ-категорий, таких как Хип-хоп, Рэп, R&B, EDM, Афропоп и Регги, в бесплатном музыкальном приложении Audiomack. Скачивайте песни и слушайте их в автономном режиме, не расходуя трафик!
-
-Audiomack обеспечивает (   Читать дальше...   )Тип издания: Пиратка (Platinum)Релиз состоялся: 17 мая 2021 г.Разработчик: AudiomackПоддерживаемая ОС: Android Зависит от устройстваЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F131E74806FB53E70C6B5A61B7D1538E96DC8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472226   (1014419) от 24.05.2021
-
-Launcher 10 - Лаунчер стилизованный под Windows 2.7.31 [Ru/Ua]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Launcher 10 - Вот и дождались, любители windows 10, возрадуйтесь. Теперь вы сможете установить его на свое android устройство. Это конечно не полноценный win 10, а всего лишь лаунчер, сделанный по его подобию. Он очень многофункционален, а так же прост в использовании. Внешнее выглядит очень красиво, и вы всегда можете настроить его по своему усмотрению. Eсли вам (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 25.04.2021Разработчик: nfwebdevПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD1373090EE9B257C8310E093F59CA05E5BA32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472397   (1014313) от 25.05.2021
-
-Таро: Гадание на картах v2.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гадание на картах Таро - один из самых популярных способов получить самое точное предсказание будущего, узнать перспективу любовных отношений или решить сложную проблему.
-Полная версия содержит 30 раскладов, касающихся различных сфер жизни, 5 различных колод, точно отвечающих на все вопросы, и галерею карт Таро с подробным описанием каждого аркана и дополнительные (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 20 октября 2020 гРазработчик: Xeen SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD984CC55E6C9D35CC323E2D60BB3579DBD6F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

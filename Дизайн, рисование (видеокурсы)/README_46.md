@@ -1,3 +1,83 @@
+###  Публикация: 1414311   (386822) от 07.10.2020
+
+Max Twain | Global Wedding (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Увеличьте скорость обработки и качество фотографий с помощью пресетов и автоматизации действий. Вас ждут пять стильных методик постобработки в Adobe Photoshop.Производство: Photoshop MasterЖанр: Digital ArtПродолжительность: 06:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFD78F204D3AA440D8D8CD7BC6378C04F839D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414257   (386821) от 07.10.2020
+
+Max Twain | Джоконда (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Трансляция проходила в режиме онлайн на платформе «Фотошоп-мастер».
+На протяжении 4-х часов прямо перед зрителями Макс Твейн создавал АРТ. Автор придерживался своей концепт-идеи, те кто подключился онлайн, предлагали свои решения и задавали вопросы в чате. Таким образом, все участники получили возможность повлиять на конечный результат.Производство: Photoshop MasterЖанр: Digital ArtПродолжительность: 05:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFC804A705B62E79057C97D36AFC322665BA4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414255   (386816) от 07.10.2020
+
+Max Twain | Workshop (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Делаем ART в прямом эфире.
+Делаем арт все вместе, в прямом эфире. Заранее предоставляется крутой исходник, ты можешь повторять или делать по-своему. В ходе эфира интерактив с участниками позитивная, творческая атмосфера, после эфира выдается его видеозапись в дальнейшем видеозапись не продается.Производство: Photoshop MasterЖанр: Digital ArtПродолжительность: 14:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C63F400BD17A7669283A143DA94CE6B68056690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414296   (386814) от 07.10.2020
 
 Max Twain | Daz3D (2020) PCRec
@@ -6,7 +86,7 @@ Max Twain | Daz3D (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +115,7 @@ Max Twain | Pro Retoucher. Fatalism NEON (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +141,7 @@ Max Twain | Fatalism ART (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +167,7 @@ Max Twain | Pro Retoucher. Fatalism START 2020 PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +194,7 @@ Alkis Escobedo | Освещение и рендеринг с помощью V-Ra
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +220,7 @@ ArtistHunt School | 25 курсов по рисованию (2020) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +246,7 @@ The Gnomon Workshop, Maxime Deleris | Visual FX for Games (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +272,7 @@ CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +299,7 @@ Udemy, Nikolay Naydenov | Demon Huntress in Blender Course (2022) PCRec [EN / EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +351,7 @@ Chris Thomas | Particle Flow Fundamentals 4: Tests, Forces & Collisions (2004) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +377,7 @@ Chris Thomas | Particle Flow Fundamentals 3: Operators 2 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +403,7 @@ Chris Thomas | Particle Flow Fundamentals 5: Practical Examples (2004) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +429,7 @@ Chris Thomas | Particle Flow Fundamentals 2: Operators 1 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +455,7 @@ Chris Thomas | Particle Flow Fundamentals 1: Principles and Workflow (2004) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +482,7 @@ Wayne Hollingsworth | Введение в Maya Fluid Effects. Часть 2 /  In
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +534,7 @@ Hristo Velev | Thinking Particles. Часть 2 - Промежуточные к�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +560,7 @@ Skillshare, 3D Tudor | Unreal Engine 5 Beginners Guide to Building an Environmen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +587,7 @@ Joshua Kinney | Map Baking Techniques for Games in 3ds Max (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +614,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +640,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +666,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,85 +677,6 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 1 (2016) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B09CD321585D5F37480568E10B056D2C5ECA4FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415353   (378239) от 11.10.2020
-
-Hristo Velev | Thinking Particles. Часть 1 - Всестороннее введение / Thinking Particles Part 1 - A Comprehensive Introduction (2010) PCRec [En, Ru]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378239.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе HristoVelev объяснит основы ThinkingParticles и затем начнет строить прочный фундамент из теории и практических примеров программы. Потом автор покажет основной набор возможностей TP4. В процессе он создаст несколько эффектов, которые часто используются на реальной практике.
-После рассмотрения основ, Hristo покажет создания целого проекта от начала до (   Читать дальше...   )Производство: Eat 3DЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 09:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1851DDA015A1A663951A8A9900A5BF3C878D5312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415150   (378238) от 11.10.2020
-
-Joshua Kinney | Automotive Modeling in 3ds Max (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378238.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом обучающем курсе по 3dsMax мы используем метод моделирования с помощью граней, для создания автомобиля Maserati Gran Turismo. Компьютерные модели автомобилей являются главными элементами кино и коммерческих проектов. Неважно, все ли части автомобиля промелькнут перед нашими глазами в коммерческой рекламе намереваясь показать в выгодном свете превосходную разработку, (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский РусскийПродолжительность: 08:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D14A7963CF33C4C7B2B86A43F25EDE4A55F46A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415152   (378016) от 11.10.2020
-
-Tim Bergholz | Mech Tutorial Complete Edition (2017) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда нибудь задумывались о карьере в игровой индустрии в качестве 3D художника и вам нравятся боевые мехи? Тогда этот курс идеально вам подходит! 15 часов обучения, включающие в себя моделирование, развертку, запекание и текстурирование боевого меха по всем стандартам игровой индустрии. Вы ничего не пропустите, так как видео не ускорены ни на секунду!Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский РусскийПродолжительность: 15:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2270714D18AFFAA668E4EF2A950DA3DA7706270D
 ```
 
 https://mybot314.ru/tekegram_catalog/

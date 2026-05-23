@@ -1,3 +1,90 @@
+###  Публикация: 999716   (863053) от 23.03.2016
+
+Stefan Gubatz - Distanz (2012) [FLAC|Lossless|tracks + .cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Byte And Scratch (10:49)
+02. Cologne (11:19)
+03. Villa Nicht (10:38)
+04. Vitamin (07:09)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC72A0BC943F9FB4B65B82FAB394A6D2AFA14F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497725   (862982) от 23.09.2021
+
+Ben Bohmer (Ben Böhmer) - Begin Again (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Begin Again (2:42)
+ 02. Beyond Beliefs (5:14)
+ 03. Home (feat. Jonah) (3:34)
+ 04. Erase (feat. lau.ra) (4:13)(   Читать дальше...   )Жанр: EDM, Deep Progressive HouseПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7422FC71BF1426EED5E0C3FF0C9764E1ED06BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999969   (862546) от 23.03.2016
+
+VA - 538 Dance Smash 2016 Vol.1 (2016) [FLAC|Lossless|image + .cue] <House, Pop, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На трекере часто появляется релизы из этой серии и всегда они пользуются неизменным успехом у членов клуба. Вот совсем свежий выпуск предлагается Вашему вниманию. А остальные релизы сможете найти по ссылке внизу.01. Mike Posner - I Took A Pill In Ibiza (Seeb Remix)  (3:12)
+02. Major Lazer feat. Nyla & Fuse ODG - Light It Up (Remix)  (2:45)
+03. Alan Walker - Faded  (3:28)
+04. Armin van Buuren feat. Kensington - Heading Up High  (3:48)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991C47F092364E0B867ED222AAC078E165786300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108609   (862336) от 25.02.2017
 
 VA - Ethereal Techno #003 (2017) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
@@ -6,7 +93,7 @@ VA - Ethereal Techno #003 (2017) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Lagowski - Secret Of Numbers (2020) Zoharum [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Best Of Disco Balls Records 2018, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Best Of Disco Balls Records 2018, Pt. 2 (2019) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Best Of 5 Years Of Disco Balls Records, Pt. 3 (2019) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Luomo - Vocalcity (2000) Reissue, 2005 [WavPack|Lossless|image + .cue] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Superpitcher - Kilimanjaro (2010) [FLAC|Lossless|tracks + .cue] <Downtempo, Mini
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +296,7 @@ Luomo - The Present Lover (2003) [FLAC|Lossless|tracks + .cue] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Gabriel Ananda - Selected Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +354,7 @@ Justin Gain - Techno Ebola (2016) [FLAC|Lossless|image + .cue] <Techno, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +383,7 @@ Natalia Zamilska - Discography 10 Releases (2014-2020) Mik.Musik.!., Untuned Rec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +409,7 @@ Jan Blomqvist - Remote Control (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +438,7 @@ Drexciya - Journey Of The Deep Sea Dweller I - IV (2011-2013) [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +467,7 @@ Supermayer (Superpitcher & Michael Mayer) - Save The World (2007) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +496,7 @@ Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 2 (2020) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +525,7 @@ Boris Brejcha - Thunderstorm (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +554,7 @@ Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +583,7 @@ Booka Shade - Galvany Street (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +612,7 @@ lorian MSK - Le Vacarme De Diavel (2016) Zenon Records [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +641,7 @@ Moderat - III (Box Set, 3CD, Limited Edition) (2016) [FLAC|Lossless|tracks+.cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +670,7 @@ Above & Beyond - Anjunabeats Essentials (2020) DJ Mix [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +699,7 @@ Wanderwelle - Discography 7 Releases (2015-2020) Silent Season [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,7 +728,7 @@ Marbert Rocel - In The Beginning: Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -655,91 +742,6 @@ Marbert Rocel - In The Beginning: Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8587E5545310842E1EE2D47F91FB1A9D430C7BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113364   (838543) от 11.03.2017
-
-V.A. - House Del Mar (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabado Playground - Perdoname (Tropical House Version)
-02. Red Hot Viper - Gabardino
-03. Gridlocks - The Cratouille
-04. Elton Ames - Beach House(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 02:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F99437098A1CD5A12835B9793EC404DA00DEFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004673   (838183) от 06.04.2016
-
-Motorcitysoul - Technique (2008) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Start (1:20)
-02. Deliver Me (feat. Ernesto) (6:36)
-03. Space Kätzle (6:45)
-04. Solar (5:15)(   Читать дальше...   )Производство: Simple Records – SIMPLECD04Жанр: Electronic, Deep House, Tech HouseПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BB5F919CEEB6355838764EC4A9A002FB5A6B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379723   (837709) от 30.04.2020
-
-Lemna - The Five Elements (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Tribal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1 (33:10)
-02. Part 2 (34:57)Жанр: Techno, Experimental, Tribal, AmbientПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C844152ECCF847843B189628374704A26C0C4A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

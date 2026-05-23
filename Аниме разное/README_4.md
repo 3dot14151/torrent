@@ -1,3 +1,29 @@
+###  Публикация: 1837347   (256714) от 16.11.2025
+
+Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсикая из Долины ветров [1984, Movie] 2xDVD9 576p
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В будущем человечество, столетиями безоглядно эксплуатировавшее природу, пало жертвой своей гордыни. Землю постигла ужасная экологическая катастрофа, процветающие когда-то промышленные цивилизации обратились в прах, а поверхность планеты покрыло гигантское море Леса, испускающее в атмосферу ядовитые споры своих растений. Оставшимся в живых людям приходится жить в (   Читать дальше...   )Производство: Studio GhibliЖанр: приключeния, фэнтeзиОзвучка: OriginalЯзык озвучки: Японский и РусскийСубтитры: Русские VobSub(int) by СонотэкПродолжительность: 112 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC41F167E52B738C35905B24A30D92B13DBEBF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 74033   (254997) от 19.04.2023
 
 Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death & Rebirth | Евангелион: Смерть и перерождение [1997, Movie] DVD5 480p raw+rus
@@ -6,7 +32,7 @@ Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -140,7 +166,7 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -166,7 +192,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVDRemux 480p 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -192,7 +218,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVD9 480p raw+
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -218,7 +244,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -244,7 +270,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +299,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRe
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +327,7 @@ Inu-Oh | Inu-Ou | Ину-о: Рождение легенды [2022, Movie] BDRem
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -327,7 +353,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2001,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -353,7 +379,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -382,7 +408,7 @@ One Piece: Dream Soccer King! / One Piece: Soccer King of Dreams / Ван-Пис
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -410,7 +436,7 @@ One Piece: Jango no Dance Carnival / One Piece: Django's Dance Carnival / Ван
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -438,7 +464,7 @@ One Piece: Baseball Special / One Piece: Take Aim! The Pirate Baseball King / В
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -466,7 +492,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -492,7 +518,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -518,7 +544,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -547,7 +573,7 @@ Darling in the FranXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -573,7 +599,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -599,7 +625,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -652,7 +678,7 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -665,32 +691,6 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37F945EC581EA0D86CC70210F7BFCF4EA46A4C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625723   (199949) от 11.04.2023
-
-Da Wang Rao Ming | Spare Me, Great Lord! | Пощади меня, Великий господин! [ТВ-1] [2021, TV, 12 из 12] WEB-DL [HEVC, 4K, SDR, 2160p] HS+rus
-
->>Аниме разное
->>Аниме хардсаб
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магия начала возвращаться в наш мир, жизнь больше никогда не будет скучной и однообразной. Все, кто выступал против меня, должны умереть. Я - студент старшей школы, Люй шу, и меня сбила машина, но это только придало моей жизни новый поворот. Я стану величайшим магом этого мира и буду им править! Но для начала придется разобраться, как эта магия вообще работает...Производство: КитайЖанр: Приключения,фэнтези,комедияЯзык озвучки: (многоголосая) Light FamilyПродолжительность: 12 х ~ 00:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8C16C3406C8017832254E838820746006D0F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

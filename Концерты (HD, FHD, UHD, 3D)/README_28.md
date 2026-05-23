@@ -1,3 +1,55 @@
+###  Публикация: 1251128   (419964) от 30.09.2018
+
+Квартирник на НТВ у Маргулиса. Пикник (09.29.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В гости к ведущему Евгению Маргулису пришла легендарная рок-группа «Пикник»: за 40 лет своего существования музыка группы трансформировалась из русского рока в оригинальный, необычный стиль с использованием симфонических, клавишных и экзотических народных инструментов. Участники группы исполнили полюбившиеся композиции, а также поделились интересными воспоминаниями.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB90A5542DC1DFB32624B46AF5B5AD47EC51973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065884   (415858) от 24.10.2016
+
+Scorpions - Live in Munich (2012) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концерт в Мюнхене, 17 декабря 2012 года.Производство: Eagle RockЖанр: Hard Rock,  RockПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96E95DEE2E83285B5446548697F542548DE83B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325532   (412249) от 15.09.2019
 
 Квартирник НТВ у Маргулиса. Группа Ария (14.09.2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +58,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Doors: Live at the Bowl '68 (2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +171,7 @@ Joe Cocker – Fire it Up Live (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +200,7 @@ Status Quo: Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +229,7 @@ Black Country Communion - Live Over Europe (2011) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -261,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -287,7 +339,7 @@ Dio - Holy Diver Live (2010) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -313,7 +365,7 @@ Dream Theater - Live at Luna Park (2013) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -342,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -368,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +451,7 @@ U2-Концерт/Чикаго (2015) WEBRip[H.264/2160p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +506,7 @@ Madonna: Rebel Heart Tour (2016) BDRemux [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +532,7 @@ Santana - Santana IV Live at the House of Blues (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +561,7 @@ Metallica - Концерт в Москве (2015) WEBRip [1080p/60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +590,7 @@ Madonna: Rebel Heart Tour (2016) BDRip [H.264/720p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,7 +671,7 @@ Papa Roach -  Live in Moscow (2015) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +700,7 @@ The Australian Pink Floyd Show - Live at the Hammersmith Apollo (2011) [1080i] B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -668,63 +720,6 @@ The Australian Pink Floyd Show - Live at the Hammersmith Apollo (2011) [1080i] B
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416093   (369117) от 15.10.2020
-
-Pink Floyd - Delicate Sound Of Thunder (1989) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отреставрированная и перемонтированная версия знаменитого фильма-концерта 1989 года с ремастированным и пересведенным звуком. Съемки происходили с 19 по 23 августа в Нью-Йорке на арене Nassau Coliseum во время тура A Momentary Lapse of Reason. Режиссером был Уэйн Ишам. Для переиздания 2019 года была оцифрована 35мм пленка съемки концерта и ремикширован звук. Выпущенный (   Читать дальше...   )Производство: США, CBS/SONY JapanЖанр: Концерт, прогрессивный рок, арт-рокРежиссер: Уэйн ИшэмАктеры: Дэвид Гилмор, Ник Мейсон, Ричард Райт, Джон Карин (клавишные, вокал), Тим Ренвик (гитары, вокал), Гай Пратт (бас, вокал), Гэри Уоллис (перкуссия), Скотт Пейдж (саксофоны, гитара), Маргрет Тейлор (бэк-вокал), Рэйчел Фьюри (бэк-вокал), Дурга МакБрум (бэк-вокал).Язык: АнглийскийПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4932A3572FEDEAA325BB6CFE3E68E5FB89D4B67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254732   (367924) от 16.10.2018
-
-Ханс Циммер - Live in Prague / Hans Zimmer - Live in Prague (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный кинокомпозитор Ханс Циммер и его первоклассные музыканты исполнили перед многотысячной публикой знаменитую музыку из голливудских блокбастеров. Это уникальный шанс увидеть художника во всем великолепии его музыкального дара и насладиться прекрасными мелодиями в кругу семьи и друзей.
-Концертные съёмки проходили в Праге,<Чехия>.
-Выход Ханса Циммер на (   Читать дальше...   )1. Medley: Driving / Discombobulate / Zoosters Breakout
-2. Medley: Crimson Tide / 160 BPM
-3. Gladiator Medley: The Wheat / The Battle / Elysium / Now We Are Free
-4. Chevaliers De Sangreal(   Читать дальше...   )Производство: Великобритания / Eagle Rock Film Productions, Remote Control ProductionsЖанр: МузыкальныйРежиссер: Tim Van SomerenПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6488C20EB72E764620FA78BB54D70CB2D8F187BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

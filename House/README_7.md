@@ -1,3 +1,90 @@
+###  Публикация: 1094807   (927890) от 19.01.2017
+
+VA - Midnight Sessions  Vol.3 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  Ava Blaxland - Oxana (Original Mix)  3:26
+02.  Tribal Kong - A Beast (Black Jam Mix)  5:35
+03.  Van Mark - Tree Cherry Pits (Original Mix)  5:49
+04.  Jay Indo - One Two (Original Mix)  6:14(   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBF131ED48AD318938A9D9320A9278C97A894B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094951   (927852) от 19.01.2017
+
+VA - Extreme Cardio Vol 1 (2015) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Untidy Dub - Use It Or Lose It (Original Mix) [06:25]
+02. Baseware - Boom (Ross Homson Remix) [08:10]
+03. Groove Complex - Rendevouz (Original Mix) [06:36]
+04. The Creators - Get On Up (Original Mix) [07:50](   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C78EC99AA4587C6C0CF2F25AEB299AC9DB37691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094955   (927809) от 19.01.2017
+
+VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Teeze - Go Away (Original Mix) 06:29
+02. Karlston Khaos - The Drop (Original Mix) 06:32
+03. Bassik - Dark Dreams (Original Mix) 06:56
+04. Fierce Djs - Animal Funk (Original Mix) 06:44(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D015F05948C3CE0CFA600FB2C2BB2854DF0922B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095720   (924570) от 21.01.2017
 
 VA - Future Funk Meets Electro (2017) [MP3|320 Kbps] <Progressive House>
@@ -6,7 +93,7 @@ VA - Future Funk Meets Electro (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Sirup Miami 2020 [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Machine Prototype 12 (2019) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Machine Prototype 13 (2020) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Voc
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Into The Wildness (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Vitalic - Voyager (2017) [MP3|320 Kbps] <Electro House, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Deephouse Night Beats (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Revealed Recordings presents Miami Festival 2020 (2020) [MP3|320 Kbps] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Record Super Chart № 175 (2011) [MP3|320 kbps]<House, Electro House, Tran
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +563,7 @@ VA - Cycles 8 (Mixed By Max Graham) (2017) [MP3|320 Kbps] <Progressive House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +592,7 @@ VA - V.I.P (Chillhouse Edition) (2016) [MP3|320 кб/с] <Deep House, Chill Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +621,7 @@ VA - Fantastic Muscle, Vol. 2 (20 Workout Tracks For A Professional Training) (2
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +650,7 @@ VA - Ibiza Opening Party (2016) [MP3|320 Kbps] <Progressive House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -592,7 +679,7 @@ VA - Steyoyoke Black Onyx Vol.2 (2017) [MP3|320 Kbps] <Techno, Tech House, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -621,7 +708,7 @@ VA - Carnaval House (2016) [MP3|320 кб/с] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -650,7 +737,7 @@ VA - Carnaval Electro 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -664,93 +751,6 @@ VA - Carnaval Electro 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD10D4CCB397A32EC578ED8B26432681B38266F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097668   (912149) от 28.01.2017
-
-VA - Model Dreams: Winter Edition (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fomichev - Sing It Back (Feat. Jenna Summer) 05:22
-02. Patric Brown - Rock This City (The Teachers Remix) 06:11
-03. Next Door But One - Positive Thinking (Paul Jacobson Remix) 08:38
-04. Rhythm Rockerz - 4 O'clock (Feat. Ann Bailey) (Rhythm Rockerz Anthem Mix) 06:37(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEC501D07CDB044DA5DDED68B5651B70F6CFEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988667   (911864) от 25.02.2016
-
-VA - Club Charts 2016.1 (2016) [MP3|256 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Show Me Love (feat. J.U.D.G.E.) 04:17
- 02. DJ Tonka - She Knows You (Update Radio Mix) 03:04
- 03. Gestort aber GeiL - Ich & Du (feat. Sebastian Hamer) 03:37
- 04. EDX - Revered (Radio Edit) 03:15(   Читать дальше...   )Жанр: HouseПродолжительность: 03:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7858570329D65DC2EBD734D560493F44A97335BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368337   (911079) от 19.03.2020
-
-VA - Only For DJs - Spring 2020 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Berte' & Daniel Tek feat. Monika Kiss - Better Of Alone (Extended Mix) 5:11
-02. JBGL - Dance Monkey (Extended Mix) 3:36
-03. Skelectro & Allenx feat. Norah B. & Itto - No Time (Spikaa Remix) 4:08
-04. MJX feat. Pat Cole - Free (Radio Mix) 3:32(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFCC56E8222A748544217B0F4B5A36CD9A2555D
 ```
 
 https://mybot314.ru/tekegram_catalog/

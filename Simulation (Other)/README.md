@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1870368   (1069182) от 
+
+Restore Your Island (2026) [Ru/Multi] (Build 22753376) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Restore Your Island это медленный, уютный симулятор восстановления, в котором вы лечите повреждённый остров и строите спокойный дом. Исцелите израненный остров, восстановите места обитания, играйте со своей собакой, создайте свое убежище и relax у костра. Превратите этот сломанный, заполненный мусором остров в процветающее убежище.Тип издания: RepackРазработчик: Paiband Game StudioЖанр: СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF39D2E1DC42E703ECE2234A5678AB8E317DDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865192   (1065384) от 14.04.2026
 
 The Precinct (2025) [Ru/Multi] (1.11.22854) Repack Other s [Deluxe Edition]
@@ -7,7 +33,7 @@ The Precinct (2025) [Ru/Multi] (1.11.22854) Repack Other s [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (4.0.0c) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Easy Delivery Co. (2025) [Ru/Multi] (1.12c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Tiny Isle (2026) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +137,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.16.134/dlc) Repack HardwareMining [Dig
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Streamer Life Simulator 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +189,7 @@ Seclusa (2026) [Ru/Multi] (1.0.4i) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +215,7 @@ Underground Garage (2024) [Multi] (157_UG) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +241,7 @@ Hellmart (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +267,7 @@ Rent A Car Simulator 24 (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +293,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (20260226/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Legitimate Space Corp Simulator LLC (2026) [Ru/Multi] (1.02.87) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Sandwich Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +371,7 @@ Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -371,7 +397,7 @@ Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -397,7 +423,7 @@ WW2 Rebuilder (2023) [Ru/Multi] (Build 21440516/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -423,7 +449,7 @@ Clothing Store Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -449,7 +475,7 @@ Exotica 2: Pet Shop Simulator (2026) [Ru/Multi] (1.0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -475,7 +501,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.6.2/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +527,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack FitGirl [Anniversary Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +553,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.12.1485/dlc) Repack Let's
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +579,7 @@ Cleaning Simulator (2026) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,7 +605,7 @@ Trash Goblin (2024) [Ru/Multi] (1.3.5.8836/dlc) Repack FitGirl [Complete Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +631,7 @@ Parcel Simulator (2025) [Ru/Multi] (1.0.5.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -631,7 +657,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -642,32 +668,6 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:983C43F39E44FD25381D05170DB744A6C5754F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855280   (1057966) от 22.02.2026
-
-This Is the Police (2016) [Ru/Multi] (1.1.3.0) Repack R.G. Механики
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в головокружительный водоворот преступлений, коррупции и интриг. Сыграйте роль хладнокровного начальника полиции Джека Бойда и загляните в лицо преступникам Фрибурга - города, тонущего в волнах преступности. Сумеет ли Джек дотянуть до отставки с солидным банковским счетом или окончит карьеру, покрыв свое имя позором...Тип издания: RepackРазработчик: Weappy StudioЖанр: Стратегия, Приключение, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDDB22D770346950C723A6392A1E67472AB0A0DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1086197   (152756) от 24.12.2016
+
+Врач  (2016) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юрий Михайлович работает нейрохирургом в городской больнице. Его день состоит из операций, осмотров больных, попыток выбить квоты на размещение пациентов. Каждый день он оглашает людям страшные диагнозы и, словно мольбы о помиловании, выслушивает вопросы о том, есть ли хоть какая-нибудь надежда. Его преследует один страшный образ — человека, обреченного на неподвижную (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Гоша КуценкоАктеры: Гоша Куценко, Мария Порошина, Александр Яцко, Юрий Кузнецов, Анна Михалкова, Виктория Корлякова, Алёна Хмельницкая, Любовь Руденко, Олеся Железняк, Инна ПиварсПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E10C0D2D7A53E448460CC66D326A7265F734CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968506   (152575) от 24.12.2015
 
 Эверест / Everest (2015) BDRip [1080p] ATV
@@ -6,7 +32,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +218,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 2 (2021) [AAC|~335 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +273,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +302,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -305,7 +331,7 @@ VA - CLUBWRK - Best of 2021 (2021) [AAC|~332 Kbps] <House, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -334,7 +360,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 3 (2021) [AAC|~330 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -363,7 +389,7 @@ VA - Lo-Fi to Chill: Chillout Your Mind (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -392,7 +418,7 @@ VA - Calm Down: Urban Chillout Music (2021) [AAC|~340 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -421,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ VA - Space Cafe, Vol. III (Finest Chillout & Lounge Tracks) (2018) [AAC|~310 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +503,7 @@ VA - RAM Drum & Bass Annual 2022 (2021) [AAC|~325 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +532,7 @@ VA - Space Cafe, Vol. II (Finest Chillout & Lounge Tracks) (2017) [AAC|~309 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +561,7 @@ VA - Space Cafe, Vol. I (Finest Chillout & Lounge Tracks) (2016) [AAC|~307 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,7 +590,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 6 (2021) [AAC|~336 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -619,7 +645,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [AAC|~351 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -648,7 +674,7 @@ Lara Fabian - Lockdown Sessions (2021) [AAC|~314 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -677,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -688,35 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7264275A1BAB04CC47A347358D350D2A4AFD848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519261   (149981) от 23.12.2021
-
-VA - Centum (2021) [AAC|~331 Kbps] <Progressive House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefan Addo - Everything (D-Nox & Flow & Zeo Remix) (7:23)
-02. Stefan Addo - Weltschmerz (7:11)
-03. Ed Steele - Savour the Moment (7:36)
-04. Ed Steele - Fruit & Nut (7:41)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F83724E7186AD4C3901964DE4991A8FF61998F
 ```
 
 https://mybot314.ru/tekegram_catalog/

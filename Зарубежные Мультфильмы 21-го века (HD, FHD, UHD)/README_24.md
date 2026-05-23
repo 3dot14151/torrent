@@ -1,3 +1,81 @@
+###  Публикация: 1495058   (884054) от 10.09.2021
+
+Огрики / Smelliville (2021) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Семейство Огриков на большом зеленом драконе прилетает в тихий город Нюхвиль, но местные жители почему-то им совсем не рады. И никто кроме юного изобретателя Макса и его подруги Лотти не подозревает, что только Огрики смогут спасти город от надвигающейся опасности.Производство: Германия, Бельгия / WunderWerk, Grid Animation, Verlag Friedrich OetingerЖанр: мультфильм, приключения, семейныйРежиссер: Тоби Генкель, Дженс МюллерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F050F0097CD369CCA5209B978E57E19EAEC4217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495161   (883762) от 10.09.2021
+
+Душа / Soul (2020) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Уже немолодой школьный учитель музыки Джо Гарднер всю жизнь мечтал выступать на сцене в составе джазового ансамбля. Однажды он успешно проходит прослушивание у известной клубной певицы и, возвращаясь домой вне себя от счастья, падает в люк и умирает. Теперь у Джо одна дорога — в Великое После, но он сбегает с идущего в вечность эскалатора и случайно попадает в Великое (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Грэм Нортон, Рэйчел Хаус, Анджела Бассетт, Алиси Брага, Ричард Айоади, Филисия Рашад, Доннел Роулингс, Амир-Халиб ТомпсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE711D55B628983E6B063EE4080D9CCEFBA2218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763850   (882776) от 07.03.2014
+
+Облачно... 2: Месть ГМО / Cloudy with a Chance of Meatballs 2 + Бонус (2013) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Четыре мини-фильма к полнометражному мультфильму ''Облачно... 2: Месть ГМО''.Все жители острова Поплавок покинули родной дом после событий предыдущего мультфильма. Главный герой Флинт Локвуд теперь работает в компании The Live Corp на своего кумира Честера. Но ему придется оставить свой пост когда он узнает, что его печально-известная машина все ещё работает и производит на свет опасных гибридов. Флинту предстоит ещё раз спасти мир и не дать (   Читать дальше...   )Производство: Columbia Pictures / Sony Pictures Animation / Sony Pictures ImageworksЖанр: МультфильмРежиссер: Дэвид ФейссАктеры: Анна Фэрис, Бенджамин Брэтт, Крейг Келлман, Крэйг Шоумэйкер, Терри Крюс, Коуди Камерон, Крис ПирнПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские  (полные + форсированные), английскиеПродолжительность: 00:05:02, 00:04:22, 00:05:59, 00:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE0FB0E63301E974AF3D11120D378682F2FD1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495250   (882120) от 11.09.2021
 
 Босс-молокосос 2 / The Boss Baby: Family Business (2021) BDRip [H.264/1080p] [DVO]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,85 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA9C55383E5C368E49036B09597FCFC4BA3080FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643997   (872608) от 14.04.2013
-
-День ворон / Le jour des corneilles (2012) BDRemux [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история маленького мальчика, жестокий и людоедоподобный отец которого растил его в глубоком лесу как животное и не выпускал за его пределы. Но однажды ему удается сбежать, и он добирается до ближайшего города, чтобы открыть для себя, что таких как он много и что насамом деле значит "любовь".Жанр: Рисованная анимацияРежиссер: Жан Кристоф ДюссантПерсонажи: Жан Рено, Лоран Дойч, Изабель Карре, Клод Шаброль, Шанталь Нойвирт, Бруно Подалидес, Патрик Лигарде, Филипп Юшан, Жан-Кристоф Лорье, Элоди ХуберПеревод: Профессиональный двухголосыйЯзык субтитров: Английские, французскиеПродолжительность: 01:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E550B1DF17E70C00E9754721A4D59011FAE669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643913   (872607) от 14.04.2013
-
-День ворон / Le jour des corneilles (2012) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история маленького мальчика, жестокий и людоедоподобный отец которого растил его в глубоком лесу как животное и не выпускал за его пределы. Но однажды ему удается сбежать, и он добирается до ближайшего города, чтобы открыть для себя, что таких как он много и что на самом деле значит "любовь".Производство: Франция / Canal+Жанр: ПриключенияРежиссер: Жан Кристоф ДюссантАктеры: Жан Рено, Лоран Дойч, Изабель Карре, Клод Шаброль, Шанталь Нойвирт, Бруно Подалидес, Патрик Лигарде, Филипп Юшан, Жан-Кристоф Лорье, Элоди ХуберПеревод: Двуголосый закадровый, профессиональныйСубтитры: Английские, французскиеПродолжительность: 01:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7486DD1A92B7B211FB47A8360898495EA5FEEC7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494922   (871230) от 18.09.2021
-
-Джимми Нейтрон: Мальчик-гений / Jimmy Neutron: Boy Genius (2001) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы решили совершить массированный налет на мирный и благополучный Ретровилль! В то время, как Джимми развлекался в луна-парке со своими друзьями, инопланетяне обрушились с небес, похитив при этом родителей всех детишек!
-Жизнь без строгих пап и мам, поначалу казавшаяся раем, стала совершенно невыносимой и тоскливой. Отважный Джимми Нейтрон решает спасти любимых (   Читать дальше...   )Производство: США, Испания / Paramount Pictures, Nickelodeon MoviesЖанр: Компьютерная анимация, Детский, Приключения, КомедияРежиссер: Джон А. ДэвисАктеры: Патрик Стюарт, Миган Кавана, Марк ДеКарло, Деби Дерриберри, Джефф Гарсиа, Боб Гоен, Мэри Харт, Кэролин Лоуренс, Андреа Мартин, Кэнди МилоПеревод: Дублированный, двухголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA6EA47EA45A2EE41EB5A6E5B3D30A8273A40AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

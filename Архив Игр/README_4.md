@@ -6,7 +6,7 @@ Dead Space 3 [PS3] [FULL] [En] [L] [3.55 / 4.30] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +36,7 @@ Magicka: Ну очень эпическая игра / Magicka. An Adventure of 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -68,7 +68,7 @@ Streets of Rogue (2019) [Ru/Multi] (87h.35621) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -94,7 +94,7 @@ Proteus [En] (L/1.0) 2013 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -120,7 +120,7 @@ Sly Cooper: Thieves In Time [PS3] [FULL] [USA] [En] [L] [4.30 CFW] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -148,7 +148,7 @@ Retrovirus [En] (L/1.0.5257) 2013 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -174,7 +174,7 @@ Call of Duty: Modern Warfare 3 + DLC 1-4 [Ru] (Rip/Multiplayer Only/IW5Mr29] 201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -202,7 +202,7 @@ Sideway: New York [Multi5/-] (L) 2011 | PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -230,7 +230,7 @@ Shoot Many Robots [En/Multi5] (L) 2012 | PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -258,7 +258,7 @@ Orcs Must Die! 2 / Бей орков! 2 [Multi9/+] (L) 2012 | PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -315,7 +315,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/3dlc) OriginRip R.G. Игроманы [Limi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -341,7 +341,7 @@ Out There: Omega Edition (2015) [Ru/Multi] (2.2.1) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -367,7 +367,7 @@ B.A.S.E.Jumping: Точка отрыва [P] [Eng+Rus] 2007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +397,7 @@ Dark Messiah of Might and Magic [En/Ru] (P) 2006
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +423,7 @@ Aliens: Colonial Marines [XBOX360] [Region Free] [En] [LT+1.9] (XGD2 / 15574) (2
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +452,7 @@ Just Cause 2 [PS3] [Ru] [Repack] 2010 | R.G. Inferno
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +478,7 @@ Angry Birds Star Wars [En] (L/1.1.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +504,7 @@ Crysis 2 [Ru/En] (LossLess RePack/1.9/DLC) 2011 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +531,7 @@ The Witcher Adventure Game (2014) [Ru/En/Pl] (1.2.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.3.11844) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +583,7 @@ Orcs Must Die! 2 [Ru] (Steam-Rip/1.0.0.349/5 DLC) 2012 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -638,7 +638,7 @@ Aliens: Colonial Marines [PS3] [USA] [En] [L] [4.21 / 4.30] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -667,7 +667,7 @@ Euro Truck Simulator 2 [Ru/En/Multi32] (Steam-Rip/1.3.0) 2012 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -696,7 +696,7 @@ King's Bounty: Warriors of the North - Valhalla Edition [Ru/En/Multi4] (L) 2012 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1486172   (1004828) от 30.07.2021
+
+Unbound: Worlds Apart (2021) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Unbound: Worlds Apart – захватывающий атмосферный платформер-головоломка, нарисованный вручную. Его действие разворачивается во вселенной, где все миры соединены порталами. Вы управляете Соли, одаренным ребенком с магическим даром, что может открывать порталы и управлять уникальными свойствами каждого мира, такими как обратная гравитация, манипуляции со временем, (   Читать дальше...   )Тип издания: RepackРазработчик: Alien Pixel StudiosЖанр: Adventure, Puzzle, Platform, 2DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE97114888002B0599F43888B9C96985D37BECD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486219   (1004822) от 30.07.2021
 
 Banners of Ruin (2021) [Ru/Multi] (1.0.3) License PLAZA
@@ -6,7 +32,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.0.3) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Harry Potter and the Philosopher's Stone / Гарри Поттер и Филос
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.308.05.126703.1/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Street Fighter V (2016) [Ru/Multi] (07.011/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Dodgeball Academia (2021) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Luxar (2020) [Ru/Multi] (1.0) Repack Mr_Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +189,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.23.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +215,7 @@ BDSM: Big Drunk Satanic Massacre (2019) [Ru/Multi] (1.0.33) Repack Mr_Weegley [1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +241,7 @@ Shank: Dilogy [En/Ru] (Repack) 201 - 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +267,7 @@ Pure [Ru/En] (RePack) 2008 l R.G. Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +295,7 @@ Karateka [Ru/En/Multi5] (L) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +322,7 @@ MediEvil: Dilogy [Ru] (PC/Emul) 1998-2000 | Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +350,7 @@ Soldier vs. Aliens [Ru/En] (RePack) 2013 | F4CG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +379,7 @@ Dawnstar [En] (L) 2013 | *SKIDROW*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +405,7 @@ Wasteland Angel [Ru/En/Multi4] (L) 2011 | *PROPHET*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +433,7 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +459,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.21) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +485,7 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +511,7 @@ iBomber Attack [En] (RePack) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +537,7 @@ Dungeonland: Special Edition [En/Multi4] (Steam-Rip/3.5.6.44817) 2013 | R.G. Gam
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +563,7 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +589,7 @@ We Need To Go Deeper: The Awakened (2019) [En] (1.1) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +615,7 @@ Retrovirus [En] (Steam-Rip/1.0.5251.0) 2013 | R.G. GameWorks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,7 +642,7 @@ Cargo! The Quest For Gravity / Эврика! [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -645,7 +671,7 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -658,32 +684,6 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009720EC866FDE4520679AD78B99A5D6E25BC8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973120   (980574) от 07.01.2016
-
-Kung Fu Panda: Showdown of Legendary Legends (2016) [En/Multi] (1.0) License CODEX
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпоха героев и воинов Кунг-фу и, самое главное, Легендарных Легенд! Сражайтесь вместе или против По, Мастера Тигрицы, Мастера Обезьяны, Тай Лунга, Мастера Шифу и других любимых персонажей «Кунг-фу панды» в игре «Кунг-фу панда: Столкновение легендарных легенд». В битвах, разворачивающихся в знаковых местах Долины Мира и других пространствах, принимают участие до четырех (   Читать дальше...   )Тип издания: LicenseРазработчик: Vicious CycleЖанр: Arcade (Fighting), 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4889100C7F6074129CBD37EEE25C57F7084F80C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

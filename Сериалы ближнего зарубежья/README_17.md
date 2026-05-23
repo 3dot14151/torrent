@@ -1,3 +1,82 @@
+###  Публикация: 1424467   (227403) от 17.11.2020
+
+Семейный портрет (2020) HDTVRip (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Родные братья Артём и Фёдор Быковы выбрали разные жизненные пути. Артём сделал карьеру в столице, став правой рукой крупного бизнесмена Степана Крылова. Фёдор остался в родном городе и скромно работал с отцом в местном автосервисе. Братья знали: что бы ни случилось, они могут прийти в родительский дом и здесь найти помощь и утешение. Однажды с отцом братьев случается (   Читать дальше...   )Производство: Украина / Filmstream, Vileton FilmsЖанр: мелодрамаРежиссер: Николай МихайловАктеры: Артур Логай, Пётр Рыков, Анастасия Иванова, Дарья Легейда, Александр Крыжановский, Лариса Руснак, Юрий Гребельник, Георгий Хостикоев, Наталия Васько, Полина Носыхина и др.Язык озвучки: РусскийСубтитры: Украинские (hardsub)Продолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADE4F8052513684474146EE47FE25788FC8DCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341947   (227061) от 30.11.2019
+
+Мертвый. Живой. Опасный (2006) HDTVRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня — молодая, милая и интеллигентная сотрудница библиотеки Лада, которая становится жертвой обстоятельств и неожиданно попадает в жизненный водоворот, который в один миг разрушил ее спокойный устоявшийся мир. Ее жизнь чем дальше, тем больше напоминает кошмарный сон или фильм ужасов, в котором нет надежды на хэппи-энд. Любимый муж пропал, а следователь (   Читать дальше...   )Производство: Украина / Film.uaЖанр: триллер, детективРежиссер: Сергей КрутинАктеры: Александр Ефимов, Анна Герм, Максим Аверин, Елена Коренева, Алексей Маклаков, Надежда Маркина, Михаил Горносталь, Владимир Талашко, Нина Антонова, Вячеслав НиколенкоЯзык озвучки: русскийПродолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB699140261FCD48CB77FD32917F878D19715317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736510   (223289) от 20.12.2013
+
+Нюхач (2013) HDTVRip [H.264/1080p-LQ] (серии 1-8 из 8)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Его зовут Нюхач. Он обладает сверхчувствительным обонянием, для него не существует тайн и нераскрываемых преступлений. По запаху Нюхач может рассказать все и даже больше о любом человеке: что он ел, с кем он спал, есть ли у него алиби. Уникальная способность Нюхача — его дар и проклятие одновременно.
+С одной стороны, он раскрывает самые изощренные и запутанные преступления, (   Читать дальше...   )Производство: Украина, Film.ua ProductionЖанр: Детектив, Драма, КриминалРежиссер: Артем ЛитвиненкоАктеры: Кирилл Кяро, Иван Оганесян, Мария Аниканова, Нина Гогаева, Борис Каморзин, Тимофей Каратаев, Виолетта Трыкова, Тарас Готовцев, Денис Мартынов, Александр Новосёлов, Дмитрий Усов, Пётр КрыловПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7EAED8709E4BA4E0ED53361D2FCF92FCA763F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 735365   (223124) от 20.12.2013
 
 Нюхач (2013) HDTVRip [серии 8 из 8]
@@ -6,7 +85,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_218372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -595,85 +674,6 @@ Paбoтa в муниципaльнoй cкopoй пoмoщи в oднoм из гopo�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67CC191F1D40023414AD69304011DDA78B9FE3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607886   (203444) от 28.01.2023
-
-Вкус мести (2021) WEBRip [H.264] (сезон 1, серии 1-8 из 8)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203444.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа Евгении и Антона Грановских "Лицо в тёмной воде".
-Популярная певица и актриса Анна Долецкая едва не погибает в подстроенной автокатастрофе во время гастролей. Все вокруг думают, что она мертва. Однако волею судьбы женщина оказывается на хуторе местной знахарки, которая ставит ее на ноги. Анна понимает, что за покушением стоит ее муж-продюсер (   Читать дальше...   )Производство: Украина | "Stаr Media"Жанр: детектив, мелодрама, экранизацияРежиссер: Дмитрий ЛактионовАктеры: Екатерина Климова, Кирилл Сафонов, Евгений Миллер, Яков Кучеревский, Янина Мелехова, Андрей Аверков, Ольга Гришина, Анна Иванова, Максим Самчик, Елена ХохлаткинаЯзык озвучки: РусскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E308E20FAA2A8F00323E7AAC0790772AC9484C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875523   (203087) от 05.02.2023
-
-Сваты (2010) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203087.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз бабушки и дедушки отправятся в Крым. Но они туда поедут не столько отдыхать, сколько опекать свою любимую внучку Женечку, которую родители отправили в детский лагерь «Артек». Сваты так и не научились жить без внучки, но они и не научились жить друг с другом!Производство: "Студия Квартал-95", Телеканал "Интер", УкраинаЖанр: семейная комедияРежиссер: Андрей ЯковлевАктеры: Людмила Артемьева, Фёдор Добронравов, Татьяна Кравченко, Анатолий Васильев, София Стеценко, Николай Добрынин, Маргарита ШубинаПродолжительность: ~ 00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3565471A207C36F9B6B42B75419A2C00CCA397E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616443   (201972) от 02.03.2023
-
-Родная мачеха / Мать-и-мачеха (2021) WEBRip [H.264] (сезон 1, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ложное обвинение в организации убийства, предательство близких, вынужденное бегство и страшная авария. Другая женщина отчаялась бы и утратила всякую надежду, но Мария не сдается. Спустя несколько лет она возвращается в родной город с твердым намерением доказать свою невиновность и вернуть семью, которую потеряла. Для этого ей приходится стать мачехой родным сыну (   Читать дальше...   )Производство: Украина / "IVORY FILMS"Жанр: мелодрамаРежиссер: Сергей КрутинАктеры: Ольга Арнтгольц, Ирина Таранник, Иван Оганесян, Александр Никитин, Виталий Кудрявцев, Александр Наумов, Елена Коренева, Зоряна Марченко, Елена Дудич, Максим РадугинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:49:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5658003A994D9B16DB9D955CA6C6F3D0B49118B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

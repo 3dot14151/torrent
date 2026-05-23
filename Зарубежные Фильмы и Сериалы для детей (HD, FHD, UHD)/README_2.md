@@ -1,3 +1,57 @@
+###  Публикация: 972304   (982707) от 05.01.2016
+
+Страж-лев: Возвращение Рыка / The Lion Guard: Return of the Roar (2015) WEB-DL [H.264/1080p - LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Второму детенышу царя зверей Симбы и Налы по имени Кион уготована особая участь в Прайде. Он должен стать на защиту этой территории создав свою львиную гвардию. Именно Кион должен стать защитником Прайда, ведь он овладел могущественным рыком, которым обладали его далекие предки. Однако, вместо того, чтобы взять себе в помощники львов, Кион собирает отряд из других (   Читать дальше...   )Производство: СШАЖанр: Приключения, СемейныйРежиссер: Хауи ПаркинсАктеры: Джефф Беннетт, Дусан Браун, Макс Чарльз, Сара Хайланд, Джеймс Эрл Джонс, Эндрю Кисино, Роб Лоу, Vargus Mason, Хари Пэйтон, Мэдисон ПеттисПеревод: ДублированныйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD08630F53D8810C58A3F964A83D12DB5CD9E62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613760   (982419) от 04.02.2013
+
+Белоснежка / Snow White (2001) [H.264/720p-LQ] BDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рождение чудесной Белоснежки омрачилось смертью матери. Теперь ее отец по имени Джон должен найти для ребенка молоко. Но спасение девочки-ангела случилось внезапно. Отец растопил своими слезами замерзшего волшебника, который в благодарность обещал исполнить три желания Джона…
+
+Однако «добрый гений» замыслил превращение собственной сестры, мерзкой и уродливой Элспит, (   Читать дальше...   )Производство: Канада, США, Германия / Babelsberg International Film Produktion GmbH, 	Hallmark Entertainment, Sextant Entertainment Group Inc., Snow White Productions Inc.Жанр: Фэнтези, Приключения, СемейныйРежиссер: Кэролин ТомпсонАктеры: Кристин Кройк, Миранда Ричардсон, Том Ирвин, Вера Фармига, Клэнси Браун, Винсент Скьявелли, Хосе Суньига, Майкл Дж. АндерсонПеревод: Профессиональный (двухголосый закадровый)Субтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01692224718B96F38D8ABDBDECD8420EE7AB2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974435   (976711) от 11.01.2016
 
 Рождественские злоключения Мог / Mog's Christmas Calamity (2015) BDRip [H.264/1080p]
@@ -6,7 +60,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C63E03B1F7E81F5C3ED412558C688A862011C527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368675   (906807) от 21.03.2020
-
-Хроники Нарнии: Принц Каспиан / The Chronicles of Narnia: Prince Caspian (2008) WEB-DL [H.264/1080p] [Open Matte]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люси, Сьюзен, Эдмунд и Питер Пэванси возвращаются в Нарнию. В Англии прошло совсем немного времени, а в Нарнии — века. Страна находится под гнетом зловещего короля Мираза. Но у волшебного королевства есть надежда — юный принц Каспиан. Чтобы помочь Каспиану отвоевать трон, четверо героев собирают армию мифических существ во главе с Асланом — основателем и покровителем (   Читать дальше...   )Производство: США, Польша, Словения, Чехия, Великобритания / Walt Disney Pictures, Walden MediaЖанр: фэнтези, боевик, приключения, семейныйРежиссер: Эндрю АдамсонАктеры: Бен Барнс, Джорджи Хенли, Скандар Кейнс, Уильям Моусли, Анна Попплуэлл, Серджо Кастеллитто, Питер Динклэйдж, Тильда Суинтон, Уорвик Дэвис, Винсент ГрассПеревод: Дублированный, многоголосый профессиональныйСубтитры: русские, английскиеПродолжительность: 02:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793F8F038AAE1C56C9D29961A2565D21AFA2D92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866735   (905880) от 06.02.2015
-
-Каникулы маленького Николя / Les vacances du petit Nicolas (2014) BDRip [H.264/1080p] [Line]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебный год наконец подошел к концу, и наступили долгожданные каникулы. Малыш Николя с родителями и бабушкой отправляется к морю в отель «Красивый берег». У Николя в распоряжении море, отель, лес, друзья, семья, смотритель пляжа и тренер по плаванию — словом, все, чтобы каникулы выдались по-настоящему запоминающимися. Не тратя времени даром, Николя сразу же обзаводится (   Читать дальше...   )Производство: Франция, Fidlit Films, M6 Films, Saint Sbastien Froissart, Canal+Жанр: КомедияРежиссер: Лоран ТирарАктеры: Матео Бойсселье, Валери Лемерсье, Кад Мерад, Доминик Лаванан, Франсуа-Ксавье Демезон, Були Ланнерс, Лука Дзингаретти, Жюдит Анри, Франсис Перрен, Даниэль ПревоПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3DB929E483DA9C167732EAE44E201F2FD3EFBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

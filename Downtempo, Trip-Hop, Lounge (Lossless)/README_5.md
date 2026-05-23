@@ -1,3 +1,264 @@
+###  Публикация: 1477704   (1010806) от 16.06.2021
+
+VA - On the Beach: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Le Grec - Romantique Part Un (Sensitive Mix) (4:40)
+02. Circles Of Sound - Still Believing (5:18)
+03. Leo de la Rosa & Maneela - Big Blue (4:20)
+04. Marga Sol - On the Beach (4:09)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070420382EA5872B95601E01D5257EC68DF1BCE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478492   (1010341) от 19.06.2021
+
+VA - Ambiental Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Calma (5:28)
+02. Ann Grace - Vega - Original Mix (7:11)
+03. Michael E - Infinite Beauty - Original Mix (4:54)
+04. Beamy - Gawain (4:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAF45D9E90384D40344259A361CC4D1D9E11629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982416   (1009484) от 24.06.2021
+
+De-Phazz - Discography 42 Releases (1997-2020) Mole Listening Pearls, Phazz-a-delic [FLAC|Lossless|tracks+.cue, tracks] <Acid Jazz, Trip Hop, Soul, Future Jazz, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. I Saw It on the Radio (01:47)
+ 02. Sabbatical (Naive) (03:29)
+ 03. The Mambo Craze (Naive) (03:24)
+ 04. Quicksand (04:52)(   Читать дальше...   )Тип издания: CD, WebЖанр: Acid Jazz, Trip Hop, Soul, Future Jazz, Downtempo •Продолжительность: 36:03:52 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41927135A32CD2697C3A1E33822D52EF23555B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480113   (1009162) от 27.06.2021
+
+VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Fontaine - Lujon (4:11)
+02. Seahawks - Escape Hatch (Edit) (4:55)
+03. Key Tronics Ensemble - Calypso of House (Sicania Soul Reprise) (3:51)
+04. The Ballistic Brothers - A Beautiful Space (Edit) (4:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8439A859E5A80E805DF294173116850FB766ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480767   (1008712) от 30.06.2021
+
+VA - Acoustic Guitar Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. JP Cooper - September Song - Guitar Acoustic (3:32)
+02. Filip Rudan - Blind (2:59)
+03. Lewis Capaldi - Before You Go - Guitar Acoustic (3:38)
+04. Vinko Ćemeraš & Talvi Tuuli - A Quiet Storm For Her (3:35)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B829179034E3EF78612BBD7DF7544E2F665E5DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480970   (1008597) от 01.07.2021
+
+VA - Chilled Orient: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Sami Sivananda - Temple Tunes - Original Mix (6:45)
+02. Mirage Of Deep - Road of Life (Frontiers of Asia) - Original Mix (5:36)
+03. Marga Sol - Awakening - Original Mix (4:20)
+04. Vellúa - Navin - Original Mix (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4DBCFE214FD2BAC9E1B03C7D570263C1297742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246856   (1008419) от 02.07.2021
+
+Krystian Shek | Tosa Inu - Discography 40 Releases (2003-2021) [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Dub, IDM, Trip Hop, Techno, House, Experimental, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Tri (05:05)
+ 02. Habitat (feat. Surya) (04:19)
+ 03. Black Chocolate (03:54)
+ 04. Cake Daddy (04:13)(   Читать дальше...   )Тип издания: CD, WebЖанр: Downtempo, Dub, IDM, Trip Hop, Techno, House, Experimental, Ambient •Продолжительность: 21:46:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CC7B194FCC258DAF89E0EBABC2B6841DB57A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228470   (1008056) от 04.07.2021
+
+All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Recordings [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Day & Night (Five Eight Alt Version Unreleased) (02:26)
+ 02. In the Sky (Unreleased Track) (03:11)
+ 03. Spring Day (Unreleased Track) (02:56)
+ 04. Four Three vs Galaxy of Light (Feat Selena Cross) (05:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield •Продолжительность: 58:21:37 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69167DE367C349F69C364832BD32155BA5DB30D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482477   (1007616) от 08.07.2021
+
+VA - Watching the Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Blue Sky - Original Mix (2:58)
+02. Peter Pearson - Love Chills - Original Mix (5:58)
+03. The Soul Crusaders - Heroes (5:45)
+04. Mission Brown - Watching Clouds - Original Mix (6:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2416BC9860BF003EBB16DF1FA6B99F8E61D53358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483060   (1007195) от 11.07.2021
 
 Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
@@ -6,7 +267,7 @@ Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +295,7 @@ Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +324,7 @@ VA - Coffee & Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -92,7 +353,7 @@ Emancipator - Discography 37 Releases (2006-2021) Loci Records [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -121,7 +382,7 @@ Dr. Atmo - Discography 18 Releases (1992-2021) Fax +49-69/450464, Logic Records,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -150,7 +411,7 @@ VA - A​.​M Study Session 1-4 (2020-2021) Lofi Girl / ChilledCow Records [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -179,7 +440,7 @@ VA - Bonfire on the Beach: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -208,7 +469,7 @@ V.A. - Cafe Del Mar Essentials (Vol. 1) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -237,7 +498,7 @@ York - Islanders (2012) Planet Love Records #ARDI3244 [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +527,7 @@ VA - Secret Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +556,7 @@ VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +585,7 @@ VA - Lavender in Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +614,7 @@ VA - Chillout And Ambient Pieces, Vol. 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +643,7 @@ V.A. - Bossanova Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +672,7 @@ VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balear
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +701,7 @@ Morcheeba Productions - Cool Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -469,7 +730,7 @@ VA - Warm Yourself Lounge (Chillout Your Mind) (2020) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,279 +744,6 @@ VA - Warm Yourself Lounge (Chillout Your Mind) (2020) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34C7F6C4EE6E906F5225585E1F721E1AA386F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611584   (987973) от 31.01.2013
-
-V.A. - Vintage Cafe 7 - Covered In Gold (4CD) (2012) [FLAC (tracks+cue)|Lossless]<Lounge, Chillout, Jazzy>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987973.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:17:43
-
-01. Topazz - Corcovado
-02. Bassa Nostra - Roxanne Nao Ligar
-03. Sagi Rei - Right In The Night
-04. Montefiori Cocktail - Gypsy Woman
-05. La Natives - Beautiful
-06. Rajaton - Voulez-Vous
-07. Moondust Feat. Querubyna - In Between Days(   Читать дальше...   )Жанр: Lounge, Chillout, JazzyПродолжительность: 05:12:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355039   (985656) от 24.01.2020
-
-Morcheeba - Part Of The Process (The Collection) (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Looking In (4:07)
-02. Blindfold (4:38)
-03. Shoulder Holster (4:04)
-04. Otherwise (3:44)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, Downtempo |Продолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600EAB030CC545E6A9603AAFBE2A3995A44CD3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613278   (984229) от 03.02.2013
-
-V.A. - Lounge Del Mar (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Chillout, Lounge, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc1
-Продолжительность: 00:55:36
-
-01. Johannes Huppertz - The Swing
-02. Line - Stay Awhile
-03. Superchrome - U'Bar
-04. Aerobium - Xerotix
-05. Five Seasons - Bridges Of Amsterdam
-06. Newton feat Twila.Too - New Beautiful Life
-07. Jane Maximova feat. Dmitry Raschepkin - Morning Bird(   Читать дальше...   )Жанр: Chillout, Lounge, Deep HouseПродолжительность: 01:55:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356342   (979111) от 30.01.2020
-
-VA - Distant Mountains Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep - The Mountain (432Hz) (Original Mix)
-02. Peter Pearson - Autumn Whispers (Original Mix)
-03. Michael E - Cirrus (Original Mix)
-04. La Estación Del Mar - A Flute in the Mood (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43E233A6AE4E08ADB3ACA629631A3F8A240D907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974593   (975729) от 12.01.2016
-
-Blank & Jones - Chilltronica №5 (2015) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Interstellar (Marc-George Infinite Reprise) (4:40)
-02. Troels Hammer - Azur (2:01)
-03. Marc-George - World of Life (5:20)
-04. Blank & Jones - White Light (7:34)(   Читать дальше...   )Жанр: Downtempo, Ambient, ChilloutПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B348A3DDF26D6D52249ADB3BDB40CF781673153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357464   (974346) от 03.02.2020
-
-Schwarz & Funk - The Deeparture Sessions (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Nu Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point of No Return (6:25)
- 02. Communication (4:36)
- 03. Bleach of the Night (5:42)
- 04. Paresse (5:46)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Nu JazzПродолжительность: 01:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B513C1E3567DD8A6DAEFAB17220C9EEBB4D32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359084   (966133) от 10.02.2020
-
-VA - Erotica Vol. 5 (Most Erotic Chillout & Smooth Jazz Tunes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Peter Pearson - A Dream in Your Eyes (Original Mix)
-02 Michael e - It's Like Floating (Original Mix)
-03 La Estación Del Mar - A Sax in the City (Original Mix)
-04 Mo'jardo - The Way She Moves (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BC246164A1F0432E482872A22B9BED78BB96F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978216   (963441) от 23.01.2016
-
-Adam Fielding - Discography 11 Releases (2008-2015) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Deep House, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renew (03:43)
- 02. Changes (02:27)
- 03. Catacombs (03:58)
- 04. Cards (03:26)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Experimental |Продолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF0FBF5DED6F0AA085BFCCCD68BCEB227EB1DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980138   (957156) от 28.01.2016
-
-Massive Attack - Ritual Spirit (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Experimental, Abstract Hip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Editors (feat. Roots Manuva) (04:46)
-02. Ritual Spirit (feat. Azekel) (03:55)
-03. Voodoo In My Blood (feat. Young Fathers) (04:01)
-04. Take It There (feat. 3D/Tricky) (04:31)Жанр: Trip Hop, Experimental, Abstract Hip HopПродолжительность: 00:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D916D1D17FC7085DAC714D63154E4448D889A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

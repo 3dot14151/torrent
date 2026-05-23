@@ -1,3 +1,55 @@
+###  Публикация: 1409836   (440729) от 19.09.2020
+
+Pop in Q | Поп и Кью [2016, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наконец-то завтра выпускной. Но не тут-то было. Так и не попав на церемонию вручения дипломов, пять самых обычных учениц средней школы переносятся в параллельный мир, которому грозит огромная опасность. Чем же обыкновенные, ничем не примечательные девушки смогут помочь? Ответ лежит на поверхности. Танец, способный объединить пять девичьих сердец. Им необходимо полюбить (   Читать дальше...   )Производство: Toei Animation / 東映アニメーションЖанр: приключения, фэнтези, музыкальныйРежиссер: Мияхара НаокиПеревод: А. БутерЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4513ABC7984AC1FFD90411C9D81EDB6EFBCC9809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409972   (440593) от 19.09.2020
+
+Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2020, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь, Какуси Гото. Он мангака, специализирующийся на эротических историях. А ещё у него есть дочь Химэ, которая учится в четвёртом классе. Для Какуси нет ничего важнее любимой дочурки. И именно поэтому он делает всё, лишь бы она… не узнала о его профессии! Ведь тогда девочка не то, что разочаруется в отце — наверняка ещё и возненавидит! С этого и начинается (   Читать дальше...   )Производство: Студия Ajia-dou / 亜細亜堂Жанр: комедия, повседневностьРежиссер: Мурано ЮтаПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3636B99ACFCF7B5AF12B2DDCC62C5A36B3AF987D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409960   (440587) от 19.09.2020
 
 BPS: Battle Programmer Shirase | Боевой программер Сирасэ [2003, TV, 15 из 15] BDRip 1080p raw
@@ -6,7 +58,7 @@ BPS: Battle Programmer Shirase | Боевой программер Сирасэ 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dragon's Dogma | Догма дракона [2020, Web, 7 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Lost Butterfly | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Legend of the White Whale 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ The Idolmaster Movie: Kagayaki no Mukougawa e! | The Idolmaster Movie: Beyond th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Joukamachi no Dandelion / Castle Town Dandelion / Одуванчик из при
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ Listeners | Слушатели [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Recorder to Randsell Mi / Флейта в рюкзаке Ми [2013, TV, 12 + 1 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] We
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Uchuu no Kishi Tekkaman Blade | Star Knight Tekkaman Blade | Space Knight Tekkam
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +557,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +583,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +610,7 @@ Shaman King | Шаман Кинг [2001, TV, 64 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +636,7 @@ TV Yarou Nanana: Kaibutsu Kraken o Oe! | Wacky TV Nanana: Hunt the Legendary Kra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +664,7 @@ Little Witch Academia: Mahou Shikake no Parade | Little Witch Academia: The Ench
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,60 +675,6 @@ Little Witch Academia: Mahou Shikake no Parade | Little Witch Academia: The Ench
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B97A2CC6E301EF9F09DD71587F1F69CCEFEF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519985   (428094) от 11.10.2014
-
-Sankarea | Санка Рэа [2012, TV 12 эп. + 1 SP + OVA 2 эп.] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428094.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летний Тихиро Фуруя – сын буддистского священника и потому куда проще относится к сверхъестественному. Возможно, из-за ранней смерти матери парень с детства одержим темой зомби, возвращения из мертвых. Фуруя коллекционирует фильмы, мангу, фигурки и даже мечтает жить с… ну, вы поняли. Впрочем, одноклассники считают Тихиро суровым неформалом, а кузина Ранко находит его увлечение весьма романтичным. Вот только нелепая гибель домашнего кота надломила героя, и он решил оживить любимца тайным зельем из древнего (   Читать дальше...   )Жанр: комедия, романтика, мистикаРежиссер: Хатакеяма МаморуПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5081A2CB4A78ADEAF42CF642DDEA473AC9723F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708580   (427796) от 09.10.2013
-
-Fushigi no Umi no Nadia / Nadia Secret of Blue Water / Надя с загадочного моря [1990, TV, 39 + Omake] BDRip 1080p raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основано на романе Жюля Верна "20.000 лье под водой".
-
-1889 год. 13 лет назад в королевстве Тортес произошёл государственный переворот, в ходе которого было уничтоженно древнее оружие, «Вавилонская Башня», управляемое одним из камней «Голубая Вода» и теоретически способное истребить всё живое на земле. Вместе с оружием погибло и королевство. Выжившие разбились (   Читать дальше...   )Производство: Студия GAINAXЖанр: приключения, фантастика, романтикаРежиссер: Анно Хидэаки / Anno HideakiПеревод: Nimrod | EikenClubЯзык озвучки: японскийЯзык субтитров: Русский; АнглийскийПродолжительность: ТВ (39 эп.), 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAF913E774E418F7FA70F2B63F03465CCAFBB8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

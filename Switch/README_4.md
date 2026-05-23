@@ -6,7 +6,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2024) [Switch] [USA] 18.1.0 [NSZ] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +32,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Switch] [USA] 18.1.0 [NSZ] [L
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vampire Survivors (2023) [Switch] [USA] 18.1.0 [NSP] [License / 1.12.108 / DLC] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +84,7 @@ Prince of Persia The Lost Crown (2024) [Switch] [EUR] 17.0.1, Atmosphere 1.6.2 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cocoon (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Switch] [EUR] 18.1.0, A
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dave The Diver: Anniversary Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +188,7 @@ Shin Megami Tensei V: Vengeance (2024) [Switch] [USA] 18.1.0, Atmosphere 1.7.1 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmos
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sea of Stars (2023) [Switch] [EUR] 19.0.1, Atmosphere 1.9.0 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +266,7 @@ Animal Well (2024) [Switch] [EUR] 19.0.1, Atmosphere 1.9.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +292,7 @@ Super Bomberman R 2 (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +318,7 @@ Outer Wilds: Archaeologist Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dredge: Complete Edition (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +370,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Switch] [EUR] 18.0.1, Atmo
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +396,7 @@ Stray (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +422,7 @@ Have A Nice Death (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.5.1 [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +448,7 @@ World of Goo 2 (2024) [Switch] [EUR] 18.0.1, Atmosphere 1.7.1 [License] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +474,7 @@ Storyteller (2023) [Switch] [EUR] 16.0.3, Atmosphere 1.5.4 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +500,7 @@ Pentiment (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +526,7 @@ Hollow Knight (2018) [Switch] [USA] 20.1.5 [NSZ] [License / DLC / 1.4.3.2b] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hollow Knight: Silksong (2025) [Switch] [USA] 20.1.5, Atmosphere 1.9.4 [License]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 934023   (504084) от 03.09.2015
-
-VA - Сто Хитов Из Прошлого: Дискотека 80х (2015) [MP3|320 кб/с]<Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandra - Secret Land (Remix)
-02. Corona - Baby Baby
-03. Technotronic - Recall
-04. Double You - Because I'm Loving You(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 06:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56302A9C780F906C8BD5288BB2107CCF3831839E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540332   (503799) от 29.08.2012
 
 VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop>
@@ -35,7 +6,7 @@ VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +41,7 @@ VA - Молодежный хит осенний. Top 100 (2012) [MP3|256 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -105,7 +76,7 @@ VA - Самые Лучшие Хиты радио DFM 50+50 (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +111,7 @@ VA - Попсовая соточка MTV. Сборник 3 (2015) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +140,7 @@ VA - Летние super новинки. Часть 7. 50/50 (2015) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +169,7 @@ VA - 150 хитов в машине (2012) [MP3|128-192 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -233,7 +204,7 @@ VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +239,7 @@ VA - Радио Новинки Проверенные Качеством 50/50 (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +274,7 @@ VA - Дискотека Бездна Русская Vol. 7 (2012) [MP3|128 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -338,7 +309,7 @@ Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -367,7 +338,7 @@ Jennifer Paige - Compilation (2022) [MP3|320 Kbps] <Pop, R&B>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +367,7 @@ VA - 100 Canzonissime Italiane (2000) BoxSet 7CD [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +402,7 @@ VA - US Top 40 Single Charts (01-09-2012) [MP3|96-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +437,7 @@ VA - Подарок любимой женщине / Подарунок коха�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +472,7 @@ VA - Золотая 200-ка Дорожное Радио (2012) [MP3|128 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +507,7 @@ VA - Empire Records - Church 3 (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +536,7 @@ Ten Sharp - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +565,7 @@ VA - German TOP100 Single Charts (03-09-2012) [MP3|~186~299 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,7 +600,7 @@ VA - German Top 100 Single Charts 09.08.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -657,7 +628,7 @@ VA - Зарубежный Парад Музон В Кайф (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -692,7 +663,7 @@ VA - Осенний звездный Hit-парад (2015) [MP3|256-320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -721,7 +692,7 @@ VA - Arabian Club Night (2010) [MP3|256 kbps]<Pop | Club | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_497145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -747,7 +718,7 @@ VA - Супер Хитовый Заряд Новинок Русский (2012) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -782,7 +753,7 @@ VA - Попсовая соточка MTV. Сборник 4 (2015) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -811,7 +782,7 @@ VA - German Top 100 Single Charts 24.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -825,6 +796,41 @@ VA - German Top 100 Single Charts 24.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B8C308D71E2369DA38C41A51FB57473337DDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543396   (496087) от 05.09.2012
+
+VA - Dance Вечеринка Non-Stop. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Jennifer Lopez - Bailar Nada Mas
+002. Ferry Corsten And Armin Van Buuren - Brute (Radio Edit)
+003. Michel Telo - Bara bara bere bere
+004. Steve Roberts - You Have One (Radio Edit)
+005. Romano e Sapienza - Tacata
+006. Marquiz & Juliette feat. Starchild - Turn me on
+007. Meiko - Stuck On You
+008. Tarkan feat. Ayhan Dogan - Gulusu Bir Baska
+009. Dash Berlin Feat. Jonathan Mendelsohn - World Falls Apart
+010. Fly Project - Back In My Life (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7370A8C8F39B6BF9E53ABF72477453E1A8ED11
 ```
 
 https://mybot314.ru/tekegram_catalog/

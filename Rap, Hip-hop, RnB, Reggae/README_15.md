@@ -1,3 +1,119 @@
+###  Публикация: 1400834   (714885) от 07.08.2020
+
+Becko - Inner Self (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Self [00:01:26]
+02. Loose Lips Sink Ships [00:02:44]
+03. Unbreakable [00:02:50]
+04. Cyberfriend [00:03:23](   Читать дальше...   )Жанр: Rap, Rapcore, Nu MetalПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC2EC510EAED3C0A8C9878966805CB3E6B1A67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401009   (713333) от 08.08.2020
+
+Trueтень & Алексей Сулима - Калейдоскоп (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Калейдоскоп [00:04:19]
+02. Когда тебя забуду [00:03:16]
+03. Такси [00:04:13]
+04. Горизонт [00:03:43](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88EA0A180D1E50B7E2BF1C6373DFF572FF5FE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286281   (713049) от 02.03.2019
+
+Lil Pump - Harverd Dropout (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Drop Out (02:01)
+02. Nu Uh (01:54)
+03. I Love It (feat. Kanye West) (02:08)
+04. ION (feat. Smokepurpp) (02:21)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95EEC64A7D3406887D56ABE5AFABB9C64E6930DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400968   (713033) от 08.08.2020
+
+NLE Choppa - Top Shotta (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Trap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Daydream [00:02:22]
+02. Double Bacc [00:03:15]
+03. Make Em Say (feat. Mulatto) [00:03:23]
+04. Camelot [00:02:29](   Читать дальше...   )Жанр: Rap, Hip-Hop, TrapПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E133D77D3CE7A1FC014EC05E7E0267F9C189A61D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401181   (711011) от 09.08.2020
 
 Felt - Felt 4 U (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -6,7 +122,7 @@ Felt - Felt 4 U (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +180,7 @@ Sting & Shaggy - 44/876 (2018) [MP3|320 Kbps] <Reggae, Pop>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +209,7 @@ Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +238,7 @@ POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Chillhop Essentials Summer (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, J
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Vintage Reggae Cafe - The Definitive Collection, Vol. 2 (2019) [MP3|320 Kbp
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Vintage Reggae Cafe Vol 4 (2015) [MP3|320 кб/с] <Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +412,7 @@ Alborosie meets The Wailers United - Unbreakable (2018) [FLAC|Lossless|tracks + 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Vintage Reggae Cafe Vol 5 (2016) [MP3|320 кб/с] <Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sting & Shaggy - 44/876 (2018) Delux [FLAC|Lossless|WEB-DL|tracks] <Reggae, Pop-
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jah Khalib - Баха и Дмитрий Карантино (2020) [MP3|320 Kbps]
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +586,7 @@ Nyctophiliac - Ill Side Of Town (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, D
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +673,7 @@ Rap Прорыв - Выпуски 1-8 (2000-2006) [MP3|320 kbps]<Рэп, Хип-
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +702,7 @@ Tammy Rivera - Fate (2018) [MP3|320 Kbps] <RnB, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +731,7 @@ L'One - Пангея (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,122 +745,6 @@ L'One - Пангея (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D5A34F9B0DE212DEEA0E118D9B2B5B812C97C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290559   (678241) от 20.03.2019
-
-VA - Chillhop Essentials - Spring (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, ChillHop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Wednesday – Murmuration (feat. Shopan) (2:36)
-02. Cloudchord x G Mills – Sunlit (3:05)
-03. Plusma – Marmots Dance (2:25)
-04. masked man – Ish Happens (1:24)(   Читать дальше...   )Жанр: Hip-Hop, ChillHop, Trip Hop, Jazz FusionПродолжительность: 01:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7682B4708B829FC1B914B923AE1DB363AADB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290443   (678018) от 20.03.2019
-
-VA - 100 Hits The Best R&B Album (2018) 5CD, Box Set [FLAC|Lossless|tracks + .cue] <RnB, Funk, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aretha Franklin – A Deeper Love
-02. Alison Limerick – Where Love Lives
-03. Diana King – Shy Guy
-04. Ini Kamoze – Here Comes The Hotstepper(   Читать дальше...   )Жанр: RnB, Funk, SoulПродолжительность: 06:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BB10EAC1C60F2E2EE0347F01C7E188606BB956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290439   (676317) от 21.03.2019
-
-Гарри Топор - Визморианские хроники (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зверь (2:50)
-02. Индиго (3:15)
-03. Безруков (2:55)
-04. Волчок (2:42)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E9B228F11813C25AAF166BE977DE12EDB7E5C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136470   (674489) от 22.05.2017
-
-Snoop Dogg - Neva Left (2017) [MP3|320 kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neva Left (5:07)
-02. Moment I Feared (feat. Rick Rock) (2:27)
-03. Bacc In Da Dayz (feat. Big Tray Deee) (3:49)
-04. Promise You This (2:51)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071218B731360372EBD2F62DB606AFF880C06EB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

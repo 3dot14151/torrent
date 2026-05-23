@@ -1,3 +1,57 @@
+###  Публикация: 1377799   (847668) от 24.04.2020
+
+Голиаф / Goliath (2018) WEB-DLRip [H.264] (сезон 2, серии 1-8 из 8) NewStudio [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой сериала – опальный адвокат Билли МакБрайд – переживает нелегкий период, пытается наладить отношения с дочерью и бывшей женой, восстановить карьеру и хоть как-то заработать. Неожиданно ему выпадает шанс изменить свою жизнь и вернуть себе былую славу.Производство: США / Amazon Studios, PicrowЖанр: драмаРежиссер: Лоуренс Триллинг, Дэнни Гордон, Алик СахаровАктеры: Билли Боб Торнтон, Таня Рэймонд, Нина Арианда, Диана Хоппер, Джули Бристер, Ана де ла Регера, Уильям Хёрт, Шелби Рабара, Дэвид Сампен, Марк Дюпласс и др.Перевод: Многоголосый профессиональный (NewStudio)Субтитры: русские, английскиеПродолжительность: ~00:50:00 серияРеклама: присутствует реклама
+
+Внимание! Присутствует ненормативная лексика.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68590AC96AD418622119F8F41769D8D459D599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499711   (846048) от 03.10.2021
+
+Королевская служба летающих врачей / RFDS: Royal Flying Doctor Service (2021) WEBRip (сезон 1, серии 1-8 из 8) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о врачах и медсестрах, пилотах и вспомогательном персонале Королевской службы летающих врачей, которые решают уникальные задачи экстренного спасения в некоторых из самых негостеприимных мест в Австралии.Производство: Австралия, Endemol Shine AustraliaЖанр: драмаРежиссер: Дженнифер Лиси, Джереми Симс, Адриан Расселл УиллсАктеры: Эмма Хэмилтон, Стивен Пикок, Эшли Рикардо, Джек Скотт, Джастин Кларк, Sofia Nolan, Ash Hodgkinson, Роб Коллинз, Thomas Weatherall, Родни АфифПеревод: Многоголосый профессиональный  - BaibaKoЯзык озвучки: русскийПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281FC11433C2AE3BCE6DD6DFDC3E3FC45D963D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483248   (843922) от 04.10.2021
 
 По волчьим законам / Animal Kingdom (2021) WEBRip [H.264/1080p-LQ] (сезон 5, серии 1-13 из 13) LakeFilms [AD]
@@ -6,7 +60,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8F891BF14F9BE70252BCE31F172026ADE8D1E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902153   (808967) от 21.04.2016
-
-Супердевушка / Супергёрл / Supergirl (2015) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-20 из 20) (NewStudio) [AD]
-
->>След.
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808967.jpg" />
-</div>
-
-
-###  Подробнее
-
-В двенадцать лет Кара Зор-Эл была вынуждена покинуть родную планету Криптон. На Земле её приютила семья Дэнверс. Всю свою земную жизнь она тщательно скрывала свои сверхспособности. Сейчас Каре 24 года, она работает в крупной медийной корпорации помощником руководителя. Никто из её знакомых не знает о том, кто она на самом деле, и девушку это вполне устраивает. Но (   Читать дальше...   )Производство: СШАЖанр: фантастика, боевик, приключенияРежиссер: Глен ВинтерАктеры: Мелисса Бенойст, Дерек Мио, Бен Бегли, Лаура Бенанти, Мехкад Брукс, Дин Кэйн, Калиста Флокхарт, Тони Френч, Роберт Гант, Дэвид Хэрвуд и др.Перевод: Профессиональный многоголосый закадровый - NewStudioФормат: MKVПродолжительность: ~ 00:45:00 серияРеклама: присутствуют голосовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B9A37E8B881EFA469C87CE80F18DC2EC023DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504922   (808210) от 25.10.2021
-
-Дуайт в сияющих доспехах / Dwight in Shining Armor (2021) WEB-DLRip [H.264/720p-LQ] (сезон 5, серии 1-10 из 10) OmskBird [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток по имени Дуайт во время прогулки случайно проваливается в заброшенный тоннель и находит там принцессу-воительницу Гретту, которая спит вот уже тысячу лет. Появление молодого человека разрушает магические чары, и Гретта пробуждается. Вскоре вслед за принцессой возвращается к жизни и придворный маг Болдрик, а вместе с ним и древние злодеи, мечтающие захватить (   Читать дальше...   )Производство: США / BYU TelevisionЖанр: фэнтези, комедия, приключенияРежиссер: Джеффри Дж. Хант, Джеймс Ларкин, Эял ГординАктеры: Слоун Морган Сигел, Кэйтлин Кармайкл, Джоэль МакКрэри, Даниэль Бисутти, Ивэн Хофер, Джошуа Бреслоу, Бонита Фридериси, Марк Фарли, Эбби Кобб, Брайан Льюис и другие.Перевод: Многоголосый закадровый (OmskBird)Язык озвучки: русский, английскийСубтитры: русские (forced - только в 1-ой серии)Продолжительность: ~00:24:10 серияРеклама: Присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176541C65AD5EA731E8748024BF1AB81BFDD9241
 ```
 
 https://mybot314.ru/tekegram_catalog/

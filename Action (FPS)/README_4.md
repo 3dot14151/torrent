@@ -1,3 +1,107 @@
+###  Публикация: 1134728   (965825) от 10.02.2020
+
+Kona (2017) [Ru/Multi] (14034) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Kona - атмосферный приключенческий хоррор с головоломками и увлекательным сюжетом, в котором вы будете расследовать исчезновение нескольких обитателей северного Квебека в 1970 году! Помимо исследования обширной местности и расследования исчезновения людей, вам предстоит встретить нечто ужасное и смертельно опасное. Октябрь 1970 года. В северном Квебеке наступила (   Читать дальше...   )Тип издания: RepackРазработчик: ParaboleЖанр: Adventure, 3D, 1st PersonЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF819BB92E1FF19E9F541AC3267519FEC4B956F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277292   (962190) от 01.01.2011
+
+Project: Snowblind / Операция Снегопад  [Ru/En] (P) 2007
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Гонконг, 2065 год. Повстанцы ведут интенсивные боевые действия против правящего режима КНР. Нейтан Фрост, обычный лейтенант международной армии «Свободная коалиция» становится участником добровольной программы по превращению людей в супербойцов. С помощью биоимплантатов он обретает сверхчеловеческие способности и отправляется на передовую линию борьбы с авторитарным режимом.Игра Operation Snowblind представляет собой не просто экшен– вам придется не только вести открытый бой, миссии поражают своим разнообразием и варьируются от эпизодических потасовок до подрывных операций в тылу врага. Бороться с диктатурой вам поможет команда братьев по оружию – бойцы вашего ударного отряда с отлично проработанным AI. Но помните, что не смотря ни на что ваши помощники не бессмертны и однажды погибнув уже не возродятся. Кроме того, вас ожидает беспрецедентный арсенал оружия (24 «ствола», каждый из которых может быть модифицирован различными способами), используемого оборудования и умений персонажа.Тип издания: ПираткаРазработчик: Crystal DynamicsЖанр: Action / FPS (1st Person)Язык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47396D0D6AD9A815041B946F88F5989948864D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 172392   (953799) от 04.02.2010
+
+F.E.A.R. 2: Reborn / F.E.A.R. 2: Возрождённый [Ru] (RePack) 2010 | Ultra
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+"Возрождённый" - Дополнение представит бойца спецподразделения по кличке Фокстрот-813. В четырех новых уровнях речь пойдет о событиях, развернувшихся в два последних часа оригинальной игры. Мы станем свидетелями тех же событий, то есть борьбы со зловещей, обладающей паранормальными способностями девочкой Альмой, но от лица другого персонажа и с иной точки зрения. Обещаны также новые достижения и трофеи. Данное дополнение привнесёт с собой четыре новые карты для одиночного режима, и изменение в мультиплеелерных баталиях в виде возможности включать замедление времени.Тип издания: LЖанр: Action (Shooter) / Add-on / 3D / 1st Person
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361938   (951992) от 21.02.2020
+
+Perception Remastered (2017) [Ru/Multi] (1.0/upd2) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Perception – это сюжетный приключенческий хоррор от первого лица, рассказывающий историю слепой девушки по имени Кэсси, которая, полагаясь на свой исключительный слух и острый ум, пытается разгадать тайны заброшенного поместья из ее навязчивых снов. Потратив долгие месяцы на поиски, она, наконец, находит заброшенную миссию в Глостере, штат Массачусетс. В реальности (   Читать дальше...   )Тип издания: RepackРазработчик: The Deep End GamesЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8ADD220DE38BCEA3C42870C06E73F511704CF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089478   (951585) от 03.01.2017
 
 SOMA (2015) [Ru/Multi] (1.102) SteamRip Let'sPlay
@@ -6,7 +110,7 @@ SOMA (2015) [Ru/Multi] (1.102) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Alpha Prime (2007) [En] (1.01) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Curse of Anabelle (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ ELDERBORN (2020) [Multi] (20200220142720) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ CASE: Animatronics (2016) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Quake 4 (2005) [Ru/Multi] (1.4.2) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Bequest (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sniper: Ghost Warrior Gold Edition + 2 DLC [Ru/En] (RePack/1.3.0.0) 2010 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Far Cry 3 [Ru/En] (Repack/1.05/7 DLC) 2012 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Horror Hospital (2016) [En/Tr] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +427,7 @@ Rage + 3 DLC [Ru/En] (RiP/1.3) 2011 | z10yded
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +453,7 @@ Dr. Langeskov, The Tiger, and The Terribly Cursed Emerald: A Whirlwind Heist (20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +480,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +506,7 @@ Wolfenstein 3D: Spear of Destiny (1993) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +532,7 @@ Borderlands:​ Game of the Year Edition 4DLC [Ru/En] (Reрack/1.4.1) 2010 | R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +560,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Sniper: Ghost Warrior 2 / Снайпер: Воин-призрак 2  [Ru/En/Mult
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +613,7 @@ Dead Effect 2 (2016) [Ru/En] (170 106.1208) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (2.0.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Far Cry / Rambo 3 - Afganistan [Ru] (P/Mod) 2004/2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,110 +677,6 @@ Far Cry / Rambo 3 - Afganistan [Ru] (P/Mod) 2004/2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6E34D2E6BDAC05A42F7959EBAF7B055051DC106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095992   (921928) от 22.01.2017
-
-Hard Reset Redux (2016) [Ru/En] (1.1.3.0) Repack R.G. Механики
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — майор Флетчер, армейский ветеран, обороняющий город в рядах корпорации CLN, которая контролирует жизнь последнего оплота людей. Вам предстоит внезапно оказаться втянутым в конфликт между двумя величайшими врагами человечества.Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D998C8BE2FAE8D450F41A915BB801A5FEAB411B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095984   (921794) от 22.01.2017
-
-DeadTruth: The Dark Path Ahead (2017) [En] (1.0) License PLAZA [Episode 1]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921794.jpg" />
-</div>
-
-
-###  Подробнее
-
-DeadTruth: The Dark Path Ahead является эпизодическим хоррор-приключением от первого лица, представляющим сложный и эмоциональный рассказ, наполненный темными и таинственными секретами. Вы играете за персонажа по имени Майкл Андерсон, который страдает от потери своих близких...Тип издания: LicenseРазработчик: Rukas SkirkeviciusЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDBA4702246CB6E33FE9992AC5EB526D9D10E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096302   (920156) от 23.01.2017
-
-Quadrant (2015-2017) [Ru/Multi] (1.53) License POSTMORTEM
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры разворачивается в исследовательской лаборатории NASA, в 1979 году. Астронавты программы Аполлон в ходе своей экспедиции на луну привезли нечто, что теперь угрожает жизням сотрудников комплекса. Сюжет игры основан на загадочном письме от некого Джона Малькольма, который описывает цепь событий, приведших к полной изоляции лаборатории и гибели её сотрудников.Тип издания: LicenseРазработчик: HKFiftyOne GamesЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FB398B371E1DD981F4B22816BF49FC1D3247AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096345   (920124) от 23.01.2017
-
-Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack R.G. Catalyst
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Штат Невада, маленький городок Рейчел, находящийся в 85 милях к северо-востоку от игорной столицы мира Лас-Вегаса. Ничем не примечательный, за исключением одного «но»: неподалеку располагается база, официально принадлежащая военно-воздушным силам США, – Зона 51. Также, по заверениям официальных источников, на базе в основном занимаются разработкой и тестированием (   Читать дальше...   )Тип издания: RepackРазработчик: Midway Studios AustinЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCA7E98B5923F764497D7E2B7EC6CCABA3A1F33
 ```
 
 https://mybot314.ru/tekegram_catalog/

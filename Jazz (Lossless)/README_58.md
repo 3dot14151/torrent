@@ -1,3 +1,61 @@
+###  Публикация: 1114306   (833606) от 14.03.2017
+
+Claude Bolling - Jazzgang Amadeus Mozart (1965) 2007, Philips [FLAC|Lossless|tracks + .cue] <Dixieland, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01.Eine Kleine Nachtmusik Allegro [03:24]
+ 02.Eine Kleine Nachtmusik Romance [03:08]
+ 03.Eine Kleine Nachtmusik Minuetto [02:09]
+ 04.Eine Kleine Nachtmusik Rondo [02:44](   Читать дальше...   )Жанр: Dixieland, Third StreamПродолжительность: 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2178C5A9F874D75D30383CD8DCA1E5779B4E7F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114091   (833605) от 14.03.2017
+
+Lisa Ekdahl - Nar alla vagar leder hem (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Nar Alla Vagar Leder Hem (3:23)
+02. Din Sloserska (3:13)
+03. Ryggradslos Varld (3:36)
+04. Famna Jorden (2:43)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCB783ABEF739AA17C516B936FD6605691E8108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380475   (833323) от 03.05.2020
 
 Sidney Bechet - Five Classic Albums Plus: Second Set 1952 - 1955 (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, New Orleans Jazz>
@@ -6,7 +64,7 @@ Sidney Bechet - Five Classic Albums Plus: Second Set 1952 - 1955 (2017) 2CD, Avi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - NOW Jazz Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Stan Getz Quartet - Grand Stan (1974) Remaster, 2014, Studio Songs[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -92,7 +150,7 @@ Paolo Fresu, Richard Galliano & Jan Lundgren - Mare Nostrum II (2016) ACT Music[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -121,7 +179,7 @@ Jane Monheit - The Songbook Sessions Ella Fitzgerald (2016) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -150,7 +208,7 @@ Rodney Jones & Tommy Flanagan Quartet - My Funny Valentine (1981) Remaster, 2015
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -179,7 +237,7 @@ Paul Hardcastle - 19 Below Zero (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -208,7 +266,7 @@ Pharoah Sanders - Live At The East (1971) [FLAC|Lossless|tracks + .cue] <Avant-G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -236,7 +294,7 @@ Keith Jarrett - Creation (2015) ECM[FLAC|Lossless|tracks + .cue] <Avant-Garde Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -265,7 +323,7 @@ Bing Crosby - The Best of Bing Crosby (1987)  1996,  Promo Sound AG  [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +352,7 @@ Frank Sinatra - A Jolly Christmas From Frank Sinatra (1957) remastered 1987 [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +381,7 @@ Jazz At Lincoln Center Orchestra - The Music Of Wayne Shorter (2015) 2CD, 2020, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +410,7 @@ Stan Hope - Pastels (1999) Savant Records [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -381,7 +439,7 @@ Erroll Garner - The Greatest Garner (1950) 1999, ADA Sound [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -410,7 +468,7 @@ Charlie Barnet And His Orchestra - 1940, Vol. 2 (2007) Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -439,7 +497,7 @@ Sonny Criss - Four Classic Albums 1956 - 1959 (2016) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -468,7 +526,7 @@ Ben Webster - Cadillac Slim (2000) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -497,7 +555,7 @@ David Liebman Quintet - If They Only Knew (1980) Remaster, 2015, Solid Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -526,7 +584,7 @@ Gabriela Anders - Last Tango in Rio (2004) [FLAC|Lossless|image + .cue] <Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -555,7 +613,7 @@ Toku - Dear Mr. Sinatra (2015) Sony Music[FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -584,7 +642,7 @@ John Beasley - Presents MONK'estra, Vols. 1-2 (2016, 2017) 2CD, Mack Avenue Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -613,7 +671,7 @@ Beegie Adair - The Good Life - A Jazz Tribute To Tony Bennett (2014) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -642,7 +700,7 @@ The George Shearing Quintet & Dakota Staton - In The Night 1957 (2003) Capitol J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -671,7 +729,7 @@ Lucia Ianniello - ‎Live At Acuto Jazz (2017) [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -685,64 +743,6 @@ Lucia Ianniello - ‎Live At Acuto Jazz (2017) [FLAC|Lossless|tracks + .cue] <Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AAD21E598FC47900366C0EBC835B94743566585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381259   (827832) от 06.05.2020
-
-Charlie Byrd - Brazilian Byrd 1965 (2009) Sony Music [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corcovado [2:56]
-02. Jazz 'n' Samba (So Danco Samba) [2:23]
-03. That Look You Wear (Este Seu Olhar) [2:33]
-04. The Girl from Ipanema [2:48](   Читать дальше...   )Жанр: Bossa Nova, Latin Jazz, Guitar JazzПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A953D815855A86C725CDD1F7F010ECAEE5359074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381293   (827829) от 06.05.2020
-
-Konstantin Klashtorni - 7 X 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 X 7 (4:13)
- 02. Charmed (4:10)
- 03. Moments Like These (4:03)
- 04. By the Bay (4:23)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D88851D763BE414786C680F3A905D8E49F461B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

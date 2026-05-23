@@ -1,4 +1,168 @@
 https://t.me/izofen
+###  Публикация: 1871654   (1070039) от 
+
+Jin Young - EverLove (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Пак Джин Ён - южнокорейский актер, певец, танцор. Участник группы "GOT7". Получил степень бакалавра в области актерского мастерства в Университете Хоуона. Дебютировал в актерском мастерстве, когда он появился в небольшой роли в «Dream High 2» в январе 2012 года. Так же снимался  в: 100 дней лжи (tvN / 2026), Клетки Юми Сезон 1-3 (2021/2022/2026), Все еще (   Читать дальше...   )Производство: Южная КореяЖанр: KpopПродолжительность: 00:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41914D2B6A66CC191A213581838383EAA918E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871209   (1069599) от 
+
+Lady Gaga - Apple Music Live: MAYHEM Requiem (2026) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Когда Леди Гага отправилась в международное турне в поддержку своего шестого студийного альбома MAYHEM, она путешествовала по миру, взяв с собой собственный оперный театр. Каждый вечер колонны и богато украшенная отделка фасада этого сюрреалистического театра служили фоном для её погружения в безумие MAYHEM. Но теперь оперный театр превратился в руины — и пришло (   Читать дальше...   )Производство: США / Apple Music LiveЖанр: PopПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E967E12F732DECB5A02C13A68AE2E940608D41BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870944   (1069492) от 
+
+woo!ah! - WXW (Wish With W) (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Южнокорейская группа состоящая из пяти участниц. Группа дебютировала 13 мая 2020 года. Изначально группа состояла из шести участниц, но Сонъи покинула её 14 августа 2021 года. Первый полноценный релиз группы после 2х летнего молчания.Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA7994DA309F5BCDC5C6CEB09BF903FAEA5446D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871210   (1069408) от 
+
+«Поет Филипп Киркоров» (2026) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Телевизионная версия концерта Филиппа Киркорова.
+Известный артист исполнит свои самые популярные и любимые многими композиции: «Зайка моя», «Огонь и вода», «Рафаэль», «Атлантида», «Цвет настроения синий», «Я эту жизнь тебе отдам» и др., а также подарит зрителям уникальное шоу с грандиозными представлениями и фееричными номерами.Жанр: Поп-музыкаРежиссер: Сергей МатюкЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0498A1B13EC9137AFC22E33565C54B585D3C790E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870652   (1069367) от 
+
+Daita (Daitah Itoh) - EUPHONY (2003) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Японский рок гитарист Daita (Daitah Itoh) родился в районе Токио в 1971 году.
+DVD диск Euphony издан в 2003 году и состоит из музыкальных произведений автора. Манера игры - один из столпов японского гитарного рока чем-то напоминает Joe Satriani времен Flying In A Blue Dream, но вот окружение… В нем слышно и электронную музыку, и металл, и даже классическую музыку, (   Читать дальше...   )1. Breath of the Sea
+2. Earth Beat
+3. Suna no Shiro
+4. Zenith(   Читать дальше...   )Производство: ЯпонияЖанр: RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0A0564FD19642B857DB91C82A730AE7F9F0282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870444   (1068910) от 
+
+YouTube канал "NoMadU55555" - Музыкальные клипы (1936-2009) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "NoMadU55555" / UCWO9OCjghM_d8Q5MDKNK7oQ по состоянию на сентябрь 2020 года.
+
+Канал "NoMadU55555" был открыт в 2011 году, удалён 11 октября 2021 года.
+За 10 лет было опубликовано более 380 музыкальных видеоклипов, большую часть из которых удалось сохранить для данной раздачи.Жанр: музыка, концерт, искусство, история, телепередачаПродолжительность: 21:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF7C52275029D3AFB96C832A4A21C6B567C6F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869427   (1068486) от 
 
 YouTube канал "Pustinnik25" - Советская музыка (2018) WEBRip [H.264]
@@ -7,7 +171,7 @@ YouTube канал "Pustinnik25" - Советская музыка (2018) WEBRip
 >>РњСѓР·С‹РєР°Р»СЊРЅС‹Рµ РєР»РёРїС‹
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +200,7 @@ Rose - On The Ground (2021) WEBRip [H.265/2160p] [60fps] [Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +227,7 @@ Lisa - Dream (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +255,7 @@ MinSeo (woo!ah!) - Endlessly You (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -120,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -148,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -177,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +370,7 @@ Unlucky Morpheus - Live 2017 (2017) DVDRip [AV1/1080p] [hand made Upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -235,7 +399,7 @@ Kanye West - Седая ночь (2026) WEBRip [H264/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -261,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -287,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -313,7 +477,7 @@ Yena - Catch Catch (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -341,7 +505,7 @@ Hwasa - So Cute (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -368,7 +532,7 @@ Kanye West - Белые розы (2026) WEBRip [H264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -394,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -420,7 +584,7 @@ Laibach - Musick (feat. Wiyaala) (2026) WEBRip [AV1/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -446,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -472,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -498,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,174 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01D39128351706EA8DACDA3701B6337D91A580A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861686   (1062907) от 26.03.2026
-
-Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская группа из четырёх участниц компании P NATION. Дебютировали 23 июня 2025 года с сингловым альбомом "F Girl"
-After Cry - первый мини-альбом Baby DONT Cry. Он был выпущен 24 марта 2026 года с "Bittersweet" в качестве заглавного трека. Релиз клипа состоялся днем ранее. Предварительный релиз "Shapeshifter" состоялся 11 марта.Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7D9C74C566994B127C1B0C1EAD222D2DE167C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861473   (1062458) от 26.03.2026
-
-Fuki & Unlucky Morpheus - Fuki Fes Live (2016) [AV1/1080p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Fuki (Unlucky Morpheus) - Fuki Fes. 2016 LIVE (Shinjuku ReNY 13.11.2016)01. Welcome to My Dream (instrumental)
-02. I'll Never Let You Down!
-03. Liberator
-04. Boku ga Ikiru Sekai / 僕が生きる世界(   Читать дальше...   )Жанр: Speed Metal, Power Metal, ProgressiveРежиссер: Nozomu Wakai, Takeshi NomuraУчастники: Fuki, Mao, ISAO, Atsushi Hasegawa, Takeo Shimoda, Hideki Otsuka, Nozomu Wakai, EijiroПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DBFF5E9B33A83C3E39547FF8CE9FDFF5E02D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861027   (1062198) от 23.03.2026
-
-Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская группа из пяти участниц компании TOP Media. Они дебютировали 1 ноября 2024 года с сингловым альбомом "Best Friendz".
-12 марта 2026 года ODD YOUTH выпустили свой второй сингловый альбом и клип "Babyface".Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C27A3892E43DE9724CA3A9C1858CA42C4F4123D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861051   (1062190) от 23.03.2026
-
-Narin - No Savior (2026) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нарин (На Рин)- южнокорейская певица является участницей женской группы MEOVV.
-21 марта 2026 года состоялся релиз песни и клипа «NO SAVIOR» для дорамы tvN «Mad Concrete Dreams».Производство: Южная КореяЖанр: ElectronicaПродолжительность: 00:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8F72570441A7AD1E81024F55E9D945E8415E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860724   (1062019) от 22.03.2026
-
-Квартирник у Маргулиса. Женя Любич. Песни на стихи поэтов (21.03.2026) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женя Любич на «Квартирнике НТВ у Маргулиса» представила атмосферную программу, исполнив композиции на стихи классиков мировой литературы (таких как Шекспир, Верлен) и поэтов Серебряного века. Певица, известная как «русская француженка», порадовала зрителей акустическим звучанием, сочетая французский шарм с авторской поэзией.00:00:06 Небо и звезды
-00:07:23 Кино и вино
-00:11:36 My Heart’s in the Highlands
-00:18:20 Ville de France(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-попЯзык: РусскийПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB485D5F845FBA9E1C46F03D5198A8C92E8D3CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860170   (1061855) от 20.03.2026
-
-DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шикарные музыкальные клипы от мегапопулярного DJ Slon (Александр Альберт) & Ангел-АDj Slon & Ангел-А - А ты меня любишь...(AVC 1280x720).mp4
-DJ Slon & Ангел-А – Джимми, Джимми (AVC 720x256).mp4
-DJ Slon feat Katya - Цыплёнок Пи (AVC 854x480).mp4
-Ангел А - Блондинка (AVC 640x392).mp4(   Читать дальше...   )Жанр: Europop, Disco, Euro-House, Pop, RapПродолжительность: 00:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1076FF49BF9E5108F210FE594E9EA8A978290073
 ```
 
 https://mybot314.ru/tekegram_catalog/

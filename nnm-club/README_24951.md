@@ -1,25 +1,25 @@
-###  Публикация: 1786933   (68681) от 27.03.2025
+###  Публикация: 1780275   (70496) от 17.02.2025
 
-VA - Днесь. Трибьют. Стихи Анатолия Мариенгофа (2025) [MP3|320 Kbps] <Шансон>
+Эмили Бронте | Грозовой перевал (2020) [MP3, Григорий Перель, Наталья Казначеева]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Андрей Зайцев - Днесь [00:02:20]
-02 - Ива Нова - Поле [00:03:31]
-03 - Женя Любич - Географическая карта [00:03:08]
-04 - The PAPRIKS - Степи, звёзды и воды... [00:03:11](   Читать дальше...   )Жанр: ШансонПродолжительность: 00:33:13
+Серия/Цикл: Литература 19 века
+Эмили Бронте (1818–1848) – английская писательница и поэтесса, автор романа «Грозовой перевал», а также многочисленных талантливых стихотворений.
+«Грозовой Перевал» (1847) – единственный роман, написанный Эмили Бронте без участия сестер. Эта книга принесла писательнице славу.
+На вересковых пустошах Йоркшира «Грозовой Перевал» скрывает (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Наталия РоговаИздательство: ООО «Эвербук», StorySide ABПродолжительность: 14:56:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36E6B203CD11A69CBCA9A254F81E3D462E39F2D5
+magnet:?xt=urn:btih:CD5FDEE4F5B174EE93EA30D0CE42C4DE08BFFF80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787695   (68680) от 27.03.2025
+###  Публикация: 1780130   (70495) от 17.02.2025
 
-VA - 25 Years Of Anjuna Mixed By Dosem (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+Rosetta Stone - Nothing Is Sacred (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1 (01:00:19) (mixed by)
-01. Qrion – 11 - 11 (Mixed) (04:11)
-02. Enamour – Ruby (miru Remix (Mixed)) (03:24)
-03. Way Out West – Tuesday Maybe (Guy J Remix (Mixed)) (07:48)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:00:14
+✧ 01 - Don't Fear The Reaper (00:03:40)
+✧ 02 - The White Room (00:04:58)
+✧ 03 - Black Hole Sun (00:04:52)
+✧ 04 - In The Light (00:06:33)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:46:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D440C18AF3C43C77858999DD697DBD36A03978D5
+magnet:?xt=urn:btih:1E312DFDDF6D79F9B86BE4A671F584617327225F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787816   (68679) от 27.03.2025
+###  Публикация: 1780182   (70494) от 17.02.2025
 
-Autopsy - The Tomb Within (2010) EP, Released, 2017, Peaceville [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal>
+The Smoothies - The Last Goodbye (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Tomb Within
-A2 My Corpse Shall Rise
-A3 Seven Skulls
-B1 Human Genocide(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:20:01
+01.  Losing My Head (3:09)
+02.  I Need You Baby You're My Northern Star (2:55)
+03.  Gone Like the Wind (2:55)
+04.  Family Man Blues (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4C42351CC132EC48D8684BF6FEE7708ED4650FF
+magnet:?xt=urn:btih:4C6459B203017128399C625CA90EB13884120522
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787812   (68678) от 27.03.2025
+###  Публикация: 1780344   (70493) от 17.02.2025
 
-Einherjer - Odin Owns Ye All (1998) Released, 2020, Funeral Industries [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking Metal>
+Striker - Ultrapower (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Leve Vikingeaanden
-A2 - Out Of Ginnungagap
-A3 - Clash Of The Elder
-A4 - Odin Owns Ye All(   Читать дальше...   )Жанр: Viking MetalПродолжительность: 00:45:08
+01. Circle Of Evil 3:44
+02. Best Of The Best Of The Best 3:20
+03. Give It All 4:15
+04. Blood Magic 4:36(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBC5B3B682582B7E87E18E645C86925DC3F39649
+magnet:?xt=urn:btih:EADFEB39E5EAE01ADC9825D89A5751094E60814D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787972   (68677) от 28.03.2025
+###  Публикация: 1780224   (70492) от 17.02.2025
 
-АИГЕЛ - Killer Qız (2025) [MP3|320 Kbps] <IDM, Electronic>
+Joe Pass - Live At Elder Hall, Adelaide (1990) 1995, ABC [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
 
->>Electronic
->>IDM
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. Killer Qız
-2. Cir Tartımı
-3. Tönyaq Balqışı
-4. Qupşıl(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:36:14
+01. Just Friends [3:05]
+02. Nature Boy [4:42]
+03. Blues in A [5:04]
+04. Tarde [6:51](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:58:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F611CE35883FDF0D321397E140B98190A93BFDE4
+magnet:?xt=urn:btih:1CD7C6816718D1B985902993305FE0AEAD584E2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,27 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787945   (68676) от 28.03.2025
+###  Публикация: 1780227   (70491) от 17.02.2025
 
-Шрифты - Dmitri Zdorov - Dimka - Xarrovv [TTF, OTF, WOFF2]
+Art Farmer - The Best Of Art Farmer (1990) Epic Associated [FLAC|Lossless|tracks + .cue] <Bop, Cool, Jazz-Funk>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-Материал раздается с официальной документацией и дополнениями.Формат: TTF, OTF, WOFF2
+01. Crawl Space [8:59]
+02. Chanson [8:39]
+03. Something You Got [6:19]
+04. Flute Song [8:11](   Читать дальше...   )Жанр: Bop, Cool, Jazz-FunkПродолжительность: 01:10:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76BBF91DFAC54C69955A61850DDCB4BC9B05D6C3
+magnet:?xt=urn:btih:4DF2361025ECB6EC3442C4BD977759013B9B3CEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788019   (68675) от 28.03.2025
+###  Публикация: 1780218   (70490) от 17.02.2025
 
-VA - Trance Top 100, Vol. 2 (2025) [MP3|320 Kbps] <Trance>
+Joe Pass - Virtuoso #3 (1977) 1992, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-001. Rene Ablaze - Legends (03:01)
-002. Rino da Silva & DJ Jaycan - Liquid Sky (03:27)
-003. Diago - Verto (03:11)
-004. Woody Van Eyden & Rene Ablaze - All My Life (Maarten De Jong remix) (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:17:53
+01. Offbeat [4:50]
+02. Trinidad [6:14]
+03. Nina's Blues [5:19]
+04. Sevenths [4:15](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:56:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55787F63C287340445EEE87AD6D167B90CF026A8
+magnet:?xt=urn:btih:0872E021A49BE45BDAA3818035776F837EC44142
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787937   (68674) от 28.03.2025
+###  Публикация: 1780216   (70489) от 17.02.2025
 
-Шрифты - Dmitri Zdorov - Dimka - DiTulum [OTF, WOFF, WOFF2]
+Stolen Lives - Luciferův Efekt (2019) [FLAC|Lossless|image + .cue] <Thrash, Hardcore>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-
-В добавленных файлах "DiTulum3 By He Rez AD" от "He Rez AD" расширена кириллица - добавлена Украинская и Молдавская, им же добавлены файлы форматов WOFF, WOFF2.Формат: OTF, WOFF, WOFF2
+01. Háček 02:35
+02. Nevyhnutelně 01:15
+03. Luciferův efekt 02:32
+04. V zapomnění 02:19(   Читать дальше...   )Жанр: Thrash, HardcoreПродолжительность: 00:25:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEE3506F375C0492CD952D4D213F193F64C99389
+magnet:?xt=urn:btih:A0A8E416AE6D33803E1D44AB0F9B28FCA7ECEE40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788039   (68673) от 28.03.2025
+###  Публикация: 1780222   (70488) от 17.02.2025
 
-Пресеты - KB Presets: Like Yesterday Collection [XMP]
+Wolfgang Haffner - Silent World (2023) ACT Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-20 цветных и 4 черно-белых пресетов, начиная от мягкой, чистой основы для фотографий в помещении и заканчивая матовым 35-миллиметровым видом и мечтательным финишем с теплыми полутонами, идеально подходящим для золотого часа. Также есть 3 предустановки, предназначенные для имитации Polaroid для забавного редактирования, когда вы забываете взять с собой Instax!Формат: XMP
+01. Here and Now (feat. Bill Evans) [5:02]
+02. Silent World (feat. Mitchel Forman) [4:47]
+03. La Casa [5:23]
+04. The Peace Inside (feat. Till Bronner) [4:54](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D31B4B7D6B9D89B4D91015DEA52AD724CB7F4FBA
+magnet:?xt=urn:btih:FD110E0C43D7E5219749FD2FA8D4C5725613D51F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -255,26 +259,390 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787982   (68672) от 28.03.2025
+###  Публикация: 1780287   (70487) от 17.02.2025
 
-Excite Audio - Bloom Drum Percussion 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [En]
+Джейн Остин | Доводы рассудка (2024) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена (Английская литература).
+Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
+Чем же руководствоваться молодой девушке: велением сердца или доводами рассудка?
+Сюжет романа несложен – встреча Энн (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Елена СурицИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 09:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4CA97F2BF1438A52E80A4E243C500BE7F4E658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780291   (70486) от 17.02.2025
+
+Джейн Остин | Любовь и дружба. Леди Сьюзен. Замок Лесли (2024) [MP3, Дарья Павлова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Джейн (Остен) Остин (1775–1817) автор известных во всем мире книг «Гордость и предубеждение», «Эмма», «Доводы рассудка», родоначальница жанра классического женского романа.
+Небольшой по объему роман «Любовь и дружба», написанный Остин в пятнадцатилетнем возрасте, представляет собой пародию на многословные романтические сочинения, столь популярные в XVIII веке. Лаура, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Александр ЛивергантИздательство: Аудиокнига (АСТ)Продолжительность: 05:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895006A1612E433E38A8AB759DF0CE145B9388B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780178   (70485) от 17.02.2025
+
+Murray Kinsley - Eye Of The Storm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Snake Farm (5:13)
+02.  Dance With Me (4:54)
+03.  Dressed In Black (4:28)
+04.  Hold On (5:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566AFE9E786CD9B3535509B110D2C72BA024895B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780179   (70484) от 17.02.2025
+
+Ping Rose - Conjure Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Cloverhill Stomp (3:42)
+02.  Don't Drink Me Dry (4:52)
+03.  Conjure Man (4:35)
+04.  Darkness (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273BD1AF74FD1DF041C47E22D09CD436819A77BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780200   (70483) от 17.02.2025
+
+Blues Prescription - The Late Night Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Say Hey Now Baby (3:58)
+02.  Fly Me Home (3:52)
+03.  Whiskey and Women (2:52)
+04.  Open the Door (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86184BB933ED45DF50FBA566D583E87114338A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780181   (70482) от 17.02.2025
+
+The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Eat That! (3:30)
+02.  Intentions (3:52)
+03.  Cougar (3:39)
+04.  Good to Be King (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3408F3EEA6BE6790CEA473C896EAA6FD9B9CBD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780176   (70481) от 17.02.2025
+
+Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Origins (5:14)
+02.  Let Me love you baby (3:38)
+03.  Voodoo Child (13:18)
+04.  Riders on the storm (4:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923395256A189CD35830C79E58E427A321AF1789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780228   (70480) от 17.02.2025
+
+R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Get It Together (2:39)
+02.  Barbara (4:01)
+03.  A Heart in Winter (3:33)
+04.  Out of Line (2:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12B5D819231878E35BDB2935023981705DA4CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780231   (70479) от 17.02.2025
+
+Sunny Bleau And The Moons - Passion & Regrets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Two Glasses of Whiskey On Ice (feat. Sunny Bleau) (3:26)
+02.  You Better Put The Coffee On (feat. Jeff Jensen & Sunny Bleau) (5:40)
+03.  Low-Down-Middle-Aged-Blues (feat. Sunny Bleau) (4:14)
+04.  Peacock Strut (feat. Sunny Bleau) (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530B3510CA20935C42BC8AA530866CE4D0FA7932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780384   (70478) от 18.02.2025
+
+Оливер Буркеман | 4000 недель (2023) [MP3, Ольга Ганкова]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это саммари – сокращенная версия книги. Только самые ценные мысли, идеи, кейсы, примеры.
+Мы строим амбициозные планы, но забываем, что наша жизнь ужасно коротка и может оборваться в любую секунду. Стараемся впихнуть как можно больше рабочих дел в единицу времени, спланировать идеальное утро или отпуск мечты, следуем тысяче советов о том, «как надо», но не находим (   Читать дальше...   )Жанр: БизнесИздательство: Smart ReadingПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F900893FFEDB1D67B02E362B0A5B3991119E2F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780353   (70477) от 18.02.2025
+
+Л.С. Полак (ред.) | Применение вычислительной математики в химической и физической кинетике (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются следующие вопросы: методы численного интегрирования на ЭВМ систем дифференциальных уравнений кинетики сложных химических реакций, методы выбора наиболее вероятного механизма сложной химической реакции и определения констант скоростей элементарных стадий, исследование физической кинетики и релаксационных процессов в газах при наличии химических (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D315037C98FDFB9985AABC84BCB4112FF70ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780454   (70476) от 18.02.2025
+
+RegCool 2.031 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5665B469F95AC9094DB0B46C9EA03AEC833FF5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780457   (70475) от 18.02.2025
+
+Desktop Calendar 3.21.223.6991 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Desktop Calendar – бесплатный календарь рабочего стола для операционных систем Windows. Авторы приложения сделали достаточно интересное решение календаря, переросшего в органайзер благодаря  своим функциям и техническим возможностям. Так, пользователь сможет не только узнать дату и созерцать графический интерфейс, но также сможет вести список дел, делать заметки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EE49010929F922D0FAFE835DA2963BA87A1C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780488   (70474) от 18.02.2025
+
+MusicBrainz Picard 2.13.3 + Portable [Multi/Ru]
 
 >>Мультимедиа и Графика
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Зажгите свой ритм с Bloom Drum Percussion — яркой коллекцией перкуссии и органических грувов с использованием латинских и африканских инструментов, сыгранных вручную. От грува бразильской самбы до глубокого резонанса западноафриканского ритма — каждый звук рассказывает историю движения и выражения.
-Excite Audio запечатлел широкий спектр перкуссии, охватывающий весь (   Читать дальше...   )Язык интерфейса: Английский
+MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
+Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86346E9AD5A780B952B26C75E2006277C1591D46
+magnet:?xt=urn:btih:393E44C9DA9DF38F7319E5C6BE6FA2FA172E5E30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +650,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787949   (68671) от 28.03.2025
+###  Публикация: 1780397   (70473) от 18.02.2025
 
-Шрифты - Maxim Raikov - Behance - VLASHU Free Font - 112107257 [TTF, OTF]
+Муфаса: Король Лев / Mufasa: The Lion King (2024) WEB-DL [H.264/1080p] [EN / EN, ESP, FRA Sub]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Maxim Raikov
-
-Материал раздается с официальной документацией.Формат: TTF, OTF
+Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Walt Disney Pictures, Québec Production Services Tax Credit, Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, фэнтези, драма, приключения, семейныйРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет РогенПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, испанские, французскиеПродолжительность: 01:57:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:490AA3D016D04F7A47DEAA7D01086C3D683A2431
+magnet:?xt=urn:btih:2BF693D4906F4684445C804C735576A81CF6C75B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +676,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788118   (68670) от 28.03.2025
+###  Публикация: 1780549   (70472) от 18.02.2025
 
-Firefox Browser ESR 115.21.1 Portable by PortableApps [Ru]
+VA - Шансон премьера 2025 февраль (Новые песни. Новые хиты) (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
 
->>Архив торрентов
->>Архив Программ
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+01.  Валерий Курас - Когда мужчины за столом поют (3:23)
+02.  Алексей Петрухин - Человеку нужен свет (3:51)
+03.  Михаил Бублик - Верю в любовь (3:37)
+04.  Виктор Дорин - Ямочки на щечках (Remix) (3:37)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:10:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E782CB43CDF8517A7E09219F2695C31DE8C15C50
+magnet:?xt=urn:btih:BD888900000E9FCEB9392D7EE0C376D4129970E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,386 +705,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787891   (68669) от 28.03.2025
+###  Публикация: 1780479   (70471) от 18.02.2025
 
-VA - Vino Amaro - Big Canzone Italiana (2019) [MP3|320 Kbps] <Canzone Italiana>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Solo - Una Lacrima Sul Viso
-  02. Nicola Di Bari - La prima cosa bella
-  03. Riccardo Fogli - Vecchio Frak
-  04. Johnny Dorelli - Parla piu' piano(   Читать дальше...   )Жанр: Canzone ItalianaПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4A39AC49669EC520F9D9F0168C0200450C9A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788113   (68668) от 28.03.2025
-
-Firefox Browser ESR 115.21.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EECAA14ACA3681374F9EE24024188BB466CF53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788087   (68667) от 28.03.2025
-
-Александр  Довженко | Дневниковые записи/Щоденникові записи 1939-1956 (2013) [PDF] [RU, UKR]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - первая полная научная публикация дневниковых записей Александра Петровича Довженко за период с 1939 г. по 1956 г. Согласно дневниковому жанру, автор фиксирует основные события своей личной и творческой жизни, начиная с выхода на экраны фильма "Щорс" (1939) и до завершения работы над сценарием "Поэма о море" (1956). Подробно описаны (   Читать дальше...   )Жанр: Дневники, история, культурологияЯзык: Русский / УкраинскийИздательство: ФолиоФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FF4C03DD42DEFC849664F17D419CB3D455D069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788156   (68666) от 28.03.2025
-
-В.В. Бабайцева | Русский язык. Учебник для 10-11 класса (углублённый уровень) (2023) [PDF]
+А.Г. Мордкович, П.В. Семенов, Л.А. Александрова и др. | Алгебра и начала математического анализа. Учебник для 11 класса. Базовый уровень (в 2 частях, часть 1) (2022) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Учебник, состоящий из теоретической и практической части, углубля­ет знания учащихся о языке как многофункциональной развивающейся системе, обеспечивает совершенствование коммуникативной, языковой, лингвистической (языковедческой) и культуроведческой компетенций.Жанр: УчебникЯзык: РусскийФормат: PDFКачество: Обработанный скан
+В учебнике изложение теоретического материала сопровождается подробным рассмотрением большого числа примеров, практические задания представлены на трёх уровнях сложности. В конце каждой главы приводятся основные факты, вопросы и тест для самопроверки, дополнительные задачи и исторические сведения.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86EDCA5881AF5444841302B9EE1B10C9E1CF487C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787985   (68665) от 28.03.2025
-
-Three-Body Technology - VO-TT 1.1.0 VST, VST 3, AAX (x64) RePack by SEnki [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68665.jpg" />
-</div>
-
-
-###  Подробнее
-
-VO-TT (VOcal-oTT) — это интуитивный многополосный динамический процессор в стиле OTT, специально разработанный для вокального микширования. С минимальными настройками VO-TT творит свою мгновенную магию, преобразуя любой вокальный контент в сбалансированный профессиональный звук.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B9D774D5D637E9053AE1F854FFB80DA678FF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787948   (68664) от 28.03.2025
-
-Шрифты - Dmitri Zdorov - Dimka - Mescalito [OTF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-Материал раздается с официальной документацией и дополнениями.Формат: OTF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0434C1F4B4F759F23D4105D2344C05F01E9325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788016   (68663) от 28.03.2025
-
-Arch Enemy - Blood Dynasty (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Melodic Death Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dream Stealer [4:30]
-02 - Illuminate the Path [4:49]
-03 - March of the Miscreants [4:50]
-04 - A Million Suns [3:46](   Читать дальше...   )Жанр: Metal, Melodic Death Metal, Death MetalПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B609AF4422F8FD09D2494A39BA2869CBA2EDA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788055   (68662) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Mine - Hypnotic Tango (Extended Player '89)
-02. Robert Camero - Lady Suprise (12'' Version)
-03. Broken Dreams - Broken Dreams (12'' Version)
-04. Taco - Got To Be Your Lover (Special D.J. Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91BF17B07CA365F63E4C61489EBCCE9008665AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788135   (68661) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colonna - A Secret From My Heart
-02. Trick - Don't Cry Roxanna
-03. Silent Circle - Time For Love (Super Action Mix)
-04. Marco Rochowski - The Journey(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3717FD991860E38707A47E06D770E4B3925219C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788104   (68660) от 28.03.2025
-
-Firefox Browser 136.0.4 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772294777BA47FE7C4DD7F9C027E42DB33011663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788028   (68659) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 9 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Ton - Video Killed The Radio Star (Vocal)
-02. Coangielu - Feeling (Extended Version)
-03. Chaya - Russian Affair (Extended Version)
-04. Gazuzu - Go Go Gorilla (Vocal Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784293B358059AA074929358ADC266FDF5C16AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788110   (68658) от 28.03.2025
-
-Firefox Browser ESR 128.8.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101EFD1E6D06E95CC89D341E22E0A9D25BCAF07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787626   (68657) от 28.03.2025
-
-Desire - Games People Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkside [00:04:11]
-02. Dangerous Drug [00:06:40]
-03. Human Nature [00:03:45]
-04. Dream Girl [00:04:25](   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5BDFF258EFFB2AD07625D43F604E2ABBEA7836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788096   (68656) от 28.03.2025
-
-Yelena Eckemoff - Scenes From the Dark Ages (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Fusion, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilgrims
-02. Village Tavern
-03. From Peasants Life
-04. Spell-Bound Fortress(   Читать дальше...   )Жанр: Progressive Rock, Jazz Fusion, FolkПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04F5EE3EC41EDF0EE318AC53311AE193C1D0EA2
+magnet:?xt=urn:btih:3D828A9162E28DC15D448C6C71D2BE9BE40B26C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

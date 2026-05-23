@@ -1,3 +1,29 @@
+###  Публикация: 1341285   (262539) от 27.11.2019
+
+Stranglehold (2007) [Ru/En] (1.1) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Stranglehold - высокотехнологичный компьютерный боевик с невероятным уровнем кинематографичности и реалистичности. Созданный на графическом движке Unreal Engine 3.0, он предлагает игрокам оценить невероятную интерактивность нового поколения. Внешность главного героя игры, инспектора Текилы, с фотографической точностью повторяет внешность актера Чоу Юн-Фата, исполнявшего (   Читать дальше...   )Тип издания: LicenseРазработчик: Midway Games, Inc., Tiger Hill EntertainmentЖанр: Шутер, Экшн, СовременностьЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA52758F9FF11D5A426DC950215AC7BA67D51C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192994   (262367) от 19.12.2017
 
 Alien Shooter + Expansions / Alien Shooter: Начало вторжения (2003) [Ru/En] (1.2/dlc) License GOG
@@ -6,7 +32,7 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Tomb Raider Трилогия [En] (L) 1996-1998 | GOG {Tomb Raider + Tomb Raider
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -140,7 +166,7 @@ StarLord [En] (RePack) 1993 | RG games (Pilotus)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -166,7 +192,7 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -192,7 +218,7 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -218,7 +244,7 @@ A-Train (RePack) [En] 1992 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -246,7 +272,7 @@ Delta V [En] (RePack) 1994 | RG Games (Pilotus)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +299,7 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -300,7 +326,7 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +352,7 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +378,7 @@ Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +404,7 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +431,7 @@ Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -431,7 +457,7 @@ Tomb Raider: Legend / Tomb Raider: Легенда [Multi6/+] (RePack/1.2) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +483,7 @@ Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -483,7 +509,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -509,7 +535,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -535,7 +561,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -561,7 +587,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +613,7 @@ Rally Championship 2000 [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -614,7 +640,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -641,7 +667,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -652,32 +678,6 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA49F64552FDB45635177499A90FEA6A331892E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626724   (255154) от 15.04.2023
-
-Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard to Be a God – ролевое приключение в стиле научной фантастики. Центральный персонаж окончил средневековую среднюю школу специальных служб. Он прошел курсы по боевой и дипломатической подготовке. Также он является самым влиятельным человеком в Аркнаре, но окружающий мир способен преподнести новые сюрпризы и преграды.Тип издания: LicenseРазработчик: Burut Creative Team, АкеллаЖанр: Ролевые игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91E3E5576ADAFDD0D2210462E0F325B0503A067
 ```
 
 https://mybot314.ru/tekegram_catalog/

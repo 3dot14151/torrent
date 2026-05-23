@@ -1,3 +1,29 @@
+###  Публикация: 1382430   (817090) от 12.05.2020
+
+NGW: Самая большая в мире белая акула / World's Bigget Great White Shark? (2019) HDTVRip [H.264/1080p-LQ] [PR]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа профессиональных дайверов и фотограф отправляются на небольшой лодке в море, чтобы заснять жизнь морских обитателей в их естественной среде. Они собираются вокруг кашалота, который дрейфует вблизи острова Оаху, гавайского архипелага. Герои смогли заснять одну из самых больших белых акул, когда-либо попавшихся на камеры.Производство: США, Spectrum Field Productions, LLS., Nat Geo WildЖанр: Документальный, Природа, Фауна, Флора, Реальное ТВРежиссер: Эрик Хардести, Бреннан БутПеревод: Одноголосый закадровый, профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95117546F8BFAF1B6FA0D5A5E8E960D97D2EFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503839   (815852) от 21.10.2021
 
 NGW: Пумы на краю света / Pumas At The End of The World (2020) WEBRip [H.264/1080p] (серии 1-2 из 2)
@@ -6,7 +32,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG. Файлы секретных служб: Охрана президента 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +344,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +370,7 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +396,7 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +422,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +448,7 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +474,7 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +500,7 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +526,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +552,7 @@ NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +578,7 @@ NGW: Холодное королевство снежного барса / The F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +604,7 @@ NG: Самый опасный наркотик / The World`s Most Dangerous Drug
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +630,7 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -630,7 +656,7 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,32 +667,6 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC64D41FC85E95F8E5F550BF01CA8FEA9718CE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508435   (797332) от 08.11.2021
-
-NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уверенная и сильная самка леопарда по имени Олимба правит исключительно большой территорией вдоль реки Луангва в Замбии в Африке. Она грозный охотник, отважный правитель и преданная мать. Она только что родила двух крошечных детенышей, самца и самку. Поскольку она сталкивается со сложной задачей материнства, это постоянная битва за успешную охоту, защиту своей главной (   Читать дальше...   )Производство: Австрия / Kurt Mayer Film, Into Nature Productions, ORF, Arte WDRЖанр: ДокументальныйРежиссер: Уилл Стинкамп, Лианн СтинкампПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E458F1256E59594027ACCA3E2F630CB1F6297FEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

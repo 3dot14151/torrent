@@ -1,61 +1,3 @@
-###  Публикация: 1679938   (134765) от 27.11.2023
-
-Венера Хабирова | Кислотность: желудок, белок, вес (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кого я жду на теме Кислотность?
-Тех, у кого проблемы с желудком
-Симптомов становится все больше, периоды обострения – чаще, а понимания причин – все меньше.
-◦ Поел немного, а ощущение, что объелся..(   Читать дальше...   )Жанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 14:17:45Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524CF5E45FF5CB8190CD0F9FF7E9853FECA57150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680202   (134488) от 28.11.2023
-
-Венера Хабирова | Антистресс для ЖКТ (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лекционный Клуб "Антистресс для ЖКТ" - это не про болезни и диагнозы!
-Клуб - это про БАЗУ: понятные для каждого знания и практические советы о том, как нормализовать работу ЖКТ, а с ним и наладить почти все процессы в организме и начать уже Жить!
-Если по состоянию души и тела у вас:
-Ощущение, что разваливаюсь(   Читать дальше...   )Жанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 11:17:08Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A783DB84620EE4D9C6BDBA8B2DF254A61E323B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680421   (134173) от 29.11.2023
 
 Венера Хабирова | Не делай желчный крайним: диагностика нарушений желчеоттока (2022) WEB-DL [AD] [RU]
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -409,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -438,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -464,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -493,7 +435,7 @@ Gastrosmile, Венера Хабирова | Желудок – ты как? (20
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -522,7 +464,7 @@ Fit-Standard, Владимир Лапин | Техника выполнения 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -551,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +522,7 @@ Medforyou - школа медицины, Михаил Рыбалов | Курс 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -607,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -636,7 +578,7 @@ Skillbox, Виктория Вишнякова | Как правильно пит
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -665,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -694,7 +636,7 @@ Fairtex Muay Thai - Concepts On Training & Combat Strategy [2004] DVDRip
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -720,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -739,6 +681,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23DDE95BB1EE8F3396AADC81CA004DCA8F77CD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487499   (90502) от 24.04.2012
+
+Sova film | Самомассаж: снимаем боль своими руками (2009) DVDRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Конечно, хорошо, когда есть кто-то рядом, кто может сделать вам массаж. А если никого нет? В этом случае на помощь придет самомассаж. Самомассаж незаменим как оздоровительный метод. В зависимости от самочувствия можно менять его характер и дозировку. Прежде чем начать заниматься самомассажем, следует ознакомиться с правилами его проведения, освоить методику и технику его проведения. В процессе самомассажа с кожи удаляются отжившие клетки ее наружного слоя, что способствует улучшению кожного дыхания. Воздействует самомассаж и на мускулатуру. Под влиянием самомассажа мышечная ткань лучше снабжается кислородом и питательными веществами, из нее быстрее выводятся продукты распада. Самомассаж помогает в самое короткое время восстановить работоспособность мышцы, утомленной физической работой. Самомассаж воздействует на суставы и связки, которые при этом приобретают большую подвижность и эластичность. При регулярном применении самомассажа объем движений в суставах может увеличиваться. Самомассаж повышает прочность, выносливость (   Читать дальше...   )Жанр: Обучающее видео, Медицина, ПознавательноеПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457495   (78426) от 25.02.2012
+
+Д.Попов-Толмачев | Тайцзи цюань. Бадуаньцзинь или "8 кусков парчи" [2008] DVDRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Бадуаньцзинь» или « 8 кусков парчи» один из древнейших и популярнейших комплексов цигун в тайцзи цюань. Доказано, что этот комплекс эффективен при профилактике многих хронических болезней, в том числе, помогает и при таких серьезных заболеваниях как диабет. Однако изначально этот комплекс предназначался для практикующих боевые искусства. Даже если вы не собираетесь заниматься боевыми искусствами, данный фильм поможет вам развить и укрепить свое тело.Жанр: Оздоровительная гимнастикаПродолжительность: 0:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3ECD16DDB1C5B4F535C91AFAA28A5129688F57
 ```
 
 https://mybot314.ru/tekegram_catalog/

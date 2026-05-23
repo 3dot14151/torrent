@@ -1,3 +1,96 @@
+###  Публикация: 1766244   (101259) от 17.12.2024
+
+VA - Gym Mode 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta - Forever Young (2:36)
+02. Charli XCX - Apple (2:31)
+03. BL3SS - Kisses (feat. bbyclose) (2:18)
+04. Linkin Park - The Emptiness Machine (3:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C2CEAE6E7141A52CE94649F78FCA6901FE017E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767456   (101159) от 22.12.2024
+
+Michael Simon, Tibetania - Umami (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Miles (7:44)
+02. Natalia (8:16)
+03. Umami (6:45)
+04. Hypnosis (6:25)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB552A35306B6758A531403D1D3796B7948ECB16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461981   (95316) от 03.03.2012
+
+VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Members Of Mayday - Ravemobil
+02. Moguai & Westbam - Original Hardcore (Moguai Edit)
+03. Funkerman - Crash Test
+04. Sebrof - In A Club (So Make Some Noise)
+05. Felix Da Housecat pres… Thee Nese Djouma Projesi - Zaman (Moguai Remix)
+06. Jaydee - Plastic Dreams (Koen Groeneveld Remix)
+07. Inpetto - Hit Back
+08. Toper & Andrian - Laziness
+09. The BeatThiefs - Umbungo (Chocolate Puma Remix)
+10. Jochen Miller - Troucid(   Читать дальше...   )2011Жанр: Progressive HouseПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488331   (90862) от 26.04.2012
 
 VA - Luxury Session Ibiza 2011 (2011) [FLAC|Lossless]<Lounge, Downtempo, House, Deep House>
@@ -6,7 +99,7 @@ VA - Luxury Session Ibiza 2011 (2011) [FLAC|Lossless]<Lounge, Downtempo, House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -39,7 +132,7 @@ Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -74,7 +167,7 @@ Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -109,7 +202,7 @@ Orbital - Wonky (2012) [FLAC|Lossless]<Electronic/Leftfield/Dubstep/Techno/Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +231,7 @@ Oliver Koletzki - Grossstadtmarchen (2009) [FLAC|Lossless]<Tech House, Disco, Nu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -173,7 +266,7 @@ VA - 50 Miami Tunes 2012 WEB [FLAC|Lossless]<Trance, House, Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -206,7 +299,7 @@ VA - Nomadica 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -235,7 +328,7 @@ VA - Winter Dance Covers 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -264,7 +357,7 @@ VA - Ibiza Winter 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +386,7 @@ VA - Tibetania GOLD 2023 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Orga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +415,7 @@ Fatboy Slim - Right Here, Right Then (A Big Beach Boutique Celebration) (2022) C
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +444,7 @@ VA - Winter Deep House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +473,7 @@ VA - Beast Mode Activated in the Gym (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -409,7 +502,7 @@ VA - Winter Tech House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -438,7 +531,7 @@ Jan Blomqvist - MUTE (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -467,7 +560,7 @@ djdtime - Vocal Progressive House & Melodic Techno, Vol. 2 (2025) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -496,7 +589,7 @@ djdtime - Relaxing Deep House & Tech House Mix Vol. 1 (2024) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -525,7 +618,7 @@ djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +647,7 @@ Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +676,7 @@ VA - Ethnicá 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +705,7 @@ LP Giobbi - Dotr (2024) Remixes, 2025, Counter Records [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +734,7 @@ VA - Sport Mixtape (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -670,7 +763,7 @@ djdtime - Minimal Tech House Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -684,93 +777,6 @@ djdtime - Minimal Tech House Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D23EA204E26A8E4CEBF387492BBFC94498F6B333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786558   (68990) от 21.03.2025
-
-VA - Melodica 2025 (Tibetania Rituals) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleanger & Tamer ElDerini & Tibetania - One Last Time (Original Mix) (5:50)
-02. end.ways & Tibetania - April (Original Mix) (8:28)
-03. Darles Flow & Tibetania - Caladan (Original Mix) (5:22)
-04. Ismail Kizil & Tibetania - Yadau (Original Mix) (6:53)(   Читать дальше...   )Жанр: Organic House, Progressive HouseПродолжительность: 01:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAC4A8DFCA3F0588D3C7609BADDF4FD05E4F742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788298   (68593) от 29.03.2025
-
-VA - Milk & Sugar Miami Sessions 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adelphi Music Factory - The Miracle (Original Mix) (2:23)
-02. Milk & Sugar - Higher & Higher (Daniel Steinberg Extended Remix) (5:32)
-03. Bob Sinclar, Steve Edwards - World Hold On feat. Steve Edwards (Tom Staar Extended Remix) (6:52)
-04. David Penn, Rober Gaez, Sheilah Cuffy - Set Me Free feat. Sheilah Cuffy (DJ Kone & Marc Palacios Extended Remix) (   Читать дальше...   )Жанр: HouseПродолжительность: 05:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C9D200CE2876FF10046DFB83280E546B8D8DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788900   (68452) от 01.04.2025
-
-Wolfgang Flur (ex. Kraftwerk) - Times (2025) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Posh (feat. Juan Atkins)
-02. Planet In Fever (feat. U96 & Emil Schult)
-03. Cinema (feat. Fabrice Lig)
-04. Far Away(   Читать дальше...   )Жанр: EDM, Electro, TechnoПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15033B924653B8F02FBF321C57EA729D9D78881
 ```
 
 https://mybot314.ru/tekegram_catalog/

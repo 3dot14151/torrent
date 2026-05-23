@@ -1,3 +1,107 @@
+###  Публикация: 1507839   (798043) от 06.11.2021
+
+Deep Rock Galactic (2020) [Ru/Multi] (1.35.63118/dlc) License CODEX [Season 01: Rival Incursion]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Deep Rock Galactic - научно-фантастический шутер с видом от первого лица для совместной игры, в котором вас ждут крутые космические гномы, полностью разрушаемое окружение, процедурно генерируемые системы пещер и бесконечные волны инопланетных чудовищ.Тип издания: LicenseРазработчик: Ghost Ship GamesЖанр: Action (FPS)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479D1E14B6C5630E162C53C1284F3D9312232482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144388   (797847) от 17.01.2018
+
+Get Even (2017) [Ru/En] (1.0/u1) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Get Even - это шутер от первого лица, от создателей Painkiller, действие игры разворачивается в воспоминаниях главного героя, пытающегося узнать больше о своем прошлом. Дыши... Вспоминай: девушка, стул, бомба. Не бойся… Иди на голос в глубины памяти. Расслабься… Ищи воспоминания в мрачных уголках своего разума. Ты найдешь ее? Времени мало… Это – часть твоего лечения.Тип издания: RepackРазработчик: The Farm 51Жанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5426AB9030A1A7FF6E35AEB682301B22D5721C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508081   (797827) от 07.11.2021
+
+Death Slayer V (2021) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Произошла утечка вируса из секретной лаборатории Eibmoz Corporation. Все заражены... включая вас. У вас есть минуты, прежде чем вы умрете от быстродействующего вируса и превратитесь в Зомби. Возможно, есть способ остаться в живых... но это будет нелегко! Вы найдете шприц с противоядием, который будет сдерживать вирус только в течение нескольких минут, и его нужно (   Читать дальше...   )Тип издания: LicenseРазработчик: MDK softwareЖанр: Action (FPS), SurvivalЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81238C854CD82B652AA39938739E21697290AF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132920   (797062) от 25.05.2020
+
+STRAFE (2017) [Ru/Multi] (23.05.2020/dlc) License GOG [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+STRAFE® - самый динамичный, кровопролитный и убойный боевик в стиле 90-х и с видом от первого лица. Устройте врагам мясорубку и залейте кровью все вокруг! Однако имейте в виду: на исследование леденящих кровь уровней вам отведена всего одна жизнь. После смерти все будет уже совсем иначе.Тип издания: LicenseРазработчик: Pixel TitansЖанр: Шутер, От первого лица, ФантастикаЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E26C56CEAF1672F8A63A70662E5AA8E33E4CF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509010   (795360) от 11.11.2021
 
 Fossilfuel (2021) [En] (1.07/dlc) License PLAZA
@@ -6,7 +110,7 @@ Fossilfuel (2021) [En] (1.07/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) License PLAZA [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) Repack Other s [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Tiny Tina's Assault on Dragon Keep: A Wonderlands One-shot Adventure (2021) [Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Skin Witch (2020) [Ru/Multi] (1.0.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ PREY (2017) [Ru/Multi] (10966486/dlc) Repack Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Borderlands 2 (2013) [Ru] (1.8.4/dlc) License PLAZA [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Beyond Enemy Lines (2021) [En] (2.1.0) License SKIDROW [Remastered Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ E.Y.E: Divine Cybermancy (2021) [En] (1.01) License GOG [Single-Player Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Land of Pain (2017) [Multi] (1.03) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ Turok / Турок (2008) [Ru] (1.0) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +501,7 @@ Betrayer (2014) [Ru/Multi] (1.9.68.44) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/Multi] (1.9.446/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack =nemos= [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ Call of Duty: Ghosts (2013) [Ru/En] (1.0.749678/u21) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ Gunfire Reborn (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ UAYEB (2018) [En] (3.8.13) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +668,6 @@ UAYEB – приключенческая головоломка на выжив�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57AF74B9BDB71C2EF14853476989F58559554F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169520   (788810) от 14.01.2019
-
-Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack R.G. Catalyst
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прославленная студия-разработчик Arkane Studios представляет Dishonored: Death of the Outsider, очередную самостоятельную главу серии Dishonored, высоко оцененной критиками. Вам снова предстоит роль ассасина со сверхъестественными способностями, на этот раз — печально известной Билли Лерк.Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action, Stealth, 1st Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2243D3AB74FE5E360293690917E426CBB9954203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511338   (788717) от 21.11.2021
-
-Nerf Legends (2021) [Multi] (0.1) License FAIRLIGHT
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788717.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре NERF Legends вы попадете в научно-фантастический мир будущего, где столкнетесь с легионами недружелюбных роботов и устрашающими боссами. Вооружитесь бластерами NERF, созданными по образу и подобию реальных игрушек этой серии, и сражайтесь с ужасающими врагами среди уникальных необычных пейзажей, делая впечатляющие сложные выстрелы. Достаточно ли хорошо вы (   Читать дальше...   )Тип издания: LicenseРазработчик: FUN labs Romania S.R.L.Жанр: FPSЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072A8DA4B47E0ACA560D8B5BA7390A2FBA353800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203123   (788446) от 01.02.2018
-
-The Apartment (2018) [En] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788446.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Apartment - психологический триллер. Сочетает в себе детективную приключенческую игру от первого лица, психологический ужас и интересные головоломки, связанные с темной и тяжелой историей, где линии между реальностью и кошмаром размываются...Тип издания: LicenseРазработчик: Shattered MirrorЖанр: Action, Adventure, Horror, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B300D44842E8CD4BD101DCD767EB0AD9107983CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203819   (787484) от 03.02.2018
-
-Blue Estate The Game / Viktor Kalvachev's - Blue Estate: The Game (2015) [Ru/Multi] (1.0.637056) Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blue Estate дарит уникальное погружение в мир мафии Лос-Анджелеса, увлекая бесконечным юмором, оригинальным геймплеем и невероятным весельем! В Blue Estate вы играете за Тони Лучиано, нервного сынка крестного отца итальянской мафии Лос-Анджелеса, и за Кларенса, бывшего морского котика, без гроша в кармане, который стал киллером и твердо вознамерился разгрести кашуТип издания: RepackРазработчик: HeSawЖанр: Arcade (Shoot'em up), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FF5C5DDDF5EB19982CCA3D9EECCE4F89B8D6E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

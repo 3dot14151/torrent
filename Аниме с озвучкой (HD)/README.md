@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 554633   (1068810) от 
+
+Hotaru no Haka / Grave of the Fireflies / Могила светлячков [1988] BDRip 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Последние дни Второй Мировой войны. Американская авиация бомбит беззащитные японские города. В водоворот людского каждодневного кошмара попадают 14-летнии Сэйта и его сестренка Сэцуко. Понеся самую горькую утрату - потерю близких, они остались совсем одни. Юный мальчик в одночасье становится взрослым, столкнувшись с жестокостью мира. Он осознаёт, что от него зависит (   Читать дальше...   )Жанр: аниме, драма, военныйРежиссер: Исао ТакахатаАктеры: Тсутому Татсуми, Аяно Шираиши, Йошико Синохара, Акеми Ямагучи, Рода Цроситэ, Шеннон Конли, Криспин Фриман, Дэн Грин, Эми Джонс, Джордж ЛиверПеревод: Многоголосый закадровый, Одноголосый закадровыйСубтитры: Английские, Русские (МС Entertainment)Продолжительность: 01:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD0E469F9106616499FCFB18CE8AE613BAF3919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860036   (1061525) от 19.03.2026
 
 Seihou Bukyou Outlaw Star | Outlaw Star | Звёздные рыцари с Вольной Звезды [1998, TV, 26 эп.] BDRip 720p raw+rus
@@ -7,7 +33,7 @@ Seihou Bukyou Outlaw Star | Outlaw Star | Звёздные рыцари с Во�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Guilty Crown / Корона греха [2011, TV, 22 ep] BDRip Hi10p 720p Raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Slayers Gorgeous | Великолепные Рубаки [1998, Movie] BDRip 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Lodoss-tou Senki | Record of Lodoss War | Летопись войн остров
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Gekijouban Slayers | Slayers: The Motion Picture | Рубаки на больш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +189,7 @@ Slayers Special | Slayers: The Book of Spells | Особые Рубаки [1996,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +215,7 @@ Slayers Return | Возвращение Рубак [1996, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +241,7 @@ Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +267,7 @@ Jungle Taitei: Yuuki ga Mirai o Kaeru | Jungle Emperor: Courage Changes the Futu
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +293,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Cheburashka Arere? / Фу ты, Чебурашка какой! | Это что �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-2) [2019, Web, 10 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +373,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-1) [2018, Web, 10 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +401,7 @@ Ijiranaide, Nagatoro-san 2nd Attack | Don't Toy with Me, Miss Nagatoro 2nd Attac
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +427,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + Special] BDRip 720p ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +453,7 @@ Le Chevalier D'Eon | Шевалье Д'Эон [2007, TV, 24 эп.] HDTVRip 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +506,7 @@ Saiyuuki | Alakazam the Great | Путешествие на Запад | Вел�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +533,7 @@ Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +561,7 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 из 23] HDTVrip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,7 +591,7 @@ Blade | Блэйд [2011, TV, 12] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -591,7 +617,7 @@ Nazo no Kanojo X / Mysterious Girlfriend X / Загадочная девушка
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,7 +645,7 @@ Gokukoku no Brynhildr / Brynhildr in the Darkness / Брюнхильда во т
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -646,7 +672,7 @@ Yuru Yuri 2 / Yuruyuri 2 / Cвободу Лесбиянкам 2 [2012, TV, 12] H
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -659,32 +685,6 @@ Yuru Yuri 2 / Yuruyuri 2 / Cвободу Лесбиянкам 2 [2012, TV, 12] H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1AE2DA41B41C4FD5B623EC1D38E03555C0989CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975201   (972799) от 14.01.2016
-
-Ansatsu Kyoushitsu / Assassination Classroom / Класс убийц [ТВ-1] [2015, TV, 22 из 22] HDTVRip 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осьминогоподобное существо, позднее получившее имя Коро взорвало Луну и уничтожило 70 % от нее. Теперь на небе всегда полумесяц. Также Коро обещает что через год взорвет и Землю. Что либо сделать с ним не представляется возможным так как от атак он уходит на скорости в двадцать махов, стандартное оружие против него не эффективно и кроме того, он крайне быстро регенерирует. (   Читать дальше...   )Производство: LercheЖанр: комедия, школаРежиссер: Киси СэйдзиПродолжительность: 22 серии по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480DE6A244749596913DA136C656079341A97885
 ```
 
 https://mybot314.ru/tekegram_catalog/

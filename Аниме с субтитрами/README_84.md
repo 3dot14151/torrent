@@ -1,3 +1,107 @@
+###  Публикация: 1419523   (339848) от 28.10.2020
+
+Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет разворачивается в современном Киото. Куми — студентка колледжа, которая перебирается сюда, чтобы принять дела в магазине сладостей, унаследованном от бабушки. К магазину прилагается дом, по идее, пустой, но на деле там проживают три дамочки (Харами, Маи и Кей) и собака. Причём все они — великие герои из иного мира, возродившиеся в нашей реальности. Дальше больше: (   Читать дальше...   )Производство: студия Studio Gokumi / Studio五組Жанр: приключенияРежиссер: Хасимото ХироюкиПеревод: HelshiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFF0BBA5E9B6784B7B9DBE333D170F99D70180B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419351   (339716) от 28.10.2020
+
+Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обычному старшекласснику Канамэ Судо приходит сообщение с приглашением в загадочную мобильную игру «Darwin's Game». Стоило ему запустить приложение, как он стал частью игры, в которой игроки сражаются между собой, причём каждому из них дана сверхъестественная способность — сигил. Сможет ли Канамэ победить сильных противников и выжить в игре, где цена ошибки — смерть?Производство: NexusЖанр: приключенияРежиссер: Токумото ЁсинобуПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 50 мин. + 10 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9F7645127AB03BA89CEC30DE416A6A349F5AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954517   (339360) от 08.11.2015
+
+Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алиса: Дело об убийстве [2015, МV] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Куроя... то есть, Арисугава Тэцуко, или же просто Алиса — ученица средней школы, вместе с матерью вернулась в её родной город после развода родителей, заселилась в новый дом, поступила в новую школу с формой в виде посредственных матросок, да собственно и вся история. Вот только в округе происходят сомнительные вещи: к одной из парт в классе многие месяцы никто не (   Читать дальше...   )Жанр: повседневностьРежиссер: Ивай СюндзиПеревод: 1) Jima Lostinime; 2) TimecraftЯзык субтитров: русскийПродолжительность: 100 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407C8508838725B20D464A4DD195ECCC67E0DC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330520   (338971) от 11.10.2019
+
+Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апельсиновой улицы OVA [1989, OVA, 8 из 8] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юный Кёсукэ Касуга со своей семьей, которая состоит из папаши-фотографа, кота-обжоры и двух непоседливых сестричек-школьниц, в очередной раз переезжает на новое местожительство. Столь частые переезды семьи Кёсукэ отнюдь не случайны, ведь он и его близкие обладают странными мистическими способностями, позволяющими совершать разные полезные, но не всегда разумные поступки: (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: романтика, комедия, повседневностьРежиссер: Накамура Койтиро, Ко Ю, Ёсинага НаоюкиПеревод: IsitoryЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 8 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D537652E0AA243EDDDD25223DF764F4ADAE01543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579233   (338885) от 26.09.2022
 
 Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9 эп.] BDRip 1080p raw
@@ -6,7 +110,7 @@ Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kimagure Orange Road | Capricious Orange Road | Капризы Апельсин�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Kimagure Orange Road: Ano Hi ni Kaeritai | Capricious Orange Road: I Want to Ret
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12 серий] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Tenjoubito to Akutobito Saigo no Tatakai | Мунто (фильм) | После�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +269,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +295,7 @@ Extreme Hearts | Экстремальные сердца [2022, TV, 12 эп. + 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Uchuu no Kishi Tekkaman Blade / Teknoman / Star Knight Tekkaman Blade / Косм
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Nekopara: Koneko no Hi no Yakusoku | Кошачий рай: Обещания к�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Owari no Seraph: Kyuuketsuki Shahar | Seraph of the End: Vampire Shahar | Пос
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Ikoku Meiro no Croisee The Animation | Croisee in a Foreign Labyrinth: The Anima
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Gekijouban Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Senki Zesshou Symphogear XV / Последняя Песня Боевых При�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +584,7 @@ Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Ява�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ Yawara! Special: Zutto Kimi no Koto ga... | Yawara! Atlanta Special | Явара
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +663,7 @@ Saiki Kusuo no Sainan S1+S2 | The Disastrous Life of Saiki K. | Ох уж это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,114 +674,6 @@ Saiki Kusuo no Sainan S1+S2 | The Disastrous Life of Saiki K. | Ох уж это
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E1764C7B2B3505C5D526B45395978D358E80E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259856   (331570) от 19.11.2010
-
-Moonlight Mile 2nd Season - Touch down / Лунная миля 2 [2007, TV, 14] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши дни.Международной Космической Ассоциацией (ISA - International Space Association) на Луне был открыт новый источник энергии - Гелий-3.
-На поверхности Луны планируются постройки реакторов, которые будут работать на этом ресурсе и вырабатывать электроэнергию для Земли.
-Наш главный герой - 27-летний японец Саруватари Горо - неисправимый бабник и любитель выпить, (   Читать дальше...   )Жанр: Приключения/фантастикаРежиссер: Судзуки ИкуПродолжительность: ТВ, 14 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B5CE17512BDF3E7942595219722889F4FFFEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580707   (329838) от 02.10.2022
-
-Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Такаги [ТВ-3] [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученик средней школы Нищиката постоянно испытывал унижение из-за того, что его дразнила Такаги — девочка, которая сидела за соседней партой. В конце концов постоянные издевательства настолько довели его, что он решил отплатить ей той же монетой и поклялся, что в один прекрасный день сможет задразнить её сам.
-
-Третий сезон приключений. Скачать первые два сезона можно (   Читать дальше...   )Производство: Студия Shin-Ei Animation / シンエイ動画Жанр: комедия, романтика, повседневностьРежиссер: Акаги ХироакиПеревод: AnilibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6368942C98FA2543F7D2B1A77886DA5707803C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546331   (329536) от 02.10.2022
-
-Summer Time Render / Summer Time Rendering / Летний рендер / Летнее время [2022, TV, 25] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потерявший родителей Щинпей Адзиро некоторое время жил на острове Хитогащима с сестрами Кофуне — Мио и Ущио, а затем переехал в Токио. Но получив весть о гибели Ущио из-за несчастного случая, он возвращается. Однако увидев синяки на теле погибшей девушки, он начинает сомневаться в причинах её смерти. И вскоре Щинпей убеждается, что есть другое объяснение. Опасные (   Читать дальше...   )Жанр: триллер, драма, мистика.Режиссер: Ватанабэ АюмуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 25 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB3B58246B0D49726FEEAC37BE790CB15F6D561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742380   (328898) от 17.11.2014
-
-Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия воронёной стали | Арпеджио Синей Стали [2013, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328898.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом мире ледяные шапки Земли в XXI веке тоже подтаяли, но по морям-океанам особо не поплаваешь – откуда ни возьмись, явился «Флот Тумана» из разумных кораблей. Пришельцы, ведомые искусственным интеллектом, превосходящие землян технически, блокировали привычные водные и воздушные пути, в результате люди стали пленниками сухопутья. Совершенные боевые корабли Тумана, (   Читать дальше...   )Производство: Студия SanzigenЖанр: приключения, фантастика, романтикаРежиссер: Киси СэйдзиПеревод: HUNTA & FratelliЯзык субтитров: РусскийПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE37A2ECF74E7A33CEE356C92F545C5F2CA9972
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1060806   (452252) от 08.10.2016
+
+Epica (2016) [En] (1.0) License HI2U
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Epica — игра в жанре скроллер-платформера, действия которой происходят в мире с темной атмосферой. Игра подобна играм 90-х от SEGA и SNES, но с более современной графикой.Тип издания: LicenseРазработчик: RyuVsCloudЖанр: Adventure, PlatformЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5754BCDD426A8F6FD2181A2454CD06B1468163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163308   (452063) от 04.09.2017
 
 WARRIORS ALL-STARS (2017) [En/Ja/Ko] (1.0.0.1/dlc) License CODEX
@@ -6,7 +32,7 @@ WARRIORS ALL-STARS (2017) [En/Ja/Ko] (1.0.0.1/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Teslagrad (2013) [Ru/Multi] (1.4.1) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Brave: The Video Game [Ru/En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ A.I. Invasion (2015) [En] (1.0) Repack Mr.Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Super Lucky's Tale (2018) [Ru/En] (2827966/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Color Guardians (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.6/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Double Dragon: Neon (2014) [En] (1.0/u3) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Injustice 2 (2017) [Ru/Multi] (1.0/u12/dlc) Repack R.G. Catalyst [Legendary Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Gravity Ghost (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Clockwork (2016) [En] (1.0.0.3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) Unofficial CoolGames
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Indivisible (2019) [Ru/Multi] (42940/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Rocket League (2015) [Ru/Multi] (1.53/dlc) Repack Other s [Game of the Year Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +501,7 @@ Naruto Shippuden Ultimate Ninja 4 [En/Ru] (P) 2009
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +527,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.5) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +553,7 @@ BloodRayne: Betrayal (2014) [Ru/Multi] (13.10.15) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +579,7 @@ Goggles - World of Vaporia (2015) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +605,7 @@ Flood of Light (2017) [En/Ch] (1.1.3) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +631,7 @@ Rochard [Ru/Multi12] (RePack/1.31) 2011 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +658,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 3 Full Burst HD (2017) [Ru/Multi] (1.0.0.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,32 +669,6 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 3 Full Burst HD (2017) [Ru/Multi] (1.0.0.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D85F805938641616C416AAAA568758E85FF1FF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166651   (423455) от 17.09.2017
-
-Ultimate Marvel vs Capcom 3 (2017) [En] (1.0/upd1) Repack Mizantrop1337
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marvel и Capcom объединились, чтобы организовать самые безумные битвы 3 на 3 в игре Ultimate Marvel vs Capcom 3. Версия игры для персональных компьютеров содержит весь выпущенный дополнительный контент. Выбирайте из самых популярных персонажей Marvel и Capcom и соберите команду на свой вкус в режиме «Heroes and Heralds». Отточив свои навыки, отправляйтесь в гущу (   Читать дальше...   )Тип издания: RepackРазработчик: CapcomЖанр: Action, Arcade (Fighting)Язык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7946709F60988E0B69F549962E83CBCB21872E93
 ```
 
 https://mybot314.ru/tekegram_catalog/

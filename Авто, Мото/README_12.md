@@ -1,3 +1,168 @@
+###  Публикация: 1412286   (420451) от 28.09.2020
+
+Серия Кубков NASCAR 2020. Плей-офф. 30-й Этап. Лас-Вегас. Гонка / NASCAR Cup Series 2020. Playoffs. Round 30. South Point 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
+27 сентября 2020 года. Лас-Вегас (штат Невада, США).
+30-й Этап. Лас-Вегас (South Point 400)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94181ED51064CD4C2C5B1F74C8E749CF58677DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412252   (420449) от 28.09.2020
+
+Мотоспорт. Спидвей. Гран-При 2020. Прага (Чехия). 5-й Этап (2020) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по спидвею 2020 — международные соревнования между сильнейшими спидвейными гонщиками мира. Победитель определяется в гонках серии Гран-При.
+18 сентября 2020 года
+5-й Этап. Прага (Чехия)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: Спорт,  МотоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6A051AD98997A0E85CDAD4EA30077B6D2684E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413392   (408354) от 04.10.2020
+
+Дрэг-рейсинг. Чемпионат NHRA 2020. Этап 7 / NHRA Drag Racing Championship 2020. Event 7 - AMALIE Motor Oil NHRA Gatornationals, Gainesville Raceway (27.09.2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра. Реже проводятся заезды на (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути дрэг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9244275D0729C430DC0444A6A4E3127B1190A110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413917   (406818) от 06.10.2020
+
+Серия Кубков NASCAR 2020. Плей-офф. 31-й Этап. Талладега. Гонка / NASCAR Cup Series 2020. Playoffs. Round 31. YellaWood 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
+04 октября 2020 года. Линкольн (штат Алабама, США).
+31-й Этап. Талладега (YellaWood 500)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B73AAF5AF3137C133E8EF582796A21ACEEB243A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169528   (402233) от 28.09.2017
+
+Возвращение / The Return (2017) WEBRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Возвращение" - это документальный фильм, режиссером которого является обладатель премии Эмми, Эрих Джойнер. В фильме приводится хроника возвращения Ford GT на гонку "24 часа Ле-Мана" после триумфальной победы в 1966 году, когда американцы заняли первое, второе и третье места.Производство: Франция, США, Великобритания, Tool of North AmericaЖанр: Документальный, приключения, спортРежиссер: Эрих ДжойнерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4087D2E522A697897DEE596439CD0F1871354C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574416   (388043) от 04.09.2022
+
+MotoGP. Этап 14. Гран-при Сан-Марино. Гонка (04.09.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+4 сентября 2022, воскресенье. 15:10 МСК, Этап 14, Мизано-Адриатико, Италия. Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D260D22719A245EA045DD02519385B2A289D9A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414740   (383623) от 09.10.2020
 
 Мотоспорт. Спидвей. Гран-При 2020. Торунь (Польша). 7-й Этап (2020) IPTVRip [H.264/1080i-LQ]
@@ -6,7 +171,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +281,7 @@ WRC 2020: Этап 6. Ралли Италия Сардиния. Обзор (09-1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +336,7 @@ MotoGP. Этап 10. Гран-При Испании. Гонка. (18.10.2020) WE
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -199,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -225,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -251,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -277,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -306,7 +471,7 @@ MotoGP. Этап 15. Гран-при Арагона. Гонка (18.09.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -332,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -358,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +549,7 @@ MotoGP. Этап 11. Гран-При Арагона. Гонка. (25.10.2020) WE
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +577,7 @@ MotoGP. Этап 16. Гран-при Японии. Квалификация (24.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -519,7 +684,7 @@ MotoGP. Этап 16. Гран-при Японии. Гонка (25.09.2022) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,165 +695,6 @@ MotoGP. Этап 16. Гран-при Японии. Гонка (25.09.2022) WEBRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26D2C4C8A86CC3E091FC938F839DBE8C8BE9F69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419442   (339992) от 28.10.2020
-
-Дрэг-рейсинг. Чемпионат NHRA 2020. Этап 10 / NHRA Drag Racing Championship 2020. Event 10 - Mopar Express Lane NHRA SpringNationals Presented By Pennzoil, Houston Raceway Park (25.10.2020) WEB-DL [ ...
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра. Реже проводятся заезды на (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути дрэг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260444315479AECC9F872701CDF9A5C80C10C8C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420468   (332546) от 01.11.2020
-
-Серия Кубков NASCAR 2020. Плей-офф. 34-й Этап. Техас. Гонка / NASCAR Cup Series 2020. Playoffs. Round 34. AAA Texas 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
-25-28 октября 2020 года. Форт-Уэрт (штат Техас, США).
-34-й Этап. Техас (AAA Texas 500)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A14841DA7592DFE60CFA143E5BE0465648564E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580483   (330807) от 01.10.2022
-
-MotoGP. Этап 17. Гран-при Таиланда. Квалификация (01.10.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 октября 2022, суббота. 11:05 МСК. Этап 17, Бурирам. Гран-при Таиланда. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C64F161D54B9C9D99346ED008F302B762F13DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580730   (329828) от 02.10.2022
-
-MotoGP. Этап 17. Гран-при Таиланда. Гонка (02.10.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329828.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 октября 2022, воскресенье. 11:55 МСК. Этап 17, Бурирам. Гран-при Таиланда. Гонка (25 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E640F1F0E5B51B7FADC5188AFCF7AFED3CDA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421106   (322103) от 03.11.2020
-
-Бразильская автоспортивная серия гоночных грузовиков. Сезон 2020. Этап 1. Каскавел. Гонка 1-2 / Copa Truck-2020 (ex- Formula Truck). Cascavel/PR (27-28.06.2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Copa Truck — бразильская автоспортивная серия гоночных грузовиков, до 2017 года она называлась Formula Truck.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 1:16:33 + 1:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5817FF803AB538AAEE64A879B827186FD6AE6827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421612   (317647) от 05.11.2020
-
-Дрэг-рейсинг. Чемпионат NHRA 2020. Этап 11 / NHRA Drag Racing Championship 2020. Event 11 - Dodge NHRA Finals presented by Pennzoil, Las Vegas Motor Speedway (01.11.2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра. Реже проводятся заезды на (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути дрэг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCCE21A88C63BFDF22CDEBC73A6F2AF58E45746
 ```
 
 https://mybot314.ru/tekegram_catalog/

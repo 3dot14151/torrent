@@ -1,3 +1,107 @@
+###  Публикация: 1421058   (319182) от 04.11.2020
+
+Asterix & Obelix XXL: Romastered (2020) [Multi] (1.0.29) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Asterix и Obelix с помпой возвращаются в новой версии, полной римлян. На дворе 50-й год до н.э. Вся Галлия оккупирована римлянами... Вся? Нет! Одна деревушка, населенная непокорными галлами, до сих пор сопротивляется захватчику. И гарнизонам римских легионеров в укрепленных лагерях Babaorum, Aquarium, Laudanum и Petitbonum живется очень несладко.Тип издания: LicenseРазработчик: OSome StudioЖанр: Экшн, ПриключениеЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC23138CDEE9E92BC280E88D069986CA7AD71216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182180   (318798) от 09.11.2017
+
+Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Независимая студия Cyan, создавшая игры Myst и Riven, приглашает вас в новое путешествие, которое откроет вам целый мир. Вы гуляли по берегу озера в пасмурную ночь, когда вдалеке вдруг раздался оглушительный грохот. Странный органический артефакт упал с небес и бесцеремонно перебросил вас на другой край вселенной.Тип издания: RepackРазработчик: CyanЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D761EA00A804D7870D32CF7F0BF0B5C0FF247A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095619   (318449) от 09.11.2017
+
+Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anniversary Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Габриэль расследует серию убийств, рассчитывая на основе этого дела написать новую книгу. Дело примечательно тем, что в нём прослеживаются следы колдунов вуду. Во время расследования Габриэлю приходится всё глубже погружаться в мир мифов вуду, изучать их методы колдовства. Неожиданно для себя он обнаруживает странную связь между этим делом и ночными кошмарами, снившимися (   Читать дальше...   )Тип издания: LicenseРазработчик: Pinkerton Road StudioЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B04985324F77F9D16E04B50EACEB38A520B0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330100   (317906) от 18.10.2019
+
+The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Падение самолета — лишь начало. Восемь выживших остались брошенными посреди суровых лесов Аляски, полных секретов и тайн. The Wild Eight — это суровое приключение в случайно генерируемом мире, полном опасности и испытаний. Добывай ресурсы для выживания и исследуй локации в поисках спасения бок о бок с другими игроками. Или ты попробуешь выбраться отсюда в одиночку?Тип издания: RepackРазработчик: HypeTrain DigitalЖанр: Simulator (Survival, Top-Down), RPG, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683CADFFEC8747C15172BB5447CB96FFED7BECA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182291   (316369) от 10.11.2017
 
 Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe Edition]
@@ -6,7 +110,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Miasmata [En] (L) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Stories Untold (2017) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/En] (3.0/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Book of Unwritten Tales 2 (2015) [En/Multi] (25.11.2015) License PROPHET [Al
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.3.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.041
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) Repack Other s [Masterpiece Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,111 +669,6 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF8BBD316472D666F9773ED4DA8680C186F1553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266655   (305799) от 05.12.2010
-
-Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дилогия]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осень 2008 года. Агент ФБР Виктория Макферсон отправляется в штат Мэн для расследования убийства Одри Данниген. Фотографии с места преступления не оставляют сомнений - маньяк, известный как «Палач Восточного побережья», вновь начал собирать кровавую жатву. Убийца не поленился тщательно вымыть труп, при вскрытии не было обнаружено никаких улик. Преступник снова не (   Читать дальше...   )Тип издания: RePackРазработчик: GameCo StudiosЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F769A18485D1112490DA92C6CF7C3F38BAC4F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333292   (304946) от 24.10.2019
-
-The Park (2015) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304946.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Park — это психологический ужастик от первого лица; действие происходит в мрачном парке развлечений, полном темных секретов. В этой короткой, на пару часов, игре на первый план выходит напряженная история и исследование, а не бой и экшн. День в парке развлечений... забытый плюшевый мишка... потерявшийся ребенок. Когда солнце зайдет над парком «Атлантик-Айленд», (   Читать дальше...   )Тип издания: RepackРазработчик: FuncomЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2FB5A6CF8EE935FD8D79B084B6F08FD924CA63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582982   (304708) от 05.12.2012
-
-The Moment Of Silence / Момент истины [Ru] (L) 2005
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304708.jpg" />
-</div>
-
-
-###  Подробнее
-
-2044 год. Жизнь сотрудника телекоммуникационного агентства Питера Райта, потерявшего семью в авиакатастрофе незадолго до начала описанных событий, внезапно изменилась после ареста его соседа. Темной ночью отряд спецназа взял штурмом квартиру несчастного и уволок неизвестно куда. Помощь испуганным домочадцам жертвы полицейского произвола — гораздо более достойное занятие, чем поиск истины на дне стакана виски. Питер ввязывается в историю с правительственными заговорами, слухами об инопланетянах, контролирующих жизнь каждого землянина, и таинственными «людьми в черном», способными попирать все мыслимые гражданские права и свободы.
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B11B8E57E6E7FDC8B94D6B13CBB122E79EA0E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077845   (303936) от 29.11.2016
-
-Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Quern - Undying Thoughts является нелинейной адвенчурой от первого лица, действия которой развернутся в одной из мультивселенных, в мире, где остров по всем сторонам омывается бескрайним океаном, что же ждет вас впереди? Получайте подсказки из двух источников: рационального и духовного.Тип издания: LicenseРазработчик: Zadbox EntertainmentЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, Венгерский, ФранцузскийЯзык интерфейса: Английский, Венгерский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200D2F0270871830AFCB81A6A3A996CC7F278BD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

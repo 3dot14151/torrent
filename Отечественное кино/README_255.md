@@ -1,3 +1,107 @@
+###  Публикация: 1730832   (52904) от 18.06.2024
+
+Адмиралъ (2008) BDRip [H.264/720р]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм, рассказывающий о жизни и любви выдающегося боевого офицера военно-морского флота, полярного исследователя, а затем ставшего адмиралом, верховного правителя России - Александра Васильевича Колчака и Анны Тимиревой. События разворачиваются в период 1916-1920 годов на фоне крушения Российской империи, двух революций и Гражданской войны.Производство: Россия, Франция / Дирекция Кино, France Télévisions DistributionЖанр: драма, историяРежиссер: Андрей КравчукАктеры: Константин Хабенский, Елизавета Боярская, Сергей Безруков, Анна Ковальчук, Владислав Ветров, Егор Бероев, Ришар Боринже, Николай Бурляев, Виктор Вержбицкий, Фёдор Бондарчук и другиеСубтитры: английскиеПродолжительность: 02:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30AEB5FB05B3BD8E10DFE754B002739C821251A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731309   (52739) от 20.06.2024
+
+Тайное влечение / Вета (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юная актриса Вета искренне верит в свою мечту. Её стремление оставить вклад в искусстве замечает и поддерживает мастер курса. Вета проживает в творческом создании спектакля свою травму, связанную с уходом отца из семьи. Она сможет воплотить свою мечту, если справится с чередой предательств и чувствами, возникшими к режиссёру.Производство: Россия | «Продюсерский центр «ВГИК-Дебют»Жанр: Драма, мелодрамаРежиссер: Стася ВенковаАктеры: Мария Янычева, Дарья Балабанова, Антон Рогачев, Миндаугас Папинигис, Роза Хайруллина, Найк Борзов, Святослав Рогожан, Мила Ершова, Валерия Ёлкина, Игорь ЖуравлёвСубтитры: РусскиеПродолжительность: 01:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7ACB191CECEE5A33B495A3004532CBC89FB7E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731354   (52734) от 20.06.2024
+
+Тайное влечение / Вета (2022) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юная актриса Вета искренне верит в свою мечту. Её стремление оставить вклад в искусстве замечает и поддерживает мастер курса. Вета проживает в творческом создании спектакля свою травму, связанную с уходом отца из семьи. Она сможет воплотить свою мечту, если справится с чередой предательств и чувствами, возникшими к режиссёру.Производство: Россия | «Продюсерский центр «ВГИК-Дебют»Жанр: Драма, мелодрамаРежиссер: Стася ВенковаАктеры: Мария Янычева, Дарья Балабанова, Антон Рогачев, Миндаугас Папинигис, Роза Хайруллина, Найк Борзов, Святослав Рогожан, Мила Ершова, Валерия Ёлкина, Игорь ЖуравлёвСубтитры: РусскиеПродолжительность: 01:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7585FBA20B182A0EC00540B2614602284DC2729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731578   (52660) от 21.06.2024
+
+Как я встретил ее маму (2023) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Можно вывезти юношу с Кавказа, но Кавказ из юноши — никогда. Видимо, так посчитали кавказские родственники обрусевшего осетина, когда решили помочь ему, следуя древней традиции, прокатить его питерскую невесту до аула! Но что, если в итоге в машине окажется совсем не та невеста, семья узнает главную тайну Давида, а для всех собравшихся гостей свадьбу все равно нужно (   Читать дальше...   )Производство: Россия | «Продюсерский центр Киностудии им. М. Горького»Жанр: КомедияРежиссер: Егор СальниковАктеры: Грант Тохатян, Мамука Патарава, Дмитрий Красилов, Наталья Щукина, Армэн Арушанян, Елизавета Кононова, Эвелина Блёданс, Арарат Кещян, Георгий Громов, Вячеслав СтепанянСубтитры: Русские (отдельно)Продолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7C77690A122411B035DD5FC6056B589A5720A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731584   (52652) от 21.06.2024
 
 Вы меня видели? (2024) WEBRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ VНУК (2022) WEB-DLRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ VНУК (2022) WEBRip [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A427CB60A03F983C6840F5283649A096147BB7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616811   (49792) от 17.07.2024
-
-Не хороните меня без Ивана (2022) WEB-DL [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Якут Степан Бересеков периодически впадает в летаргический сон. Только сын священника Иван Попов может отличить его состояние от настоящей смерти. Но Попов уезжает в продолжительную этнографическую экспедицию. Степан решает последовать за своим спасителем, чтобы не быть похороненным заживо.Производство: Россия / Студия Автор, СахафильмЖанр: ДрамаРежиссер: Любовь БорисоваАктеры: Дариус Гумаускас, Александр Чичахов, Михаил Сажин, Вячеслав Югов, Елена Маркова, Нюргуяна Шадрина, Степан Петров, Вера Ефремова, Кира МаксимоваЯзык озвучки: РусскийСубтитры: Русские (Hardsub на якутскую речь)Продолжительность: 01:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5CEC4EE5BFCF9F9EBB561353A67B935DB3CB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519551   (49785) от 17.07.2024
-
-Нормальный только я (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в детском лагере «Красный сокол», который по корыстной договорённости директора Игоря Новожилова и местного мэра Виктора Рюриковича признают аварийным. Но их амбициозным планам не суждено сбыться, в лагерь, неожиданно, приезжает отряд детей с особенностями здоровья. Угрозы, подкуп, поджог — Игорь идёт на всё, чтобы выставить детей из лагеря. (   Читать дальше...   )Производство: Россия, Проспект МираЖанр: комедияРежиссер: Антон БогдановАктеры: Антон Богданов, Ольга Лерман, Константин Хабенский, Максим Виторган, Сергей Кутергин, Егор Гуськов, Софи Витаута, Игорь Гаспарян, Артур Новгородцев, Егор ЕговцевПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E27E667AFAAD23ED1A7D490A09F295492A13F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737507   (49692) от 18.07.2024
-
-Семейный переполох (2024) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обидевшись на вечно занятого мужа, Аня забирает детей и уходит от него. Вот только домохозяйка не ожидала, что устроить жизнь с двумя дочерьми и сыном будет так сложно. Недовольны новым положением дел и дети. Они привыкли, что мама всегда дома и все свое время посвящает им. А теперь Аня постоянно пропадает на работе и возвращается уставшая и раздражительная. Пытаясь (   Читать дальше...   )Производство: Россия | START, «Ол Медиа Компани», «Вита Актива»Жанр: Комедия, семейныйРежиссер: Евгения ЮстусАктеры: Зоя Бербер, Владимир Гуськов, Ева Смирнова, Полина Айнутдинова, Савелий Кудряшов, Александра Урсуляк, Наталья Земцова, Алексей Гришин, Никита Тарасов, Владимир СелезневСубтитры: ОтсутствуютПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32F18ED468C125D0EDF7580A0789BA318944B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628976   (49679) от 18.07.2024
-
-О чем говорят мужчины. Простые удовольствия (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дело было в далеком 2019-м году… Встретившись субботним утром, чтобы выпить шампанского, друзья отправляются в новое путешествие по глубинам мужского подсознания. О чем же на этот раз говорят мужчины? Конечно, о личном. Леша пытается понять существует ли «женская дружба», Камиль рассуждает, можно ли уволить лучшего друга, ловелас Слава вспоминает первую любовь (или (   Читать дальше...   )Производство: Россия, Хэд Мэйд Продакшен, START, Стрела, Yellow, Black & WhiteЖанр: комедияРежиссер: Михаил ПоляковАктеры: Ростислав Хаит, Мария Ремер, Леонид Барац, Камиль Ларин, Александр Демидов, Михаил Полицеймако, Максим Виторган, Гарик Харламов, Дмитрий Нагиев, Мария Шамшина, Лия МамуховаПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C288DE89D2C30525BC841EC0F89D3F0AE31E4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

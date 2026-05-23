@@ -1,3 +1,203 @@
+###  Публикация: 1340180   (263985) от 23.11.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 22.11.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix) 2:56
+02. Slider & Magnit - Morze 3:11
+03. Tones And I - Dance Monkey 3:30
+04. RSAC - NBA (Rompasso Remix) 2:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A153410E02C76969FB446076F8A182B99DC7083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191837   (263780) от 15.12.2017
+
+VA - Need For Speed Vol.10 (2017) [MP3|320 Kbps] <Dance, Hans Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. B&W, Junior Paes - Flying to the Sky (DJ-V. Remix)
+02. DJ Arix - I Like It (Max R. Remix)
+03. Ed Sheeran - Shape Of You (Timster Bootleg)
+04. Tronix DJ feat. Gemma B. - Flyin (R3Dcat Remix)(   Читать дальше...   )Жанр: Dance, Hans UpПродолжительность: 06:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4954CE0C7C74465614EA2F647B80BE86F70D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191865   (263763) от 15.12.2017
+
+VA - New Italo Disco 80s (2017) [MP3|320 Kbps] <Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+001. Roby - It's My Life (Short Bacardi Mix)
+002. Estimado - Goodbye My Angels Night
+003. Limelight - Falling in Love (Radio Beach Club Remix)
+004. Mode One - Secret of Love(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 11:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE4FADA2627F7D389C1CC7C8ABE2FCCA58538CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340626   (263593) от 24.11.2019
+
+VA - не Громкие новинки недели 44 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1.IOWA - Маяки (4:44)
+2.Николай Носков - Живой (4:19)
+3.Мот - Сталактит (4:00)
+4.Валерий Меладзе feat. Альбина Джанабаева - Мегаполисы (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E748F5E0C9C63AD4DFA3C938C80970E22479E99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509494   (263569) от 24.11.2019
+
+VA - Маме - для души и сердца (2012) [MP3|320 кб/с]<POP>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 04:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144E06F85A219A672CCDEA3FD7E9B43D38C4F495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192006   (263498) от 16.12.2017
+
+VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disco House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+001. Phuture Point - The Mission (Wavegrooves Mix)
+002. Dele Sosimi Afrobeat Orchestra - Too Much Information
+003. Frank Vision - My Dad Is Gone (Dolphin Mix)
+004. Osunlade - Envision (Yoruba Soul Mix)(   Читать дальше...   )Жанр: Dance, Funky, Disco HouseПродолжительность: 14:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192209   (263393) от 16.12.2017
+
+VA - Top 100 Зайцев.Нет Ноябрь (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+001.  DJ Slon & Katya feat. Роман Василенко  -  Life Is Good  3:01
+002.  J. Balvin & Willy William  -  Mi Gente  3:09
+003.  Дима Билан  -  Держи  3:41
+004.  Serebro  -  Между нами любовь  3:11(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAB62FDF644C27FEB1F7AC12AB45EF203966740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192398   (263207) от 17.12.2017
 
 VA - The Official UK Top 40 Singles Chart 15.12.2017 [MP3|192-320 Kbps] <Alternative, Indie, Other>
@@ -6,7 +206,7 @@ VA - The Official UK Top 40 Singles Chart 15.12.2017 [MP3|192-320 Kbps] <Alterna
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +235,7 @@ VA - Нормас Пати (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -64,7 +264,7 @@ VA - Radio DFM Top D-Chart Ноябрь 2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -93,7 +293,7 @@ VA - The best hits 80-90 Vol. 2 (2017) [MP3|192-320 Kbps] <Eurodance, Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -122,7 +322,7 @@ VA - Зайцев.Нет: Лучшие Новинки Декабря (2017) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -151,7 +351,7 @@ VA - Зайцев.нет Свежие хиты Ноябрь 2019 [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -180,7 +380,7 @@ VA - Mery Cristmas Eurodance (2017) [MP3|224-320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -209,7 +409,7 @@ VA - Music For Car 6 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -238,7 +438,7 @@ VA - Дискотека 2018 Dance Club Vol.172 от NNNB (2017) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +467,7 @@ VA - Remix Voyage Vol.1 (2017) [MP3|320 Kbps] <Pop, House, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -296,7 +496,7 @@ VA - Remix Voyage Vol.2 (2017) [MP3|320 Kbps] <Pop, House, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -325,7 +525,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -354,7 +554,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -383,7 +583,7 @@ VA - The Official UK Top 40 Singles Chart 22.12.2017 [MP3|192-320 Kbps] <Alterna
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -412,7 +612,7 @@ VA - Club Night Vol.4 (2017) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -441,7 +641,7 @@ VA - Disco Italo: Emotional Party (2017) [MP3|192-320 Kbps] <Italo Disco, Remix>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -470,7 +670,7 @@ VA - Alternative Range: New Age Relaxing Groove (2017) [MP3|256-320 Kbps] <New A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -499,7 +699,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -528,7 +728,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -542,227 +742,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86325547B3DD747C382E893D99A9DE35D8E1C22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194116   (261757) от 23.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 6) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Лев Лещенко  -  Прощай  4:07
-02.  Мария Пахоменко  -  Мужчины  2:54
-03.  Анатолий Королёв  -  Пойте о любви  4:02
-04.  Муслим Магомаев  -  Песня о капитане  3:04(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C3FE38A422BA84E5B33ABD8F10E2F8AD204F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838805   (261491) от 25.11.2025
-
-Green Dolls - Dark Cabaret Nights (2025) [MP3|192-320 Kbps] <Electro Swing, Nu-Jazz, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The House Always Wins
- 02 - The Black Cat Knows
- 03 - The Corridor Deal
- 04 - Money Laughs Louder(   Читать дальше...   )Жанр: Electro Swing, Nu-Jazz, OtherПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95E29851B5818EA8B53664DD2A21569BC3F8F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838907   (261463) от 25.11.2025
-
-VA - Music News For Forum vol.150 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261463.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KATANA - Падший ангел (02:37)
- 002. 5 Пятниц - Фетиш (02:51)
- 003. 6LOCKMYHEART - Echelon No. 1 (01:49)
- 004. Alex Mueller feat. Retrika & Alan Krevo - Dance Zone (Extended Mix) (03:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30F59C487546420F4E8AE69813E6477D3EA8EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838742   (261310) от 24.11.2025
-
-VA - Music News For Forum vol.149 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261310.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cynthia Erivo & Jonathan Bailey - As Long As You’re Mine   (04:07)
- 002. 5 Seconds of Summer - I'll Find You (03:33)
- 003. 5 Seconds of Summer - Start Over (03:11)
- 004. 5 Seconds of Summer - Wishful Dreaming (03:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC53FFBD9DA5D2F45D10221C0B5931C1C5AF8EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505480   (261274) от 04.06.2012
-
-VA - Музыка для кача (1996-2012) [MP3|320 кб/с]<Metall, Heavy Metal, Industrial>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261274.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:46] 09. Scooter - How Much Is the Fish?
-[03:32] 04. Scooter - Fire
-[05:30] 01. Manowar - Call to Arms
-[05:52] 08. Manowar - Warriors Of The World United
-[03:49] 12. Primal Fear - Conviction
-[03:56] 11. Primal Fear - Blaze Of Glory
-[04:39] 02. Primal Fear - Strike
-[04:10] 02. Rammstein - Der Meister
-[04:18] 03. Manowar - King Of Kings
-[05:19] 01. Manowar - Return Of The Warlord(   Читать дальше...   )1996-2012Жанр: Metall, Heavy Metal, IndustrialПродолжительность: 01:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9792F4B46EE4C4B6C6579AD6868499FB4474AFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505057   (261040) от 03.06.2012
-
-VA - Русская Дискотека 80-90-Х Remix DJ Vol.2 (2012) [MP3|256 kbps]<Dance|Club|Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наташа Королева - Конфетти (Carnaval Version 2011)
-02. Анжелика Варум - Зимняя вишня (Ural Djs Ritm Version)
-03. Dj Нил & Андрей Аверин - Бабло побеждает зло (Radio Gansta House Rap Mix)
-04. A-Europa - Белые Небеса (Dj Nastasya Radio Mix)
-05. DJ Mikola vs. Руки Вверх - Крошка моя (DJ XM Remix)
-06. Натали - Черепашка (DJ Melnikoff Remix)
-07. DJ Andrew S.Mile & Syntheticsax - Лезгинка (House Style)
-08. Балаган Лимитед - Че те надо (DJ Dron Remix)
-09. Ева Польна - Не расставаясь (Official Club Version)
-10. Света & DJ Jump - Город рая 2011 (Aleksey Kraft Remix)(   Читать дальше...   )2012Жанр: Dance|Club|DiscoПродолжительность: 06:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA299C1CE87E21A20050AEEC216D007033A09B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505073   (260808) от 03.06.2012
-
-VA - Maxi. Mega Italo Disco (2012) [MP3|320 kbps]<Dance|Pop|Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Zivago - Tell By Your Eyes
-02. Robin - Flames Of Love
-03. Latin Rose - Everybody Is Gay
-04. Ken Laszlo - Tonight
-05. Den Harrow - Don't Break My Heart 2k
-06. Righeira - La Bionda - Vamos A La Playa
-07. Mikki - Meteor Man 2k - Rainbow
-08. Larabell - Up And Down
-09. Grooove - Black Is Black
-10. Alan Cook - Bad Dreams(   Читать дальше...   )2012Жанр: Dance|Pop|DiscoПродолжительность: 05:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A56706A0DEED7364CEE3EEF0A79CB99F89A879
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 41641   (964515) от 17.01.2014
+
+BBC: Загадки истории. Мифы и герои / BBC: In Search Of Myths & Heroes (2005) DVDRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Новый документальный фильм компании ВВС приглашает в увлекательное и захватывающее путешествие в далекое прошлое нашей цивилизации. Вам предстоит познакомиться с четырьмя наиболее известными и загадочными легендами человечества:
+1. Царица Савская;
+2. Шангри-Ла;
+3. Ясон и Золотое Руно;(   Читать дальше...   )Жанр: документальныйРежиссер: Джереми Джеффс (Jeremy Jeffs)Актеры: Майкл Вуд (Michael Wood)Перевод: Русский двухголосый закадровыйПродолжительность: 03:56:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 109312   (962804) от 13.02.2020
+
+Discovery: 100 Величайших Открытий / Discovery: 100 Greatest Discoveries (2004) [TVRip]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Любое открытие, в какой бы сфере науки оно ни было сделано, способно коренным образом изменить ход эволюции, хотя на первый взгляд далеко не каждое из них покажется нам важным и полезным. Однако есть в истории науки открытия, мгновенно перевернувшие не только нашу повседневную жизнь, но и наше представление о мире.
+
+Стремление познать себя и окружающий мир — движущая (   Читать дальше...   )Производство: США / ThinkFilm Inc.Жанр: ДокументальныйРежиссер: Майк ФаунтинПеревод: ОдноголосыйСубтитры: ОтсутствуютПродолжительность: 8 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2023DA671D31382534F5A8BA56BD8B698C305EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360510   (960551) от 15.02.2020
 
 BBC: Планеты. Юпитер / Nova: The Planets: Jupiter (2019) IPTVRip [H.264]
@@ -6,7 +63,7 @@ BBC: Планеты. Юпитер / Nova: The Planets: Jupiter (2019) IPTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +89,7 @@ Discovery. Река забвения / River of No Return (2019) HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +115,7 @@ BBC: Чудо животного мира / Wonder of Animals (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +141,7 @@ Discovery. Выжить любой ценой / Ultimate Survival (2006-2011) DV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +167,7 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +219,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 3
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +245,7 @@ Discovery: Новый Мир. Мегаполис будущего / Discovery: N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +274,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +300,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 4
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +326,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +352,7 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +378,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +404,7 @@ BBC: Планеты. Сатурн / Nova: The Planets: Saturn (2019) IPTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +430,7 @@ BBC: Саймон Шама о Рембрандте: Шедевры послед�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +482,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 5
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +508,7 @@ PBS Nature. Бегемоты - жизнь в воде / Hippos: Africa's River G
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -609,7 +666,7 @@ BBC: Бессмертный Египет с Джоанн Флетчер / Immort
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -620,59 +677,6 @@ BBC: Бессмертный Египет с Джоанн Флетчер / Immort
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4880387A8AEF51F35A6E26E43AB06CD989FA70EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149847   (945350) от 13.01.2015
-
-Загадки Истории / History's secrets (2000-2007) SATRip (12 фильмов)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл передач, снятый американской телекомпанией Prometheus Entertainment для кабельного канала History Channel в 2009 году. Программа  «Загадки истории» посвящена тайнам как древнего мира, так и современности.
-Документальный сериал посвящен различным аспектам популярной теории палеоконтакта, или теории древних космонавтов. Согласно этой идее, наша планета в прошлом (   Читать дальше...   )Телекомпания: Россия, ВГТРК, т/к КультураЖанр: ДокументальныйРежиссер: Сюзан Льюис, Джулиан Хилл, Фил Грабски, Дэвид Аттенборо, Марио Занот, Энди ВэбПеревод: Двухголосый закадровый профессиональныйПродолжительность: 12 x ~00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362991   (944947) от 26.02.2020
-
-BBC: Планеты. Ледяные миры / Nova: The Planets: Ice Worlds (2019) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеко-далеко, за пределами Марса, вдали от ураганов Юпитера и колец Сатурна окружающие условия сильно меняются. Температуры стремительно падают, а расстояния между мирами исчисляются не миллионами, а миллиардами километров. Здесь скрываются самые загадочные планеты. Уран -  бледно-голубой мраморный шар, застывший в ледяных глубинах космоса. А ещё дальше, последняя (   Читать дальше...   )Производство: США / BBC Studios Production, NOVA, WGBHЖанр: Документальный, космосРежиссер: Martin JohnsonПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E9BACD23DE0CDE11BF6022F372C55BD9E8A791
 ```
 
 https://mybot314.ru/tekegram_catalog/

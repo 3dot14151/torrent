@@ -1,111 +1,3 @@
-###  Публикация: 746189   (966221) от 16.01.2014
-
-Ион Крянгэ, Михай Эминеску, Барбу Делавранча | Румынские сказки (1973) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка- жанр письменного и устного народного творчества: прозаический устный рассказ о вымышленных событиях в фольклоре разных народов.
-
-В этой книге представлены Румынские народные сказки и сказки румынских писателейЖанр: СказкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A5425E290C8B9FEBF56DA2F160B368EB165350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358909   (966201) от 10.02.2020
-
-Моска Джованни | 40 чертей и одна зелёная муха (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для десятилетнего мальчишки все дни – прекрасны! В понедельник ты наблюдал за порхающими в небе ласточками и думал, едят ли они шоколад, – это жутко загадочно. Во вторник ты поймал огромную цикаду и послушал, как она стрекочет, – это дико интересно. В среду… Да мало ли что в среду? Наверняка это был прекрасный день! Если что-то его и омрачило, так это школа.
-Хотя, (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыПеревод: Анастасия ЕремееваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C16925BB306F0FD1625B9149D8CA58272E0E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359132   (966197) от 10.02.2020
-
-Виктория Ледерман | Всего одиннадцать! или Шуры-муры в пятом «Д» (2017) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ради любви – первой в жизни! – Егор и Никита готовы на все. Купить на скопленные деньги огромный букет цветов, засыпать единственную-неповторимую подарками, чудом достать билет на желанный для нее концерт – пожалуйста! Вот только влюбились друзья в одну и ту же девочку – новенькую в пятом «Д», Ангелину. Да что там билеты и цветы: кто из них готов рискнуть жизнью (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82609305511B4B2EFBF81A2202F5238962E04172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359134   (966145) от 10.02.2020
-
-Виктория Ледерман | Календарь ма(й)я (2016) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просыпаться утром и обнаруживать, что проживаешь дни в обратном порядке, – штука посерьезней «Дня сурка»! Шестиклассник Глеб Елизаров всего лишь нацарапал на древней стене дату «23.05.2013» – и отправился с парой одноклассников сначала в 22 мая, а затем в 21-е, 20-е, 19-е…
-Недавно перешедший в новую школу Глеб, увалень-отличник Юра Карасев и погрязшая в домашних (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9B354A2A75D133F359D3258B931CE2BD79FC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359135   (965959) от 10.02.2020
 
 Виктория Ледерман | Уроков не будет! (2017) [EPUB]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -410,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -545,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -627,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -653,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -680,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -693,6 +585,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47F2CA11742ABFC9E0AA7FBE2F7122886AFFC65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978120   (963336) от 23.01.2016
+
+Братья Гримм | Сказки (1957) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Одно из наиболее полных советских изданий сказок Братьев Гримм. Порядок нумерации соответствует каноническим изданиям сказок бр. Гримм, за исключением сказок № 194а и № 191а. Пропущенные номера (3,109, 117,154, 157,180,194) в настоящее издание не вошли.Жанр: СказкиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9480799AF1380A114FB190CCEED994233AFE7D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359638   (963219) от 13.02.2020
+
+Джефф Кинни | Дневник Роули, лучшего друга слабака. Журнал очень милого ребёнка (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Журнал очень милого ребёнка» – это событие, которое не захочет пропустить ни один фанат Грега Хэффли и его приключений, описанных в «Дневниках слабака»! Лучший друг Грега – Роули Джефферсон – решил пойти по стопам своего горе-приятеля и начал вести… собственный дневник! А почему бы и нет? У Грега их уже больше десяти, и они явно пользуются популярностью.
+
+Первой (   Читать дальше...   )Жанр: Проза для детейПеревод: Ю. КарпухинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5834278793FDEF1FAD61D2AF1A41B4D71E0626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359662   (963152) от 13.02.2020
+
+Анна Милбурн | Тысяча и одна ночь. Арабские сказки для детей (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Все самые знаменитые сказки Шахерезады под одной обложкой! Многие из них входят в сборники детской классики, ставятся в театрах, перекочевывают на экраны и в зрительные залы. Али-Баба, Аладдин, Синдбад-мореход, сокровища, великаны и гигантские рыбы — мудрые истории Востока никого не оставят равнодушным. Арабские сказки объясняют детям разницу между добром и злом, (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01F2E14EA153EA5B0315721D6CFF0DE68CB94A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747343   (963029) от 19.01.2014
+
+М. Додж | Плотина (1931) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Когда Ганс утром уходил из дому, мать закричала ему вслед:
+--Не качайся на садовой калитке, а то утонешь.
+А утонуть в самом деле было не трудно, потому что кругом была вода...Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300C4AC104C47E570E7EDA4DDDA1060926B76661
 ```
 
 https://mybot314.ru/tekegram_catalog/

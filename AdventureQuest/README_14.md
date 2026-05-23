@@ -1,3 +1,107 @@
+###  Публикация: 1491919   (906733) от 27.08.2021
+
+Tormented Souls (2021) [Ru/Multi] (7256155) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В Уинтерлейке таится нечто зловещее. Каролина Уолкер расследует исчезновение девочек-близнецов и в процессе с ней происходит кое-что ужасное. Она очнулась посреди ночи в ванне, голая и подключенная к древним медицинским приборам. Теперь Каролине нужно сражаться за свою жизнь, исследуя коридоры заброшенного особняка.Тип издания: LicenseРазработчик: Dual Effect, Abstract DigitalЖанр: HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6252C11D85592E9E488C0F949B1129E92951B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491790   (906615) от 27.08.2021
+
+Murder Mystery Machine (2021) [Ru/Multi] (7059951) License Fairlight
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Убийства, исчезновения, заговоры. Добро пожаловать в окружной криминальный отдел. В первый же день работы в окружном криминальном отделе, новенькая Кассандра Кларк попадает в напарники к угрюмому и выгоревшему детективу Нейту Хьюстону. Им поручают расследование убийства известного политика, и хотя все улики указывают на неудачное ограбление, вскоре детективы оказываются (   Читать дальше...   )Тип издания: LicenseРазработчик: Blazing GriffinЖанр: Adventure, Puzzle, Point & Click, DetectiveЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA122A04CA818FCFCA25087951219C62EABD3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491809   (906591) от 27.08.2021
+
+Myst (2021) [Multi] (1.4.0) License Fairlight
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на Мист – поразительно красивый остров, поросший зловещими тайнами и окутанный интригами. Отправляйтесь на остров Мист и в другие потрясающие, длительно бездействующие места, называемые "Эпохами", и начните разгадывать тайну, в которую Вас втянули. Постепенно узнавая, что же произошло на острове, Вы обнаружите, что играете ключевую роль (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Adventure, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A8F45BD72E401F39A6ED2951E3870B3FDB1FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098952   (906048) от 31.01.2017
+
+The Wolf Among Us (2013) [Ru/En] (1.0.0.1) Repack R.G. Revenants [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В мире игры персонажи известных сказок оказались перенесены в мрачный Нью-Йорк, где им пришлось волей-неволей обживаться в суровом обществе людей. Главным героем The Wolf Among Us станет Бигби Вульф (Bigby Wolf - то есть Big Bad Wolf, классический Злой серый волк из сказок о Красной шапочке и трех поросятах), который является теперь матерым детективом Нью-Йорка. (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F41CDF6DE293409A3AC3DF274CC77E96353877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369228   (904661) от 22.03.2020
 
 Morels: The Hunt (2019) [Ru/Multi] (1.11) Repack Other s
@@ -6,7 +110,7 @@ Morels: The Hunt (2019) [Ru/Multi] (1.11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.284152) Repack Seraph1 [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ CAYNE (2017) [Ru/Multi] (1.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Spakoyno: Back to the USSR 2.0 (2016) [Ru/En] (1.0) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Mage's Initiation: Reign of the Elements (2019) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Grim Fandango Remastered (2015) [Multi] (1.4.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Last Light (2021) [Multi] (7245562) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Soul Axiom (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ UnderDread (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Welcome to PINEHILLS (2021) [Ru/En] (Jule20) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Beholder (2016) [Ru/Multi] (1.0/upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Insurmountable (2021) [Multi] (1.3.1) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.25) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Husk (2017) [Ru/Multi] (4.13) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Agatha Christie's The ABC Murders (2016) [Ru/En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Interactive Adventures of Dog Mendonça & Pizzaboy (2016) [Ru/Multi] (1.0.3)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Amnesia. The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Jotun (2015) [Ru/Multi] (1.0 u#2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Jotun - масштабная action-adventure, выполненная в дре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17CD130BA6B97C7BA9451CE9FC15BDC8F16BFBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993593   (894997) от 05.03.2016
-
-Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы путешествуете в прошлое, пытаясь помочь главному герою, неудачнику по жизни, исправить свою судьбу. Игра включает в себя сцены с перемоткой времени, где вам нужно будет использовать разные предметы, чтобы попробовать изменить будущее. Бывалым игрокам доставят удовольствие мини-игры, стилизованные под старинные игровые автоматы. Оригинальной особенностью геймплея (   Читать дальше...   )Тип издания: LicenseРазработчик: SiBearЖанр: Я ищу, Квест, Приключение, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8024DBFEABDA46D973E6BA61FC5192468D63B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101663   (893871) от 07.02.2017
-
-Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let'sPlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Началась война. Во время авианалета 16-летний Ноа со своей младшей сестрой Рени укрылись в бункере. Здесь они нашли не только спасение от бомб, но и мир-перекресток между жизнью и смертью: Безмолвный мир. Сестра Ноа заблудилась, и мальчику пришлось отправиться на ее поиски в этой небезопасной, как оказалось, идиллии.Тип издания: SteamRipРазработчик: Daedalic EntertainmentЖанр: Adventure, 3DЯзык озвучки: Английский, немецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768D52A64F9484640189B79FAA61E440AC94BAC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994092   (890707) от 07.03.2016
-
-Her Story (2015) [Ru/En] (1.0) Repack MasterDarkness
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Her Story - уникальная нелинейная игра, дающая возможность почувствовать себя настоящим детективом. Перед нами компьютер, содержащий показания женщины, муж которой находится в розыске в связи с пропажей. У Her Story весьма необычная подача, все присутствующие видеопоказания - реальные видеозаписи живого человека, правда, запечатлёна на них актриса.Тип издания: RepackРазработчик: Sam BarlowЖанр: Adventure (Visual novel)Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A372A3A1C30CA158781E21A6CDF5FB5EC2CE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474326   (890174) от 06.09.2021
-
-Stonefly (2021) [Multi] (1.1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обуздайте ветер и парите среди дикой природы в Stonefly. Гениальная, но наивная изобретательница Анника Стоунфлай должна отыскать утерянную реликвию её семьи, используя смекалку и стратегическое мышление. Летайте среди флоры и фауны в мире, полном голодных жуков, приключений и запоминающихся персонажей. Постепенно Вы узнаете трогательную историю о самопознании, семье, (   Читать дальше...   )Тип издания: LicenseРазработчик: Flight School StudioЖанр: Action, Exploration, RPGЯзык субтитров: Английский, Французский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0307C31D3317CBB3E6E98624D594FBCC88860C27
 ```
 
 https://mybot314.ru/tekegram_catalog/

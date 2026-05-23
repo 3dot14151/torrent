@@ -1,3 +1,32 @@
+###  Публикация: 1423261   (301892) от 12.11.2020
+
+Bring Me The Horizon - POST HUMAN: SURVIVAL HORROR (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Diary (2:45)
+ 02. Parasite Eve (4:52)
+ 03. Teardrops (3:35)
+ 04. Obey with YUNGBLUD (3:41)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, HardcoreПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2396EEFC6465029AEDBCAE1489212346E1A594B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184192   (301178) от 17.11.2017
 
 Stereophonics - Scream Above The Sounds (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
@@ -6,7 +35,7 @@ Stereophonics - Scream Above The Sounds (2017) [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Editors - Black Gold (2019) Compilation 2CD [FLAC|Lossless|tracks + .cue] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +93,7 @@ Green Day - Greatest Hits: God's Favorite Band (2017) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nothing But Thieves - What Did You Think When You Made Me This Way? (2018) EP [F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +151,7 @@ Welshly Arms - No Place Is Home (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +180,7 @@ Gogol Bordello - Моя Цыганиада (2011) [FLAC|image + .cue]<Gypsy Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Smashing Pumpkins - Shiny and Oh So Bright Vol. 1 / LP: No Past. No Future. 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +238,7 @@ Billy Idol - Rebel Yell (1983) remaster, 2010, Audio Fidelity [FLAC|Lossless|ima
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +267,7 @@ Aqualung - Aqualung (2002) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +296,7 @@ Sunrise Avenue - 2 альбома (2006, 2011) [FLAC|Lossless]<Pop-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +322,7 @@ Chelsea Wolfe - Birth of Violence (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +351,7 @@ INXS - X (1990) 2011, Petrol Electric, RM. RE. [FLAC|Lossless|tracks + .cue] <Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +380,7 @@ Linkin Park - Crawling (One More Light Live) (2017) Single [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +406,7 @@ INXS - The Very Best (2011) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +435,7 @@ P.O.D. - 11 Альбомов, 3 EP, 4 Сингла, 2 Компиляции (1994
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +464,7 @@ Coldplay - A Head Full of Dreams (2015) [FLAC|tracks + .cue] <Pop Rock, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +493,7 @@ White Denim - In Person (2019) Live album [FLAC|Lossless|WEB-DL|tracks] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_290990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -522,7 +551,7 @@ The Killers - Don't Waste Your Wishes (2016) Compilation [FLAC|Lossless|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -551,7 +580,7 @@ Lambert & Dekker - We Share Phenomena (Instrumental Version) (2018) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +609,7 @@ Funeral Suits - Islands Apart (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +638,7 @@ Hollow Coves - Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -638,7 +667,7 @@ The Score - Pressure • Stay (2019) EPs [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -667,7 +696,7 @@ P.O.D. - Circles (2018) Mascot Records [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -696,7 +725,7 @@ Aqualung - Memory Man (2007) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -710,35 +739,6 @@ Aqualung - Memory Man (2007) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A417DF4447E52A6420DBEC2BD2890775A679FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034300   (283752) от 04.11.2019
-
-Skunk Anansie - 9 Albums (1995 - 2019) [FLAC|Lossless|tracks + .cue] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название лондонского квартета "Skunk Anansie" было взято из сказочной мифологии островов Вест-Индии. Дебора Энни Дайер, родилась 3 сентября 1967 года в районе Лондона Брикстон, где проживают афроангличане. Подростком она бредила идеями свободы, а ее кумиром была лидер американских борцов за свободу Анжела Дэвис. Позже она окончила политех в Миддлсборо. (   Читать дальше...   )Список альбомов:
-1995 - Paranoid & Sunburnt
-1996 - Stoosh
-1999 - Post Orgasmic ChillЖанр: AlternativeПродолжительность: 09:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989BFA364FBE59911661D579FF1FA4639EECDCBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

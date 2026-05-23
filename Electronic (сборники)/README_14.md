@@ -1,3 +1,148 @@
+###  Публикация: 1351182   (1002476) от 09.01.2020
+
+VA - The Sound Of Now (2020) [MP3|320 Kbps] <Tech House, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Lamliki - Never Give Up
+02. Emanuele Rada - You Know Da Name
+03. Gidronique - Rain
+04. Mina Overoux - Electro Vibes(   Читать дальше...   )Жанр: Tech House, Electro, EDMПродолжительность: 07:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A872164F93F9D9C8CFF31887C092F230EA5947AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351303   (1002474) от 09.01.2020
+
+VA - Neon Night: Electro House (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Dub Striker - 51 Pegasi B
+002. Jeff Omega - Booty Showin'
+003. Stu & Brew - Disordered
+004. Lessovsky - Never Ever End(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 12:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF183455B8D98FC8D906EC5E2746EB49D1D231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351299   (1002473) от 09.01.2020
+
+VA - Beatport Trance Pack: #03 (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Theis Ez - Joy
+02. Broning - Invaders (Original Mix)
+03. Neil Bronson With Lorela - Cant Get Over
+04. Make One - Katana(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 06:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ACAF2686EEB7456CC3A3FF9ACC497C065A1851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351185   (1002464) от 09.01.2020
+
+VA - Beatport Techno Edm: Pack #03 (2020) [MP3|320 Kbps] <Techno, Minimal, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. The Alchemical Theory - Dark Forest
+02. Irregular Synth - Clojure (Mr. Jones Remix)
+03. Koen Groeneveld - Wild Noise
+04. Ellen Allien - Bowie In Harmony(   Читать дальше...   )Жанр: Techno, Minimal, EDMПродолжительность: 06:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1F5383919BE10AAAEDACCD5F02D43DD0600825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488397   (1002071) от 11.08.2021
+
+VA - Beatport Deep House: Sound Pack #329 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Rai - Andromeda
+002. Paul Cutie - Tell Me Now
+003. Ollie Remington - Rift
+004. Adam Sleyer - Got To(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBEFE92CCE98A975E4513E25267AA081C75C07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488398   (1002069) от 11.08.2021
 
 VA - Dream Synthetic: The Relax Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Chill Electronic, Synthwave>
@@ -6,7 +151,7 @@ VA - Dream Synthetic: The Relax Electronic Mix (2021) [MP3|320 Kbps] <Synthetic,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Electro Voice: Mixtape Techno (2021) [MP3|320 Kbps] <Techno, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Jungle Cruise: Bass Sounds Music (2021) [MP3|320 Kbps] <Jungle, Drum & Bass
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - The Hypnotic Nights (2021) [MP3|320 Kbps] <Relax, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - City Marathon: Music For Running (2021) [MP3|320 Kbps] <Hard Dance, Hardsty
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - EDM Crazy Night Music Party (2021) [MP3|320 Kbps] <EDM, Pop Dance, Dance Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Beatport Tech House: Sound Pack #330 (2021) [MP3|320 Kbps] <Tech House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Actual Tech House Session (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Uplifting Urban Sounds: Trance Set (2021) [MP3|320 Kbps] <Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - Epic Trance: Progressive Edition (2021) [MP3|320 Kbps] <Trance, Electro, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Vocal Chillout Music: Relax Session (2021) [MP3|320 Kbps] <Chillout, Relax 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Sacred Space: Mushroom Psy Trance Mix (2020) [MP3|320 Kbps] <Psy, Goa Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Pansperman: Renegade Techno Master Top 100 (2020) [MP3|320 Kbps] <Techno, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Start A New Day: Trance Mix (2020) [MP3|320 Kbps] <Trance, Electro, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - Record Super Chart 620 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - Beatport Trance Pack #04 (2020) [MP3|320 Kbps] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Astral Projection: Techno Edm Liveset (2020) [MP3|320 Kbps] <Techno, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - Сегодня на радио хиты FM Vol.8 (2020) [MP3|320 Kbps] <Pop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Trance Nation Future Sound: Progressive Edition (2020) [MP3|320 Kbps] <Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -592,7 +737,7 @@ VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,180 +757,6 @@ VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFD48D4287AD8292DD27A6C00D23487D7B576A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597920   (999931) от 04.01.2013
-
-VA - Aqua Trance Volume #01 - #31 (2012-2013) (Обновляемая) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 03:03:49
-
-01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix) [07:53]
- 02. Ana Criado & Ronski Speed - Afterglow (Ronski Speed Remix) [08:32]
- 03. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Original) [11:01]
- 04. Daniel Wanrooy - Dog Day Afternoon [06:01]
- 05. Dash Berlin feat. Emma Hewitt - Like Spinning Plates (Club Mix) [05:39]
- 06. Dub Effect feat. Mix Usha - Perfect Love [05:40]
- 07. Kenneth Thomas feat. Colleen Riley - The Heart Speaks (Damian William Remix) [06:31]
- 08. Ian Betts - Under Below (Original Mix) [08:06](   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:16:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599580   (999187) от 07.01.2013
-
-VA - Trance. Vocal Fascination 42 (2013) MP3 (2013) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light On - Waterfall (Original Mix)
- 02. Maksim Palmaxs feat. Simon Latham - Falling (Original Mix)
- 03. Marcel Woods - Everything (Marcel Woods Treatment)
- 04. MaRLo - Megalodon (Original Mix)
- 05. Mike Shiver feat. Bo Bruce - Still Here
- 06. Moonbeam feat. Avis Vox - Disappearance (Dis Play Remix)
- 07. Moonbeam feat. Blackfeel Wite - In Your Eyes (Original Mix)
- 08. Neev Kennedy - The Unknown (DNS Project Extended)
- 09. Nuera feat. Szen - Stuck
- 10. Ralphie B - IcarusЖанр: TranceПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B7F15982CEBFAFECA8E7AB5A1C0514751164E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601431   (998120) от 11.01.2013
-
-VA - Simply Dubstep December 2012 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12th Planet -Jail Break (04:43)
-02. 12th Planet -MMXII (04:00)
-03. 12th Planet & Antiserum -Ghost (04:44)
-04. 12th Planet & Flinch -The End Is Near Part 1 (Dirtyphonics Remix) (05:18)
-05. 12th Planet & Flinch -The End Is Near Part 1 (Felguk Remix) (04:46)
-06. 12th Planet & Flinch -The End Is Near Part 1 (04:16)
-07. 12th Planet & SPL -Ratchet Strap (Big Gigantic Remix) (03:46)
-08. 12th Planet & SPL -Ratchet Strap (UZ Remix) (04:00)
-09. 50 Cent -Disco Inferno (DJ Chixer Remix) (03:18)
-10. Ajapai -The Golden Ring of Fire (Original Mix) (04:41)Жанр: DubstepПродолжительность: 08:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45B3054EF7DA00486A1FA9D6E25D7B69F7BA2B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601514   (998067) от 11.01.2013
-
-VA - Electro Life 21 (by ZiP) (2012) [MP3|320 kbps]<Electro House, Dubstep, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii vs. Nicky Romero - I Could Be The One (Original Mix)
-02. Baby Alice - Sexy (Fresh Blast Dj's Remix)
-03. Bryce ft. J-Malik - Nothing Can Hold Us Back (Fresh Blast Radio Edit)
-04. Cocosiy (Coco Jumbo) & assNaut - Robocop (Original Mix)
-05. DJ Amor - Frame Of Mind (Original Mix)
-06. DJ Smash & DJ Vengerov - Только вперед (DimixeR & DJ Viduta Remix)
-07. Eric Prydz - Every Day (Original Mix)
-08. Greysound - Don't Stop (Original Mix)
-09. Jean Elan & CJ Stone ft. Jonny Rose - Feel Ur Love (Original Mix)Жанр: Electro House, Dubstep, House, Synth-PopПродолжительность: 03:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BFE6A2C0A92A722D19D77D79B531D2E1507E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602269   (997854) от 12.01.2013
-
-VA - Ambient Elect (2013) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997854.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Glass Army Ft. Banzai Ferarri - Sizzle Puzzles
-2. Hooverphonic - Autoharp
-3. Everything But The Girl - Single
-4. Motorcycle - As The Rush Comes
-5. Bruno From Ibiza - One
-6. Makossa & Megablast - Like A Rocket
-7. Jhelisa - Freedom From Pity
-8. Alif Tree - Au Revoir
-9. Blue Pilots Project - Senta
-10. Emancipator - Jet Stream(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 04:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC62AE05FC67FFCD0946FD04DD0C02F2ED4D9225
 ```
 
 https://mybot314.ru/tekegram_catalog/

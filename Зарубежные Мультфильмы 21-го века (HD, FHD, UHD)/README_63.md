@@ -1,3 +1,81 @@
+###  Публикация: 539108   (507157) от 25.08.2012
+
+Звездный десант: Вторжение / Starship Troopers: Invasion (2012) [1080p] Blu-ray
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Удалённый аванпост Федерации «Форт Кейси» подвергается атаке жуков. Базирующийся там корабль «Джон А. Уорден» должен как можно быстрее увезти выживших на Землю, заодно доставив собранные на «Форте Кейси» данные военной разведки. На помощь к уцелевшим спешит истребитель «Алесия», однако незадолго до запланированной встречи министр Паранормальных Боевых Действий Карл Дженкинс реквизирует «Джон А. Уорден» для какой-то секретной миссии и пропадает в ближайшей туманности. И бравым десантникам с «Алесии» приходится менять курс, ещё не зная, что эта спасательная миссия может закончиться очень печально.Жанр: Компьютерная анимация, Мультфильм, Фантастика, БоевикРежиссер: Синдзи АрамакиАктеры: Лерардо Анзалдуа, Люси Кристиан, Мелисса Дэвис, Джастин Доран, Дэвид Матранга, Эмили Нэвис, Дэвид ВолдПеревод: Многоголосый закадровыйЯзык субтитров: (PGS):, Английский, Chinese, French, Indonesian, Korean, Portuguese, Spanish, ThaiПродолжительность: 01:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7A4C1111FB2B230E92BCE8F18AC2350BE0D878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563052   (505876) от 12.07.2022
+
+Морской монстр / The Sea Beast (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юная Мэйси и легендарный охотник на монстров Джейкоб Холланд отправляются в путешествие по неизведанным морям.Производство: США / Netflix AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Крис УильямсПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: русский, английскийСубтитры: русские (full), английские (full, SDH)Продолжительность: 01:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FF0A88EF7EA315E631DC8A3F6AF87D8849901C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316530   (505844) от 26.07.2019
+
+Капитан Подштанник: Первый эпический фильм / Captain Underpants: The First Epic Movie (2017) UHDRip [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Гарольд и Джордж увлекаются изготовлением комиксов. Они придумали супергероя — Капитана Подштанника. Директор их школы мистер Крупп терпеть не может мальчишеских проказ, на которые горазды Гарольд и Джордж. Но у него пока нет доказательств того, что именно они были инициаторами многочисленных розыгрышей. Однако теперь они у него появились. Зануда Мелвин заснял, как (   Читать дальше...   )Производство: США, Канада, Франция, Великобритания, Индия / DreamWorks Animation, Scholastic, Treehouse ComixЖанр: Мультфильм, Боевик, Комедия, СемейныйРежиссер: Дэвид СоренПеревод: Многоголосый профессиональныйСубтитры: русские, английские (для слабослышащих)Продолжительность: 01:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A23C8C34B5D69E0A6CA52A5343D1A9D24BD629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194929   (503956) от 28.07.2019
 
 Лига Watchcar. Возвращение чемпиона / Power Battle WatchCar: Return of Watch Mask (2017) WEB-DLRip [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_491359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_491335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055023   (489518) от 21.09.2016
-
-Шрек навсегда / Shrek Forever After (2010) BDRip [H.265/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем бы еще заняться огру, который уже сразился со злым драконом, спас прекрасную принцессу и уберег от беды королевство родственников по линии жены? Что ж, если вы Шрэк, то, сами того не заметив, вы вдруг сядете дома и станете наслаждаться покоем в кругу семьи. Вместо того чтобы как раньше пугать деревенских жителей, теперь Шрэк, хоть и с неохотой, но соглашается (   Читать дальше...   )Производство: США /  DreamWorks Animation, Pacific Data Images (PDI)Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Майк МитчеллПерсонажи: Майк Майерс, Эдди Мёрфи, Кэмерон Диаз, Антонио Бандерас, Джули Эндрюс, Уолт Дорн, Джейн Линч, Крэйг РобинсонПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A4DA219CE778BF1C5833430E2EBFB195237731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158584   (489430) от 17.08.2017
-
-Хороший динозавр / The Good Dinosaur (2015) BDRip [H.264/1080p-LQ] [Локализованная версия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489430.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету динозавры не вымерли, а эволюционировали в разумных существ и живут и здравствуют на Земле. А вот люди остались на довольно примитивной стадии развития. Фильм расскажет историю дружбы динозавра и маленького мальчика.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Питер СонПерсонажи: Джеффри Райт, Фрэнсис МакДорманд, Малиа Нипай-Падилья, Райан Типл, Джек МакГроу, Маркус Скрибнер, Рэймонд Очоа, Джек Брайт, Питер Сон, Стив Зан, Мэнди Фройнд, Стивен Клэй Хантер, А.Дж. Бакли, Анна Пакуин, Сэм Эллиотт, Дэвид Боат, Кэрри Пафф, Кэлам Грант, Джон РатценбергерПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (форс. + полные), английские ( Full + SDH)Продолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A87B4A627C9D0F82AC7F593DAFCE35A031F712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937186   (489372) от 14.09.2015
-
-Обычное шоу: Фильм / Regular Show: The Movie (2015) WEB-DL [H.264/720p] [VO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спокойная и размеренная жизнь Мордекаю и Ригби закончилось, когда на землю приземлились инопланетяне, которые хотят уничтожить всю вселенную. Теперь нашим рероям необходимо отправиться в космос, чтоб сразиться со злодеями и таким образом спасти всех. Но вечные споры между друзьями ставят в опасности их дружбу и всю миссию...Производство: СШАЖанр: Фантастика, КомедияРежиссер: Дж.Дж. КуинтелАктеры: Марк Хэмилл, Дэвид Кокнер, Джейсон Манцукас, Сэм Марин, Дж.Дж. Куинтел, Уильям Салиерс, Роджер Крэйг СмитПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: mazehackaStudioЯзык субтитров: АнглийскийПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7007099EA51D3E055EC976B5AA2A07D0A5BEC1CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

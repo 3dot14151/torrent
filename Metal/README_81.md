@@ -1,3 +1,32 @@
+###  Публикация: 1260911   (307699) от 09.11.2018
+
+Decembre Noir - Autumn Kings (2018) [MP3|320 Kbps] <Doom-Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. In The Pouring Rain
+2. Autumn King
+3. Barricades
+4. A Weeping Sunrise(   Читать дальше...   )Жанр: Doom-Death MetalПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA350C6BF0AB3D7E20E924314F7DD253E6A94FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183633   (307409) от 14.11.2017
 
 Beast In Black (ex-Battle Beast) - Berserker (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
@@ -6,7 +35,7 @@ Beast In Black (ex-Battle Beast) - Berserker (2017) [MP3|320 Kbps] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nightmare - Dead Sun (2016) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +93,7 @@ Metallica - The Best Ballads (2005) 2CD [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Game Over - Claiming Supremacy (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +151,7 @@ Primal Fear - Best of Fear (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +180,7 @@ Monomad - The Art of the Broken Mind (2016) [MP3|320 Kbps] <Avant-Garde, Thrash,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +209,7 @@ Napalm Death - The Best of Napalm Death (2016) [MP3|320 Kbps] <Grindcore, Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +238,7 @@ Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +270,7 @@ Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +299,7 @@ Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +357,7 @@ Jinjer - Macro (2019) [MP3|320 kbps] <Metalcore, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +386,7 @@ Bad Wolves - N.A.T.I.O.N. (2019) [MP3|320 kbps] <Modern Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +415,7 @@ Tarja - From Spirits and Ghosts (Score for a Dark Christmas) (2017) [MP3|320 Kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +444,7 @@ Stalker - Shadow Of The Sword (2017) [MP3|320 Kbps] <Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -444,7 +473,7 @@ HammerFall - Gates Of Dalhalla (2012) [MP3|320 кб/с]<Heavy/Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +508,7 @@ Iron Maiden - The Book Of Souls: Live Chapter (2017) 2CD [MP3|320 Kbps] <Heavy M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +537,7 @@ Megaton Sword - Blood Hails Steel - Steel Hails Fire (2020) [MP3|320 Kbps] <Epic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +566,7 @@ Death Dealer - Conquered Lands (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +595,7 @@ Doro - Magic Diamonds: Best of Rock, Ballads & Rare Treasures (2020) 3xCD [MP3|3
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,7 +624,7 @@ Distillator - Summoning The Malicious (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,7 +653,7 @@ Fit For An Autopsy - The Sea of Tragic Beasts (2019) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,7 +682,7 @@ Yngwie Malmsteen - Spellbound (2012) [MP3|320 кб/с]<Neoclassical Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -688,7 +717,7 @@ Smoke And Shadows - Blood And Fire (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -717,7 +746,7 @@ Silent Line - Shattered Shores (2015) [MP3|320 кб/с]<MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -731,35 +760,6 @@ Silent Line - Shattered Shores (2015) [MP3|320 кб/с]<MDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:816A773B601B16D1B157FB0CF488F3B54A686418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334060   (298952) от 27.10.2019
-
-Vision Divine - When All the Heroes Are Dead (2019) [MP3|320 Kbps] <Melodic Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298952.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Insurgent[1:58]
- 2 - The 26th Machine[4:38]
- 3 - 3 Men Walk on the Moon[5:10]
- 4 - Fall from Grace[4:57](   Читать дальше...   )Жанр: Melodic Power Metal, Progressive MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B43A956E4DEA0F48AE8BD3FC7994029CFD1104
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 394694   (423955) от 02.10.2011
+
+Иметь и не иметь / To Have and Have Not (1944) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма основан на одноимённом романе Эрнеста Хемингуэя.
+1940 год. Идёт Вторая мировая война, Франция оккупирована нацистами. Гарри Морган живёт на острове Мартиника, ему принадлежит катер, на котором он возит богатых клиентов ловить рыбу. К Моргану обращается Жерар, участник Сопротивления, с просьбой тайно перевезти на Мартинику одного из лидеров движения. (   Читать дальше...   )Жанр: триллер, мелодрама, приключения, военныйРежиссер: Ховард ХоуксПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC71F5A1087A4C39223DA7CD33AE7F97787479A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570159   (423377) от 26.08.2022
+
+Деревенская девушка / The Country Girl (1954) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уставшему от жизни актеру и певцу Фрэнку Элджину предоставляется неплохой шанс вернуться на сцену, когда режиссер Берни Додд предлагает ему главную роль в своем новом мюзикле. Однако Фрэнк, пристрастившийся к алкоголю, избегает всякой маломальской ответственности. Он предпочитает, чтобы за него все решала его жена Джорджи, которой все труднее противиться образу жизни (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: драма, музыкаРежиссер: Джордж СитонАктеры: Бинг Кросби, Грэйс Келли, Уильям Холден, Энтони Росс, Джин Рейнольдс, Жаклин Фонтен, Эдди Райдер, Роберт Кент, Джон В. Рейнольдс, Боб ЭлденПеревод: Многоголосый профессиональный (т/к Домашний), двухголосый профессиональный (СВ-Дубль; ООО "Светла")Субтитры: Русские, английскиеПродолжительность: 01:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D223938D64817FF9CAEA881C5368C3C4475B1992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555266   (423242) от 06.10.2012
+
+В джазе только девушки / Some Like It Hot (1959) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Когда чикагские музыканты Джо и Джерри случайно становятся свидетелями бандитской перестрелки, они в срочном порядке смываются на поезде во Флориду, прикинувшись женщинами. Теперь они - Джозефина и Дафна, новенькие и хорошенькие инструменталистки женского джаз - банда. До поры до времени их маскировка срабатывает. Но вскоре любвеобильная солистка "западает" (   Читать дальше...   )Жанр: Комедия, Мелодрама, МузыкаРежиссер: Билли УайлдерАктеры: Джек Леммон, Тони Кертис, Мэрилин МонроПеревод: Дублированный, советский дубляжПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32FCAD19AB7CF36F7C755FC6F813D8E434D4DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569948   (423230) от 26.08.2022
+
+Отряд / Posse (1975) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Циничный, самоуверенный судебный исполнитель преследует преступника. Это нужно ему для удовлетворения своих политических амбиций. С собственной командой представителей закона, которых он собирается бросить, став сенатором от Техаса, он манипулирует трусливым городком. Но жители в конце поворачиваются к нему спиной.Производство: США, Bryna Productions, Zeeuwse Maatschappij N.V.Жанр: вестернРежиссер: Кирк ДугласАктеры: Кирк Дуглас, Брюс Дерн, Бо Хопкинс, Джеймс Стэйси, Люк Аскью, Дэвид Канари, Альфонсо Арау, Кэтерин Вудвиль, Марк Робертс, Бет БрикеллПеревод: Многоголосый профессиональный (Paramount channel)Субтитры: Английские, немецкиеПродолжительность: 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E837893D7940D7153AF1E00342F4E746810EB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411885   (422839) от 27.09.2020
 
 Гора Спенсера / Spencer's Mountain (1963) DVDRip [H.264] [VO]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -276,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -302,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -388,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -416,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -442,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -468,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -521,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,115 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:368BBB86C3BB0637D9E100A7283A54190F84AB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164617   (414400) от 21.09.2017
-
-Кто есть кто? / Flic ou voyou (1979) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414400.jpg" />
-</div>
-
-
-###  Подробнее
-
-После загадочной гибели комиссара жандармерии Ниццы, в город, из Парижа, приезжает инспектор надзорного отдела, чтобы вскрыть коррупцию, царящую среди стражей правопорядка.
-Но методы его работы заставляют недоумевать, кого он больше напоминает, непринужденный и обольстительный, ловко действующий кулаками, но не чуждый сердечным порывам.Производство: Франция / Cerito Films, Gaumont InternationalЖанр: Боевик, Триллер, Драма, Комедия, КриминалРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Жорж Жере, Жан-Франсуа Бальмер, Клод Броссе, Жюли Жезекель, Мишель Бон, Тони Кендалл, Катрин Лашанс, Джульетт Миллз, Венантино Венантини, Шарль Жерар, Мишель Галабрю, Мари ЛафореПеревод: Дублированный, двуголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53775855560441D3D381D85032E3040E35BEEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570316   (414387) от 30.08.2022
-
-Другое время, другое место / Another Time, Another Place (1958) WEBRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этой любовной мелодрамы происходит в конце Второй мировой войны. Американская журналистка Сара Скотт работает в Англии в 1945 году. В Лондоне она знакомится с корреспондентом BBC Марком Тревором. Между ними завязывается страстный роман, который продлился три недели. Сара увлечена не на шутку и признается Марку в вечной любви, она надеется на более серьезные (   Читать дальше...   )Производство: Великобритания / Kaydor, LanturnЖанр: драма, мелодрама, военныйРежиссер: Льюис АлленАктеры: Лана Тернер,  Бэрри Салливан,  Глинис Джонс, Шон Коннери,  Теренс Лонгдон,  Сидни Джеймс, Мартин Стефенс,  Дорис Хэа,  Джулиан Сомерс,  Джон Ле МезюрьеПеревод: Многоголосый профессиональный (студия СВ-Дубль)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12654594C8A86603894E3207BB18C87A7B3D937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556636   (414234) от 10.10.2012
-
-Дурная слава / Notorious (1946) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414234.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1946 г. американский суд приговаривает Иогана Губермана к двадцати годам тюрьмы как германского шпиона за измену Родине. Его дочь Алисия знакомится на вечеринке с агентом ФБР Дэвлином, который получает задание от руководства раскрыть нацистский заговор в Рио де Жанейро.
-
-Дэвлин решает воспользоваться помощью девушки для выполнения своего задания, и она принимает его предложение. Так начинается их бурный «шпионский» роман.
-
-Они вступают в контакт с нацистским агентом Александром, за которого Алисия должна выйти замуж, чтобы узнать о секретных планах немецкой организации, в которой состоитЖанр: Триллер, Мелодрама, Фильм-НуарРежиссер: Альфред ХичкокАктеры: Кэри Грант, Ингрид Бергман, Клод Рейнс, Луи Кэлхерн, Леопольдин Константин, Райнхольд Шюнцель, Морони Олсен, Иван Тризо, Алекс Минотис, Уолли БраунПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: Русские, английскиеПродолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC2B56779B54BA05D715BD6BFF608414FEB5F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 698638   (413327) от 01.10.2020
-
-Влияние гамма-лучей на бледно-желтые ноготки / The Effect of Gamma Rays on Man-in-the-Moon Marigolds (1972) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре женщины — вдова с двумя дочерьми и взятой на попечение больной старухой — вынуждены жить в одном доме. Еле сводя концы с концами, мать не замечает, что старшая дочь сходит с ума, а младшая — на пути к безумию. «Золотая пальмовая ветвь» в Каннах — за роль матери в исполнении Джоанн Вудворд. По одноименной пьесе Пола Зиндела, получившего за нее Пулитцеровскую (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: ДрамаРежиссер: Пол НьюменАктеры: Джоэнн Вудворд, Нелл Поттс, Роберта Уоллах, Джудит Лоури, Дэвид Спилберг, Ричард Венчур, Кэролин Коутс, Уилл Хэр, Эстелл Оменс, Джесс ОсунаПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E99210ACFEE6FB62A1E418C725EB311C3DF06B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

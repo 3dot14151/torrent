@@ -1,32 +1,3 @@
-###  Публикация: 1255158   (366051) от 17.10.2018
-
-VA - New Music Releases Week 41 (2018) [MP3|192-320 Kbps] <Dance, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366051.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coin - Simple Romance
-002. Paloma Faith - Loyal
-003. Lost Kings, Jesper Jenset - Drunk as Hell
-004. Farruko, Daddy Yankee, Sean Paul, Akon - Inolvidable (Remix)(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 11:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B660B2EA725AA70AE8F13549124D5E3294459CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950972   (365985) от 28.10.2015
 
 VA - Acoustic (2015) [MP3|320 кб/с]<Pop, Acoustic>
@@ -35,7 +6,7 @@ VA - Acoustic (2015) [MP3|320 кб/с]<Pop, Acoustic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Самые Горячие Хиты Авторадио 3 (2012) [MP3|128 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -99,7 +70,7 @@ VA - Наше Радио: Лучшее и Новое (2012) [MP3|128 кб/с]<Р
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -134,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +134,7 @@ VA - Осенний хит-отрыв. Русский выпуск (2016) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +163,7 @@ VA - Музыкальные новинки mp3 50/50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +250,7 @@ VA - Осенняя Музыкальная сенсация (2012) [MP3|128 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -314,7 +285,7 @@ VA - Осенняя Московская Дискотека (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +320,7 @@ VA - Хитовая жажда 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +355,7 @@ VA - Звездный осенний хит 24 Зарубежный (2012) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,7 +390,7 @@ VA - Танцы До Упаду (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +425,7 @@ VA - До 19 и старше 27 Русский (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +460,7 @@ VA - Звёздный удар от Русского радио. Сборник 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -524,7 +495,7 @@ VA - The World's Greatest 80s Anthems, 2CD (2018) [MP3|320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +527,7 @@ VA - MAXI. Лучшие хиты для убойной вечеринки (2012)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +562,7 @@ VA - Autumn Dance (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,7 +591,7 @@ VA - New Italo Disco 2 (2015) [MP3|320 кб/с]<Italo Disco, Eurodisco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -649,7 +620,7 @@ VA - MTV Ballads (2005) [MP3|192 - 224 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -678,7 +649,7 @@ VA - Wild Love: Romantic Collection (2018) [MP3|320 Kbps] <Pop, Rock, Blues>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -707,7 +678,7 @@ VA - New Disco Funky Mode (2019) [MP3|320 Kbps] <Disco, Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -736,7 +707,7 @@ VA - Европа Плюс Включи Весь Мир! Часть 12 (2012) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -771,7 +742,7 @@ Milli Vanilli - Good Songs (2015) [MP3|256-320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -800,7 +771,7 @@ VA - The Best Hits of 80s 1 (2005) [MP3|192-224 кб/с]<Pop, Disco, Retro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -814,6 +785,35 @@ VA - The Best Hits of 80s 1 (2005) [MP3|192-224 кб/с]<Pop, Disco, Retro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7686A2270F0B2F839328E402A802BDA9A234EB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071088   (361942) от 09.11.2016
+
+VA - Попсовая соточка от Хит fm 4 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001.23-45 - Выходи За Меня 3:17
+002.Aidino - Tanker 3:15
+003.Russell Ray - Ловабомба 3:41
+004.Александр Нефедов - Любить Не Играя 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527E68AFD8682EEF4B3EFD96A0856E7795594924
 ```
 
 https://mybot314.ru/tekegram_catalog/

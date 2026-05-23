@@ -1,3 +1,111 @@
+###  Публикация: 1864965   (1064949) от 12.04.2026
+
+Kuro Neko to Majo no Kyoushitsu / The Classroom of a Black Cat and a Witch / Чёрная кошка и класс ведьм [2026, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Королевская академия Дианы — престижное учебное заведение, принимающее на обучение людей с развитыми магическими способностями. По окончании академии выпускники занимают ведущие позиции в своей области или поступают на службу к королевской семье. Спика Вирго мечтает учиться в академии, стремясь стать первоклассной волшебницей, подобно своему кумиру Клоду Сириусу. (   Читать дальше...   )Жанр: комедия, фэнтези.Режиссер: Тацува НаоюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C41EE5AC794A281392011C3C69D2821C6F0A83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864621   (1064785) от 24.04.2026
+
+Kamiina Botan, Yoeru Sugata wa Yuri no Hana / Botan Kamiina Fully Blossoms When Drunk / Пион Ками-Ина, его опьяненный облик напоминает лилию [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это история о 20-летней студентке первого курса Ботан Камине и её жизни в общежитии, где она знакомится со старшекурсниками и завязывает дружбу за чашкой-другой. В аниме представлено множество настоящих алкогольных напитков — японское сакэ, виски, вино — а также рассказывается о музыке, кино и других культурных явлениях, которыми можно наслаждаться в компании алкоголя. (   Читать дальше...   )Жанр: комедия, юри, повседневность.Режиссер: Сакума ТакасиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FB1DCFFFE8ABB4B6FC47A850A46E8DA90DAC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864445   (1064733) от 
+
+Mikadono San Shimai wa Angai, Choroi. | Три сестры Микадоно оказались неожиданно простыми [2025, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ю Аясэ — сын покойной легендарной актрисы, и при этом посредственность. Его берёт под своё крыло друг матери, отец трёх талантливых дочерей, которые принимают заурядного гостя в штыки. Но можно ли растопить сердце настоящего гения?
+
+© CrunchyrollПроизводство: Студия P.A. Works, ЯпонияЖанр: комедия, романтика, повседневностьРежиссер: Тадахито МацубаясиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 23 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D32BAAEE7358C6F05B57FDDA345AA84BE8060AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864415   (1064683) от 16.04.2026
+
+Awajima Hyakkei | Scenes from Awajima | Сто видов Авадзимы [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эта ансамблевая подростковая драма рассказывает о группе девушек, обучающихся в «музыкальной школе только для девочек», и описывает их совместные годы становления, порой переключаясь между точками зрения разных персонажей и временными отрезками.
+
+Учебный лагерь музыкальной школы Авадзима, прозванный «интернатом», — это место, куда съезжаются девушки со всей Японии, (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: повседневностьРежиссер: Асака МориоПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C470B08FD3A5FF6D935BC79F89570688334E969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864253   (1064635) от 17.04.2026
 
 Mamonogurai no Boukensha: Ore dake Mamono o Kuratte Tsuyoku Naru | Monster Eater | Авантюрист, пожирающий демонов [2026, TV, 1 из 12] WEB-DL 1080p raw
@@ -6,7 +114,7 @@ Mamonogurai no Boukensha: Ore dake Mamono o Kuratte Tsuyoku Naru | Monster Eater
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +140,7 @@ Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken | Always a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +166,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 4th / Classroom of the Elite IV 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +195,7 @@ Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? 2 / The Beginning After the 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +223,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 3rd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +251,7 @@ Dorohedoro Season 2 | Дорохедоро 2 [2026, Web, 3 из 11 эп.] WebRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -171,7 +279,7 @@ Mata Korosarete Shimatta no Desu ne, Tantei-sama / Killed Again, Mr. Detective? 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -197,7 +305,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken 2 | The Ange
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +331,7 @@ Tensei Shitara Slime Datta Ken (2026) | That Time I Got Reincarnated as a Slime 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -249,7 +357,7 @@ Haibara-kun no Tsuyokute Seishun New Game / Haibara's Teenage New Game+ / Вто
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +383,7 @@ Mairimashita! Iruma-kun (2026) | Welcome to Demon School! Iruma-kun (2026) | Д�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +409,7 @@ Honzuki no Gekokujou: S4 | Ascendance of a Bookworm S4 | Власть книжн
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +435,7 @@ Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii Desu
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +461,7 @@ Shunkashuutou Daikousha: Haru no Mai | Agents of the Four Seasons: Dance of Spri
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +487,7 @@ Kami no Niwatsuki Kusunoki-tei | Kusunoki's Garden of Gods | «Сад богов
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +513,7 @@ Kanan-sama wa Akumade Choroi / Mistress Kanan Is Devilishly Easy / Канан д
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +539,7 @@ Needy Girl Overdose / Needy Streamer Overload / Зависимая девушк�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +565,7 @@ Yomi no Tsugai | Daemons of the Shadow Realm | Цугаи загробного �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +593,7 @@ Koori no Jouheki | The Ramparts of Ice | Ледяная стена [2026, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +619,7 @@ Dia no Ace: Act II Second Season | Ace of the Diamond: Act II Second Season | П
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +645,7 @@ Jishou Akuyaku Reijou na Konyakusha no Kansatsu Kiroku. | Дневник наб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +672,7 @@ Yomi no Tsugai | Daemons of the Shadow Realm | Цугаи загробного �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -577,112 +685,6 @@ Yomi no Tsugai | Daemons of the Shadow Realm | Цугаи загробного �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5011CB7BE098D6CBFBC807F01666F93177F9BA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862960   (1063260) от 05.04.2026
-
-Maid-san wa Taberu Dake / The Food Diary of Miss Maid / Горничная, которая просто любит покушать [2026, TV, 2 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горничная Судзумэ Тачибана работала в Англии. Но с особняком, в который устроилась девушка, случилась беда. В это время Судзумэ находилась в Японии. Ей позвонил работодатель и сообщил о разрушении дома (в котором никто не пострадал). На восстановление здания уйдёт год. И на этот год Судзумэ просят остаться в Японии. Живя в маленькой квартире до возвращения в Англию, (   Читать дальше...   )Жанр: повседневность, комедия.Режиссер: Сэмбо РёсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A8F22ACCBA6C0734B511A894A0E98C83924393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863760   (1063259) от 05.04.2026
-
-Ghost Concert: Missing Songs / Концерт-призрак: пропавшие песни [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2045 году пение было запрещено. Люди больше не сочиняют и не исполняют музыку; вместо этого все песни создает за них музыкальное приложение под названием MiucS.
-Однажды девушка по имени Серия Айба, гуляя с друзьями, слышит человеческий голос — то, чего уже не должно было существовать. Следуя за звуком, она сталкивается с таинственным существом: призраком. Перед (   Читать дальше...   )Жанр: приключения, фантастика, сверхъестественное, экшн, музыкальный.Режиссер: Дзимбо МасатоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E9D544AD4089B1F7746EAF8BAE532528C6DE16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863818   (1063181) от 06.04.2026
-
-Ingoku Danchi | Жилой комплекс извращенок [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёшида - крошечный, хрупкий выпускник средней школы, который против своей воли стал управляющим жилым комплексом, когда его отец, бывший управляющий, получил травму. Сам того не ведая, в этом жилом комплексе проживает довольно много женщин с очень... необычными сексуальными предпочтениями. Это становится проблемой, когда таинственная сущность начинает раздавать этим (   Читать дальше...   )Производство: EliasЖанр: комедия, эротикаРежиссер: Токоро ТосикацуПеревод: Animation Digital Network; SanaeЯзык озвучки: ЯпонскийСубтитры: Французские; РусскиеПродолжительность: 12 эп. по 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BC2E2D2229F9939B001EA0BF6329C3F30909A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863880   (1063167) от 06.04.2026
-
-Ponkotsu Fuuki Iin to Skirt-take ga Futekisetsu na JK no Hanashi | Бесполезный дежурный и школьница со слишком короткой юбкой [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сакурадаймон очень серьезно относится к своим обязанностям в школьном комитете по общественной морали. Каждый день он добросовестно проверяет внешний вид учеников у школьных ворот — чаще всего ругая Кохинату, нарушающую правила девочку с яркими волосами и в короткой юбке.
-Хотя его постоянные нравоучения ей надоедают, всё меняется, когда она обнаруживает, что Сакурадаймон (   Читать дальше...   )Производство: Zero-G / ゼロジーЖанр: романтика, комедияРежиссер: Иванага ДайдзиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340898C047AFB77B115066E482897F04D6DA75C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

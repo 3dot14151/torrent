@@ -7,7 +7,7 @@ Lazer Club - Forevermore (2026) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +36,7 @@ Max Damage - 3 Albums (2026) AI-generated content [MP3|320 Kbps] <synthwave, dar
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -65,7 +65,7 @@ Renegade Robot - 3 Releases (2025-2026) [MP3|320 Kbps] <synthwave, darkwave, dar
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -94,7 +94,7 @@ Ravens and Roses - Super (2025) [MP3|320 Kbps] <synthpop, post-punk>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -123,7 +123,7 @@ Alex Braun - Angel Machine (2026) [MP3|~245 Kbps (V0)] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -152,7 +152,7 @@ The Honest Shadow - Under The Sun (2026) [MP3|320 Kbps] <New Wave, Post-Punk>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2026 (2026) [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -210,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -239,7 +239,7 @@ Kraftwerk - Minimum-Maximum (2005) 2 CD [OGG Vorbis|520 Kbps] <Electronic, Elect
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +268,7 @@ Cyber Attack - Cyber Agression (2010) [OGG Vorbis|480 Kbps] <Electronic, Synth-p
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +295,7 @@ RetroNight87 - 2 Albums (2023) [MP3|320 Kbps] <Synthwave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +324,7 @@ Saigon Blue Rain - Oko (2023) [MP3|320 Kbps] <Synthpop, Darkwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +353,7 @@ Cyberman - Mysterious Galaxy (2022) [MP3|320 Kbps] <Synthwave, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +382,7 @@ Monflame - Voyager (2023) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [MP3|320 Kbps] <S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +440,7 @@ Absolute Valentine - American Nightmares (2021) [MP3|320 Kbps] <Synthwave, Darks
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -498,7 +498,7 @@ Lazer Station - Time Blazer (2021) [MP3|320 Kbps] <Darksynth, Cyberpunk, Synthwa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +527,7 @@ Acryl madness - Blood Rage Hurricane (2023) [MP3|320 Kbps] <Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Space Odyssey - Trip Two: First Human In Space (2017) [OGG Vorbis|480 Kbps]
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -614,7 +614,7 @@ Depeche Mode - Memento Mori (2023) [MP3|277-296 kbps VBR (V0)] <Electronic, Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -643,7 +643,7 @@ Beborn Beton - Darkness Falls Again (2023) Deluxe Edition [MP3|320 Kbps] <Synthp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Space Odyssey - Trip Four: Journey To The Sun (2018) [OGG Vorbis|480 Kbps] 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -701,7 +701,7 @@ Leitstrahl - Chromium Dioxide (2021) [MP3|320 Kbps] <Nu Disco, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -730,7 +730,7 @@ Aviators - Dreams Of The Deep (2021) [MP3|320 Kbps] <Synthwave, Cinematic Rock>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 

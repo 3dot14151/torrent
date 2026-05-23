@@ -1,3 +1,192 @@
+###  Публикация: 432214   (990529) от 06.01.2012
+
+В Швеции копирование информации признано религией
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Шведская группа, выступающая за свободный обмен цифровой информацией, получила официальную регистрацию в качестве религиозной организации, передает Би-би-си.Группа, которая называет себя "Церковью Копимизма" (от англ. copy и me - "скопируй меня"), говорит, что официальное признание со стороны государства даст ей правовую защиту и свободу "священнодействия".Шведские СМИ отмечают, что "Церковь Копимизма" тесно связана с "Пиратским движением" Швеции, которое выступает за свободное распространение информации и против защиты авторских прав.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353628   (990357) от 19.01.2020
+
+Windows 10 Pro VL x64 v.1909.18363.592 3in1 OEM Jan2020 by Generation2 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Cборка основана на оригинальном образе Windows 10 Professional x64 19H2. В одном образе три редакции: с автоактивацией двумя способами и без. Интегрированы обновления по январь 2020 года, билда повышен до 18363.592. Никакой графики не добавлено, ничего не удалено и не отключено. Подробнее о сборке читайте ниже.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D565702622F5AD674024A2B5A3565868D484291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353618   (990351) от 19.01.2020
+
+Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGorskiy® 01.2020 1DVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Обновлённые оригинальные русские образы ОС "Windows® 7™ Максимальная" от Microsoft разных разрядностей (x86 и x64), объединённых в один образ стандартными средствами от Microsoft (DISM, AIK) на 1 DVD. Включает в себя "чистые" не модифицированные образы ОС Windows 7 Ultimate x86/x64 и расширенный загрузчик-установщик Stop SMS Uni Boot от Core-2. (   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2353DF53575986E4B476128DF19C25CD7A13BB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353591   (990348) от 19.01.2020
+
+Adobe Acrobat Pro DC 2019.021.20061 RePack by Diakov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EB4EAD030B84B8E57BD697AECE296C62AFD569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610427   (989831) от 29.01.2013
+
+KMSnano Automatic by Heldigard 19 [Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+KMSnano 19 - решение для активации Windows 8, Office 2013, Windows 7 и Office 2010. Активация проходит в фоновом режиме, от Вас требуется только запустить активатор кликнув по файлу "KMSnano.exe" и дождаться завершения активации проверив статус активации Windows или Office через минуту-две. C помощью KMSnano 19 можно сразу активировать оба продукта, Windows 8 и Office 2013. Запустив KMSnano 19 он сам обнаружит неактивированные продукты Microsoft (Windows или Office) и автоматически их активирует, после чего активатор можно смело удалять. Так же KMSnano 19 работает в офлайн (offline) режиме.
+
+(   Читать дальше...   )Название программы: KMSnano Automatic by HeldigardЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610326   (989791) от 29.01.2013
+
+Dead Space 3 [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 15574) (2013)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В игре Dead Space 3 Айзек Кларк и суровый солдат Джон Карвер отправляются в космическое путешествие, чтобы узнать о происхождении некроморфов.
+После жесткой посадки на ледяной планете Тау Волантис Айзек прочесывает окрестности в поисках материалов и деталей, чтобы создать и модифицировать оружие и средства выживания.
+
+У Айзека есть возможность навсегда покончить с некроморфами, но для этого нужно пережить лавины, восхождения на ледяные вершины и другие опасности замерзшей планеты. Враги сильны как никогда, но бороться за выживание человечества можно не только в одиночку, но и вместе с другом.
+В каждом режиме есть свои сюжетные и геймплейные нюансы, а новая технология позволяет быстро войти и выйти из многопользовательской игры. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B889CEFB059C22658E1D27568FC08951057AC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349405   (989592) от 20.01.2020
+
+uTorrent 3.5.5 (build 45493) Portable by SanLex (Ad-Free) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355A2D552E7FFD2F5081B7B2C2F268A74728D059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432654   (989488) от 07.01.2012
 
 [PS3] Grand Theft Auto 4: Complete Edition [FullRUS] [PAL] 2010
@@ -6,7 +195,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_989235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -65,7 +254,7 @@ COWBOY WPI DVD Project II StartSoft 15 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +280,7 @@ Metro 2033 / Метро 2033 [En/Multi7] (L) 2010 | PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -121,7 +310,7 @@ Macross Frontier / Макросс Фронтир OSTs+OP+ED+Other <mp3 320K>
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_988272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -154,7 +343,7 @@ DriverPack Solution 2015 + Драйвер-Паки 15.12.5 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +369,7 @@ Kaspersky Internet Security 2016 16.0.1.445 MR1 (Technical Release) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +395,7 @@ LoftSchool | Kомплексное обучение разработке на PH
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -235,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -262,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -290,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -316,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -342,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -368,7 +557,7 @@ ABBYY FineReader 15.0.112.2130 Corporate RePack (& Portable) by Diakov [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -394,7 +583,7 @@ Frostpunk (2018) [Ru/Multi] (1.5.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -420,7 +609,7 @@ uTorrent 3.3 build 29038 Stable [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -446,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -472,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -498,7 +687,7 @@ MultiBoot USB X8 afin 8 [Русский / Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,188 +702,6 @@ MultiBoot USB X8 afin 8 [Русский / Английский]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612263   (986387) от 01.02.2013
-
-Дублёр (2012) [H.264/720p-LQ] BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой нашей истории — успешный актер, звезда шоу-бизнеса Игорь Успенский. Его жизнь — сплошные съемки, концерты, презентации, корпоративы, интервью и светские тусовки. Он вынужден «крутиться» день и ночь, у него нет выходных и праздников. А его очаровательная жена и прекрасная дочка видят его в лучшем случае поздно ночью, когда он приезжает домой, чтобы поспать (   Читать дальше...   )Производство: Enjoy MoviesЖанр: КомедияРежиссер: Евгений АбызовАктеры: Александр Ревва, Дмитрий Хрусталев, Людмила Артемьева, Кристина Асмус, Татьяна Орлова, Ксения Буравская, Варвара Малкова, Александра Кимаева, Евгений Шиманович, Алексей РязанцевПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E29BA096BFAF8DA8B27CBBE6E0ADF560CBCC1E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354569   (985651) от 24.01.2020
-
-Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 01.2020 2 DVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985651.jpg" />
-</div>
-
-
-###  Подробнее
-
-32-х и 64-х битные ОС Windows® 7™ с интегрированными обновлениями, оформлением в светло-голубом стиле и ручной установкой на 2 DVD. Содержит в себе набор программ, тем оформления, картинок рабочего стола, гаджетов и пр., т.е. почти все для начала работы с системой после установки, а так же предоставляет возможность проверить компьютер перед установкой. Сборка содержит (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB49BBE0618FAE05371B6413AB56C2F452D51D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354916   (985647) от 24.01.2020
-
-Доктор Сон / Doctor Sleep (2019)  WEBRip [H.264] [Theatrical Cut]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло много лет с тех пор, как мальчик с паранормальными способностями Дэнни Торранс пережил кошмарный сезон в отеле «Оверлук», где стал свидетелем гибели своего отца. Повзрослев, Дэн вёл жизнь маргинала-алкоголика, а теперь пытается завязать и устроился на работу в дом престарелых. Там он безошибочно определяет, кому из постояльцев подошла очередь покинуть этот (   Читать дальше...   )Производство: США, Великобритания | Warner Bros., Intrepid Pictures, Vertigo Ent.Жанр: Ужасы, фэнтези, триллер, драмаРежиссер: Майк ФлэнеганАктеры: Юэн Макгрегор, Ребекка Фергюсон, Кайли Кёрран, Брюс Гринвуд, Зан Маккларнон, Клифф Кёртис, Карл Ламбли, Джейкоб Тремблей, Закари Момо, Эмили Элин ЛиндПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full)Продолжительность: 02:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3103F1150BFC05B8702B4B3D0D3AC4FC40B681D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353593   (985642) от 24.01.2020
-
-Сиротский Бруклин / Motherless Brooklyn (2019) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лайонел Эссрог, одинокий частный детектив с синдромом Туретта, решает начать расследование убийства своего наставника и единственного друга Фрэнка Минны. У него есть лишь несколько зацепок и сила разума, одержимого поставленной целью, чтобы распутать клубок тщательно скрываемых тайн, которые сохраняют баланс сил в самом Нью-Йорке. Расследование заводит его в джазовые (   Читать дальше...   )Производство: США / Class 5 Films, MWM Studios, Warner Bros. PicturesЖанр: Драма, криминал, детективРежиссер: Эдвард НортонАктеры: Эдвард Нортон, Гугу Эмбата-Ро, Алек Болдуин, Бобби Каннавале, Уиллем Дефо, Брюс Уиллис, Итан Сапли, Черри Джонс, Даллас Робертс, Джош ПэйсПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BED0F3B933F2556C9D6162687147AC15196292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971673   (985315) от 03.01.2016
-
-Kaspersky Total Security 2016 16.0.0.614 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Total Security (бывший Kaspersky CRYSTAL) обеспечивает защиту "все-в-одном" для вашего компьютера и важной информации с помощью всех необходимых компонентов. Среди основных возможностей решения: комплексный антивирус, веб-защита, персональный фаервол, резервное копирование данных, родительский контроль. Дополнительные инструменты безопасности (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E73B90632B02C32E84CF833EDDC5C1EA27A81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971612   (985246) от 03.01.2016
-
-OMSI2: Steam Edition (2013) [En/Ge/Fr] (2.2.032/dlc) SteamRip MOGLi
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985246.jpg" />
-</div>
-
-
-###  Подробнее
-
-OMSI 2 является очень реалистичным симулятором автобусов для домашних ПК. Он переносит игрока в Западный Берлин, чтобы прокатиться по району Шпандау. Возьмите на себя роль водителя автобуса по улицам Берлина. В игре присутствует автобус MAN двухэтажный SD200 и SD202 разных годов выпуска и впервые сочлененный MAN NG272.Тип издания: SteamRipРазработчик: MR-Software GbRЖанр: Simulator, 3DЯзык озвучки: НемецкийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63580D2FBB7DA33E5E7E227CCBE5BF5BE9D957E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971691   (985236) от 03.01.2016
-
-Spectrasonics Omnisphere 2 2.0.3d [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синтезатор Omnisphere - плод нескольких лет разработок компании Spectrasonics является совершенно новым брендом виртуальных инструментов. Этот эпический синтезатор основан на абсолютно новых звуковых технологиях, комбинируя большое разнообразие гибридных методов синтеза в реальном времени, эпическую библиотеку психоакустических звуков, и множество инновационных функций, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1997BAEB034802307F3BBBBE7F50F78787AE6F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

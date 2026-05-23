@@ -1,3 +1,58 @@
+###  Публикация: 1637389   (47144) от 11.08.2024
+
+Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 | Не люблю боль, поэтому собираюсь вложить всё в защиту [ТВ-2] [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu.
+Описание на первый сезон:
+
+По приглашению подруги Каэде Хондзё погружается в VRMMO-игру New World Online, даже не представляя, как в неё играть. Все очки навыков девушка тратит на защиту своего персонажа Мейпл, из-за чего она становится медленной и не может использовать магию. Но теперь (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, комедия, фэнтезиРежиссер: Онума СинПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258D32466B60B35F36F468E4E20E1178CBDF2B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742471   (47123) от 11.08.2024
+
+Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Another World with Level 2 Super Cheat Powers | Беззаботная жизнь в ином мире [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Банадза жил спокойной жизнью торговца, пока однажды его внезапно не перенесло в другой мир. В царстве Клайрод ожидали, что он окажется великим героем, однако юноша получил первый уровень без каких-либо особых способностей. За это его изгнали в далёкий лес, где на Банадзу напали слаймы. Победив их, парень достиг второго уровня и обрёл безграничную мощь. Взяв себе (   Читать дальше...   )Производство: студия J.C. StaffЖанр: комедия, романтика, фэнтезиРежиссер: Ивасаки ЁсиакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FE4F07AFE1871592B23A4DA4B7FC0C13EF25F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722322   (47075) от 12.08.2024
 
 Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2024, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +61,7 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +87,7 @@ Terminator Zero | Терминатор Зеро [2024, Web, 8 эп.] WebRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +115,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +141,7 @@ Ani ni Tsukeru Kusuri wa Nai! 5 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +169,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +195,7 @@ Ariel Visual | Ариэль [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +222,7 @@ Ariel Deluxe | Deluxe Ariel | Роскошная Ариэль [1991, OVA, 2 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +248,7 @@ Megami-ryou no Ryoubo-kun. | Mother of the Goddess' Dormitory | Комендан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +274,7 @@ Wasurenagumo | Li'l Spider Girl | Паучонок [2012, Special] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +302,7 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -275,7 +330,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi 2 | The Seven Deadly Sins: Four Knigh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -303,7 +358,7 @@ Rescue Me! | Спаси меня! [2013, OVA] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -329,7 +384,7 @@ Dokyuu Hentai HxEros | Super HxEros | Формирование извращён�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -355,7 +410,7 @@ Sakamoto Days | Дни Сакамото [2025, TV, 11 из 11 эп.] WEBRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -381,7 +436,7 @@ Honey Lemon Soda | Сладкий лимонад [2025, TV, 12] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -407,7 +462,7 @@ Thunderbolt Fantasy: Seishi Ikken | Thunderbolt Fantasy: The Sword of Life and D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -433,7 +488,7 @@ Juusenki L-Gaim I: Pentagona Window + Lady Gavlet | Heavy Metal L-Gaim I: Pentag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -459,7 +514,7 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -485,7 +540,7 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -511,7 +566,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 3 | Thunderbolt Fantasy: Sword Seekers 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -537,7 +592,7 @@ Bloody Escape: Jigoku no Tousou Geki | Bloody Escape: Bats out of Hell | Кро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -565,7 +620,7 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,7 +648,7 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -621,7 +676,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -632,58 +687,6 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC555540821324A8F3946251174ACD56C6F216E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721340   (16318) от 30.05.2025
-
-Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей [ТВ-1] [2024, TV, 24 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лай Торден, воин и лидер гильдии, вместе со своей командой отправился в подземелье, чтобы спасти свою сестру Фалин от красного дракона. Но что-то пошло не так, и герои остались без припасов. И тогда Лай предложил нарушить табу, и чтобы не умереть от голода, есть местных монстров. Без особого восторга от такой перспективы команда согласилась, ведь иначе они не успеют (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: комедия, драма, фэнтезиРежиссер: Миядзима ЁсихироПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5554BF67F213742D911832C90CE53FBBEE448ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349610   (16284) от 30.05.2025
-
-Garo: Honoo no Kokuin / Garo the Animation / Гаро: Печать пламени [2014, TV, 24 эп. + SP] BDRip 1080p 10bit Raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покой королевства Валианте издавна хранили светлые витязи, волхвы и ведьмы, боровшиеся с нечистью путем развития тайных сил. Однажды волхв Мендоса поддался искушению и сам стал монстром. Изгоняя призванных им же демонов, отступник вошел в доверие к королю Фернандо и начал охоту на бывших товарищей. Используя болезнь монарха, Мендоса обвинил в «порче» и отправил на (   Читать дальше...   )Производство: MAPPAЖанр: приключения, комедия, фэнтезиРежиссер: Хаяси ЮйтироПеревод: Shift (TV) | FRT Sora & KaijuKeizer (TV + OVA)Субтитры: РусскиеЯзык: ЯпонскийПродолжительность: 24 серии + 1 OVA по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC84F2189034279750E15A94D9F0E9B966ACD04
 ```
 
 https://mybot314.ru/tekegram_catalog/

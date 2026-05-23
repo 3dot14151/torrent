@@ -1,3 +1,108 @@
+###  Публикация: 521457   (624291) от 12.07.2012
+
+Профессионал / Le Professionnel (1981) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Убить президента африканской республики. Такое задание получил секретный агент Жослен Бомон. Внезапно политика изменилась, и французское правительство сдает героя африканским властям. Сбежав с каторги, волк-одиночка возвращается на родину с одной целью: довести задание до конца. А чернокожий лидер как раз приезжает во Францию.Жанр: Боевик, Триллер, Драма, КриминалРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Жан Дезайи, Робер Оссейн, Мишель Бон, Сирьель Клер, Жан-Луи Ришар, Пьер Сентон, Мари-Кристин Декуар, Бернар-Пьер Доннадье, Элизабет Маргони, Сидики Бакаба, Пьер Вернье, Морис Озель, Баарон, Мишель Беррер, Жан-Клод Буйо, Даниель Бретон, Жерар Даррье, Серж Нубре, Шейк Дукуре, Пьер Форже, Марк Ламоль, Ги Мересс, Жюльен Буковски, Паскаль Н'Зонзи, Жак Канселье, Клод-Бернар Перо, Ив Пиньо, Андре Вебер, Дэни Коган, Беате КоппПеревод: Многоголосый закадровый + дубляжЯзык субтитров: РусскиеПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7153D42646B949D91C929379AAB4A40ED7A0C4A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906589   (623838) от 19.06.2015
+
+Мост Вздохов / Il ponte dei sospiri (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа Мишеля Зевако. Сын венецианского дожа, Роландо Кандьяно, посажен в тюрьму и приговорён к смерти по ложному обвинению в убийстве. Его отец обвинен в измене и ослеплён. Роландо бежит из тюрьмы, чтобы отомстить своим врагам и восстановить доброе имя своей семьи...Производство: Испания, Италия, ФранцияЖанр: Приключения, экранизацияРежиссер: Карло Кампогаллиани, Пьеро ПьероттиАктеры: Бретт Хэлси, Джанна Мария Канале, Берт Нельсон, Конрадо Сан Мартин, Вира Силенти, Хосе Марко Даво, Хосе Ньето, Перла Кристал, Жан Мюрат, Паоло ГозлиноПеревод: Любительский одноголосый (SATKUR)Продолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E230D9AD3F671A7FAD1E56ECD0DB22AEF5B63DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544082   (623800) от 14.04.2022
+
+Второй хор / Second Chorus (1940) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Беспечные друзья-трубачи Дэнни О'Нил и Хэнк соседи по комнате и конкуренты за лидерство в джаз-оркестре любимого колледжа. Вдобавок, они являются самыми "старыми" студентами в университетском городке. Однажды ребята встречаются с менеджером налоговой службы Эллен Миллер, которая вызывает их на разбирательство по поводу непогашения задолженности по векселю. (   Читать дальше...   )Производство: США, Boris Morros ProductionsЖанр: мюзикл, мелодрама, комедияРежиссер: Г.К. ПоттерАктеры: Фред Астер, Полетт Годдар, Арти Шоу, Чарльз Баттерворф, Бёрджесс Мередит, Фрэнк Мелтон, Джимми Конлин, Дон Броди, Марджори Кэйн, Джоан БарклайПеревод: профессиональный многоголосый (т/к Культура) профессиональный двухголосый (Red Media)Субтитры: английскиеПродолжительность: 01:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91C6A7DE1D678D9EDD4697CA278339CE800F32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219897   (623481) от 19.07.2010
+
+Татуированный / Le tatouué (1968) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шустрый и нечистоплотный торговец антиквариатом Фелисьен Мезере случайно видит на широкой спине позирующего художнику пожилого человека необычную татуировку. Опытный глаз пройдохи сразу определяет руку мастера - и действительно, этот рисунок когда-то сделал майору Леграну великий Модильяни.
+Фелисьен незамедлительно предлагает Леграну продать кожу со спины за любые деньги, но тот с возмущением отвергает абсурдное предложение. Но обезумевший от жадности антиквар готов на все, лишь бы заполучить в свои руки бесценный шедевр и продать его втридорога. Легран в конце концов соглашается, но в обмен на небольшую услугу. Фелисьен не раздумывая соглашается, и они отправляются в необычное путешествие.Жанр: комедияРежиссер: Дени де Ла Пательер / Denys de La PatelliereВ ролях: Жан Габен /Jean Gabin/, Луи Де Фюнес /Louis De Funes/, Поль Мерсе /Paul Mercey/, Ив Барсако /Yves Barsaco/, Пьер Торнад /Pierre Tornade/, Жен-Пьер Дарра /Jean-Pierre Darras/, Джо Уорфилд /Joe Warfield/, Доналд Й. Фон Курц /Donald J. von Kurtz/, Лин Шардонне /Lyne Chardonnet/, Доминик Даврэй /Dominique Davray/Перевод: Оригинальный, Профессиональный (многоголосый, закадровый)Формат: Matroska
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1080371D0C5EC75C150D6B2F03355B4E1CBC7D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906697   (623415) от 19.06.2015
 
 Корабли викингов / The Long Ships (1964) DVDRip
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_619709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -461,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,111 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B61454891658C505F892459051A3A73D6E11EC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907325   (617811) от 22.06.2015
-
-Прощай, Сабата / Adios Sabata (1970) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сабата, лучший стрелок дикого запада, помогает мексиканским повстанцам украсть повозку с золотом, на которое революционеры планируют купить оружие. Однако на это золото уже успела позариться и местная бандитская шайка...Производство: Италия, ИспанияЖанр: Боевик, приключения, вестернРежиссер: Джанфранко ПаролиниАктеры: Юл Бриннер, Дин Рид, Игнацио Спалла, Жерар Хертер, Сальваторе Боргезе, Франко Фантазия, Джозеф П. Персауд, Андреа Скотти, Нивз Наварро, Лучано КасамоникаПеревод: Профессиональный многоголосыйПродолжительность: 01:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D946E8D3DFB8852A6D4232EBB8F90DCF0F23D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907520   (617691) от 22.06.2015
-
-Доброго вечера, миссис Кэмпбелл / Buona Sera, Mrs. Campbell (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя 20 лет после своего первого визита в Италию во время войны, трое американских служащих снова приезжают в итальянскую деревушку. У них много воспоминаний, связанных с этим местом, особенно с девушкой Карлой. Выясняется, что она каждому из них сказала, что он является отцом ее дочери Джиа, и таким образом получала деньги на ребенка от всех троих. Теперь все (   Читать дальше...   )Производство: США / Connaught ProductionsЖанр: КомедияРежиссер: Мелвин ФрэнкАктеры: Джина Лоллобриджида, Шелли Уинтерс, Фил Силверс, Питер Лоуфорд, Телли Савалас, Ли Грант, Джанет Марголин, Мэриэн МакКарго, Наоми Стивенс, Ренцо ПальмерПеревод: Многоголосый закадровый, 5-й канал С.-ПетербургСубтитры: ОтсутствуютПродолжительность: 01:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B32442A7704C45AF3DA365F65BA98B071BE14E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293480   (616829) от 14.04.2019
-
-Где третий король? / Gdzie jest trzeci krol (1966) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616829.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Польшу приезжает комиссар Дидо из Интерпола, занимающийся разработкой так называемого "Синдиката" - международной банды похитителей картин. По его сведениям, очередной целью "Синдиката" является представляющая большую ценность картина, на которой изображен средневековый король. Картина находится в музее, расположенном в замке в Борах.
-Чтобы (   Читать дальше...   )Производство: Польша. Творческое объединение «Студио»Жанр: ДетективРежиссер: Ришард БерАктеры: Анджей Лапицкий, Калина Едрусик, Марья Ваховяк, Алиция Вышинская, Веньчислав Глиньский, Тадеуш Кондрат, Рышард Петруский, Франчишек Печка, Войцех Покора, Збигнев ЮзефовичПеревод: Дублированный (киностудии им. М.Горького)Субтитры: отсутствуютПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D1968594545EDC7DAD9FB01674DEE55F74599D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523681   (616706) от 16.07.2012
-
-Кто подставил кролика Роджера / Who Framed Roger Rabbit (1988) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив расследует загадочное преступление, в котором подозревается… мультипликационный персонаж кролик Роджер! Сыщик попадает в непредсказуемый мир, где его ожидают нарисованные злодеи с настоящими револьверами, говорящий автомобиль и соблазнительная мультяшная красотка. Наконец, на горизонте появляется мрачная фигура того, кто подставил кролика Роджера.Жанр: Анимация, Семейный, КомедияРежиссер: Роберт ЗемекисАктеры: Боб Хоскинс, Кристофер Ллойд, Джоанна Кэссиди, Чарльз Флайшер, Стабби Кэй, Элан Тилверн, Ричард ЛеПарментье, Лу Хирш, Бетси Брэнтли, Джоэл СилверПеревод: ДублированныйПродолжительность: 01:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFA721D15284037B006E5D0AD64C834619072CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

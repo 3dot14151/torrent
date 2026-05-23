@@ -1,109 +1,3 @@
-###  Публикация: 974947   (974594) от 13.01.2016
-
-Иван Василенко | Мышонок (1938) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть Ивана Василенко «Мышонок» была опубликована в журнале «Костер» № 7 в 1938 году.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D101F2A93AFEAA4AD9C0881EAC4FEDE102DB4D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357408   (974393) от 03.02.2020
-
-Евгения Овчинникова | Иди и возвращайся. Магия Зеро [2 книги] (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974393.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. «когда прочитаешь удали это сообщение». С маленькой буквы, без знаков препинания. Мама?! Но как это возможно? Мама три года назад исчезла без следа, и ни папа, ни полиция не нашли зацепок… И если это в самом деле она, то почему дает о себе знать только теперь, когда Нина уже приучилась жить с этой пустотой внутри?
-В каждом петербургском прохожем четырнадцатилетняя (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5918E4A71540AFC40AD0AA664CA439799AC3B940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357410   (974332) от 03.02.2020
-
-Евгения Овчинникова | Мортал комбат и другие 90-е [сборник] (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рукопись, найденная на антресоли, бросится Кириллу в глаза. «Мортал комбат» – это что, название? Неужели рассказы? «Читай, – чуть поразмыслив, вздохнет Евгения Овчинникова, – они о моем детстве в девяностые». И Кирилл тут же провалится в эти истории, как, надеемся, провалитесь и вы.
-Девочка Женя продает новогодние елки и пускается в погоню за вором, что прокрался (   Читать дальше...   )Жанр: Проза для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCD48E107A1B83E99A60A1515DBDB7DE8FAF1F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975234   (973427) от 14.01.2016
-
-Юрий Яковлев | А Воробьев стекло не выбивал (1979) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EF89C5E8F44F557EDB45B42CEC38A550EE410C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616769   (973257) от 11.02.2013
 
 Братья Гримм | Полное собрание сказок и легенд в одном томе [2009] [PDF]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -385,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -467,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -493,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -521,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -547,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -627,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -654,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -682,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -693,6 +587,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFC1E3FB045718C0F86DB7F51D3129C5747DCBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746189   (966221) от 16.01.2014
+
+Ион Крянгэ, Михай Эминеску, Барбу Делавранча | Румынские сказки (1973) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сказка- жанр письменного и устного народного творчества: прозаический устный рассказ о вымышленных событиях в фольклоре разных народов.
+
+В этой книге представлены Румынские народные сказки и сказки румынских писателейЖанр: СказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A5425E290C8B9FEBF56DA2F160B368EB165350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358909   (966201) от 10.02.2020
+
+Моска Джованни | 40 чертей и одна зелёная муха (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Для десятилетнего мальчишки все дни – прекрасны! В понедельник ты наблюдал за порхающими в небе ласточками и думал, едят ли они шоколад, – это жутко загадочно. Во вторник ты поймал огромную цикаду и послушал, как она стрекочет, – это дико интересно. В среду… Да мало ли что в среду? Наверняка это был прекрасный день! Если что-то его и омрачило, так это школа.
+Хотя, (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыПеревод: Анастасия ЕремееваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C16925BB306F0FD1625B9149D8CA58272E0E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359132   (966197) от 10.02.2020
+
+Виктория Ледерман | Всего одиннадцать! или Шуры-муры в пятом «Д» (2017) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ради любви – первой в жизни! – Егор и Никита готовы на все. Купить на скопленные деньги огромный букет цветов, засыпать единственную-неповторимую подарками, чудом достать билет на желанный для нее концерт – пожалуйста! Вот только влюбились друзья в одну и ту же девочку – новенькую в пятом «Д», Ангелину. Да что там билеты и цветы: кто из них готов рискнуть жизнью (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82609305511B4B2EFBF81A2202F5238962E04172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359134   (966145) от 10.02.2020
+
+Виктория Ледерман | Календарь ма(й)я (2016) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Просыпаться утром и обнаруживать, что проживаешь дни в обратном порядке, – штука посерьезней «Дня сурка»! Шестиклассник Глеб Елизаров всего лишь нацарапал на древней стене дату «23.05.2013» – и отправился с парой одноклассников сначала в 22 мая, а затем в 21-е, 20-е, 19-е…
+Недавно перешедший в новую школу Глеб, увалень-отличник Юра Карасев и погрязшая в домашних (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9B354A2A75D133F359D3258B931CE2BD79FC26
 ```
 
 https://mybot314.ru/tekegram_catalog/

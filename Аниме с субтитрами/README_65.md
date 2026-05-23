@@ -1,3 +1,109 @@
+###  Публикация: 1308289   (554135) от 13.06.2019
+
+Bubblegum Crisis / Кризис каждый день [1987, OVA, 8 эп.] BDRip 1080p 10bit Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2032 год н.э. После сильного землетрясения Токио был полностью перестроен и стал называться Мегатокио. Примерно в это же время транснациональная корпорация Genom начала массовое производство разумных и полуразумных биороботов, известных как «бумеры». Они быстро нашли применение как рабочие и солдаты, но также вызвали к жизни волну преступлений совершенно нового типа. (   Читать дальше...   )Производство: AIC и ARTMICЖанр: приключения, фантастика, мехаРежиссер: Акияма КацухитоСубтитры: РусскиеПродолжительность: 8 серий по 50 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAA7CD880E8E4F580EA12D526CC8F4F7FE94A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215110   (553038) от 22.07.2018
+
+A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В ходе научных исследований в Японии 2035 года происходит инцидент под названием Разрыв, в результате которого искусственная форма жизни под названием Материя выходит из-под контроля и распространяется по всей территории ущелья Куробе. Теперь город, ранее бывший центром научных исследований и надеждой человечества, находится в оцеплении.
+
+Спустя два года после происшествия (   Читать дальше...   )Производство: студия BONES / ボンズЖанр: приключенияРежиссер: Мурата КадзуяПеревод: Crunchyroll; MedusaSubsЯзык озвучки: ЯпонскийСубтитры: #1: Английские; ; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6956505556E1392931A5124B4017788101ECCEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814970   (553034) от 22.08.2014
+
+Hi no Tori 2772: Ai no CosmoZone / Phoenix 2772: Cosmo Song of Love / Жар-птица 2772: Космозона Любви [1980, Movie] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В мире, где живут герои фильма, дети рождаются в пробирках и воспитываются компьютерами и роботами. В изолированой и напичканой электроникой комнате подрастает ребёнок - мальчик по имени Годах. На одно из своих дней рождений он получает в подарок андройда - красивую девушку - трансформер, которая должна заботиться и защищать своего нового хозяина. С помощью роботессы (   Читать дальше...   )Производство: Tezuka ProductionsЖанр: фантастика, приключения, драмаРежиссер: Сугияма ТакуЯзык озвучки: ЯпонскийСубтитры: RU SRTФормат: MKV HDTVRipПродолжительность: 121 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C476613590290CC3B123C1F27959DEBB5D6F2812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309010   (552878) от 17.06.2019
+
+Koro-sensei Quest! (2016) / Квест Коро-сэнсэя! (2016) [2016, ONA, 12 из 12 эп.] WEB-DL 1080p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф аниме "Ansatsu Kyoushitsu"! В этом мире Класс Н - неудачники-герои, которые не могут похвастаться ни силой, ни магией. Даже монстр самого низшего уровня был им не по зубам. Однако в один день Королевские стражи дают задание Классу Н победить Короля Демонов, обладающего невероятной скоростью, которую он получил благодаря странному феномену, известному (   Читать дальше...   )Производство: LercheЖанр: комедия, сёненРежиссер: Нисёдзи ЁсихитоСубтитры: РусскиеПродолжительность: 12 серий по 10 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF92FDA6C2C77C25866BD8A288F0CBBC33C993D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309080   (552801) от 17.06.2019
 
 Senki Zesshou Symphogear AXZ / Последняя Песня Боевых Принцесс - Мехасимфония [ТВ-4][2017, TV, 13 + 4SP] BDrip 1080p raw
@@ -6,7 +112,7 @@ Senki Zesshou Symphogear AXZ / Последняя Песня Боевых При
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ Ansatsu Kyoushitsu OVA / Assassination Classroom OVA / Класс убийц [20
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ Hanamonogatari / История Цветов [2014, SP] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ Nobunaga the Fool | Глупец  Нобунага [2014, TV, 24] BDrip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ Tonari no Seki-kun | Tonari no Seki-kun: The Master of Killing Time | Сэки, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ Toshokan Sensou: Kakumei no Tsubasa / Библиотечная война: Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ Basilisk: Kouga Ninpou Chou | Basilisk: The Kouga Ninja Scrolls | Василис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +324,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Seikaisuru Kado | Seikai Suru Kado | Kado: The Right Answer | Правильны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +376,7 @@ Citrus | Цитрус [2018, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +402,7 @@ Seikaisuru Kado | Seikai Suru Kado  | Kado: The Right Answer | Правильн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +428,7 @@ Sacred Seven / Священная Семерка [2011, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +456,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +482,7 @@ Nanatsu no Taizai OVA | The Seven Deadly Sins OVA | Семь смертных г
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +510,7 @@ Nobunaga-sensei no Osanazuma | Nobunaga Teacher's Young Bride | Молодая �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +536,7 @@ Overman King-Gainer / Король Гэйнер [2002, TV, 26 из 26] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +562,7 @@ Samurai Champloo / Самурай Чамплу [2004, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +588,7 @@ Go! Go! Ackman | Вперёд! Вперёд! Акман! [1994, OVA] VHSRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +615,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +641,7 @@ Shoumetsu Toshi | Afterlost | Исчезнувший город [2019, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +667,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,110 +678,6 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEDD6FD5B837CC08503584E730CA2EE3C00CCB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991632   (545562) от 03.09.2016
-
-Meru Hevun / Mar Heaven: Marchen Awakens Romance / Небеса МАР [2005, TV, 7 из 102] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545562.jpg" />
-</div>
-
-
-###  Подробнее
-
-14-летний недотёпа Гинта, заядлый игроман и троечник, любитель поспать на уроках, большой поклонник фентези. Ему часто снится один и тот же сон, что открывается портал и он попадает в мир фантазий. И вот однажды этот портал открывается на самом деле и он попадает в таинственный мир "Небеса MAR". В этом сказочном мире физически слабый Гинта превращается (   Читать дальше...   )Производство: SynergySPЖанр: приключения, комедия, фэнтези, сёнэнРежиссер: Окуваки МасахаруПеревод: английский: официальный VIZ , русский: Аскр (1-88), неизвестен (89-102)Язык субтитров: Английский (отключаемый), Русский (отключаемый)Продолжительность: 102 серии по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF13C154BB4769F417026EDE93E4AE5A52AC0698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294572   (545067) от 26.06.2019
-
-Midara na Ao-chan wa Benkyou ga Dekinai / Ao-chan Can't Study! / Похотливая Ао-тян не может учиться [2019, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ао Хорие усердно учится ради поступления в престижный университет и возможности наконец-то съехать от отца (популярного автора эротических романов). У неё нет времени на парней и прочие развлечения, но после неожиданного признания в любви от одноклассника становится ясно, что влияние отца не прошло бесследно...Жанр: романтика, комедия, эроРежиссер: Иноэ КэйсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 15 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6401B31A6DB4EBE52BBFAD78BB29AD4A2FA25B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049344   (544716) от 04.09.2016
-
-Mudazumo Naki Kaikaku: The Legend of Koizumi | Легенда о Коидзуми [2010, OVA, 3 эп.] DVDrip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дзюнитиро Коидзуми - премьер-министр Японии, воплощение Бога Маджонга. Какое значение в политическом мире имеет Маджонг? Посмотрите столкновения Коидзуми с другими титанами мира, таких как Джордж Буш, Ким Чен Ир и Владимир Путин.Производство: студия TYO Animations / TYOアニメーションズЖанр: комедияРежиссер: Мидзусима ЦутомуПеревод: Матадор & tina & JellyfishЯзык субтитров: РусскийПродолжительность: 3 эп. по 8 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8379C5C7636F36EB1D447463A58D5E32901807B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016738   (544544) от 04.09.2016
-
-Aokana | Four Rhythm Across the Blue | Ao no Kanata no Four Rhythm | Четыре ритма сквозь синеву: За небо, в небосвод [2016, TV, 12 эп.] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди все-таки научились летать – правда, без крыльев, с помощью гравиботинок. В больших городах полеты ограничены, а вот в глубинке и на далеких островах – сколько угодно. Именно на такие острова, родину отца, приезжает Асука Курасина – и тут же влюбляется в небо и воздушный спорт под названием «летающий цирк». Ее инструктором по воле судьбы и мудрого учителя Кагами (   Читать дальше...   )Производство: студия Gonzo DigimationЖанр: приключенияРежиссер: Ойдзаки ФумитосиПеревод: Dreamers TeamЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FFBF97DFADE4EE74FD2E5C0C4DC44C60364906
 ```
 
 https://mybot314.ru/tekegram_catalog/

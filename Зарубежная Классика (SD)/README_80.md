@@ -1,3 +1,112 @@
+###  Публикация: 1164617   (414400) от 21.09.2017
+
+Кто есть кто? / Flic ou voyou (1979) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После загадочной гибели комиссара жандармерии Ниццы, в город, из Парижа, приезжает инспектор надзорного отдела, чтобы вскрыть коррупцию, царящую среди стражей правопорядка.
+Но методы его работы заставляют недоумевать, кого он больше напоминает, непринужденный и обольстительный, ловко действующий кулаками, но не чуждый сердечным порывам.Производство: Франция / Cerito Films, Gaumont InternationalЖанр: Боевик, Триллер, Драма, Комедия, КриминалРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Жорж Жере, Жан-Франсуа Бальмер, Клод Броссе, Жюли Жезекель, Мишель Бон, Тони Кендалл, Катрин Лашанс, Джульетт Миллз, Венантино Венантини, Шарль Жерар, Мишель Галабрю, Мари ЛафореПеревод: Дублированный, двуголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53775855560441D3D381D85032E3040E35BEEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570316   (414387) от 30.08.2022
+
+Другое время, другое место / Another Time, Another Place (1958) WEBRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие этой любовной мелодрамы происходит в конце Второй мировой войны. Американская журналистка Сара Скотт работает в Англии в 1945 году. В Лондоне она знакомится с корреспондентом BBC Марком Тревором. Между ними завязывается страстный роман, который продлился три недели. Сара увлечена не на шутку и признается Марку в вечной любви, она надеется на более серьезные (   Читать дальше...   )Производство: Великобритания / Kaydor, LanturnЖанр: драма, мелодрама, военныйРежиссер: Льюис АлленАктеры: Лана Тернер,  Бэрри Салливан,  Глинис Джонс, Шон Коннери,  Теренс Лонгдон,  Сидни Джеймс, Мартин Стефенс,  Дорис Хэа,  Джулиан Сомерс,  Джон Ле МезюрьеПеревод: Многоголосый профессиональный (студия СВ-Дубль)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12654594C8A86603894E3207BB18C87A7B3D937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556636   (414234) от 10.10.2012
+
+Дурная слава / Notorious (1946) [H.264] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 1946 г. американский суд приговаривает Иогана Губермана к двадцати годам тюрьмы как германского шпиона за измену Родине. Его дочь Алисия знакомится на вечеринке с агентом ФБР Дэвлином, который получает задание от руководства раскрыть нацистский заговор в Рио де Жанейро.
+
+Дэвлин решает воспользоваться помощью девушки для выполнения своего задания, и она принимает его предложение. Так начинается их бурный «шпионский» роман.
+
+Они вступают в контакт с нацистским агентом Александром, за которого Алисия должна выйти замуж, чтобы узнать о секретных планах немецкой организации, в которой состоитЖанр: Триллер, Мелодрама, Фильм-НуарРежиссер: Альфред ХичкокАктеры: Кэри Грант, Ингрид Бергман, Клод Рейнс, Луи Кэлхерн, Леопольдин Константин, Райнхольд Шюнцель, Морони Олсен, Иван Тризо, Алекс Минотис, Уолли БраунПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: Русские, английскиеПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC2B56779B54BA05D715BD6BFF608414FEB5F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 698638   (413327) от 01.10.2020
+
+Влияние гамма-лучей на бледно-желтые ноготки / The Effect of Gamma Rays on Man-in-the-Moon Marigolds (1972) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Четыре женщины — вдова с двумя дочерьми и взятой на попечение больной старухой — вынуждены жить в одном доме. Еле сводя концы с концами, мать не замечает, что старшая дочь сходит с ума, а младшая — на пути к безумию. «Золотая пальмовая ветвь» в Каннах — за роль матери в исполнении Джоанн Вудворд. По одноименной пьесе Пола Зиндела, получившего за нее Пулитцеровскую (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: ДрамаРежиссер: Пол НьюменАктеры: Джоэнн Вудворд, Нелл Поттс, Роберта Уоллах, Джудит Лоури, Дэвид Спилберг, Ричард Венчур, Кэролин Коутс, Уилл Хэр, Эстелл Оменс, Джесс ОсунаПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E99210ACFEE6FB62A1E418C725EB311C3DF06B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573236   (412527) от 31.08.2022
 
 Чёрный Орфей / Orfeu Negro (1959) BDRip [H.264] [VO] [4K Restoration] [Potemkine, 2021]
@@ -6,7 +115,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9F1978B42355BCE44A060FB7C4BF9F98FEA4645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165282   (403752) от 26.09.2017
-
-Откройте, полиция! / Les ripoux (1984) BDRip[H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опытный полицейский-пройдоха Рене обучает хитростям мошенничества своего юного напарника-идеалиста Франсуа. Напарник так входит в раж, что затмевает своего насквозь коррумпированного наставника.Производство: Франция / Films 7Жанр: Комедия, КриминалРежиссер: Клод ЗидиАктеры: Филипп Нуаре, Тьерри Лермитт, Режин, Грейс Де Капитани, Клод Броссе, Альбер Симоно, Жюльен Гиомар, Анри Атталь, Абу Бакар, Пьер БатонПеревод: Дублированный, многоголосый закадровый, авторскийСубтитры: РусскиеПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDCACBC462EDD6461A10AAB1C4500936A5F3225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397931   (403485) от 09.10.2011
-
-Семь невест для семи братьев / Seven Brides For Seven Brothers (1954) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь крепких парней живут среди высоких деревьев дремучего леса Орегоны. Их быт и нравы просты, а о приличных манерах и как себя нужно вести в обществе они вообще не слышали. Однажды старший из братьев — Адам приводит в их «холостяцкую берлогу» свою очаровательную невесту.
-Милли — воспитанной городской девушке с крепкими нервами и железным характером суждено укротить (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, Драма, Мелодрама, Комедия, ВестернРежиссер: Стенли ДоненАктеры: Ховард Кил, Джейн Пауэлл, Джефф Ричардс, Расс Тэмблин, Томми Ралл, Марк Платт, Мэтт Мэттокс, Жак д’Амбуаз, Джули Ньюмар, Нэнси Килгас, Бетти Карр, Вирджиния Гибсон, Рута Ли, Норма Доджетт, Йен ВульфПеревод: Дублированный (СССР)Продолжительность: 01:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B299CED812F5936C24D69792897F76B10EB7D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166071   (402984) от 27.09.2017
-
-Частный детектив / L'alpagueur (1976) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частному детективу Роже Пиляру предстоит найти и разоблачить серийного убийцу по кличке «Ястреб», который использует молодых людей для ограбления банков и ювелирных магазинов, не оставляет никаких следов и убирает сообщников. Но один из них чудом остался жив…Производство: Франция / Cerito FilmsЖанр: Боевик, Триллер, КриминалРежиссер: Филипп ЛаброАктеры: Жан-Поль Бельмондо, Бруно Кремер, Жан Негрони, Патрик Фьерри, Жан-Пьер Жорри, Виктор Гарривье, Клод Броссе, Марсель Имхофф, Морис Озель, Мюриэль БельмондоПеревод: Многоголосый закадровый (НТВ)Субтитры: ОтсутствуютПродолжительность: 01:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BF2DF753DA2D4B38D1E2742A2073F950E18E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397466   (402772) от 10.10.2011
-
-Битва за Алжир / La battaglia di Algeri (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402772.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре фильма — события алжирской борьбы за независимость в промежутке между 1954 и 1960 гг., пропущенные через воспоминания находящегося под арестом главного героя.Производство: 1. 	Casbah Film, 2. Igor FilmЖанр: Драма, Военный, ИсторическийРежиссер: Джилло ПонтекорвоАктеры: Брахим Хаджади, Жан Мартен, Язев Саади, Самиа Керьаш, Уго Палетти, Фусия Эль Кадер, Омар, Мохамед Бен Кассен, Мишель Керьаш, Франко МоричиПеревод: Одноголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 02:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F51602468089E8C50CE977C384865F9914DCC26
 ```
 
 https://mybot314.ru/tekegram_catalog/

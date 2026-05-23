@@ -1,110 +1,3 @@
-###  Публикация: 1317798   (498616) от 03.08.2019
-
-Бетти Рен Райт | Призрак на чердаке (2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятилетняя Кристина вынуждена некоторое время пожить с занудным дядей Ральфом, пока её родители не вернутся из дальней экспедиции. Старинный особняк, стоящий глубоко в лесу, уютен, как могила. «Скверное место», – сказали бы вы. Здесь творится что-то неладное! Ночь напролёт хлопают двери, леденящие кровь шорохи не дают спать, а на сыром тёмном чердаке что-то жуткое (   Читать дальше...   )Жанр: Детская литература,Зарубежная литература для детей, Приключения для детей и подростковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D58D4FBF410856A06828725CE5DFD100346C13B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935598   (498510) от 09.09.2015
-
-С. Дмитриев | В джунглях Индии (1929) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498510.jpg" />
-</div>
-
-
-###  Подробнее
-
-...Было за полдень. Солнце немилосердно палило. Я сидел верхом на заборе и болтал босыми ногами. Мне было тоскливо сидеть без дела, и я начал выдергивать соломинки из крыши нашего дома и бросать их на морды коров и коз, которые стояли под навесом.
-Мать была занята хозяйством, а отец работал в поле. Я же, самый младший в семье, был предоставлен самому себе и пользовался (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E440E33CD730600087FBD2328C31F458710EE657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935594   (498419) от 09.09.2015
-
-Ярослав Фоглар | Тайна головоломки (1941) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498419.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайна головоломки» — первая часть трилогии, описывающей приключения пяти мальчиков, членов клуба «Быстрые стрелы».
-Впервые этот роман был опубликован в детском журнале «Глашатай». Он выходил частями, в качестве приложения к журналу с 1940 по 1941 год. Когда после выхода всех частей стало ясно, что роман имеет огромный успех у читателей, Ярослав Фоглар решился на (   Читать дальше...   )Жанр: Детская прозаПеревод: Максим Копачевский, Наталья СтепановаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E712D551D7BD7D3D2FD02524B64BA3B79B4E6594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564806   (497654) от 21.07.2022
-
-Лев Толстой (сост.) | Липунюшка (1966) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497654.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге юные читатели познакомятся со сказками, загадками и пословицами отобранными и обработанными Львом Николаевичем Толстым.
-Для детей младшего школьного возраста. Иллюстрации И.Кузнецова.Жанр: Сказки, Загадки, ПословицыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73404BA6331E9498554F8EECAD99B87CEADDFB1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565229   (496745) от 22.07.2022
 
 Борис Заходер | Кит и кот (1982) [PDF]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -252,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -332,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -359,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -387,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -414,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -520,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -549,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -630,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -656,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -683,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -695,6 +588,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DD6586553E08DE209E388EA8C769A540CC6F98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 821135   (490574) от 13.09.2014
+
+Р. Рохт | Рассказы о животных (1984) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В сборник известного эстонского детского писателя вошли три истории животных.
+"Барсук Ураск" - рассказ о молодом барсуке, которому пришлось покинуть обжитую нору и искать новое жилье.
+Вторая история знакомит читателей с прожорливой выдрой Удрас безжалостно уничтожающей обитателей большого озера. На помощь им приходит сын рыбака.
+Завершает книгу история (   Читать дальше...   )Жанр: Детская прозаПеревод: X. КургФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE2890D2375E34C146DFA11C0237BCF8D15B96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055009   (490410) от 21.09.2016
+
+Семён Самсонов | Повести и рассказы (1956) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44E132FE36E0C26A3D122ECD571735410FA4655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937287   (490274) от 14.09.2015
+
+Екатерина Болдинова | По-настоящему (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Марины похожа на остросюжетный роман. Её родители – следователи, и за семьёй идёт постоянная охота. Брат, пережив утрату любимой девушки, уехал в Чечню, а лучшие подруги то и дело попадают во всякие переплёты. А ещё впереди выпускные экзамены, и Марина никак не может решить, куда поступать. И главное – она влюблена. По-настоящему…
+Для читателей старше 16 лет.Жанр: Детская проза, Подростковая литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0560DB004A70A2E6B999333D78834A21EE7E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937303   (490272) от 14.09.2015
+
+Светлана Сорока | Отъявленный хулиган (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если учительница математики тебя терпеть не может, считая хулиганом и двоечником, а любимый отец неожиданно уходит из семьи? Как жить дальше? Куда идти?
+Главный герой повести пятиклассник Ванька Шишкин идёт на улицу и знакомится со своим сверстником Димкой Клычковым. Обиженные на всех взрослых в мире, мальчишки придумывают себе приключения, порою очень (   Читать дальше...   )Жанр: Детская проза, Детские приключения, Подростковая литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F70E46F006AF0E09ED9B3C677A1552D91E5EE41
 ```
 
 https://mybot314.ru/tekegram_catalog/

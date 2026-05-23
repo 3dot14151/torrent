@@ -1,3 +1,166 @@
+###  Публикация: 942916   (439923) от 07.10.2015
+
+Антон Чехов - Дядя Ваня (2010) SATRip (Театр им. Е. Вахтангова)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая пьеса А.П. Чехова в неожиданной постановке художественного руководителя театра им. Вахтангова Римаса Туминаса. Столь хорошо знакомых персонажей здесь узнать не так-то просто, и даже известные чеховские слова, которые, кажется, знаешь чуть ли не наизусть, звучат совершенно непривычно.Производство: Россия, Канал "Культура", Театр им. Е. ВахтанговаЖанр: Телеспектакль, социальная драма, экранизацияРежиссер: Римас ТуминасАктеры: Сергей Маковецкий, Владимир Симонов, Анна Дубровская, Владимир Вдовиченков, Евгения Крегжде, Людмила МаксаковаПродолжительность: 02:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC9B27155F08F87E91A558D1F21EADCBBC7EE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943866   (439728) от 07.10.2015
+
+25/17 - Русский подорожник (Сборник видеоклипов) (2014) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Участники: Андрей Позднухов (Бледный) и Антон Завьялов (Ант).
+Группа 25/17 была создана Андреем Бледным в 2002 году в Москве и до 2009 года была известна как «Иезекииль 25:17» (библейский стих из книги ветхозаветного пророка Иезекииля, цитируемый персонажем Самуэля Л. Джексона в фильме «Криминальное чтиво»). В 2007 году концертным диджеем группы стал DJ Navvy. С (   Читать дальше...   )01. Подорожник п.у. Дмитрий Ревякин
+02. Под цыганским солнцем
+03. Чернотроп
+04. Поезд(   Читать дальше...   )Жанр: Rap, Rap-Rock, Rock, Punk-rockРежиссер: 25/17Актеры: Андрей Позднухов (Бледный), Антон Завьялов (Ант)Перевод: Не требуетсяПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7332920D070855053C6FCC60C35A0F54A2C28285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554063   (438642) от 30.09.2012
+
+Плутни Скапена (1979) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: КомедияРежиссер: Евгений Весник, Алина КазьминаАктеры: Валерий Носик, Георгий Оболенский, Сергей Еремеев, Владимир Дубровский, Александр Овчинников, Виктория Лепко, Мария Стерникова, Роман Филиппов, Анна Жарова, Андрей Манке, С. Сбитнев, Лев Лоскутов, О. Дидов, М. ИвановПродолжительность: 1:35:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553824   (438490) от 30.09.2012
+
+Tito & Tarantula - Live in Rockpalast (2008) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выступление уникальной группы, какой-то особый вкус латинос, а как играют самозабвенно, от души и сердца! На этом видео, живой концерт в концертном зале Rockpalast ... и очень всем наверно заполнился по фильму "От рассвета до Заката"01. In my car
+02. The end of elerything
+03. Motorcycle cirl
+04. Strange fage of love(   Читать дальше...   )Жанр: Концерт, Rock, Garage RockПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394122F728F12655728FB0B6BFB7A628243B50D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554000   (438399) от 30.09.2012
+
+Гари Глиттер / Gary Glitter- Video Collections 1972- 86 (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На данном диске собраны 22 уникальных оригинальных видеоЖанр: Музыка,  Glam rockПродолжительность: 00:33:04 + 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D40B5C5A58E8EDE13E140379A10B346F7E8EF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410181   (438343) от 20.09.2020
+
+Квартирник НТВ у Маргулиса. Группа Куртки Кобейна (19.09.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Куртки Кобейна» — музыкальный продюсерский проект Шуры из «Би-2», который был создан два года назад. Коллектив не придерживается каких-то строгих жанровых рамок, так как все участники — представители разных музыкальных направлений. В прошлом году группа выпустила дебютный альбом, в записи которого приняли участие известные исполнители, например, Леонид Агутин, группы (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73004D1BA18B9BEF4546F77457B0729DA2B5333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554069   (438150) от 30.09.2012
 
 Blackmore's Night - A Knight In York (2012) [1080p] Blu Ray
@@ -6,7 +169,7 @@ Blackmore's Night - A Knight In York (2012) [1080p] Blu Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -41,7 +204,7 @@ Black Sabbath - Live in O2 Academy Birmingham (2012) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +233,7 @@ Mr Saik - Lights Out (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -96,7 +259,7 @@ Cabin Crew - Star To Fall (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -149,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -176,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -202,7 +365,7 @@ Eric Clapton - Crossroads Guitar Festival (2004) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -231,7 +394,7 @@ Basshunter - Dream on the Dancefloor (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -257,7 +420,7 @@ Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -283,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -309,7 +472,7 @@ David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -335,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -361,7 +524,7 @@ Santana - Hymns for Peace, Live at Montreux (2004) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +559,7 @@ Smokie  Greatest Hits 1975-1979 (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +620,7 @@ Nazareth - Video Collection(1972-2007) (2012) DVDRip.TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +656,7 @@ W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +717,7 @@ Cinnamon Chasers (2012) [1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,173 +728,6 @@ Cinnamon Chasers (2012) [1080p] HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F75757E3218E6ACEECF271D1C665150BFD1E683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249616   (430966) от 25.09.2018
-
-Axel Rudi Pell live - Rockpalast (2018) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся 19.05.2018 во время фестиваля Rock Hard в Гельзенкирхене.01. The Wild And The Young
-02. Wildest Dreams
-03. Only The Strong Will Survive
-04. Mystica(   Читать дальше...   )Телекомпания: WDRЖанр: Heavy MetalПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9582B38D953291AA5897367BF77557F04F971D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946086   (429167) от 12.10.2015
-
-Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eminem представляет новый видеоклип под названием «Phenomenal», который является саундтреком к фильму «Левша».Жанр: Rap & Hip-HopПродолжительность: 00.07.21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901746427F55731F57413156BA7C50AEADAD081B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 393680   (427866) от 30.09.2011
-
-Дюран Дюран / Duran Duran - Arena  (AN ABSURD NOTION) (1985) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_427866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duran Duran — английская поп-рок-группа, образованная в Бирмингеме в 1978 году. Название коллектив получил по имени главного отрицательного персонажа фильма Барбарелла. Наряду с Depeche Mode ведущая команда коммерческого направления в музыке начала 1980-х, вышедшего из «новой волны» и близкого к электропопу.
-В первой половине 1980х у «Duran Duran» было несколько международных хитов по обе стороны Атлантики, включая «The Reflex» (1-е место в США и Великобритании, 1984) и «A View to Kill» (1-е место в США, 2-е место в Великобритании, тема к фильму про Джеймса Бонда, 1985 г.)
-Фильм-концерт DURAN DURAN (как известно группа названа именем главного злодея фильма БАРБАРЕЛЛА где в главной роли играла ДЖЕЙН ФОНДА ),сюжетная линия фильма плавно пересекается с концертом DURAN DURAN (между песнями маленькие вставки из фильма) . Концерт классный и наверняка понравится поклонникам группы .Жанр: Концертное шоу, New Wave, Pop rock, Synthpop, Alternative rock, New RomanticismРежиссер: Рассел МалкахиАктеры: Саймон Ле Бон , Ник Родес , Энди Тэйлор, Джон Тейлор, Роджер Тейлор, Мило О'Ши...Продолжительность: 02:04:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708642   (427804) от 09.10.2013
-
-Boney M - Live In Concert (1979) VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раритетная съёмка живого концерта легенды стиля disco - квартета Boney M., который состоялся в Вене 1 ноября 1979 года в главном зале австрийской столицы. Там под патронатом Die Erste Bank проходил фестиваль звёзд мировой эстрады, который было доверено завершить звёздному квартету Фрэнка Фариана. Один из двух дошедших до наших дней концертов Boney M. с абсолютно (   Читать дальше...   )01. Let It All Be Music
-02. Rasputin
-03. Never Change Lovers...
-04. Do You Wanna Bump(   Читать дальше...   )Жанр: Концерт, DiscoПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F7C2EEB5E0AD18FB90D261545E2C4309067C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324274   (427406) от 08.09.2019
-
-Квартирник НТВ у Маргулиса. Группа Пицца (07.09.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427406.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса – группа «Пицца», созданная в 2010 году Сергеем Приказчиковым. Первой работой группы стал трек «Пятница», тут же взлетевший на вершины хит-парадов. В 2012 году музыканты выпустили свой дебютный альбом «Кухня», а в 2014 году вышел второй альбом — «На всю планету Земля». В уютной студии «Квартирника» участники группы «Пицца» исполнили свои (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53180654EC8F468B2D5264D354EE81D03B9C661C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946524   (427054) от 13.10.2015
-
-VA - Осенний марафон № 197 / Видеоклипы (Дискотека с Размахом) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (13.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Adam Lambert - Another Lonely Night (Official Video) (00:03:30)
-02. Becky G - Break A Sweat (Official Video) (00:03:32)
-03. Carlos Baute - Perdimos El Control (Official Video) (00:03:34)
-04. Dj Layla ft. Sianna - I Need Love (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, SoulПродолжительность: 01:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE72411455E2166BABBAD5AB0AB6344D6D717279
 ```
 
 https://mybot314.ru/tekegram_catalog/

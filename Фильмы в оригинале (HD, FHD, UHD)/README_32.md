@@ -1,3 +1,82 @@
+###  Публикация: 922521   (569858) от 28.07.2015
+
+Послушай, Филип / Listen Up Philip  (2014) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Филип - молодой, успешный и невыносимо самовлюбленный писатель-мизантроп, ничуть не сомневающийся в своей гениальности. Даже негативная статья из Times - не повод для уныния: он по-прежнему убежден, что готовящаяся к печати книга говорит сама за себя и не нуждается ни в какой PR-кампании, как и сам Филип не нуждается в своей девушке, шумном городе, людях и вообще (   Читать дальше...   )Производство: США, Sailor Bear, Faliro House Productions and Washington Square Films.Жанр: драма, комедияРежиссер: Алекс Росс ПерриАктеры: Джейсон Шварцман, Элизабет Мосс, Кристен Риттер, Жозефин де ла Буме, Джонатан Прайс, Джесс Вейкслер, Дри Хемингуэй, Кит Поулсон, Кейт Лин Шейл, Юсеф Булос, Майте Алина, Дэниэл ЛондонПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547DE73909B1A2DFE71FF29029F57CF38A8B36E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043899   (568516) от 18.08.2016
+
+До встречи с тобой / Me Before You   (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лу Кларк знает, сколько шагов от автобусной остановки до ее дома. Она знает, что ей очень нравится работа в кафе и что, скорее всего, она не любит своего бойфренда Патрика. Но Лу не знает, что вот-вот потеряет свою работу и что в ближайшем будущем ей понадобятся все силы, чтобы преодолеть свалившиеся на нее проблемы.
+Уилл Трейнор знает, что сбивший его мотоциклист (   Читать дальше...   )Производство: США, Великобритания, Metro-Goldwyn-Mayer, New Line CinemaЖанр: драмаРежиссер: Теа ШэррокАктеры: Эмилия Кларк, Сэм Клафлин, Дженна-Луиз Коулмэн, Мэттью Льюис, Чарльз Дэнс, Джоанна Ламли, Джанет МакТир, Ванесса Кирби, Брендан Койл, Александр Купер, ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанский, португальскийПродолжительность: 01:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512E28A318CAE0A3299A469AACE968F0266FB5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555724   (566887) от 05.06.2022
+
+Шпион, который никогда не умирает / The Spy Who Never Dies (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шпион мирового класса влюбляется в необычную женщину и должен решить, как построить отношения с нормальным человеком, в то время как другие вокруг него пытаются разрушить как отношения, так и многое другое.Производство: Австралия / Rhythmic FilmsЖанр: боевик, триллер, мелодрама, комедияРежиссер: Кори ПирсонАктеры: Тересса Лиэн, Кассандра Маграт, Пол О’Брайэн, Эми Кристиан, Georgia Walters, Джаспер Бэйг, Jamie Vergan, Natasha Maymon, Amir Aizenstros, Ana NguyenПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH)Продолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEEA96CB35E19CC6BF659F805DA97E7424CEC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555676   (566884) от 05.06.2022
 
 Перехват / Interceptor (2022) WEB-DL [H.264/1080p] [EN / RU, EN multi Sub]
@@ -6,7 +85,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D33E57780E4E12CEA1F37806C2F9CD3327C3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238100   (548710) от 27.07.2018
-
-Пусть трупы позагорают / Laissez bronzer les cadavres (2017) BDRip [H.264/1080p] [EN / EN, GER, POR Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то на Лазурном берегу в старом замке обосновалась компания грабителей. Удачно похитив 250 кг золота и скрываясь на автомобиле, по пути они подбирают двух женщин и мальчика. Оказывается, что одна из них — жена писателя, живущего в тех же развалинах. А когда к ним всё же заявляется полиция, начинается затяжная перестрелка, живыми из которой выберутся немногие.Производство: Франция, Бельгия / Anonymes Films, Tobina Film, Canal+Жанр: ТриллерРежиссер: Элен Катте, Бруно ФорцаниАктеры: Элина Ловенсон, Стефан Феррара, Берни Бонвуазен, Микеланджело Марчезе, Марк Барбе, Херв Сонь, Пьер Ниссе, Дорилия Калмел ...Перевод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Английские, немецкие, португальскиеПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1252700FACA96974595AD87B8400B9CC412A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047873   (548039) от 31.08.2016
-
-Налетчики / Marauders  (2016) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548039.jpg" />
-</div>
-
-
-###  Подробнее
-
-История об агенте ФБР, который нападает на след преступников, ограбивших банк и отдавших все украденные деньги на благотворительные нужды. Чем дальше продвигается расследование, тем больше главный герой убеждается в том, что у владельца банка имеются собственные секреты.Производство: КанадаЖанр: боевик, триллер, криминалРежиссер: Стивен С. МиллерАктеры: Брюс Уиллис, Кристофер Мелони, Дэйв Батиста, Эдриан Гренье, Лидия Халл, Тайлер Джон Олсон, Кристофер Роб Бауэн, Ричи Чэнс, Крис Хилл, Дэнни А. Абекейзер, Тексас Бэттл, Тара ХолтПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3E6D9125B5F220E5E3F0B51E84CB663BD00022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047870   (547991) от 31.08.2016
-
-Призыв / The Call Up  (2016) BDRip [H.264/1080p] [EN]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа элитных онлайн-игроков получает таинственное приглашение от корпорации Заибатцу, испытать в реальной жизни крутую видеоигру - это мечта, перед которой невозможно устоять. Прибыв на полигон, группа получает высокотехнологичную экипировку и готовится к революционной игре. Но то, что начинается как встреча с мечтой, уникальным и волнующим опытом, быстро превращается (   Читать дальше...   )Производство: ВеликобританияЖанр: фантастика, боевикРежиссер: Чарльз БаркерАктеры: Морфидд Кларк, Кристофер Оби, Макс Дикон, Том Бенедикт Найт, Паркер Сойерс, Малкольм Модель, Али Кук, Адриана Рэндолл, Дино Фаззани, Грег Колпакчи, Борис ЛерПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C892B4BBD58ABC5E7F390F218512BFB454FD39
 ```
 
 https://mybot314.ru/tekegram_catalog/

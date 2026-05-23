@@ -1,3 +1,113 @@
+###  Публикация: 592803   (135057) от 23.12.2012
+
+F.E.A.R. 3 [Ru/En/Multi9] (Steam-Rip/16.0.20.1060) 2011 | R.G. GameWorks
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Способны ли вы посмотреть в глаза ночным кошмарам… и остаться в живых?
+С тех пор как подразделение F.E.A.R. попыталось остановить монстров и супервоинов, вырвавшихся из подземных лабораторий, прошло восемь месяцев. Ужасающие способности Альмы и ее психическое воздействие вдребезги разносят нашу хрупкую реальность. И только ее дети способны пробиться в самое сердце тьмы, чтобы навсегда избавить мир от всепоглощающего страха!
+Бросить вызов тварям Альмы и когортам до зубов вооруженных солдат осмелились Пойнтман, элитный боец отряда F.E.A.R., и его кровный брат-каннибал Пакстон Феттель. Вместе с ними вам предстоит пройти по улицам полуразрушенного города и устроить бесчисленным врагам настоящую бойню, пустив в ход самое современное и разрушительное оружие. Помимо захватывающей одиночной игры, в третьей части легендарного экшена от первого лица предусмотрены как совместное прохождение, так и различные режимы онлайновых боев.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский, Японский, Португальский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C5712E2ADD80F49A6F993AE1E5D0A0FC5C1295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594016   (134338) от 24.12.2012
+
+Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Steam-Rip/1.1.12) 2011 | R.G. Игроманы
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Call of Juarez: Картель» переносит действие знаменитой серии шутеров про Дикий Запад в наши дни, сохраняя при этом атмосферу и динамику интерактивного вестерна.
+
+История начинается с взрыва, устроенного членами наркокартеля в здании Министерства юстиции США. Разорвавшаяся бомба унесла жизни сотен людей, но это только начало. Правительство приходит к выводу, что члены преступной организации, скорее всего, уже проникли в ряды властных структур. Единственный шанс остановить мафию — собрать отряд особого назначения из верных людей. Выбор падает на агента ФБР Ким Эванс, которая провела детство на улицах среди преступников и негодяев, Эдди Гуэрру, работника Управления по борьбе с наркотиками, увлекающегося азартными играми, и Бена Маккола, потомка героя оригинальной игры Рея Маккола.
+
+В процессе расследования игроки пройдут через множество испытаний и совершат путешествие из Лос-Анджелеса в загадочный Хуарес, а по пути побывают в Аризоне и Нью-Мексико. (   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, Английский, Multi4Язык интерфейса: Русский, Английский, Multi7
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB26200383A0A6310139C3C69B824C7BD53FA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680188   (134037) от 29.11.2023
+
+Monstrum (2015) [En] (1.5.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Создатели Monstrum взяли привычный рецепт создания игр в жанре survival horror и сделали что-то совершенно новое, добавив процедурную генерацию уровней, управляемых искусственным интеллектом хищников и отсутствие возможности воскреснуть после смерти, чтобы на заброшенном грузовом судне игроки ни на секунду не почувствовали себя в безопасности.Тип издания: RepackРазработчик: Team JunkfishЖанр: Action (Survival horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C90F9333F06DF98F9085AB43829E04B541D4891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680795   (133607) от 30.11.2023
+
+THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+THE MULLER-POWELL PRINCIPLE погружает в межпространственную одиссею в научно-фантастическом приключении, в котором игроки окажутся на месте Гарри Германа, ничего не подозревающего сотрудника Delta Laboratories, оказавшегося в хаосе неудачного эксперимента. Повествование разворачивается в различных параллельных мирах, сплетая интриги и открытия, которые вращаются (   Читать дальше...   )Тип издания: SceneРазработчик: Three Dots GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952047232357F26E54A0B04F4623742250A082D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680541   (133585) от 30.11.2023
 
 Forgive Me Father (2022) [Ru/Multi] (1.4.4.60) Repack Other s
@@ -6,7 +116,7 @@ Forgive Me Father (2022) [Ru/Multi] (1.4.4.60) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +142,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +168,7 @@ Half-Life (1998) [Ru/En] (12833965) Repack dixen18 [25th Anniversary Update]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +194,7 @@ Dead Island. Game of The Year Edition [Ru/En/Multi8] (Steam-Rip/1.3.0) 2012 | R.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +226,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +252,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +278,7 @@ Singularity [Ru/En] (L/1.1) 2009
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +306,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -228,7 +338,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -258,7 +368,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -284,7 +394,7 @@ Global Operations [Ru] (RePack) 2002 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -311,7 +421,7 @@ Clive Barker's Undying (2001) [En] (1.1hf) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -337,7 +447,7 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -363,7 +473,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -389,7 +499,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -415,7 +525,7 @@ S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +551,7 @@ Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -467,7 +577,7 @@ GoreBox (2023) [En] (14.9.3) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -493,7 +603,7 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -519,7 +629,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack Other s [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -545,7 +655,7 @@ Heretic + Heretic 2 (1994, 1998) [Ru/En] (1.0) Repack/Rip Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -571,7 +681,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,110 +692,6 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91B61142965B9931E2F9216206BF39CC8F6A9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700601   (117125) от 17.02.2024
-
-Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terminator: Resistance – шутер от первого лица, являющийся приквелом для первой и второй части фильмов. Вы возьмете управление над рядовым Джейкобом Риверсом, бойцом из сопротивления группы Джона Коннора. Сражайтесь вместе со своей группировкой против Скайнет и их военных роботизированных разработок.Тип издания: RepackРазработчик: TeyonЖанр: Экшны, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FA55BE7774647DD8BECD23DA98AC49118AC122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700492   (117097) от 17.02.2024
-
-Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симулятор выживания, которого долго ждали любители реального истощения героя в условиях диких джунглей! Главный герой побывает в темных лесах Амазонки с одной только рацией из предметов «своего времени», а в помощь ему пойдут руки и голова, которые со временем начнут предавать. Green Hell - выживание, истощение, психически подорванное здоровье главного героя. За (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3287C531DC2F441C190DB9EC1A5C098E4E974C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701121   (116819) от 19.02.2024
-
-Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serious Sam: Siberian Mayhem – это возможность погрузиться в долгое и опасное путешествие по российским пустошам, где получится сразиться против сил Ментала. Игра является дополняющей частью к оригинальной серии, в которой получится взять под управление "Крутого" Сэма Стоуна. Придется столкнуться с полчищами тварей, что выползают на поверхность планеты (   Читать дальше...   )Тип издания: RepackРазработчик: Croteam, Timelock StudioЖанр: Action (Shooter), Add-On, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FFBEB1B3240C177373AF1F9FD24726A36C8A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700927   (116793) от 19.02.2024
-
-Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skibidi Toilets: Invasion бросает вас в вихрь хаоса киборгов-туалетов. Сыграйте за секретного агента, вооруженного арсеналом оружия, которому поручено подавить восстание унитазов. Обнажите свою ярость в семи разнообразных локациях, от пустынных городских пейзажей до леденящих душу кладбищ, каждая из которых ставит перед вами уникальные стратегические задачи. Добро (   Читать дальше...   )Тип издания: RepackРазработчик: Quad LabsЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A84FD510B05A808828FA25FF29475042077DEFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 345655   (649406) от 03.06.2011
+
+Человек с бьюиком / L'homme a la Buick (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Богач и добряк мсье Арман Фавро приезжает в маленький городок Анфлер. Что он собирается делать здесь? Жить, ведь он купил одну из лучших вилл на побережье.
+Все складывается прекрасно: в первые же минуты после приезда он встречает прелестную вдову мадам де Лейрак и влюбляется. Но чем сильнее любовь, тем больше расходы.
+И мсье Фавро отправляется в Париж к друзьям. (   Читать дальше...   )Производство: Франция / Gafer, Les Films CopernicЖанр: КомедияРежиссер: Жиль ГранжьеАктеры: Фернандель, Даниель Дарьё, Жан-Пьер Марьель, Амаранд, Кристиан Барбье, Бернар Деран, Эдмон Ардиссон, Рауль Кюре, Жан Дэниэл, Альбер ДинанПеревод: Профессиональный двухголосыйСубтитры: нетПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC59831240F4EAF5F0545AC8CEE57B68D89CEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215723   (649235) от 05.07.2010
+
+Таксист  / Taxi Driver  ( 1976) [H.264] HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тусклый свет слепых фонарей, скелеты фабричных труб, задыхающихся в собственном дыму. Вавилонские башни небоскребов, все это - ад Нового времени, Нью-Йорк.
+Ветеран вьетнамской войны Трэйвис Бикл ведет свое одинокое такси по ночным улицам бесконечного города, и перед ним разворачивается мрачная панорама человеческих грехов. Как ветхозаветный пророк, он надеется, что (   Читать дальше...   )Жанр: триллер, драма, криминалРежиссер: Мартин Скорсезе / Martin ScorseseВ ролях: Роберт Де Ниро (Travis Bickle,), Сибилл Шеперд (Betsy,), Питер Бойл (Wizard), Джоди Фостер (Iris Steensma), Харви Кейтель ('Sport' Matthew), Леонард Харрис (Sen. Charles Palantine), Альберт Брукс (Tom), Дайэнн Эбботт (Concession girl), Фрэнк Эду (Angry black man), Джино Ардито (Policeman at rally), Виктор Арго (Melio), Гарт Эйвери (Iris' friend)Перевод: Оригинальный, Профессиональный (многоголосый, закадровый), Авторский (Либергал Григорий), Авторский (Михалев Алексей)Формат: MatroskaПродолжительность: 01:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF5DE077A5534CAB008A144E5389B7C85C177D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902796   (649152) от 06.06.2015
+
+Принц, который был вором / The Prince Who Was a Thief (1951) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В XIII веке регент Танжера Мустафа посылает вора Юсефа убить малолетнего наследника принца Хусейна, чтобы занять его место на престоле. Юсеф, слишком добр, чтобы убить мальчика, он вырастил его, выдавая за своего сына Джалну. Он должен был стать принцем, и станет принцем - принцем воров, чтобы через много лет отомстить тому, кто приказал его убить.Производство: США / Universal International Pictures (UI or U-I)Жанр: ПриключенияРежиссер: Рудольф МатеАктеры: Тони Кертис, Пайпер Лори, Эверет Слоун, Джефф Кори, Бетти Гард, Марвин Миллер, Пегги Кастл, Дональд Рэндольф, Нита БиберПеревод: Одноголосый закадровый, KibborgЯзык субтитров: РусскийПродолжительность: 01:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A610CFBD82307636D960EEE51E28CAEE6936E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215454   (649138) от 05.07.2010
+
+Невезучий папарацци / Ecco noi per esempio (1977) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клик - бульварный фотограф, за которым гоняются то бандиты, попавшие в объектив на месте преступления, то разъяренные женщины, также оказавшееся в поле зрения журналиста. Однажды во время столкновения с полицией Клик познакомился с начинающим писателем Гуанзироле Пальмамброджо, и два новоиспеченных приятеля пускаются в приключения...
+Кто такие ПАПАРАЦЦИ, и какими (   Читать дальше...   )Жанр: КомедияРежиссер: Серджио Корбуччи / Sergio CorbuccАктеры: Адриано Челентано / Adriano Celentano, Ренато Поццетто / Renato Pozzetto, Феличе Андреази / Felice Andreasi, Барбара Бах / Barbara Bach, Джулиана Каландра / Giuliana Calandra, Антонио Касагранде / Antonio CasagrandeПеревод: Одноголосый закадровый. Николай ЖивагоПродолжительность: 01:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8C266F9602CB9EB83312F54FCEA13C6093143C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516600   (649122) от 30.06.2012
 
 История любви и ножей / Er piu: storia d'amore e di coltello (1971) DVDRip
@@ -6,7 +114,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_645677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,113 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:013015D9A4DB10F619D38A76568DBF2ED1DCAC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139798   (642565) от 14.06.2017
-
-Чай и симпатия / Tea and Sympathy (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том Ли — нежный и чувствительный 17-летний мальчик. Его мать давно оставила семью, а суровый отец хочет, что бы сын «был больше похож на мужчину». В закрытой школе для мальчиков Том, любящий театр, поэзию, музыку и не проявляющий интереса к бейсболу и девушкам, подвергается насмешкам и преследованиям со стороны одноклассников. Жена школьного учителя, Лаура, несчастлива (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: ДрамаРежиссер: Винсент МиннеллиАктеры: Дебора Керр, Джон Керр, Лейф Эриксон, Эдвард Эндрюс, Дэррил Хикман, Норма Крэйн, Дин Джонс, Жаклин деВит, Том Лофлин, Ральф ВотрианПеревод: Двуголосый закадровый ("СВ-Дубль" по заказу ГТРК "Культура")Субтитры: АнглийскиеПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6032A05E2A13810DE5C97D73F82AE34F75B14BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 217103   (642079) от 09.07.2010
-
-Жизнь вдвоем / La vie à deux (1958) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель Пьер Каро издал книгу «Жизнь вдвоём», повествующую о реальных отношениях четырёх пар. Книга имела огромный успех и принесла автору не только известность, но и большое состояние. По прошествии многих лет писатель составляет завещание, согласно которому всё его состояние унаследует та пара, которая сумела сохранить свою любовь. В случае, если ни одной паре это не удалось, деньги получат его коллеги, трудившиеся над изданием книги;Жанр: комедияРежиссер: Клемен Дюур / Clément DuhourВ ролях: Пьер Брассёр / Pierre Brasseur, Даниэль Дарье / Danielle Darrieux, Софи Демаре / Sophie Desmarets, Едвига Фёйер / Edwige Feuillere, Жан Ришар / Jean Richard, Жан Маре / Jean Marais,Перевод: Оригинальный, Авторский (Янкилевич)Формат: Matroska
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61FD05AB74D3BCBC21DC74669D259FFFDB4365A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679443   (642036) от 17.07.2013
-
-Сокровище ацтеков / Der Schatz der Azteken / Treasure of the Aztecs (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642036.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Карла Мая "Замок Родригандов".
-Немецкий ученый Карл Стернау по поручению президента Авраама Линкольна едет в Мексику, чтобы поддержать Бенито Хуареса в борьбе против французских оккупантов. Он оказывается вовлечен в поиски легендарных сокровищ ацтеков, за которыми охотятся банда головорезов капитана Вердохи и хитроумный граф де Родриганда.Производство: Германия (ФРГ), Италия, Франция / Авала-фильм , CCC Filmkunst GmbH, Franco London Films, SerenaЖанр: Приключения, ВестернРежиссер: Роберт СьодмакАктеры: Лекс Баркер, Жерар Баррэ, Рик Батталья, Мишель Жирардон, Алессандра Панаро, Тереза Лорка, Фаусто Тоцци, Ганс Нилсен, Густаво Рохо, Кело Хендерсон, Жан-Роже Коссимон, Фридрих фон Ледебур и др..Перевод: Многоголосый закадровыйПродолжительность: 01:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9CFCC83E12594C541566FF61A0E825A52167A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679472   (642030) от 17.07.2013
-
-Пирамида сынов Солнца / Die Pyramide des Sonnengottes / Pyramid of the Sun God (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642030.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Карла Мая "Замок Родригандов".
-В 1864 году в Мексике вопреки воле народа к власти пришел ставленник Наполеона III эрцгерцог Максимилиан Австрийский. Зреет революционное движение. Лидеру повстанцев Бенито Хуаресу через немецкого врача передает послание президент США Линкольн.
-Карл Стернау и его компаньоны отправляются на поиски древних сокровищ (   Читать дальше...   )Производство: Германия (ФРГ), Франция, Италия / Central Cinema Company Film (CCC), Avala Film, Franco London FilmsЖанр: Приключения, ВестернРежиссер: Роберт СьодмакАктеры: Лекс Баркер, Мишель Жирардон, Жерар Баррэ, Ганс Нилсен, Рик Батталья, Густаво Рохо, Тереза Лорка, Ральф Вольтер, Кело Хендерсон, Алессандра ПанароПеревод: Многоголосый закадровыйПродолжительность: 01:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C2267A22ED51D66B3321FCE96B4AF9602EFD7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

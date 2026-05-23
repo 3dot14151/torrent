@@ -1,3 +1,55 @@
+###  Публикация: 1734124   (51323) от 02.07.2024
+
+Объясняя необъяснимое / Files of the Unexplained (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Red Head Sound
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал из восьми эпизодов исследует загадочные происшествия, с которыми сталкивались обычные люди. Среди них — встречи с пришельцами, появление призраков и таинственные исчезновения. Один из эпизодов посвящён случаю обнаружения отрубленных ступней на берегу моря Салиш.Производство: США / NetflixЖанр: документальный, криминал, детективУчастники: Тихуана Рикс, Майкл Слэйд, Паркер Маккриди, Шарлотта Стефенс, Марк Стефенс, Сильви Борежар, Джон Кирк, Гэйл Андерсон, Брэд Уолватн, Деррел В. СимсПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, английские (SDH)Продолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157655428D171C1A6E89CB15A49913399CAB4820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200876   (50624) от 09.07.2024
+
+Animal Planet & BBC: Сурикаты / The Meerkats (2008) BDRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+На земле, обладающей волшебной красотой, где правила диктуют сильнейшие, маленькие создания построили свои дома. Для одного из молодых сурикатов приключения только начинаются. Он научится защищаться и поймет, что великая сила заключена в сплоченности и взаимовыручке.Жанр: ДокументальныйУчастники: Пол Ньюман, Руфус БекПеревод: Одноголосый профессиональныйСубтитры: РусскиеПродолжительность: 1:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF06527D9AA60A49F86D91F5BB951CC42477DF5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735622   (50558) от 09.07.2024
 
 Невероятный мир динозавров / Amazing Dinoworld (2019) WEBRip [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-2 из 2) Невафильм
@@ -6,7 +58,7 @@
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NG: Пираты: Больше, чем легенда / Pirates: Behind the Lege
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NG: Покорители океана / OceanXplorers (2024) WEB-DL [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Discovery: 11 сентября: когда башни упали / 9/11: After T
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2024) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ NG: Конкистадоры: Взлет и падение / Conquistadors: The 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ History Channel: Филадельфийский эксперимент / Vanishi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28123A1D0920388EE7101AEC912FE90D123DC505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148931   (33724) от 19.12.2024
-
-BBC: В какой Вселенной мы находимся? / Which Universe Are We In? (2014) HDTV [H.264/1080i-LQ] (Сезон 51, эпизод 17)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть одна гипотеза, некогда считавшаяся настолько радикальной, что одно её упоминание считалось как полное безумие... Но сегодня есть ученые, считающие, что она и в самом деле верна. Они говорят, что наша Вселенная не единична, а является одним из множества странных и прекрасных миров. В каких-то жизнь нам вполне знакома, а в других - всё пошло немного иначе. Некоторые (   Читать дальше...   )Производство: Великобритания, США, BBC, Science ChannelЖанр: Документальный, научно-популярныйРежиссер: Наоми ОстинУчастники: Энтони Агирре, Сет Ллойд, Лаура Мерсиня-HoughtonПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4390A4CD227EB0EC77175BFB6A878CCE044D003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770824   (32061) от 04.01.2025
-
-BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p] (сезон 1, серии 1-5 из 5) RuDub
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к профессору Брайану Коксу в путешествии к разным мирам нашей Солнечной системы, где он исследует планеты и луны, извергающиеся огнем и льдом, причем извержения настолько сильны, что достигают далекого космоса. Вулканическая и тектоническая активность на Земле имела решающее значение для эволюции и выживания жизни на нашей планете, поэтому понимание (   Читать дальше...   )Производство: Великобритания / BBC Studios Science UnitЖанр: документальный, космосРежиссер: Ben Wilson, Fleur Bone, Лаура Малхолланд, Нат ШарманУчастники: Lynnae Quick, Queenie Chan, Leighan Falley, Naomi Rowe-Gurney, Shannon Mackenzie, Jorge Nunez, Abigail Fraeman, James O'Donoghue, Michael WongПеревод: двухголосый (RuDub)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12262B84E953C1E21BCAE2E4C6CA5B7B0E714F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

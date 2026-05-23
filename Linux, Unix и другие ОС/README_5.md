@@ -1,3 +1,82 @@
+###  Публикация: 988420   (920280) от 20.02.2016
+
+Lubuntu 14.04.4 Trusty Tahr (Легкий дистрибутив) [i386, amd64] 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE. Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. Lubuntu работает очень быстро, она безопасна, красива, функциональна. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA56FA40CD474C95DF81C12AD08EDF52650476C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988417   (920226) от 20.02.2016
+
+Xubuntu 14.04.4 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Xubuntu — дистрибутив Linux, основанный на проекте Ubuntu. Использует «лёгкую» графическую среду Xfce и приложения на GTK. Цель проекта — возможность использования легковесной альтернативы рабочим средам GNOME и KDE. Xubuntu имеет минималистичный интерфейс пользователя, экономно использующий память и другие аппаратные ресурсы компьютера, что позволяет комфортно работать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306049D0D4935D2D82662C0E5960C84357A48C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366655   (920070) от 13.03.2020
+
+Ctlos Linux Openbox 1.2.0 [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ctlos Linux — базируется на Arch Linux, iso образ собран с помощью archiso скриптов, полностью совместим с Arch Linux, в работе используются оригинальные репозитории, в том числе и Aur.
+Включана поддержка Aur репозитория: пакетный менеджер yay, это говорит о том, что проблем с поиском ПО быть не должно.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9D45FFFC78D6DC32E7AFC78CA2A0519CBEBB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490373   (918633) от 20.08.2021
 
 EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
@@ -6,7 +85,7 @@ EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Edubuntu 12.04.4 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +165,7 @@ Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_914721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +194,7 @@ Tor Browser 2.3.25-5 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +220,7 @@ Zentyal 3.0.2 [Сервер для дома и малого бизнеса] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +248,7 @@ Linux Mint Debian Edition (MATE/Cinnamon) 201303 [x32 + x64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -199,7 +278,7 @@ Ubuntu*Pack Unity 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -226,7 +305,7 @@ Ubuntu*Pack Cinnamon 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -253,7 +332,7 @@ Sabayon 16.03 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -279,7 +358,7 @@ Window Maker Live 0.95.7-3 (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -305,7 +384,7 @@ Parrot Security OS 4.8 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -331,7 +410,7 @@ BlackArch Linux 2017.01.28 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +436,7 @@ Kubuntu 14.04 Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +462,7 @@ Lubuntu 14.04 Beta I (легкий дистрибутив) [i386, amd64] 4xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +490,7 @@ Ubuntu Gnome 14.04 Trusty Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -439,7 +518,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [x8
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -467,7 +546,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -495,7 +574,7 @@ Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -523,7 +602,7 @@ Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -551,7 +630,7 @@ Parted Magic 2016-03-02 [x86, x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +657,7 @@ Ubuntu 20.04.3 Focal Fossa LTS [amd64] 2xDVD
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -604,7 +683,7 @@ Tor Browser 2.3.25-6 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,90 +694,6 @@ Tor Browser for Linux - удобная и простая модификация 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641565   (880799) от 10.04.2013
-
-OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики OS4 (ранее проект носил название PC/OS) выпустили очередной новый релиз своего дистрибутива. OS4 представляет собой дружественный к пользователю настольный и серверный дистрибутив на базе Xubuntu, его основными особенностями являются поддержка многих популярных плагинов для браузеров, дополнительное ПО для работы с мультимедиа, создания контента и разработки, а также инновационная компоновка рабочего стола.
-
-Релиз OS4 Workstation 13.4 доступен для архитектур 32- и 64-бит, среди его компонентов – ядро 3.2.0,  Firefox 20.0; Thunderbird 17.0.4; Google Maps сменивший Nokia Maps, а также многое другое. Существенные изменения были внесены в более чем 200 пакетов. Ранее в дистрибутив были включены новые системные темы на базе Radiance и Ambiance, новые границы окон, интегрированное главное меню.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764664   (879650) от 09.03.2014
-
-Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновился Slackel Live – использующий последнюю стабильную версию рабочей среды KDE - 4.10.5,  GNU/Linux на базе current-ветки Slackware. Поддерживается установка на жесткий диск, клонирование.
-
-Редакция Slackel использует ядро Linux 3.10.30 и KDE 4.10.5 доступна в виде комплекта из 2-х ISO-образов: 32-bit и 64-bit образов, которые могут быть установлены с DVD или с USB-носителя. В составе дистрибутива Firefox 24.3.0esr, KMail, KTorrent, Akregator, Kopete, OpenJRE 7u51, Pidgin, gFTP, GParted, wicd, slapt-get и Gslapt, sourcery. В разделе мультимедиа - Bangarang 2.1, Clementine 1.2.1, K3b 2.0.2, Calligra Words, Calligra Stage, Calligra Tables
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C6EA4A3381248625EADFFBA8121C9B130FB0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764671   (879367) от 09.03.2014
-
-Tails 0.23 RC1 [анонимный доступ в сети] [i386] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый релиз-кандидат следующего обновления 0.23 дистрибутива Tails предназначенного для обеспечения максимально возможной анонимности при работе в сети Интернет. Дистрибутив основан на стабильной ветке Debian.
-
-Tails 0.23 RC1 закрывает очередные выявленные уязвимости в системах безопасности. Внесены другие обновления, с которыми можно ознакомиться на сайте проекта.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDB516953B06DDED0A535F859CD7D2D685CE9C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

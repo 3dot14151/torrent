@@ -1,3 +1,110 @@
+###  Публикация: 1668193   (173630) от 12.10.2023
+
+Пижамная игра / The Pajama Game (1957) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам одноимённого мюзикла 1954 года, снятого по роману Ричарда Пайка Бисселла " 7½ цента " 1953 года. На фабрику по пошиву пижам приходит новый управляющий. Здесь он знакомится с представительницей комитета по жалобам, и у них возникает роман. А в это время местный профсоюз начинает активную борьбу за надбавку к зарплате. И пара оказывается (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: мюзикл, мелодрама, комедияРежиссер: Джордж Эбботт, Стэнли ДоненАктеры: Дорис Дэй, Джон Райт, Кэрол Хейни, Эдди Фой мл., Рита Шоу, Барбара Николс, Тельма Пелиш, Джек Строу, Ральф Данн, Оуэн Мартин, Джеки Келк, Ральф В. Чэмберс, Мэри Стэнтон, Базз Миллер, Харви ЭвансПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (на песни и полные, clydy), английскиеПродолжительность: 01:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71971DECCAAEAECF7CCAE00547D7622B40E4590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669209   (172763) от 16.10.2023
+
+Восстание Кейна / The Caine Mutiny (1954) HDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация по произведению Германа Вука
+На эсминец назначен новый командир - Филип Квиг. Его подчинённые – офицеры Уилли Кит, Том Кифер и Стив Марик – считают необходимым предупредить начальство о неадекватности Квига. Однако у них недостаточно доказательств, и проблема остаётся без внимания.
+
+Когда корабль попадает в шторм, командир отдаёт невнятные приказы, есть (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: драма, военный, экранизацияРежиссер: Эдвард ДмитрикАктеры: Хамфри Богарт, Хосе Феррер, Ван Джонсон, Фред МакМюррэй, Роберт Френсис, Мэй Винн, Том Талли, Э. Г. Маршалл, Артур Франц, Ли МарвинПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D2BC617DA9835DB341FE7DFB3986CAA6EA6457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670673   (171914) от 21.10.2023
+
+Дама с камелиями / Прекрасная Лола / La bella Lola (1962) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма основан на романе Александра Дюма-сына "Дама с камелиями" 1848 года. Действие происходит в XIX веке в Испании. Молодая певица Лола талантлива и красива, но бедна. Она соглашается стать содержанкой пожилого богача Габриэля, который помогает ей сделать музыкальную карьеру. Он добр, внимателен и щедр, выполняет любое её желание, задаривает подарками. (   Читать дальше...   )Производство: Франция, Италия, Испания, Balcazar Producciones Cinematograficas, Finanziaria Cinematografica Italiana (FICIT)Жанр: драма, мелодрама, музыкальныйРежиссер: Альфонсо БалказарПеревод: профессиональный многоголосыйЯзык озвучки: русский, испанскийСубтитры: русские (на песни и полные)Продолжительность: 01:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A418FC554778FD4B669E5F2F81324C7E7F7B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671352   (171406) от 24.10.2023
+
+Магазин на площади / Obchod na korze (1965) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+По одноимённой повести Ладислава Гросмана, действие в которой происходит во время Второй мировой войны, когда немцами было создано так называемое "независимое" Словацкое государство... Словацкому плотнику Тоно Бртко в рамках программы ариизации от свояка достаётся небольшой магазин старой еврейки Розалии Лаутманн, торгующей пуговицами. Жена Тоно надеется, (   Читать дальше...   )Производство: Чехословакия, Filmové Studio BarrandovЖанр: драма, военныйРежиссер: Ян Кадар, Элмар КлосАктеры: Ида Каминска, Йозеф Кронер, Хана Сливкова, Мартин Холли, Адам Матейка, Франтишек Зварик, Микалус Ладизински, Мартин Грегор, Алоиз Крамар, Франтишек Папп, Гелена ЗвариковаПеревод: профессиональный многоголосыйЯзык озвучки: русский, словацкийСубтитры: английскиеПродолжительность: 02:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB65EB3DF38B545C12AC3F756B13A5A063D0446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670885   (171339) от 24.10.2023
 
 Деньги / L argent (1983) BDRip [H.264] [MVO]
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,114 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7733EFC6E5342BC98D5CDC1DA65E000DB26F635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513743   (164267) от 13.12.2021
-
-Большие манёвры / Grandes manoeuvres, Les (1955) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавец-офицер Арман де ла Верн заключает со своими друзьями пари, что до начала манёвров соблазнит неприступную Мари-Луизу Ривьер с такой же лёгкостью, как любую другую девушку. Его стремление заканчивается тем, что он по-настоящему влюбляется...Производство: Франция, Италия, Cinétel, Filmsonor S.A., Rizzoli Film S.p.a., S.E.C.A.Жанр: драма, мелодрама, комедияРежиссер: Рене КлэрАктеры: Мишель Морган, Жерар Филип, Жан Дезайи, Пьер Дюкс, Жак Фаббри, Жак Франсуа, Ив Робер, Брижит Бардо, Лизе Деламар, Жаклин МайянПеревод: дублированный, профессиональный многоголосыйСубтитры: французские, английскиеПродолжительность: 01:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA55E2E8C2EDA84A35E515FD4BCD19837FA763A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343905   (164208) от 18.12.2019
-
-Первая полоса / The Front Page (1974) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о чокнутых и диких чикагских газетчиках 20-х годов. Хилди Джонсон главный репортер в Чикагской газете. Он намерен уйти с работы, чтобы жениться. Его главный редактор Уолтер Бернс, имеет другие планы и не намерен его отпускать.Производство: США / Universal PicturesЖанр: КомедияРежиссер: Билли УайлдерАктеры: Джек Леммон, Уолтер Мэттау, Сьюзен Сарандон, Винсент Гардения, Дэвид Уэйн, Аллен Гарфилд, Остин Пендлтон, Чарльз Дёрнинг, Херб Эдельман, Мартин ГабелПеревод: Двуголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B659FEC51A73D1EF8B233AAB759960DEA4BFA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427256   (164094) от 17.12.2020
-
-1863 год / Rok 1863 (1922) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164094.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману "Верная река" Стефана Жеромского.
-Старейшая в польской кинематографии целиком сохранившаяся экранизация литературного произведения.
-
-1863 год. Царство Польское охвачено кровавыми сражениями между польскими повстанцами и царскими войсками. Отряд русских драгунов гонится за остатками разбитого отряда восставших. Среди них князь Юзеф Одровонж. Изнемогая (   Читать дальше...   )Производство: ПольшаЖанр: Драма, мелодрама, историяРежиссер: Эдвард ПухальскийАктеры: Рышард Собишевский, Мария Хрыневич, Казимеж Ласоцкий, Хенрик Рыдзевский, Станислава Хшановска, Антоний Беднарчик, Хелена Марселла-Палиньска, Станислав Хрыневич, Александр Зельверович, Мечислав Гельневский, Ама ВолковичЯзык озвучки: НемойСубтитры: Польские интертитры, русские отдельным файломПродолжительность: 01:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA3F5F3D14C8FDB67AE4AA5C01BDB41C7B8F293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427632   (163789) от 17.12.2020
-
-Гнев сабель / Im Reich des silbernen Lowen (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Якобы умерший магараджа из Мосула и разбойник Абу Сейф хотят завладеть сокровищами Халдеев и похищают дочь Халдейского царя, Ингдшу.
-Кара Бен Немси и Хаджи Халеф Омар отправляются на поиски принцессы. По дороге они встречают странноватого лорда Линдсея и его слугу Арчи. Всем вместе предстоит пережить массу приключений.Производство: Испания, Германия (ФРГ)/ Balcázar Producciones Cinematográficas S.A., CCC Filmkunst GmbHЖанр: ПриключенияРежиссер: Франц Йозеф ГотлибАктеры: Лекс Баркер, Мари Верзини, Ральф Вольтер, Зигхардт Рупп, Джордже Ненадович, Густаво Рохо, Анна-Мария Бланк, Чарльз Фоусет, Глория Камара, Фернандо СанчоПеревод: Многоголосый профессиональный, Петербург 5-й каналСубтитры: ОтсутствуютПродолжительность: 01:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96A4CB81F0166733FAF46800CF3779D7571EADC
 ```
 
 https://mybot314.ru/tekegram_catalog/

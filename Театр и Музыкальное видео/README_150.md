@@ -1,3 +1,171 @@
+###  Публикация: 329779   (47836) от 05.08.2024
+
+Дядя Ваня (1986) DVDRip  (БДТ)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Большого Драматического театра им. М. Горького по пьесе А.П.Чехова "Дядя Ваня".
+Этот знаменитый спектакль БДТ был перенесен на пленку в достаточно нетрадиционной манере. Фактически это телефильм, снятый по спектаклю, и не в театральных декорациях, а на натуре. В старинном особняке разворачивается классическая чеховская трагедия русского (   Читать дальше...   )Жанр: Спектакль, драмаРежиссер: Георгий ТовстоноговВ ролях: Олег Басилашвили, Кирилл Лавров, Евгений Лебедев, Наталья Данилова, Татьяна Бедова, Николай Трофимов, Мария Призван-Соколова, Зинаида Шарко, Евгений ЧудаковФормат: AVIПродолжительность: 01:21:00 + 01:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76BE7593A828F2FE88011B6306CA2ABE56D71DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318782   (47835) от 05.08.2024
+
+Евгений Онегин (1967) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"Он умер в час перед обедом,
+Оплаканный своим соседом,
+Детьми и верною женой
+Чистосердечней, чем иной.(   Читать дальше...   )Жанр: Литературные чтенияРежиссер: Сергей ЮрскийВ ролях: Сергей ЮрскийФормат: AviПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCBB1A9E173AB1C26C6F87CC91B43BCAFAC8947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32097   (47832) от 05.08.2024
+
+№ 13 / Out of oder
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в отеле… «Номер 13» вот уже третий десяток лет с успехом шествует по театральным подмосткам всего мира. Пьеса вошла в золотой фонд Британского театра, как одна из лучших английских комедий 20 века. Потрясает история, разворачивающаяся на сцене. Помощник премьер-министра Великобритании Ричард снял номер в гостинице, чтобы провести ночь со своей (   Читать дальше...   )Жанр: комедия/спектакльРежиссер: Владимир МашковАктеры: Евгений Миронов, Авангард Леонтьев, Александра СкачковаПеревод: ОригинальныйПродолжительность: 01:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA6EB0BDBD7D8E442C74B2C8DF2F56BF2322E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971425   (47827) от 05.08.2024
+
+Николай Гоголь - Нумер в гостинице города NN (Мертвые души) (2003) DVDRip (Центр им. Вс. Мейерхольда)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам поэмы Николая Васильевича Гоголя "Мертвые души".
+Чудаковатый Чичиков вселяется в крошечную комнатку, забитую странными вещами. Вдруг пространство вокруг него оживает: шепчут чушь занавески, хлопают дверцами шкафы, вкрадчиво поскрипывают половицы. Кажется, что Чичиков попал внутрь своей знаменитой шкатулки, и мертвые души, аккуратно им переписанные, (   Читать дальше...   )Производство: Россия, Центр им. Вс. Мейерхольда, ГТРК "Культура"Жанр: Телеспектакль, трагикомедияРежиссер: Валерий ФокинАктеры: Авангард Леонтьев, Валерий Еремичев, Игорь ЛяхПродолжительность: 01:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3A9D58AFD05CCEFC9A690344E8BE0911328465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465372   (47815) от 05.08.2024
+
+Дядюшкин сон / Театр им. Вахтангова (2001) VHSRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Театра им. Евг. Вахтангова.
+Блистательная комедия Достоевского «Дядюшкин сон» в классической постановке Владимира Иванова — настоящий бенефис Владимира Этуша и Марии Ароновой. Вместе этот замечательный дуэт дарит несколько часов неподражаемого комического представления повествующего о нравах провинциального городка середины XIX века.
+
+В город (   Читать дальше...   )Жанр: комедия, спектакльРежиссер: Владимир ИвановПродолжительность: 02:55:50
+
+Качество видео: не очень хорошее
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6B194E3B393D61AE55E6DBEF28E04B3408A2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456223   (47812) от 05.08.2024
+
+Дорога на Чаттанугу / Московский театр "Школа драматического искусства" (1992) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Этот спектакль по пьесе В.Славкина "Взрослая дочь молодого человека" был поставлен Анатолием Васильевым в 1979 году, а киноверсию спектакля выпустили в 1992-м.
+
+Едут по Москве в старом ретро-кабриолете бывшие стиляги и вспоминают памятные места и события. И из атмосферы этих воспоминаний начинается спектакль. В московской квартире встречаются четверо бывших (   Читать дальше...   )Жанр: мелодрама, спектакльРежиссер: Анатолий ВасильевПродолжительность: 00:59:09 + 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5604EC1BBF0D5D68644D0C198B562A6446F7F036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316271   (47811) от 05.08.2024
 
 Эзоп (1981) DVDRip [H.264]
@@ -6,7 +174,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -198,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -224,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -251,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -278,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -305,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -331,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -358,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -386,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -415,7 +583,7 @@ Linkin Park: Дорога к революции (Живой концерт в М
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -444,7 +612,7 @@ Whitesnake - Live In The Still Of The Night (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +642,7 @@ VA / A Tribute To Stevie Ray Vaughan (1996) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +671,7 @@ W.A.S.P. / 1993 - First Blood... Last Visions... (2007) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -546,178 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E5EB30CA646765FBF23B16776562B609A2C94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327158   (47416) от 09.08.2024
-
-Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47416.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1980 году две мощные хард-рок-группы, Black Sabbath и Blue Oyster Cult, объединились для совместного концертного тура, в котором каждая из них предложила свой собственный, неповторимый подход к хэви-металу. Одна из дат этого тура была заснята на пленку, и фильм "Black & Blue: Black Sabbath и Blue Oyster Cult Live демонстрируют эти две группы-ветераны на (   Читать дальше...   )BLACK SABBATH
-01. War Pigs
-02. Neon Knights
-03. N.I.B.(   Читать дальше...   )Жанр: Heavy Metal, Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728073   (47412) от 09.08.2024
-
-Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47412.jpg" />
-</div>
-
-
-###  Подробнее
-
-После камбэка с альбомом "13" Black Sabbath отправились в гастрольное турне. Одним из самых запоминающихся концертов в туре стали выступления на Зелёном Континенте. 29 апреля и 1 мая 2013 года у музыкантов прошло 2 концерта в Мельбурне, которые надолго запомнились всем австралийцам. Black Sabbath решили, что было бы замечательно выпустить CD/DVD и Blu-ray (   Читать дальше...   )01. Introduction
-02. War Pigs
-03. Into the Void
-04. Loner(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0ED68B301AF0C41BC23F063FE51514E210E6BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 73571   (47409) от 09.08.2024
-
-AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47409.jpg" />
-</div>
-
-
-###  Подробнее
-
-"No Bull: The Director's Cut" — новое, расширенное издание знаменитого концерта AC/DC в Plaza De Toros De Las Ventas , Мадрид, Испания, состоявшегося 10 июля 1996 года. Для нового издания был сделан ремастеринг и ремикс звука в Dolby Digital Stereo и Dolby Digital 5.1 Surround Sound, а также добавлены КОНЦЕРТНЫЕ бонусные треки (в первом издании был клип (   Читать дальше...   )01 Back In Black
-02 Shot Down In Flames
-03 Thunderstruck
-04 Girl's Got Rhythm(   Читать дальше...   )Жанр: rockКачество: DVD9Продолжительность: 122 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A36966B4A3BE9062C42EE7B0C7DF2057F039FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205778   (47408) от 09.08.2024
-
-AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47408.jpg" />
-</div>
-
-
-###  Подробнее
-
-К апрелю 1980, Янги нашли себе нового вокалиста: Брайна Джонсона, сына углекопа из Ньюкасла из Англии и бывшего музыканта хард рок группы 70-х Geordie, с такой мощной глоткой так словно каждое утро он полоскал свое горло кипящим маслом. Через три месяца AC/DC выпустили свой триумф- воскрешение, Back In Black, один из самых продаваемых рок альбомов в истории (на сегодняшний (   Читать дальше...   )(1980 -1993)
-
-01. Hells Bells (promo clip, 1980)
-02. Back In Black (promo clip, 1980)(   Читать дальше...   )Жанр: Hard RockФормат: DVD videoКачество: DVD9
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8662D40815D34425F3FDEA57814C92CEBFF804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 53438   (47406) от 09.08.2024
-
-Black Sabbath - The Last Supper '99  (2015) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основой данного DVD явился концерт 1999 года, записанный во время американского турне «Reunion Tour», где поклонники легендарных Black Sabbath увидели группу в классическом составе. Концертные номера перемежаются фрагментами интервью музыкантов. В качестве бонуса фигурирует материал предыдущего релиза - «Reunion Promo».01. Program Start
-02. War Pigs
-03. N.I.B.
-04. Electric Funeral(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalФормат: DVD videoКачество: DVD9Продолжительность: 01:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4A072C24AFD2BEC9AE0535A50B52D70D6752AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695617   (47386) от 09.08.2024
-
-Леший (1981) SATRip [2 части] (Государственный Академический театр имени Е. Вахтангова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47386.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Чехова в постановке театра имени Евгения Вахтангова.
-Пьеса, традиционно считающаяся предтечей «Дяди Вани». Многие персонажи, ситуации и фрагменты текста, перенесены в «Дядю Ваню» из «Лешего». В пьесе, как и во всех произведениях Чехова, отразились все черты русского национального характера. Природа и человек - взаимосвязаны, человек убрал сначала (   Читать дальше...   )Жанр: Жанр: Телеспектакль, драмаРежиссер: Е.СимоновАктеры: Николай Трофимов, Юлия Борисова, Людмила Максакова, Юрий Яковлев, Д. Андреева, А. Кацынский, Г. Абрикосов, В. Шалевич, А. Граве и др.Продолжительность: 01:21:32 + 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83ADB364BBAE593B1ADABD83A92F0C2D97094956
 ```
 
 https://mybot314.ru/tekegram_catalog/

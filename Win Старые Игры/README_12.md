@@ -1,3 +1,57 @@
+###  Публикация: 505759   (689236) от 05.06.2012
+
+Theme Hospital / Частная клиника [En] 1997 | GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уже давно известно, что лучшее лекарство от всех болезней — смех. В серии классических игр от Electronic Arts вам предлагается универсальный рецепт здоровья: руководство частной клиникой, специализирующейся на лечении десятков смешных недугов. Помогая страждущим — и не забывая при этом пополнять банковский счет! — вы сами сможете всегда оставаться в форме за счет полученного заряда бодрости и хорошего настроения. Будьте здоровы!
+
+(   Читать дальше...   )Тип издания: ЛицензияЖанр: Изометрическая экономическая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A288DA378F3747891FA666B940D5DC7E05DE554E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288984   (687821) от 15.03.2019
+
+Another War / Другая Война (2002) [Ru] (2.48) Unofficial
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игра сделана в традициях лучших мировых шедевров ролевых игр, таких, как Diablo и Fallout, однако, вместо надоевших фентезийных миров действие происходит в реальности. Интереснейший сценарий и тонкий юмор долго не отпустят вас от монитора, заставляя переживать невероятные приключения и попадать в рискованные передряги. Главный герой игры - наемник и авантюрист, должен (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mirage InteractiveЖанр: Arcade, RPG, IsometricЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F53B11F743DB7BA191FAF093662C8D89CA9110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221976   (686745) от 28.04.2018
 
 Loom (1990) [En] (1.0) License GOG
@@ -6,7 +60,7 @@ Loom (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Helicopter's Flight Simulators Collection Vol.1 / Коллекция симул�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Animal paradise tycoon (Rip) [En] 2002 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Gunship! / Gunship! Война в небе Война в небе (RePack) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Railroad Tycoon 2 + OST (Rip) [Ru] 1999 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +268,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +294,7 @@ Medicopter 117 / Альпийский патруль [Ru] (L) 2004
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +320,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +346,7 @@ Action Legion (2016) [En] (1.2.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -318,7 +372,7 @@ Railroad Tycoon 2 (Rip) [En] 1999 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +398,7 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +424,7 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +450,7 @@ Bio Menace (1993) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +476,7 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +502,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +528,7 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +555,7 @@ War Wind (1996) [En/Fr/Ge] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +581,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +607,7 @@ Doom [En] (L) 1993
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +633,7 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +659,7 @@ Black Dahlia (1998) [En] (1.10) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +670,6 @@ Black Dahlia Black Dahlia - так прозвали известную в 40-е 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A783525B65C901EEAEF5A7C56DF9A3E10239B3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225038   (662654) от 13.05.2018
-
-Sid Meier's Pirates! (2004) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бороздите Карибское море, грабя всех подряд, или пойдите к кому-нибудь на службу и попытайтесь разбогатеть, став капером, - выбирайте свою жизнь сами. Сражайтесь с яростными врагами, грабьте тихие деревни, ухаживайте за прекрасными девами, старайтесь не попасть в плен, ищите клады. Узнайте, что нужно для того, чтобы стать одним из самых знаменитых пиратов в истории!Тип издания: LicenseРазработчик: Firaxis Games, Full Fat Productions (PSP), 2K China (Wii)Жанр: Strategy (Real-time), Arcade, 3D, Privateer, TraderЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D346AE04E7E1C8BB4CA4485B9A63B98BA84711CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140339   (656477) от 05.06.2017
-
-Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воссоздавая саму суть Второй мировой войны, Company of Heroes открывает новый путь развития стратегиям в реальном времени, в котором вы как никогда раньше сможете прочувствовать героизм солдат, разрушения, принесенные войной, и всю стремительность сражений.Тип издания: SteamRipРазработчик: Relic EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D5873E6298D6E688CEB3DCA93B3228937A763C
 ```
 
 https://mybot314.ru/tekegram_catalog/

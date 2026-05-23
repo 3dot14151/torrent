@@ -1,3 +1,107 @@
+###  Публикация: 926279   (534673) от 09.08.2015
+
+Star Wars: Battlefront 2 (2005) [En] (1.1) Repack R.G. Механики
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С абсолютно новыми космическими битвами, играемыми персонажами-джедаями и более, чем с 16 новыми полями боя, игра Star Wars Battlefront II предоставляет вам множество возможностей вести бой в классической вселенной Звездных войн так, как вы захотите.Тип издания: RepackРазработчик: Pandemic StudiosЖанр: Action (Shooter) / 3D / 1st Person / 3rd PersonЯзык озвучки: Русский (частично видеоролики), АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E40C94E13B2D022B45CA5AA0987B43C5D28D4E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155597   (533032) от 03.08.2017
+
+Slime Rancher (2017) [Ru/Multi] (1.0.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Slime Rancher – это история Беатрис Лебо, молодой и решительной владелицы ранчо, которая отправляется за тысячу световых лет от Земли на «Далекий, далекий предел», где будет зарабатывать себе на жизнь, разводя слизней.Тип издания: LicenseРазработчик: Monomi ParkЖанр: Adventure, Action, 3DЯзык субтитров: Русский, Английский  и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD4CE5DFE785FAAFA97D77665814CB08B38B55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153165   (532887) от 03.08.2017
+
+Titanfall 2 (2016) [Ru] (2.0.7.0) Rip Other s [Digital Deluxe Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Со времени битвы при Деметре Ополчение значительно разрослось и перехватило инициативу, основав опорный пункт на планете Гармония. Организованные и вооруженные новейшим оружием, его войска представляют свободные народы Фронтира, настроенные против IMC. В Titanfall™ 2, эпическом продолжении задавшей новые каноны жанра игры, ваши лучшие друзья — это большие пушки.Тип издания: RipРазработчик: Respawn EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757F58769E6CAF0536B8BA97395B61A121D7E4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312357   (530348) от 05.07.2019
+
+Dusk (2018) [En] (1.0) License SKIDROW
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Dusk вновь вводит вас в мир, в котором нужно овладеть навыками резни и кровопролития... если вы хотите дожить до рассвета. Вдохновлённый такими играми как Doom, Quake, Blood, Heretic, Hexen, Half-Life, Redneck Rampage и другими любимыми играми из 90-х, со звуковым сопровождением от великолепного музыканта в жанре "metal" Эндрю Хулшулта (Andrew Hulshult).Тип издания: LicenseРазработчик: David SzymanskiЖанр: Action, FPS, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1943D5F092CEA1B4B2E0AB1157A3596974945395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155998   (529355) от 05.08.2017
 
 Descent - Silence of Mind (2017) [En] (1.0) License SKIDROW
@@ -6,7 +110,7 @@ Descent - Silence of Mind (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Requiem: Avenging Angel (1999) [Ru/En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.6/upd4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Metro Redux Dilogy (2014) [Ru/Multi] (1.0.0.3/1.0.0.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Space Hulk: Deathwing (2016) [Multi] (1.74) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Battlefield Hardline (2015) [Ru/Multi] (1.07.15.00) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Clive Barker's Undying / Клайв Баркер: Проклятые (2001/2014)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/upd8/dlc) License PROPHET [Complete Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Original Strife: Veteran Edition (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Forsaken Remastered (2018) [Multi] (1.4.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Deus Ex™ GOTY Edition (2000) [En] (1.112fm/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Red Orchestra 2: Heroes of Stalingrad Game of the Year Edition [Ru/En] (Steam-Ri
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +452,7 @@ Serious Sam HD: The Second Encounter - Complete Edition [Ru/En] (L/Steam-Rip/1.1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +479,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +505,7 @@ The Forest (2018) [Ru/Multi] (1.09) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +531,7 @@ The Darkness II (2012) [Ru] (1.1/dlc) Repack Other s [Special Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Monstrum (2015) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +583,7 @@ BioShock (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +609,7 @@ Homefront (2011) [Ru/En] (1.5.500001.0/dlc) RePack =nemos= [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +635,7 @@ Ghostrunner (2020) [Ru/Multi] (42507_446/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +661,7 @@ Sir, You Are Being Hunted (2013) [Ru/En] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,110 +672,6 @@ Sir, You Are Being Hunted (2013) [Ru/En] (1.3) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3520073502A2E694766A22ED604F5DD71C71F7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862182   (514638) от 23.08.2015
-
-Ziggurat (2014) [Ru/Multi] (1.0 upd12) SteamRip Let'sPlay
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ziggurat - является Dungeon Crawling FPS с случайно генерируемыми сценариями и событиями. Вас ждут десятки опасных врагов, крутые боссы и множество мощных заклинаний, которые Вам помогут в покорении Башни Зиккурата, но с начала их надо найти и изучить. Игрокам предлагают примерить мантию боевого мага. Точнее — одного из учеников, претендующих на почётное звание. (   Читать дальше...   )Тип издания: SteamRipРазработчик: Milkstone StudiosЖанр: Action (FPS roguelike) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: -//-Язык интерфейса: Русский, Английский, Испанский, Венгерский, Французский, Немецкий, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66788ED88BBF0D96B7D039DB6112160C8B29F494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315294   (513547) от 19.07.2019
-
-Quake III Arena (1999) [En] (1.32c) License
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quake 3 Arena - одна из немногих игр, которая не устареет никогда. Она была первым в истории компьютерных игр чистым сетевым шутером, т. е. игрой, в которой отсутствовал режим одиночной игры в привычном понимании. Процесс игры заключается в том, чтобы сражаться с другими игроками или ботами (игроками под управлением искусственного интеллекта) на специально построенных (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (FPS)Язык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E47776C761C6C3251222F2C1257BFA790256F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931079   (512490) от 25.08.2015
-
-Alien Rage: Unlimited (2013) [Ru/En] (1.0.9084.0/upd6) Repack =nemos=
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512490.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Аркадный» шутер от первого лица на основе Unreal Engine 3. В Alien Rage игроку доверена роль элитного спецназовца, которому поручено выполнить какую-то диверсионную миссию.Тип издания: RepackРазработчик: City InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7080FF0104644BAADF9F410789EFD185E5FD3FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931062   (512486) от 25.08.2015
-
-Battlefield Hardline (2015) [Ru/En] (1.07.15.00/dlc) Repack YelloSOFT [Digital Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто давно мечтает попробовать себя в роли мафиози или полицейского, сможет воплотить мечту в жизнь в Battlefield™ Hardline. Игроков ждут непревзойденные сетевые режимы Battlefield и захватывающий сюжет в сеттинге, напоминающем о современных криминальных драмах. Battlefield™ Hardline станет вашим новым полем криминальных разборок.Тип издания: RepackРазработчик: Visceral Games и EA DICEЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A498D83329FAD0EC3E463C252335043E2346D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

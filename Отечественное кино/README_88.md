@@ -1,3 +1,107 @@
+###  Публикация: 1396111   (749930) от 13.07.2020
+
+Осколок «Челленджера» (1992) TVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Зинаида, бросив при рождении своего ребенка, после долгих лет жизни в достатке и радости решила найти собственное чадо и тем самым обрести подлинного наследника своего имущества, на которое «положил глаз» ее любовник.Производство: Россия, Франция / Studio Kroug Mosfilms, Barnaba FilmsЖанр: ДрамаРежиссер: Александр СуринАктеры: Реджеп Митровица, Лор Марсак, Наталья Гундарева, Владимир Зайцев, Сева Ларионов, Денис Бургазлиев, Андрей Тихомирнов, Геннадий Корольков, Петр Зайченко, Юрий НазаровСубтитры: ОтсутствуютПродолжительность: 01:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE136B0CCE908AF9864EDD4053A2EDA27214A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019280   (749742) от 23.05.2016
+
+СуперБобровы (2015) BDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вместо десерта на ужин семейство Бобровых получило… метеорит. Настоящий, большой, из космоса. Благодаря ему Бобровы вдруг приобретают немыслимые сверхспособности. Дед становится бессмертным, а отец теперь может телепортироваться. Сын начинает понимать собачий язык, а его сёстры получают суперсилу, возможность летать и быть невидимой. Единственное ограничение — способности (   Читать дальше...   )Производство: Россия / Yellow, Black & WhiteЖанр: Комедия, СемейныйРежиссер: Дмитрий ДьяченкоАктеры: Павел Деревянко, Оксана Акиньшина, Роман Мадянов, Ирина Пегова, Владимир Толоконников, Даниил Вахрушев, Софья Мицкевич, Михаил Шамигулов, Елизавета Кононова, Виталий КищенкоПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE7731D65AD843DCE83654D771754D924A1291E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523468   (749548) от 12.01.2022
+
+Семь пар нечистых / Рейс 13-01 (2018) BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1941 г. Бунт в открытом море – это всегда страшно. Ненависть заключенных и охранников друг к другу копится десятилетиями. Эта ненависть переполняет людей. Бунт заключенных на корабле страшен вдвойне. Слишком много ненависти на ограниченном пространстве. Но все меняется, когда появляется общий враг.Производство: Россия / АРК-ФильмЖанр: Боевик, драма, военный, приключенияРежиссер: Кирилл БелевичАктеры: Юрий Борисов, Мари Ворожи, Тимофей Трибунцев, Василий Мищенко, Михаил Евланов, Александр Вершинин, Евгений Куршинский, Микаэль Джанибекян, Бесо Гатаев, Александр АлёшкинПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0830CD22BEE628D54DBC6576A6F7B890234F107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019286   (749470) от 23.05.2016
+
+Побег за мечтой (2015) WEB-DLRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Три истории о трех разных мужчинах. Молодой писатель без книги, но со смертью под боком. Врач с принципиальной позицией и непониманием среди окружающих. И адвокат, считающий, что от всего можно откупиться. Всех троих испытает судьба, и ни один из них не останется прежним…Производство: Россия, Молодёжные инициативыЖанр: Боевик, криминал, драмаРежиссер: Константин Тищенко, Юрий Сысоев, Владимир МистюковАктеры: Владимир Вдовиченков, Мирослава Карпович, Андрей Чадов, Денис Косяков, Антон Буглак, Александр Кононец, Прохор Чеховской, Александр Фурсенко, Зоя Кайдановская, Алексей ФатеевПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A99EA3B32770988832A8930491236B1F037DC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523544   (749400) от 12.01.2022
 
 Небо (2021) WEB-DL [H.264/720p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Ispoved Bar (2019) WEBRip [H.264/1080p-LQ] [PR]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB0ED78302015D688BC36402496B8ADB22082C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396715   (745353) от 16.07.2020
-
-Кука (2007) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лене 38 лет. Жизнь, казалось бы, налажена – Москва, карьера, «престижный» бойфренд… Но Лена сознает, что это - путь в никуда, что при внешнем благополучии она потеряла что-то очень важное и что пришла пора, наконец, пересмотреть свою жизнь. Либо сейчас, либо уже никогда… Кука живет в Петербурге совершенно одна. Она очень смышленая и очень взрослая. Кука все делает (   Читать дальше...   )Производство: Россия / Staralis Film CompanyЖанр: ДрамаРежиссер: Ярослав ЧеважевскийАктеры: Анастасия Добрынина, Дина Корзун, Павел Деревянко, Марина Голуб, Александр Половцев, Дмитрий Дюжев, Юрий Колокольников, Андрей Ильин, Анна Ардова, Ирина Купченко, Игорь СавочкинСубтитры: ОтсутствуютПродолжительность: 01:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFCD41802598A7A9AB4D49A6D41C015EFE592C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282249   (745045) от 12.02.2019
-
-Юшка (2018) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745045.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноимённого рассказа Андрея Платонова.
-Ваня рассказывает младшему брату историю из своего детства. Пытаясь раскрыть тайну блаженного помощника кузнеца Юшки, Ваня становится случайным свидетелем его убийства. Вскоре все жители узнают о том, сколько добра принёс в мир этот незаметный человек.Производство: Россия / Кинокомпания "Катарсис"Жанр: Короткометражный, драма, экранизацияРежиссер: Лолита НарановичАктеры: Сергей Демидов, Илья Павлов, Анастасия Лукьянова, Даниил Васильев, Никита Бирцев, Ирина Гершт, Пётр Гаврилов, Дарья Ердякова, Олег Хамитов, Владимир ЮровСубтитры: ОтсутствуютПродолжительность: 00:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D068C5A04848B91569336EF5064328D0235102E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524403   (744892) от 15.01.2022
-
-Муж на час (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744892.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Муж на час" - это комедия о желании лёгких денег, бесплатном удовольствии и к чему это приводит.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Антон НакатковАктеры: Андрей Кочинов, Юлия Абрамова, Сергей Погосян, Людмила Ячменёва, Ольга ШерементьеваСубтитры: ОтсутствуютПродолжительность: 00:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E78E0A6C36C3277FBC42E48AAAA3A17F0EA4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020131   (744725) от 26.05.2016
-
-Булаг (2013) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744725.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глухой деревне живет главный герой фильма, который изрядно прикладывается к алкоголю. В нем он ищет спасение от безысходности своего существования. Но однажды он решается на рискованный шаг и начинает добывать нефрит незаконным путем. Однако, эта затея оказалась слишком опасна для жизни, ведь нефрит дороже золота, а значит желающих завладеть им очень много...Производство: Россия / "МонУлаФилмз"Жанр: ДрамаРежиссер: Солбон ЛыгденовАктеры: Владимир Ширапов, Игорь Петренко, Александр Голубев, Дугар Жалсанов, Виталий Нестеров, Альбина Балданова, Балжит Очирова, Булат Цыденов, Даши-Цырен Дашинамжилов, Людмила ТугутоваЯзык субтитров: РусскийПродолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A788EF5B81D287B6DB23606A54A8C5102151E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

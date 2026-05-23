@@ -1,3 +1,107 @@
+###  Публикация: 1573806   (63670) от 08.03.2024
+
+IMMORTALITY (2022) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Интерактивный хоррор, рассказывающий леденящую душу историю про девушку по имени Мариса Марсель. Она всегда стремилась стать известной актрисой. Для достижения своей мечты девушка прикладывала все усилия и проходила через самые нелепые роли. Три фильма с ее участием и вовсе не попали на экраны. Однако вскоре героиня бесследно исчезает.Тип издания: LicenseРазработчик: Half MermaidЖанр: Приключение, Симулятор, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Турецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Турецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDBE02A3E2C4EDF43B2C8E0A346466B8EAC1E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705468   (63654) от 08.03.2024
+
+Stellar Ghosts Settlers (2024) [En] (1.0.220) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Stellar Ghosts Settlers - это научно-фантастический шутер от третьего лица, который придерживается основ и погружает вас в мир, полный оригинальной и мощной дикой природы. Вы - часть группы поселенцев, которые решили уйти от ига коррумпированного галактического правительства. Поселенцы решили основать свою первую колонию на недавно открытой и необитаемой планете (   Читать дальше...   )Тип издания: RepackРазработчик: PROTOFACTOR, IncЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4CDCCB74D285F79B27A2E2B94F3CC6117AC2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706698   (63023) от 14.03.2024
+
+Zoonomaly (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Zoonomaly - оригинальный хоррор от первого лица, где вы окажетесь в весьма необычном зоопарке. Дело в том, что вместо животных здесь обитают кошмарные существа, которые не прочь полакомиться вами, искателем аномалий. Вы прибыли на место по зову местного начальника, чтобы отыскать причину заражения столь обширной территории монстрами. Ну что, за работу?Тип издания: RepackРазработчик: LIGHTS ARE OFF LLCЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E3D571FB82DBD046294EB67CEB972A16ADE491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706942   (63020) от 14.03.2024
+
+YOKO (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"YOKO" предлагает уникальный паранормальный опыт. Как новичок в таинственном доме, Йоко оказывается погруженной в путешествие с привидениями, полное интригующих загадок. Исследуйте укромные уголки Сайкоминами, расположенного у подножия величественной горы Фудзи, и раскройте темные тайны, которыми пропитан этот сонный городок. Обретя свой новый дом, будьте (   Читать дальше...   )Тип издания: RepackРазработчик: Kyioshi SoftwaresЖанр: Экшены, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE94EB460429AA8E57B40EE2E651ECE4D97B63FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595220   (62934) от 15.03.2024
 
 Somerville (2022) [Multi] (1.0) License Razor1911
@@ -6,7 +110,7 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Unknown (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Silent Cause (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Quarry (2022) [Ru/Multi] (1.07/dlc) Repack Decepticon [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Death Trick: Double Blind (2024) [Multi] (1.1.13) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Unbearable (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Highwater (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Cadet Files: Scene Unseen (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ A Twisted Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Amygdala (2024) [En] (1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Corbid! A Colorful Adventure (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Vampires' Melody 2 (2023) [Multi] (20240319) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Cats Hidden in Georgia (2024) [Ru/Multi] (0313) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Cats Hidden in Georgia - не только поиск кошачьих друз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A590550137681AA479149D8756A97E404725814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710711   (61610) от 27.03.2024
-
-Between Horizons (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Between Horizons - это крутой 2.5D приключенческий детектив в научно-фантастической атмосфере. Ты отправляешься в путешествие на корабле Zephyr, первом поколении космического корабля человечества, направляющегося к другой звезде. В роли Стеллы, наследницы должности начальника службы безопасности, тебе предстоит раскрыть заговор, который угрожает миссии корабля. Весь (   Читать дальше...   )Тип издания: SceneРазработчик: DigiTales InteractiveЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Корейский, Китайский (упрощенный)Язык интерфейса: Английский, Немецкий, Корейский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60770B373DD42F21A395FB8FFAADB42B349FC0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710774   (61544) от 28.03.2024
-
-Bloody Ink (2024) [Ru/Multi] (13792199) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloody Ink - это психологическая хоррор-игра от первого лица, направленная на внедрение беспокойства, страха и ужаса. Лука - мужчина, потерявший работу. Он живет день ото дня, пытаясь выжить. Когда новая работа, наконец, обещает изменить его жизнь, начинается его кошмар. Ему предстоит заботиться о человеке, полностью обгоревшем, и Лука переезжает в дом этого человека, (   Читать дальше...   )Тип издания: SceneРазработчик: Daniele Doesn't MatterЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE2F13B09456064B93ABFA673E7BC4DF09DC7E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711018   (61542) от 28.03.2024
-
-Distant Bloom (2024) [Multi] (1.0) Scene FAiRLIGHT
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Distant Bloom – постарайтесь восстановить некогда прекрасный мир! Попросту говоря, отправьтесь навстречу предельно расслабляющему менеджменту, в котором вы будете заниматься исследованиями инопланетного мира. Вас приветствует довольно уютное управление и одновременно исследования далёкого мира. Где наш протагонист длительное время провел в космической экспедиции (   Читать дальше...   )Тип издания: SceneРазработчик: Ember TrailЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218C89C574E24F2EF8CA2702ACE7D569A2BF975A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711510   (61342) от 30.03.2024
-
-Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологический хоррор переплетается с шармом южной готики в леденящем душу переосмыслении культовой Alone in the Dark, ставшей эталоном жанра. Вам приоткроется дверь в мир безумия, где каждая встреча может оказаться последней. Вы ощутите, как с каждым шагом, что приближает вас к разгадке тайны Дерсето, взирающие из тьмы глаза становятся все голоднее.Тип издания: RepackРазработчик: Pieces InteractiveЖанр: Action, Adventure, HorrorЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED86AC60DE2A1170DFCD06ECEC5B50BDEE9D6C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

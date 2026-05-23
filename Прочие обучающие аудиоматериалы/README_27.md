@@ -1,3 +1,85 @@
+###  Публикация: 1639602   (211510) от 14.06.2023
+
+Ева Пунш | Сам себе шеф-повар (2021) [MP3, Татьяна Оверченко ]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Многим начинающим кулинарам кажется, что нет ничего проще, чем готовить по рецепту – достаточно найти хороший и в точности ему следовать. Но ни один, даже самый лучший рецепт не расскажет, как правильно делать такие базовые вещи, как сварить рис или выбрать мясо, которое подойдет именно для этого блюда, и не объяснит, зачем класть в кастрюлю хрустальную пробку, чтобы (   Читать дальше...   )Жанр: КулинарияПродолжительность: 06:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29520E0CEC0D69FE3D6F64954C524F4A6E791F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641363   (210828) от 22.06.2023
+
+Анри де Ренье | Сказки для самого себя (2019) [MP3, Наталья Беляева]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Анри Де Ренье – «Сказки для самого себя»
+Мистические, туманные, зыбкие, порою, жестокие, написанные прекрасным сложным языком сказки – сны на мифологической основе. Книга-медитация.
+Анри де Ренье (1864- 1936), по определению М. Кузьмина, – пленял «читателя отточенностью и изысканностью фраз”
+Знаменитый и загадочный затворник Анри де Ренье известен русскому читателю (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E27C489A0F0E9EDF0144A4E5AC1F4678C5BB3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641574   (210708) от 23.06.2023
+
+Ровелли Карло | Семь этюдов по физике (2018) [MP3, Геннадий Смирнов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+История великих открытий, результаты новейших исследований, поразительные факты и смелые гипотезы.
+Карло Ровелли – физик-теоретик, внесший значительный вклад в физику пространства и времени, автор нескольких научно-популярных книг. Он работал в Италии и США, а сейчас возглавляет исследовательскую группу по квантовой гравитации в Марселе. «Семь этюдов по физике» мгновенно (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FC6097BB9F61DB5B35DE6B1A592DC95C25F081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641680   (210638) от 24.06.2023
 
 Борис Абрамов | Грани Агни-Йоги 1967 (2020) [MP3, Вячеслав Герасимов]
@@ -6,7 +88,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -85,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -111,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -137,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -163,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -215,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -241,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -270,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -349,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -376,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -402,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -428,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -454,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -480,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -507,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -533,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -585,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -596,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6ABDE338AC7B06B7A50410B7F5A369B25ED2468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631927   (198779) от 08.05.2023
-
-Михаил Столбов | Как я вырастил новые зубы (2021) [MP3, YevGenius Voice]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198779.jpg" />
-</div>
-
-
-###  Подробнее
-
-"...Все началось в 1978 году, когда я отбывал положенные три года срочной службы на Русском острове. Именно тогда и там мне табуреткой выбили практически все зубы. Тогда я страшно надеялся, что меня тут же комиссуют, но мне за казенный счет в течение недели смастерили вставные челюсти, и оставшиеся 2,5 года из-за своей картавости я был для всех «Шавкой». Вставные (   Читать дальше...   )Жанр: СамосовершенствованиеПродолжительность: 02:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DF2A66CA78518358260F3433076B3CCEA0694B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642373   (196539) от 27.06.2023
-
-Дэвид Чиверс, Том Чиверс | Цифры врут (2022) [MP3, Татьяна Фельгенгауэр]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтение на ночь сокращает жизнь. Видеоигры провоцируют массовые убийства. Газировка делает людей агрессивными. Что?! Нет!
-Каждый день медиа пишут о сенсационных открытиях и шокирующих результатах исследований. Но не всем им можно верить: статистические погрешности, намеренные фальсификации и неочевидные огрехи никто не отменял.
-Из-за пандемии COVID-19 человечество (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 05:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDD31CF0B48215A661E6E7BDE2FBC491A9FD87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643945   (196228) от 04.07.2023
-
-Ёсинори Нагумо | Метод Нагумо. Японская система (2019) [MP3, Максим Доронин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196228.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние годы ученые уделяют особое внимание гену сиртуину - тому самому, что отвечает за регенерацию клеток, молодость и красоту. Одним из условий активации этого гена, управляющего нашей жизнью, является "пустой желудок". Другими словами, ген не становится активным, если вы не голодны в течение определенного периода времени. Вполне вероятно, что люди, (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D4155E158E010E91F2EA2CF6D8AB63920E00FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

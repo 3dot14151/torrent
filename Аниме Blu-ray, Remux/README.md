@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1871818   (1069907) от 
+
+Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] BDRemux 1080p raw
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Школьница Рури Танигава, увлечённая ювелирными изделиями, неожиданно открывает для себя мир минералогии — не как сухую науку о минералах, а как живое, сверкающее пространство, полное тайн и красоты. Её путь проходит через горы, реки и таинственные пещеры, где каждый найденный камень становится не просто находкой, а фрагментом личной истории, поводом для размышлений (   Читать дальше...   )Жанр: повседневность, минералогия.Режиссер: Фудзии СингоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7963DA3E64C82599F9F729E8CF52C52198EBC683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852132   (1055858) от 06.02.2026
 
 Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelion: 1.11 You Are (Not) Alone | Евангелион 1.11: Ты (не) один [2007, Movie] BDRemux 1080p raw+rus
@@ -7,7 +33,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Umibe no Etranger | The Stranger by the Shore | Незнакомец на бер
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Eiga Given (2024) | Given Movie 2: Hiiragi Mix | Дарованный: Микс 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +165,7 @@ Given Movie 3: Umi e | Given Movie 3: To the Sea | Дарованный: К ок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +191,7 @@ Eiga Given | Дарованный. Фильм | Given the Movie [2020, Movie] BD
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +245,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World with My Smartphone 2 | В 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +271,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +297,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +323,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +349,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +375,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +401,7 @@ Ajin OVA | Полулюди OVA [2016, OVA, 3 из 3] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +427,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +454,7 @@ Serial Experiments Lain / Эксперименты Лэйн [1998 TV, 13 из 13
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +482,7 @@ Koukaku Kidoutai / Ghost in the Shell / Призрак в доспехах [1995
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +508,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +535,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +563,7 @@ Hellsing Ultimate / Хеллсинг [2006-2012, OVA, 10 из 10 + SP] BDRemux 1
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -571,7 +597,7 @@ Byousoku 5 Centimeter / 5 Centimeters per Second / Пять сантиметро
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -600,7 +626,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou / Виолетта Эве�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -652,7 +678,7 @@ On Your Mark / На старт! [1995, OVA] BDRemux 1080p raw+eng
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -663,32 +689,6 @@ On Your Mark / На старт! [1995, OVA] BDRemux 1080p raw+eng
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F99ED6FA2B9C43D9922611B5C21390E916CC3134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276164   (788962) от 14.01.2019
-
-Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDRemux 1080p raw
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каких только удобств нет у людей! И рестораны, и клубы, и библиотеки, и гостиницы… А вы думали, что ёкаям этого не нужно? Они так же, как и мы, желают жить на полную катушку и с комфортом! Гостиница "Конохана” полностью соответствует притязательным желаниям ёкаев. Она оформлена в традиционном японском стиле, расположена на горячих источниках, а работают в ней (   Читать дальше...   )Жанр: повседневность, фэнтезиРежиссер: Окамото ХидэкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0692A9EC5DD9675435C88F2A80B84FC3D9868D
 ```
 
 https://mybot314.ru/tekegram_catalog/

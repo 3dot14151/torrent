@@ -1,3 +1,323 @@
+###  Публикация: 1472530   (1014337) от 25.05.2021
+
+Векторный клипарт - Different people at work and leisure modern design illustration 2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Люди
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3588534A6804923772FB26C8E67517FF79957046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472583   (1014330) от 25.05.2021
+
+Векторный клипарт - Backgrounds for restaurant menu in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Фоны для меню ресторана
+6 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF751C0C416F4C60523C2710C9424778946BF95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472581   (1014327) от 25.05.2021
+
+Векторный клипарт - Abstract patterns and monograms in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Абстрактные узоры и монограммы
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A539A7BF53AA6F336708CCD9E8B236181D58E9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472585   (1014326) от 25.05.2021
+
+Векторный клипарт - Shutterstock - Backgrounds with birds and flowers in vector [EPS, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Фоны с птицами и цветами
+6 EPS, AI +PreviewФормат: EPS, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D28E77287BEBACB5B0F4DEECD328F3A0ACE8860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472537   (1014279) от 25.05.2021
+
+Футажи - VideoHive - 5 Cartoon Baby Dance Pack V06 - 32280838 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Качественные анимации детей, танцующих Брейк. Футажи имеют прозрачный фон.Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0823199AD5C3704E90290FFE95881CB981E0C228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472648   (1014090) от 26.05.2021
+
+Футажи - VideoHive - Cartoon Eyes Pack - 25676073 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 20 анимированных мультипликационных глаз.Формат: MOVРазрешение файлов: Full HD 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BFDE16E2006616A574A4FD52B6C4DC3C16F435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473395   (1013649) от 29.05.2021
+
+Экшены - GraphicRiver - Modern Digital Paint Photoshop Action - 30526190 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Modern Digital Paint - действие фотошоп с простыми настройками, он превратит ваши изображения в полотно в стиле современной цифровой графики. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16019A4CE22550F02A2948760C5F07F3FAF5CE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473907   (1013376) от 31.05.2021
+
+Шаблоны - Книга сказок для Миланы [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Детская фотокнига от Quantum Satis.Формат: TIFРазрешение файлов: 7087х3543
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5679598D3B8AE704575D5E132AE3E296456ADD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473938   (1013355) от 31.05.2021
+
+Шаблоны - Фотокнига Первый год Никитки [TIF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Детская фотокнига от Quantum Satis со шрифтами.Формат: TIF, TTFРазрешение файлов: 7087x3602
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFEEAA8A3F6BA4FE4CFA94D7364F8C51111DB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473923   (1013351) от 31.05.2021
+
+Шаблоны - Немного о Максиме - детская фотокнига [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Детская фотокнига от Quantum SatisФормат: TIFРазрешение файлов: 4783х2432
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5132894893F25657D235BDD2A7975CD0E6C6A9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473935   (1013346) от 31.05.2021
+
+Шаблоны - Фотокнига о весёлом празднике в стиле Hello, Kitty! [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Детская фотокнига от Quantum SatisФормат: TIFРазрешение файлов: 5006x3002
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A09305A7FE81EE647FF31D85F8B5D6AE940CBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459278   (1013304) от 31.05.2021
+
+Фотография - PhotoDune - Stock Collection By TRECA [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«PhotoDune - Stock Collection» - Photodune – это классический фотосток, с фотографиями на все случаи жизни в высоком разрешении. Photodune.net – это торговая площадка, на которой цифровые фотографы могут размещать свои фото на продажу, а покупатели находить, приобретать готовые снимки для оформления своих проектов или печати. Представляю Вашему вниманию небольшую (   Читать дальше...   )Формат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB234A11D7903D10DAD15C45330C2F431C2B0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474138   (1013215) от 01.06.2021
 
 Шаблоны - Фотокнига "СмешПриключения" [PSD]
@@ -6,7 +326,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -92,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -118,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -144,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -172,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -224,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -279,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -308,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -334,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -360,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,318 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6945476F7893027E3B2DEB037255F0968B0E819A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474828   (1012657) от 04.06.2021
-
-Шаблоны - Ретро фотокнига - А годы летят (часть 1-6) [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект из 6 фотокниг от Mirana.Формат: PSDРазрешение файлов: 7205х3602
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A832BE3C34FC69535E0CD4902F1BB18912A6E352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475094   (1012541) от 05.06.2021
-
-Звуковые библиотеки - Amazon - Haunted House Halloween Sound Effects [FLAC]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе дом с привидениями, ужасающие возгласы, тревожная обстановка. Звуковые эффекты для Хэллоуин помогут вам создать необходимую атмосферу.Формат: FLAC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043EB1082B01D548529856A464E4CB43592D4C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475235   (1012362) от 06.06.2021
-
-Экшены - GraphicRiver - Oil Water Color Photoshop Action - 30887072 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oil Water Color - действие фотошоп превратит ваши изображения в красочное акварельное полотно. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата. Чтобы получить наилучший результат, используйте изображения с размером 3000px Х 3500px разрешение 300dpi.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A115B7AD181ECE0AEF24E10019DE316BD48872FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475237   (1012360) от 06.06.2021
-
-Экшены - Creative Market - Hard Oil Painting Photoshop Action - 5676840 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Oil Painting - картина маслом, без особого усилия данное действие фотошоп превратит ваши изображения в шедевр художественного полотна. Лёгкость в настройках для улучшения конечного результата. Для достижения наилучшего результата используйте фотографию в диапазоне 2000-3000px или 3000-2000px, 300dpi.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06548779DBC7BA68D544A9E0DDCB435F794E0C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475241   (1012354) от 06.06.2021
-
-Экшены - GraphicRiver - Reflection Photoshop Action - 22411366 [ATN, ABR, PAT, GRD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reflection - действие фотошоп в стиле современной графики с эффектом отражения. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата. Рекомендуемое разрешение фотографии от 2000 до 6000 пикселей по большей стороне для лучшего эффекта (оптимальный (   Читать дальше...   )Формат: ATN, ABR, PAT, GRD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F93F1E6E565AC2C7CFA67900C97D25E7076316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475288   (1012342) от 06.06.2021
-
-3D print - Gambody - Gladiator Maximus 3D Printing Figurine | Assembly [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Римский генерал, ставший гладиатором Максимус, продемонстрировал впечатляющие боевые навыки, храбрость, решительность и честь в эпической исторической драме 2000 года Ридли Скотта. 3D-фигурка Gladiator Maximus может похвастаться невероятным уровнем детализации доспехов и руинами Колизея в качестве платформы. Модель для 3D-печати.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DE26FFDCE8B5D2A707D8F8E277D2B2C83DED09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475826   (1012107) от 08.06.2021
-
-Звуковые библиотеки - Soundholder - Cameras [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека звуков содержит звуки 20 различных камер. Все было записано с помощью Sound Devices 702, Rode NTG3 и Oktava MK012. В этой 6-минутной звуковой библиотеке вы найдете звуки различных затворов камеры, рычагов продвижения пленки, обработки шумов, автоспуска, механизмов автофокусировки, нажатия кнопок и вращающихся дисков. В записи задействованы модели камер (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CE25DF9A4A35594118EC5FC1481748F2FB94E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475944   (1011985) от 09.06.2021
-
-3D модели - Hum3D - BelAZ 75180 Dump Truck 2014 [FBX, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011985.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BelAZФормат: FBX, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41F3267997FE525F279603D88DC3E5E12804542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475946   (1011977) от 09.06.2021
-
-3D модели - Hum3D - BelAZ 75710 Dump Truck 2013 [FBX, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011977.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BelAZФормат: FBX, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A4C7D20E0A64508A1E744D3C3B7F88F7923B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475915   (1011954) от 09.06.2021
-
-Звуковые библиотеки - Noiiz - Cinematic SFX [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinematic SFX от Samplephonics - это разнообразная и многогранная библиотека звуковых эффектов, которая была разработана с упором на универсальность. Идеально подходит для украшения и обогащения вашего следующего произведения, это чрезвычайно полезный производственный инструмент для создания мультимедийной музыки, саундтреков или современной электронной музыки. Этот (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B36E420870771C5F7979EB03F94F0EEF16AD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475939   (1011942) от 09.06.2021
-
-3D модели - BMW 6 Series Gran Turismo M-Sport with HQ interior 2017 [3DS, C4D, FBX, LWO, MAX, OBJ, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011942.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BMWФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A716A732C9C99BB34BB0A452393BE40391EDDA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475954   (1011933) от 09.06.2021
-
-3D модели - 3ddd - Audi Q8 2019 [Corona|V-Ray|*.max, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011933.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель Audi Q8 2019 с анимацией.Формат: Corona|V-Ray|*.max, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFE838551FD80F9530E419D21E389992A2ABAF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

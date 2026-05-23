@@ -1,3 +1,90 @@
+###  Публикация: 1819511   (1413) от 22.09.2025
+
+Velial Squad - Бельмо (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Пёс [00:01:50]
+02. Ночной Дозор [00:02:49]
+03. Зарисовка [00:02:04]
+04. Каждый День [00:02:13](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9667BFEB9F459595F14BF7A8394AE644C87189FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819440   (1412) от 22.09.2025
+
+Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Metalcore, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Malevolence — английская металкор-группа, образованная в Шеффилде, Южный Йоркшир, в 2010 году.2013 - Reign Of Suffering
+2017 - Self Supremacy
+2022 - Malicious Inten
+2025 - Where Only The Truth Is SpokenЖанр: Groove Metal, Metalcore, HardcoreПродолжительность: 03:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819434   (1410) от 22.09.2025
+
+The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Crown - метал-группа из Тролльхеттана, Швеция, действует с 1990 года.1995 - The Burning
+1997 - Eternal Death
+1998 - Hell Is Here
+2000 - Deathrace KingЖанр: Melodic Death/Thrash MetalПродолжительность: 11:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5BB30CC681B13E9ED75B758874BD1F3347BFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819554   (1285) от 23.09.2025
 
 Fуanor - Hellhammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Fуanor - Hellhammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Elkie Brooks - Pearls (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Niikto - Nocturnal Emissions II (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dark
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Volan - Конец (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <melodic-hardcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Thy Art Is Murder - Studio Albums (7 releases) (2008-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +238,7 @@ VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -178,7 +265,7 @@ Robert Plant - Saving Grace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -207,7 +294,7 @@ Amorphis - Borderland (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Deat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -236,7 +323,7 @@ Rage - A New World Rising (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -265,7 +352,7 @@ The Vintage Caravan - Portals (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +381,7 @@ Mors Principium Est - Darkness Invisible (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +410,7 @@ Emilia Quinn - Dented Halos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +439,7 @@ ZZ Ward - Liberation (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +468,7 @@ Paradox - Mysterium (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +497,7 @@ Sigma Wolf Initiative - Blues of the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -439,7 +526,7 @@ Peter O'Mara - Avenue U (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -468,7 +555,7 @@ Mike Andersen - All Out Of Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -497,7 +584,7 @@ Bill Evans / Jim Hall - Waltz for Debby and Other Melodies (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +613,7 @@ Sycamore Sisters - Out Of The Cage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +642,7 @@ Crematory - Believe (2000) Reissue 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +671,7 @@ Karina Kozhevnikova & Krugly Band - Polyphonic Circle (2025) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -613,7 +700,7 @@ Dave Weld & The Imperial Flames - Bluesin' Through the Years (Remastered) (2025)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -642,7 +729,7 @@ Filippo Bianchini - Mood Indigo (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -656,93 +743,6 @@ Filippo Bianchini - Mood Indigo (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149B3AF7E4AD28600407048F5FDBB2728AFF6550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646462   (864) от 26.09.2025
-
-Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rage — немецкая хэви-метал группа, основанная в 1984 году Петером «Пиви» Вагнером. Они представляли собой часть немецкой хэви-/спид-/пауэр-метал сцены, зародившейся в начале-середине 1980-х годов, и входят в «большую четвёрку» этой сцены наряду с Grave Digger, Helloween и Running Wild.1985 - Prayers Of Steel (as Avanger)
-1986 - Reign Of Fear
-1987 - Execution Guaranteed
-1988 - Perfect Man(   Читать дальше...   )Жанр: Heavy/Speed/Power MetalПродолжительность: 34:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCB17C237F91FE3648F97A1BD11C93E048F2391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633139   (858) от 26.09.2025
-
-Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paradox — немецкая метал-группа, образованная в Вюрцбурге в 1986 году.1987 - Product of Imagination
-1989 - Heresy
-2000 - Collision Course
-2008 - ElectrifyЖанр: Progressive Thrash/Power/Speed MetalПродолжительность: 08:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820092   (814) от 26.09.2025
-
-Ana Popovic - Dance To The Rhythm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance to the Rhythm (4:11)
-02. Worked Up (3:07)
-03. 50 Ways to Leave Your Lover (4:34)
-04. California Chase (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775CB28BBD894985C289134FB8CD072E29418DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

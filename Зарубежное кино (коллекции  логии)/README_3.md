@@ -1,3 +1,55 @@
+###  Публикация: 547793   (931147) от 13.03.2013
+
+Сумерки.Сага: Квадрология / Twilight. Saga: Quadrology (2008-2012) BDRip [H.264]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Белла, став вампиром, постепенно свыкается со своей новой природой. В этом ей помогают Эдвард и остальные члены семьи Калленов. К тому же теперь у Беллы есть дочь Ренесми и вечность впереди. Джейкоб, запечатленный с Ренесми, становится для девочки другом и наставником. Ненадолго для героев наступают спокойные, счастливые дни. Все заканчивается, когда вести о Ренесми (   Читать дальше...   )Производство: СШАЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Тэйлор Лотнер, Питер Фачинелли, Элизабет Ризер, Эшли Грин, Джексон Рэтбоун, Келлан Латс, Никки Рид, Билли БёркПеревод: ДубляжПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE275D78257CADA1CCE0176BF05093ADA9BC433E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093661   (930140) от 17.01.2017
+
+Зачётный препод / Fack ju Gohte (2013,2015) BDRip [H.264/1080p-LQ] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бывший грабитель, а ныне крутой препод в школе Гёте, Зеки Мюллер, обрел популярность среди учеников благодаря нетрадиционным методам преподавания. Не успел он заскучать, заполняя классные журналы и проверяя тетради, как его вовлекли в «войну школ»: для того, чтобы получить статус престижного учебного заведения, необходимо съездить с коррекционным классом старшеклассников (   Читать дальше...   )Производство: ГерманияЖанр: КомедияРежиссер: Бора ДагтекинАктеры: Элиас ЭмБарек, Йелла Хаазе, Каролине Херфурт, Катя Риман, Макс фон Гробен, Гизем Эмре, Арам Арами, Анна-Лена Кленке, Лукас Райбер, Руна ГрайнерПеревод: ДублированныйПродолжительность: 01:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59F8E2D17BE6CFEE0D5F1A6BE6ACBF496B6576F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285186   (929965) от 24.01.2011
 
 Назад в будущее / Back to the Future (1985,1989,1990) BDRip [1080p] [Trilogy]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +453,7 @@ Zомбилэнд / Zombieland (2009, 2019) UHD BDRemux [H.265/2160p] [4K, HDR, 
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C223983BD39D9B0F3DA4372443F62427CB9C4D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341705   (893313) от 04.09.2021
-
-Фантоцци / Fantozzi (1975-1999) DVDRemux [Антология]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893313.jpg" />
-</div>
-
-
-###  Подробнее
-
-По книгам Паоло Вилладжо. Популярнейший итальянский комик сам придумал Уго Фантоцци, среднего итальянца, невезучего, милого балбеса, ставшего героем комедии на долгие годы.Производство: Италия / Rizzoli Film S.p.a., Maura International Films, Reteitalia, Scena FilmЖанр: КомедияРежиссер: Лучиано Салче , Нери Паренти, Паоло ВилладжоАктеры: Паоло Вилладжо, Анна Маццамауро, Джиджи Редер, Джузеппе Анатрелли, Умберто Д’Орси, Лью Босисио, Дино Эмануэлли, Плинио Фернандо, Паоло ПаолониПеревод: Дублированный, многоголосый, двухголосый, авторский, одноголосыйЯзык озвучки: Русский, украинский, итальянскийСубтитры: Русские, итальянскиеПродолжительность: 01:43:21 / 01:44:59 / 01:33:34 / 01:23:47 / 01:29:40 / 01:34:36 / 01:22:19 / 01:32:31 / 01:36:59 / 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85F069A50426A3E3BC7D9881455598F1BB709F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868276   (891967) от 14.02.2015
-
-Ганнибал Лектер: Коллекция / Hannibal Lecter Collection (1986-2007) BDRip [1080p]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия фильмов о докторе Лектере — чрезвычайно выдающемся, образованном психиатре и хирурге, одновременно чудовищном серийным убийцей, практикующем на своих жертвах каннибализм...Производство: Великобритания, Чехия, Франция, Италия / Young Hannibal Productions, Dino De Laurentiis Productions, Carthago Films S.a.r.l.Жанр: Триллер, драма, криминалРежиссер: Питер ВебберАктеры: Гаспар Ульель, Гун Ли, Рис Иванс, Доминик Уэст, Кевин МакКидд, Ингеборга Дапкунайте, Ричард Лиф, Ааран Томас, Хелена Лиа Тачовска, Мишель ВэйдПеревод: Дублированный Парадиз + Профессиональный (многоголосый, закадровый) Киномания + Авторский (одноголосый, закадровый) С. Рябов + ОригиналСубтитры: РусскиеПродолжительность: 2:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD075433272C70552E84487BD19BFB670479B56
 ```
 
 https://mybot314.ru/tekegram_catalog/

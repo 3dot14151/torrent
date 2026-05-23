@@ -1,3 +1,110 @@
+###  Публикация: 1478552   (1010179) от 20.06.2021
+
+Пётр Малков (авт.-сост.) | Пятидесятница (день Святой Троицы) и сошествие Святого Духа. Антология святоотеческих проповедей (2019) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Антология святоотеческих творений на праздник Пятидесятницы и сошествие Святого Духа включает произведения разных традиций и эпох, византийских, латинских и русских авторов — от святителя Григория Нисского до святителя Луки Крымского. Издание предваряет вводная статья П. Ю. Малкова, призванная в ясной и доступной форме познакомить читателя с важнейшими богословскими (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93329661D80F8A251E37C858F0856992AE42DB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479149   (1009717) от 23.06.2021
+
+Л.А. Ильюнина (сост.) | Старец протоиерей Николай Гурьянов. Жизнеописание. Воспоминания. Письма (2014) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+От батюшки исходил свет и тепло, и всегда чувствовалось неземное происхождение этой силы, освещающей и согревающей души людей. А внешне он был необычайно скромен. Ходил всегда в стареньком выцветшем подряснике, в такой же скуфеечке, а в то время, когда ещё путешествовал — уезжал с острова для встречи с духовными чадами и друзьями, его видели в стареньком беретике, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5FE91786F26E8E5709009668F5C505DFF617B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479644   (1009326) от 26.06.2021
+
+Храм Рождества Пресвятой Богородицы (изд.) | Помоги Господи! 160 ответов на вопросы новоначальных христиан (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит ответы на вопросы новоначальных христиан.
+
+Что такое грех?
+Грех — это всё то, что делает нас противниками Богу, что разлучает нас с Богом: наши дурные мысли, слова, поступки. Почему же всё это так ненавистно Господу? Потому что одно из Его имён — Бог Любви. Любой грех — это в итоге нарушение закона любви к Богу или к ближнему. Поэтому так важно наше (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EA7B5145FC0DFDB52E398F868E8E138F048CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481393   (1008287) от 03.07.2021
+
+Мустафа Акийол | Исламский Иисус. Как Царь Иудейский стал у мусульман пророком (2019) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Поразительные связи между иудейским, христианским и исламским взглядами на Иисуса – одна из ключевых загадок в истории религии. То, что говорят об Иисусе и его матери Марии Библия и Коран, а также апокрифические источники, во многом разнится, и в то же время три великие авраамические религии в нашем раздираемом противоречиями мире, несмотря на все споры и напряжение (   Читать дальше...   )Жанр: Зарубежная религиозная литература, История религийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71608976E9572B33C497DD3BED86B702073B4D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481581   (1008176) от 04.07.2021
 
 Иеромонах Киприан (сост.) | Ищите Царствия Божия (2003) [PDF, DJVU]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -118,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -144,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -170,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -224,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -408,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -434,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -460,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -538,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -577,110 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BE59CA4D952E16E123555E837DE1CEF8267760C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350704   (1002996) от 07.01.2020
-
-Л.А. Чуткова (сост.) | Дары волхвов (2014) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождество Христово — это событие, которое изменило весь ход человеческой истории. Не удивительно, что христиане с особенным трепетом относятся ко всему, что связано с Рождественской ночью. «Христос Рождается — Славьте!» Мы Славим Его вместе с пришедшими к Святому Семейству пастухами и восточными мудрецами. Кто же были эти древние волхвы, откуда они родом, что за (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2084F541764695C844A9B24656A909EACA5798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350913   (1002759) от 08.01.2020
-
-Сибирская Благозвонница (изд.) | Благочестие апостольское: О благочестии и жизни христианской по «Постановлениям святых апостолов» (2015) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002759.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Постановления святых апостолов» — древний памятник христианской письменности, который православное Предание возводит к самим основателям первых Поместных Церквей — двенадцати ученикам Христовым. Несмотря на несколько редакций, которые они претерпели с I по IV век, «Постановления» сохранили подлинный апостольский дух и с древности пользовались огромным авторитетом (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F6D1F93004CC9FC5E9B4CB7DEB1721D5CB0E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488075   (1002592) от 09.08.2021
-
-Е. Гончаров | Помоги своей душе (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002592.jpg" />
-</div>
-
-
-###  Подробнее
-
-В круговороте бурных дней люди ищут счастья в деньгах, материальных предметах, семье, но, остановившись, обнаруживают, что для полного счастья им всё равно чего-то не хватает, что всё достигнутое - это вовсе не то счастье, о котором они мечтали. Техника ломается, любимые стареют и уходят, здоровье с каждым годом всё хуже. Так, может, и нет его, этого настоящего счастья, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CB3B146511FBC9FF1FD366EBC5A6F85C584224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488561   (1001761) от 12.08.2021
-
-Православное издательство Вера | Святой преподобный Александр Свирский (2004) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дважды за всю историю человечества открывался Троичный Бог телесному человеческому взору - в первый раз святому Аврааму у Мамврийского дуба, знаменуя великое милосердие Божие к роду человеческому; второй раз - на русской земле святому преподобному Александру Свирскому. Что значило это явление новозаветному святому - не будем дерзать отвечать. Только будем стремиться (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE56A858FA29E7FACDA798AEC306882CEF1A01C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1686377   (126720) от 22.12.2023
+
+Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack Decepticon [Limited Edition]
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed Hot Pursuit - это ваш пропуск в новый открытый мир за руль самых быстрых и прекрасных автомобилей на свете. Созданная отмеченной многочисленными наградами студией Criterion, разработчиком игр серии Burnout, Hot Pursuit дает начало новому поколению жанра автогонок. Вам предстоит испытать на себе ошеломительные скорости, задержания и побеги, сражаясь (   Читать дальше...   )Тип издания: RepackРазработчик: Criterion StudiosЖанр: Racing, SimulatorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C4CEB4778A8D511FF6F48D1868F37CFD44450A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686182   (126691) от 22.12.2023
 
 Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
@@ -6,7 +32,7 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364/dlc) Repack Decepticon [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Bootlegger's Mafia Racing Story (2024) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ MUD: FIM Motocross World Championship (L) [Multi5/-] 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Colin McRae Rally + DiRT Antology (1998-2015) [Ru/En] (1.5/1.09/1.1/1.01/1.01/1.
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +346,7 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +372,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +398,7 @@ Police Force (RePack) [Ru] 2012 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +424,7 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +452,7 @@ Gran Turismo 3 A-spec (RePack/Emul) [Ru/En] 2001 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +478,7 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +504,7 @@ F1 2010 Fans Edition [Ru/Mod] (RePack/1.01) 2010 l Naitro
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +530,7 @@ Ridge Racer Unbounded [Multi6/+] (L) 2012 l SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +558,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +584,7 @@ Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +610,7 @@ Road Rash [En] (RePack) 1996 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +636,7 @@ Pure [Ru] (RePack) 2008 | Naitro
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -636,7 +662,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -647,32 +673,6 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DB5DBBCB0756152282E40798598C445F7B380C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695545   (60721) от 05.04.2024
-
-Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Scene Rune
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assetto Corsa Competizione - продолжение реалистичного гоночного симулятора Assetto Corsa, посвященного соревнованию Blancpain GT, которое ежегодно организовывает автомобитестроительная корпорация SRO Motorsports Group. В игре вас ожидает невероятная графика и фотореалистичные погодные условия, что позволят максимально погрузиться в атмосферу высокоскоростного гоночного (   Читать дальше...   )Тип издания: SceneРазработчик: Kunos SimulazioniЖанр: Simulator, Racing, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Французский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7CA3F9B0EB733C6E2C7C3B1FF53F9AC2978B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

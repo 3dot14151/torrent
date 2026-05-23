@@ -1,3 +1,108 @@
+###  Публикация: 1165282   (403752) от 26.09.2017
+
+Откройте, полиция! / Les ripoux (1984) BDRip[H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Опытный полицейский-пройдоха Рене обучает хитростям мошенничества своего юного напарника-идеалиста Франсуа. Напарник так входит в раж, что затмевает своего насквозь коррумпированного наставника.Производство: Франция / Films 7Жанр: Комедия, КриминалРежиссер: Клод ЗидиАктеры: Филипп Нуаре, Тьерри Лермитт, Режин, Грейс Де Капитани, Клод Броссе, Альбер Симоно, Жюльен Гиомар, Анри Атталь, Абу Бакар, Пьер БатонПеревод: Дублированный, многоголосый закадровый, авторскийСубтитры: РусскиеПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDCACBC462EDD6461A10AAB1C4500936A5F3225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 397931   (403485) от 09.10.2011
+
+Семь невест для семи братьев / Seven Brides For Seven Brothers (1954) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Семь крепких парней живут среди высоких деревьев дремучего леса Орегоны. Их быт и нравы просты, а о приличных манерах и как себя нужно вести в обществе они вообще не слышали. Однажды старший из братьев — Адам приводит в их «холостяцкую берлогу» свою очаровательную невесту.
+Милли — воспитанной городской девушке с крепкими нервами и железным характером суждено укротить (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, Драма, Мелодрама, Комедия, ВестернРежиссер: Стенли ДоненАктеры: Ховард Кил, Джейн Пауэлл, Джефф Ричардс, Расс Тэмблин, Томми Ралл, Марк Платт, Мэтт Мэттокс, Жак д’Амбуаз, Джули Ньюмар, Нэнси Килгас, Бетти Карр, Вирджиния Гибсон, Рута Ли, Норма Доджетт, Йен ВульфПеревод: Дублированный (СССР)Продолжительность: 01:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B299CED812F5936C24D69792897F76B10EB7D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166071   (402984) от 27.09.2017
+
+Частный детектив / L'alpagueur (1976) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Частному детективу Роже Пиляру предстоит найти и разоблачить серийного убийцу по кличке «Ястреб», который использует молодых людей для ограбления банков и ювелирных магазинов, не оставляет никаких следов и убирает сообщников. Но один из них чудом остался жив…Производство: Франция / Cerito FilmsЖанр: Боевик, Триллер, КриминалРежиссер: Филипп ЛаброАктеры: Жан-Поль Бельмондо, Бруно Кремер, Жан Негрони, Патрик Фьерри, Жан-Пьер Жорри, Виктор Гарривье, Клод Броссе, Марсель Имхофф, Морис Озель, Мюриэль БельмондоПеревод: Многоголосый закадровый (НТВ)Субтитры: ОтсутствуютПродолжительность: 01:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BF2DF753DA2D4B38D1E2742A2073F950E18E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 397466   (402772) от 10.10.2011
+
+Битва за Алжир / La battaglia di Algeri (1966) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В центре фильма — события алжирской борьбы за независимость в промежутке между 1954 и 1960 гг., пропущенные через воспоминания находящегося под арестом главного героя.Производство: 1. 	Casbah Film, 2. Igor FilmЖанр: Драма, Военный, ИсторическийРежиссер: Джилло ПонтекорвоАктеры: Брахим Хаджади, Жан Мартен, Язев Саади, Самиа Керьаш, Уго Палетти, Фусия Эль Кадер, Омар, Мохамед Бен Кассен, Мишель Керьаш, Франко МоричиПеревод: Одноголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F51602468089E8C50CE977C384865F9914DCC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166346   (402346) от 28.09.2017
 
 Домой с холма / Home from the Hill (1960) DVDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,111 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C38CA228BB70425A51328A3FB83E1C3FFDE6328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168318   (389633) от 12.10.2017
-
-Апач / Apache (1954) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389633.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пути во Флориду из товарного вагона, куда солдаты Соединенных Штатов загрузили пленных индейцев, сумев освободиться от оков, бежит молодой апач по имени Массаи. Красивый мускулистый воин, после долгих испытаний, наконец, достигнув родных степей, вновь берется за оружие, чтобы отомстить своим бледнолицым врагам.Производство: США / Hecht-Lancaster ProductionsЖанр: ВестернРежиссер: Роберт ОлдричАктеры: Берт Ланкастер, Джин Питерс, Джон МакИнтайр, Чарльз Бронсон, Джон Денер, Пол Гилфойл, Йен МакДональд, Уолтер Сэнд, Моррис Анкрум, Монте БлуПеревод: Многоголосый закадровый (SomeWax)Субтитры: Русские, английскиеПродолжительность: 01:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080AEDB594D5999A283C6E27059FB0C401D4565C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717609   (389347) от 03.11.2013
-
-Девушка моей мечты / Die Frau meiner Traume (1944) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темпераментная и обворожительная «звезда» варьете Юлия решает отдохнуть от поклонников и славы. Но директор театра не разделяет стремления популярной актрисы к уединению — он «категорически против»!
-Зная об этом, любимица публики решает бежать «в отпуск» тайком, и в результате директорских козней и нелепых случайностей оказывается в пути без денег, документов и билета. (   Читать дальше...   )Жанр: Комедия, МузыкальныйРежиссер: Георг ЯкобиАктеры: Марика Рёкк, Вольфганг Лукши, Вальтер Мюллер, Георг Александер, Грета Вайзер, Инге Дрексель, Карл Ханнеманн, Карл Этлингер, Виктор Янсон, Якоб ТидткеПеревод: Многоголосый профессиональный закадровыйПродолжительность: 01:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10658F1B253E3F774E742CD8E2ADDA75ED42D67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717291   (389343) от 03.11.2013
-
-Лев готовится к прыжку / Az oroszlan ugrani keszul (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эсэсовский врач во время войны работал над сывороткой против рака, но выделил страшный яд -одной ампулы хватит, чтобы уничтожить 100 000 человек. Спустя 20 лет после войны старый нацист выходит из тюрьмы, за ним и его открытием начинается охота. Мафия жаждет получить это страшное оружие.Сам он также не прочь воспользоваться смертельными микробами для завоевания мира. (   Читать дальше...   )Жанр: боевик, комедияРежиссер: Дьёрдь РевесВ ролях: Андор Айтаи / Andor Ajtay (Otto Klauberg professzor), Ирен Пшота / Iren Psota (Helga), Иштван Буйтор / Istvan Bujtor (Meno fej), Илона Медвецки / Ilona Medveczky (Klauberg Eva), Йожеф Мадараш / Jozsef Madaras (Godo), Йожеф Сендрё / Jozsef Szendro (Boger), Янош Коош / Janos Koos (Hepi), Маргит Дайка / Margit Dajka (в титрах: Dayka Margit) (Aranka)Перевод: Профессиональный (дублированный)Продолжительность: 01:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4214439A5125E985A3D87B872E0A7EDFD523940F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499104   (387112) от 07.10.2020
-
-Великий Уолдо Пеппер / The Great Waldo Pepper (1975) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшабашный Уолдо Пеппер, лётчик-ас Первой мировой войны, зарабатывает на жизнь выступлениями на авиашоу. Но однажды он встречает в небе своего старого противника — немецкого пилота Эрнста Кесслера…Производство: США, Universal PicturesЖанр: Приключения, драмаРежиссер: Джордж Рой ХиллАктеры: Роберт Редфорд, Бо Свенсон, Бо Брандин, Сьюзен Сарандон, Эдвард Херрманн, Филип Бранс, Родерик Кук, Келли Джина Питерс, Марго Киддер, Скотт НьюманПеревод: Двуголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB3107DD24247E966C1B7F3BAB678800B85F268
 ```
 
 https://mybot314.ru/tekegram_catalog/

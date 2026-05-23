@@ -1,3 +1,109 @@
+###  Публикация: 1355073   (984821) от 25.01.2020
+
+Bishoujo Senshi Sailor Moon Super S | Pretty Soldier Sailor Moon Super S | Красавица-воин Сейлор Мун Супер Эс [1995, TV, 39 из 39] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В городе появился новый цирк. К Усаги в гости опять прибыла Чибиуса. А на людей снова начали нападать демоны. На этот раз их целью является поймать Пегаса/Гелиоса, хранителя Золотого кристалла и королевства Земли — Иллюзиона. Полумифическое существо, он скрывается в самом чистом из человеческих мечтаний…Производство: Toei Animation / 東映アニメーションЖанр: приключения, комедия, махо-сёдзёРежиссер: Икухара КунихикоПеревод: AlexMalkavian, Ze_usЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 39 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA662D03364E7A9406DDB2E48D6B47BF2E57CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355065   (984818) от 25.01.2020
+
+Bishoujo Senshi Sailor Moon R | Pretty Soldier Sailor Moon R | Красавица-воин Сейлор Мун Эр [1993, TV, 43 из 43] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение ТВ-сериала "Красавица-воин Сейлор Мун".
+Первые тринадцать серий - Сейлор-воины сражаются с Эйл и Энн, "детьми Адского Древа", пришельцами из космоса.
+Остальные серии - Сейлор-воины сражаются с династией Темной Луны. Появляется Малышка Усаги - дочь Усаги, прибывшая в современный Токио из будущего. Ненадолго появляется Сейлор Плутон.Производство: Toei Animation / 東映アニメーションЖанр: приключения, комедия, махо-сёдзёРежиссер: Сато ДзюнъитиПеревод: Юрий Яворовский, RazdorЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 43 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7832F5CB0706EC81E5AAE8DE7D6AA4FFAE5520F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355080   (984763) от 25.01.2020
+
+Bishoujo Senshi Sailor Moon Sailor Stars | Pretty Soldier Sailor Moon Sailor Stars | Красавица-воин Сейлор Мун: Сейлор-звезды [1996, TV, 34 из 34] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В начале сезона выясняется, что предыдущие враги не погибли полностью и необходимо закончить начатое. Вскоре на планету прибывает трое сейлор-воинов из другой системы и маленькая девочка по имени Чиби-чиби, которая прилетела на зонтике с небес. Они ищут свою принцессу, бежавшую из их родного мира, захваченного Галаксией, разыскивающей звёздные семена и новой целью (   Читать дальше...   )Производство: Toei Animation / 東映アニメーションЖанр: махо-сёдзё, приключения, комедияРежиссер: Игараси ТакуяПеревод: AlexMalkavian, Cheb, Ze_usЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 34 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2B4FB1BB4F060F3944F8A07F6B79CE4EBCACE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355083   (984759) от 25.01.2020
+
+Bishoujo Senshi Sailor Moon Crystal Season III | Pretty Soldier Sailor Moon Crystal Season III | Красавица-воин Сейлор Мун: Кристалл 3 [2016, TV, 13 из 13] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Очередной сезон новой экранизации оригинальной манги Bishoujo Senshi Sailor Moon Crystal, охватывающий её третью арку.Производство: Toei Animation / 東映アニメーションЖанр: приключения, махо-сёдзёРежиссер: Кон ТиакиПеревод: Nisikino, Kotori-tyanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C6562F82435212320955160B94A2877770A895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345856   (984487) от 25.01.2020
 
 Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращение и покажи трусики 2 [2019, OVA, 6] WEBRip 720p raw
@@ -6,7 +112,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +139,7 @@ Big Order / Приказ свыше [2015, OVA, 1] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +166,7 @@ Chaos;Head / Хаос;Вершина [2008, TV, 12] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +194,7 @@ Zetsumetsu Kigu Shoujo: Amazing Twins | Разрушительные опасн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +220,7 @@ Gingitsune: Messenger Fox of the Gods | Серебряный Лис [2013, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +246,7 @@ Hibike! Euphonium | Sound! Euphonium | Играй, Эуфониум! [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +272,7 @@ Dance with Devils / Танец с дьяволами [2015, TV, 12 из 12] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +300,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай Грисайи [2015, TV, 10 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +326,7 @@ Dragon Ball Z Movies / Драгонболл Z Фильмы [1989 - 2015, Movie, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +352,7 @@ Upotte!! / Шмальнём!! [2012, ONA, 10] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +380,7 @@ Dragon Ball Movie / Драгонболл: фильмы [1986-1996, MV] DVDrip 72
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +406,7 @@ Saint Seiya(Jashin Eris|Kamigami no Atsuki Tatakai|Shinku no Shounen Densets|Sai
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +434,7 @@ Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +460,7 @@ Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +486,7 @@ Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёно
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +512,7 @@ Hellsing Ultimate / Хеллсинг OVA [2006, OVA, 10 из 10] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +546,7 @@ Haja Taisei Dangaiou | Dangaioh: Hyper-Combat Unit | Гигантский зве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -466,7 +572,7 @@ Katanagatari / Sword Stories / Истории мечей [2010, OVA, 12 сери
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -494,7 +600,7 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс Убийц [ТВ-1] [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -521,7 +627,7 @@ Etotama / Eto Tamashii / История одной кошечки [2015, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -547,7 +653,7 @@ Mushishi Tokubetsu-hen: Hihamukage / Мастер Муси [2014, TV-sp, 1 ep.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -575,7 +681,7 @@ Trinity Blood | Кровь Триединства [2010, TV, 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,112 +692,6 @@ Trinity Blood | Кровь Триединства [2010, TV, 24] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4323F36C5470892C98FB1E95AB85B77E6CF1968A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357998   (970555) от 06.02.2020
-
-Kandagawa Jet Girls: Tokyo Girls Take a Shot at Promotions | Кандагава: Девушки на гидроциклах OVA [2020, OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая история о том, как героини сериала снимали рекламный ролик о своём любимом виде спорта.
-
-Бонусный диск от игры "Kandagawa Jet Girls' DX Jet Pack" для PS4.Жанр: эччи, комедияПеревод: TiredGirlЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4899645A123B9E50C4E9E02C6D72BA981FC445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618086   (970545) от 13.02.2013
-
-Tatakae! Iczer-1 / Bouken! Iczer 3 / Sen-shoujo Iczelion [1985,1990,1995, OVA] DVDRip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боевичок про "девушек в доспехах" , защищающих нашу родную планету от чудиков (ктулху жеж, они такие), решивших уничтожить все планеты вселенной одну за другой... Собственно тут они и добрались до Земли, где и разворачивается всё это действо.Жанр: приключения, меха, фантастикаРежиссер: Хирано Тосики / Hirano ToshikiПеревод: AlexMalkavianЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (2 эп.), 30 мин
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976522   (968456) от 18.01.2016
-
-Fate/Stay Night: Unlimited Blade Works (2015) | Судьба: Ночь схватки. Клинков бесконечный край [ТВ-2] [2015, TV + special, 13 + 1] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968456.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городке Фуюки вдали от людских глаз кипит Пятая магическая война за Святой Грааль. Начало игры позади, участники давно понесли первые потери, и даже наивный новичок Сиро Эмия начал понимать, что правил и обязательств в смертельной борьбе нет – за исключением тех, что добровольно принимают на себя Мастера и призванные героические духи. Не зря сказано: «по делам (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Миура Такахиро / Miura Takahiro / 三浦貴博Продолжительность: 13 эпизодов + special по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DFBB1DBBF79B0BCCD78D756AF455697ACE4961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947902   (967398) от 19.01.2016
-
-Sakurako-san no Ashimoto ni wa Shitai ga Umatteiru / Труп под ногами Сакурако [2015, TV, 12] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотаро Татэваки — самый обычный и заурядный старшеклассник, проживающий в городе Асахикава, префектура Хоккайдо. Однажды ему повезло встретить загадочную и неординарную особу по имени Сакурако Куджо. К неординарности Сакурако можно приписать ее странное увлечение: она без ума от костей и готова тратить часы напролет, выискивая новые экземпляры или ухаживая за уже (   Читать дальше...   )Производство: TroycaЖанр: приключения, мистикаРежиссер: Като МакотоПеревод: AleX_MytH, Seiya Loveless (Timecraft) | Advokat, chainsaws, Kekcelt (Antravoco)Субтитры: ASSФормат: MKVПродолжительность: 12 серий по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61F3D6EFD6A7EB3982F1CE9AB1BE178167AC882
 ```
 
 https://mybot314.ru/tekegram_catalog/

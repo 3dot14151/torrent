@@ -1,25 +1,22 @@
-###  Публикация: 1011917   (795687) от 29.04.2016
+###  Публикация: 1011030   (797525) от 26.04.2016
 
-George Adams & Don Pullen Quartet - Life Line (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+Михаил Барятинский | Pz.IV Лучший танк Гитлера в 3D – во всех проекциях и деталях (2013) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01.The Great Escape, or Run John Henry Run [04:43]
- 02.Seriously Speaking [08:03]
- 03.Soft Seas [07:21]
- 04.Nature's Children [09:49](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:41:07
+От издателя: Вопреки советским мифам, большую часть Великой Отечественной на поле боя господствовали не хваленые Т-34, а гитлеровские панцеры. И речь не о «Тиграх» и «Пантерах», а о самом массовом немецком танке Pz.IV. С весны 1942 года, когда на «четверку» была установлена длинноствольная пушка, и до весны 44-го этот танк по совокупности боевых характеристик превосходил (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0803FD4C1344A4C8F9E4ED76F3FB3E9CC5442DC7
+magnet:?xt=urn:btih:10D72D146E48496AB1AEDDF19CEDF5EE9C26D488
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011890   (795686) от 29.04.2016
+###  Публикация: 1010966   (797524) от 26.04.2016
 
-Футбол. Лига Европы 2015-2016. 1/2 финала. Первый матч. Вильярреал (Испания) - Ливерпуль (Англия). (28.04.2016) HDTVRip [H.264/720p-LQ]
+Следователь Тихонов (2016) WEBRip (серии 1-20 из 20)
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-28 апреля 2016, четверг. 22:05 МСК
-1/2 финала. 1-й матч
-
-Стадион: Эль-Мадригал (Вильярреал, Испания) , вместимость: 25000(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Роман Трушечкин, Михаил Моссаковский)Продолжительность: 01:48:36
+Станислав Тихонов следователь по особо важным делам московского уголовного розыска. Вместе со своей оперативной группой Тихонов расследует самые громкие преступления, совершенные в 1970-х годах. Среди них похищение бесценной скрипки Страдивари, исчезновение метапроптизола — уникального «лекарства против страха», вывоз контрабандой ордена Святого Александра Невского.Сложные, (   Читать дальше...   )Производство: Россия / "Нон-Стоп Продакшн"Жанр: Детектив, КриминалРежиссер: Сергей Снежкин, Эдуард ОганесянАктеры: Михаил Ефремов, Юрий Ицков, Сергей Шакуров, Светлана Иванова, Виктория Толстоганова, Аглая Тарасова, Евгений Харланов, Мария Миронова, Фёдор Бондарчук, Сергей Гармаш и др.Продолжительность: ~ 00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDBEE376AFED537B4B202C20F1D090E32B76B90F
+magnet:?xt=urn:btih:BB142D8719E16BADD6027945338468DB683844A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,140 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011967   (795685) от 29.04.2016
+###  Публикация: 1010982   (797523) от 26.04.2016
 
-Javier Colina & Antonio Serrano - Colina Serrano Project (2009) Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.El blues de la alegria [04:59]
- 02.El comandante [08:41]
- 03.Estudio [11:58]
- 04.Zyryab [07:51](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C7017E177C3495CEB2D4AD31404E1DD6734A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011923   (795684) от 29.04.2016
-
-Azie Mortimer - Feeling Of Jazz (1963) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Feeling Of Jazz [03:03]
- 02.Lover Man (Oh Where Can You Be) [03:09]
- 03.Capricious [02:25]
- 04.Whisper Not [02:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B66C2B8FC2DCFA356A33B5047251ACF35CB2EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011924   (795683) от 29.04.2016
-
-VA - Modern Lounge Lyric (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795683.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matt Lovers - Analogamente
-002. Michel Haimann - Rain
-003. Dee Lice - Derize - Chill Groovers Mix
-004. Scar - Fazer(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8536C8E9AA44067A6D9B1C86E93483614077403D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012006   (795682) от 29.04.2016
-
-Анатолий Вассерман. Открытым текстом (29.04.2016) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Александрович Вассерман — журналист, политический консультант, известен как многократный победитель интеллектуальных телеигр в программе «Новости24. Открытым текстом» за 10 минут даёт свой обзор главного в прошедшей неделе...Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07E687C3FF97A9F0E77B7BF7D48C66CDF8A7979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012105   (795681) от 29.04.2016
-
-Гордей Щеглов | История и чудеса Васьковской иконы Божией Матери (2013) [FB2]
+Игорь Слуцкий | Самый полный справочник птицевода (2016) [FB2]
 
 >>Разное (категория книг)
->>Религиозная литература
+>>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено истории одной из белорусских местночтимых чудотворных икон Божией Матери, в настоящее время считающейся утраченной. В книге описаны история явления и последующая судьба иконы, а также многочисленные случаи проявления ее благодатной силы — поразительные факты чудесных исцелений.
-
-Издание рассчитано на широкий круг читателей, интересующихся христианскими (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2
+Мясо, яйца, перо и пух - все это вы сможете получить, разводя кур, уток, гусей, индеек, перепелов и таких экзотических птиц, как страусы. В книге содержатся необходимые сведения об особенностях разведения домашней птицы и организации правильного ухода за ней. Приведенные рекомендации будут особенно полезны для фермеров, которые только планируют заняться разведением (   Читать дальше...   )Жанр: Приусадебное хозяйство, птицеводствоФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F25059B684723B1A59073E365D8E49FCF8A73B04
+magnet:?xt=urn:btih:B556B79CCD9C12A64BF6CC50BDAA382010E19C91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011931   (795680) от 29.04.2016
+###  Публикация: 1010917   (797522) от 26.04.2016
 
-VA - Neon Adrenaline Trance (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
+Проекты - VideoHive - Electric Impulse Shine Logo - 7929735 [AEP]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Проекты
+>>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-001. Ciro Visone - The Drive (Glynn Alan Remix) 08:37
-002. Omniks And Eufonica - Adelia (R3dub Rmx) 07:49
-003. Smith & Robbo - Start Again (James Allan Remix) (feat. McCallion) 06:44
-004. Lema & Shafer Ft Roxanne Emery - Summer Air (Chris Metcalfe Remix) 07:12(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:38:03
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4D07E7A2BA545CBE6B06EB9297AB8184B29A84A
+magnet:?xt=urn:btih:2CFFC3B639070055E571D68994744B4A423E5960
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,55 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509150   (795679) от 11.11.2021
+###  Публикация: 1508423   (797521) от 08.11.2021
 
-VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 2 (2016) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANDY FOSFORO - Research (2:51)
-02. Balearic Lounge Orchestra - Oriental Bazar (Original Mix) (5:25)
-03. Slow Motion Project - Play the Bass (Original Mix) (5:37)
-04. Tim Carvalho - Black & Light (Original Mix) (6:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5744ED011424833D68A2FC3612DC06383FC6B12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509072   (795678) от 11.11.2021
-
-Nova 8.1 [En]
+Default Folder X 5.6.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
-Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 Panic, IncПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: © 2021 St. Clair SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FA1C1A6E9D46CC0F10D44F379820CA8EA9527E2
+magnet:?xt=urn:btih:74E9ACE52F54EFE7D05F8119B42F5F8547E7F6BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +128,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509120   (795677) от 11.11.2021
+###  Публикация: 1508426   (797520) от 08.11.2021
 
-Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+Dragonland - Under The Grey Banner (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Ilmarion
+02. Shadow Of The Mithril Mountains
+03. The Tempest
+04. A Thousand Towers White(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2471CDAFE1216999C9DDF61A48B56A76B3B9263E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508372   (797519) от 08.11.2021
+
+Joe Henderson - 5 Original Albums (1964 - 1985) 5CD, 2016, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. 'Round Midnight [4:58]
-02. Yesterdays [3:20]
-03. The End of a Love Affair [3:18](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:36:55
+CD1- Our Thing:
+01. Teeter Totter [8:33]
+02. Pedro's Time [10:05]
+03. Our Thing [5:36](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 03:31:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D9907EBCE1A1CD2B7596DB91998670401AA0956
+magnet:?xt=urn:btih:5200DEA74EECAE3E3F8DF10352A11DBF6FFA64F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +186,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509219   (795676) от 11.11.2021
+###  Публикация: 1508535   (797518) от 08.11.2021
 
-VA - Balearic Bar & Beach Tunes (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+DJ Licious - Tomorrowland Friendship Mix (2021-11-04) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Roberto Bronco - City Lights (Original Mix) (6:03)
-02. Lounge Groove Avenue - Te Quiero (Original Mix) (4:07)
-03. Patiotic - Hold Me (Original Mix) (4:32)
-04. Corrado Saija - Kalakuta (Original Mix) (7:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:13
+01. DJ Licious - I Hear You Calling
+02. The Weeknd vs. DJ Licious - Blinding Lights vs. Atmosphere (DJ Licious Mashup)
+03. DJ Licious ft. Clairy Browne - I Don't Wanna Know
+04. Noizu & Disciples ft. MOYA (Vocalist) - Catch My Love(   Читать дальше...   )Жанр: Dance, Electro Pop, Tech HouseПродолжительность: 01:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE6BFFF2290D8A36BA80E2E04B8BC9607E7A62C4
+magnet:?xt=urn:btih:6C350A70971D2BE9D678E0FD27C318BA9B0CD797
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,25 +215,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509189   (795675) от 11.11.2021
+###  Публикация: 1508388   (797517) от 08.11.2021
 
-Журнал | Street Trucks [Canada] №11 (ноябрь 2021) [PDF] [En]
+Coherence X 4.0.4 [En]
 
->>Автомобили
->>Автомобильные журналы
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
+Coherence X позволит превратить фактически любой веб сайт в приложение на вашем Mac. Каждая программа создается полностью независимой, изолированной и имеет опции настройки. Основываясь на Chrome, приложение отлично работает фактически со всеми веб сайтами и позволяет вам переносить свои расширения и профили. Выберите определенный тип приложения и создавайте бесчисленное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 BZG Inc. and Binyamin Goldman.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95288DC9336C75ED8C208A9C8A015FF69770CBB4
+magnet:?xt=urn:btih:FE0F05C3B5EBE3BDC87F36E05FB3264E5DF5D68B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,25 +241,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509200   (795674) от 11.11.2021
+###  Публикация: 1508508   (797516) от 08.11.2021
 
-Screenium 3 v3.3.1 [Multi/Ru]
+Горящее кухонное полотенце / Le torchon brule (1911) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Коротенький сюжет, бытовая ссора супружеской пары перерастает в пошлую драку. С перемещением по всему городу. Пятиминутная сцена драки. В 1911 году, наверное, было смешнее...Производство: Франция, Pathé FrèresЖанр: Комедия, короткометражный, немое киноРежиссер: Ромео БосеттиАктеры: Сара ДюамельПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82983B0064197465D4D2FCF5BDF1C06E0DD14C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508400   (797515) от 08.11.2021
+
+Lou Siffer And The Howling Demons - Too Old to Die Young (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Worm 02:44
+02. Sucks To Be You 03:13
+03. Amplifire 02:59
+04. The Song That Wrote Itself 03:20(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683891BFED328F1F6797090C71B919240C727F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508496   (797514) от 08.11.2021
+
+Фергюс Хьюм | Безмолвный дом (2021) [MP3, Роман Абраров]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Любой обитатель тихого и благопристойного лондонского квартала на Женевской площади знает, что от старинного особняка, называемого Безмолвным домом, надо держаться подальше. Ведь о нем ходит дурная молва, и ни один здравомыслящий человек никогда не поселится здесь. И поэтому, когда в доме появился новый жилец, местное общество тут же начало кипеть слухами. Тем более (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56014964D9180FCA504FC89913FB992460D4CB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508452   (797513) от 08.11.2021
+
+Dark Reader for Safari 1.4.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Запишите то, что вы видите на экране, и превратите это в скринкаст. Screenium 3 позволяет делать записи с частотой 60 кадров в секунду, предлагая оптимальное качество для ваших учебных материалов, записей игрового процесса или содержимого экрана, которое вы хотите записать. Если вы работаете с ультра-высоким разрешением 4K или 5K дисплея, или Retina Mac, Screenium (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.02.2021Разработчик: © 2021 Synium Software GmbHПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+Dark Reader for Safari Это расширение для ухода за глазами позволяет создавать ночные режимы темных тем для веб-сайтов на лету. Dark Reader инвертирует яркие цвета, делая их высококонтрастными и удобными для чтения ночью. Это идеально подходит для системного темного режима.
+Настройте яркость и контрастность в соответствии с вашим экраном, выберите между режимами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2021Разработчик: © 2021 Alexander ShutauПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DD676A2A3B04F19BBE3B1AA24D56C252437AEF8
+magnet:?xt=urn:btih:510990C92C857D2D14C4E9C13A66CD2A3F23EBDE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,28 +349,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509227   (795673) от 11.11.2021
+###  Публикация: 1508509   (797512) от 08.11.2021
 
-Вероника Коссантели | Изумительная Страна Снергов (2021) [FB2, EPUB, MOBI]
+Monarch Trail - Wither Down (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Книга, вдохновившая Дж. Р. Р. Толкина!
-Пип и Флора в беде. Они убежали из приюта «Солнечная бухта» – и оказались в изумительной Стране Снергов.
-Это волшебная страна восхитительных пиров и медведей, пахнущих корицей. Вот только есть здесь и мрачные пещеры, есть прожорливые великаны и коварные шуты, а ещё ведьма, с ног до головы облачённая в пурпурные одежды.
-Добрый, (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: В.Т. БабенкоФормат: FB2, EPUB, MOBI
+1. Wither Down (10:54)
+2. Echo (6:00)
+3. Canyon Song (6:32)
+4. Waves of Sound (11:01)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:56:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFB7DA294C63F088267935FBE75D4F5207711E59
+magnet:?xt=urn:btih:C9617B87EBE208705DAA9176EA17452731AE0C41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,26 +378,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509076   (795672) от 11.11.2021
+###  Публикация: 1508396   (797511) от 08.11.2021
 
-Things 3 v3.15.6 [Multi/Ru]
+ON1 Photo RAW 2022 v16.0.1.11212 fix [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+ON1 Photo RAW включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2021Разработчик: © ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34CD39E1B09352F9704E61C0DBCC1D3C737AD6FF
+magnet:?xt=urn:btih:9ED50C34E2BBCD3912376CBBDF282E7037F336A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,219 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509124   (795671) от 11.11.2021
+###  Публикация: 1508430   (797510) от 08.11.2021
 
-Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795671.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Let's Dance [1:02]
-02. Don't Be That Way [3:14]
-03. Hallelujah [4:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A783161F3B5A048F9D3C2180DF0A7CC5FD366791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509126   (795670) от 11.11.2021
-
-Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795670.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Introduction into Let's Dance [1:23]
-02. Mission to Moscow [3:01]
-03. Meet the Band [5:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150875B31298242FBAA4EEDD80F5D2D01227DC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509225   (795669) от 11.11.2021
-
-Игорь Ланда | Динозавр Амвросий (2021) [MP3, Игорь Ланда]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая сказка про маленького динозавра Амвросия с большой, невидимой душой.Жанр: Детская литература. СказкаПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937555EEF6456465C1EEB3CB4BFA1C091E80382B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509190   (795668) от 11.11.2021
-
-Журнал | Street Trucks [Canada] №10 (октябрь 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0239B27D4B630FB7BBD59F10E41089A14DF5980C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508987   (795667) от 11.11.2021
-
-VA - Café del Mar XXVII (Vol. 27) (2021) [AAC|~347 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795667.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Eric Hilton - The Impossible Silence (3:06)
-1.02. Kraak & Smaak, iogi - All I Need (4:32)
-1.03. Bent - Friends (5:39)
-1.04. Till Von Sein - Kalifornien Luv (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAAB5919817C6FC4912D50B2129EA305D4EE702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509245   (795666) от 11.11.2021
-
-Журнал | Street Machine [Australia] №5 (май 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F24EB2223DD2021DCC81E85802549AFE02E1A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509242   (795665) от 11.11.2021
-
-Журнал | Street Machine [Australia] №4 (апрель 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A286DA32BB20F0E6B45C0C6868BE4D06EAEE4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509118   (795664) от 11.11.2021
-
-Danger Danger - The Return of the Great Gildersleeves (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
+Nitrate - Renegade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Grind
-02. When She's Good She's Good (When She's Bad She's Better)
-03. Six Million Dollar Man
-04. She's Gone(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:07
+01. Danger Zone
+02. Renegade
+03. You Think You've Got It
+04. Big City Lights(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EF95660EF8D5EEB142A37D67EA2932DC2BF0BAF
+magnet:?xt=urn:btih:5D711D73CDCC0A1BD37080B6234106EFB58A5E48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,25 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509193   (795663) от 11.11.2021
+###  Публикация: 1508395   (797509) от 08.11.2021
 
-Журнал | Street Trucks [Canada] №4 (апрель 2021) [PDF] [En]
+Evile - Hell Unleashed (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Автомобили
->>Автомобильные журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
+01. Paralysed
+02. Gore
+03. Incarcerated
+04. War of Attrition(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F8A529904FACAD8F38A4CE424CC3CBE1A25DA05
+magnet:?xt=urn:btih:94381DA993FA393D0541CA7FE8B04E8D9AAD2376
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,25 +462,247 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509248   (795662) от 11.11.2021
+###  Публикация: 1508398   (797508) от 08.11.2021
 
-Журнал | Street Machine [Australia] №10 (октябрь 2021) [PDF] [En]
+Gorky Park - Ballads (2021) [AAC|~339 Kbps] <Rock>
 
->>Автомобили
->>Автомобильные журналы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+01. All Roads (Remastering 2021) (5:09)
+02. Within Your Eyes (Remastering 2021) (4:54)
+03. Two Candles (Remastering 2021) (4:21)
+04. Stranger (Remastering 2021) (4:51)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C001589A551096BD35137FCD098FBD47633F5AD
+magnet:?xt=urn:btih:76AB5631047DB98CAF1303EBCDCD34E56BDCCDF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508446   (797507) от 08.11.2021
+
+zGallery – Image Viewer 4.51 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+zGallery - это элегантное программное обеспечение, которое показывает, просматривает и редактирует изображения и фотографии в вашей папке и на диске.
+zGallery - это действительно быстрая загрузка и отображение изображений, а также важные функции редактирования.
+Знакомый интерфейс, такой как дерево папок и просмотр эскизов, позволяет быстро находить изображения или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2021Разработчик: woojooinПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55702C2629288F9EA56DFEFF102F895D8156DC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508481   (797506) от 08.11.2021
+
+Париж, когда там жара / Paris - When It Sizzles (1964) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ричард Бенсон, сценарист, получил новый заказ от голливудского продюсера. Вместо того чтобы погрузиться в работу, он праздно проводил время, пил и, в итоге, ничего не написал. До приезда продюсера остаётся всего пара дней, за которые Ричарду необходимо придумать сюжет будущего фильма и напечатать сценарий. Чтобы ускорить процесс, он нанимает стенографистку Габриэлль (   Читать дальше...   )Производство: США, George Axelrod Productions, Richard Quine ProductionsЖанр: мелодрама, комедияРежиссер: Ричард КуайнАктеры: Уильям Холден, Одри Хепберн, Грегуар Аслан, Раймон Бюссьер, Тони Кертис, Кристиан Дувалекс, Мишель Томасс, Доминик Бошеро, Эви Маранди, Ноэл КауардПеревод: профессиональный многоголосый (Paramount Channel), профессиональные двухголосые (НТВ+, DVD Magic)Субтитры: английскиеПродолжительность: 01:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7026E8B978FF4EFD2EDACD40C436224BCBD19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508399   (797505) от 08.11.2021
+
+Gorky Park - Alternative and Progressive (2021) [AAC|~345 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. UFOria (Remastering 2021) (3:03)
+02. Five Wheel Drive (Remastering 2021) (4:27)
+03. Liar (Remastering 2021) (4:18)
+04. Taiga (Instrumental) (Remastering 2021) (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417B344F91F1DD894734C1E276CECA535E929C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508407   (797504) от 08.11.2021
+
+AIMP 5.00.2342 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66C18762CA30EAD86282ABECDF0761C42A4B6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508382   (797503) от 08.11.2021
+
+Боб Дилан: Всякая Всячина / Bob Dylan: Odds and Ends (2021) WEB-DL [H.264/1080p] [VO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Архивные интервью, рекламные видео ролики и документальные съемки Боба Дилана. Подробности самых ярких моментов карьеры легендарного музыканта. Боб Дилан — американский автор-исполнитель, художник, писатель и киноактёр, одна из самых влиятельных фигур в поп-музыке на протяжении последних шестидесяти лет.Производство: СШАЖанр: Документальный, музыка, биографияРежиссер: Дженнифер Лебо, Джон ХиллкоутПеревод: Двуголосый любительский (Pazl Voice)Субтитры: АнглийскиеПродолжительность: 01:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A85D7D0E6BCFEE3972751DDE22140DD2AC8DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508324   (797502) от 08.11.2021
+
+Various Artists - Metal Art CD Compilation. The Art Of Extreme Music. Vol.1 (2007) [FLAC|Lossless|image + .cue] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: MetalПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9685861F69788104F7606B5FC9875D878D1E21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199849   (797501) от 18.01.2018
+
+VA - Aly & Fila - Future Sound of Egypt 531 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff ft. Hendrik Burkhard - For All Time
+02. Wellenrausch & Gai Barone - Heroes Of Light (Jerome Isma-Ae & Alastor Remix)
+03. Pablo Artigas - Daybreak
+04. Kastis Torrau - Glice Glice(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E76CBAC77B47F5EF9B55BCBB9B0AEE6EBA7DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199834   (797500) от 18.01.2018
+
+Метанойя - Гомункул (2012) [MP3|320 Kbps] <Art Rock, Art Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: ещё есть
+02. Водолазы облаков
+03. Офелия
+04. Харон(   Читать дальше...   )Жанр: Art Rock, Art PunkПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47712ACE54D586C2BA0649C819F56C786C9AD94E
 ```
 
 https://mybot314.ru/tekegram_catalog/

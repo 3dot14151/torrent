@@ -1,109 +1,3 @@
-###  Публикация: 731529   (297402) от 07.12.2013
-
-Тод Штрассер | Волна (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тод Штрассер (род. 1950) — американский писатель, журналист, автор более 120 произведений для детей и подростков. Всемирная известность пришла к автору после выхода его книги «Волна», которая произвела эффект разорвавшейся бомбы. Книга основана на реальных событиях, произошедших в 1967 году в одной из школ маленького калифорнийского городка. Учитель истории Бен Росс ставит социальный эксперимент, чтобы в игровой форме показать подросткам, что такое нацизм. Сначала все выглядело как непривычное и увлекательное приключение, игра в дисциплину и коллективизм. Однако спустя всего несколько дней Бен Росс осознает, что его ученики, по сути, превратились в образцовых граждан тоталитарного общества.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D444715894764E3590ABAB44C6C1D141BDBFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962083   (297236) от 03.12.2015
-
-Елена Кршижановская | Человек решает сам (1975) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученик 5-го «а» класса Веня Фонарев сегодня занимается в одном кружке, завтра — в другом. Ничем он не интересуется серьезно. Кропотливый труд вызывает в нем скуку и отвращение к любому делу. Но вот мальчик подружился с сыном артиста цирка. Веня увлекается романтической профессией акробата. Но сколько упорства, смелости, ловкости должен проявить человек, желающий (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0685BF294970C7B80CFE465C174EE2D90FCC2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961917   (297228) от 03.12.2015
-
-Джулиана Болдрини | Дети на продажу (1980) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы прогрессивной писательницы о судьбах детей разных эпох - от античности до сегодняшнего дня - в Италии. Все они иллюстрируют жестокость эксплуататорских обществ, бедственное положение детей в мире наживы.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8AE15C89B8444C09A2DEC2E2489EC1969D95EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961919   (297221) от 03.12.2015
-
-Д. Нагишкин | Город Золотого Петушка (1962) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте же первую страницу книги и войдите в «Город Золотого Петушка»!
-
-Поезжайте вместе с героями в незнаемые края, и вы найдете там для себя много интересного и полезного. Вы не пожалеете об этой поездке, честное слово! Вы познакомитесь на Янтарном побережье со многими хорошими, сильными и добрыми людьми. Пройдете вместе с Игорем и Андрисом суровую школу жизни (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24536E18FD66AA643A99247FCE48DEDFD57D42C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962162   (297213) от 03.12.2015
 
 В. Колчин (сост.) | Волшебное зеркало (1978) [PDF, DJVU]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -519,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -546,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -650,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -678,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -691,6 +585,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27D7E87501D369AE937FCD0F2C103DCB4010F270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962244   (295352) от 04.12.2015
+
+Татьяна Дорофеева-Миро | Злодобрей-ка [Сказка с намёками и подоплёкой] (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"За оврагами, за лесом, где волчата с интересом наблюдают за луной, наслаждаясь тишиной, жил-был странный Злодобрейка, в чаще, где дорожка змейкой.
+С виду, вроде, неказист. Не любил он громкий свист, потому что в день зарплаты могут быть большие траты, – такова в миру молва. Знать, примета та – права…"Жанр: СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BCEFD658BA024FF599ECB67080DA83F3524663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731900   (295300) от 08.12.2013
+
+Л. Монтгомери | История Энн Ширли. Книга 2 (2000) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История Энн Ширли — это литературный мини-сериал для девочек. 6 романов о жизни Энн Ширли разбиты на три книги — по два романа в книге.
+В третьем и четвертом романах Люси Монтгомери Энн Ширли становится студенткой Редмондского университета. Она увлекается литературой и даже публикует свой первый рассказ. Приходит время задуматься о замужестве, но Энн не может разобраться в своих чувствах и, решив никогда не выходить замуж, отказывает своим поклонникам. И все же… одному юноше удается завоевать сердце Энн…
+После окончания университета Энн предстоит учительствовать в средней школе в Саммерсайде. Не все идет гладко представители вздорного семейства Принглов, главенствующие в городе, невзлюбили Энн и объявили ей войну, но обаяние и чувство юмора помогают Энн избежать хитроумных ловушек и, несмотря на юный возраст, заслужить уважение местных жителей.Перевод: Раиса Сергеевна БоброваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA410F44AA24529D7782598747FF7417D54C0D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962243   (295231) от 04.12.2015
+
+Янка Мавр | Повести и рассказы (1955) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В данный сборник вошли полюбившиеся юным читателям повести «Полесские робинзоны» и «ТВТ», а так же рассказы разных лет.Жанр: Детские приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DAF4B64169F0F9A38F8844CC9BBC9E6720F034B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962263   (295229) от 04.12.2015
+
+Книжная серия | Библиотека молодого читателя [4 книги] (1925-1926) [FB2, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Как мальчик Хюг сам построил радиостанцию.
+Радиолюбительство процветало во всем мире. Юные советские пионеры и юные американские бойскауты с одинаковым энтузиазмом мастерили самодельные детекторные приемники и простенькие радиопередатчики. Начиная с 1911 года в США выходила популярная книжная серия «Radio Boys», в которой сугубо технические сведения перемежались (   Читать дальше...   )Жанр: Детская прозаФормат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742A189DF885CA29DB4228EDAFF873E9D632ADCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

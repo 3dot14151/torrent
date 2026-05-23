@@ -1,3 +1,55 @@
+###  Публикация: 952615   (349085) от 14.11.2016
+
+Час Пик / Rush Hour (1998-2007) BDRip [H.264/1080p] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эти фильмы о двух копах, которые попадают все время в разные передряги.Производство: США, Германия, ГонконгЖанр: Боевик, КомедияРежиссер: Бретт Ратнер / Brett RatnerАктеры: Джеки Чан, Крис Такер, Элизабет Пенья, Том Уилкинсон, Марк Ролстон, Филип Бэйкер Холл, Кен Люн, Ци Ма, Роберт Литман, Майкл Чоу, Джулия Хсю, Крис Пенн, Кай Леннокс, Ларри Салливан, Янг Лин, Роджер Фэн, Джордж Чунг, Люси Лин и тд...Перевод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русские, АнглийскиеПродолжительность: 1:37:49| 01:30:08| 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B29D11FDA8AE139DF003FFEA5B080DC6EF144CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179049   (348503) от 31.10.2017
+
+Двойная рокировка: Трилогия / Infernal Affairs: Trilogy / Mou gaan dou I-III (2002, 2003) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История двух людей, ежесекундно рискующих жизнью. Один из них — агент мафии в полиции, другой — полицейский, внедренный в мафию. Каждый стремится к одному: разоблачить врага...Производство: Гонконг, Китай, Сингапур / Media Asia Films, Basic Pictures, Eastern Dragon Film Co. Ltd., Mediacorp Raintree PicturesЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Эндрю Лау, Алан МакАктеры: Энди Лау, Тони Леунг, Энтони Вонг, Чау Санг, Эрик Цанг, Келли Чен, Самми Ченг, Эдисон Чен, Шоун ЮПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:40:42 | 01:59:28 | 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC21AB0D8DF72BED7AD2FC35DA5CF65A8EE3546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465397   (347179) от 21.11.2013
 
 Шерлок Холмс: Полная коллекция / Sherlock Holmes: The Complete Collection (1939-1946) BDRip
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_320668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BED45D1B6FFAC8C6E57F7A7F7F404718883B7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 202200   (313432) от 06.11.2018
-
-Крёстный отец - трилогия / The Godfather - Trilogy (1972-1990) [H.264] BDRip
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальная сага, повествующая о нью-йоркской сицилийской мафиозной семье Корлеоне. Фильм охватывает период 1945-1955 годов. Глава семьи, Дон Вито Корлеоне, выдаёт замуж свою дочь. В это время со Второй мировой войны возвращается его любимый сын Майкл. Майкл, герой войны, гордость семьи, не выражает желания заняться жестоким семейным бизнесом. Дон Корлеоне ведёт (   Читать дальше...   )Жанр: Криминал, Драма, БоевикРежиссер: Френсис Форд КопполаАктеры: Аль Пачино, Дайан Китон, Талия Шайр, Энди Гарсиа, Эли Уоллах, Джо Мантенья, Джордж Хэмилтон, Бриджит Фонда, София Коппола, Раф ВаллонеПеревод: Профессиональный (двухголосый), Профессиональный (многоголосый, закадровый), Авторский (Живов Юрий)Язык субтитров: Russian, EnglishПродолжительность: 02:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E498982D1CC080507802C4C918751169BDE43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332705   (306554) от 23.10.2019
-
-Риддик / Riddick (2000-2013) BDRip [H.265/1080p] [10-bit] [Режиссерская версия] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Межгалактический грузовой корабль попадает в метеоритный дождь и падает на близлежащую маленькую планету, которая представляет собой выжженную рыжую пустыню и камни. Немногие выжившие пассажиры корабля, а среди них - члены экипажа Кэролайн и Джонс, а также - переправляемый на другую планету беглый преступник Ричард Риддик, обнаруживают, что в атмосфере маленькой (   Читать дальше...   )Производство: США, Австралия, Канада / Polygram Filmed Entertainment, Interscope Communications, Universal Pictures, Radar Pictures, One Race Productions, Riddick Canada Productions, Entertainment OneЖанр: фантастика, боевик, триллер, приключения, ужасыРежиссер: Дэвид ТуиАктеры: Вин Дизель, Рада Митчел, Коул Хаузер, Кит Дэвид, Льюис Фитц-Геральд, Клаудия Блэк, Джон Мур, Саймон Бурк, Лес Чэнтери, Рик Андерсон, Колм Фиор, Тэнди Ньютон, Джуди Денч, Карл Урбан, Алекса Давалос, Лайнас Роуч, Йорик ван Вагенинген, Ник Чинланд, Кит Дэвид, Хорди Молья, Мэттью Нэйбл, Кэти Сакхофф, Дэйв Батиста, Букем Вудбайн, Рауль Трухильо, Конрад Пла, Дэнни БланкоПеревод: Дублированный, многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:51:55 / 02:14:05 / 02:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFB00825DC666E48F1FCDF276CED31940B9A866
 ```
 
 https://mybot314.ru/tekegram_catalog/

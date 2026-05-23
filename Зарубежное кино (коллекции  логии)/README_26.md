@@ -1,3 +1,55 @@
+###  Публикация: 1233268   (56825) от 12.05.2024
+
+Проклятие Аннабель / Annabelle (2014/2017) BDRip [H.264/1080p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Через несколько лет после трагической гибели маленькой дочери кукольник и его жена приглашают в свой дом монахиню и нескольких девочек из приюта, вскоре становящихся мишенью для одержимого создания кукольника — Аннабель.Производство: США / Warner Bros., New Line Cinema, RatPac-Dune Entertainment, Atomic MonsterЖанр: Ужасы, Триллер, ДетективРежиссер: Дэвид Ф. СандбергАктеры: Энтони ЛаПалья, Самара Ли, Миранда Отто, Брэд Гринквист, Лулу Уилсон, Талита Бейтман, Стефани Сигман, Марк Брэмхолл, Грэйс Фултон, Филиппа КултхардПеревод: Дублированный (BD EUR)Субтитры: Русские, английскиеПродолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C071B8FB1CF63EB89F9435BB3F28DE5961021E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173439   (56611) от 14.05.2024
+
+Посланники / The Messengers (2007-2009) BDRip [H.264/1080p-LQ] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Первая часть: Семья Соломон оставляет свою размеренную жизнь в Чикаго ради того, чтобы пожить на уединенной ферме в Северной Дакоте. Среди усыпанных подсолнухами идиллических полей, шестнадцатилетняя Джесс очень скоро понимает, каким кошмаром может обернуться уединение. Сразу после переезда, Джесс и ее трехлетний брат Бен видят зловещих призраков, которых никто кроме (   Читать дальше...   )Производство: США / Screen Gems, Ghost House Pictures, Columbia Pictures, Stage 6 FilmsЖанр: УжасыРежиссер: Дэнни Пан, Оксид Пан, Мартин БарнвитцАктеры: Кристен Стюарт, Дилан МакДермотт, Пенелопа Энн Миллер, Джон Корбетт, Ивэн Тернер, Теодор Тернер, Уильям Б. Дэвис, Брент Бриско, Дастин Миллиган, Джоделль Ферланд, Майкл Дэйнджерфилд, Татьяна Маслани, Ширли МакКуин, Анна Хэган, Блейн Харт, Грэхэм Белл, Кейтлин МакМиллан, Питер Скаулар, Роберт Бенц, Норман Ридус, Хэзер Стивенс, Клер Холт, Ричард Риле, Дарси Фоуэрс, (   Читать дальше...   )Перевод: Дублированный, МногоголосыйСубтитры: Русские, английскиеПродолжительность: 01:30:26, 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FACF44955CDE53252EEC5C78EC7778F4E53F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724131   (56207) от 18.05.2024
 
 Джон Уик / John Wick (2014-2023) UHD BDRip [H.265/2160p] [4K, HDR, Dolby Vision TV, 10-bit] [Квадрология]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Zомбилэнд  / Zombieland (2009, 2019) BDRemux [H.264/1080p] [Дилоги
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +534,7 @@ Superнянь 1-2 / Babysitting 1-2 (2014-2015) BDRip [AV1/1080p] [10-bit] [Ди
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6FD03968687FE9129B119F3A33AAF6ED3C37EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725608   (45631) от 26.08.2024
-
-Планета обезьян / Planet of the Apes (2011 - 2024) BDRip [H.264/1080p] [Коллекция]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой ученый испытывает на обезьянах новое лекарство от болезни Альцгеймера. У препарата обнаруживается удивительный побочный эффект: он повышает в несколько раз интеллект приматов.Производство: США, Великобритания, Канада, Новая Зеландия / 20th Century Fox Film Corporation, APJAC Productions, Chernin EntertainmentЖанр: фантастика, боевик, триллер, драмаРежиссер: Уэс БоллАктеры: Оуэн Тиг, Питер Макон, Фрейя Аллан, Кевин Дюран, Трэвис Джеффри, Уильям Х. Мэйси, Дичен Лакмэн, Ика Дэрвилл, Лидия Пекхэм, Нил СэндилэндсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:44:56 / 02:10:24 / 02:20:09 / 02:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826FF05D77448DC7FB3A471CF69F43B051F10A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483796   (45628) от 26.08.2024
-
-Обитель зла / Resident Evil (2002-2021) BDRip [H.265/1080p] [10-bit] [Коллекция]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия фильмов Resident Evil основана на одноименных играх Capcom. Фильмы следуют за героиней Элис, персонажем, созданным для фильмов. Корпорация Umbrella выступает в качестве основного антагониста - биоинженерной фармацевтической компании, ответственной за апокалипсис зомби в результате создания T-вируса.Производство: США, Германия, Франция, Канада, Великобритания, Австралия / Capcom Company, Capcom Entertainment, Constantin Film International, Constantin Film Ltd., Constantin Film Produktion GmbH, Davis-Films, Impact Pictures, New Legacy, Resident Evil ProductionsЖанр: ужасы, боевик, фантастика, триллерРежиссер: Йоханнес РобертсАктеры: Кая Скоделарио, Ханна Джон-Кэймен, Робби Амелл, Том Хоппер, Эван Джогиа, Донал Лог, Нил Макдона, Лили Гао, Чад Рук, Марина МазепаПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:31 / 01:33:48 / 01:34:05 / 01:36:52 / 01:35:37 / 01:46:40 / 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3BA9C1D35F71EE01EE7818E3DF60CF4D8DC264
 ```
 
 https://mybot314.ru/tekegram_catalog/

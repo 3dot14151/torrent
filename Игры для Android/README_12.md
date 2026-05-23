@@ -1,29 +1,3 @@
-###  Публикация: 319980   (323317) от 28.11.2011
-
-[Игра] (Android 2.0+) Quake 3 Droid 3.3 - порт Quake 3 Arena для Андроид [обновлено 27.11.2011]
-
->>След.
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quake 3 Droid - порт Quake 3 Arena - лучший порт Quake 3 для Андроид. В этом порте решены все проблемы других портов. При запуске приложения красуется надпись — Based off Kwaak3 and ioquake3. Разработчики видимо взяли самое лучшее из других портов и создали свой. И получилось у них очень хорошо. В Quake 3 Droid сделано экранное управление как в шутерах от Геймлофта (например игра NOVA). Так же у меня работает трекбол. Держим телефон в альбомной ориентации, правым виртуальным джойстиком бегаем вперед\назад и стрейфимся по бокам, а трекболом смотрим по сторонам и по нажатию стреляем. Более удобное управление на телефоне мне придумать сложно. Графика в игре отличная, такая же как на ПК. Фпс стабильно держится в районе 30 кадров в секунду. Управлять удобно. И о печальном, несмотря на присутствие галочки Enable Sound в лаунчере, звука в игре нет.2011Жанр: FPS, Action
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421204   (321901) от 03.11.2020
 
 Johnny Trigger v1.11.5 [Ru]
@@ -32,7 +6,7 @@ Johnny Trigger v1.11.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +33,7 @@ Cookies Must Die v1.1.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +60,7 @@ Age of Civilizations II v1.014177-ELA [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +87,7 @@ Plants vs. Zombies™ Heroes v1.36.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +113,7 @@ Who Are You, Mr. Cooper? v1.11 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +139,7 @@ Sky: Дети Света v0.11.2 (156351) [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +191,7 @@ Warlords of Aternum v1.11.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +218,7 @@ Brawl Stars v30.242 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +245,7 @@ Among Us v2020.10.22 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +272,7 @@ FRONTLINE COMMANDO 2 v3.0.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +298,7 @@ Civilization Revolution 2 v1.4.4 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +324,7 @@ Plague Inc. v1.18.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +350,7 @@ Real Monster Fishing 2020 v0.1.178 [Ru/Multi] (обновляемая)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +376,7 @@ Jetpack Joyride v1.34.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +402,7 @@ Sky Force 2014 v1.41 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +428,7 @@ Hitman: Sniper 1.7.75196 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +454,7 @@ Furry Pet Hospital v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +482,7 @@ CatchaAll v1.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +508,7 @@ Tacticool v0.945 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -590,7 +564,7 @@ Jewel Legend: игра три в ряд v3.18.3 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -618,7 +592,7 @@ Wordhane - игра в слова v1.9954 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -644,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -670,7 +644,7 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -682,6 +656,32 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2293F0B7C42C96220A0CB85887BB3474298B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835781   (252298) от 08.11.2025
+
+Words of Wonders: Игра в слова v5.3.5 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир 7 чудес Words of Wonders! Эта замечательная игра в жанре «кроссворд» с элементами соединялки позволит вам не только улучшить запас слов и их написание, но и путешествовать, пересекать земной шар, искать скрытые тайны 7 чудес. найти слова соединить буквы в 7 чудес и увеличить свой запас слов запас.Тип издания: ModРелиз состоялся: 06.11.2025Разработчик: Fugo GamesПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BEE0A5C1CCE5920551424568B7D3BEE822881F
 ```
 
 https://mybot314.ru/tekegram_catalog/

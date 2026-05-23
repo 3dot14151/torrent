@@ -1,3 +1,29 @@
+###  Публикация: 664639   (816274) от 29.03.2015
+
+Sukitte Ii na yo. / Say "I Love You" / Скажи: «Я люблю тебя» [2012, TV, 13 ep] BDRip Hi10p 720p Raw+Rus x4(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Из-за обычной детской жестокости Мэй Татибана решила, что дружбы не существует, и любое сближение обернется лишь болью и предательством. Так неглупая и симпатичная девушка дожила до 16 лет, заработав в старшей школе вполне объяснимую репутацию одиночки и нелюдимой молчуньи. Конечно же, подобная аура необычности и отстраненности привлекла внимание «школьного принца» Ямато Куросавы. Куросава, парень честный, искренний и малость утомленный навязчивым вниманием знакомых девиц, сам стал искать встречи с Мэй – и добился (   Читать дальше...   )Жанр: романтика, школа, сёдзёРежиссер: Сато ТакуяФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B937D204E9C6ED423C75ED8D5D36B40BCC2C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 656912   (816273) от 29.03.2015
 
 Kono Naka ni Hitori, Imouto ga Iru! / Nakaimo: My Little Sister is among Them! / Одна из них – моя сестра! [2012, TV, 12 ep + SP] BDRip Hi10p 720p Raw+Rus x5(ext)
@@ -6,7 +32,7 @@ Kono Naka ni Hitori, Imouto ga Iru! / Nakaimo: My Little Sister is among Them! /
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Death Parade / Парад смерти [2015, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +86,7 @@ Death Note | Тетрадь Смерти [2006, TV, 37 эп. + 2 SP] BDrip 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +112,7 @@ Minami Kamakura Koukou Joshi Jitensha Bu / Женский велоклуб ст�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +138,7 @@ Shoujo Shuumatsu Ryokou / Girls' Last Tour / Последнее путешест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +190,7 @@ Nanatsu no Taizai: The Seven Deadly Sins / Семь Смертных Грехо�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +218,7 @@ Garo: Honoo no Kokuin / Гаро: Клеймо пламени [2014, TV, 24 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +244,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +271,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +297,7 @@ Naruto: Shippuuden / Наруто: Ураганные хроники [2007, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +323,7 @@ Claymore / Клеймор [2007, TV, 26 ep] BDRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +353,7 @@ Idol Jihen / Idol Incidents / Проблемы идола [2017, TV, 12] WEBRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +379,7 @@ Rewrite: Moon and Terra / Перезапись: Луна и Земля [2017, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +405,7 @@ Trickster / Обманщик [2016, TV, 24] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +431,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +457,7 @@ Goblin Slayer / Убийца гоблинов [2018, TV, 12 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +483,7 @@ Just Because! / А просто так! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +509,7 @@ Fate/Apocrypha / Судьба/Апокриф [2017, TV, 25 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +535,7 @@ The Rolling Girls | Девчонки-путешественницы | Девча
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +561,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +589,7 @@ Youjo Senki / Saga of Tanya the Evil / Военная хроника мален�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +616,7 @@ Chaos;Child / Хаос; Дитя [2017, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +642,7 @@ Kuroshitsuji / Black Butler / Темный дворецкий [2008, TV, 24 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +668,7 @@ Ajin (2016) / Получеловек [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,32 +679,6 @@ Ajin (2016) / Получеловек [2016, TV, 13 ep] HDTV 720p Raw+Rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8701DC6D8F3DF2AF60CF13F3228FD4F7F41625CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869201   (770335) от 08.04.2015
-
-Akatsuki no Yona / Рассвет Йоны (2014, TV, 24) HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёна, дочь правителя одной восточной страны, жила, как в сказке. У нее было все, что можно пожелать, и даже свой прекрасный принц – старший кузен Су Вон, белокурый красавец и галантный рыцарь. Вот только «рыцарь» оказался еще и мудрым политиком – на 16-летие принцессы подготовил заговор, лично убил царственного дядю и занял трон. Убитую горем девушку спас и вывел (   Читать дальше...   )Производство: Япония, Studio Pierrot / スタジオぴえろЖанр: приключения, фэнтези, романтикаРежиссер: Ёнэда КадзухироПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F741C24B375AA21846CFCA29DD1405C5390A17B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

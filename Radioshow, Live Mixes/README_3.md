@@ -1,3 +1,90 @@
+###  Публикация: 1462238   (1021321) от 13.04.2021
+
+Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Mako - Roller Coaster (Jan Blomqvist Remix)
+02. Da Fresh & Noidor - Mirari
+03. The Kode - Can't Let Go
+04. Roumex - Inside My Head(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35795DA14C2C7E9748313D7E82781F2FEA3E32FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462243   (1021317) от 13.04.2021
+
+Korolova - Live @ Tanzania (2021-04-09) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Cristoph X Franky Wah X Artche - The World You See
+02. Moonwalk - Enigma
+03. iiO - Rapture (Mr. Sid & March Forward Remix)
+04. Alex Kennon & Pete Tong - Apache(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D3C1226AB66BF4E181BAF35971878462F201FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462872   (1020861) от 16.04.2021
+
+Drumstone - AFTR:HRS SESSIONS 04 (2021-04-15) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Yubik – The Veil
+02. Malandra Jr. – Ambassador of the Dark Side
+03. Edone – Cramp
+04. Edone – Freedom(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE85F626723170BB9AB00D44C02ABF49BF2CFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462878   (1020837) от 16.04.2021
 
 Mike Williams - Live @ Duif' Church, Netherlands (2021-04-09) [MP3|320 Kbps] <Future House>
@@ -6,7 +93,7 @@ Mike Williams - Live @ Duif' Church, Netherlands (2021-04-09) [MP3|320 Kbps] <Fu
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Korolova - Live @ Farsha Cafe Sharm El Sheikh, Egypt (2021-04-23) (2021) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ SPINNIN' - Best of Tiesto (2021-05-09) [MP3|320 Kbps] <Big Room, Future House, D
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Korolova - Live @ Kamianets - Podilskyi, Ukraine(2021-05-07) [MP3|320 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Laidback Luke - Tomorrowland Friendship Mix (2021-05-20) [MP3|320 Kbps] <House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Korolova - AFTR:HRS SESSIONS 06 (2021-06-10) [MP3|320 Kbps] <Deep House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Vintage Culture - Live @ Defected Livestream, Brazil (2021-06-11) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +296,7 @@ Lane 8 - Summer 2021 Mixtape (2021-06-15) [MP3|320 Kbps] <Deep House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +325,7 @@ Kaskade - Live @ Marquee New York, United States 2019-12-31 [MP3|~245 Kbps (V0)]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +354,7 @@ Hardwell - Hardwell On Air Yearmix 2019 (2019) [MP3|~245 Kbps (V0)] <Electro Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +383,7 @@ Andrew Rayel - Find Your Harmony Radioshow Yearmix 2019 (2020-01-01) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +412,7 @@ Above & Beyond - Live @ The New York Expo Center, United States 2019-12-31 [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +441,7 @@ Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +470,7 @@ Pete Tong & The Heritage Orchestra and Jules Buckley - Ibiza Classics - Live at 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech Ho
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +528,7 @@ Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +557,7 @@ Traxtorm records - Hardcore Italia podcast 1-106 (2011-2016) (обновляем
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +586,7 @@ DJ S.I.D.R. - Keep It Ob'ecore Podcast # 1-20 (2013-2015) [MP3|320 кб/с]<Happ
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +644,7 @@ Dj Sveta - My City (2016) [MP3|320 кб/с] <Progressive House, House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +673,7 @@ Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 �
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +702,7 @@ Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -644,7 +731,7 @@ Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -658,93 +745,6 @@ Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A847F021CE563DD43E479E0350AE42AEE6E766CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363657   (941025) от 29.02.2020
-
-Will Rees - Live @ Trance Room, Uniclub Buenos Aires, Argentina 2020-02-22 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brennan Grey - Capre Omne (Intro Edit)
-2. DJ Jordan - Direct (Indepth Remix)
-3. ID-ID
-4. Genix - Ba55 Camp(   Читать дальше...   )Жанр: TranceПродолжительность: 02:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B837FD941E01AACBC38A1FE89032D364B16DD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365683   (929147) от 08.03.2020
-
-Paul Pearson - Live @ Subteran, Joshua Brooks Manchester, United Kingdom 2020-02-29 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JoC H - Puertas
-02. Dmitry Molosh - Ambition
-03. Matt Fax - Light On(Extended Mix)
-04. Paul Thomas & Jerome Isma-Ae - Tomorrow(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C31F0C455C7E26275B5BCF7CA433E16B1154F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489324   (927157) от 15.08.2021
-
-Tiesto - Tomorrowland Friendship Mix (2021-08-12) [MP3|320 Kbps] <Electro Pop, Big Room, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto & Karol G - Don't Be Shy
-02. Dragonette & Sunnery James & Ryan Marciano & Cat Dealers ft. Bruno Martini - Summer Thing (Kryder Remix)
-03. Shouse - Love Tonight (Vintage Culture & Kiko Franco Remix)
-04. Tiësto & Vintage Culture - Coffee (Give Me Something)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Bass HouseПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319B0D638445F92CD4C1C868FED4EE95510C935A
 ```
 
 https://mybot314.ru/tekegram_catalog/

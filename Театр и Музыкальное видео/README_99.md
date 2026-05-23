@@ -1,3 +1,165 @@
+###  Публикация: 1330083   (343257) от 09.10.2019
+
+P!nk (Pink)  Rock in Rio (05.10.2019) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Rock In Rio, один из крупнейших и самых известных музыкальных фестивалей в мире, теперь проводит для себя двухлетнюю рутину, каждый год чередуя Лиссабон с его духовным домом в Рио-де-Жанейро. В 2019 году Cidade do Rock снова наполнится звуками значков мировой музыки, причем не только из мира рока, но также из поп-музыки, фанка, соула, MPB, электронной музыки и многого (   Читать дальше...   )Act I
+Get the Party Started
+Beautiful Trauma
+Just Like a Pill(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5A2B7F61885B350F336AB9E076D2A3E1D8DB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580116   (342464) от 25.11.2012
+
+Led Zeppelin - Celebration Day(2007)  DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный концерт группы Led Zeppelin на площадке O2 Arena в Лондоне,  Порядок песен (стартуют ребята символично с «Good Times Bad Times» – первой песни первого альбома 1969 года), освещение, работа операторов – здесь все подернуто духом реконструкции, но с искренним ощущением чуда. Никакие фильтры и ракурсы не сделали бы за группу то, что она смогла – пересилить давно вызревшие конфликты, играть в восемь рук, без минуса (кроме как в «Kashmir») самую живую и чувственную музыку XX века. Едва ли найдется много групп, относящихся к себе так требовательно, так самозабвенно оттачивающих свое мастерство. Сплав техничности и блюзовой интуиции – таковы Led Zeppelin на своем пике. Львиная харизма Роберта Планта, солидная виртуозность Пейджа не могут оставить равнодушным меломана. Да и не меломана тоже – настолько удачно в камеру попали тонкие психологические мостки, наведенные между участниками. В случае с Led Zeppelin это чуть ли не решающий фактор, от которого зависит сыгранность команды. Хотя прослезиться под «Celebration (   Читать дальше...   )Жанр: Hard RockРежиссер: Dick CaruthersАктеры: John Paul Jones, Jimmy Page, Robert Plant, Jason BonhamПеревод: ОтсутствуетПродолжительность: 02:03:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579235   (342321) от 25.11.2012
+
+Yanni - Live At El Morro, Puerto Rico (2011) H264  HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+16 и 17декабря 2011года, Янни исполнил 20-летнюю мечту выступить в красивом и историческом месте 16-го века Кастильо Сан-Фелипе дель Морро в Сан-Хуане, Пуэрто-Рико. Были исполнены многие классические хиты Yanni, а также несколько новых произведений . Его музыка уникальна, равно как и состав его оркестра, объединяющий прекрасных музыкантов.Жанр: New AgeРежиссер: YanniАктеры: Оркестр и вокалисты Lisa Lavie , Lauren JelencovichПеревод: ОтсутствуетЯзык субтитров: EngПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580617   (342174) от 25.11.2012
+
+СупердискотЭка / Супердискотека 90-х от Ю. Санкт-Петербург, СКК (2012) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+СупердискотЭка 90-х - легендарный ретромегадэнс, собирающий ежегодно десятки тысяч человек в Санкт-Петербурге и Москве. Каждую СупердискотЭку 90-х в прямом эфире транслирует канал MTV, а в праздничные дни 1 января и 12 июня СупердискотЭку 90-х показывали по Первому каналу и ее смотрела вся Россия. СупердискотЭка 90-х возвращает в детство, когда мы обменивались на (   Читать дальше...   )01. Intro
+02. Дискотека Авария - Хип-хоп хаус и рок-н-ролл
+03. Дискотека Авария - Новогодняя
+04. Дискотека Авария - Mix(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 03:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0A3BCDC93D342918200BE8D548113BF7A5035D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580472   (341230) от 26.11.2012
+
+Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605E328C2AC14F1ECA3D853B78E33D32FBB7FC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 410529   (341028) от 15.11.2011
+
+Mike Oldfield - Incantations​ [1978 (переиздание 2011) г., Progressive Rock, New Age, Progressive Pop, DVD5]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Rock, New Age, Progressive PopФормат: DVD VideoПродолжительность: 01:33:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580966   (340940) от 26.11.2012
 
 Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
@@ -6,7 +168,7 @@ Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +194,7 @@ Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +220,7 @@ Suzi Quatro (vol.1) (2012) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +249,7 @@ Suzi Quatro (vol.2) (2012) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +308,7 @@ Leanna Decker - Killer (2011) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -172,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -202,7 +364,7 @@ The Rolling Stones: Charlie Is My Darling (1965/2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -237,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +460,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -327,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +518,7 @@ Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +570,7 @@ DJ Sub - Resident Evil VS Silent Hill (Dubstep video Mix) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +596,7 @@ DVJ Bazuka - Breakin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +649,7 @@ Eric Clapton: Planes, Trains and Eric (2014) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +678,7 @@ VA - Осенний марафон № 203 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_336838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,175 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660734   (335632) от 12.11.2014
-
-Band Du Lac - A Concert by the Lake (2005) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа всех звезд "Band Du Lac", созданная основателем "Procol Harum" Gary Brooker'ом, дала 11 июня 2005 года благотворительный концерт для фонда борьбы с сердечно-сосудистыми заболеваниями - "Heart And Stroke Trust Endeavour" (H.A.S.T.E.) . Концерт проходил в Wintershall Estate в графстве Суррей, Великобритания. Среди гостей, выступивших (   Читать дальше...   )01. Tequila
-02. Over My Shoulder (Paul Carrack)
-03. Reconsider Baby (Eric Clapton)
-04. Lay Down Sally (Clapton)(   Читать дальше...   )Жанр: Концерт, Rock, Blues, JazzПродолжительность: 01:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0A59DAA405919C8DC32ABF8FA99292695AC494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416369   (335342) от 30.10.2020
-
-Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клипа) <Nu-Metal> [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Korn - Can You Hear Me
-02 Korn - Finally FreeЖанр: ChansonПродолжительность: 00:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC25F87ED6F0612E3F993200236CA166EDA42AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955483   (335287) от 10.11.2015
-
-"День сотрудника органов внутренних дел". Праздничный концерт (2015) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335287.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 ноября страна поздравляет сотрудников органов внутренних дел России с профессиональным праздником.
-
-Народный артист СССР Василий Лановой: - Каждый год 10 ноября знакомые и друзья считают своим долгом поздравить меня с Днём работника органов Внутренних дел. Причина тому – сыгранная мною роль майора Костенко в фильмах "Петровка 38" и "Огарёва 6". (   Читать дальше...   )Производство: Россия, Первый каналЖанр: КонцертПродолжительность: 02:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66E64EDF1C7F8C7581C6AADB29F3CEE2D9CA5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418428   (335245) от 30.10.2020
-
-Jeff Lynne's ELO - Live at Glastonbury 2016 (2016) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы Jeff Lynne's ELO на фестивале Glastonbury (Великобритания) в 2016 году.00:00:31.054                             : :Evil Woman
-00:05:04.120                             : :Showdown
-00:09:32.028                             : :All Over the World
-00:13:51.205                             : :When I Was a Boy(   Читать дальше...   )Производство: BBCЖанр: RockПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC83621C900B34B4D6AA0E1283047C83513DA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418542   (335218) от 30.10.2020
-
-Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335218.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода альбома "Kiss Me Once" в 2014 году, Кайли Миноуг отправилась в грандиозное мировое турне. Она включила в свои выступления все хиты, которых за долгую карьеру певицы у неё накопилось немало. Данный концерт состоялся на арене SSE Hydro в Глазго, Великобритания в ноябре 2014 года01.Breathe / Les Sex Intro
-02.Les Sex
-03.In My Arms
-04.Timebomb(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D056BC4D21190D0530F714C74A4AED28FE83AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331035   (334852) от 13.10.2019
-
-Квартирник НТВ у Маргулиса. Группа A’Studio (12.10.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334852.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — поп-группа A’Studio. Музыканты вспомнили, как играли на разогреве у самого Элтона Джона, рассказали истории из непрекращающейся гастрольной жизни, исполнили со зрителями свои песни, а также не забыли про свой главный хит — композицию «Улетаю».
-Участники A’Studio рассказали, с чего начался их творческий путь, какими были их самые необычные (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531D8DCF40F8562EF45D182A59F2A3B9E215C7E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

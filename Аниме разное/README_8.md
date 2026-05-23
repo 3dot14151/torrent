@@ -1,3 +1,29 @@
+###  Публикация: 1795729   (19127) от 06.05.2025
+
+Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movie] Blu-ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В результате некой произошедшей в прошлом катастрофы человечество разделилось на два народа. Для первого народа гравитация действует наоборот, и его представители, а также используемые ими вещи, падают в небеса. Однако, эти люди живут под землей, поэтому большой угрозы для них эта особенность не представляет. Для второго народа гравитация действует обычным образом, (   Читать дальше...   )Производство: Studio RikkaЖанр: приключения, фантастикаПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 99 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71701D4FD4D7EBA1E26751B455986A502C18D69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795673   (19122) от 06.05.2025
 
 Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movie] BDRemux 1080p raw+rus
@@ -6,7 +32,7 @@ Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Summer Wars | Летние Войны [2009, Movie] Blu-ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] Blu-ra
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Berserk Golden Age Arc: The Egg of
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +190,7 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +218,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +244,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +270,7 @@ Howl no Ugoku Shiro | Howl's Moving Castle | Ходячий Замок [2004, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +296,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] BDRemu
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +322,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация Безр�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +349,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация Безр�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +376,7 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +402,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +428,7 @@ Yofukashi no Uta | Call of the Night | Песнь Ночных Сов [2022, TV,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +454,7 @@ Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина Cлужба До
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +481,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +507,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +533,7 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +559,7 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Берсерк: Бехерит В�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +587,7 @@ Berserk: Ougon Jidai Hen | Berserk: The Golden Age Arc | Берсерк: Зол�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +615,7 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,7 +643,7 @@ Promare | Промар [2019, Movie] Blu-ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -643,7 +669,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -654,32 +680,6 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA93F12840C50EE75F0300EA8CBB4E740FE75925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802325   (14436) от 16.06.2025
-
-Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её заветное желание [2020, Movie] Blu-ray 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жозе взяла себе имя героини романа Франсуазы Саган. Девушка прикована к инвалидному креслу и почти всё время проводит за чтением и рисованием. Знакомство и дружба со студентом Цунэо начинает менять её взгляды на жизнь, да и сам парень теперь смотрит на мир по-другому.Производство: BonesЖанр: романтикаРежиссер: Котаро ТамураПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 98 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83F5AE48A7C829D8F07439CEBC17049A54B5594
 ```
 
 https://mybot314.ru/tekegram_catalog/

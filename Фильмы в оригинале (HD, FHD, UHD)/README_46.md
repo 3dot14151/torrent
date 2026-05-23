@@ -1,3 +1,81 @@
+###  Публикация: 1260275   (311622) от 07.11.2018
+
+Мег: Монстр глубины / The Meg  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Глубоководный батискаф, осуществляющий наблюдение в рамках международной программы по изучению подводной жизни, был атакован огромным существом, которое все считали давно вымершим. Неисправный аппарат теперь лежит на дне глубочайшей впадины Тихого океана... с оказавшимся в ловушке экипажем. Их время на исходе. Китайский океанограф-новатор, несмотря на протесты его (   Читать дальше...   )Производство: США, Китай / Apelles Entertainment, Di Bonaventura Pictures, Flagship Entertainment Group, Gravity Pictures, Maeday ProductionsЖанр: ужасы, фантастика, боевик, триллерРежиссер: Джон ТёртлтаубАктеры: Джейсон Стэйтем, Ли Бинбин, Рэйн Уилсон, Клифф Кёртис, Уинстон Чао, Шуя Софиа Цай, Руби Роуз, Пейдж Кеннеди, Роберт Тейлор, Оулавюр Дарри Оулафссон, Джессика МакНэми, Маси ОкаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, португальские, испанскиеПродолжительность: 01:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F171325141273A611C5BFBECF83EB1E29965B509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260512   (311384) от 07.11.2018
+
+Окончательный счёт / Final Score  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о бывшем солдате, которому предстоит спасти многотысячный стадион зрителей, собравшихся на футбольном матче и взятых в заложники вооружёнными бандитами. Герою придётся вспомнить своей военный опыт, чтобы обезвредить преступников и исполнить долг перед павшим товарищем, чья дочь также оказалась среди возможных жертв.Производство: Великобритания / Signature Films, Drybake Final Score, Highland Film Group, Ingenious Media, thefyzzЖанр: боевик, триллерРежиссер: Скотт МаннАктеры: Дэйв Батиста, Пирс Броснан, Рэй Стивенсон, Мартин Форд, Аарон МакКаскер, Ральф Браун, Амит Шах, Люси Гаскелл, Крэйг Конуэй, Виктория Брум, Лара ПикПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE375A079E409F8C4AB4E25CD3C0C9407A11B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260414   (311180) от 07.11.2018
+
+Миссия невыполнима: Последствия / Mission: Impossible - Fallout (2018) WEB-DL [H.264/1080p-LQ] [IMAX, EN , EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Итан Хант и его команда, а также недавно примкнувшие к ним союзники, вынуждены действовать наперегонки со временем, когда новая миссия идет не по плану.Производство: США, Bad Robot, Paramount Pictures, Skydance Productions, TC ProductionsЖанр: Боевик, Триллер, ПриключенияРежиссер: Кристофер МакКуорриАктеры: Том Круз, Ребекка Фергюсон, Генри Кавилл, Мишель Монахэн, Ванесса Кирби, Уэс Бентли, Саймон Пегг, Анджела Бассетт, Алек Болдуин, Винг РеймзПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6470FB8A083FB2E2CBD5C3468DFF8F1C69879CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960332   (310103) от 27.11.2015
 
 Рождественская звезда / A Christmas Star  (2015) BDRip [H.264/720p] [EN]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029D109A525B3759C7A28AD8D53C607C9C6F8F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185208   (294703) от 20.11.2017
-
-Обет молчания / Acts of Vengeance  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный адвокат и счастливый семьянин Фрэнк в один миг теряет жену и дочь. Произошло жестокое убийство, но расследование не продвинулось ни на шаг. Теперь у юриста в жизни одна цель: найти настоящих убийц. Он начинает собственное расследование. Взяв правосудие в свои руки, он клянется, что не произнесет ни слова до тех пор, пока не отомстит за семью.Производство: Болгария, США / Nu Boyana Film StudiosЖанр: боевик, драмаРежиссер: Айзек ФлорентайнАктеры: Антонио Бандерас, Пас Вега, Карл Урбан, Кристина Серафини, Атанас Сребрев, Эрик Али, Лиллиэн Бланкеншип, Оуэн Дэвис, Клинт Дайер, Кит Д. Эванс, Айзек Флорентайн, Роберт ФорстерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5DF27786F9AB07151161323248E5F4FE030C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262365   (294687) от 15.11.2018
-
-Миссия невыполнима: Последствия / Mission: Impossible - Fallout  (2018) BDRemux [H.264/1080p] [EN / En, Fr, Po, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итан Хант и его команда, а также недавно примкнувшие к ним союзники, вынуждены действовать наперегонки со временем, когда новая миссия идет не по плану.Производство: США, Китай, Франция, Норвегия / Paramount Pictures, Skydance Media, TC Productions, Bad Robot, Alibaba Pictures, Film France, Centre National du Cinéma et de L'image Animée (CNC), Norwegian Incentive SchemeЖанр: боевик, триллер, приключенияРежиссер: Кристофер МакКуорриАктеры: Том Круз, Генри Кавилл, Винг Реймз, Саймон Пегг, Ребекка Фергюсон, Шон Харрис, Анджела Бассетт, Ванесса Кирби, Мишель Монахэн, Уэс Бентли, Фредерик Шмидт, Алек БолдуинПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, португальские, испанскиеПродолжительность: 02:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B959214BA90582FCBC24E68B2269A5F9200ADAAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079487   (294020) от 04.12.2016
-
-Влюблённые дети / Kids in Love  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294020.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Золотая молодежь», дети богатых родителей, с рождения привыкли быть центрами мира, привыкли, что не надо думать о завтрашнем дне, а если вдруг что-то случится – деньги их родителей все решат. Это влияет не только на их поведение и образ жизни, но и на восприятие мира и окружающих. Смогут ли они когда-нибудь осознать, что ответственность за свои поступки несет сам (   Читать дальше...   )Производство: ВеликобританияЖанр: драмаРежиссер: Крис ФоггинАктеры: Уилл Поултер, Альма Ходоровски, Себастьян де Соуса, Кара Делевинь, Гала Гордон, Джейми Блэкли, Пип Торренс, Джеральдин Сомервилль, Джек ФоксПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B31FFC654CDA7420475C725218452B858361D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 519486   (636687) от 06.07.2012
+
+Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 2007 | X-pack
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Историки Второй мировой войны называют атаку на Перл-Харбор самой увесистой и хлёсткой пощёчиной, которую когда-либо получали вооружённые силы США. Японским лётчикам удалось застать противника врасплох: последовавший разгром военно-морской базы американцев спровоцировал затяжное и упорное противостояние на Тихом океане. Бывшие союзники, США и Япония бились с невероятным ожесточением, широко применяя флот, пехоту и в особенности авиацию. «В особенности», потому что самолёты палубного базирования одинаково хорошо подходили и для борьбы с наземными силами, и для поражения морских целей, и, разумеется, для достижения превосходства в воздухе.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Simulator (Flight Combat) / 3DЯзык озвучки: n/aЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFD68132CB100A6D48F3C04E14AA1AD98827B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033705   (635542) от 12.07.2016
 
 Krai Mira/Край Мира (2016) [Ru/En] (1.1) License SKIDROW
@@ -6,7 +32,7 @@ Krai Mira/Край Мира (2016) [Ru/En] (1.1) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ghostbusters (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Aquaria (2007) [En] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shank - Дилогия (Lossless RePack) [Ru/En] 2010-2012 l R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Shank 2 (Repack/1.0dc120305) [Ru] 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Brigador (2017) [Ru/Multi] (1.3.2a) License GOG [Up-Armored Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Salt and Sanctuary (2016) [Ru/Multi] (1.0.0.5) Repack Valdeni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ghostbusters (2016) [En/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Windward (2015) [Multi] (2017-06-17.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Rocket League (2015) [Ru/En] (1.57/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Hoard [Multi5\-] (RePack/1.0) 2011 | R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +373,7 @@ MechRunner (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +400,7 @@ Rolling Sun (2015) [En] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +426,7 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0.12897) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +452,7 @@ Song of the Deep (2016) [En/Multi] (1.02) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +478,7 @@ Enter the Gungeon (2016) [Ru/Multi] (2.1.3/dlc) License PLAZA [Collector`s Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +504,7 @@ Ghostbusters™ (2016) [Multi] (1.0) Repack Dok2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +530,7 @@ Feudal Alloy (2019) [Ru/Multi] (1.02) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +556,7 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +582,7 @@ Rocket League (2015) [Ru/Multi] (1.21/dlc) Repack Dok2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +608,7 @@ Shank - Дилогия [Ru/En] (RePack) 2010-2012 l R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +635,7 @@ Ice Age: Continental Drift - Arctic Games / Ледниковый период 4:
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -637,7 +663,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) Repack R.G.Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,32 +674,6 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) Repack R.G.Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDA8ECD3DA38E62E9198A06B5A5D69109AEF8A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036625   (618718) от 21.07.2016
-
-Grow Home (2015) [Ru/Multi] (5.3.02/upd3) Repack Valdeni
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grow Home - экспериментальная аркада, где вы сыграете за наркомана-робота по имени BUD (Botanical Utility Droid), задача которого - спасти свою родную планету, собирая необычные семена гигантского инопланетного растения. В своем приключении BUD откроет для себя прекрасный мир плавучих островов, которые являются домом для необычных растений и животных.Тип издания: RepackРазработчик: Ubisoft ReflectionsЖанр: Arcade, 3D, 3rd PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C940972135F54EE7D0B2289C6198E6A799C589
 ```
 
 https://mybot314.ru/tekegram_catalog/

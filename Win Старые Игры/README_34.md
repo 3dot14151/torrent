@@ -1,3 +1,29 @@
+###  Публикация: 1687464   (125500) от 27.12.2023
+
+X3: Reunion / X3: Воссоединение (2005) [Ru/Multi] (2.5b) Repack alexalsp
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение высоко оцененной стратегии X3: The Threat включает в себя новый 3D-движок, новый сюжет, корабли и элементы геймплея, с которыми вселенная Х станет еще разнообразнее. Экономика в «X3: Воссоединение» стала еще более комплексной, чем в предыдущих частях серии. Неигровые персонажи самостоятельно торгуют и строят фабрики, войны влияют на положение дел в экономике, (   Читать дальше...   )Тип издания: RepackРазработчик: EgosoftЖанр: Симулятор, ЭкшныЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A096C13D9D578364906980A24EB2230D9396B819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 841401   (125261) от 29.12.2023
 
 Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.1.0.84.4) RePack Mentaz
@@ -6,7 +32,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shattered Union / Shattered Union: Захват США (2005) [Ru] (1.00x) Repac
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Blood: One Unit Whole Blood (1998-2016) [En] (12.2016) Repack/Mod 1nomok [BloodC
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Descent + Descent II (1995-1996) [Ru/En] (0.58-1/dlc) Mod [DXX Rebirth]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ General Strategic Simulations Inc. Anthology (1994-2000) [En] License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Alexander (2004) [Ru] (1.60) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled (2004) [Ru/Multi] (2.2.b) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Scorched Earth (RePack) [En] 1991 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Bad Blood [En] (RePack) 1990 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Battle Master [En] (RePack) 1991 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +578,7 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -630,40 +656,13 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
 Во второй части были добавлены лабиринты с дискретным передвижением, по подобию Eye of the Beholder. До стратегической части вы доберетесь, лишь осилив первый лабиринт.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489035   (101791) от 28.04.2012
-
-Laser Squad [En] (RePack) 1992 | Pilotus
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая игра от братьев Голлопов для ПК. Собственно, даже не первая, а первый порт их игры на ПК, сделанный сторонней компанией Krisalis... Кто такие братья Голлопы? Разве вы не играли в X-Com? Так вот, они это всё придумали...
-Жанр в принципе тот же - тактика. Здесь нет стратегических моментов, здесь всего пять миссий с фиксированными картами, условиями игры и оружием... Эта игра - рай для любителей чистой тактики (или весёлого Hot-Seat рубилова - здесь можно сыграть на двоих! Правда, только друг против друга). Настоятельно рекомендуется всем, кто хочет знать, с чего начиналась легенда команды Mythos Games и откуда растут ноги X-Com.Тип издания: RePackЖанр: СтратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash

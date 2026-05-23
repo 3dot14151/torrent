@@ -1,3 +1,107 @@
+###  Публикация: 1390136   (859288) от 25.09.2021
+
+Strike the Blood IV | Удар крови [OVA-4] [2020, OVA, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Акацуки Коджо был не в лучшей кондиции, когда его окликнула особа, разыскивающая четвертого чистокровного, и он не сразу понял, что речь идет о нем. Девушка сообщает ему, что она находится на острове Онрай. Это была единственная зона для демонов Японии. Касагуя Шизури присматривала за чистокровным. Ему придется вовлечься в работу, но его старались удерживать в стороне (   Читать дальше...   )Производство: студия ConnectЖанр: приключения, эччиРежиссер: Ямамото ХидэёПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E478397EED10003AFD5E36FFF2AFA983FE0D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481551   (859241) от 25.09.2021
+
+Bokutachi no Remake / Remake Our Life! / Ремейк нашей жизни [2021, TV, 12 + OVA] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — бывший сотрудник компании, занимающейся разработкой видеоигр. Компания, в которой он трудился, закрылась из-за долгов, а на выход созданной при его участии игры покупатели не обратили внимание. Неудачи заставляют 28-летнего героя задуматься о жизни и разочароваться в собственных решениях, принятых когда-то. Но вскоре после этого безработный разработчик (   Читать дальше...   )Жанр: приключения, комедия, романтика, драма.Режиссер: Кобаяси ТомокиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 1-ая серия 50 мин, 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B81B5BCE8099767CF001402182C24E49FE1C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440976   (859237) от 25.09.2021
+
+Jaku-chara Tomozaki-kun / Bottom-tier Character Tomozaki / Низкоуровневый персонаж Томодзаки [2021, TV, 12+2 OVA] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фумия Томодзаки считает себя «низшим уровнем», в жизни у него нет никаких выдающихся качеств, кроме одного: он является лучшим игроком в Atafami во всей Японии. Однажды второй в рейтинге игрок предлагает встретиться. Томодзаки испытывает потрясение, выяснив, что этот игрок — не кто иной, как его одноклассница, имеющая в реальной жизни «уровень Бога», умная и красивая (   Читать дальше...   )Жанр: комедия, романтика.Режиссер: Янаги СинсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин (TV), 2 серии по 15 мин (OVA).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF98F182E45B242CFF86B820D0B5E3A7BC74E9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482762   (859236) от 25.09.2021
+
+Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Чёрной компании" [2021, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Киндзи — обычный современный бездельник, для которого рабочая этика или трудолюбие — пустые слова. Но однажды всё меняется: он обнаруживает себя в фэнтезийном мире, но не таком, где героя-попаданца ждут с распростёртыми объятиями. Вместо этого он оказывается под пятой злобной горнодобывающей компании, и ему предстоит на собственной шкуре уяснять значение словосочетания (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключенияРежиссер: Минато МирайПеревод: 1) Funimation; 2) Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: 1) Английские; 2) РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C8915B778E04168AEA23DC6CB5B24708C64444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481540   (859235) от 25.09.2021
 
 Bokutachi no Remake | Remake Our Life! | Ремейк нашей жизни [2021, TV, 12 эп.] WEBRip 1080p raw
@@ -6,7 +110,7 @@ Bokutachi no Remake | Remake Our Life! | Ремейк нашей жизни [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Yowamushi Pedal: Grande Road | Трусливый Велосипедист 2 [TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Vinland Saga | Сага о Винланде [2019, TV, 24 из 24] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 эп.] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Blue Reflection Ray | Синее отражение. Луч [2021, TV, 24 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Gen'ei o Kakeru Taiyou | Day Break Illusion | Солнце, пронзающее
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Landlock / Лэндлок [1996, OVA, 2 ep.] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Relic Armor Legaciam / Легасиям [1987, OVA] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Grey: Digital Target / Грэй: Цифровая мишень [1986, MV] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Deatte 5 Byou de Battle | Battle in 5 Seconds After Meeting | Битва чер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Koutetsujou no Kabaneri / Kabaneri of the Iron Fortress / Кабанери же�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ Kurozuka | Куродзука [2008, TV, 12 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +536,7 @@ Magimoji Rurumo | Ведьмочка Рурумо [2014, TV, 12 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +563,7 @@ Heion Sedai no Idaten-tachi | The Idaten Deities Know Only Peace | Боги-ст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +589,7 @@ Haikyuu!! Second Season / Волейбол!! [ТВ-2] [2015, TV, 25 из 25] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +615,7 @@ Kidou Senshi Gundam: Tekketsu no Orphans / Mobile Suit Gundam: Iron-Blooded Orph
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +641,7 @@ Saiki Kusuo no Psi Nan | The Disastrous Life of Saiki K. | Ох, уж этот �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +667,7 @@ Kemonozume / Когти зверя [2006, TV, 13 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,112 +680,6 @@ Kemonozume / Когти зверя [2006, TV, 13 эп.] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A86320F645768C58A346D7BA104D1A17047CC652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483647   (852314) от 29.09.2021
-
-Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852314.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2041 году в Японии запрещена религия и распространение любой информации о сверхъестественных явлениях. Любое нарушение жестоко карается законом. В это же время из одного исследовательского института выбираются два брата, обладающие необычными способностями, и сталкиваются с враждебным к ним миром.
-
-Перед просмотром рекомендуем посмотреть первый сезон.Производство: Студия Shirogumi / 白組Жанр: приключенияРежиссер: Хиракава ТакамицуПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF91FC6D096E9105C89D4514CCE479C1E6FE8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973920   (851798) от 29.03.2016
-
-Fairy Tail Zero | Фейри Тейл Зеро [2016, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851798.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как начинала свое существование одна из сильнейших гильдий Фиора - "Хвост Феи".Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Исихира Синдзи / Ishihira Shinji / 石平信司Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEAF335DEACC1C1C6E1E5C24EC09D577C156F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975962   (850036) от 30.03.2016
-
-Ao no Kanata no Four Rhythm / Aokana / Четыре ритма сквозь синеву: За небо, в небосвод [2016, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди все-таки научились летать – правда, без крыльев, с помощью гравиботинок. В больших городах полеты ограничены, а вот в глубинке и на далеких островах – сколько угодно. Именно на такие острова, родину отца, приезжает Асука Курасина – и тут же влюбляется в небо и воздушный спорт под названием «летающий цирк». Ее инструктором по воле судьбы и мудрого учителя Кагами (   Читать дальше...   )Жанр: научная фантастикаРежиссер: Ойдзаки ФумитосиПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EE0CE0B7684A854614552CC8A4CA7DEFD0F156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488462   (849178) от 01.10.2021
-
-Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | Записи о магии [ТВ-2] [2021, TV, 8 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочки-волшебницы сражаются в безвестной войне ради исполнения своих заветных желаний. Но Ироха Тамаки позабыла, что она загадала… — О чём же я просила, когда стала волшебницей?.. — задаётся она вопросом. В её жизни словно зияет огромная дыра. Она утратила нечто важное, дорогое… Но что? День за днём Ироха сражается, понятия не имея, зачем. Но тут среди девочек-волшебниц (   Читать дальше...   )Производство: студия Shaft / シャフトЖанр: махо-сёдзё, драмаРежиссер: Анай ЁсукэПеревод: 1) Funimation; 2) AniLibriaЯзык озвучки: ЯпонскийСубтитры: 1) Английские; 2) РусскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F5C0B5CC2867D69CFC6AC4821F6FE3BE9DC06D
 ```
 
 https://mybot314.ru/tekegram_catalog/

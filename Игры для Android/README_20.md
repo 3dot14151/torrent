@@ -1,29 +1,3 @@
-###  Публикация: 1767125   (33482) от 21.12.2024
-
-DREDGE v1.5.4 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встав за штурвал рыболовного траулера, вы сможете отправиться в плавание по затерянным в глуши островам и узнать, что сокрыто на дне окружающих их вод. Продавайте улов местным жителям и выполняйте задания, чтобы узнать о нелегком прошлом этих мест. Оснастите свое судно усовершенствованным оборудованием, чтобы вылавливать рыбу с самых глубин и доплыть до дальних земель. (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 19 дек. 2024 г.Разработчик: Black Salt GamesПоддерживаемая ОС: Android 7.0+ (arm64-v8a)Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4552412D99A45192468FFA7C1BC167D4B08E03D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766974   (33461) от 21.12.2024
 
 Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
@@ -32,7 +6,7 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +32,7 @@ Bendy and the Ink Machine v1.0.840 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +58,7 @@ A Kindling Forest v1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +84,7 @@ ARK: Ultimate Mobile Edition 1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +112,7 @@ Woolly Boy and the Circus 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +140,7 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +166,7 @@ Homo Machina v1.6.38 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +192,7 @@ Castlevania: SotN v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +218,7 @@ The Grinch 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +244,7 @@ Universe For Sale 1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +272,7 @@ Not Another Weekend v1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +301,7 @@ DYSMANTLE v1.4.0.03 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +328,7 @@ Unforeseen Incidents v1.0.90 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +354,7 @@ Young Detective: The Mutation v1.2.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +380,7 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -435,7 +409,7 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -461,7 +435,7 @@ Niffelheim v1.6.15 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,7 +461,7 @@ Ugly v1.1.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -515,7 +489,7 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -541,7 +515,7 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,7 +543,7 @@ GRID™ Autosport v1.10RC10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -595,7 +569,7 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -621,7 +595,7 @@ Reviver: Premium v1.0.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -648,7 +622,7 @@ Monolith v1.1.12.065 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -675,7 +649,7 @@ Arcane Quest Legends 2 Offline v1.0.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -686,6 +660,32 @@ Arcane Quest Legends 2 Offline v1.0.10 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA1FABC0C98A1EC1A37CAE64569DF84FA8CB42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774584   (30170) от 22.01.2025
+
+Bright Memory: Infinite v1.0 b82 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+В 2036 году в небе по всему миру произошло странное явление, которому ученые не могут найти объяснения. Исследовательская организация сверхъестественных наук (SRO) отправила агентов в различные регионы для исследования этого явления. Вскоре выясняется, что эти странные происшествия связаны с архаичной тайной - пока еще неизвестной историей двух миров, которая вот-вот (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 20 янв. 2025 г.Разработчик: FYQD-StudioПоддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ЭкшнЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FB35D586742CBEF962CB0E5FE2CC4DD8D6ECFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

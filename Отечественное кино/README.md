@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1870324   (1069220) от 
+
+Ретро втроем (1998) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+“Ретро втроем” – это римейк знаменитого немого фильма А.Роома “Третья Мещанская”. Современная версия истории любви втроем на фоне летней, умытой теплым дождем, сверкающей изумрудом бульваров и парков юбилейной Москвы. Неудавшийся клоун Сергей, вернувшись из провинции в Москву. Поселяется у старого друга Кости, тоже бывшего артиста, устанавливающего теперь спутниковые (   Читать дальше...   )Производство: Россия, Киностудия "Круг", Мирабель-Фильм, Госкино РоссииЖанр: МелодрамаРежиссер: Пётр ТодоровскийАктеры: Елена Яковлева, Сергей Маковецкий, Евгений Сидихин, Эльвира Болгова, Екатерина Двигубская, Татьяна Ивченко, Юрий Колокольников, Николас Петров, Ольга Сидорова, Борис Вельшер, Марина Видинеева, Владимир Епископосян, Александр Жигалкин, Александр Лырчиков, Владимир Капустин, Евгений СтычкинСубтитры: отсутствуютПродолжительность: 01:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5440F683F8448B27048401E0F138882864A492BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870347   (1069205) от 
+
+Рататуй (2006) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Невероятная комедия с нереальным концом по законам детективного жанра. Из музея похищена бесценная картина Айвазовского. Ночью в загородном доме Шефа (А. Баширов) грабители празднуют столь знаменательную операцию. Однако в самый разгар веселья Шеф неожиданно застает свою подругу Марго (К. Раппопорт) в объятиях своего сотоварища (И. Скляр). За изменой следует целая (   Читать дальше...   )Производство: РоссияЖанр: комедияРежиссер: Роман СмирновАктеры: Игорь Скляр, Ксения Раппопорт, Юрий Ицков, Александр Баширов, Андрей ШарковСубтитры: отсутствуютПродолжительность: 01:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5707D054AF17C61057DF805BF1C16362B2F230D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870766   (1068914) от 
+
+Немая кукушка (2024) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Зимой 1939 года в Карельском лесу встречаются два солдата — молодой красноармеец Зариф из деревни Субай и защищающий свою родину, Финляндию, снайпер Зиятдин. Два земляка, которые говорят на одном родном языке, оказываются по разные стороны фронта.​Производство: Россия / Миг ПродакшнЖанр: драма, военный, историяРежиссер: Рауф КубаевАктеры: Илсаф Назипов, Саида Мухаметзянова, Эльдар Гатауллин, Зульфат Хаким и др.Субтитры: русские (hardsub на татарскую и финскую речь)Продолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6184B712F78C84931C7F2A510F8038D8E8E9B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869701   (1068492) от 
 
 Сирота казанская (1997) IPTV [H.264]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65909A321B05556F8D47259D35C0754B59672C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860785   (1062129) от 22.03.2026
-
-Казачья быль (1999) HDTV [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1552 год. Царь Иван Грозный готовит поход на Казань. Но есть у него опасение, что вольные донские казаки могут не поддержать его в этом походе, и даже наоборот — ударить в тыл его армии. Он отправляет на Дон гонца, бывшего казака Романа Алимова, чтобы разведать их планы, и вручает ему пояс с драгоценными камнями как знак царского отличия. По дороге на Дон Роман попадает (   Читать дальше...   )Производство: Россия / Свердловская киностудияЖанр: фантастика, приключения, историяРежиссер: Николай ГусаровАктеры: Анатолий Котенёв, Венера Сиразиева, Евгений Минулин, Юрий Назаров, Лесь Сердюк, Юрий Алексеев, Владимир Антоник, Юрий Дубровин, Николай Гусаров, Александр Ческидов, Олег НиколаевскийПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75E86AD701E444E05DEE59E8D7677E01D063F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860759   (1061991) от 22.03.2026
-
-Мы странно встретились (2007) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061991.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своем провинциальном городке красавица Надежда Решетова занимает солидную должность — начальник управления строительством в местной мэрии. Однако личная жизнь ее пока не сложилась. Она живет вдвоем с бабушкой и каждые выходные ездит на рыбалку. Однажды во время такой поездки она встречает «принца на белом коне» — московского бизнесмена Виктора. Впрочем, на пороге (   Читать дальше...   )Производство: Россия, Украина / "Star Media"Жанр: МелодрамаРежиссер: Сайдо Курбанов, Юлия ГерраАктеры: Ярослав Бойко, Ольга Красько, Валентина Ананьина, Вадим Александров, Сергей Юшкевич, Тамара Спиричева, Татьяна Кузнецова, Наталья Позднякова, Вадим Ситников, Ксения ЧерноскутоваСубтитры: русскиеПродолжительность: 01:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BA21F4F94E04A7491A3E9B5E3F7CFDD8B63141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860388   (1061843) от 20.03.2026
-
-Левша (2025) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия, конец XIX века. На фоне надвигающейся войны с Великобританией в императорском дворце находят загадочное устройство — механическую блоху. Расследовать происшествие поручают молодому офицеру Петру Огарёву, мечтающему заслужить доверие императора Александра III. В поисках истины он объединяется с Левшой — гениальным, но забытым мастером из Тулы. Вместе они погружаются (   Читать дальше...   )Производство: Россия / Legio FelixЖанр: фантастика, приключения, детективРежиссер: Владимир БесединАктеры: Юрий Колокольников, Фёдор Федотов, Леонела Мантурова, Ян Цапник, Алексей Гуськов, Артур Иванов, Александр Чевычелов, Николай Евстафьев, Александр Иванов, Семён НефедовПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3A9401EB1703204968763F6FA46B6C41867E5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

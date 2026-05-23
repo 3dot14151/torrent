@@ -1,3 +1,81 @@
+###  Публикация: 1486101   (1004945) от 29.07.2021
+
+Форсаж 9 / F9 (2021) WEB-DL [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Доминик Торетто ведет спокойную жизнь вместе с Летти и сыном Брайаном, но новая опасность всегда где-то рядом. В этот раз Доминику придется встретиться с призраками прошлого, если он хочет спасти самых близких. Команда снова собирается вместе, чтобы предотвратить дерзкий план по захвату мира, который придумал самый опасный преступник и безбашенный водитель из всех, (   Читать дальше...   )Производство: США, Таиланд, Канада / One Race Films, Original Film, Perfect Storm Entertainment, Roth/Kirschenbaum Films, Universal PicturesЖанр: Боевик, триллер, криминал, приключенияРежиссер: Джастин ЛинАктеры: Вин Дизель, Джон Сина, Тайриз Гибсон, Лудакрис, Джордана Брюстер, Натали Эммануэль, Мишель Родригес, Хелен Миррен, Шарлиз Терон, Майкл РукерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC576E1E77121AD4ECBB1604CC39308EF9135FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486086   (1004943) от 29.07.2021
+
+Форсаж 9 / F9 (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Доминик Торетто ведет спокойную жизнь вместе с Летти и сыном Брайаном, но новая опасность всегда где-то рядом. В этот раз Доминику придется встретиться с призраками прошлого, если он хочет спасти самых близких. Команда снова собирается вместе, чтобы предотвратить дерзкий план по захвату мира, который придумал самый опасный преступник и безбашенный водитель из всех, (   Читать дальше...   )Производство: США, Таиланд, Канада / One Race Films, Original Film, Perfect Storm Entertainment, Roth/Kirschenbaum Films, Universal PicturesЖанр: Боевик, триллер, криминал, приключенияРежиссер: Джастин ЛинАктеры: Вин Дизель, Джон Сина, Тайриз Гибсон, Лудакрис, Джордана Брюстер, Натали Эммануэль, Мишель Родригес, Хелен Миррен, Шарлиз Терон, Майкл РукерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 02:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C57D709CA5FC094BAB4145299D867E924DECF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486325   (1004803) от 30.07.2021
+
+Круиз по джунглям / Jungle Cruise (2021) WEB-DL [H.264/1080p] [EN / multi Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Отважная исследовательница дикой природы Лили Хоутон намерена отправиться в верховья Амазонки, чтобы найти легендарное дерево, которое – согласно преданиям южноамериканских индейских племен – обладает магическими целебными свойствами. Сопровождать Лили будут её утонченный брат Макгрегор и бесшабашный капитан круизного пароходика Фрэнк. В дебрях джунглей путников (   Читать дальше...   )Производство: США / Davis Entertainment, Flynn Picture Company, Seven Bucks ProductionsЖанр: приключения, комедия, фэнтезиРежиссер: Жауме Кольет-СерраАктеры: Дуэйн Джонсон, Эмили Блант, Эдгар Рамирес, Джек Уайтхолл, Джесси Племонс, Пол Джаматти, Вероника Фалькон, Энди Найман, Филипп Максимилиан, Дэни РовираПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, датские, финские, французские, немецкие, итальянские, японские, норвежские, португальские, испанские, шведскиеПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C12B74DD90C3BEC3D215DA9668F806DF0A8E773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349611   (1003942) от 03.01.2020
 
 Отмщение / Avengement (2019) BDRemux [H.264/1080p] [EN]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:103BCE3109082D85776F6A1D1715ECB37B8AEDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978800   (961956) от 24.01.2016
-
-Право на наследие / Freeheld  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет картины расскажет реальную историю девушки по имени Стейси Эндри, работающей автомобильным механиком в Нью-Джерси, и ее подруги - полицейского детектива Лорел Хестер. Обе героини пытаются найти способ передать по наследованию полицейские льготы Хестер после того как выясняется, что она больна смертельным заболеванием...Производство: США, Double Feature Films, Endgame Entertainment, High Frequency Entertainment, Head Gear Films, Metrol TechnologyЖанр: драма, мелодрама, биографияРежиссер: Питер СоллеттАктеры: Джулианна Мур, Эллен Пейдж, Майкл Шеннон, Стив Карелл, Джош Чарльз, Люк Граймс, Деннис Буцикарис, Мэри Бердсонг, Том МакГоуэн, Гэбриел Луна, Скипп Саддат, Келли ДэдмонПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F68FC03D153053B579AEB6ECF5BEC7651E75D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979184   (960686) от 25.01.2016
-
-Затмение / Regression (2015) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе расследования дела Анджелы Грей детектив Брюс Киннер вынужден обратиться к психологу для выявления ее подавленных воспоминаний. Сеанс регрессивного гипноза открывает ужасающие факты — по ночам с согласия отца над девушкой проводились сатанинские ритуалы. Желая защитить девушку от преследования зловещего тайного общества, детектив оказывается втянут в пугающий (   Читать дальше...   )Производство: Испания, Канада / First Generation Films, Himenptero, Mod Producciones, Telecinco Cinema, Telefnica StudiosЖанр: Ужасы, Триллер, ДетективРежиссер: Алехандро АменабарАктеры: Эмма Уотсон, Итан Хоук, Дэвид Тьюлис, Девон Бостик, Аарон Эшмор, Дейл Дикки, Давид Денсик, Кристиан Бруун, Адам Батчер, Аарон АбрамсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34341F577819E86201F61A70B6ECB69E6CC1D34E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979372   (959592) от 26.01.2016
-
-Макбет / Macbeth  (2015) BDRemux [H.264/1080p] [EN / EN, Ge Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холодные поля Шотландии, военный лагерь, всегда готовый переместиться в другое место. Макбет всегда на войне, его жена, недавно потерявшая ребенка, боится потерять еще и мужа. Чтобы удержать его рядом, она начинает свой проект по устранению конкурентов в борьбе за королевскую корону.Производство: Великобритания, Франция, США, Anton Capital Entertainment (ACE), Creative Scotland, DMC Film, Film 4, See-Saw Films, Studio CanalЖанр: драма, военныйРежиссер: Джастин КурзельАктеры: Майкл Фассбендер, Марион Котийяр, Пэдди Консидайн, Шон Харрис, Джек Рейнор, Элизабет Дебики, Дэвид Тьюлис, Росс Андерсон, Дэвид Хейман, Морис Роевз, Хилтон МакРэй, Сейлан БакстерПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, немецкийПродолжительность: 01:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DB0C203178511A33742DCD6CBB3D884261518E
 ```
 
 https://mybot314.ru/tekegram_catalog/

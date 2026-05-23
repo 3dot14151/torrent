@@ -1,3 +1,107 @@
+###  Публикация: 1205892   (783185) от 11.02.2018
+
+Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [2017, TV, 13 из 13] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1863 год, бурная эпоха самураев подходит к концу. Япония разделена между фракциями за сёгуната и против сёгуната. Судьба мира находится под угрозой, поскольку армия исторических ревизионистов отправляется из будущего, чтобы изменить ход истории. Чтобы остановить эти силы и защитить настоящую историю, два мечей-воинов, духи, которые являются мечами, оживленными Санивой, (   Читать дальше...   )Производство: Студия UFO TableЖанр: приключения, фэнтезиРежиссер: Сирай ТосиюкиПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3FD3AEBD32D605B5E87E13B428E30E42FF0E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390391   (783061) от 15.06.2020
+
+Arslan Senki: Fuujin Ranbu / The Heroic Legend of Arslan: Dust Storm Dance / Сказание об Арслане [ТВ-2] [2016, TV, 8 из 8 эп.] BDRip 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Силы Лузитании нечеловеческими усилиями продолжают удерживать власть над Королевством Парса, в то время как Арслан ведет ожесточенное сражение против Серебряной Маски. Арслан уверенно борется за свой законный трон, но осталось еще много проблем, нависающих тяжким бременем над юным принцем. Однако самой главной загадкой для Арслана по-прежнему остается личность его (   Читать дальше...   )Производство: Liden FilmsЖанр: приключения, фэнтези, драмаРежиссер: Абэ НориюкиСубтитры: РусскиеПродолжительность: 8 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20882F708B86D5DABE69E8045BAFFE51DDD4E91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390446   (783051) от 15.06.2020
+
+Mirai Keisatsu Urashiman | Future Police Urashiman | Урасиман: Полиция будущего [1983, TV, 50 из 50] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет начинается с 1983 года, в котором молодой парень Рико ночью во время шторма вместе с котом спасается от преследования полиции и попадает в процессе этого в центр циклона, после чего из-за временно-пространственного искажения, попадает в будущее. В будущем его начинает преследовать преступная мафия «Некрим» во главе с Людовичем. И вот, взяв себе новое имя Рю (   Читать дальше...   )Производство: Tatsunoko Production / タツノコプロЖанр: приключения, комедия, фантастикаРежиссер: Масимо КойтиПеревод: KitsuNeNeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C5F0A74DC7B0EBD50E0BBE89C14DE8B897F913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205929   (782940) от 12.02.2018
+
+Touken Ranbu: Hanamaru | Дикая пляска мечей: Ханамару [2016, TV, 12 из 12] BDRip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2205 год. «Историки-ревизионисты» задумали натурально изменить историю и с этой целью совершают «атаки на прошлое». Санива, чьей задачей является защита истории, может наделять жизнью неживые объекты, самые сильные из которых — «парни-мечи». Сериал рассказывает об их беззаботной повседневности.Производство: Студия Dogakobo / 動画工房Жанр: приключения, комедияРежиссер: Наоя ТакасиПеревод: YakusubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BFA87B89F03E18DE7FBB1452AFCCC50D82609E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295731   (782189) от 17.06.2020
 
 Mayonaka no Occult Koumuin | Midnight Occult Civil Servants | Оккультные служащие полуночи [2019, TV, 12 эп. + 3 OVA] WEB-DL 720p raw
@@ -6,7 +110,7 @@ Mayonaka no Occult Koumuin | Midnight Occult Civil Servants | Оккультны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Sakura Quest | Квест Сакуры [2017, TV, 25] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sakura Wars the Animation | Shin Sakura Taisen the Animation | Сакура: Н�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Higashi no Eden Gekijoban I: The King of Eden / Eden of The East the Movie I: Th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Yoru wa Mijikashi Aruke yo Otome | The Night Is Short, Walk on Girl | Ночь �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Hirune-hime: Shiranai Watashi no Monogatari | Napping Princess | Спящая п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Cardcaptor Sakura: Clear Card Hen - Prologue Sakura to Futatsu no Kuma | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Tamayura: Sotsugyou Shashin / Тамаюра (фильм) [2015, Movie, 4 из 4
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -215,7 +319,7 @@ DEVILMAN crybaby | Devilman: Crybaby | Человек-дьявол: Плакса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Gin no Guardian II | The Silver Guardian 2 | Серебряный страж [Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +371,7 @@ No Game No Life Zero | Нет игры - нет жизни (фильм) [2017, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Taishou Mebiusline: Chicchai-san | Кроха Тайсё [2017, TV, 12+SP] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Yuuri!!! on Ice | Юри на льду [2016, TV, 12] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Little Witch Academia (2017) | Академия ведьмочек [2017, TV, 25
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -400,7 +504,7 @@ Plastic Memories | Синтетические воспоминания [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +530,7 @@ Shinmai Maou no Testament BURST | The Testament of Sister New Devil BURST | За
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +559,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] BDrip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Kokoro ga Sakebitagatterunda | Kokosake | The Anthem of the Heart | Сердцу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Tenkuu no Escaflowne / Vision of Escaflowne TV / Видение Эскафлон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +668,7 @@ Buzzer Beater 2 | Забить на последней секунде 2 [2007, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,111 +680,6 @@ Buzzer Beater 2 | Забить на последней секунде 2 [2007, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86BE8FF29AC04F28DFE41D9107CACEB91778082F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391655   (773248) от 21.06.2020
-
-Buzzer Beater | Забить на последней секунде [2005, TV, 13 из 13] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем баскетбол, который в свое время придумали земляне, захватила раса пришельцев Гораны. Они стали лучшими игроками во вселенной. Их команды заняли все места в Интергалактической Лиге, не оставив землянам ни шанса.
-Но не все земляне сдались. Один влиятельный в баскетболе человек еще грезит мечтой собрать команду землян, которой бы не было равных в Интергалактической (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: фантастика, спортРежиссер: Мия СигэюкиПеревод: troiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF81E8A120D79F5B3BCDE34CAADFCF962E032E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838011   (773209) от 06.04.2015
-
-Gekkan Shoujo Nozaki-kun | Monthly Girls' Nozaki-kun | Нозаки и его сёдзё-манга [2014, TV, 12 эп. + 6 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773209.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Тиё Сакура наконец-то решилась признаться статному красавцу-спортсмену Умэтаро Нодзаки из соседнего класса. Вот только силенок ясно выразить свои чувства ей не хватило – на первую часть сбивчивой речи парень отреагировал, дав автограф, а когда Сакура все же смогла выдать, что хочет быть с ним… просто пригласил в гости! Там девушка и поняла, что спорт у ее избранника уже в прошлом, а ныне он – успешный автор девичьей манги, творящий под женским псевдонимом Сакико Юмэно. Что ж, Тиё тоже неплохо владеет (   Читать дальше...   )Производство: Студия DogakoboЖанр: комедия, повседневностьРежиссер: Ямадзаки МицуэПеревод: ShojoseiЯзык субтитров: РусскийПродолжительность: 12 серий по 24 минуты + 6 спешиалов по 4 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BC4784AC8178B53204DAA56B473339045AFE40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391650   (773126) от 21.06.2020
-
-All Out!! | Изо всех сил!! [2016, TV, 25 из 25] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэнджи Гион, мягко говоря, не вышел ростом, и этот факт доводит его до белого каления. Своё раздражение он вымещает на всех, кто принимает его за ребёнка. Случается это, надо сказать, постоянно. А вот Сумиаки Ивашимизу, наоборот, крайне застенчивый и крайне высокий юноша. И вот эти двое оказываются в одной старшей школе и в первый же день натыкаются на хулиганов, (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメント, Madhouse / マッドハウスЖанр: спортРежиссер: Симидзу КэнъитиПеревод: AOS Team (RazGildyai, KsenyaHearty)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A455D257D068CB49D9DEA95D56D5A2C9ED39D819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373696   (772443) от 21.06.2020
-
-Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020) | Ascendance of a Bookworm (2020) | Власть книжного червя (ТВ-2) [2020, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772443.jpg" />
-</div>
-
-
-###  Подробнее
-
-После завершения церемонии крещения, Майн приступает к своим обязанностям послушницы. Её ожидания оправдались. То, о чём она мечтала: комната, полная книг! Но новая жизнь оказалась не сахаром. Она окружена дворянами, презирающими её, как и прочих простолюдинов, и даже её собственные слуги причиняют ей неприятности. И это всё на фоне постоянной борьбы со слабостью (   Читать дальше...   )Производство: ЯпонияЖанр: комедия, повседневностьРежиссер: Митсуру ХонгоПеревод: Annie & ThirTeen (SovetRomantica)Язык озвучки: ЯпонскийПродолжительность: 12 эпизодов по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218BA4436C6D18F992D958BD2F5C43CB68C6F2B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

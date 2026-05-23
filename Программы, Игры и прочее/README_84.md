@@ -1,3 +1,81 @@
+###  Публикация: 1837263   (256828) от 15.11.2025
+
+Спортсмен PRO. Тренировка v4.07 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Удобное приложение для желающих заниматься и уже занимающихся спортом. Подтягивания. Отжимания. Скручивание. Приседания. Обширный каталог инструкций.Тип издания: Premium / ModРелиз состоялся: 15.11.2025Разработчик: AxiomRunПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9444530487382F04115960509918C64FAE32D657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837169   (256827) от 15.11.2025
+
+Акции всех магазинов России v169.3.2 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Узнавайте об акциях и скидках в Магните, Пятерочке, Перекрестке, Ленте и других магазинах рядом с вами.Тип издания: ModРелиз состоялся: 12.11.2025Разработчик: ПтичкаПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9274EC99FAB2F94EA43C1E346F63EF701F610C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837265   (256816) от 15.11.2025
+
+OsmAnd+  Карты & GPS Офлайн v5.2.9 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету. OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: Live ModРелиз состоялся: 15.11.2025Разработчик: OsmAndПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9C1573E162BF91AFD8867A1A107059D73EDA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837275   (256815) от 15.11.2025
 
 Sense Flip Clock & Weather v8.99.8 Mod by youarefinished [Ru/Multi]
@@ -6,7 +84,7 @@ Sense Flip Clock & Weather v8.99.8 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Sense V2 Flip Clock & Weather v8.91.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +137,7 @@ Smart Tools v2.1.16 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +163,7 @@ ProShot v8.32.1.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +189,7 @@ DRM-Play v1.45 / v1.56.2 Lite Mod by ajrys [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +241,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.3.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +346,7 @@ Photo Studio PRO v2.8.7.4631 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +398,7 @@ PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +450,7 @@ MIUI Hidden Settings Activity v1.6.11 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +476,7 @@ All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +502,7 @@ SnapEdit - AI photo editor v7.5.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +528,7 @@ FBReader Premium v3.8.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +554,7 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +580,7 @@ Bria Mobile: VoIP Softphone v6.21.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +606,7 @@ Mary’s recipes: рецепты, меню v6.7.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Vanced Tube v5.5.80.151 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -591,85 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAC7A161709901BDF3F647919A9A44E7C76BFD45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404426   (254906) от 22.04.2023
-
-Lexilize FlashCards v4.8.5 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только представьте, что изучение иностранного языка может быть игрой и никак не связано со скучным запоминанием. Lexilize Flashcards – это приложение, которое максимально упрощает процесс изучение языка. С помощью функции автоперевода из словаря Multitran и словаря Яндекс Вы можете быстро составить свой словарь слов с транскрипцией, примерами. Вы также можете добавить (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 21.04.2023Разработчик: LexilizeПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD99B0CBEB104712F69A15B79670DDFB0C15694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836190   (252439) от 09.11.2025
-
-RAR for Android v7.20 build 128 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252439.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR компании RARLAB способен создавать RAR и ZIP и распаковывать RAR, ZIP, TAR, GZ, BZ2, XZ, 7z, ISO, ARJ архивы. Список команд включает восстановление поврежденных ZIP и RAR архивов, функцию измерения производительности, совместимую с аналогичной функцией WinRAR компании RARLAB. Среди прочих возможностей - данные для восстановления, обычные тома и тома для восстановления, (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 09.11.2025Разработчик: RARLAB (published by win.rar GmbH)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47A89BB2395ABE32BB42AA1C552C3FB277B9D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835943   (252356) от 08.11.2025
-
-Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобное и функциональное приложение для распознавания музыки с возможностью создания красивой визуализации спектра прослушиваемой композиции. Хранит историю запросов. В случае наличия распознанной композиции в базах сервисов потоковой музыки выдаются ссылки на Deezer / Spotify / YouTube.
-С приложением идентификатора песни Beatfind вы можете исследовать песни альбома, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2025Разработчик: Beatfind Music RecognitionПоддерживаемая ОС: Android 6.0-15.0Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D986AABD5C819604FEBFCF277B9821F7304271D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

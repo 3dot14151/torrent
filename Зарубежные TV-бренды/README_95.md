@@ -1,3 +1,55 @@
+###  Публикация: 1257316   (332813) от 01.11.2018
+
+Тайны шести жен с Люси Уорсли / Secrets of the Six Wives with Lucy Worsley (2016) HDTVRip [H.264/1080p-LQ] (Сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал показывает нам драматическую реконструкцию, в которой Люси Уорсли пересматривает ключевые события в жизни шести жен Генриха VIII, раскрывает те моменты в которых каждая из них пыталась оказать влияние на короля и суд Тюдоров. Люси вникает в записи личных моментов и личных чувств в жизни этих женщин, которые в конечном итоге формируют ход истории.Производство: Великобритания, Wall to Wall South LtdЖанр: Документальный, драма, биография, историяРежиссер: Расселл ИнглэндПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4D5740B4DACCFC14CDD22040FF2AD9E08CB3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248309   (332799) от 01.11.2018
+
+Discovery: Остров с Беаром Гриллсом / The Island with Bear Grylls (2018) HDTVRip [H.264/720p-LQ] [50fps] (сезон 5, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В современном обществе гораздо больше равенства между людьми, чем сотни лет назад, но одно осталось неизменным: разница в доходах. Даже в самых процветающих странах до сих пор есть те, кто вынужден ежедневно экономить, и те, кто сорит деньгами направо и налево. Но имеет ли эта разница значение, если речь идет о выживании? Это берется проверить Беар Гриллс в новом (   Читать дальше...   )Производство: Великобритания, Shine TV, Bear Grylls Ventures, Discovery ChannelЖанр: Документальный, реалити-шоу, выживаниеРежиссер: Мэтт Беннетт, Дэн Этеридж, Руперт СмитПеревод: Двуголосый закадровый, профессиональный (Кипарис)Субтитры: отсутствуютПродолжительность: серии x~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5211FFD2BD1F4C177F11E9D442BB16397506D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 840585   (332316) от 14.11.2014
 
 Discovery. Махинаторы (Автодилеры) / Darracq (2014) HDTVRip [XviD/720i] (сезон 11, серия 13) [PR]
@@ -6,7 +58,7 @@ Discovery. Махинаторы (Автодилеры) / Darracq (2014) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery. Махинаторы (Автодилеры) / Lincoln Continental (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Discovery: Разрушители легенд. Незаконченное де�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ BBC. В поисках Бронте / In Search of the Brontes (2003) VHSRip (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ Da Vinci Learning: Эко-2. Дизайн / E2.Design (2006) SATRip (сезон�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ BBC: Уникальные способности животных / Super Senses
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ Discovery: Разрушители легенд. Звёздные войны: О�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ N.G. Большие кошки. Удивительная семья / Big Cats: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251140B945850FD3533478B54C5BA69B1076F8A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259963   (316409) от 05.11.2018
-
-NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/1080p-LQ] (сезон 1, серии 1 из 6) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет переполнен короткими видео, где любители по всему миру достигают каких-то своих немыслимых высот, делают что-то захватывающее, смешное или опасное. Эти клипы демонстрируют как безграничные умения, так и безрассудство, снятое на камеру телефона и залитое в сеть на всеобщее обозрение. Инженер Тим Шоу живёт ради конструирования и создания изобретений, он хочет (   Читать дальше...   )Производство: CША, Stock Fotage Jukin Media Inc., National GeographicЖанр: Документальный, интернет, исследованиеРежиссер: Стефен ШерманПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBACA2458FFB33FE7DC3C2B24400668166356F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259980   (316405) от 05.11.2018
-
-NG. Экстремальный Китай. Хайнань / Extreme China. Hainan (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователь и фотограф Бен Хортон объединяется с несколькими китайскими исследователями, чтобы отправиться в путешествие, которое позволит им познакомиться с жизнью и бытом трех общин, живущих в экстремиальных условиях. И убедиться, что они научились не только выживать, но и чувствовать себя в этих условиях вполне комфортно.Производство: КНР, China Intercontinental Communication, National GeographicЖанр: Документальный, путешествие, исследованиеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF3990FFF9D8ABBC80988364A46AF76C3B222A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

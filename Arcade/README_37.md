@@ -1,3 +1,29 @@
+###  Публикация: 1637450   (194524) от 09.08.2023
+
+TailQuest Defense (2023) [Multi] (1.1.0) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+TailQuest Defense - это игра в жанре tower defense, в которой вы играете за Нелла, который пытается защитить свой мир от вторжения нандов - роботов, похищающих пушистых жителей Ривентайла - разделенного мира, парящего в небе. Остановите захватчиков, размещая башни в стратегических точках вокруг красочных ландшафтов. Собирайте спрятанные сокровища, используйте окружающую (   Читать дальше...   )Тип издания: LicenseРазработчик: KivanoЖанр: Экшны, Стратегии, ExplorationЯзык субтитров: Английский, Польский, ВенгерскийЯзык интерфейса: Английский, Польский, Венгерский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C61CD92407A6E21EA1FB60BA60FCBF6668AE1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652887   (194396) от 13.08.2023
 
 Pinball FX3 (2017) [Multi] (1.0.26.0/dlc) Scene Skidrow
@@ -6,7 +32,7 @@ Pinball FX3 (2017) [Multi] (1.0.26.0/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Mail Time (2023) [Multi] (1.00.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Hell Pie (2022) [Ru/Multi] (1.1.5) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +292,7 @@ SIGNALIS (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +318,7 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Diary of Lucie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Little Witch Nobeta (2022) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Skye Tales (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Boomerang X (2021) [Ru/Multi] (1.11) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Suicide Guy (2017) [Ru/Multi] (1.70) Scene Plaza
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Suicide Guy (2021) [Ru/Multi] (1.0) Scene Plaza [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Suicide Guy: Sleepin' Deeply (2018) [Ru/Multi] (1.30) Scene HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Suicide Guy: The Lost Dreams (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A979952660BCC711C0095A5274C23CF981F8B823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253844   (186129) от 24.09.2023
-
-CrossCode (2015) [Multi] (1.4.2-3/dlc) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этому двухмерному ролевому ретро-боевику есть чем вас удивить. CrossCode сочетает 16-битную графику в стиле SNES с безупречной физикой, динамичной боевой системой и занимательной механикой головоломок - и все это на фоне захватывающего научно-фантастического сюжета. В CrossCode все дело в механике игры! Взять два популярных жанра, найти между ними правильный баланс (   Читать дальше...   )Тип издания: LicenseРазработчик: Radical Fish GamesЖанр: Экшн, Ролевая игра, ФантастикаЯзык субтитров: Английский, Немецкий, Китайский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F972A52EF33C8B1B02CC0EC5A319A99889FDA04E
 ```
 
 https://mybot314.ru/tekegram_catalog/

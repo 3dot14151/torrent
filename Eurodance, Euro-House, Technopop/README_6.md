@@ -6,7 +6,7 @@ VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Spring Car Music Hits 2024 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -92,7 +92,7 @@ Leila K. - 2 Albums (1993, 1996) CD [MP3|320 Kbps] <Electronic, Euro-House, Hip 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +122,7 @@ E-Rotic - Level Up (2024) [MP3|320 Kbps] <Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -148,7 +148,7 @@ E-Rotic - 12 Albums, 6 Compilations, 41 Singles (1994-2024) [MP3|320 Kbps] <Euro
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - 100% Discotecas (1997) 3CD [MP3|320 Kbps] <House, Trance, Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - 100 EDM Hits (2013) [MP3|320 Kbps] <Electro House, Techno, Tech House, Elec
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -235,7 +235,7 @@ Steve Aoki - HiROQUEST 3: Paragon (2025) [MP3|320 Kbps] <Electro House, Progress
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,3 +1,193 @@
+###  Публикация: 1192106   (263313) от 16.12.2017
+
+Windows 10 Enterprise "LTSB Style" VL (x86/x64) Elgujakviso Edition (v.14.12.17) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Сборки сделаны на основе оригинальных образов от Microsoft.
+Установлен NET Framework 3.5 (включает .NET 2.0 и 3.0). Сборки сделаны в стиле LTSB. Для получения полной информаций об изменениях, читайте раздел "дополнительная информация".Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF757189440C152A13F17F241D3D24C5F880834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340868   (263092) от 25.11.2019
+
+Heavy Rain (2019) [Ru/Multi] (build 362) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в напряженный психологический триллер, где ваш выбор и действия могут привести к драматическим последствиям... и определите, кто останется в живых, а кто умрет. Мастер Оригами терроризирует город, который получил такое прозвище из-за своей жуткой визитной карточки — манеры оставлять на месте преступления сложенные из бумаги фигурки, не оставляет полиции (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Action, Adventure, Int.Movie, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A16B29F9EDC8ECAE990585C000C7FEADCA6106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273283   (263085) от 25.11.2019
+
+Подшивка журналов | Дилетант (2019) [PDF]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы.
+В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0CAAD4F68D64A47E4F9033761FDAB834EF199F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340753   (263074) от 25.11.2019
+
+Однажды в… Голливуде / Once Upon a Time ... in Hollywood (2019) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». Известный актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Леонардо ДиКаприо, Брэд Питт, Майя Хоук, Остин Батлер, Марго Робби, Сидни Свини, Маргарет Куэлли, Дакота Фаннинг, Тимоти Олифант, Аль ПачиноПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Full), английские (Full, SDH)Продолжительность: 02:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624A3C9DC11AAF50807744AF6DAF675A35D8DC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192309   (262951) от 17.12.2017
+
+Octane Render 3.07 R2 + C4D Plugins [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Octane Render — графический движок реального времени, разработанный компанией
+Refractive Software LTD, использующий CUDA и работающий на всех графических процессорах nVidia,
+начиная с 8Х00. Использует трассировку лучей.OctaneRender - первое в мире и самое быстрое GPU
+ускорение, несмещенное, физически корректное средство рендеринга. Что это означает? Это означает,(   Читать дальше...   )Язык интерфейса: English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3902DAD8A54E95E64EB74C9B95C26FD864EF4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340848   (262854) от 26.11.2019
+
+⚡  Данные более миллиарда пользователей соцсетей в мире утекли в Сеть
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В базе не было паролей и данных банковских карт, однако там хранилась информация из Facebook, Twitter и LinkedIn, а также телефоны и адреса электронной почты пользователей. Хакер обнаружил файл в открытом доступе на Google CloudАмериканский эксперт по кибербезопасности Винни Тройя обнаружил базу данных с информацией об 1,2 млрд пользователей соцсетей, сообщает Wired.По (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340820   (262774) от 26.11.2019
+
+GoodbyeDPI.0.1.6. Launcher-3.2 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
+Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
+
+Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9917DF1AB2F46362BD4F015F788BB3A001F9470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192311   (262670) от 18.12.2017
 
 SpaceX впервые запустила вместе уже летавшие корабль и ракету
@@ -6,7 +196,7 @@ SpaceX впервые запустила вместе уже летавшие к
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +222,7 @@ Wanpiisu / One Piece / Ван-Пис. Раздача №2 [1999, TV, 384-415] HD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -60,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -86,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -112,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -138,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -164,7 +354,7 @@ Opera Software ASA решила переименоваться в Otello Corpora
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -190,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -216,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +432,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.21 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -268,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +510,7 @@ Avast Premier 17.9.2322 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +536,7 @@ Acronis True Image 2018 Build 10640  RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -398,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -424,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +640,7 @@ Max Payne 3 (Rip/1.0.0.17) [Ru] 2012 l Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -489,192 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504986   (261079) от 03.06.2012
-
-Max Payne 3 [Ru] (RePack/1.0.0.17) 2012 | R.G. ReCoding
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261079.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий Max Payne 2 прошло восемь лет. Макс уже не коп он спившийся, сидящий на обезболивающих безработный. Сломленный. Раздавленный. Без цели. Но, волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью. Вскоре Максу на собственной шкуре предстоит почувствовать: (   Читать дальше...   )Тип издания: RePackРазработчик: Rockstar StudiosЖанр: Action ( Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B286146F394D6BBCE15D10DDCA01AA9AE25D5A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497404   (260661) от 02.06.2012
-
-Женский доктор (1 - 15 серии из 40) (2012) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Украина, FILM_UAЖанр: МелодрамаРежиссер: Александр Пархоменко, Антон ГойдаАктеры: Илья Носков, Алена Яковлева, Наталья Казанцева, Олеся Власова, Андрей Финягин, Олег Иваница, Виталина Библив, Сергей Калантай, Андрей ПавленкоПродолжительность: 40 х ~ 00:44:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504520   (260642) от 02.06.2012
-
-Batman: Arkham City / Batman: Аркхем Сити + 14 DLC [Ru] (RePack/1.03) 2011 | Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия Rocksteady — создатели проекта Batman: Arkham Asylum — приглашают игроков вновь окунуться в мрачную и таинственную атмосферу Готэма в игре «Batman: Аркхем Сити».
-Аркхем — район, где бесчинствуют выпущенные из психиатрической клиники и предоставленные сами себе безумцы, матерые преступники и маньяки. Это черное пятно в самом сердце Готэма, отгороженное от окружающего города неприступной стеной. А как известно, где зло — там и Бэтмен! В Аркхеме легендарный Человек-летучая мышь встретится со многими знаменитыми героями и злодеями, а игроки испытают на себе, каково это — быть Темным Рыцарем. (   Читать дальше...   )Тип издания: Repack (Лицензии)Разработчик: Rocksteady StudiosЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197D1C04107D7757B5E6AB586E9496B06BA21336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503327   (259755) от 30.05.2012
-
-Voyager 12.04 [i386, x86_64] (2xDVD)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский дистрибутив на основе Xubutu 12.04
-Основан на динамической док-панели AWN, связанной с более чем 15 сценариями: Thunar, Conky, поиском файлов, терминалом, Avconvert преобразования видео, аудио, фотографий, обзором телевизионных программ с VLC, проверкой Hash ISO, возможностью монтировать и демонтировать ISO, записью дисков, и пятью сценариями в дополнение для восстановлению системы Radiotray, с Marlin - новым файловым браузером, Minitubes, Pitivi, Screenlets, Darktable, Клементина, Pulse Audio Equalizer, Déjà Dup, Psensor, Grub Customizer, BleachBit.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA2AEA8BEF6EE7720756934C854F7E1CB5CFE40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503458   (259749) от 30.05.2012
-
-Master of Orion 2: Battle at Antares [Ru] (RePack) 1996 | Pet9948
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор любой игры должен быть критичным и нейтральным взглядом со стороны - вот достоинства, вот недостатки. Но даже при этом условии о Master of Orion II можно сказать только одно: это шедевр. Игра полностью оправдала ожидания поклонников первой части и стала классикой и образцом жанра. По сравнению с Master of Orion I в игре ЗНАЧИТЕЛЬНО улучшено и развито абсолютно всё, от интерфейса и графики до боевых действий и экономики, но при этом сохранены все достоинства и атмосферность первой части – редкий пример золотой середины.(   Читать дальше...   )Тип издания: Игра+ЭмуляторЖанр: Космическая СтратегияЯзык озвучки: РусскийЯзык интерфейса: Русский+Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22DE73EEFDA4CEFC99C24C285E56CD0872DB7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503804   (259745) от 30.05.2012
-
-Специалист | Основы программирования и баз данных (2011) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы познакомитесь с основами программирования и управления базами данных, что создаст прочную основу для изучения языков программирования и СУБД в нашем Центре «Специалист».
-
-Курс «Основы программирования и баз данных» посвящен изучению основ программирования (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 17:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6E0C73C0A7D943233BCFB15220D5D9605574FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502960   (259508) от 29.05.2012
-
-Призрачный гонщик 2 / Ghost Rider: Spirit of Vengeance (2011) [H.264] HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается на задворках Восточной Европы, где главный герой Джонни Блэйз безуспешно пытается справиться со своим проклятием. Его принимает на работу некая секта, которая пытается заполучить дьявола в тот момент, когда он пытается вселиться в тело его смертного сына на дне рождения мальчика.Жанр: Фэнтези, Боевик, ТриллерРежиссер: Марк Невелдайн, Брайан ТейлорПродюсер: Ашок Амритрадж, Стивен Пол, Ари АрадАктеры: Николас Кейдж, Кьяран Хайндс, Виоланте Плачидо, Джонни Витуорт, Кристофер Ламберт, Идрис Эльба, Фергус Риордан, Спенсер Уидлинг, Сорин Тофан, Яцек КоманПеревод: ДублированныйЯзык субтитров: Русский, Английский, Английский (SDH)Продолжительность: 01:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59084EE3A7B43FF8954D8E8972D3BC43952A9F34
 ```
 
 https://mybot314.ru/tekegram_catalog/

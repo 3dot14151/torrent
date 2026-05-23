@@ -1,3 +1,83 @@
+###  Публикация: 1470032   (1015940) от 15.05.2021
+
+Michael Goldfarb | Houdini 17 Rigging Series 2 (2020) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Michael Goldfarb представляет втору часть серии риггинга в Houdini. Первым делом мы разберем обновления с предыдущей части. Также мы посмотрим как делать захват геометрии, посмотрим на кости и параметры захвата, регионы захвата и деформации, разберем разницу между кадром захвата и позой захвата, выравнивание позы захвата, посмотрим на типы захвата и на конец разберем (   Читать дальше...   )Производство: SidefxЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07F8AAC764885E8BAD658B0313B83886DD86780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471118   (1015199) от 19.05.2021
+
+Gumroad, Josh Gambrell, Ponte Ryuurui | Создание твёрдотельных ассетов для игр в Blender 2.9 / The BlenderBros Hard Surface Game Asset Course in Blender 2.9 (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Всесторонний курс для создания двух твёрдотельных ассетов для игр студийного качества.
+Игровые активы нетрудно создать, но их трудно понять.
+Вот почему мы создали этот курс - чтобы устранить эту путаницу и показать вам бесшовный рабочий процесс.Производство: GumroadЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 22:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD295F5541500FF698ABEE0FD4C9536E70F874F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471130   (1015194) от 19.05.2021
+
+FlippedNormals, Mauricio García | 3D Art Characters In Zbrush - 16 Vols - Basic To Intermediate (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в 3D Art School, в этом первом наборе: «3D CHARACTER ART - от базового до среднего», вы узнаете, как создавать персонажей, но на профессиональном уровне, например, для видеоигр, анимации или коллекционирования. Все спрашивают меня, учу ли я создавать персонажей для игр или для анимации, но они не знают, что техническая часть - это второй большой (   Читать дальше...   )Производство: FlippedNormalsЖанр: ВидеоурокЯзык озвучки: АнглийскийПродолжительность: 80:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB361C31B149E29AF9E538150D8C586405C66B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471323   (1015064) от 20.05.2021
 
 Udemy, Victor Deno | Создание PBR арта в Blender 2.90: Sci-fi ящик и турель / Blender 2.90 Complete PBR Art Creation: Sci-fi Crate and Turret (2020) PCRec [EN / EN Sub]
@@ -6,7 +86,7 @@ Udemy, Victor Deno | Создание PBR арта в Blender 2.90: Sci-fi ящ�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +140,7 @@ FlippedNormals, Emiel Sleegers | Создание ассетов героя - У
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +167,7 @@ Sergey Gricay | Dynamic wall SD Video tutorial Part 1 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +195,7 @@ Anthony Eftekhari | 3D Matte Painting Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +221,7 @@ FlippedNormals, Konrad Hetko | Создание лицевого рига в Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +248,7 @@ James Paick | Creative Environments for Games Part 1 of 4 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +274,7 @@ Eytan Zana | Color and Light (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +300,7 @@ Julien Gauthier | Octane for Concept Art - Beginner (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +327,7 @@ Maciej Kuciara | Environment for Video Games: Callouts (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +353,7 @@ Anthony Eftekhari | Concept Art for Production (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +380,7 @@ Kurt Papstein | Character Creation in ZBrush (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -385,7 +465,7 @@ James Paick | Environment Basics 2 Perspective & Layout (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -413,7 +493,7 @@ James Paick | Environment Basics 4 Lighting & Textures (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +521,7 @@ Eytan Zana | Graphic Composition For Environments (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -467,7 +547,7 @@ Ben Adler | Intro to PBR in Unreal Engine 4 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -495,7 +575,7 @@ Nate Hallinan | Painting Fur (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -521,7 +601,7 @@ James Paick | Environment Basics 1 Basic Composition & Values (2015) PCRec [En, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -549,7 +629,7 @@ Mario Brajdich | Mastering 3D Modeling In Cinema 4D Part 1-3 (2017) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -577,7 +657,7 @@ CG Cookie, Kent Trammell | Создание реалистичного пром�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -603,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,84 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FCC4A90BCBF3043DB823C13633825FEC9BA07B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472860   (1013989) от 27.05.2021
-
-Jason Scheier | Composition 101 (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта вводная лекция ориентирована на начинающих и переходящих к среднему уровню художников в деле создания запоминающихся композиционных решений для создания изображений. Я перейду к деталям, создавая определенную иерархическую структуру путем формирования блоков основных элементов композиции и постепенно переходя к проработке более конкретных аспектов ваших композиций (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F73E2F10B2BE5C9FFB1CB0AF6F2CB4AC85ADEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287995   (1013921) от 27.05.2021
-
-Джама Джурабаев | Как создавать кинематографичные ландшафты / How to create cinematic landscapes (2018) PCRec [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013921.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе я покажу вам, как создавать кинематографичные ландшафты с помощью World Creator 2 и Octane Standalone.Производство: GumroadЖанр: 3D моделированиеЯзык озвучки: Русский, АнглийскийПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EDF109994CEB1AEAF5DC2D25AD64CFDDB856B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287298   (1013913) от 27.05.2021
-
-Джама Джурабаев | Сюжетный концепт арт/ Narrative Concept Art (2016) PCRec [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь передавать идею повествования, используя различные простые, но эффективные техники Photoshop и рисования. Ветеран индустрии Джама Джурабаев покажет студентам, как сосредоточиться на творческом аспекте своей работы, а не на техническом.Производство: Learn SquaredЖанр: Рисование, Концепт арт, PhotoshopЯзык озвучки: Русский, АнглийскийПродолжительность: 17:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88443902D14F2A88CF52B7B39C777CE1C0A47C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

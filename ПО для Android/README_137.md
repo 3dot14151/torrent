@@ -1,3 +1,82 @@
+###  Публикация: 1763521   (35539) от 01.12.2024
+
+OsmAnd+  Карты & GPS Офлайн v4.9.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету.
+OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: Live ModРелиз состоялся: 01.12.2024Разработчик: OsmAndПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCAB6DA0CA0DD05BCBAA3CED67A7E5BAE8E21CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763433   (35535) от 01.12.2024
+
+Word Learn Languages v5.9 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Words – это лучшее приложение для изучения слов иностранного языка. Более 2.000.000 пользователей. Хочешь быстро выучить иностранный язык? Приложение Words – это лучшее решение для изучения слов иностранного языка. Изучай английский 🇬🇧 🇺🇸 и немецкий 🇩🇪 вместе с нами! Приложение превосходно подойдет для людей с любым (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 30.11.2024Разработчик: UlilabПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C892D93DB0AE09F612041A84DB34B5D8484FAC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763431   (35519) от 01.12.2024
+
+Word Learn Languages v5.9 Mod by maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Words – это лучшее приложение для изучения слов иностранного языка. Более 2.000.000 пользователей. Хочешь быстро выучить иностранный язык? Приложение Words – это лучшее решение для изучения слов иностранного языка. Изучай английский 🇬🇧 🇺🇸 и немецкий 🇩🇪 вместе с нами! Приложение превосходно подойдет для людей с любым (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 30.11.2024Разработчик: UlilabПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DFC6410BFA22AB872D1FD82F10C1680C3F30DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763524   (35511) от 01.12.2024
 
 Listonic / Список покупок v8.16.1 Mod by NURIK kz [Ru/Multi]
@@ -6,7 +85,7 @@ Listonic / Список покупок v8.16.1 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Alight Motion v5.0.271.1002592 Premium Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Root Booster v4.0.9 Mod by Balatan [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +163,7 @@ HiPER Calc Pro v10.5.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +189,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.1 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +215,7 @@ Sleep as Android: отличный сон v20241122 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +241,7 @@ YTDLnis 1.8.1.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +267,7 @@ AI ChatBot AI Friend Generator v4.0.0.0 Mod by serborkr [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +293,7 @@ Xcast.tv / Трансляция на телевизор v2.3.8.2 Mod by vadj [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +345,7 @@ WPS Office + PDF v18.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +371,7 @@ Hear Clear / Услышать на расстоянии v1.1.9.1 Mod by 0x7d [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +424,7 @@ MiHome v9.10.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +453,7 @@ PicLab - Photo Editor v2.10.0 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +479,7 @@ TV+ v2.0.2 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +506,7 @@ Metrolist 10.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +533,7 @@ MiHome v10.0.702 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +562,7 @@ Beat Find / Распознавание музыки v1.6.51 Mod by Alex.Strannik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +615,7 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:523B7AEE3F9342AC62CA4D0D668A692E15E0B4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767515   (32941) от 26.12.2024
-
-X Downloader & Video Player v2.1.25 Premium Mod by PlatinumMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32941.jpg" />
-</div>
-
-
-###  Подробнее
-
-🌟 Быстрое приложение для загрузки видео. Легко сохраняйте все видео и фотографии из Интернета.
-XDownloader — это мощный инструмент, который позволяет вам загружать видео с любого веб-сайта или приложения социальных сетей, включая TikTok (без водяного знака), Facebook, Instagram и другие. С помощью встроенного браузера XDownloader вы можете легко просматривать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.12.2024Разработчик: DC Mobile StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769000   (32925) от 26.12.2024
-
-Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автоматическое размытие фона - это быстрое и простое в использовании приложение для создания потрясающих изображений с эффектом размытия фона.Тип издания: AdfreeРелиз состоялся: 24.12.2024Разработчик: Judi StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739514   (32910) от 27.12.2024
-
-Радио онлайн - PCRadio v2.7.5.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный клиент для прослушивания интернет-радио. Присутствует возможность смены качества аудиопотока. Поддерживается вывод 32 битного звука. В наличии обширный каталог с категориями и возможностью поиска.
-Радио онлайн - PCRADIO Более 8 лет является лидером в области интернет вещания, благодаря технологии экономии трафика и сохранения отличного качества звука радиостанций. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.12.2024Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F782ACDF9D2C249251A1D0E0707684ED9AEA8404
 ```
 
 https://mybot314.ru/tekegram_catalog/

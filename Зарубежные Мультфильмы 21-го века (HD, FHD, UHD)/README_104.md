@@ -1,3 +1,81 @@
+###  Публикация: 1587047   (193097) от 29.10.2022
+
+Звёздный десант: Предатель Марса / Starship Troopers: Traitor of Mars (2017) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+На колонизированном людьми Марсе жизнь течёт мирно и спокойно. В остальной Федерации марсиан считают недалёкими, и десантник Джон Рико уже тоже начинает сомневаться в способностях своего отряда — раз за разом команда проваливает на симуляторе миссии по уничтожению колонии жуков. И когда внезапно Марс атакуют полчища уже настоящих гигантских насекомых, отряду новичков (   Читать дальше...   )Производство: Япония, США / Lucent Pictures EntertainmentЖанр: мультфильм, фантастика, боевикРежиссер: Синдзи Арамаки, Масару МацумотоАктеры: Каспер Ван Дин, Дина Мейер, ДеРэй Дэвис, Люси Кристиан, Джастин ДоранПеревод: Профессиональный многоголосый (Лицензия EUR)Субтитры: Русские, английскиеПродолжительность: 01:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A765E507DB40A760614283C3BC3A312E69A6257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587232   (192801) от 30.10.2022
+
+Уэнделл и Уайлд / Wendell and Wild (2022) WEB-DL [H.264/1080p-LQ] [UKR, EN / UKR, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Двум братьям-демонам Уэнделлу и Уайлду досаждают монахиня-экзорцистка Хелли и её подручные подростки-готы Кэт и Рауль.Производство: США / Gotham Group,The, Monkeypaw Prodctions, Netflix Animation, Principato Young Management, SIF309 Film & Music ProductionsЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Генри СеликАктеры: Lyric Ross, Кигэн-Майкл Ки, Джордан Пил, Анджела Бассетт, Джеймс Хун, Sam Zelaya, Тамара Смарт, Seema Virdi, Рамона Янг, Винг РеймзПеревод: Дублированный (Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC94E7F0C1946C669453BD342A8F6E2A41C81DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657497   (192556) от 03.09.2023
+
+Элементарно / Elemental (2023) WEB-DLRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В Городе Стихий обитатели огня, воды, земли и воздуха живут вместе. У сильной и вспыльчивой Эмбер завязывается дружба с расслабленным, плывущим по течению Уэйдом — дружба, которая бросит вызов её представлениям о мире вокруг.Производство: США, Pixar Animation Studios, Walt Disney PicturesЖанр: Жанр: мультфильм, фантастика, фэнтези, драма, комедия, приключенияРежиссер: Питер СонАктеры: Леа Льюис, Мамуду Ати, Роналдо Дель Кармен, Шила Омми, Венди Маклендон-Кови, Кэтрин О’Хара, Мэйсон Вартхаймер, Ронобир Лахири, Уильма БонетДжо ПераПеревод: Дублированный (MovieDalen), Дублированный (HotVoice 41)Язык озвучки: русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH), Грузинские (Full)Продолжительность: 01:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562CDA52577D102AE65BB6BA4B2292383DF1CF73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657331   (192516) от 03.09.2023
 
 Мавка. Лесная песня / Мавка. Лісова пісня / Mavka. Lisova pisnya (2023) WEB-DL [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D366AE4FA8DB91D2D6BAD30F71D4EBAE70D620D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591017   (187703) от 16.11.2022
-
-Золушка и тайна волшебного камня / Ella and the Little Sorcerer (2021) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не каждой принцессе нужен защитник: некоторые из них способны сами за себя постоять и, более того, выручить близких из беды. На принца Алекса наложено проклятье, превратившее его в мышь. Золушке предстоит освободить его от злых чар и отправится в незабываемое путешествие вместе со своими обаятельными друзьями.Производство: США / Gold Valley FilmsЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Элис БлехартАктеры: Джери Кортни-Остейн, Эшли Борнансин, Тони Аццолино, Роберт Мартин Клейн, Моника Янг, Ниса Уорд, Билли Каметц, Крис Ниоси, Дэвид Шатроу, Джои КаменПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737EA5EDB0CA4E7BFFE7922644BF66960919657D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590958   (187675) от 16.11.2022
-
-Том и Джерри: Страна снеговиков / Tom and Jerry: Snowman's Land (2022) WEBRip [H.264/1080p] [EN / EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187675.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью волшебства в воздухе Джерри и его племянник Таффи делают снежную мышь, которая чудесным образом оживает. Чтобы их новый друг, снежный мышонок Ларри, не растаял, Таффи и Джерри должны мчаться с ним в легендарную Деревню Снеговика.Производство: США / Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Даррел Ван СиттерсПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (full, SDH)Продолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48D1B89A91992C3A33C72847E3EA694D1571DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591450   (187009) от 18.11.2022
-
-Папин дракон / My Father's Dragon (2022) WEBRip [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переехав с мамой в большой город, юный Элмер чувствует себя чужаком и сбегает. Говорящая кошка указывает ему путь на Дикий остров, где мальчик знакомится с драконом Борисом.Производство: Ирландия, США / Comic Animations, HB Wink Animation, Higher Ground Productions, Laughing Wild, Mockingbird PicturesЖанр: мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Нора ТумиПеревод: многоголосый профессиональный (Jaskier)Субтитры: русские, украинские, английскиеПродолжительность: 01:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40AA9C7F1C6CD522BB755A1FEF01F05B4030A94
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,322 @@
+###  Публикация: 1544280   (622202) от 15.04.2022
+
+Лариса Долина - Песня Нептуна (из к-ф «Танцплощадка») (1986) Серия: По Вашим Письмам [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A Песня Нептуна
+(Е. Дога - М. Танич)
+B На Последнем Сеансе Кино
+(Е. Дога - М. Танич)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500BF53E0757A5064D6012EAF2F0FF6152D4A9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059776   (621889) от 15.04.2022
+
+Надежда Чепрага - Только Ты (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Человеческий Голос
+02. Симфония Чувств
+03. Только Ты
+04. В Краю Родном(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B272478996D8909E21DC36B088F507449B86998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934459   (621888) от 15.04.2022
+
+VA - Лето 2002/Зарубежная супер двадцатка (2002) [FLAC 2.0 16/44,1|image+cue (MC Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Base - This Is The Summer
+02. French Affair - I Like It
+03. Destiny's Child - Nasty Girl
+04. Bosson - Happy(   Читать дальше...   )Жанр: /PopПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316664C28A0FCF08E2A801AB2A6EE50B470BC939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862438   (621882) от 15.04.2022
+
+Премьер-Министр - Грязные танцы (1999) [FLAC 2.0|44/16|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Атомное чувство любовь
+/муз. В. Бодолика, сл. М. Максимова/
+02. Горе не беда
+/муз. А. Мисаилов, М. Максимова, сл. К. Арсенева/(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C0DCC7F7A9903533C7F7305C8CBCBE848DC0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957066   (621878) от 15.04.2022
+
+Инструментальный Ансамбль Рококо (1971) [FLAC 2.0 24/96|tracks+.cue (Vinyl-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Арабески
+02. Акварель
+03. Королевство гномов
+04. Старый антикварЖанр: Easy ListeningПродолжительность: 00:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA4C97DCE04F51CD4B6A92C9B4BEC965FAAF942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935363   (621739) от 15.04.2022
+
+John Denver - Rocky Mountain High (1972) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Country, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1	Rocky Mountain High
+Steel Guitar – Eric Weissberg
+A2	Mother Nature's Son
+A3	Paradise(   Читать дальше...   )Жанр: Country, Soft RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D293571A8D6F193CA1EF84D8D5B7FC09C7D2368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059770   (621736) от 15.04.2022
+
+Вилли Токарев - Над Гудзоном (1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. С Днем Рождения, Милая Мама
+02. Мама, Я Сын Твой
+03. Нью-Йоркский Таксист
+04. В Шумном Балагане(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347EE62C1E788F55075A5CF9E06FCFABE28D9ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229853   (620881) от 09.06.2018
+
+Студия Гран-При - Танцуй! (1990) [FLAC 2.0|48/24|tracks|Tape-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+[4:13] 01. Студия Гран-При - Танцуй
+[4:28] 02. Студия Гран-При - Ты Мой Путь
+[3:27] 03. Студия Гран-При - Ледяное Поле
+[3:17] 04. Студия Гран-При - Достал(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F174903E667821E2D519CFA80A7FFC2F6F0747C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229855   (620783) от 09.06.2018
+
+Студия Гран-При - Танцуй! (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+[4:13] 01. Студия Гран-При - Танцуй
+[4:28] 02. Студия Гран-При - Ты Мой Путь
+[3:27] 03. Студия Гран-При - Ледяное Поле
+[3:17] 04. Студия Гран-При - Достал(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CD32FFA936B8A847263D598351BB8C2FC54A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033055   (620588) от 20.07.2016
+
+Jethro Tull - Aqualung (1971) 2 ADVD, 40th Anniversary Adapted Edition, 2016 [PCM 2.0| DTS 5.1, AC3] <Progressive rock, Folk rock, Hard rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Lick Your Fingers Clean (2:49)
+ 02. Just Trying To Be (1:38)
+ 03. My God (Early Version) (9:43)
+ 04. Wond'ring Aloud (13th  December 1970) (1:52)(   Читать дальше...   )Жанр: Progressive rock, Folk rock, Hard rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA56A7C0695D00E7E28FCDA0C50C559ED7C56366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205059   (620346) от 12.04.2019
+
+Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Staying Power (4:13)
+02. Dancer (3:48)
+03. Back Chat (4:36)
+04. Body Language (4:32)(   Читать дальше...   )Производство: EMI Records - EMA 797Жанр: RockПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7841371A88F4E0F2E1E81CD4B2F373FF0B96D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072817   (620203) от 16.04.2022
 
 Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
@@ -6,7 +325,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +379,7 @@ Roxy Music - Flesh + Blood (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]  <Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -118,7 +437,7 @@ VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстр�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -147,7 +466,7 @@ Scorpions - Love At First Sting (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -176,7 +495,7 @@ Therion - Vovin (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Symphonic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -205,7 +524,7 @@ Abdul Hafis - Flute Music (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Arabian, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -234,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -261,7 +580,7 @@ VA - Вас Поздравляют Звёзды! (1990) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -290,7 +609,7 @@ Enigma - MCMXC a.D. (1990) Virgin, Universal Music | Remastered 2016 [FLAC 2.0|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +638,7 @@ Gentle Giant - Octopus (1972) 2015, Alucard Music [DTS 5.1|LPCM 2.0|96/24|Blu-ra
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +667,7 @@ Yes - Fragile (1971) 2015, Atlantic [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray] <Rock,
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +698,7 @@ Louis Armstrong - Collection (Unofficial Release, Unknown Year) [FLAC 2.0|44,1/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +727,7 @@ Pink Floyd - The Division Bell (1994) 2014, Rhino Music [DTS 5.1|LPCM 2.0, 5.1|9
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -421,328 +740,6 @@ The Division Bell — четырнадцатый студийный альбом
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76D234FEA3943D57044FB75A0DA3251F2DF7132E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039511   (616381) от 18.04.2022
-
-VA - Jazz Mix Evening Conversation 1950-2008 (2016) [WavPack|96/32|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gene Ammons - Hittin' The Jug (1960)
-02. Billy Holiday - I’m A Fool To Want You (1958)
-03. Wild Bill Davis & Buddy Tate - Memories Of You (1965)
-04. Ernestine Anderson - As Long As I Live (1981)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B83E215337AA6AC61C7C872E52742747E8FD84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022492   (616253) от 18.04.2022
-
-Benny Goodman / Бенни Гудмен - Как Глубок Океан (1940-1950) 1987 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616253.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Каприс
-A2	Как Глубок Океан
-A3	Граф
-A4	Я Здесь(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286D1278B5E58FA18EAE110F4DA4CD4C1B74DEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039203   (616246) от 18.04.2022
-
-Joan Baez/Джоан Баэз - Поёт Джоан Баэз (1970) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616246.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Деревья Растут Высоко
-A2 Лилия Запада
-A3 Паровоз 143
-A4 Я Встретил Хорошенькую Девушку(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B9E59F118EF7B632CE1AF1F64A4F467A8367D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036658   (615584) от 23.07.2016
-
-Kenny Rogers/Кенни Роджерс - Поёт Кенни Роджерс (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Люсиль (Lucille)
-02. Игрок (The Gambler)
-03. Я согласен опять страдать (I Wish Could Hurt  That Way Again)
-04. Король Дубовой улицы (The King Of Oak Street)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835C9AA4685820D3B914CC84B12EAA58E1E9DD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804420   (615337) от 12.07.2014
-
-The Who - Quadrophenia (1979) 2LP Original Motion Picture Soundtrack [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615337.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. The High Numbers - Zoot Suit (2:01)
-C2. Cross Section - Hi Heel Sneakers (2:49)
-C3. The Who - Get Out And Stay Out (2:29)
-C4. The Who - Four Faces (3:22)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216118641C6255AA039B60457075F694C7E236FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037164   (614986) от 23.07.2016
-
-Roger Waters - Amused to Death (1992) Remastered, 2015, Sony Music [LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amused To Death (рус. Позабавили(сь) до смерти) — третий сольный студийный альбом Роджера Уотерса, бывшего лидера группы Pink Floyd (если не считать его саундтреки к фильмам «The Body» (1970) и «When the Wind Blows» (1986)), вышедший в 1992 году. В хит-параде Великобритании альбом достиг 8-го места, в США поднялся до 21-го места, а наивысшую позицию занял в Новой (   Читать дальше...   )01. The Ballad Of Bill Hubbard
-02. What God Wants, Part I
-03. Perfect Sense, Part I
-04. Perfect Sense, Part II(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: Progressive Rock, Symphonic Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1179BE693100CA8F43FDF125CBCFFBF3DB5574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993828   (612911) от 20.04.2022
-
-Кикки - Полуночное солнце / Kikki - Midnight Sunshine  (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasn't That Love (Кто Идет)
-02. Undercover Lovers (Тайные Влюбленные)
-03. Somebody Else Will (Кто-To Другой)
-04. Fallin In Love, Fallin Apart (Влюбиться, Разлюбить)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE2AAAC1C27647C413F393F8EFF4E12C01966D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021076   (612910) от 20.04.2022
-
-Bobbysocks / Боббисокс (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Synth-pop, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612910.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Свинг • Let It Swing
-A2	Рок-Н-Ролл • Midnight Rocks
-A3	Радио • Radio
-A4	Хочу Танцевать С Тобой • Don't Bring Lulu(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, SchlagerПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021696   (612904) от 20.04.2022
-
-Арсенал – Пульс 3 (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion,  Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612904.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Эстафета · Relay Race
-A2	Рондо · Rondo
-A3	Праздник · Festival
-A4	Пульс Улицы · Street Pulse(   Читать дальше...   )Жанр: Jazz, Fusion,  ElectronicПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E295BB7B92C3A78D4E87E192A11EAE1C9E1FB22D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007249   (612896) от 20.04.2022
-
-Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983 [FLAC 2.0|96/192|image+cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	When It's Sleepy Time Down South
-02	The Bucket's Got A Hole In It	2:30
-03	Tiger Rag	1:10
-04	Indiana	4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:46
-Издатель (лейбл): Panton (Czechoslovakia)
-Номер по каталогу: 8015 0075
-Кодек: FLAC (image + .cue)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994866   (612888) от 20.04.2022
-
-Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|44,1/16|image+cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Wants To Be Lonely - Ricky Martin & Christina Aguilera
-02. El Amor De Mi Vida - Ricky Martin
-03. El Beso Del Final - Christina Aguilera
-04. Fuego Contra Fuego - Ricky Martin(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
 ```
 
 https://mybot314.ru/tekegram_catalog/

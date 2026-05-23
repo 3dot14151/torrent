@@ -1,108 +1,3 @@
-###  Публикация: 735305   (280041) от 16.12.2013
-
-Кайсын Кулиев | Сказка о добром муравье (1979) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перевод с балкарского Я. Аким. Рис. Дувидова. Муравей и звери.Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F97DE39C34FEC22910D014BA89B384149C8669C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 734659   (280040) от 16.12.2013
-
-Анна Аксёнова | Про девочку Ириску и про дом с красными полосками (1964) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем недавно Ириска с родителями переехала в новый дом. Он большой, светлый, красивый, и двор около него тоже большой и светлый. Соседние дома похожи друг на друга, только одни покрашены в синюю, другие — в красную полоску. Ириске повезло: она живёт в доме с красными полосками.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1C7F56BF90CF510CF8A5CBF1EC708238997CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 734916   (279718) от 16.12.2013
-
-Юрий Куклачёв | Мои друзья - кошки (1981) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279718.jpg" />
-</div>
-
-
-###  Подробнее
-
-КУКЛАЧЁВ Юрий Дмитриевич (родился в 1949), российский артист цирка, клоун-дрессировщик. Первым в России начал работать с кошками. С 1989 выступает исключительно с эстрадно-цирковыми представлениями. В 1991 открыл в Москве театр кошек. Программам Куклачева свойственны развлекательная легкость, мягкий юмор. Автор книги для детей "Мои друзья - кошки" и других сочинений.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5ACC4C71251F9F113240273CCDAD23293CBEE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735076   (279661) от 16.12.2013
-
-Григорий Белых, Леонид Пантелеев | Республика ШКИД (1927) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое издание повести о беспризорниках, ставших учениками школы им. Достоевского.
-Иллюстрировано рисунками Н. А. Тырсы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F431CA5DFB2D792C927359567B9FBA174A7A754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264724   (279523) от 24.11.2018
 
 Жан-Филипп Арру-Виньо | Магнус Миллион и спальня кошмаров (2018) [FB2]
@@ -111,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -647,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,6 +580,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BE8BA20DEF89B7639AD1BEC196B7D81B1B38A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083237   (274837) от 15.12.2016
+
+Джилл Барклем | Весенняя история (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Джилл Барклем (род. 1951 г.) - одна из самых популярных детских авторов и иллюстраторов Англии, приглашает на Ежевичную поляну! Здесь, на другой стороне ручья, за полем, среди корней и в старых стволах деревьев живут веселые мышки, с которыми происходят разные истории. Публикуется в России впервые. Работы Джилл Барклем исторически достоверны - она провела пять лет, (   Читать дальше...   )Жанр: Детская проза, СказкаПеревод: Н. ВиноградоваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9C6B83E481BB970B0BBE0AE28F2D903D38E9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081787   (274736) от 15.12.2016
+
+С. Кожевников (сост.) | Алтайские сказки (1937) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+О прошлом народа многое могут рассказать произведении устного народного творчества — былины, сказки, песни. «Подлинную историю трудового народа нельзя знать, не зная устного народного творчества», — говорил Алексей Максимович Горький в докладе на первом всесоюзном съезде советских писателей.
+Об алтайцах, являющихся коренным населением Ойротии, мы находим в «Большой (   Читать дальше...   )Жанр: ФольклорФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A15654CF844FCDA8736B2F0A3C0A1630F8F0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081783   (274733) от 15.12.2016
+
+Н.Я. Никифоров (сост.) | Аносский сборник: Собрание сказок алтайцев (1995) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прилагаемое собрание сказок записано Николаем. Яковлевичем Никифоровым почти исключительно от «Кайчи» (певца) алтайца Чолтыша, который живет в деревне Аскат, в 6 верстах от Аноса, на левом берегу Катуни, как и Анос.
+Н.Я. Никифоров, житель селения Анос, природный алтаец; учился в селе Улала в катехизаторской школе, которая находится при алтайской духовной миссии. (   Читать дальше...   )Жанр: ФольклорФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B365770A5425FAEF1DDEC2F9711A3A24FEACBB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083741   (273782) от 16.12.2016
+
+Наталья Колпакова | Скок-поскок (1974) [DJVU, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Забавные небольшие стихотвореньица про молодого дрозда, томимого жаждой, и про семь котят из семи городов и про старичка-лесовичка, свернувшего с тропинки.Жанр: Детская проза, СказкаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F311B91E62B55101DFB72F6479185C89F0C2A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

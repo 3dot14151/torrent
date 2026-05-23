@@ -1,3 +1,61 @@
+###  Публикация: 1464451   (1019831) от 22.04.2021
+
+Meade Lux Lewis - 1946 - 1954 (2005) Classics [FLAC|Lossless|image + .cue] <Boogie-Woogie, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Medium Boogie (Yancey Special) [3:17]
+02. Fast Boogie [1:58]
+03. Slow Boogie (Dupree Blues) [3:28]
+04. Honkey Tonk Train Blues [2:35](   Читать дальше...   )Жанр: Boogie-Woogie, Piano JazzПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695178B6212A156DF72D90F170B64A17DB5BB2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464477   (1019799) от 22.04.2021
+
+Jane Monheit - Come What May (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe In You
+02. When A Woman Loves A Man
+03. Let's Take A Walk Around The Block
+04. Lush Life(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54217B3F388600DDC5CBC7AC8580FD6952CB64A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464687   (1019668) от 23.04.2021
 
 Jimmie Noone - The Jimmie Noone Collection, Vol.1 (1928) 1992, Collector's Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
@@ -6,7 +64,7 @@ Jimmie Noone - The Jimmie Noone Collection, Vol.1 (1928) 1992, Collector's Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ghost Train Orchestra - Book Of Rhapsodies (2013) Accurate [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Bill Evans - The Complete Fantasy Recordings (1973 - 1979) 9CD, 1989, Fantasy [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jeff Kashiwa - Sunrise (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Luis Russell - 1945 - 1946 (1999) Classics [FLAC|Lossless|image + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Buddy DeFranco (De Franco) - 1949 - 1952 (2007) Classics [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Gidi Derzy, Denis Fortoos - The Living Room Sessions (Gidi Derzy Music) (2021) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +325,7 @@ André (Andre) Manoukian - Les pianos de Gainsbourg (2021) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +354,7 @@ V.A. - Super Soul Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Simply Swing (2012) Box Set, 10 CD [FLAC|Lossless|image + .cue] <Jazz, Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Jazzclub Highlihts: Night And Day (2010) Verve JazzClub, original recording
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +441,7 @@ Norah Jones - ‘Til We Meet Again (Live) (2021) Japan [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +470,7 @@ Diana Dors - Swingin' Dors (1960) 2012, Norma [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +499,7 @@ Stan Getz - Compact Jazz: Stan Getz with Strings (1992) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +528,7 @@ Dave Frishberg & Jim Goodwin - Double Play (1993) Arbors Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Bud Freeman - Swingin' With The Eel (1927 - 1945) 1998, ASV [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Verve JazzClub: I Love Jazz (2008) Box Set, 3 CD [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Threestyle - Perfect Combination (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +644,7 @@ Martial Solal - Solo Piano: Unreleased 1966 Los Angeles Sessions, Vol. 1 (2017) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +673,7 @@ Stan Getz - The Sound of Jazz (1988) Cleo [FLAC|Lossless|tracks + .cue] <Cool, M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -644,7 +702,7 @@ The Chocolate Dandies - 1928-33 (1993) DRG Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -673,7 +731,7 @@ Mark Colby - Speaking Of Stan: A Tribute To Stan Getz (2005) Hallway Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -687,64 +745,6 @@ Mark Colby - Speaking Of Stan: A Tribute To Stan Getz (2005) Hallway Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A8C374FA3CF0AA2A8E47362106F7F042BC204E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467777   (1017596) от 05.05.2021
-
-Acker Bilk - Some Of My Favourite Things (1973) 1985, Precision Records & Tapes Ltd [FLAC|Lossless|image + .cue] <Easy Listening, Theme>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger on the Shore (3:22)
-02. Clair (2:42)
-03. What Are You Doing the Rest of Your Life? (2:50)
-04. The Folks Who Live on the Hill (2:50)(   Читать дальше...   )Жанр: Easy Listening, ThemeПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EB7265F99048E26F37F4D4EBE82567A7419049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467728   (1017587) от 05.05.2021
-
-Terry Gibbs Dream Band - The Big Cat, Vol.5 (1961) 1991, Contemporary Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tico Tico [3:10]
-02. Big Bad Bob [3:48]
-03. The Big Cat [4:33]
-04. Soft Eyes [5:24](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93AEA2675EA3957B626C0568BBDEC8CF3AAEEA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

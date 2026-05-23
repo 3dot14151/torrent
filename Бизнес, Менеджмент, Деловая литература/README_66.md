@@ -1,3 +1,85 @@
+###  Публикация: 1425710   (220298) от 21.11.2020
+
+Родд Вагнер, Джеймс Хартер | 12 элементов успешного менеджмента (2021) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите сделать свой бизнес более устойчивым? Повысить мотивацию и приверженность персонала? Вы не знаете, как наладить бизнес-процессы и увеличить прибыль? Джеймс Хартер и Родд Вагнер раскроют вам 12 секретов — 12 элементов успешного менеджмента, которые были выявлены в результате уникального исследования Института Гэллапа. В нем приняли участие более миллиона (   Читать дальше...   )Жанр: Бизнес, менеджментФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BEDFB09AA8EA1A6F1328649032E523B6659563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585719   (220238) от 23.10.2022
+
+Юлия Бюрг, Олег Кошкин | Формула онлайн-репутации (2022) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Репутация компании – это нематериальный актив. Бизнесу с хорошим именем проще найти клиентов и партнеров, так как люди всегда предпочитают строить отношения с теми, кому доверяют. Репутация формируется долго и сложно, при этом достаточно одного негативного отзыва, чтобы снизить уровень доверия к компании.
+Управление репутацией – перспективная и емкая сфера с большим (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375BAEBAD342F5F287B0C2A4A8ACCAAF23C8134E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585722   (220194) от 23.10.2022
+
+Дмитрий Козлов | ДАО производственной безопасности. Как трансформировать корпоративную культуру и сделать людей на производстве счастливее (2022) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга появилась из методологии, выстроенной и проверенной автором в течение нескольких лет на крупных российских производствах. И теперь знание о том, как сформировать новую культуру безопасности на предприятии, доступно всем без исключения.
+
+Автор рассказывает о том,
+• почему инструкции по безопасности не выполняются,(   Читать дальше...   )Жанр: Информационная безопасность, производственный менеджментФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C806283716851B148C8D493E2BF25FB6431D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966223   (220119) от 17.12.2015
 
 Эдвард Бернейс | Пропаганда (2010) [PDF, FB2]
@@ -6,7 +88,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -245,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -272,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -300,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -326,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -353,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -380,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -406,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -433,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -460,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -487,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -513,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -539,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -565,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -591,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -603,84 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2046B006D2C870E0755AE3B91963406EF9BDE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343803   (215975) от 07.12.2019
-
-Эйми Сонг | #instaстиль. Как собирать миллионы лайков в Instagram (2019) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет прокачать твой Instagram! Популярный блогер Эйми Сонг делится секретами, как привлечь миллионы подписчиков, наполнив страницу интересным контентом и стильными картинками. Теперь ты точно будешь знать, как создать свой неповторимый стиль, продвигать посты и сделать из своей странички топовый бренд.Жанр: Интернет-маркетингФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1413364B902531EA31579D56196B967DA52818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966855   (215604) от 19.12.2015
-
-Юрий Адлер (ред.) | Канбан и «точно вовремя» на Toyota. Менеджмент начинается на рабочем месте (2008) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – одно из самых читаемых изданий по управлению производством в Японии. В основу книги легли учебные материалы, подготовленные специалистами Toyota к семинарам по производственной системе Toyota, которые проходили в середине 1970-х годов. С тех пор прошло немало времени, но книга, неоднократно переиздававшаяся, в том числе и на английском языке, до сих пор (   Читать дальше...   )Жанр: Организационный и производственный менеджментФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C004D3F73128BDC3223216BA49A58BE0FE47C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085009   (215471) от 20.12.2016
-
-Project Management Institute | Руководство к своду знаний по управлению проектами. Руководство РМВОК [5-е издание] (2013) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свод знаний по управлению проектами представляет собой стандарт по управлению проектами, разработанный межуднародным институтом PMI (Project Management Institute). PMBOK содержит сумму профессиональных знаний по управлению проектами. PMI использует этот документ в качестве основного справочного материала для для подготовки к экзамену на сертификат PMP (Project Manegement (   Читать дальше...   )Жанр: МенеджментФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CAE1CE737481B0098438956181FE524724B569
 ```
 
 https://mybot314.ru/tekegram_catalog/

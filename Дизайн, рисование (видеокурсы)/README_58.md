@@ -1,3 +1,81 @@
+###  Публикация: 1553002   (233509) от 23.05.2022
+
+CGMA, Nicolas Weis | Environment Design for Animation Workshops (2016) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Первая часть этого воркшопа, касается "бумажной работы": форма, композиция, рисование на бумаге. Вторая часть - это обработка (рендер) в Photoshop, это видео покажет вам как использовать все те нюансы, которые дает вам традиционное рисование и научит вас улучшать их с помощью цифровых инструментов.Производство: CGMAЖанр: Изобразительное искусствоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCF55EC29A2854D58C4E00C366AFBEC14DB3359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553043   (233480) от 23.05.2022
+
+The Gnomon Workshop, Vitaly Bulgarov | Robotic 3D Design for Entertainment (2018) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В этом классе Виталий будет сосредоточен на демонстрации и объяснении своего процесса и методов прохождения через «первый проход» 3D-дизайна роботизированного персонажа фильмов или игр. Первый проход или фаза проектирования считается одной из самых сложных и критических этапов процесса создания 3D-дизайна. Сложной, потому что ваши клиенты ожидают, что вы будете быстро (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D-моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24690DB4F08E2E519BBF05A66F7A8834C4DFC079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634415   (233371) от 20.05.2023
+
+Игорь Сахаров | Горы (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Видео-урок масляной живописи «Горы»Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02A3302FCCC0839EF075783D8A0117554BBF0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553186   (233297) от 24.05.2022
 
 Udemy, Lindsay Marsh | Graphic Design Masterclass - Learn GREAT Design (2022) WEB-DL [EN / EN Sub]
@@ -6,7 +84,7 @@ Udemy, Lindsay Marsh | Graphic Design Masterclass - Learn GREAT Design (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +113,7 @@ Pluralsight, Sophie Jameson | CINEMA 4D UV Mapping Fundamentals (2018) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -91,7 +169,7 @@ Sketchpark, Мария Мусиенко | Запредельная иллюст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -118,7 +196,7 @@ CG Cookie, Kent Trammell | Short Film Character Production in Blender (Creating 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -145,7 +223,7 @@ Blender Cloud, Pablo Vazquez | Cartoon Character Creation - Venom's Lab! 2 (2014
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -172,7 +250,7 @@ FlippedNormals, Emiel Sleegers | Creating Custom Decals for Games - In-Depth Tut
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -198,7 +276,7 @@ Gumroad, Jan Urschel | Procedural Landscapes in Blender (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -224,7 +302,7 @@ CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -251,7 +329,7 @@ Artstation, Aaron Villarreal | Creating a Stylized Diorama | Aaron Villarreal (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -277,7 +355,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -305,7 +383,7 @@ Lectoroom, Мария Павлова | Букет клубники маслом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -333,7 +411,7 @@ World Of Level Design | UE4 Fundamentals Vol.1: The Essential Beginner's Guide t
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -359,7 +437,7 @@ Art box school | Mини цветы. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -385,7 +463,7 @@ Art box school | Листья. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -414,7 +492,7 @@ Art box school | Эффектный пейзаж. Масло (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -440,7 +518,7 @@ milenanoda.school, Milena Noda | Марафон «Создание стилиз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -468,7 +546,7 @@ Lynda, Brian Morse | PFTrack Essential Training (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -494,7 +572,7 @@ Udemy, Michael Gerard | Unreal Engine 4 - Learn How to Create a Lost Road scene 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -523,7 +601,7 @@ The Gnomon Workshop, Gary Meyer | Fundamentals of Perspective Vol. 1-3 (2012) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -549,7 +627,7 @@ Rohan Dalvi | Procedural Modeling in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -576,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -604,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -617,89 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D66FBF14C5CDCA6D513661C27E0CCA7C077FE6F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555614   (231215) от 04.06.2022
-
-Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D Painter (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстурируйте полную сцену с помощью различных материалов, таких как стена, металл, пластик, дерево, сталь и т.д.
-Мы начнем с создания нового проекта и запекания карт. Затем мы будем создавать текстуры для всех наших ассетов одну за другой с помощью ресурсов, предоставленных Substance 3D Painter.
-После завершения текстурирования мы экспортируем наши текстуры для (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 14:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B261378257117962B7AC8FE05D05ABC5F2EBD2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555613   (231128) от 04.06.2022
-
-Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3.0 (2022) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс познакомит вас с более реалистичным способом создания рига вашего автомобиля с помощью физического движка Blender. Используя Rigid Bodies и Rigid Body Constraints, вы можете буквально вести свой автомобиль по вашей сцене. Этот метод позволяет физическому движку вычислять все движения автомобиля, такие как углы развала, скорости вращения колес, крен кузова, (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, РиггингЯзык озвучки: АнглийскийПродолжительность: 09:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EE9A376927EABAE4AB9F35692AB8512F5AE821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637727   (230633) от 05.06.2023
-
-Зоя Ти | Запись «Большого Ежегодного Вебинара по трендам» от Зои Ти (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнай о интерьерных трендах 23/24 всё, через призму психологии и реальной тренд-аналитики.
-
-1. Как меняются предпочтения потребителей в РФ
-2. Что будет пользоваться спросом у платежеспособной аудитории(   Читать дальше...   )Жанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 02:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8190FC144374E0537B5E19A5AAC899F365649E9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

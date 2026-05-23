@@ -1,3 +1,59 @@
+###  Публикация: 1415397   (376341) от 12.10.2020
+
+Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574330   (375454) от 12.11.2012
+
+Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Keys / RZA - The Baddest Man Alive
+  02. Ghostface Killah / M.O.P. / Pharoahe Monch - Black Out
+  03. Kanye West - White Dress
+  04. The Revelations feat. Tre Williams - I Forgot To Be Your Lover
+  05. Idle WarshipЖанр: SoundtrackПродолжительность: 04:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069434   (373682) от 04.11.2016
 
 James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +62,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +91,7 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +117,7 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +146,7 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +175,7 @@ L'One - 1985 (2017) Из т/с «Чернобыль 2. Зона отчужден
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +204,7 @@ Ennio Morricone - So Sweet,So Sensual Erotica Morricone (2004) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -183,7 +239,7 @@ Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -212,7 +268,7 @@ Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +303,7 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +332,7 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +361,7 @@ Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -334,7 +390,7 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -363,7 +419,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -392,7 +448,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -421,7 +477,7 @@ Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +506,7 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +535,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +564,7 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +593,7 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +622,7 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,7 +651,7 @@ Fernando Velazquez - A Monster Call / Голос монстра (2016) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,7 +680,7 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,7 +709,7 @@ Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные д�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -682,7 +738,7 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -696,64 +752,6 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578062   (345384) от 23.09.2022
-
-VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Picture, OST [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Hard Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Retaliators - Sometimes If You’re Lucky… It’s Better to Keep Evil Alive (0:22)
-02. Papa Roach - The Ending (3:29)
-03. The Retaliators - We Have to Get out of Here… Those Aren’t Zombies… (0:09)
-04. The Hu - This Is Mongol (3:44)(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Hard RockПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A5EBD5F50F3692DB41EE1893FBB9F72A32B6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257540   (343133) от 27.10.2018
-
-Atom Music Audio - Underworld (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revengers [01:56]
-02. Our Saviors [02:08]
-03. The King Has Fallen [02:36]
-04. Shadow Warrior [02:05](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBA0762BDF061FB6A2F9E51057B5EA4284B9A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

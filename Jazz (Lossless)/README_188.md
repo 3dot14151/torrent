@@ -1,3 +1,61 @@
+###  Публикация: 1064535   (426397) от 20.10.2016
+
+Sun Ra and The Arkestra - Sound of Joy (1957) 2003, Delmark[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Experimental Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.El Is a Sound of Joy [04:05]
+ 02.Overtones of China [03:25]
+ 03.Two Tones [03:42]
+ 04.Paradise [04:31](   Читать дальше...   )Жанр: Avant-Garde Jazz, Experimental Big BandПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942A4928ED8618B0568C3240B8B6D7AF59C79DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064561   (426395) от 20.10.2016
+
+Joey Alexander - Countdown (2016) Motema Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.City Lights [05:47]
+ 02.Sunday Waltz [05:24]
+ 03.Countdown [08:49]
+ 04.Smile [04:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4799E3D33A0834C2781E85D71F6D6DCD4E5CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064437   (426257) от 20.10.2016
 
 Duke Ellington - Duke Ellington's Greatest Hits (1968) 1997 [WavPack|Lossless|image + .cue] <Big Band, Swing>
@@ -6,7 +64,7 @@ Duke Ellington - Duke Ellington's Greatest Hits (1968) 1997 [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ James Moody - 1951 (2005) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Red Garland - Misty Red (1982) 1991, Timeless [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Herman Foster - The One And Only (1984) /2015, Solid Records/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Tete Montoliu - Live At The Keystone Corner (1979) /2015, Solid Records/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Art Blakey & The Jazz Messengers - The Freedom Rider (1961) /2015, Universal/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Bill Evans - Jazzhouse (1969) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Pian
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Elvin Jones - Live At The Lighthouse Vol. 1 (1972) /2013, EMI Music/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Elvin Jones - Live At The Lighthouse Vol. 2 (1972) /2013, EMI Music/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +325,7 @@ Jonathan Fritzen - Fritzenized (2015) [FLAC|image + .cue]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Freddie Roach - Brown Sugar (1964) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Louis Armstrong - The Complete RCA Victor Recordings (1932 - 1956) 1997, 4CD, BM
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +412,7 @@ Doug Raney & Thorgeir Stubo - Everything We Love (1983) 1998, Prevue [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +441,7 @@ Jimmy Raney & Doug Raney - Duets (1979) 1986, SteepleChase [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +470,7 @@ The Clayton-Hamilton Jazz Orchestra - Live at MCG (2005) MCG Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +499,7 @@ Norman Connors - Take It To The Limit & Mr. C (2010) Expansion Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +528,7 @@ Lee Ritenour - Masterpieces: Best Of The GRP Years (2012) Jazzclub [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Benny Golson And His Orchestra - Walkin' (1957) 1997, Fresh Sound [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +586,7 @@ Kenny Dorham Quintet with Jackie McLean - Complete Recordings (1961, 1962) 2007,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Gerry Mulligan - The Art Of Gerry Mulligan: The Final Recordings (2000) Telarc [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +644,7 @@ Fred Hersch Trio - Live In Europe (2018) Palmetto Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +673,7 @@ Leny Andrade - Maiden Voyage (1994) Chesky Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +702,7 @@ The Random Midi Quartet - Pordenone (2018) [FLAC|Lossless|Web-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +731,7 @@ Pearl Bailey - 16 Most Requested Songs (1945 - 1950) 1991, Columbia [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -687,65 +745,6 @@ Pearl Bailey - 16 Most Requested Songs (1945 - 1950) 1991, Columbia [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3AC9D43DED372641A727AEDD59022629276367E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324615   (423091) от 10.09.2019
-
-Miles Davis - Rubberband (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа над записью велась с октября 1985 г. по январь 1986 г. вскоре после подписания артистом контракта с Warner Bros.
-До настоящего времени альбом полностью нигде не издавался и считался потерянным.01. Rubberband Of Life (Feat. Ledisi)
-02. This Is It
-03. Paradise (Feat. Medina Johnson)
-04. So Emotional (Feat. Lalah Hathaway)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEA9C41DEE95BEB0CE64906C9AB69232CE97655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947045   (422804) от 15.10.2015
-
-David Newman - The Weapon (1972) /2013, Warner/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Missy [05:30]
- 02.Seems Like I Gotta Do Wrong [04:23]
- 03.You Can't Always Get What You Want [07:01]
- 04.Yes We Can Can [03:51](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221D6E75B1138A81B232C9746042C3923095021E
 ```
 
 https://mybot314.ru/tekegram_catalog/

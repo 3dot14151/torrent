@@ -1,3 +1,186 @@
+###  Публикация: 1312170   (536496) от 02.07.2019
+
+Журнал | Elle AU №6-7 (июнь-июль 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Elle — французский женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0EBBEFE0DD6FAAABBBF0F105EE1DA6DF55A235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312176   (536399) от 02.07.2019
+
+Журнал | MOD USA №2 (весна 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+MOD (произносится как мод, а не M-O-D) Журнал - это новое поколение моды и креативной культуры - мы будущее! Демонстрируя самых талантливых художников из развивающегося модного сообщества, мы преодолеваем разрыв на сегодняшнем рынке, с гордостью выступая в качестве платформы для будущих лидеров отрасли.
+С потрясающей визуальной эстетикой и последними новинками моды, (   Читать дальше...   )Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01D68ED13D317A98BF375BD0597422DF73F9179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 697215   (536327) от 05.09.2013
+
+Журнал | Marie Claire [UK] №10 (октябрь 2013) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Marie Claire" — международный женский глянцевый журнал, неизменно занимает первое место в рейтингах. Формула "Marie Claire" уникальна: сильный блок моды сочетается с яркими, порой провокационными репортажами. Журнал говорит о самых актуальных темах жизни женщины: моде, красоте, здоровье, стиле жизни, психологии, отношениях, общественных событиях.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE718E6F3BA97D22FC599E326DAF58C28380006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312282   (534398) от 03.07.2019
+
+Журнал | Femina IN №3 (март 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Femina - индийский журнал, принадлежащий Worldwide Media, дочерней компании Times Group. Femina, самый старый женский английский журнал в стране, издается почти шесть десятилетий.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993589D62BBD3629012C404B0B2415177B1ED9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312290   (534393) от 03.07.2019
+
+Журнал | Glamour RSA №3 (март 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Glamour — ежемесячный женский журнал, первый номер вышел в США в 1939 году и изначально назывался «Glamour of Hollywood» — Голливудский Гламур.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5396807EC8200F7FFF632539A602CE23F29978F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312277   (534280) от 03.07.2019
+
+Журнал | Lilly (Jolidon Collection) USA №1 (лето 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каталог от Jolidon коллекция купальников.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0FB30295AAA52EF71D80D73CBF8B2C0B04530C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312276   (534194) от 03.07.2019
+
+Журнал | Jolidon Collection USA №1 (лето 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каталог от Jolidon коллекция купальных костюмов.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9228AEC40CE5F2BC33A412732B4C8211E8A7D50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312499   (532687) от 04.07.2019
 
 Журнал | Fairlady RSA №6 (июнь 2019) [PDF] [En]
@@ -6,7 +189,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,191 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64DEDFC4B6BD4348400E6A8301329A77FCF13037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541858   (500329) от 01.09.2012
-
-Подборка журналов | Легко худеем + спецвыпуски [март;...сентябрь 2012] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500329.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Легко худеем" — журнал, рассказывающий о том, как: сохранить стройность, не утратив бодрости и хорошего настроения; выглядеть стильно при любой комплекции; какими новыми блюдами себя порадовать без ущерба для фигуры. В релизе присутствуют обычные номера, спецвыпуски ("Секреты") и "Стройный кулинарный справочник".Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C5326B480944E29F09F8A03163441B759AC826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542167   (499355) от 02.09.2012
-
-Журнал | Секреты Легко худеем №4 [август 2012] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый первый выпуск журнала, переизданный по многочисленным просьбам читателей. Тема номера - "Худеем без диет!". Диеты: объемная, "мокрая", система Грейзинга, раздельное питание и другие.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE03D695B965D7CBA25D048DBB76BE76B143056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935495   (498344) от 09.09.2015
-
-Журнал | Библиотека журнала Похудей №7 Диета Шесть лепестков (2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам хочется получить быстрый и притом заметный результат, то система питания под названием «Шесть лепестков» просто создана для вас. Появилась эта диета сравнительно недавно, но уже стала весьма популярной в интернете.
-Разработку рациона приписывают шведскому врачу Анне Юхансон. Однако есть подозрение, что этот специалист, как и Протасов, вымышлен. Если верить (   Читать дальше...   )Жанр: женский журнал, здоровье, диетологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF84ACCFE673039FEAD67B40021683FC0FAC4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935720   (498342) от 09.09.2015
-
-Журнал | Библиотека журнала Похудей №9 Вегетарианское питание (2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Множество людей отказывается от мяса по философским и религиозным убеждениям. Но сегодня все больше мужчин и женщин становятся вегетарианцами, потому что надеются, сменив рацион, обрести здоровье и красивую фигуру.
-Отчасти такой шаг оправдан, хотя, по статистике, продолжительность жизни у вегетарианцев и мясоедов одинакова. Но вот качество этой жизни у людей, отказавшихся (   Читать дальше...   )Жанр: женские журналы, здоровье, диетологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D56614AEBCEB81EF3EBF7E1AC90893317B4394A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935448   (498314) от 09.09.2015
-
-Журнал | Библиотека журнала Похудей №8 Диета для поджелудочной железы (2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498314.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Талмуде поджелудочная железа названа "пальцем Бога". Неизвестно, получила она такое имя за свою форму или древние уже догадывались о важности роли, которую железа играет в организме.
-Поджелудочная железа отвечает за белковый, углеводный и жировой обмен и принимает непосредственное участие в производстве панкреатического сока, содержащего пищеварительные (   Читать дальше...   )Жанр: женский журнал, здоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC8BAF43E280D2202B3CC1452FD05A3372F299C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318349   (496598) от 05.08.2019
-
-Журнал | Essentials RSA №8 (август 2019) [PDF] [En]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Essentials - это британский журнал о жизни, издаваемый IPC Media, частью Time Inc. Он по-прежнему выходит в Южной Африке.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7873227A364CF8DAE03E668F73E3F145D713669C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 698868   (493625) от 10.09.2013
-
-Журнал | Vogue [UK] №10 (октябрь 2013) [PDF] [En]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Vogue поистине легенда в мире моды, ведь он издаётся уже более 120 лет. Журнал печатается  в 19 странах мира, его аудитория огромна и он по праву занимает первое место. Меняются эпохи, а Vogue по-прежнему является для женщин путеводителем в мире моды. Лучшие модели, коллекции и тренды всё это можно найти на страницах Vogue.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAED79786D5525136A5A4B7E080A831C037F4D41
 ```
 
 https://mybot314.ru/tekegram_catalog/

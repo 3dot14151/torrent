@@ -1,3 +1,30 @@
+###  Публикация: 602239   (997678) от 12.01.2013
+
+Snapseed 1.2.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Snapseed - автономное приложение для обработки цифровых изображений, которое может стать вашим единственным инструментом для быстрой обработки фотографий, займёт почётное место в коллекции фотографа-любителя и даже профессионала.
+Snapseed это программа для редактирования изображений, содержащая набор различных инструментов и фильтров. С её помощью можно отредактировать сразу всю фотографию или отдельный участок на ней. В программе встроена библиотека рамок, а также различных стилей (винтаж, гранж или фокусировка в центре, мн. др.). Изменения производятся движениями ползунков, а результат виден сразу же. Разумеется, любое действие можно отменить. Готовыми, отредактированными снимками можно поделиться с другими пользователями через электронную почту, опубликовать на Facebook и Flickr или распечатать на принтере. Имеется функция печати фотографий посредством беспроводной технологии AirPrint. Изображения в форматах JPEG, TIFF (RGB), и RAW обрабатываются без ограничения их размера. Возможно использование в приложениях (   Читать дальше...   )Название программы: SnapseedТип издания: Mac OS X SoftwareЯзык интерфейса: Multi, русского нет.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603385   (996833) от 15.01.2013
 
 Alarm Clock Pro 9.5.2 [Eng]
@@ -6,7 +33,7 @@ Alarm Clock Pro 9.5.2 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -38,7 +65,7 @@ iSonics 1.2.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -68,7 +95,7 @@ Nik Software HDR Efex Pro 2.003 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -95,7 +122,7 @@ Dynamic Photo HDR 5.2.0 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -123,7 +150,7 @@ PreSonus Studio One Pro 2.5 [Eng]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -149,7 +176,7 @@ Ortelius 2 v2.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -175,7 +202,7 @@ ClearDisk 2.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -204,7 +231,7 @@ Logicly 1.11.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -233,7 +260,7 @@ iClock Pro 5.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -259,7 +286,7 @@ iCash 7.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -285,7 +312,7 @@ Adobe Photoshop Elements 2020 v18.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -311,7 +338,7 @@ Adobe Premiere Elements 2020 v18.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -337,7 +364,7 @@ Apple iWork - Pages 8.1, Numbers 6.0, Keynote 9.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -363,7 +390,7 @@ Artpaper: new daily wallpapers 3.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -389,7 +416,7 @@ Easy Translator 15.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -417,7 +444,7 @@ EndNote X9 v9.3.2 (build 15235) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -444,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +501,7 @@ Paintbrush 2.1.1 [ENG]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +531,7 @@ iSkysoft DVD Creator 6.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +559,7 @@ Duplicate File Remover PRO 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +586,7 @@ Chamonix 1.1 - CHM-viewer [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +613,7 @@ Better Blocker 2020.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -613,7 +640,7 @@ Mac Screen Recorder 2.0.30 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -639,7 +666,7 @@ BlueHarvest 7 v7.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -667,7 +694,7 @@ Axure RP Pro 6.5.0.3048 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -678,35 +705,6 @@ Axure RP Pro - быстрое макетирование для приложен
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971420   (987242) от 02.01.2016
-
-Graphic 3.0.1 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graphic - (бывший iDraw)  — это мощный многофункциональный и удобный редактор векторной графики и иллюстраций для Mac OS X.
-Graphic имеет все необходимые инструменты, чтобы создать все - от подробных технических иллюстраций, до красивых произведений искусства. С Graphic создавать замысловатые рисунки становится быстро и легко.
-
-C Graphic Вы можете импортировать  PSD, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 октября 2015Разработчик: Indeeo, Inc.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский (by yagger), Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194E8EF9A345174481C6D1BA0E5C1052816A8880
 ```
 
 https://mybot314.ru/tekegram_catalog/

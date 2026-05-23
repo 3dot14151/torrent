@@ -1,29 +1,3 @@
-###  Публикация: 943965   (444230) от 05.10.2015
-
-Rayman Origins (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неунывaющий Рэймен, создaнный орденоносным рaзрaботчиком Мишелем Aнселем, возврaщaется к истокaм легендaрной серии, зaвоевaвшей признaние миллионов игроков. В волшебной стрaне сновa неспокойно, и рaзобрaться с ситуaцией может только он - герой всех времен: Рэймен! В компaнии своего лучшего другa Глобоксa и двух волшебников нa все руки он отпрaвляется восстaнaвливaть (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Ubisoft MontpellierЖанр: Arcade / Adventure / Platformer / 3DЯзык озвучки: ВымышленныйЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3F2BC293E3B146F23711305443B3003A368945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943958   (444061) от 05.10.2015
 
 FIFA Street (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
@@ -32,7 +6,7 @@ FIFA Street (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +32,7 @@ Call of Duty 3 (2006) [Xbox360] [Region Free] [Freeboot] [License] [Ru/En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Cave (2013) [PS3] [USA] 4.10 [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +84,7 @@ Metal Gear Solid HD Collection (2012) [PSVita] [USA] 3.60 [NoNpDrm] [License] [E
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +110,7 @@ Beyond Good & Evil HD (2011) [PS3] [EUR] 3.55 [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +136,7 @@ Resident Evil 4 HD (2011) [PS3] [EUR] 4.82 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +162,7 @@ Wipeout 2048 (2012) [PSVita] [EUR] 3.60 [HENkaku] [License / 1.04] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +188,7 @@ Final Fantasy 3 [JAP/ENG] (2012) [PSP]
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +214,7 @@ SOCOM 4: Special Forces / SOCOM: Спецназ [PS3] [MOVE] [3D] [EUR] [Ru] [3.
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +240,7 @@ WRC 5 FIA World Rally Championship (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +266,7 @@ WWE 2K17 (2016) [Xbox360] [RegionFree] 17349 [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +292,7 @@ Prison Princess (2020) [Switch] [USA] 9.1.0 [NSZ] [License / 1.0.1] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +318,7 @@ Minecraft: Xbox 360 Edition [Update Aquatic] (2012) [Xbox360] [Region Free] [Fre
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +344,7 @@ Call of Duty Classic (2009) [PS3] [EUR] 4.82 [OFW / HAN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +370,7 @@ Legend of Spyro: Dawn of the Dragon [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +398,7 @@ The LEGO Movie Videogame (2014) [PS4] [EUR] 5.05  [HEN] [License / 1.01 / DLC] [
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +424,7 @@ Battlefield V (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.26] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +450,7 @@ Hitman: Absolution - Complete Edition (2013) [PS3] [EUR] 4.25 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +476,7 @@ Dragon Quest V - Hand of the Heavenly Bride (2009) [NDS] [USA] FlashME [Unoffici
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +504,7 @@ Dragon Quest Builders (2016) [PSVita] [USA] 3.60 [HENkaku] [License / DLC] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +530,7 @@ WWE 2K17 (2016) [PS3] [USA] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +556,7 @@ SuperCar Challenge (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +582,7 @@ Godzilla (2015) [PS3] [EUR] 4.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mult
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,7 +608,7 @@ Masquerade: The Baubles of Doom (2016) [PS3] [EUR] 4.21 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -661,7 +635,7 @@ Deadfall Adventures: Heart of Atlantis (2014) [PS3] [EUR] 4.50 [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -672,6 +646,32 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32AF749C5EC1D51C2DA639A8A109EE80155B036F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323955   (429241) от 07.09.2019
+
+Disney-Pixar Up (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Взрослая история, рассказанная в мультфильме- так можно охарактеризовать блистательную картину «Вверх» от компании Disney и студии Pixar. Удивительная, захватывающая, сказочная история пожилого человека, на склоне лет решившего воплотить мечту всей жизни, трогает за живое и детей, и их родителей- каждое поколение находит в ней что-то свое. Благодаря игре Up (Вверх) (   Читать дальше...   )Тип издания: LicenseРазработчик: Heavy IronЖанр: Adventure, 3D PlatformerЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721C4E8B1DF39899D9BE30E4900A36B46E6EBDA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

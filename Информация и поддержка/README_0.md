@@ -6,7 +6,7 @@ Telegram bot для канала NNMCLUB
 >>Предложения и замечания
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ЧаВо (FAQ)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

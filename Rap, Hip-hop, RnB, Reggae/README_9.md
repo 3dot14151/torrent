@@ -1,3 +1,119 @@
+###  Публикация: 1374530   (872330) от 10.04.2020
+
+Jonny Craig - Find Your Home (2020) [MP3|320 Kbps] <R&B, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Block out the Noise [03:20]
+02. D.R.E.A.M. [03:23]
+03. Forelsket (Euphoria) [03:04]
+04. Turning the Page [03:33](   Читать дальше...   )Жанр: R&B, Hip-HopПродолжительность: 00:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EE8C5C10DF8637847FE95490B6012CABC08CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998286   (869812) от 19.03.2016
+
+CENTR - Качели (2007) [FLAC|Lossless|tracks + .cue] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:20)
+02. Качели (4:57)
+03. Исповедь (4:25)
+04. Жара 77 (4:11)(   Читать дальше...   )Жанр: RapПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C19B5DC26A0946755571835B49A3693750BFBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998275   (869552) от 19.03.2016
+
+Centr - Система (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Порося
+03. Не на рингтоны
+04. Сирены(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A166E79AE9FE3A9B938FCE7885E20F4327B08AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107014   (867550) от 22.02.2017
+
+Loc-Dog - Крылья (2017) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Мимо нот
+02 - Каждому свое
+03 - Плывущие облака
+04 - Стрела(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A2D3E0BDF3CC9CCB5BB2EB97DC748823D96786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375464   (865627) от 14.04.2020
 
 Даня Нерадин - Первый Цифровой (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -6,7 +122,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Chillhop Essentials Fall (2021) [FLAC|Lossless|Web-DL|tracks] <Chillhop, In
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +180,7 @@ Anacondaz - Выходи за меня (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +209,7 @@ Anacondaz - Выходи за меня (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +238,7 @@ Fardi - Черный сад, часть 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +296,7 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +325,7 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [FLAC|Lossless|Web-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +354,7 @@ Shabazz Palaces - The Don Of Diamond Dreams (2020) [MP3|320 Kbps] <Abstract Hip-
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +383,7 @@ Jah Khalib - 911 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +411,7 @@ RJD2 - The Fun Ones (2020) [MP3|320 Kbps] <Abstract Hip-Hop, Experimental>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +440,7 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [MP3|320 Kbps] <Hip-Hop, Rap
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +469,7 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [FLAC|Lossless|WEB-DL|t
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +498,7 @@ Tech N9ne - ENTERFEAR (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +527,7 @@ The Four Owls - Nocturnal Instinct (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +585,7 @@ Pyrokinesis - Моя Милая Пустота (2019) [FLAC|Lossless|WEB-DL|trac
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +614,7 @@ Wiz Khalifa - The Saga of Wiz Khalifa (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +672,7 @@ Czar - Pig Drum (Side B) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +701,7 @@ lojii & Swarvy - Due Rent (Blends) (2020) [MP3|320 Kbps] <Hip-Hop, R&B, Soul>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +730,7 @@ Mnogoznaal - Круг Ветров (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -628,121 +744,6 @@ Mnogoznaal - Круг Ветров (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9B1D1549105E960072E035F878CBCCAC34C3E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378298   (848263) от 24.04.2020
-
-Slik Jack - Dicey Buisness (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoked Salmon Bagel [03:13]
-02. Capo (feat. Blaq Poet & Poli) [03:20]
-03. No Introductions (feat. Edo.G) [03:17]
-04. Armani Suit (feat. Rico Blox) [03:16](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD75A37B0936D126E9BABF89833117B9DBF9515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378261   (848256) от 24.04.2020
-
-Twiztid - Mad Season (2020) [MP3|320 Kbps] <Hip-Hop, Rap, Horrorcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off With They Heads [02:41]
-02. Do This 1 More Time [02:40]
-03. Everything's Cursed [02:54]
-04. That's What They Be Telling Me [03:42](   Читать дальше...   )Жанр: Hip-Hop, Rap, HorrorcoreПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C46B8E904E64F78EC991401AB54760C649C28EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378062   (848182) от 24.04.2020
-
-Jah Khalib - 911 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9 грамм свинца [02:56]
-02. 911 [03:18]
-03. All About You [03:19]Жанр: Rap, Hip-HopПродолжительность: 00:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249E8098B7969E876F664550E55888374E4A619C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378042   (848178) от 24.04.2020
-
-Лигалайз - ALI (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_848178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Серебряков [02:25]
-02. ЗАСТОЙ 2.0 [05:35]
-03. ПЫЛАЮЩИЙ [04:19]
-04. MY PHILOSOPHY [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CF345A78679E1CEB8BD947DD7A3A77391CBE8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

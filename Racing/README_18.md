@@ -1,3 +1,29 @@
+###  Публикация: 1769630   (32644) от 29.12.2024
+
+Open Wheel Manager 2 (2023) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Open Wheel Manager 2 приглашает вас в мир автогонок. Этот стилизованный под ретро-игры симулятор позволит вам окунуться в атмосферу гоночных трасс и попробовать себя в роли менеджера команды. Ваша задача - вывести коллектив на пьедестал почёта. Ради победы придётся пойти на крайние меры и пожертвовать многим. Успех зависит не только от водительского мастерства гонщиков, (   Читать дальше...   )Тип издания: RepackРазработчик: Paprikash GamesЖанр: Гонки, Симуляторы, Спорт, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00F10685890FC33F0C5C44EDDD147178F52B594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727380   (32557) от 30.12.2024
 
 TRAIL OUT (2022) [Ru/Multi] (3.1/dlc) Scene Rune
@@ -6,7 +32,7 @@ TRAIL OUT (2022) [Ru/Multi] (3.1/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Monster Jam (2007) [En] (1.0.1) Scene Reloaded
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1a/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Pocket Cars (2020) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Gangs of Neo Tokyo (2025) [En] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Rocket Boots Mania (2018) [Ru/Multi] (1.0.3012) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) Repack Wanterlude [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +240,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Need for Speed: Carbon (2006) [Ru/Multi] (1.4) Repack Wanterlude [Collector's Ed
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +292,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +318,7 @@ N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Crash Time - Undercover (2012) [Multi] (5.0.33) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +396,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.54.2.3/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +474,7 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack Decepticon [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Scene Rune [Premium Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Repack Wanterlude [Premium E
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Super Woden GP II (2) (2023) [Ru/Multi] (1.31b) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Dakar Desert Rally (2022) [Ru/Multi] (2.3.0/dlc) Repack Let'sРlay [Digital Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4305859395531E91A0CECBAA7B71B9C6CED6430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800308   (15916) от 02.06.2025
-
-Forza Horizon 5 (2021) [Ru/Multi] (1.684.745/dlc) Repack seleZen [Premium Edition]
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forza Horizon 5 – продолжение популярной гоночной серии Forza Horizon, в котором вам ждет еще более разнообразный и обширный открытый мир. За рулем величайших автомобилей вы промчитесь по невероятно красивому миру Мексики. Вас ожидает масштабная кампания с сотнями испытаний на любой вкус. Вы посетите пустыни, затерянные руины, густые джунгли, покрытый снегом вулкан (   Читать дальше...   )Тип издания: RepackРазработчик: Playground GamesЖанр: Racing, Arcade, Simulator, Open World, 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2788F2F0D914927EC02579213E685BCC7CA6EAA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 948355   (412908) от 19.10.2015
+
+Wasteland 2: Director's Cut (2015) [Ru/Multi] (1.0/u1) Repack R.G. Games
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Wasteland 2 - постапокалиптическая ролевая игра продолжающая историю первой части созданной еще в далеком 1988-м году. Данная игра разрабатывается на движке Unity с сохранением изометрического вида и самого игрового процесса. Действия игры развиваются около 4-х рейнджеров, которые спаслись после катастрофы и теперь пытаются выжить по среди пустыниТип издания: Переупакованная лицензияРазработчик: inXile EntertainmentЖанр: RPG / 3D / IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, Польский, ИтальянскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Польский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6E9876A1FE767258AC3EC456469367CC357486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139593   (412814) от 03.10.2018
+
+Rezrog (2017) [Ru/En] (1.1.0) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Резрог погрузился в хаос. Злые колдуны и жуткие монстры спустились в темные глубины земли и собирают там могущественные кристаллы. Возглавьте команду героев, которая преодолеет все препятствия и вернет мир в Резрог.Тип издания: LicenseРазработчик: SoaphogЖанр: Role-playing, Adventure, FantasyЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA77C5802BBB3985B47A6ABABFC37EB02856157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413103   (411012) от 02.10.2020
+
+Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (обновляемая)
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Встречайте Kingdoms of Amalur: Re-Reckoning! Возвращение ролевой игры от писателя Р. Э. Сальваторе, сценариста Тодда Макфарлейна («Спаун») и дизайнера Кена Ролстона (Elder Scrolls IV: Oblivion). Вас ждут обновленная графика, улучшенный игровой процесс и огромный мир! Узнайте тайны Амалура: исследуйте оживленный Ратир, бескрайние просторы Далентарта и мрачные подземелья (   Читать дальше...   )Тип издания: RepackРазработчик: KAIKO, Big Huge GamesЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74E8897D294F138AFAD9B3D86988699EFED15E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 558294   (410945) от 11.10.2012
 
 Final Fantasy XII International: Zodiac Job System (En) [RePack/Emulator] 2007 | MoveXX
@@ -6,7 +84,7 @@ Final Fantasy XII International: Zodiac Job System (En) [RePack/Emulator] 2007 |
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Legends of Dawn Reborn (2015) [Ru/Multi] (2.01s) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +164,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.2.0/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +190,7 @@ Gerda: A Flame in Winter (2022) [Ru/Multi] (1.1.14-00f6b) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +216,7 @@ Middle-earth: Shadow of Mordor (2014) [Ru/Multi] (rc2/dlc) License GOG [Game of 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +242,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +268,7 @@ R.A.W.: Realms of Ancient War / R.A.W.: Проклятье древних кор
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +297,7 @@ Lichdom: Battlemage (2014) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +323,7 @@ Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +351,7 @@ Might & Magic: Heroes VI. Gold Edition / Герои Меча и Магии 6. З
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +378,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +404,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +432,7 @@ Risen 2. Dark Waters / Risen 2. Тёмные воды [Ru/En/Gr] (RePack/1.0.121
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +460,7 @@ Risen 2: Dark Waters [Ru/En] (RePack/1.1.0.0/3 DLC) 2012 | R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +488,7 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +514,7 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +541,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (22997) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +567,7 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -515,7 +593,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (22997) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +619,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +645,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/Multi] (3.0.146.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +671,7 @@ The Harvest (2013) [Multi] (1.0) Unofficial ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,88 +685,6 @@ The Harvest (2013) [Multi] (1.0) Unofficial ALiAS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A39A608B7A3ED54FBD2392807BD9E2BF3A69F00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571501   (386771) от 07.11.2012
-
-Of Orcs and Men [Ru/En] (RePack/1.0) 2012 | R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могучая армия людей вторглась на территории орков и гоблинов. Сеча была жестокой, ну а после уцелевших на поле брани гоблинов победители изловили и безжалостно перебили, а орков пленили и обратили в рабство...
-
-    В этой фэнтезийной истории вам отводится роль воина-орка из легендарного легиона «Кровопийцы», ветерана, закаленного в самых страшных сражениях. Командующий поручает вам миссию, которая, в случае успеха, изменит ход войны. Вы должны убить одного-единственного человека, который виновен в кровопролитии, человека, который годами разжигал людскую ненависть к зеленокожим, подстрекал уничтожить их... Убить нужно самого императора.
-
-    В этом опасном деле у вас будет помощник. Гоблин. Он совершенно не похож на орка, однако очень скоро станет ясно, что многочисленные различия лишь играют вам на руку. Вдвоем вы пройдете долгий путь — от грязных закоулков у подножия Великой стены до самого сердца Империи людей. И лишь вдвоем, возможно, сумеете изменить ход истории и восстановить мир.(   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide Studio и SpidersЖанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDC73765C8A226FF6747955630DC2765A120FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022184   (386104) от 29.10.2016
-
-Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.0/dlc) License HI2U
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hero Defense - Haunted Island приглашает всех любителей MOBA, RPG и TD проверить себя на способность к стратегическим маневрам в борьбе с ордами зловещих крипов. Hero Defense - Haunted Island предоставляет игроку пять уникальных героев, проходящих через различные арены, чтобы победить Графа Некросиса.Тип издания: LicenseРазработчик: Happy TuesdayЖанр: Strategy, RPG, Tower Defence, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383F4C7424E1B9CF11746DC414A2FA02212BB7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253313   (385052) от 08.10.2018
-
-Mass Effect (2008) [Ru] (1.2/dlc) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385052.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2148 году на Марсе были впервые обнаружены артефакты древней цивилизации. Десятилетия исследований спустя земные ученые смогли наконец полностью понять технологию инопланетян, что обеспечило серьёзный прорыв в технологическом развитии нашей планеты — пространство и время покорились человеку, стали возможны полёты к дальним звёздным системам.Тип издания: RepackРазработчик: BioWareЖанр: Adventure (Space), RPG (Rogue,Action), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F32ECD6FAA16027CD066A6D48E967F0700AF902
 ```
 
 https://mybot314.ru/tekegram_catalog/

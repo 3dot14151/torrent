@@ -1,3 +1,206 @@
+###  Публикация: 1004600   (836540) от 07.04.2016
+
+Ennio Morricone - Spiel Mir Das Lied Vom Tod - The Very Best Of (1992) 2 CD, Compilation [FLAC|Lossless|tracks] <Classical, Stage & Screen, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Der Profi: Chi mai    05:06
+02. The Untouchables: Ness Family Theme    03:22
+03. Der Maulwurf: Marche En La    03:02(   Читать дальше...   )Жанр: Classical, Stage & Screen, InstrumentalПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB1D543CADF6D5AEB14F7B2477951276D2C592C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379339   (836391) от 01.05.2020
+
+Сергей Ильинов - Fantasy (1996) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сергей Ильинов родился в апреле 1961 года в Оренбурге. Окончив музыкальную школу по классу классической гитары, подался в Москву, где играл на басу и пел в различных «ресторанных» коллективах. В 1988-м создал музыкальный театр-студию «Служба доверия», работал ди-джеем, звукорежиссером и композитором на радио (в том числе в Русской редакции BBC).01. Дождь (2:26)
+02. Воздух (3:57)
+03. Ветер (3:29)
+04. Ночь (2:58)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E71C7D49E4952E4575D617E06A682E69174121F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378973   (836377) от 01.05.2020
+
+Louis Landon - Southwest Solo Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Agave 04:18
+2. Antelope Canyon 04:14
+3. Tonto Natural Bridge 03:44
+4. Apache Trail 04:01(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F408C8BCB698BF53AEE15F290C12AF889E1E621C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113673   (836341) от 12.03.2017
+
+Chris Spheeris & Paul Voudouris - Greatest Hits & Unreleased Masters (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Enchantment [00:04:31]
+02. Orlando [00:04:55]
+03. Pura Vida [00:03:50]
+04. Respect 2 [00:15:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD58189819CF8AB4D7BD938933F19C7B35164108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379509   (836103) от 01.05.2020
+
+2002 - Celtic Fairy Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Castle of Dromore 04:58
+2. The Green Fields of Autumn 05:43
+3. Lullaby 05:07
+4. South Wind 05:06(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24437C6C9D140F9247AE6C276DB62A794F7F8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378943   (835987) от 01.05.2020
+
+Gelka - Wishful Thinking (2020) [MP3|192 Kbps] <Electronica>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Swimming 2:40
+02. Body 3:26
+03. Long As I Live 2:51
+04. Isolation Tank 3:44(   Читать дальше...   )Жанр: Electronica, Chillout, AmbientПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501072ACDC65DC5805F98291A2F3BFAB8C27FD55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380107   (835912) от 01.05.2020
+
+Luca Stricagnoli - Change Of Rules (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Lonely Shepherd
+02. For A Few Dollars More
+03. Lose Yourself
+04. Hold The Line(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C5DE0FC8D45A7FE0D1456CE3D2E1DABFFE2E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378985   (835890) от 01.05.2020
 
 Peter Kater - Hawai'i: A Tribute to Aloha Aina (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +209,7 @@ Peter Kater - Hawai'i: A Tribute to Aloha Aina (2020) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Joe Bongiorno - Love's Light (Solo Piano) (2016) [FLAC|Lossless|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +322,7 @@ Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +351,7 @@ Club 8 - Pleasure (2015) [MP3|320 кб/с] <Pop, Rock, Electronic>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +380,7 @@ Gheorghe Zamfir - Golden Pan Flute Melodies (1988) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -206,7 +409,7 @@ Bino Dola, Luna Blanca, Fuegoitaliano - New Flamenco (2014) [MP3|320 Kbps] <Flam
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -235,7 +438,7 @@ Oliver Scheffner - Relax Lounge. Soothing Music for Recreation (2014) [FLAC|Loss
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -264,7 +467,7 @@ Clinton Shorter - The Expanse: Season One (Original Television Soundtrack) (2016
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -293,7 +496,7 @@ Salvador Candel - Reflejos (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -322,7 +525,7 @@ Shastro - 8 альбомов (1994-2001) [MP3|320 kbps]<NewAge, Meditative, Worl
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -353,7 +556,7 @@ Joe Bongiorno - Synfonia (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -382,7 +585,7 @@ Joe Bongiorno - Synfonia (2015) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -411,7 +614,7 @@ Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Origin
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -440,7 +643,7 @@ Mgzavrebi / Мгзавреби - PROстранства (2015) [WavPack|Lossless|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -469,7 +672,7 @@ Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Origin
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -498,7 +701,7 @@ Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -527,7 +730,7 @@ Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -541,209 +744,6 @@ Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380230   (831564) от 04.05.2020
-
-Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831564.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Camelot 05:06
-2. Reflejos de luna 05:14
-3. El ritmo de la luna 05:48
-4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380759   (831453) от 04.05.2020
-
-Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC|Lossless|WEB-DL|tracks] <Field Recording>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZOOM0001 (01:04)
- 02. ZOOM0002 (02:35)
- 03. ZOOM0003 (02:29)
- 04. ZOOM0004 (02:22)(   Читать дальше...   )Жанр: Field RecordingПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5602040761846DA6DC18ECDA0A9CD31AAD568B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380680   (831361) от 04.05.2020
-
-Asian Zen - Valentine’s Healthy Rituals (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Focus and Visualization 03:38
-2. In Harmony with Partner 03:39
-3. String and Healthy Body 03:39
-4. Stress and Anxiety Relieve 03:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D838EB07F6FC0C3C461333324EBCE4463B0B710F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379924   (830754) от 04.05.2020
-
-Salvador Candel - Tocando Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bailando en las estrellas 03:02
-2. Eternidad 05:05
-3. Tocando cielo	04:41
-4. Abrazando a la tierra 08:49(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A194CA22B59CB6D82EBD3A089359778BCDA401D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005908   (830743) от 10.04.2016
-
-Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Cry Holy (Eddie Espinosa) (03:30)
-02. Lord We Praise You (Eddie Espinosa) (02:33)
-03. Words Can Never Say (Eddie Espinosa) (03:25)
-04. Soften My Heart (Eddie Espinosa) (03:03)(   Читать дальше...   )Жанр: Praise & WorshipПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2E82A4B67EE983C03D217C69F68E23CF4A57BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501928   (830003) от 13.10.2021
-
-Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830003.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sahara Breeze
-2. A Trick of the Light
-3. Touched by the Sun
-4. Illusions(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B26720604680B02E94858F2CC4207E27BA66E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380949   (829763) от 05.05.2020
-
-Inon Zur - Syberia 3 (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syberia 3 (Main Theme)
-02. Thrill Of Nature
-03. Dark Force In Motion
-04. Call Of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E939C45AB0C7ACB199E2BBFDD340B1ABA35341
 ```
 
 https://mybot314.ru/tekegram_catalog/

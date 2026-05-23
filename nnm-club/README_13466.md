@@ -1,54 +1,25 @@
-###  Публикация: 1315599   (510982) от 22.07.2019
+###  Публикация: 1242619   (513991) от 23.08.2018
 
-VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, ClubHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. General Wooky - Jungle Boogie (Clubmix) 4:42
-02. Made In 1978 - Acrobat (Extended Mix) 6:02
-03. Mister Shuffle - Dance All Day (Ibiza Mix) 5:42
-04. Tony Wong - Back 2 Back (Warehouse Mix) 5:03(   Читать дальше...   )Жанр: House, Progressive House, FutureHouse, ClubHouseПродолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FA1DAFB3B7EB77C4DCC31F83A777824FFE608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315887   (510981) от 22.07.2019
-
-Andrea Schroeder - Blackbird (2012) [MP3|320 Kbps] <Pop-Nuar>
+Chris de Burgh - At the End of a Perfect Day (1997) Reissue, 1988 [FLAC|Lossless|tracks + .cue] <Pop Rock>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Paint It Blue
-02 - Bebop Blues
-03 - Wrap Me In Your Arms
-04 - Ghost Ship(   Читать дальше...   )Жанр: Pop-NuarПродолжительность: 00:38:18
+01. Broken wings (3:10)
+ 02. Round and around (3:07)
+ 03. I will (3:31)
+ 04. Summer rain (4:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC216A7F94421F14264515C7F6DFBC4A8D5F0B5F
+magnet:?xt=urn:btih:01C83AE2E9D3BA002F546EDF19582B74B59BA4EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,24 +27,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315687   (510980) от 22.07.2019
+###  Публикация: 1242688   (513989) от 23.08.2018
 
-VA - Frozen Angel: Metal Owerview (2019) [MP3|320 Kbps] <Heavy, Black Metal>
+Maxthon Browser 5.2.4.2000 Beta + Portable [Multi/Ru]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_510980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-001. Fates Warning - Monument
-002. Primal Fear - Apocalypse
-003. Godsmack - When Legends Rise
-004. Harvest Their Bodies - Revelation(   Читать дальше...   )Жанр: Heavy, Black MetalПродолжительность: 09:04:25
+Maxthon (официально называется Облачный браузер Maxthon, изначально известный как MyIE2) — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
+MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -85,25 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315852   (510979) от 22.07.2019
+###  Публикация: 1242598   (513987) от 23.08.2018
 
-Энн Перри | Реквием в Брансвик-гарденс (2019) [MP3, Андрей Васенёв]
+Eros Ramazzotti - Stilelibero (2000) Europe [FLAC|Lossless|image + .cue] <Rock, Latin, Pop>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В доме пожилого уважаемого священника, упав с лестницы, погибла молодая переводчица, помогавшая хозяину в исследованиях древних религиозных текстов. Суперинтендант полиции Томас Питт, которому поручили расследование, оказывается в крайне затруднительном положении. Мало найти виновного – если, конечно, он есть, – необходимо сделать все, чтобы избежать скандала в обществе (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 17:57:01
+01. L'Ombra Del Gigante           (4:42)
+02. Fuoco Nel Fuoco               (4:02)
+03. Lo Spirito Degli Alberi       (4:11)
+04. Un Angelo Non E               (4:38)(   Читать дальше...   )Жанр: Rock, Latin, PopПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D999C6F0051A0FBDFDF66964A2690B4D5622DC2
+magnet:?xt=urn:btih:779CC0D63630EC4323DA394BD25509A1DB712DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +83,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315827   (510978) от 22.07.2019
+###  Публикация: 1242623   (513986) от 23.08.2018
 
-VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie Dance>
+Levina - Perfect Life (2017) CDS, Single [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Life (3:05)
+ 02. Wildfire (3:10)Жанр: PopПродолжительность: 00:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455C906E1A938FAD58524F481722B52B7F937B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242564   (513984) от 23.08.2018
+
+VA - Barcelona to Mykonos - The Circuit Music Guide (2018) [MP3|320 Kbps] <House, Big Room, Progressive House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1. Walter N. – Dubai Beach (05:02)
-2. Marco Malinverno – Heart Breaker (05:57)
-3. Living Large – Lacetti (04:44)
-4. Junior D – Gold Lounge (05:15)(   Читать дальше...   )Жанр: House, Deep House, Indie DanceПродолжительность: 05:03:48
+01. Las Bibas From Vizcaya - Electrica Salsa (Leo Souza & Macau Remix)
+02. GSP - Trumpet Bitch (Nill Rogger Remix)
+03. Sagi Kariv, Tommer Mizrahi, Sagi Kariv & Tommer Mizrahi, Amannda - Thick Skin (Feat. Amannda)
+04. Issac Escalante, Luis Vazquez, Issac Escalante & Luis Vazquez, Karina K - Washed Away (Feat. Karina K) (Tommy Love Remix)(   Читать дальше...   )Жанр: House, Big Room, Progressive HouseПродолжительность: 03:50:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F6659880C5EA2A6780AFB8DC0D47EFBDDFF6809
+magnet:?xt=urn:btih:3CCE05244C7B747768F2913C041E3AC661F35820
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +139,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315890   (510977) от 22.07.2019
+###  Публикация: 1242656   (513983) от 23.08.2018
 
-Andrea Schroeder - Where The Wild Oceans End (2014) [MP3|320 Kbps] <Pop-Nuar>
+SPC Plugins - ArcSyn 2.1.4 VSTi (x86/x64) [En]
 
->>Pop
->>Зарубежная поп-музыка
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Dead Man’s Eyes
-02. Ghosts Of Berlin
-03. Until The End
-04. Helden(   Читать дальше...   )Жанр: Pop-NuarПродолжительность: 00:40:28
+ArcSyn от SPC Plugins - это виртуальный синтезатор, модулирующий аналоговые машины, который не основан на каком-либо конкретном винтажном оборудовании, но успешно отражает суть этой эпохи.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B333B176880F60CA747EBBF25709F0F5C3FEBF70
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315941   (510976) от 22.07.2019
+###  Публикация: 1242611   (513981) от 23.08.2018
 
-Ракоший Нелч - Книга Боли (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Chris de Burgh - Crusader (1979) Reissue, 1988 [FLAC|Lossless|tracks + .cue] <Pop Rock>
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Блокада (3:58)
- 02. Юные Ангелы (3:45)
- 03. Брест (5:06)
- 04. Где Вы (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:25
+01. Carry On (3:58)
+ 02. I Had The Love In My Eyes (3:30)
+ 03. Something Else Again (3:47)
+ 04. The Girl With April In Her Eyes (4:15)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5940DFCAA37E5DE8042E92A7434A47B71019C1E5
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,27 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315677   (510975) от 22.07.2019
+###  Публикация: 1242568   (513980) от 23.08.2018
 
-Вильям Теккерей | Ярмарка тщеславия (1968) [DJVU]
+VA - Summer Time Vol. 6 - 22 Premium Trax: Chillout, Chillhouse, Downbeat, Lounge (2018) [MP3|320 Kbps] <Chillout, Chillhouse, Downbeat, Lounge>
 
->>Художественная литература
->>Классическая поэзия и проза
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Перед занавесом:
-
-Чувство глубокой грусти охватывает Кукольника, когда он сидит на подмостках и смотрит на Ярмарку, гомонящую вокруг. Здесь едят и пьют без всякой меры, влюбляются и изменяют, кто плачет, а кто радуется; здесь курят, плутуют, дерутся и пляшут под пиликанье скрипки; здесь шатаются буяны и забияки, повесы подмигивают проходящим женщинам, жулье шныряет (   Читать дальше...   )Жанр: История, прозаФормат: DJVU
+01. Airstream - Salida del Sol (Dos Caballeros Mix)
+02. DJ Maretimo, Cafe Americaine - Azur Blue (Jazzy James Junior Cut)
+03. Sean Hayman - Spiral Dynamics (New Way Mix)
+04. Adriatic Grooves - Zoom Zone (Ibiza Flow Mix)(   Читать дальше...   )Жанр: Chillout, Chillhouse, Downbeat, LoungeПродолжительность: 04:10:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E795560B8B8E852AB6AA398B80B3645A8318D16
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,26 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315846   (510974) от 22.07.2019
+###  Публикация: 1242561   (513979) от 23.08.2018
 
-студия Диафильм | Горшок каши (1955) [JPG]
+VA - #1 Club Hits 2018 - Best of Dance, House & EDM Playlist Compilation (2018) [MP3|320 Kbps] <House, Dance, Club, Nu Disco, Funky, Groove>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Сказки немецких писателей.
-Для младшего и среднего школьного возраста.Жанр: Детская проза, СказкаФормат: JPG
+01. Kidney Stone, Alexa - Solo (Peexbak Mix Edit)
+02. A-Void, Fab - Remind Me to Forget (Robyn Master Mix)
+03. Second 2 None - One Kiss (Is All It Takes Edit)
+04. Coleda, Marisa Ingram - Flames (davincii Remix)(   Читать дальше...   )Жанр: House, Dance, Club, Nu Disco, Funky, GrooveПродолжительность: 02:55:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBDEED62ECDF0A9B73D122EB7D925D80D1CBFBF8
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,25 +252,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315819   (510973) от 22.07.2019
+###  Публикация: 1242597   (513978) от 23.08.2018
 
-Aiseesoft HD Video Converter 9.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
+Chris de Burgh - Man on the Line (1984) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. The Ecstasy Of Flight (I Love The Night) (4:01)
+ 02. Sight And Touch (3:14)
+ 03. Taking It To The Top (4:02)
+ 04. The Head And The Heart (4:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242565   (513977) от 23.08.2018
+
+Джейми Оливер | Рождественский ужин с Джейми Оливером (2007) HDTV [H.264/1080p-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Британский шеф-повар Джейми Оливер приготовит настоящий рождественский ужин, главным героем которого станет, конечно же, индейка.Жанр: КулинарияПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242732   (513976) от 23.08.2018
+
+Divine - Jungle Jezebel (Deluxe Edition) (2017) 2хCD, Deluxe Edition [MP3|320 Kbps] <Disco, Hi-NRG>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Shoot Your Shot (6:25)
+02. Jungle Jezebel (4:43)
+03. Native Love (Step By Step) (3:59)
+04. Kick Your Butt (5:25)(   Читать дальше...   )Жанр: Disco, Hi-NRGПродолжительность: 02:24:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242605   (513975) от 23.08.2018
+
+VA - Trance 100 - Summer 2018 (2018) [MP3|320 Kbps] <Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren - Blah Blah Blah (Extended Mix)
+002. Gareth Emery feat. Evan Henzi - Call To Arms (Extended Mix)
+003. Dash Berlin feat. Bo Bruce - Coming Home (STANDERWICK Remix)
+004. Aly & Fila with HALIENE - Paralyzed (A & Z Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 09:34:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241927   (513974) от 23.08.2018
+
+Juicy J - Rubba Band Business (2010) Mixtape, no DJ drops [MP3|320 Kbps] <Gangsta, Thug Rap, Trap>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft HD Video Converter - это мощный конвертер HD видео в популярные форматы. Поддерживает AVI, MPEG, WMV, DivX, Xvid, MP4, 3GP, WMV-HD, MPEG2-HD, DivX-HD, Xvid-HD, MPEG4-HD, H.264-HD(AVCHD) и другие видеоформаты, кодирование и декодирование High-Definition (HD), 1280x720 (720p), 1920x1080 (1080p). Вы сможете извлечь аудио из видео в AAC, AC3, AIFF, AMR, AU, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Intro
+02. Stunna's Do (Billy Wes)
+03. Smokin' And Sippin'
+04. So Much Money(   Читать дальше...   )Жанр: Gangsta, Thug Rap, TrapПродолжительность: 01:13:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F7347AA0AC06AF7498C52C80A1785EEC094E7F6
+magnet:?xt=urn:btih:52930955BE1FE0719118A23D1FDFDA8B88B80C2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,24 +394,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315962   (510972) от 22.07.2019
+###  Публикация: 1242430   (513973) от 23.08.2018
 
-VA - Охота 88 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
+VA - Viva Latina 2018 Vol.2 (2018) [MP3|320 Kbps] <Merengue, Reggae Fusion, Dancehall, Cumbia, Bhangra, Reggaeton, Bachata, Dembow>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_510972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Иоганн Хан - Город на Неве
-02. Берур - Друзья, это радость
-03. Ничего страшного - Come on
-04. Orisha Sound - One Way Trip(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 01:16:06
+CD 01:
+
+01.  Maluma - El Préstamo
+02.  Luis Fonsi & Stefflon Don - Calypso(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:05:56
+
+01.  Luis Fonsi - Échame La Culpa
+02.  Sebastian Yatra - Alguien Robo(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -308,21 +426,50 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315955   (510971) от 22.07.2019
+###  Публикация: 1242329   (513972) от 23.08.2018
 
-Джеффри Клугер | "Аполлон-8". Захватывающая история первого полета к Луне (2019) [FB2]
+Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow's Daydream 04:49
+02. Tracing Rainbows 05:16
+03. Dancing with the Moon 04:08
+04. Our Own Window 03:42(   Читать дальше...   )Жанр: Piano, Neo-Classical, InstrumentalПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995426FC52356363FA07E2E48377808F9537DC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242610   (513971) от 23.08.2018
+
+Экшены - GraphicRiver - Retro Print CS4+ Photoshop Action - 21922357 [ATN, ABR, PAT]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_510971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-В августе 1968 г. НАСА приняло смелое решение: запустить первый обитаемый космический корабль к Луне. Всего год назад три астронавта погибли в пожаре во время испытаний, и с тех пор программа «Аполлон» терпела одну неудачу за другой. Тем временем СССР выигрывал космическую гонку, холодная война становилась все жарче с каждым месяцем, и обещание президента Кеннеди (   Читать дальше...   )Жанр: Зарубежная прикладная, Научно-популярная литература, Научная литература, ПублицистикаФормат: FB2
+Retro Print - превратит ваши фотографии в красочную ретро композицию с элементами печатных оттисков. После завершения работы экшена, конечный результат - полностью редактируемый, хорошо организованные слои / папки, и у вас есть полный контроль над ними, чтобы настроить свою работу по своему усмотрению.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
@@ -334,27 +481,49 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 230830   (510970) от 29.08.2010
+###  Публикация: 1315354   (513970) от 19.07.2019
 
-Сурганова и Оркестр - Чужие как свои (видеоряд) [Rock ] WebRip
+Николай Семёнович Лесков | Повесть о богоугодном дровоколе (2013) [PDF, DJVU]
 
->>Театр и Музыкальное видео
->>Концерты (SD)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Официальный видеоряд к альбому Чужие как свои.
-Это НЕ КОНЦЕРТНАЯ ЗАПИСЬ!
-Некоторые элементы данного видеоряда были использованы при создании компиляции
- Светлана Сурганова и Оркестр - Концерт в БКЗ Октябрьский, СПб (13.11.2009)01. Апрельская
-02. Далеко (слова О.Алексеевой, Е. Костягиной и Светланы Сургановой)
-03. Полет на дельтаплане (музыка Э. Артемьева, слова Н. Зиновьева)
-04. Этот мир (музыка А. Зацепина, слова Л. Дербенева)(   Читать дальше...   )Жанр: VIP-Punk-DecadenceПродолжительность: 00:47:23
+Герои рассказов Н.С. Лескова, вошедших в эту книгу — люди простые и безыскусные, стяжавшие великое смирение. А эта добродетель украшает всех праведников, которых любит Господь (см. Пс. 145, 8), хотя часто они могут казаться окружающим безумцами.
+Для среднего и старшего школьного возраста.Жанр: Религиозное духовно-просветительское издание для детейФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4995E0679BB84961C59B683B29BD8B5CE1BC18BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315310   (513969) от 19.07.2019
+
+Мария Годунова | Фиолетовый змей (1975) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+О людях Афганистана, об обычаях страны.
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -366,25 +535,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 229884   (510961) от 29.08.2010
+###  Публикация: 1315302   (513968) от 19.07.2019
 
-Rattan Sharma - Mantras for Children and Young Adults (2004) [MP3|320 kbps]<Мантры для детей>
+VA - EDM Deejay Compilation (Summer Edition) (2019) [MP3|320 Kbps] <Progressive House, Dance, Big Room, Future House>
 
->>Аудио для детей и родителей
->>Музыка и песни для детей
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Очень необычный диск. Конечно, декламацией индийских священных мантр сейчас уже никого не удивишь. Но вот, что интересно, на этом диске, который с любовью посвящается всем маленьким слушателям - мантры поются с детским хором. Главным вокалом же здесь выступает голос популярного в Индии исполнителя, который наверно уже знаком многим из вас - Rattan Mohan Sharma.
- (   Читать дальше...   )01. Signature Prayer 0:45
-02. Morning Shlokas 12:15
-03. Daytime Shlokas 13:40
-04. Evening Shlokas 8:32(   Читать дальше...   )Жанр: Мантры для детейПродолжительность: 00:49:09
+01. Turbotronic – Automatic (4:00)
+02. FLGTT – Smalltown Boy 2K19Жанр: Progressive House, Dance, Big Room, Future HouseПродолжительность: 02:01:59
 
 ## Скачать торент
 ```bash
@@ -396,28 +562,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 229878   (510959) от 29.08.2010
+###  Публикация: 1315339   (513967) от 19.07.2019
 
-VA - Колисанки (2004) [MP3|320 kbps]<Колыбельные песенки для малышей>
+Thomas Marriott - Romance Language (2018) Origin Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
 
->>Аудио для детей и родителей
->>Музыка и песни для детей
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1. Ой, ходить сон (Ніна Матвієнко) музика: українська народна
-2. Колискова (Ой, спи дитя) (Оксана Савчук) музика: українська народна
-3. Ой, баю мій, бай (Лідія Михайленко) музика: українська народна
-4. Колискова (Ой ну, мале дитя, спати) (Тетяна Школьна) музика: українська народна(   Читать дальше...   )Жанр: Колыбельные песенки для малышейПродолжительность: 00:45:08
+01. Dexter's Tune [3:17]
+02. Forgiveness [4:51]
+03. I Remember Sky [4:35]
+04. Piggyback [4:30](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:09
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:914B1F0BEDDEB06A61F99743D98C796969235928
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -425,54 +591,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 931932   (510950) от 27.08.2015
+###  Публикация: 1315150   (513966) от 19.07.2019
 
-Журнал |Мастерица №8 (2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по разным видам рукоделия. В нём представлены: шитьё, вязание, вышивание крестом и лентами, декупаж, бисероплетение, фриволите, другие рукоделия, обзорные статьи и мастер-классы.Жанр: Рукоделие, Вышивание, ВязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA736E272C52AB7C06B24A71BA94CFC4848A7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931805   (510949) от 27.08.2015
-
-VA - Summer Chill Lounge (50 Selected Chillout Grooves For Love, Sex And Relax) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+VA - Sublime Drum And Bass (2019) [MP3|320 Kbps] <Bass, D&B, Dubstep>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Liam Van Dyke - Cafe Del Mar - Balearic Lounge Remix (4:37)
-02. GreenOrange - Summer Madness (4:22)
-03. Orion - Love Is My Drug - Chillectro Dub (4:47)
-04. Aliki Westwood - Everybody Loves the Sunshine - Nikki Beach Mix (4:18)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:40:33
+001. L 33 - Mafia
+002. Mystix - Treble Nine
+003. Phantom Flake - Neocontrol
+004. Nohzo - 52 Sound(   Читать дальше...   )Жанр: Bass, D&B, DubstepПродолжительность: 07:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:923331CC58D8E09A08D92FC29101FF101CF02B1C
+magnet:?xt=urn:btih:273E279D0347CA882BA05B0DCC540B6D373A6AA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,26 +620,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 931927   (510948) от 27.08.2015
+###  Публикация: 1315332   (513965) от 19.07.2019
 
-Александр Казанцев | Острее шпаги [сборник] (1999) [FB2]
+VA - Ego Night: Original Mix Electro House (2019) [MP3|320 Kbps] <Electro House, Club, Dance>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Героем увлекательного фантастико-приключенческого романа классика отечественной фантастики А.П.Казанцева стал французский математик Пьер Ферма. Ферма сформулировал теорему, впоследствии названную его именем, но не оставил ее доказательств. До сих пор великая теорема Ферма служит маяком для искателей математических истин.
-Издание дополнено рассказами разных лет.Жанр: ФантастикаФормат: FB2
+001. Loja Do Cacao - Na Mesa (Gallica Mix)
+002. Six To Six - We Need A Sign (Radio Mix)
+003. Nuvex - U & Me (Radio Edit)
+004. Alex Plug - Acid Memories(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 09:01:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5440D328177C868C29D7B7F810FEEAD9D7233600
+magnet:?xt=urn:btih:D98B203FD0CE50811CFDB5AE80FF57C806201B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,27 +649,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 931518   (510947) от 27.08.2015
+###  Публикация: 1315312   (513964) от 19.07.2019
 
-Борис Никитин | Роковые годы (1937) [FB2, RTF]
+Шарон Крич | Хаос – это нормально (2019) [FB2]
 
->>Научная и техническая литература
->>Историческая литература
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Войны всегда начинают политики, и именно политики их заканчивают.
-В чем причина победы большевиков и поражения Белого движения? В том, что с одной стороны были политики, а с другой стороны политиков не было. Были честные офицеры. Патриоты. Но не политики.
-Борис Владимирович Никитин, мемуары которого Вы читаете, был человеком весьма осведомленным. В 1917 году он был (   Читать дальше...   )Жанр: Мемуары, ИсторияФормат: FB2, RTF
+Учитель английского дал на каникулы ужасно скучные задания: ежедневно вести дневник и читать «Одиссею»! Поэтому тринадцатилетняя Мэри Лу и подумать не могла, что этим летом произойдёт хоть что-то интересное… Но приехавший из другого штата кузен перевернул и так всегда ходящий ходуном дом семьи Финни с ног на голову!
+
+«Хаос – это нормально» – летний дневник Мэри Лу (   Читать дальше...   )Жанр: Детская прозаПеревод: Татьяна Бушуева, Александр БушуевФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FB5074C4726E722157A63AD6FE15E85377BB562
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,25 +677,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 931705   (510946) от 27.08.2015
+###  Публикация: 930854   (513963) от 24.08.2015
 
-В. Гауф | Корабль - призрак (1912) [PDF, DJVU]
+Обои - Настроения 2 [JPG]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Сказка «Корабль-призрак» (или «История о корабле-призраке», или «Рассказ о корабле привидений») была написана Вильгельмом Гауфом в 1825 году. Все свои сказки Гауф разделил на три цикла, один из которых пронизан восточными мотивами, присутствием очарования знаменитых сказок «Тысяча и одной ночи». «Корабль-призрак» включен в цикл «Караван». Восточные краски повествования (   Читать дальше...   )Жанр: Детская иллюстрированная книга XX века, сказка, раритетФормат: PDF, DJVU
+Обои на тему настроенияФормат: JPGРазрешение файлов: 1024x768 - 2560x1920
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7E00E015B53CFEC4CD52CB5E179D6E05520C957
+magnet:?xt=urn:btih:ED4AC48F706E0DEBCAD7BECF10F27EEDC4671EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,156 +703,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 931872   (510945) от 27.08.2015
+###  Публикация: 929003   (513962) от 24.08.2015
 
-Александр Курляндский | Спокойной ночи, Кеша (1999) [PDF]
+Обои - Рендеринг [JPG]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В книге собраны произведения А.Курляндского для детей.
-Забавные приключения попугая Кеши, яркие картинки понравятся и детям, и взрослым.Жанр: Детская прозаФормат: PDF
+Обои на тему рендерингаФормат: JPGРазрешение файлов: 1600x1200 - 2560x1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86A076A1B07D3A0A700D32B54C17B5643C3042C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931648   (510944) от 27.08.2015
-
-Джеймс Хедли Чейз | Схватить тигра за хвост (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убита Фей Карсон, девушка по вызову. Под подозрением полиции три фигуры. Кен Холланд, последний клиент Фей, удрал, не вызвав полицию. Ее бывший дружок Джонни Дорман, психически неуравновешенный парень, грозил перерезать девице горло. Морис Ярд, партнер по танцам, бросил мисс Карсон, женился на ее подруге и мог опасаться мести.Жанр: ДетективПродолжительность: 08:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7ABED636C8130B7F1C4F52894E69D720EF3EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931680   (510943) от 27.08.2015
-
-Restore Point Creator 3.2 Build 15 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Restore Point Creator бесплатная программа для упрощения создания точек восстановления системы. Точка восстановления - это копия реестра и всех критически важных файлов на какой-то момент времени. Используя программу можно больше не ходить через десяток окон и меню windows, а просто закрепить ярлык программы в удобном месте и создавать точки восстановления двумя (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E20CAD292CAB60F4D91CC76B0EC7529C932E875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931781   (510942) от 27.08.2015
-
-Журнал | Автомир [Россия] №35-36 (август 2015) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510942.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8698DDB64A26D73AD6E0F8B0A18D1C7A4D9BE057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931783   (510941) от 27.08.2015
-
-Журнал | Автомир. Тест-драйв №18 (август 2015) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510941.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тест-Драйв» — это современный журнал большого формата, с новым взглядом на автомобильную тему. Главное преимущество издания — большое количество тестов, а также гаджеты, светская хроника, путешествия, интервью и многое другое.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89161D72AE273F72E4098C4091AECC159F4211A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931842   (510940) от 27.08.2015
-
-Календарь | Современная усадьба. "Обезьяны" на 2016 год (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перекидной календарь на 2016 год является специальным выпуском газеты "Современная усадьба".Жанр: календариФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABC721DA11AEA711387D68CBD820C0D6A8741BE
+magnet:?xt=urn:btih:331F1C04F7F669E0B95BE7B9A77E3D28C3A41125
 ```
 
 https://mybot314.ru/tekegram_catalog/

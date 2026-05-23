@@ -1,3 +1,191 @@
+###  Публикация: 44739   (1012307) от 06.06.2021
+
+Владимир Высоцкий в Останкино (Монолог, Последний концерт) (22.01.1980) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эта запись была сделана для телепередачи "Кинопанорама" 22 января 1980 года. Но при жизни Владимира Семеновича она так и не вышла в эфир. Позднее запись вышла под названиями "Монолог" (реж. Ксения Маринина) и "Последний концерт" (совершенно неоправданное название, с целью прибыли) как якобы полные версии. Но действительно полная версия, (   Читать дальше...   )01. Попурри из песен: Песня о друге. Здесь вам не равнина. Прощание с горами
+02. Мы вращаем Землю
+03. Почему аборигены съели Кука
+04. Я не люблю(   Читать дальше...   )Жанр: Музыка, Бардовская песняПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C217433C6B7C9C22BB9A789980D657C0336E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475315   (1011947) от 09.06.2021
+
+The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Битлы исполняют песню на концерте.
+Клип из фильма A Hard Day's Night полностью колоризован - каждый кадр в отдельности.
+Предыдущий клип: https://nnmclub.to/forum/viewtopic.php?p=11164480#torrentПроизводство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB11F3F2AF4B5BC85559D684B183AE99C133E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475847   (1011274) от 13.06.2021
+
+Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Raprave, Electronicmusic, Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Little Big - Everybody (Little Big Are Back)Производство: Warner Music RussiaЖанр: Rave, Raprave, Electronicmusic, PopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8616DE83D26378B4923774FBF5FBE9C99CCEC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476960   (1011265) от 13.06.2021
+
+Квартирник НТВ у Маргулиса. Группа Нейромонах Феофан (12.06.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В гостях у Евгения Маргулиса — одна из самых необычных групп отечественной эстрады. Участникам удалось совместить несовместимые вещи — drum ’n’ bass и русско-народные мотивы. Музыкальная троица, состоящая из Нейромонаха Феофана, личность которого долгое время находилась в тени, Никодима и Медведя вот уже более 10 лет будоражит всех своими композициями.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93997FDC496CCD414C74C133C682FE804C1FA3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476303   (1011263) от 13.06.2021
+
+Bobby McFerrin - Spontaneous Inventions (1986) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта в Лос-Анджелесе 28 февраля 1986 года.
+The Aquarius Theatre, Hollywood.Производство: High Five productionЖанр: Jazz, Voice jazz, IprovisationРежиссер: Bud SchaetzleАктеры: Bobby McFerrinПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2BC17CF01C4324C5E1220EB2D5CD1DCB83986B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477176   (1011097) от 14.06.2021
+
+One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Финские хард рокеры One Desire выпустили 11 июня свою новую концертную работу "One Night Only - Live In Helsinki" в вариантах CD/DVD, Blu-ray, LP. Это первый и долгожданный концертный альбом и видео группы (образовалась в 2012, а в 2017 выпустили свой дебютный альбом с одноименным названием). В марте 2020 года группа отправилась в путь с оркестром Night (   Читать дальше...   )Производство: Европа, Frontiers, Nuclear Blast RecordsЖанр: Концертная программа, рокАктеры: Андре Линман, Джимми Вестерлунд, Осси Сивула, Йонас КухлбергПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: АнглийскиеПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6FB1F8C0DF7DF4C9352DA9E03507827922B125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477253   (1011086) от 14.06.2021
+
+Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRip [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Суперзвезда блюз-роковой сцены Джо Бонамасса решил отыграть свою новую музыку в разгар всемирного закрытия индустрии развлечений. Это привело к невероятному живому концерту на сцене легендарной Ryman Auditorium в Нэшвилле, штат Теннесси. Концертник включает песни из его последнего студийного альбома Royal Tea, вдохновленного его британскими гитарными героями Джеффом (   Читать дальше...   )Производство: США, J&R AdventuresЖанр: Концертная программа, блюз, рокАктеры: Джо Бонамасса, Джефф ДэниелсПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDE17CE0CCCA6F9E37335E0E5E9DE39239EDF97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477185   (1011083) от 14.06.2021
 
 Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.264/1080p]
@@ -6,7 +194,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +273,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +300,7 @@ Toto: С небольшой помощью моих друзей / Toto: With A 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +430,7 @@ Nazareth - Live from Classic T Stage (2005) DVDRip [H264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +459,7 @@ Uriah Heep - The Legend Continues (1999) DVDRip [H264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -360,7 +548,7 @@ Renaissance - 50th Anniversary - Ashes Are Burning: An Anthology - Live In Conce
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -386,7 +574,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -415,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -444,7 +632,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -473,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,196 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27A8C8F371EA5C26831DB40747AC12B3A9FC3BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 18264   (1004399) от 01.01.2020
-
-Bond. Classified (DVD)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта квартета "BOND" 20 сентября 2000 года в The Royal Albert Hall (Англия). Оригинальные аранжировки классических и современных произведений.
-"Bond" - струнный квартет, состоящий из четырех молодых и чрезвычайно одаренных девушек:01. Quixote
-02. Duel
-03. Dallas
-04. Oceanic(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA3DF6CBA2DC4A03C6D016D32E67410FEE959F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326027   (1003662) от 04.01.2020
-
-Холопы (1988) SATRip (Малый театр)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003662.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1987 году режиссер Борис Львов-Анохин поставил в Малом театре забытую пьесу Петра Гнедича «Холопы». Роль княжны Плавутиной — Плавунцовой стала последней ролью Елены Николаевны Гоголевой.
-Четыре часа актриса почти постоянно находилась на сцене, сидя в глубоком кресле, но на поклонах обязательно поднималась, чтобы поприветствовать и поблагодарить партнеров. Совсем (   Читать дальше...   )Жанр: СпектакльРежиссер: Львов-Анохин Б., Семаков В.В ролях: Гоголева Е., Маркушев С., Глушенко Е., Бочкарев В., Карнович-Валуа Г., Марцевич Э., Буканова Г., Коршунов А., Светлова В. , Панкова Т., Щербинина Л. (Агничка), Бурыгина Ю., Анненков Н., Мартьянов О., Кочетков А., Торопов А., Нифонтова Р. и другиеФормат: AVIПродолжительность: 3:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB56327EB30996A8C21C47E96130FC9D1C9FA823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 262511   (1003638) от 04.01.2020
-
-Квартет И - Ля Комедия или мы будем развлекать вас всеми средствами, которые хороши! (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы держите в руках уникальную запись спектакля "Ля Комедия, или...", сделанную полулегально одним из наших поклонников с балкона ДК им. Зуева в день последнего исполнения спектакля. Мы неодкратно фиксировали этот спектакль на видопленку, но всегда это были съемки "бытового" "домашнего" качества: профессиональной съемки "Ля Комедия" (   Читать дальше...   )Жанр: КомедияРежиссер: Сергей ПетрейковАктеры: Квартет И: Леонид Барац, Александр Демидов, Ростислав Хаит, Камиль Ларин.Продолжительность: 02:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F912B4B654DF2F64394CF94953F3A573BFDF6A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350079   (1003423) от 05.01.2020
-
-Дискотека 80-х от Авторадио (2019) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главное музыкальное событие года - Дискотека 80-х от Авторадио! С каждым годом фестиваль Авторадио становится все более масштабным. Сегодня Дискотека 80-х - не просто праздник поколения, возвращающий зрителей во времена их юности, а современное, неординарное и динамичное супершоу, привлекающее зрителей самых разных возрастов. Мы имели возможность увидеть это фантастическое, (   Читать дальше...   )Производство: РоссияЖанр: DiscoРежиссер: 1 каналАктеры: Thomas Anders, Bad Boys Blue, C.C. Catch, Sandra и т.д.Продолжительность: 01:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F2ED6F34D1753BFE694889FC301EADFC149E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 77539   (1003392) от 05.01.2020
-
-Квартет И - Ля Комедия - 2, или совсем другая история (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произведение в 2-х частях для театра с оркестром по мотивам комедии Эжена Лабиша "Милейший Селимар"Жанр: Театральная КомедияРежиссер: Эдуард РадзюкевичАктеры: Камиль Ларин, Александр Демидов, Леонид Барац, Эмилия Савельева, Ростислав Хаит, Эмилия Савельева, Анна Касаткина, Эдуард Радзюкевич, Александр ЖигалкинПродолжительность: 02:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83FEF1E1C234FA977B3AF035EF543D1ABBFBB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350652   (1003142) от 06.01.2020
-
-Легенды Ретро FM. Полная версия (2019) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003142.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 декабря 2019 года в Москве во дворце спорта Мегаспорт состоялся юбилейный 15 фестиваль легенды ретро FM.Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829E1FBB74509AE8BEB0146483F22243BE335881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350251   (1003136) от 06.01.2020
-
-Дискотека 80-х от Авторадио (2019) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главное музыкальное событие года - Дискотека 80-х от Авторадио! С каждым годом фестиваль Авторадио становится все более масштабным. Сегодня Дискотека 80-х - не просто праздник поколения, возвращающий зрителей во времена их юности, а современное, неординарное и динамичное супершоу, привлекающее зрителей самых разных возрастов. Мы имели возможность увидеть это фантастическое, (   Читать дальше...   )01. Thomas Anders - «You`re My Heart You`re My Soul»
-02. Thomas Anders - «Brother Louie»
-03. Thomas Anders - «Cheri Cheri Lady»
-04. Руки Вверх - «Он тебя целует»(   Читать дальше...   )Производство: РоссияЖанр: DiscoРежиссер: 1 каналАктеры: Thomas Anders, Bad Boys Blue, C.C. Catch, Sandra, Руки Вверх, Владимир Маркин, Pupo, Londonbeat, Здравствуй, песня, Дюна и др.Продолжительность: 01:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0814CBADB73185ABA9CC60BD8B5BA3558C40904B
 ```
 
 https://mybot314.ru/tekegram_catalog/

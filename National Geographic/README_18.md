@@ -1,3 +1,29 @@
+###  Публикация: 743066   (631724) от 15.06.2015
+
+NG. Секреты Шамбалы. В поисках священных пещер / Secrets of Shangri-La. Quest for Sacred Caves (2009) HDTVRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Высоко в Гималаях, в самом высокогорном королевстве мира, исследователи нашли тысячи таинственных пещер. Темные проходы манят взглянуть на давно затерянный мир. Команда альпинистов и ученых впервые спустятся в них. Внутри они найдут не большие города, высеченные из камня, и увидят поразительные сокровища. Находки разожгли древнюю вражду между двумя религиями и посеяли (   Читать дальше...   )Жанр: Документальный, научно-познавательный, историяПеревод: Одноголосый закадровый (профессиональный, Первый ТВЧ)Продолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF18D4BEFF02D7A036D78519976FFE636EA8451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229246   (629964) от 04.06.2018
 
 NGW: Дикая Турция / Turkey's Harsh Paradise (2015) HDTV [H.264/1080i-LQ]
@@ -6,7 +32,7 @@ NGW: Дикая Турция / Turkey's Harsh Paradise (2015) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NGW: Гигантские плотоядные летучие мыши / Giant C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG. Дикая Канада: У кромки льда / Wild Canada. Ice Edge (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ NG. Тайны древности. Секретный код соборов / An
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +137,7 @@ NG. Войны насекомых / Insect Wars (2005) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +189,7 @@ NGW: Крупные рыбы Зэба: нашествие акул-молото�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +215,7 @@ NGW: Империя гризли / Grizzly Empire (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +241,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +267,7 @@ NG. Шершни из ада / Hornets from hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +293,7 @@ NG: С точки зрения науки. Тайна возникновения
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +321,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +347,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +373,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +399,7 @@ NGW: Дикая природа Ирана / Iran's Wild Side (2018) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +425,7 @@ NG. Осушить Титаник / Drain the Titanic (2015) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +451,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +477,7 @@ NGW: Гризли Аляски бросают вызов. Арктические
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +503,7 @@ NGW: Акулотрас / Sharkatraz (2016) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +529,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +555,7 @@ NGW: Дикая природа: Остров Воскресения / Wild Life:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +581,7 @@ NG. Бушующие миры. Космический ветер / Storm Worlds.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +635,7 @@ NG. Осушить Бермудский треугольник / Drain the Bermu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -635,7 +661,7 @@ NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,32 +672,6 @@ NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EAB8709AC11C5C5F6F2F12C5D5409924548CBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036012   (620928) от 20.07.2016
-
-NG: Когда сталкиваются континенты / When Continents Collide (2010) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два континента. Разные и незнакомые миры. На каждом из них обитали странные и экзотические существа. За миллионы лет геологические силы образовали перемычку между ними. Там, где сейчас походит Панамский канал, раньше плескалось море. Северная и Южная Америки столкнулись. Сегодня ученые изучают это столкновение, собирая обломки и изучая следы. Доисторические хищники (   Читать дальше...   )Телекомпания: New Pony Productions, National Geographic TelevisionЖанр: ДокументальныйРежиссер: Рон БоуманПеревод: Одноголосый закадровый профессиональныйПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DEE6CF55655BA65DC61A1729F2A4F3178F15051
 ```
 
 https://mybot314.ru/tekegram_catalog/

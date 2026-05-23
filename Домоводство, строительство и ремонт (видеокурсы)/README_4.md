@@ -1,3 +1,109 @@
+###  Публикация: 1166975   (418899) от 19.09.2017
+
+Михаил Теремков | Угловой диван своими руками (2017) WEB-DLRip [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представляем вашему вниманию новый видеокурс Михаила Теремкова по изготовлению углового дивана своими руками в домашних условиях.
+Себестоимость такого дивана из качественной «экокожи» составляет 16500 рублей. Используя ткань подешевле, можно добиться снижения себестоимости до 15000 рублей.Жанр: Мебель, проектирование и изготовлениеПродолжительность: 03:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA0298F5E2C32A5752E66328EC9DE7556FF4D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167391   (416822) от 20.09.2017
+
+Сергей Лапко | Колодец - своими руками (2016) WEB-DLRip [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В курсе описана технология копки колодца c постепенным погружением бетонной опалубки. Существенное отличие описанного способа от стандартных методик заключается в том, что для колодца не используются недешёвые промышленные бетонные кольца.
+Эта технология позволяет получить бесшовную бетонную трубу, что исключает любые протечки верховых вод и предохраняет колодец (   Читать дальше...   )Жанр: строительствоПродолжительность: 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D202B218B6ECD9C3DC83B97D23F16B62145747AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568772   (393675) от 01.11.2012
+
+Rick Arnold | Строим сарай с Риком Арнольдом / Build a Shed with Rick Arnold [2009] DVDRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рик Арнольд - редактор журнала Fine Homebuilding расскажет как построить маленький сарайчик начиная от выбора фундамента заканчивая укладкой битумной черепицы. Используется традиционная каркасная конструкция с обшивкой OSB-листами, а сверху либо цементным сайдингом либо дранкой.Жанр: СтроительствоПродолжительность: 1:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A472A37EE8EB0D427F31B54340D436710160587E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546415   (377980) от 11.10.2020
+
+Eltray.com | Зануление и заземление [2011] PCRec
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что такое "Зануление и заземление", где и как устанавливаются эти элементы электрической сети, каким требованиям они должны соответствовать - всё это я Вам расскажу и покажу - если не знаете, или напомню - если подзабылиЖанр: Обучающее видеоПродолжительность: 00:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EB48F4E6F00E8E9E7346DF60228DA726657B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948959   (377031) от 23.10.2015
 
 Гавриил и Татьяна Ждановы | Здравый хлеб (2013) CamRip
@@ -6,7 +112,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +168,7 @@ Udemy | Создание и дизайн современного дома в Bl
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +222,7 @@ Bravo Chef! Рыба и морепродукты [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +277,7 @@ Bravo Chef! Выпечка и десерты [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +303,7 @@ Bravo Chef! Вегетарианская кухня [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +329,7 @@ Bravo Chef! Итальянская кухня [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +409,7 @@ Skillbox | ArchiCAD для дизайнеров интерьера (2020) PCRec
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -358,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -387,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -491,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -544,7 +650,7 @@ Norman Pirollo | Kumiko Course (2019) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -585,113 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9A71ED77AABF9E7DBD6CC850EFEDFCF4B8B65F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629353   (254775) от 26.04.2023
-
-Easy.Dom, Ольга Вайлапова | Практический курс. Сам себе организатор пространства (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для Хозяек:чтобы использовать каждый полезный сантиметр пространства, сделать дом удобным и тратить минимум времени на поддержание порядка.
-Для дизайнеров:чтобы использовать каждый полезный сантиметр пространства, сделать дом удобным и тратить минимум времени на поддержание порядка.
-И для всех, кто хочет:
-Избавиться от ненужных вещей(   Читать дальше...   )Производство: Easy.DomЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 13:52:09Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661A71059FAEA7519DD2E25C7924FA15CA2B0FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836184   (252437) от 09.11.2025
-
-Андрей Стройхак | Шкаф - купе за выходные (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252437.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе, совершенно подробнейшим образом, шаг за шагом я проведу вас через все сложности от идеи до финальной сборки двухдверного шкафа-купе. Расскажу все секреты и просто на пальцах объясню все основы построения как шкафа купе так в принципе и любой корпусной мебели. Вы соберете либо мой вариант очень простого, но в то же время подходящего практически всем (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:23:02Реклама: наложение на видео и в презентации (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6524EE343EA7BBD60F41E127FB0A717E078E4F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836288   (252432) от 09.11.2025
-
-Андрей Павлов | Кухонный гарнитур своими руками (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается практический онлайн-курс по изготовлению корпусной мебели: базовой версии современного кухонного гарнитура от А до Я.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D645CEFAACFA0347B6916B3B6E8BCFC2F7608AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836022   (252331) от 08.11.2025
-
-ОВКЭС, Александр Паршаков, Алексей Василенко, Дмитрий Куликов |Эксперт Электрики (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс "Эксперт Электрики" представляет собой совокупность самых свежих данных, объединяющую множество тем, необходимых для освоения профессионалом в области электрики. Обучение охватывает все от электробезопасности до проектирования щита, а также от УЗО и ДСУП до модульно-измерительных приборов.Производство: ОВКЭСЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 15:36:53Реклама: наложение на видео и в презентации (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD722A59946FF4AD7BC1F1B908B7076078232E8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

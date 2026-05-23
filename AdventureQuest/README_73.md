@@ -1,3 +1,116 @@
+###  Публикация: 472660   (84202) от 24.03.2012
+
+Особенности национального развода [Ru] (P) 2007
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Светлая поросль пролетариата выродилась в гнусное племя «городских шакалов», которые с азартом предаются новой забаве – «разводу». Стоит добропорядочному гражданину забрести с центральной улицы в темноту промышленного района, как тут же отыщется группа товарищей в спортивных костюмах, интересующихся временем суток. Культурное общение заканчивается не менее культурным обменом – добровольной передачей часов и наличных денег. Только наш главный герой не из тех, кто безропотно стерпит несправедливость!(   Читать дальше...   )Тип издания: ПираткаЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3ADE9FF419AA44092280EA556F3B45B3169F1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471714   (83808) от 22.03.2012
+
+Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, 2011 год. Кому есть дело до погибших бездомных? Неужели никому, даже если их убивают какие-то психи? Никому… Кроме Генри Уайта, интеллигентного юноши, наследника одного из самых крупных состояний в Америке. Однажды, помогая нищим, прозябающим на заброшенной станции метро, молодой человек попал в серьезный переплет и угодил в плен к бродягам, одержимым идеями испанской инквизиции. Интересно, не тех ли самых убийц отыскал Генри?...
+
+ Знаменитая студия Pendulo, уже почти два десятилетия талантливо развлекающая публику юмористическими квестами, на этот раз выступила в новом амплуа, создав мрачный психологический триллер с мистическим уклоном «Yesterday: Печать Люцифера». Вы возьмете под контроль стразу трех персонажей и вместе с ними побываете в Америке, Европе, Азии, где, конечно, вам придется немало поломать голову над хитроумными загадками. Алхимия, сатанизм, Ватикан, Y-образные шрамы — какое уж тут веселье: все необычайно мрачно, но традиционно интригующе.
+
+ Будьте готовы к неожиданностям. Взгляните своим (   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471694   (83776) от 22.03.2012
+
+Back to the Future: The Game Episode 1: It’s About Time / Назад в будущее: Эпизод 1: Время пришло [Ru] (L) 2011
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет этой игры продолжает историю, начатую в одноименной фантастической трилогии Роберта Земекиса.
+Добро пожаловать назад в будущее! Точнее, обратно на парковку супермаркета «Две сосны» в Хилл-Вэлли, где Марти МакФлай и безумный Док снова проводят эксперимент с машиной времени, заканчивающийся катастрофой. В результате Док пропадает в прошлом, и Марти вынужден теперь отправиться спасать его от неминуемой гибели в далекий 1931 год, эпоху жестоких гангстеров и сухого закона.Тип издания: ЛицензияЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE7DA9E7448DA6777854B8AF59ED929602DE054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471241   (83585) от 21.03.2012
+
+Yesterday / Yesterday: Печать Люцифера [Ru] (RePack/1.0.0.1) 2012| R.G. ReCoding
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, 2011 год. Кому есть дело до погибших бездомных? Неужели никому, даже если их убивают какие-то психи? Никому… Кроме Генри Уайта, интеллигентного юноши, наследника одного из самых крупных состояний в Америке. Однажды, помогая нищим, прозябающим на заброшенной станции метро, молодой человек попал в серьезный переплет и угодил в плен к бродягам, одержимым идеями испанской инквизиции. Интересно, не тех ли самых убийц отыскал Генри?...
+
+ Знаменитая студия Pendulo, уже почти два десятилетия талантливо развлекающая публику юмористическими квестами, на этот раз выступила в новом амплуа, создав мрачный психологический триллер с мистическим уклоном «Yesterday: Печать Люцифера». Вы возьмете под контроль стразу трех персонажей и вместе с ними побываете в Америке, Европе, Азии, где, конечно, вам придется немало поломать голову над хитроумными загадками. Алхимия, сатанизм, Ватикан, Y-образные шрамы — какое уж тут веселье: все необычайно мрачно, но традиционно интригующе.
+
+ Будьте готовы к неожиданностям. Взгляните своим (   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: русскийЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90C643B5EBA751079661B68A691679C72E0B016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471563   (83561) от 21.03.2012
 
 Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
@@ -6,7 +119,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -37,7 +150,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +177,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -95,7 +208,7 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -121,7 +234,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -148,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -176,7 +289,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -202,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -229,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -255,7 +368,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -284,7 +397,7 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -310,7 +423,7 @@ Leafing Home (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -336,7 +449,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -362,7 +475,7 @@ Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -388,7 +501,7 @@ Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -414,7 +527,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -440,7 +553,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -466,7 +579,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -492,7 +605,7 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -518,7 +631,7 @@ The Bunker 69 (2019) [Ru/En] (1.0/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -544,7 +657,7 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,7 +683,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,110 +694,6 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A804BDCD072961732C1798DBD895A8E64EE92803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573806   (63670) от 08.03.2024
-
-IMMORTALITY (2022) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивный хоррор, рассказывающий леденящую душу историю про девушку по имени Мариса Марсель. Она всегда стремилась стать известной актрисой. Для достижения своей мечты девушка прикладывала все усилия и проходила через самые нелепые роли. Три фильма с ее участием и вовсе не попали на экраны. Однако вскоре героиня бесследно исчезает.Тип издания: LicenseРазработчик: Half MermaidЖанр: Приключение, Симулятор, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Турецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Турецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDBE02A3E2C4EDF43B2C8E0A346466B8EAC1E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705468   (63654) от 08.03.2024
-
-Stellar Ghosts Settlers (2024) [En] (1.0.220) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stellar Ghosts Settlers - это научно-фантастический шутер от третьего лица, который придерживается основ и погружает вас в мир, полный оригинальной и мощной дикой природы. Вы - часть группы поселенцев, которые решили уйти от ига коррумпированного галактического правительства. Поселенцы решили основать свою первую колонию на недавно открытой и необитаемой планете (   Читать дальше...   )Тип издания: RepackРазработчик: PROTOFACTOR, IncЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C4CDCCB74D285F79B27A2E2B94F3CC6117AC2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706698   (63023) от 14.03.2024
-
-Zoonomaly (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoonomaly - оригинальный хоррор от первого лица, где вы окажетесь в весьма необычном зоопарке. Дело в том, что вместо животных здесь обитают кошмарные существа, которые не прочь полакомиться вами, искателем аномалий. Вы прибыли на место по зову местного начальника, чтобы отыскать причину заражения столь обширной территории монстрами. Ну что, за работу?Тип издания: RepackРазработчик: LIGHTS ARE OFF LLCЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E3D571FB82DBD046294EB67CEB972A16ADE491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706942   (63020) от 14.03.2024
-
-YOKO (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63020.jpg" />
-</div>
-
-
-###  Подробнее
-
-"YOKO" предлагает уникальный паранормальный опыт. Как новичок в таинственном доме, Йоко оказывается погруженной в путешествие с привидениями, полное интригующих загадок. Исследуйте укромные уголки Сайкоминами, расположенного у подножия величественной горы Фудзи, и раскройте темные тайны, которыми пропитан этот сонный городок. Обретя свой новый дом, будьте (   Читать дальше...   )Тип издания: RepackРазработчик: Kyioshi SoftwaresЖанр: Экшены, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE94EB460429AA8E57B40EE2E651ECE4D97B63FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1521685   (734412) от 02.02.2022
+
+Песнь островов / Song of the Islands (1942) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Джефф Харпер со своим напарником Расти плывут на райский гавайский остров Ами-Они, чтобы от имени своего отца поторговаться с местным землевладельцем Деннисом О'Брайеном по поводу покупки участка земли. Однако Джефф влюбляется в дочь О'Брайена Айлин и совершенно забывает о своей миссии. И тогда отцу Джеффа приходиться отправиться на остров, чтобы остудить романтический (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Уолтер ЛэнгАктеры: Бетти Грэйбл, Виктор Мэтьюр, Джек Оуки, Томас Митчелл, Джордж Барбье, Билли Гилберт, Хило Хэтти, Гарри Оуэнс, Лиллиэн Портер, Хэл К. ДоусонПеревод: Одноголосый любительский, Владислав ДаниловСубтитры: РусскиеПродолжительность: 01:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66A3CBAE622DEFA37F9322776A91A912E959920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138172   (734374) от 02.02.2022
+
+Ночь / La Notte / La Nuit / The Night (1961) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть «Трилогии отчуждения» Микеланджело Антониони.
+Писатель — Джованни, его супруга — Лидия… Потемки творческого кризиса… Закат чувств… Сумерки привычек… Больница, близкий друг, погружающийся в «ночь»… Бессильные поиски просвета: тьма воспоминаний, ночной ресторан, богатая ночная вечеринка… Юная Валентина со своей маленькой «ночью» в душе… Утренний «ливень» (   Читать дальше...   )Производство: Франция, ИталияЖанр: ДрамаРежиссер: Микеланджело АнтониониАктеры: Марчелло Мастроянни, Жанна Моро, Моника Витти, Бернхард Викки, Рози Маццакурати, Maria Pia Luzi, Гуидо Аймоне Марсан, Витторио Бертолини, Винченцо Корбелла, Уго Фортунати ...Перевод: Двухголосый закадровыйСубтитры: НетПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52E7F7C420C93EFDBE31F0E44ECD7164B74BDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379934   (733917) от 03.02.2022
+
+Приключение / L'Avventura / The Adventure (1960) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм открывает «Трилогию отчуждения» Микеланджело Антониони.
+Во время круиза богатая и красивая женщина Анна таинственным образом исчезает на необитаемом острове, поссорившись со своим любовником Сандро, что заставляет его и ее подругу Клаудию отправиться на поиски. Не ясно, покончила ли эта сумасбродная, таинственная женщина с собой или уплыла куда-нибудь (   Читать дальше...   )Производство: Италия, ФранцияЖанр: драма, детективРежиссер: Микеланджело АнтониониАктеры: Габриэле Ферцетти, Моника Витти, Леа Массари, Доминик Бланшар, Ренцо Риччи, Джеймс Аддамс, Дороти Де Полиоло, Лелио Луттацци, Джованни Петруччи, Эсмеральда РусполиПеревод: Многоголосый закадровыйПродолжительность: 02:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187E413F4922E88B39FD98F1F2C688D13FC3867F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392897   (732865) от 01.08.2020
+
+Я умирал тысячу раз / I Died a Thousand Times (1955) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уже немолодой грабитель Рой "Безумный пес" Эрл помилован после 8 лет тюрьмы. Выйдя из тюрьмы, Рой, по просьбе своего криминального босса Бига Мака, соглашается совершить еще одно ограбление, прежде чем уйти в отставку. Его цель - роскошный отель на горном курорте. В команду грабителей Роя Эрла входят Бэйб Коссак, Ред и танцовщица Мари. Мари влюбляется в (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Триллер, Драма, Криминал, Фильм-нуарРежиссер: Стюарт ХейслерАктеры: Джек Пэланс, Шелли Уинтерс, Лори Нельсон, Ли Марвин, Педро Гонзалез Гонзалез, Лон Чейни мл., Эрл Холлиман, Перри Лопес, Ричард Давалос, Ховард Ст. ДжонПеревод: Авторский, Алексей БагичевСубтитры: ОтсутствуютПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6A67C8BFD6A4ABD9B7AE6A132A703D54EEF513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392827   (732860) от 01.08.2020
 
 Бездомный пес / Nora inu / Stray Dog (1949) BDRip [H.264]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,112 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF2A773C262469A16F3EE173CD213396C54C52D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524115   (726489) от 13.02.2022
-
-Майор Данди / Major Dundee (1964) BDRip [H.264] [Director's Cut]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашный офицер ведет разношерстный отряд кавалеристов через мексиканскую границу, преследуя индейцев племени апачи, чтобы спасти трех похищенных белых детей и отомстить за резню, устроенную этими индейцами.Производство: США / Jerry Bresler ProductionsЖанр: Вестерн, БоевикРежиссер: Сэм ПекинпаАктеры: Чарлтон Хестон, Ричард Харрис, Джим Хаттон, Джеймс Коберн, Майкл Андерсон мл., Зента Бергер, Марио Адорф, Брок Питерс, Уоррен Оутс, Бен ДжонсонПеревод: Многоголосый профессиональный, Первый каналСубтитры: АнглийскиеПродолжительность: 02:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274FDF5BDD456BE5A9CC1A529FC533904DBCE6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787797   (726317) от 25.05.2014
-
-Жил-был полицейский / Il tait une fois un flic... (1971) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комиссар Кампана (по легенде — брат недавно убитого мафиози) отправляется в Ниццу со спецзаданием — найти и обезвредить боссов наркокартеля. Кампана — мрачный крутой мужик, привыкший решать все вопросы кулаком и пистолетом, не любящий женщин и детей, мешающих работе.
-
-Однако на этот раз руководство решило осложнить ему жизнь — вместе со своей напарницей, очаровательной (   Читать дальше...   )Жанр: Комедия, КриминалРежиссер: Жорж ЛотнерАктеры: Мишель Константен / Michel Constantin, Микаэль Лонсдаль / Michael Lonsdale, Даниэль Ивернель / Daniel Ivernel, Мирей Дарк / Mireille Darc, Венантино Венантини / Venantino Venantini, Робер Дальбан / Robert DalbanПеревод: Многоголосый закадровыйПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753EEBB91C0F1076AD1D5CA48994B4173FD829DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128518   (726273) от 26.04.2017
-
-Река плохого человека / El hombre de Rio Malo (1971) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская революция….. но Кингу с его бандой на это наплевать — они по-прежнему продолжают грабить банки. И вдруг выясняется, что у некоего мистера Монтеро есть чек на миллион долларов, и этот чек оказывается нужен не только Кингу, но и другим бандюгам….Производство: Испания, Италия, Франция / International Apollo Films, Les Productions Jacques Roitfeld, Zurbano FilmsЖанр: Комедия, ВестернРежиссер: Эухенио МартинАктеры: Ли Ван Клиф, Джеймс Мейсон, Джина Лоллобриджида, Симон Андреу, Диана Лорис, Джанни Гарко, Альдо Самбрель, Джесс Хан, Даниэль Мартин, Луис РивераПеревод: Авторский (С.Визгунов)Субтитры: ОтсутствуютПродолжительность: 01:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA847175992B8283C568F78E709D73B625BF1ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019272   (726171) от 04.06.2016
-
-С тобой на острове / On an Island with You (1948) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726171.jpg" />
-</div>
-
-
-###  Подробнее
-
-На островах Тихого океана идут съемки фильма с кинозвездой Розалиндой Реннолдс и ее женихом Рикардо Монтезом в главных ролях. В качестве консультанта приглашают лейтенанта ВМФ Лоуренса Кингсли. Оказывается, что лейтенант давно влюблен в актрису и готов на все ради танца с ней, даже на угон самолета с Розалиндой на борту...Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Ричард ТорпАктеры: Эстер Уильямс, Питер Лоуфорд, Рикардо Монтальбан, Джимми Дуранте, Сид Черисс, Ксавьер Кугат, Леон Эймс, Катрин Бомонт, Дик СиммонсПеревод: Одноголосый закадровый (Игорь Клушин «Хромолка»)Язык субтитров: Русский (Forced, Full), Английский (Full)Продолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5B61165C677E3F29E1D4BFF72CAD8278A0F71F
 ```
 
 https://mybot314.ru/tekegram_catalog/

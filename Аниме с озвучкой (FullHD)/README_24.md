@@ -1,3 +1,81 @@
+###  Публикация: 1573902   (209093) от 02.09.2022
+
+Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Первокурсница Тамаки в школе занималась волейболом, потом, чтобы больше нравиться парням, переключилась на большой теннис и однажды случайно попала мячом в планер студента Даисукэ. Поскольку оплатить ремонт она не может, Тамаки вступает в авиационный клуб в качестве помощницы.Производство: Япония / Telecom Animation FilmЖанр: повседневность, спортРежиссер: Татибана МасакиЯзык озвучки: японский и русскийСубтитры: английскиеПродолжительность: 104 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE78134F0AAEC0E69C629B7BCF42A92D6B0B76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646574   (208895) от 15.07.2023
+
+Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand Order Final Singularity - Grand Temple of Time: Solomon | Судьба: Великий приказ - Финальная сингулярность [2021, Movi ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+«Халдея» победоносно прошла через семь Сингулярностей и достигла финальной точки своего долгого путешествия. Именно здесь она должна будет исполнить свой Великий приказ. Здесь — на просторах Великого Храма времени: Соломона. Пришла пора уничтожить корень всех зол — Короля магов Соломона. Нужно вернуть человечеству украденное будущее! В преддверии битвы Романи Архиман (   Читать дальше...   )Производство: студия CloverWorksЖанр: приключения, фэнтезиРежиссер: Акай ТосифумиЯзык озвучки: Японский, русский (Wakanim)Субтитры: Русские (Wakanim)Продолжительность: 1 эп. по 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1EF81215BA608DE006C8CA992E2FA5BEC9DF9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647089   (208727) от 17.07.2023
+
+Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demonic Front: Babylonia | Судьба: Великий приказ - Вавилония [2019, TV, 21 из 21 + OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+«Халдея», организация по обеспечению выживания человечества, днём и ночью продолжает наблюдение за миром с целью обратить вымирание человечества, произошедшее в 2017 году. Его причинами стали сингулярности, внезапно появившиеся в разных отрезках истории. Единственный мастер «Халдеи», Рицука Фудзимару, и его полуслуга Мэш Кириелайт с помощью запретного ритуала отправляются (   Читать дальше...   )Производство: студия CloverWorksЖанр: приключения, фэнтезиРежиссер: Акай ТосифумиЯзык озвучки: Японский, русский (Wakanim, AniLibria)Субтитры: Русские (RikuSempai, AniLibria)Продолжительность: 22 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A677DF9BF9D6AFF1604489423233B333458184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648235   (208344) от 22.07.2023
 
 SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +84,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +323,7 @@ Roujin Z | Старик Зет [1991, Movie] HDRip HEVC 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +350,7 @@ Uma Musume: Pretty Derby | Девушки-лошадки: Милое дерби 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -298,7 +376,7 @@ Armitage III: Poly Matrix | Армитаж: Полиматрица [1996, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +430,7 @@ Armitage III | Армитаж III [1995, OVA, 4 из 4] BDRip 1080p HEVC 10-bit 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +456,7 @@ Project A-ko | Проект А-ко [1986, Movie] BDRip 1080p HEVC 10-bit raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +482,7 @@ Project A-ko 2: Daitokuji Zaibatsu no Inbou | Project A-Ko 2: Plot of the Daitok
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +508,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -456,7 +534,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -482,7 +560,7 @@ Riding Bean | Боб на колесах [1989, OVA] BDRip 1080p HEVC 10-bit rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -538,7 +616,7 @@ Cyber City Oedo 808 | Кибер-город Эдо 808 [1990, OVA, 3 из 3] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,7 +642,7 @@ Violence Jack: Harem Bomber Hen | Violence Jack: Slum King | Жестокий Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -591,7 +669,7 @@ Violence Jack: Jigoku Gai | Violence Jack: Evil Town | Жестокий Джек
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -603,85 +681,6 @@ Violence Jack: Jigoku Gai | Violence Jack: Evil Town | Жестокий Джек
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFF6386F5BD423C5D1DFE57A459F5C3A5079EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653935   (205952) от 19.08.2023
-
-Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel Next Door Spoils Me Rotten | Ангел по соседству меня балует [2023, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшекласник Аманэ Фудзимия живёт в одном доме с первой красавицей своей школы, Махиру Сииной. Они почти не общались до тех пор, пока одним дождливым днём он не предложил Сиине свой зонтик. После этого она стала готовить, убирать и всячески заботиться о неряшливом Аманэ. Так начинается история их сближения и зарождающихся чувств.
-© crunchyrollПроизводство: студия Project No.9Жанр: романтика, повседневность, школаРежиссер: Имаидзуми КэнъитиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Сrunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94A0C7D10C46A0B36622480746AA13A02ABE4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567887   (205582) от 05.08.2022
-
-Techno Police 21C | Технополиция XXI века [1982, Movie] BDRip  HEVC 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в начале 21-го века, его главным героем является Кен, патрульный на мотоцикле на шоссе, предположительно, на Юго-западе США, которого призвали в полицию Сентинел-Сити где он, как ожидается, продержится всего шесть месяцев. Cводный отряд полицейских получает на вооружение роботов — своих двойников.Производство: Япония / Studio Nue, Dragon ProductionЖанр: приключения, фантастика, мехаРежиссер: Мацумото МасасиПеревод: Озвучено по переводу отЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый Любительский)Субтитры: ОтсутствуютПродолжительность: 78 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D03D439FF058EFAA9D960C7B7209DCC9C66A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567989   (205531) от 06.08.2022
-
-Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшекласснику Наоя признаётся в любви милая и дружелюбная девушка по имени Минасэ. Проблема заключается в том, что у него уже есть девушка! Но он отказывается так просто сдаваться. Теперь он вместе с Минасэ собирается убедить свою девушку Саки, чтобы он встречался с ними обеими одновременно… Согласится ли она?Производство: Tezuka ProductionsЖанр: комедия, повседневность, романтика, сёнэн, мультсериалРежиссер: Кувабара СатосиПеревод: официальный (crunchyroll)Язык озвучки: Русский, любительский многоголосыйСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0090461C51918B449DAF8B06706BE1D1B908AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,109 +1,3 @@
-###  Публикация: 730368   (305014) от 04.12.2013
-
-В. Чаплина | О маленьких волшебниках и Петькиных друзьях (1981) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка, очень похожая на быль.
-В детстве нам всё казалось полным тайн и загадок, стоило только дать волю фантазии, и вот уже можно понять куда и зачем торопятся бригада лесных муравьёв, услышать как растут из-под опавшей листвы грибы, даже (для особо отчаянных) не представляло труда труда разобраться о чём гневно грохочет внезапно прилетевшая грозовая туча...
-Таким (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D35FA488362539184C2D6F69F316DD10B55CE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077871   (304983) от 29.11.2016
-
-М. Фроман | Мышонок Алешка и кошка Матрешка (1925) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка в стихах о приключения мышонка.Жанр: Стихи, СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569901DDDFEF6A8406C30F5BD8E5E1B7BF56FA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730355   (304867) от 04.12.2013
-
-М. Шагинян | Повесть о двух сестрах и о волшебной стране Мерце (1959) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304867.jpg" />
-</div>
-
-
-###  Подробнее
-
-События, описанные в этой книге, происходили очень давно. Прочитав ее, вы познакомитесь с двумя сестрами - Машей и Леной, которые в далеком детстве открыли удивительную волшебную страну Мерцу. Вместе с девочками вы совершите увлекательное путешествие в страну грез, где происходят интересные и невероятные приключения. Вы наверное полюбите двух маленьких мечтательниц (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A41C1E1B9ABDADF514D6956CE36CD458F44F3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730124   (304866) от 04.12.2013
-
-Михаил Демиденко | Приключения Альберта Козлова (1971) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автобиографический роман о военном детстве.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B57B59FE753FCD2CBD9BCDF61864274BBB8AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730398   (304865) от 04.12.2013
 
 Ах Сигуте | Амвросий, Муркис и Ангел (2011) [FB2]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -682,6 +576,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:476CA6637B0683ABF4A443D4C36BBF63EF91DAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730731   (303307) от 05.12.2013
+
+Александр Корделл | Белая кокарда (1989) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие повести современного английского писателя А. Корделла происходит в канун ирландского восстания 1798 года. Напряжённое, динамичное описание трудностей и опасностей, с которыми столкнулся главный герой повести, семнадцатилетний Джон Риган, выполняя миссию связного между республиканской Францией и ирландскими патриотами, стало основой этой книги, написанной в лучших традициях детской приключенческой литературы.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3A89C921E5BF6031F5995EA81024DECFFB893C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730145   (303305) от 05.12.2013
+
+А. Цай | Как зайцы тигра перехитрили (1982) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Таджикская народная сказка о проворных зайцах, которые перехитрили сильного тигра.Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B060F4420FE6630C9790E393CB0DA5D5C93D63CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730906   (303304) от 05.12.2013
+
+Илона Волынская, Кирилл Кащеев | Шоу одинокого скелета (2012) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Похоже, детективам каникулы не полагаются. Вот решили сыщики из агентства «Белый гусь» отдохнуть на даче близняшек Мурки и Кисоньки… и во что превратился этот отдых?! Сначала ребят чуть не до смерти напугал скелет, гуляющий сам по себе, затем довела до белого каления жуткая зануда – какая-то дальняя родственница близняшек. А потом… у отца Мурки и Кисоньки пропали очень важные документы. Если бумаги не вернуть, бизнесмену грозит разорение. В доме собралось много гостей, и нужно вычислить вора как можно скорее! Или уже поздно – вдруг преступник успел передать документы?..Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F5FFCDA6D3E8AE988791B4603BD3D31420672F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730704   (303303) от 05.12.2013
+
+Василий Юксерн | Атаманыч (1966) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Повесть марийского писателя Василия Юксерна (Василий Степанович Столяров) рассказывает о заключительном этапе Великой Отечественной войны — разгроме советскими войсками японской военщины.
+Действие развертывается на Сахалине. Главный герой повести, четырнадцатилетний Миша — Атаманыч, сын погибшего в боях против гитлеровцев советского офицера, становится разведчиком Советской Армии и оказывается участником важных событий. Он помогает задержать японского шпиона, смело сражается, вместе с бойцами разведвзвода ходит на трудные и опасные операции…Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95B13331002AEF940FE705442087A61D7FE5A5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1555107   (571964) от 02.06.2022
+
+Сергей Пахомов | Направленные антенны для беспроводных устройств (2006) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Направленные свойства антенн определяются зависимостью напряженности излучаемого антенной поля от направления. Графическое изображение этой зависимости называется диаграммой направленности антенны. Трехмерная диаграмма направленности изображается в виде поверхности, описываемой исходящим из начала координат радиус-вектором, длина которого в каждом направлении пропорциональна (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FDF6E20200A1111F8BAF05C842D61B4B5CE872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921533   (571675) от 27.07.2015
+
+В.Ф. Мышкин и др. (ред.) | Современные проблемы волоконно-оптических линий связи [том4] [4 книги] (2005) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Справочное пособие представляет фундаментальное руководство по основным проблемам планирования и построения волоконно-оптических линий связи (ВОЛС) и современных цифровых сетей связи. Рассмотрены физико-химические характеристики материалов использующихся при изготовлении различных компонентов для ВОЛС, волоконно-оптические кабели, средства контроля и измерения для (   Читать дальше...   )Жанр: Электроника, связьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D9FC5C4C695468E01C3A89857A2D2C34964305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302921   (570491) от 22.05.2019
+
+В. Блази | Справочник проектировщика. Строительная физика (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит материал по технологическим, теплофизическим и акустическим характеристикам современных строительных материалов. На многочисленных примерах расчетов показано поведение различных ограждающих конструкций при воздействии на них температуры, влажности и шума. Рассматриваются вопросы пожарозащиты зданий и защиты от огня несущих и ограждающих конструкций. (   Читать дальше...   )Жанр: СтроительствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C57A75BFD9C88FB1CD6E719EE29CAEF825289CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302725   (570490) от 22.05.2019
+
+А.П. Кашкаров | Электронные системы охраны с пироэлектрическими датчиками и способы их нейтрализации (2015) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Проблема "нейтрализации" охранных сигнализаций, установленных стационарно, не теряет своей остроты: страховые выплаты хоть и покрывают ущерб в случаях потери имущества после несанкционированного проникновения в охраняемые электроникой помещения, однако заинтересованную общественность беспокоит то, чтобы в будущем не участились подобные случаи. Сегодня охранные (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0986A10874AF27DC232A1AB3EE3C67FF2EE41981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043581   (570486) от 17.08.2016
 
 М.М. Эфрусси | Акустическое оформление громкоговорителей (1962) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E86EA7682E0321A03D812408C5855B86A3EDD847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153463   (559566) от 26.07.2017
-
-П.А. Воронин | Силовые полупроводниковые ключи. Семейства, характеристики, применение (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выход на отечественный рынок большого количества зарубежных приборов вкупе с широкой номенклатурой интегральных драйверов управления, в том числе с прекрасно оформленными каталогами и сервисными дополнениями, породило ошибочное мнение о простоте технологии их применения. Однако практика показала, что даже самые современные типы силовых ключей только приближаются (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670B5764BAC86FD238B6A003D9DBE9A6100AB788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153418   (559554) от 26.07.2017
-
-Э.Т. Тагворян, М.М. Степанов (сост.) | Микросхемы для современных импульсных источников питания — 2 (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга продолжает серию ”Энциклопедия ремонта” и является вторым выпуском, посвященным интегральным микросхемам управления импульсными источниками питания.
-Приводятся данные по микросхемам основных мировых производителей, предназначенных для построения как простых схем источников питания, так и многофункциональных схем источников современных компьютерных систем с (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB192BCC9204CBA06DB6CB1988972B7A58B4981A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045450   (559434) от 23.08.2016
-
-А. Нефедов | Как наладить приемник прямого усиления (1956) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре описывается методика настройки лампового приемника прямого усиления, собранного по схеме 1-V-1.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA42881408BBC2B2F8072991F15A2ADCBEF2501E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043852   (559426) от 23.08.2016
-
-С.П. Чумаков | Путь в Радио (1936) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всякий начинающий радиолюбитель при первых же попытках овладеть основами радиотехники сталкивается с огромным количеством новых понятий, с множеством явлений и новых процессов. Невозможно сразу же освоиться со всеми разнообразными явлениями и разобраться во всех сложных вопросах. Только постепенно, осваивая непознанное, можно пройти "путь в радио", сделать (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38D9C411BDA45D0189A2E5664CBD61D4C28287B
 ```
 
 https://mybot314.ru/tekegram_catalog/

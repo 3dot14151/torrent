@@ -1,3 +1,109 @@
+###  Публикация: 972520   (981872) от 06.01.2016
+
+Нина Павлова | «Иди ко мне!» (Современные были) (2015) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Боголюбивые читатели! Перед вами третья книга известной православной писательницы Нины Павловой «Иди ко Мне!».
+Это современные были о жизни православных людей в наше непростое время. В жизни нет ничего случайного. И если человек предаёт себя Промыслу Божию, он ведёт его по жизни, и не посрамит Господь молитвы уповающих на Него.Жанр: ПравославиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF0C1DCB37BE89A99058069C8F71F652A5D7C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972652   (981841) от 06.01.2016
+
+Рутландская псалтирь [Рукопись] (1260) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Одина из наиболее красиво украшенных английских рукописей 13 века. Что особенно поражает в книге - маргиналии - рисунки на полях, часто они не связаны с содержанием страницы. В маргиналиях этой рукописи - животные, монстры, гротески-горгульи и различные сцены из жизни. Кроме маргиналий, в книге 6 полностраничных рисунков. На одном из них средневековый орган и колесная (   Читать дальше...   )Жанр: Рукопись, псалырьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1D5B6AB87A189738A20581D43BA2762FB4D8FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972656   (981738) от 06.01.2016
+
+Писчик Спиридон | Псалтырь Киевская [Рукопись] (1397) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Киевская Псалтирь, переписанная писчиком Спиридоном в 1397 году, хранится в ленинградской Публичной библиотеке имени М. Е. Салтыкова-Щедрина в собрании рукописей Общества любителей древней письменности и искусства (ГПБ, ОЛДП F 6)1. Это пергаменная рукопись большого формата на 229 нумерованных листах.
+Пергамен Киевской Псалтири отличной выделки, средней толщины, белый, (   Читать дальше...   )Жанр: Рукопись, псалырьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B57CAB708C8B99F1971811477D94C68D89A04BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355794   (981094) от 28.01.2020
+
+Протоиерей Всеволод Чаплин | Бог. Человек. Церковь (2008) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга протоиерея Всеволода Чаплина написана для людей, которые хотят понять глубинный смысл христианства. Эта книга — взгляд внутрь мира, храма и человека. Она открывает двери человеческого сердца навстречу Богу, позволяет заглянуть, что же находится за стенами храма, за его богослужением. «Открыть двери сердца, — пишет автор, — значит сбросить с плеч груз самоуверенного (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7396B8A45CD7A54BA644BC0A39D06C13D09EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973545   (980257) от 08.01.2016
 
 Уильям Крейг, Джеймс Морленд (ред.) | Новое естественное богословие (2014) [PDF]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -170,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -251,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -279,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -305,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -331,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -464,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -516,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -542,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -569,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,112 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40AD366E8CC428F72DBAA5316F7D555CE98442D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977249   (966765) от 20.01.2016
-
-МП РПЦ (изд.) | Всенощное бдение и Литургия (2015) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Значительно доработанное переиздание популярной книги поможет православным христианам лучше понимать богослужение и полнее молитвенно соучаствовать в нем. По книге удобно следить за основным ходом богослужения. Подстрочные примечания практически ко всем трудным для понимания словам и выражениям значительно переработаны и дополнены. Добавлены непосредственно по ходу (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0E53B84678FC0D7E79215E386A2AFED2FD1147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977248   (966762) от 20.01.2016
-
-Прот. Андрей Дудченко | Божественная Литургия (2015) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги протоиерей Андрей Дудченко рассказывает о смысле и значении Божественной Литургии. Шаг за шагом отец Андрей разъясняет простым и доступным языком все слова, молитвы и действия, совершающиеся во время самого важного богослужения Православной Церкви.Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858BAD429BB191351AC07A36F939805FA07DD5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977274   (965748) от 21.01.2016
-
-Архиеп. Хризостом I (Пападопулос) | История Матери Церквей (2003) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга повествует об истории Иерусалимской Церкви со дня схождения Святого Духа на апостолов в Сионской горнице и до настоящего времени. Ее автором является возглавлявший Элладскую Церковь в начале XX века архиепископ Афинский и всея Эллады Хризостом I (Пападопулос), профессор Афинского университета, академик, автор многих исторических трудов.
- На русском языке (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD738602D5A02BC506335BCEFE383669155D5BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977717   (965743) от 21.01.2016
-
-Прп. Никита Стифат | Творения (2011) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прп. Никита Стифат известен своими трактатами по мистическому богословию.
- Фундаментальная трилогия сочинений: «О Душе», «О Рае», «О Иерархии» по праву считается вершиной его богословского наследия, в которых дана ясная православная позиция по поводу многих крайне сложных духовных вопросов. Трактат о рае - это созерцание рая. Здесь принципиальный момент, ибо понятие (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB34DF005B3D2274E2AB5BADD1F2605625F80B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

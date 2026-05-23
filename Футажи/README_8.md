@@ -1,3 +1,86 @@
+###  Публикация: 1324484   (425089) от 09.09.2019
+
+RocketStock - Hisan: 50+ Ink Splash Transitions - RS3011 [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Готовы оказать влияние на своего зрителя ?
+Обладая смелыми переходами в виде чернильных всплесков, Hisan является идеальной коллекцией активов для дизайнеров, которые хотят сделать действительно незабываемые видеоролики.
+Чтобы получить максимальное динамическое разрешение, каждый из 56 элементов этого пакета был снят с использованием превосходной RED камеры. Включая (   Читать дальше...   )Формат: MP4Разрешение файлов: 3840х2160 (Ultra HD)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83656A6140BFF1E395F26E8FE4BF19D7D2ACDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324393   (425084) от 09.09.2019
+
+Футажи - RocketStock - Fume: 150+ Smoke Effects - RS3021 [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Подарите вашему видео атмосферный удар с эффектами органического дыма. Снятый на съемочной площадке с RED камерой и объективами Zeiss Master Prime, Fume может похвастаться более чем 150 премиальными активами в ультра-высоком разрешении.
+Благодаря настраиваемым дымовым шлейфам, эффектам разрыва трубы и многим другим, эта коллекция добавит кинематографическую эстетику (   Читать дальше...   )Формат: MP4Разрешение файлов: 3840х2160 (Ultra HD)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A20A748D5EB95B6441DF2B89A5403B29DB1C1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324489   (424998) от 09.09.2019
+
+RocketStock - Burn: 200+ Fire Effects - RS3022 [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Burn - Более 200 горячих эффектов огня.
+Ваша работа взорвется за пределы экрана с помощью Burn, потрясающей коллекции из 234 огненных эффектов. Обладая множеством типов огня, таких как горящий потолок, дверь, автомобиль и многое другое, Burn можно по истине назвать лучшей библиотекой эффектов пламени.
+Съемка в контролируемой среде с мощной RED камерой сделала для (   Читать дальше...   )Формат: MP4Разрешение файлов: 3840х2160, 4096x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D959D79F1F1DF82751874E3483A2B2A4D2E09410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324581   (422916) от 10.09.2019
 
 RocketStock - Lucent Warm: 140 Lens Flares in 4K - RS3027 [MP4]
@@ -6,7 +89,7 @@ RocketStock - Lucent Warm: 140 Lens Flares in 4K - RS3027 [MP4]
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -199,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -282,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -308,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -334,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -495,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -548,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,88 +699,6 @@ Vfx Starter Pack - Это первый пакет визуальных эффе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:028D09A4A2406A33F61166E77C25B3132F467983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832647   (408513) от 20.10.2014
-
-Футажи - Artbeats - Grow! (NTSC) [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408513.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 клипов с распускающимися цветками...
-
-От Яндекс: Смотреть бутоны достигли совершеннолетия, и цветут лишь несколько коротких мгновений в этой коллекции популярные цветы показано с магией timelapse. Но это еще не все! Сеянец армий pop up от земли, жуткий bean выходит из почвы, и goatsbeard seedpod соз открыть извергать свои семена, снабженные крошечными парашюты. (   Читать дальше...   )Формат: MOVРазрешение файлов: 720х486
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA782708DF4103DB412C49D34FA62A39B23B20F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170306   (399163) от 01.10.2017
-
-Футажи - VideoHive - Fog [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футаж "туман" можно использовать в качестве фона для текста или логотипа.Формат: MOVРазрешение файлов: 1920x1050
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9251BC84F3900342263B802B658BE2D253800573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170604   (399161) от 01.10.2017
-
-Футажи - VideoHive - 24 Hi-Tech HUD / Interface Pack [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свой собственный визуальный интерфейс.
-В пакет входит: 12 Full HD HUD-дисплеев, 12 дополнительных элементов интерфейса (с анимированным текстом), 3 фона. Все файлы с альфа-каналом.
-В элементах используется бесплатный шрифт, поэтому дополнительный текстовый контент можно легко разместить с тем же стилем шрифта.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B51EC71F7B8EEDD1093E402C6F0D412ACDFD0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

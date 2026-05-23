@@ -1,3 +1,107 @@
+###  Публикация: 1126142   (766167) от 17.04.2017
+
+New Game! | Новая Игра! [2016, TV, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Аоба Судзукадзе окончила школу и сразу же устроилась 3D-художником в компанию Eaglejump, занимающуюся разработкой игр. Более того, непосредственным начальником Аобы стал человек, создавший любимую игру её детства... А дальше сюжет рассказывает о том, как впахивают няшные девочки, работающие в игровой индустрии.Жанр: повседневность, комедия, сэйнэнРежиссер: Фудзивара Ёсиюки / Fujiwara Yoshiyuki / 藤原佳幸Продолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60767E3F1C6FFB821E524B459969B1D9614A239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090838   (766076) от 17.04.2017
+
+Urara Meirochou / Предсказательница из Мейрочо [2017, TV, 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В городе под названием Мейрочо есть заведение, где учат на предсказательниц. Именно сюда со всей страны стекаются девушки, желающие стать элитными гадалками (таких называют «урара»). Среди них одинокая Чия, которую, впрочем, привела в город ещё и иная цель. Ученичество Чии начинается со знакомства с тремя подругами — искренней Кон, поклонницей западной культуры Коуме (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключенияРежиссер: Судзуки ЁхэйПеревод: Undokaktyz (1-12); Ykusub (1-7)Язык озвучки: ЯпонскийСубтитры: русские (отключаемые)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C93D755E2C112544BF1B854E38B9952103C61CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501361   (766016) от 01.01.2022
+
+Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Tensei Shiteshimatta.. X | Моя реинкарнация в отомэ-игре в качестве главной злодейки 2 [2021, TV, 12 + OVA] BDRip 1080p
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дочь знатного рода Клас, Катарина, получила камнем по лбу и вспомнила прошлую жизнь. Оказывается, она родилась в мире отомэ-игры Fortune Lover, которую обожала в своей прошлой инкарнации. Только вот… переродилась девушка в злодейку, что только и знает, как строить козни главной героине! Лучшая концовка Катарины — изгнание, худшая — смерть! И теперь ей предстоит сделать (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедияРежиссер: Иноэ КэйсукэПеревод: CrunchyRoll (TV + OVA);Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F76E4F2CF40087C2070E556644451C094D6E5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481366   (765838) от 01.01.2022
+
+Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Tensei Shiteshimatta.. X | Моя реинкарнация в отомэ-игре в качестве главной злодейки 2 [2021, TV, 12 + OVA] WebRip 720p
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дочь знатного рода Клас, Катарина, получила камнем по лбу и вспомнила прошлую жизнь. Оказывается, она родилась в мире отомэ-игры Fortune Lover, которую обожала в своей прошлой инкарнации. Только вот… переродилась девушка в злодейку, что только и знает, как строить козни главной героине! Лучшая концовка Катарины — изгнание, худшая — смерть! И теперь ей предстоит сделать (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедияРежиссер: Иноэ КэйсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E18BE3330610B2A09E17C7954B4889EDE9544F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394151   (765352) от 03.07.2020
 
 Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +110,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +138,7 @@ Nana Maru San Batsu | Nanamaru Sanbatsu | Fastest Finger First | Семь - ве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +165,7 @@ Luck and Logic + Watashitachi, Luck Logic Bu! | Удача и логика [2016
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +191,7 @@ Deep Insanity: The Lost Child | Глубинное безумие: Потеря�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Gekijouban Fate/Kaleid Liner Prisma Illya: Sekka no Chikai | Судьба: Де�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +244,7 @@ Fate/kaleid liner Prisma Illya 3rei!! | Fate/Kaleid Liner Prisma Illya Drei!! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +272,7 @@ Inuyasha: Tenka Hadou no Ken | Inuyasha the Movie: Swords of an Honorable Ruler 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +298,7 @@ Inuyasha: Kagami no Naka no Mugenjou | Inuyasha the Movie: The Castle Beyond the
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +325,7 @@ Kyattou Ninden Teyandee | Cat Ninden Teyandee | Samurai Pizza Cats | Коты-с
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +351,7 @@ Inuyasha | Инуяся [2000, TV, 167 из 167] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +378,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +404,7 @@ Beastars 2nd Season | Выдающиеся звери [ТВ-2] [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +430,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +456,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +482,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +509,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +535,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +561,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +587,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +613,7 @@ Ryuuou no Oshigoto! | The Ryuo's Work is Never Done! | Работа для др�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Black Jack / Черный Джек [1993 - 1996, OVA, 10] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Hanamaru Youchien / Hanamaru Kindergarten / Детский сад Ханамар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -576,112 +680,6 @@ Hanamaru Youchien / Hanamaru Kindergarten / Детский сад Ханамар
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522991   (755063) от 09.01.2022
-
-Log Horizon: Entaku Houkai | Log Horizon: Destruction of the Round Table | Лог Горизонта 3 [ТВ-3] [2021, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенно неожиданно несколько десятков тысяч игроков оказались заперты в мире популярной ММОРПГ Elder Tale! Они были шокированы этим, ведь их окружают жуткие монстры и магия. А город авантюристов-игроков, Акиба, превратился чёрт знает во что… Среди угодивших в ловушку оказался и Сироэ — юноша, которому трудно общаться с людьми. Вместе со своими верными друзьями (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: приключения, фэнтезиРежиссер: Исихира СиндзиПеревод: WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377E5AA33C30ABAC079FCD8B3A457FFA6C46660E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311738   (755036) от 10.07.2020
-
-Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учиться! [ТВ-1][2019, TV, 13 эп. + OVA 2 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нариюки Юйга — ученик последнего и самого тяжёлого класса. Чтобы заработать «особую ВИП-рекомендацию», которая гарантирует бесплатное обучение в университете, он должен помочь своим одноклассницам подготовиться к вступительным экзаменам. Ему поручили двух самых прекрасных и гениальных учениц школы: Фумино Фурухаси, «Спящую красавицу литературных лесов», и Ридзу Огату (   Читать дальше...   )Жанр: комедия, романтика, эттиРежиссер: Ивасаки ЁсиакиПеревод: Wakanim (TV); Gerale (OVA1); grrala (OVA2)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. + 2 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2CC8024776780803ADCE59846C3406407C8BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663413   (754877) от 31.05.2013
-
-Seirei no Moribito / Guardian of the Sacred Spirit / Хранитель Священного Духа [2007, TV, 26 ep.] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина–воин, копьеносец Барса, странствует по городам в поисках работы. Барса – профессиональный телохранитель. Забота об экипировке приводит ее в Його, благополучную и богатую страну. Здесь Барса надеется всего-навсего починить сломанное копье, но неожиданно оказывается «при исполнении» - на мосту случается несчастный случай. Во время следования императорского кортежа опрокидывается повозка со вторым принцем Його, Его Высочеством Тягуму. Барса бросается в воду за мальчиком, не предполагая, что судьба накрепко свяжет ее со спасенным ребенком...
-
-© Анастасия Розанова, World Art; Полная рецензия от Расселла Д. ДжонсаЖанр: приключения, фэнтезиРежиссер: Камияма КэндзиПродолжительность: 26 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0FDA912C5CD2AD192C0827538F9CBD6146083E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202146   (754381) от 28.03.2018
-
-Mitsuboshi Colors | Звёздочки [2018, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754381.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве все дела кажутся очень важными, даже самые пустяковые. Но в том и проблема взрослых, что мы не обращаем внимания на мелочи, а ведь они порой перерастают в настоящие трудности, от которых избавиться уже гораздо сложнее, нежели чем пресечь всё на корню. Но жители японского городка Уэно, в отличие от нас, могут спать спокойно, ведь на страже их города стоит (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Кавамура Томоюки / Kawamura Tomoyuki / 河村智之Перевод: AniPlay.TVЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F39147BF1776BDC9D965FB8EEFFE7907215008
 ```
 
 https://mybot314.ru/tekegram_catalog/

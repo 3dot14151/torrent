@@ -1,3 +1,55 @@
+###  Публикация: 1804072   (7585) от 16.08.2025
+
+Guards II (2): Chaos in Hell (2025) [Ru/Multi] (1.1) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Guards II – это тактическая пошаговая стратегия с простыми на первый взгляд правилами, но глубокой и продуманной механикой. Чтобы атаковать, вам нужно лишь поменять местами двух героев – но не дайте себя обмануть, ведь дьявол кроется в деталях: каждое решение может решить исход битвы. Вы заключили сделку с демоном и теперь отправляетесь в самое сердце Ада. Пройдите (   Читать дальше...   )Тип издания: LicenseРазработчик: Battlecruiser GamesЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453446BAA4153712D7EE4E11CD9BDA48D50B62C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767437   (7582) от 16.08.2025
+
+Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение критически прославленной космической стратегии, которая идеально сочетает тактику реального времени с глубиной 4X. Будучи одновременно императором и военачальником, вам предстоит возглавить одну из шести играбельных фракций и привести её к победе в борьбе против угрозы вымирания! Здесь нет ходов. Нет боевого режима. Нет стратегического режима. Здесь всего (   Читать дальше...   )Тип издания: RepackРазработчик: Ironclad Games Corporation, Stardock EntertainmentЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB98B2FD50DF2A703EA69F9BBFEFE0E2519C555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738154   (7576) от 16.08.2025
 
 Strategic Command WWII: War in the Pacific (2024) [Multi] (1.03.05/dlc) License GOG
@@ -6,7 +58,7 @@ Strategic Command WWII: War in the Pacific (2024) [Multi] (1.03.05/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Intravenous + Intravenous 2 (2021-2024) [Ru/Multi] (1.5.1/1.4.3/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack FitGirl [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ A Fistful Of Yankees (2025) [Ru/Multi] (1.42) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistanc
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) Repack Let'sРlay [Deluxe Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.3/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Forgotten but Unbroken (2024) [Multi] (1.2.2) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Let'sРlay [Pre
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.5/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.9.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.16.03/dlc) License GOG [Field Marshal Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Old World (2022) [Ru/Multi] (79513/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.2/dlc) Repack FitGirl [
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Through the Ages (2018) [Ru/Multi] (2.19.1120/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.3 HF1/dlc) Repack Let's
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Operation: Polygon Storm (2024) [Multi] (1.5.2.7/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.04.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54DAB561192E7BE4D84EEDB338B233770A7E4FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791108   (1248) от 24.09.2025
-
-Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимание! Вы получили приказ выполнить миссию, от которой зависит судьба всего мира. Проследите за созданием легендарного элитного боевого отряда времен Второй мировой в игре Commandos: Origins. Долгожданное продолжение серии Commandos позволит вам вернуться к основам жанра «тактика в реальном времени». Это времена, когда зеленый берет Джек О'Хара и пятеро его спутников (   Читать дальше...   )Тип издания: RepackРазработчик: Claymore Game StudiosЖанр: СтратегииЯзык озвучки: Английский, Французский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB3514F10AD878CCF1E6647A7FA3CBCDFE1D7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759487   (1117) от 25.09.2025
-
-Old World (2022) [Ru/Multi] (1.0.79871/dlc) Repack Let'sРlay [Complete Bundle]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Old World - это историческая стратегия, в которой вы управляете империей на протяжении нескольких поколений. Удастся ли вам оставить после себя великое наследие в эпоху великих царей и цариц? Заключайте браки ради политической выгоды, растите наследников и выстраивайте отношения со знатными семьями вашего царства. Ибо в жестоком, неумолимом мире монархов нет ничего (   Читать дальше...   )Тип издания: RepackРазработчик: Mohawk GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9E5BF2383B7376CCF37A1E2C9478D104233BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

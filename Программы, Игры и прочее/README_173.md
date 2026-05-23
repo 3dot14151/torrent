@@ -1,3 +1,81 @@
+###  Публикация: 1804023   (13361) от 26.06.2025
+
+Photo Studio PRO v2.8.2.4360 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 25.06.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330E4AA62E964B280D4C9011782471626BBE9AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804219   (13205) от 28.06.2025
+
+HDRezka TV v1.4.0 Mod by App Rezka TV [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+HDRezka TV — это неофициальный клиент для просмотра видео из онлайн-кинотеатра HDRezka на Android TV и Google TV. Приложение имеет английский/русский интерфейс, а также требует установленную на устройстве версию андроид не ниже 7.0 Nougat. Без рекламы. Полная поддержка Android TV и пульта.Тип издания: FreeРелиз состоялся: 27.06.2025Поддерживаемая ОС: Android TV 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9756DCB742079C4FD8CD75BBF926EC50A609BB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804213   (13175) от 28.06.2025
+
+Медицинская "Справочник - Энциклопедия от А до Я" v2.0.5.8 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная офлайн Медицинская Энциклопедия (медицинский словарь) с легким и функциональным интерфейсом, охватывающим более 60.000 словТип издания: AdFreeРелиз состоялся: 26.06.2025Разработчик: TTdictionaryПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E12A20E7148FC3C140DC3B2B3194D041CF95A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804403   (13046) от 29.06.2025
 
 Мульти Таймер Секундомер v2.13.11 Mod by Balatan [Ru/Multi]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +111,7 @@ FixPlus — Редактор лица и тела v1.47.118 Mod by PieMods [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +138,7 @@ One Read / Все Документы Читатель - Офис v1.2.4.48 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +164,7 @@ Sleep as Android: отличный сон v20250620 Mod by Alex.Strannik [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +190,7 @@ inShot / Фото и видеоредактор v2.141.1494 Mod by Mixroot [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +216,7 @@ SD Card Test Pro v2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +243,7 @@ Happy Color® – игра раскраска v2.19.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +269,7 @@ BubbleGame v1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +295,7 @@ Earth 3D v9.4.1 Mod by ApplicazioniCR [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +321,7 @@ Karing 1.2.0.810 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +350,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.29 [Nightly] Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +377,7 @@ Guru Maps Pro & GPS Tracker v5.8.0 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +405,7 @@ VN - Video Editor / VN - Видеоредактор v2.7.0 Mod by MustHave [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +431,7 @@ AIDA64 v2.10 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +457,7 @@ Fake GPS v5.6.2 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +483,7 @@ Battery Guru: Monitor & Health v2.3.23 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +509,7 @@ GRID Legends: Deluxe Edition v1.1.4RC7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +536,7 @@ Umagic AI / ИИ Рисует v1.7.7 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -537,7 +615,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso v14
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,7 +643,7 @@ YouCut - Video Editor v1.680.1208 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -591,7 +669,7 @@ NokoPrint v5.22.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -603,85 +681,6 @@ NokoPrint v5.22.2 Mod by derrin [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B86C7E0641CC0DE060F11BB7E034B58ECF5260B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807742   (10858) от 20.07.2025
-
-Sketchbook v6.2.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепное приложение для рисования. В наличии множество вариантов разнообразных кистей. Поддержка работы со слоями. Возможность экспорта в различные форматы.
-Sketchbook — это то, что вам нужно, — от быстрых эскизов до полностью готовых произведений искусства.Тип издания: PremiumРелиз состоялся: 20.07.2025Разработчик: SketchbookПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCCD5331A1EB30468A447177FF7D8EBB9E7BBABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807914   (10826) от 21.07.2025
-
-ByeByeDPI v1.6.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для Android, которое локально запускает ByeDPI и перенаправляет весь TCP трафик через него. Для стабильной работы может потребоваться изменить настройки. Подробнее о различных настройках можно прочитать в документации ByeDPI. Приложение не является VPN. Оно использует VPN-режим на Android для перенаправления трафика, но не передает ничего на удаленный (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 19.07.2025Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA865E2DA87F56FC85788F4F24614C0A72DC22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807890   (10797) от 21.07.2025
-
-Аудиокниги онлайн v1.86 Mod by Number one' [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой каталог аудиокниг разделенный по категориям, с возможностью их скачивания. Для работы возможно понадобится VPN.Тип издания: AdFree (удалена реклама)Релиз состоялся: 20.07.2025Разработчик: Центр разработкиПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E210A291DFBA1C8E20562B361542E7F8445186CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

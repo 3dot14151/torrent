@@ -1,3 +1,109 @@
+###  Публикация: 1364112   (939074) от 01.03.2020
+
+Owari no Seraph | Seraph of the End: Vampire Reign | Последний Серафим [2015, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Однажды на Земле появился таинственный вирус, и возник он будто из ниоткуда. Каждый человек, заразившийся им, умирал, если был старше тринадцати лет. В то же время в мир пришли вампиры, до сих пор скрывавшиеся во тьме, и всё человечество пало перед ними.
+В центре повествования Юичиро Хякуя — мальчик, оставшийся сиротой. С ним и другими детьми из приюта вампиры обращаются (   Читать дальше...   )Производство: Wit Studio, ЯпонияЖанр: Приключения, Мистика, Экшен, Сверхъестественное, ДрамаРежиссер: Токудо ДайсукэОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD2BBEDBA2EEADDB905D9BE4FBCA9CDA667C3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360576   (939073) от 01.03.2020
+
+Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир Из Пепла и Иллюзий [2016, TV, 12 ep + 1 sp] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Почему мы здесь? Зачем всё это?
+Не успел Харухиро понять, что происходит, как его окутала тьма. Почему он тут? Где он? Он до сих пор не нашёл ответы. Люди вокруг находятся в том же положении: никто не помнит ничего, кроме собственного имени. Выйдя наконец из мрака, они ступают на землю неизвестного мира, похожего на видеоигру. В целях выживания Харухиро объединяется (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Приключения, Фэнтези, ДрамаРежиссер: Накамура РёсукэОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин.; 1 Эпизод 11 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94EA4EF7AB5ABEEFFAB03E4BCA3591BC3553953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091839   (938631) от 12.01.2017
+
+Однажды в Токио / Tokyo Godfathers (2003) HDRip [H.264] [MP4|1024x552]
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Под Рождество даже в далёком Токио обязательно происходят удивительные чудеса и невероятные события... Трое бездомных бродяг: алкоголик Джин, трансвестит Хану и беспризорница Миюки - находят на улице потерянную новорожденную девочку, и это необычайное происшествие полностью меняет их судьбу. Проникшись состраданием к беспомощному существу, необычные ангелы-хранители (   Читать дальше...   )Производство: Япония / MadhouseЖанр: Аниме, Мультфильм, Драма, приключения, КомедияРежиссер: Сатоси Кон, Шого ФуруяАктеры: Тору Эмори, Ая Окамото, Ёсиаки Умэгаки, Сёдзо Идзука, Сэйдзо Като, Хироя Исимару, Рюдзи Саикати, Юсаку Яра, Кёко Тэрасэ, Мамико НотоПеревод: Многоголосый закадровый - (Videoservice), Дублированный - (Sonotek)Язык субтитров: РусскийПродолжительность: 01:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74005FA969CBB1C1E8CF803C2D23A669F10A0A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364522   (935633) от 03.03.2020
+
+Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтрашнего Дня Разноцветного Мира [2018, TV, 13 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В мире, где от былой магии остались лишь тлеющие угольки, в городе Нагасаки живёт семнадцатилетняя Хитоми Цукисиро. Являясь потомком семьи магов, она, впрочем, не очень-то жалует своё происхождение и силу, дарованную ей. Ведь никакая магия, даже самая могущественная, не смогла помочь, когда в юном возрасте Хитоми утратила способность к восприятию цвета, отчего со (   Читать дальше...   )Производство: P.A. Works, ЯпонияЖанр: Повседневность, Романтика, Драма, МистикаРежиссер: Синохара ТосияОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 13 Эпизодов по 24 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56B57DD5C976B619A4F1F5FA785C13D5905DCA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364523   (935632) от 03.03.2020
 
 Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Тьме [2014, TV, 13 ep + 1 sp] BDRip 1080p raw+rus
@@ -6,7 +112,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +165,7 @@ Shingeki no Bahamut: Genesis / Rage of Bahamut: Genesis / Ярость Баха�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +191,7 @@ Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +217,7 @@ Bokusatsu Tenshi Dokuro-chan / Убойный ангел Докуро-тян (20
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +245,7 @@ Shinmai Maou no Testament Departures | The Testament of Sister New Devil Departu
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +271,7 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +298,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Новый За�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +324,7 @@ Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | А
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цвето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +376,7 @@ To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +403,7 @@ Motto To Love-Ru: Trouble | Motto To Loveru | Любовные Неприятн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +430,7 @@ To Love-Ru: Trouble - Darkness | To Loveru: Darkness | Любовные Непр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +458,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +485,7 @@ Kappa no Coo to Natsuyasumi | Summer Days with Coo | Волшебное лето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +511,7 @@ To Love-Ru: Trouble | To Loveru | Любовные Неприятности [TV-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +537,7 @@ Toki wo Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, Пок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +564,7 @@ No Game No Life / Игра на выживание [2014, TV, 12 ep] BDRip Hi10p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +590,7 @@ Saenai Heroine no Sodatekata | Saekano: How to Raise a Boring Girlfriend | Ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +616,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из Другого М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +642,7 @@ Kokoro ga Sakebitagatterunda | The Anthem of the Heart | Сердцу Хочет
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +668,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,111 +680,6 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA2751DE3DB3EFE38A6D8EADEFFEEF394350134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300862   (923218) от 11.03.2020
-
-Gakuen Mokushiroku: High School of the Dead | High School of the Dead | Школа мертвецов [2010, TV, 12 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страшная болезнь, превращающая людей в зомби, вырвалась на свободу, и мир рухнул в одночасье. Беда неслышно подкралась и к частной академии Фудзими, лишь немногие школьники и учителя смогли распознать ее и бежать от толпы живых мертвецов. Дороги выживших разошлись. В центре сюжета – судьба тесной группы, невольный лидер которой, 17-летний Такаси Комуро, готов на (   Читать дальше...   )Производство: Япония,Жанр: приключения, ужасы, эттиРежиссер: Араки ТэцуроПеревод: русские субтитрыОзвучка: Многоголосая, студияЯзык озвучки: Японский и русскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED717C32F268C14A7AD79C21802CCE63AC94765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490144   (919920) от 19.08.2021
-
-Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Train | Истребитель демонов: Поезд «Бесконечный» [2020, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не успели главные герои восстановиться, как вновь получают задание. В этот раз под предводительством «столпа пламени» Кёдзюро Рэнгоку они попадают в поезд, в котором за короткий промежуток времени пропало более 40 человек и было убито несколько отправленных на разведку мечников. Какую тайну скрывает этот поезд и с чем придётся столкнуться новому отряду?
-© unique, (   Читать дальше...   )Производство: Япония, Aniplex, Shueisha, UfotableЖанр: Приключения, фэнтези, сёнэнРежиссер: Харуо СотодзакиЯзык озвучки: Русский, японскийПродолжительность: 01:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195266122609374F2CC51799F8FD8C931962379B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986798   (919867) от 20.02.2016
-
-Madox-01 / Metal Skin Panic Madox 01 / Бешеный бык [1987, OVA, 1 эп.] DVDRip DivX 480 raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919867.jpg" />
-</div>
-
-
-###  Подробнее
-
-После создания компьютеризированного боевого экзоскелета, специализируегося на ведении боя с тяжёлой техникой в городских условиях, во время транспортировки был утерян испытательный образец. Простой парень случайно нашёл контейнер с ним и при активации оказался внутри робота, переключившегося в боевой режим. Главный герой стремится попасть на свидание к своей любимой (   Читать дальше...   )Производство: Япония/ToshibaЖанр: Боевик, меха, фантастикаРежиссер: Арамаки СиндзиЯзык субтитров: Русский (отключаемый), Английский (отключаемый).Автор перевода - Костин ТимофейПродолжительность: 45мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EC543E482EE175E62E63CD75030E8B116DCBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341702   (919745) от 13.03.2020
-
-Dororo | Дороро [2019, TV, 24 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919745.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стране царит смута, и один из генералов жаждет во что бы то ни стало одержать победу в решающей битве, которая ни много ни мало сулит ему трон всей страны. Для этого он решается на страшный грех и заключает сделку с двенадцатью демонами: те помогают ему выиграть бой, а он за это отдаёт каждому из них одну из частей тела своего новорождённого сына. Обречённый на (   Читать дальше...   )Производство: MAPPA, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Фурухаси КадзухироОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 24 Эпизода по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD94BC5409492C93433AB0C3ED73EDCBF31EAF66
 ```
 
 https://mybot314.ru/tekegram_catalog/

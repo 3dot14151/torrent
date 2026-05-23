@@ -1,3 +1,55 @@
+###  Публикация: 1564411   (499595) от 19.07.2022
+
+Убийство в семье / Mord in der Familie - Der Zauberwurfel / Murder Squared (2021) WEBRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Томас Беккер, сын строительного магната Генри Беккера, застрелен в своей машине в первый день Нового года. Инспектор Барбара Фальк и коллега Кристиан Крамер в первую очередь подозревают, что убийство связано с обрушением дома-куба, амбициозного строительного проекта компании «Беккер и сын», которой руководит единокровный брат убитого Эрик БЕккер. В результате катастрофы (   Читать дальше...   )Производство: Германия / Rowboat Film- und FernsehproduktionЖанр: драма, криминал, детективРежиссер: Михаэль ШнайдерАктеры: Матиас Кеберлин, Хайнер Лаутербах, Лукас Грегорович, Петра Шмидт-Шаллер, Катарина Лоренц, Сабина Уинтерфелдт, Wolf Danny Homann, Jacob Speidel, Patrick Simons, Нино Порцио и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: Русские (отдельным файлом)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB852C6D1ECB250397BC0383B0CF15D25C887EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032306   (495646) от 18.09.2016
+
+Чёрная материя / Тёмная материя / Dark Matter (2016) WEB-DL, WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Заброшенный космический корабль. Шесть человек выходят из состояния стазиса и понимают, что все они потеряли память. Никто из героев не помнит собственного имени, а также того, как и с какой целью он оказался на борту. Каждый из членов экипажа имеет свои способности и навыки, которые, несмотря на амнезию, остались при них. И лишь объединившись в единую команду и (   Читать дальше...   )Производство: КанадаЖанр: фантастика, триллер, драмаРежиссер: Рон Мерфи, Т.Дж. Скотт, Паоло БарзменАктеры: Марк Бендавид, Мелисса О’Нил, Энтони Лемке, Алекс Маллари мл., Джоделль Ферланд, Роджер Р. Кросс, Зои Палмер, Дэвид Хьюлетт, Джессика Сайпос, Расселл Юэнь и др.Перевод: Многоголосый (BaibaKo)Язык озвучки: русский, английскийПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A1F32DD9E5EB804E20EDBF07D5F831FCF866A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404076   (494567) от 23.07.2022
 
 Игра слова / GameFace (2017) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) GreenРай Studio [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B0824D5455FCDB9007EBBFE6C03117973AC8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246428   (463047) от 10.09.2018
-
-Гений / Genius (2018) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) Jaskier [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был многоаспектным творцом, чьи творения невозможно классифицировать и подогнать под принятые стандарты. Двадцатый век часто называют эпохой разрушения границ, и он был одним из тех, кто их разрушал, перестраивал под себя, создавая собственную систему координат. Являясь основоположником кубизма, он не боялся экспериментировать в любом направлении, принося что-то (   Читать дальше...   )Производство: США / EUE / Sokolow, Fox 21 Television Studios, Imagine TelevisionЖанр: драма, биография, историяРежиссер: Кеннет Биллер, Джеймс Хоуз, Кевин ХуксАктеры: Антонио Бандерас, Максимилиан Бефорт, Поппи Делевинь, Эшлинг Франчози, Клеманс Поэзи, Алекс Рич, Себастьян Роше, Андреа Скардуцио, Роберт Шиэн, Маркус фон Линген и др.Перевод: Многоголосый закадровый, профессиональный (Jaskier)Субтитры: английскиеПродолжительность: ~00:50:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8584654389A94938740ACEA6377BA9D5E477DECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406814   (462021) от 09.09.2020
-
-Холландс Хоуп / Hollands Hoop (2014) HDRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальный психолог Фокке Аугустинус решает резко изменить свою жизнь и решить все семейные проблемы, переехав на загородную ферму, которая досталась ему в наследство от отца. Но, налаживая отношения с женой, Фокке столкнётся с куда более серьёзными проблемами: ферма была центром криминального бизнеса, который не собирается прекращать работу даже после смены хозяина.Производство: НидерландыЖанр: криминалРежиссер: Дана НехуштанАктеры: Марсель Хенсема, Ким ван Котен, Мартин Лэйкмейер, Megan de Kruijf, Amber Robin Berentsen, Питер Ван ден Бегин, Хадевих Минис, Синтия Абма, Никола Джурицко, Йап Спийкерс и д.р.Перевод: Двуголосый закадровый (ViruseProject)Продолжительность: ~00:50:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617A8198579BB529679DC80712732159689CDE70
 ```
 
 https://mybot314.ru/tekegram_catalog/

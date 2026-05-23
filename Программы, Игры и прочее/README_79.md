@@ -1,3 +1,83 @@
+###  Публикация: 1421184   (321900) от 03.11.2020
+
+Image Colorizer Pro v2.0.3 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Colorize Images - отличное приложение для всех кто ценит результативность и при этом своё время. Проект предлагает автоматический процесс колоризации чёрно-белых фотографий и прочих вариантов изображений в которых отсутствуют какие либо цвета, кроме базовых. Это позволяет не тратить огромное количество часов для правильного и аутентичного подбора палитры для того (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 8 сентября 2020 г.Разработчик: VertexshareПоддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C179F33E7149187AEAD8C6D1B4450E34229F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421210   (321777) от 03.11.2020
+
+Cookies Must Die v1.1.2 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Боритесь со злобным печеньем
+Возьмите под свой контроль Джейка, который был наделен особыми способностями, благодаря экспериментам ученым, и теперь он стал настоящим суперагентом. Смертоносное желе, печенье-мутанты, злые конфеты и другие опасные сладости сеют хаос и разруху в городе. Только Джейк, благодаря своим умениям, способностям и мощному оружию, сможет противостоять (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 27 октября 2020 г.Разработчик: Rebel TwinsПоддерживаемая ОС: Android 4.1 и вышеЖанр: Action (Экшен)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14055B557DF7439D0FB02C7E8F7141DC5FC40C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421220   (321671) от 03.11.2020
+
+Age of Civilizations II v1.014177-ELA [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Age of Civilizations II - интересная и захватывающая стратегия  для андроид устройств.
+Игра подарит вам уникальную возможность не только лицезреть историю всей эпохи становления человечества, но и поучаствовать в создании Великих Империй! Перед вами открывается невероятная возможность сыграть за одну из множества цивилизаций, от самой маленькой деревушки или племени, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 3 ноября 2020 г.Разработчик: Łukasz JakowskiПоддерживаемая ОС: Android 4.0 и вышеЖанр: Strategy (Стратегия)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816CA530708F6C9609077061E9038EF3DD9B69C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421226   (321541) от 03.11.2020
 
 Plants vs. Zombies™ Heroes v1.36.42 [Ru]
@@ -6,7 +86,7 @@ Plants vs. Zombies™ Heroes v1.36.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +140,7 @@ Who Are You, Mr. Cooper? v1.11 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +166,7 @@ Sky: Дети Света v0.11.2 (156351) [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +218,7 @@ En32 2018.728.1914.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +299,7 @@ MacroDroid - Device Automation PRO v4.9.2 [Ru/En] - Автоматизация �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +354,7 @@ Mandala ColoringBook v1.2 [Ru/Multi] - раскраска
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +380,7 @@ RocketENG v1.5.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +406,7 @@ Warlords of Aternum v1.11.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +433,7 @@ GPS Navigation & Offline Maps Sygic v18.7.14 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +459,7 @@ Brawl Stars v30.242 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +486,7 @@ Among Us v2020.10.22 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +540,7 @@ SignalCheck Pro v4.63 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +567,7 @@ FRONTLINE COMMANDO 2 v3.0.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +593,7 @@ Speak And Translate v3.1.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +619,7 @@ Automatic Call Recorder v6.09.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +645,7 @@ Photo Collage Editor v2.16 Ad-Free [En] - Фото коллаж редактор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +673,7 @@ AnyBalance+ 1.1.220 [Ru] Full
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,84 +687,6 @@ AnyBalance+ 1.1.220 [Ru] Full
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7393B55E22059F2123CE62D2BB6CB30F3E78193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422803   (305889) от 10.11.2020
-
-Plague Inc. v1.18.0 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plague Inc – Редко, когда мобильные проекты выходят за пределы своей платформы. Обычно такие игры — огромная редкость. И Plague Inc как раз отличный пример. В этой игре вам предстоит примерить на себя роль эдакого злодея или безумного ученого, создавшего новый вид вируса с целью уничтожить все человечество. Развитие вашего творения зависит только от вас. В игре очень (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 8 ноября 2020 г.Разработчик: Miniclip.comПоддерживаемая ОС: Android 4.1+Жанр: Strategy (Стратегия)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B5C29D352CAA951D532CA54180D18FA57539D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261114   (305047) от 10.11.2018
-
-Garmin: City Navigator South America 2019.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорожная карта Южной Америки для навигаторов Гармин.Тип издания: лицензияРелиз состоялся: октябрь 2018Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BD288A3D21DA725DB6983CD57E29C9CB5E2636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261122   (304858) от 10.11.2018
-
-Garmin: City Navigator Middle East and North Africa NT 2019.10 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорожная карта Ближнего Востока и Северной Африки для навигаторов Гармин.Тип издания: лицензияРелиз состоялся: октябрь 2018Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C8464450F17419250BA9913C0DFEDC481BF74C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1331372   (874017) от 09.04.2020
+
+Boku no Hero Academia (2019) / My Hero Academia Season 4 / Моя геройская академия [ТВ-4] [2019, TV, 25 ep] WEB-DL 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представьте на минуту, что законы физики на человека больше не действуют и можно обратиться в туман или уничтожить предмет одним касанием. И такими качествами обладают восемь человек из десяти. Кто-то использует свои способности во благо, а кто-то во зло! Нашлись те, кто не сумел побороть соблазн обойти закон, используя свои сверхспособности. Для мирового сообщества (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Нагасаки КэндзиЯзык озвучки: Японский и РусскийСубтитры: ASS, Встроенные, НадписиФормат: MKVПродолжительность: 25 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C775820625D3691E0F5782F746E4FC34588DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872767   (871292) от 26.02.2015
+
+Asura / Асура (2012) BDRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Родившись в тяжкие времена, во времена голода, боли, смерти и отчаянья, он сумел выжить лишь став зверем. Но теперь ему предстоит стать человеком - и путь этот будет куда сложнее, чем просто выжить средь руин целой страны.Производство: ЯпонияЖанр: приключения, драмаРежиссер: Сато КэйитиПродолжительность: 1 эп. по 75 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF776DA950F682C299F747EC2E0573F790B62859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374735   (870225) от 11.04.2020
+
+Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | Ты же любишь мамочку и её двойную атаку по нескольким целям? | Мамка-попаданка [2019, TV, 13 из 13] BDRip HEVC 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Масато Осуки — обычный старшеклассник, которого вдруг отправляют в игровой мир… да не одного, а со своей сексапильной и чрезмерно заботливой мамкой. Которая к тому же круче него по способностям. И за время путешествия ему предстоит наладить с ней отношения. Но это не так просто, как может показаться: Масато сейчас в том самом возрасте, когда дети стесняются дружить (   Читать дальше...   )Производство: Япония, студия J.C. StaffЖанр: исекай, приключенияРежиссер: Ивасаки ЁсиакиПеревод: SovetRomantica, FEFsubs; внутри контейнераЯзык озвучки: Русский закадровый (Wakanim.tv)Язык субтитров: Русский, EnglishПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8A29EE44D08BC2419816C5F9550FD83964ADDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998094   (869261) от 19.03.2016
 
 Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2011, TV, 12] BDRip 1080p Rus
@@ -6,7 +84,7 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фрукт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Akira | Акира [1988, MV] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Youjo Senki | Saga of Tanya the Evil | Военная Хроника Мален�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Gekijouban Youjo Senki | Saga of Tanya the Evil | Военная Хроника 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +399,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2004,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +425,7 @@ Bishoujo Senshi Sailor Moon S | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +451,7 @@ Bishoujo Senshi Sailor Moon Super S: Black Dream Hole | Красавица-Во�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +477,7 @@ Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +503,7 @@ Bishoujo Senshi Sailor Moon R | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +531,7 @@ Bishoujo Senshi Sailor Moon R: Promise Of The Rose | Красавица-Воин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +557,7 @@ Bishoujo Senshi Sailor Moon | Красавица-Воин Сейлор Мун [T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +583,7 @@ Bishoujo Senshi Sailor Moon Crystal | Pretty Guardian Sailor Moon Crystal | Кр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +661,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,84 +672,6 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D959545092DD34215379512C47B33766EB664B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378795   (844001) от 26.04.2020
-
-Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! | Я Сказала, Усредни Мои Способности! [2019, TV, 12 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844001.jpg" />
-</div>
-
-
-###  Подробнее
-
-В день, когда Адель фон Аскам исполнилось 10 лет, она вспомнила всё о своей прошлой жизни в качестве Мисато Курихары. Она была японской девушкой с выдающимися способностями, которой её таланты только мешали. Возвращаясь с выпускного, Мисато погибла, спасая маленькую девочку. На небесах она встретила Бога, который предложил ей прожить ещё одну жизнь, но в параллельном (   Читать дальше...   )Производство: Project No.9, ЯпонияЖанр: Приключения, Комедия, фэнтезиРежиссер: Ота МасахикоОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39A3898CE283E25E48098ECD22597956F0E28E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378840   (844000) от 26.04.2020
-
-Гордость убийцы | Assassins Pride [2019, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в мире, где представители благородных семейств (и только они) владеют маной, при помощи которой могут сражаться с монстрами. Юноша по имени Куфа, рождённый в семье герцога, получает задание стать наставником девушки из древнего рода паладинов по имени Мерида и выявить её до сих пор не раскрывшиеся таланты по управлению маной. Впрочем, есть (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: приключения, фэнтезиРежиссер: Айура КадзуяЯзык озвучки: Русский закадровый (AniLibria.tv), (SHIZA Project)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:463505D6E9744250AB4EA1EBCC3E08A4615DB9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378797   (843999) от 26.04.2020
-
-Dumbbell Nan Kilo Moteru? | Насколько Тяжёлые Гантели ты Сможешь Поднять? [2019, TV, 12 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь: Хибики Сакура — ничем не примечательная старшеклассница, которая очень сильно любит поесть. Её лучшая подруга — Аяка Уэхара, которая в один не прекрасный для Хибики день замечает, что та набрала вес. Неприятные новости приводят девушку к мысли о том, что нужно садиться на диету, но... не с аппетитом Сакуры! А потому героиня отправляется в спортивный (   Читать дальше...   )Производство: Dogakobo, ЯпонияЖанр: Комедия, СпортРежиссер: Ямадзаки МицуэОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EBE7291247F1812E213878EC1F53D4AA6ED28A
 ```
 
 https://mybot314.ru/tekegram_catalog/

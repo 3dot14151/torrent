@@ -1,3 +1,30 @@
+###  Публикация: 1307972   (554279) от 12.06.2019
+
+Ginga Eiyuu Densetsu | Legend of the Galactic Heroes | Легенда о героях Галактики OVA-1 [1988, OVA, 110 эп.] BDRip 720p Hi10p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Легенда о героях Галактики» представляет собой экранизацию цикла романов популярного писателя-фантаста Ёсики Танаки. История человечества всегда была историей войн, во все времена, во все эпохи. И во все эпохи находятся люди, оставляющие след в истории, чьи имена выжжены на ее скрижалях. Этих людей называют героями, и их судьба - изменить мир. Сюжет переносит нас (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастика, драмаРежиссер: Исигуро НоборуПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Одноголосая, студияПродолжительность: 110 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C292A956B98ADEC16118DDAF3CD4A2906A8D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 815803   (551151) от 24.08.2014
 
 Noragami / Бездомный бог [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
@@ -6,7 +33,7 @@ Noragami / Бездомный бог [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +59,7 @@ Maken-ki! Two / Макен-Ки! 2 [2014, TV, 10 ep] BDRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +85,7 @@ Fairy Tail / Сказка о Хвосте феи [2009, TV, 175 из 175] DTV 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +111,7 @@ Isekai no Seikishi Monogatari / Saint Knight Story in an Alternate World / Ин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +139,7 @@ Mikakunin de Shinkoukei / Engaged to the Unidentified / Помолвлена с 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +165,7 @@ Shingeki no Kyojin Season 3 / Attack on Titan / Атака титанов [ТВ-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +191,7 @@ One Punch Man 2nd Season / Ванпанчмен [ТВ-2] [2019, TV, 12 из 12] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +217,7 @@ Kill la Kill / Крошить-кромсать [2013, TV, 24 ep] BDRip Hi10p 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +243,7 @@ Darling in the Franxx / Возлюбленный во «ФранКс» [2018, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +269,7 @@ Yowamushi Pedal: Glory Line / Трусливый велосипедист: Че�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +295,7 @@ Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +321,7 @@ Aldnoah.Zero / Алдноа.Зеро (ТВ-2) [2015, TV, 12 ep] BDRip Hi10p 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +348,7 @@ Soredemo Sekai wa Utsukushii / SoreSeka / И всё-таки мир прекра
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +375,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +401,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +427,7 @@ Asa Made Jugyo Chu! / С утра и до заката мы учимся раз�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +453,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +479,7 @@ Toji no Miko / Katana Maidens / Жрицы с мечами [2018, TV, 24 ep] WEB
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +505,7 @@ Suzumiya Haruhi no Shoushitsu / The Disappearance of Haruhi Suzumiya / Исче�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +531,7 @@ Re: Zero kara Hajimeru Isekai Seikatsu / Re: Жизнь в альтернати�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +557,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +583,7 @@ Taboo-Tattoo / Запретная татуировка [2016, TV, 12] HDTV 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +609,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +635,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / По велен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -635,7 +662,7 @@ Saikin, Imouto no Yousu ga Chotto Okashiinda ga. / ImoCho / Сейчас моя 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,33 +673,6 @@ Saikin, Imouto no Yousu ga Chotto Okashiinda ga. / ImoCho / Сейчас моя 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59DC070F03DB47850E35B9A96955994708E13ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941346   (461583) от 27.09.2015
-
-Hyakka Ryouran: Samurai Bride / Буйство цветов (ТВ-2): Самурай невеста [2013, TV, 12 ep + 6 SP] BDRip Hi10p 720p Raw+Rus x2(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой воин Мунэакира вместе с подругой детства принцессой Сэн, бунтовщицей Юкимурой и таинственной Дзюбэй спасли Великую Японию от возрождения жуткого чернокнижника Сиро Амакусы. Помогли не сколько фамильные приемы школы Ягю, сколько способность парня своим поцелуем превращать любую девушку в грозного мастера-самурая. Увы, как часто бывает, всю славу присвоил себе (   Читать дальше...   )Жанр: приключения, боевые искусства, эттиРежиссер: Сидзуно КобунПеревод: Русские субтитры от YakuSub Studio
-Переводчики: @sh, Nika_Elrik, Редакторы: SapogaN, Sharingan, Оформление: KeeperRusСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов и 6 спэшлов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CEDC6F402CF88434C902D01884301C88C2E1FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 623001   (43641) от 14.09.2024
+
+Spyro 2: Ripto’s Rage! (1999) [Ru] (2.0) Repack Ma2012ks
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры продолжает события первой части. Дракон Спайро и его приятель - стрекоза Спаркс - попадают из родных Драконьих миров, где происходило действие "Spyro the Dragon", в иную реальность - вселенную под названием Авалар (удалённое фантастическое королевство). Она подверглась нападению могущественного чародея по имени Рипто, пытающегося покорить Авалар (   Читать дальше...   )Тип издания: RepackРазработчик: Insomniac GamesЖанр: Платформер, Аркада, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174404233873119B1AD6D6F5B87F8C03C5365696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749501   (43613) от 14.09.2024
 
 Far Cry (2004) [Ru/En] (1.04) Repack dixen18
@@ -6,7 +32,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Bully (2008) [Ru/En] (1.2) Repack R.G. Catalyst [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ FlatOut: Ultimate Carnage (2008) [Ru/Multi] (1.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Overlord: Raising Hell (2007) [Ru] (1.4/dlc) Repack ArchangeL
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Far Cry: BMS Russian Weapons Pak (2023) [Ru] (1.1) Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Aliens vs Predator Антология [Ru/En] (RePack) 1999-2002 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ UberSoldier / Восточный фронт: Неизвестная война (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Descent II (1996) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Turok 2: Seeds of Evil (1998) [Ru/En] (1.4) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Oni (2001) [Ru] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B5CC85B89C7D6B0961C19BEB995A57B7B954A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759009   (37825) от 09.11.2024
-
-Lula 3D (2006) [Ru/En] (1.0) Unofficial
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лула, соблазнительная пышногрудая блондинка, продюсер эротического фильма, попала в затруднительное положение. Прямо перед съемками её нового шедевра - трое близняшек-звёзд, которые должны были исполнять главные роли, похитили из их роскошных апартаментов в Беверли-Хиллз. На месте преступления Лула находит подозрительный спичечный коробок с логотипом одного из клубов (   Читать дальше...   )Тип издания: UnofficialРазработчик: RedFire SoftwareЖанр: ПриключенияЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
 ```
 
 https://mybot314.ru/tekegram_catalog/

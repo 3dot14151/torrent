@@ -1,3 +1,82 @@
+###  Публикация: 1582890   (315838) от 12.10.2022
+
+Wingfox, Nikolay Naydenov | Dragon Rider - Cartoon 3D Character Creation Course in Blender (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе для пользователей Blender среднего уровня мы создадим этих персонажей, концепцию великого художника Tooth Wu, полностью и только в Blender. Мы поговорим о множестве вещей, которые могут повлиять на сознание 3D-художника персонажей во время скульптинга, моделирования, раскрашивания и рендеринга.Производство: WingfoxЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 19:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE6B010C453FAE0D7E85D3531C1EC6A99919230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332305   (315830) от 19.10.2019
+
+Blender Cloud | Создание мультипликационного персонажа в Blender / Toon Character Workflow (2016) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы исследуем различные аспекты мультяшного шейдинга, начиная от концепт-арта и заканчивая рендерингом. Мы изучим, какие персонажи будут работать, какие цвета выбрать для вашего шейдинга, и какая анимация возможна.
+Концепт-арт, моделирование, риггинг, шейдинг, анимацию и рендеринг будет объяснять Dillon Gu, создатель Katsu Cats.Производство: Blender CloudЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B78803E3A755DA62DED482D7428FA22A3F6009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421848   (315056) от 06.11.2020
+
+Udemy, Mrawan Hussain | Создание маленького K-2SO робота в Blender 2.83 и Substance Painter 2020 / Blender: Create the Tiny K-2SO Star Wars Robot (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс по созданию робота K-2SO из Звёздных Войн, в этом курсе вы узнаете, как моделировать, создавать UV развёртку и добавлять реалистичный материал в ваш проект. В конце курса мы сделаем финальный рендер в Cycles.Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 12:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95A8DD044E96993055027003D5F91B5B58B0A25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421765   (314792) от 06.11.2020
 
 [CGMA] Ben Erdt | Hard Surface Modeling for Characters (2019) PCRec [EN, RU]
@@ -6,7 +85,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Blender Cloud | Создание игровых ассетов в Blender / Game
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Blender Cloud | Моушн графика в Blender / Blender Motion Graphics (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +166,7 @@ CG Fast Track | Полигональное моделирование в Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +195,7 @@ Jan Urschel | Мегасити 01 - Моделирование и Рендери
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +222,7 @@ CG Cookie | Генеративное Моделирование и Дизайн 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +249,7 @@ Jan Urschel | Интерьерное освещение - Футуристичн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +276,7 @@ Skillbox, Логомашина | Дизайнер логотипа и фирме
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -226,7 +305,7 @@ Skillbox | Веб-дизайн с нуля до PRO (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -252,7 +331,7 @@ AIC, Skillbox, Tagline | Три дизайн-курса в одном - UX-ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -278,7 +357,7 @@ Skillbox | After Effects с нуля до PRO (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +386,7 @@ ArtCraft | Цифровой Рисунок Online (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -336,7 +415,7 @@ XYZ School, Антон Агеев | Мастер-Класс. Создание м
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -364,7 +443,7 @@ Skillbox | Графический дизайнер с нуля до PRO (2020) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -391,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,7 +498,7 @@ XYZ School, Женя Пак | Hard Surface Lite (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +526,7 @@ Skillbox | Рекламная графика с нуля до PRO (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +553,7 @@ Lynda, Darrin Lile | Архитектурная визуализация в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +606,7 @@ Udemy, Narayana Walters | Как делать стилизованную пло�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +632,7 @@ HTML Academy | Интенсивный онлайн-курс «Продвинут
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +658,7 @@ Digital-Tutors | UV Mapping Workflows in Blender (2015) PCRec [H.264/720p-LQ] [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +686,7 @@ Blender Cloud | Улучшенный Риггинг в Blender / Advanced Riggin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,85 +698,6 @@ BlenRig 5 это система авто-риггинга и скиннинга 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9621CDF277B453BBD20F103043F85BAF2F10F6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335467   (287354) от 02.11.2019
-
-Blender Cloud | Спидскульптинг в Blender 2.8 / Speed Sculpting (2019) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот семинар состоит из видео, где Julien Kaspar объясняет свой процесс скульптинга в Blender, описывает проблемы с которыми он столкнулся и рассказывает как он их преодолел.Производство: Blender CloudЖанр: 3D моделирование, СкульптингПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB81BAD34007DAEA8B7A07A1F055CDF08CBF16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335436   (287350) от 02.11.2019
-
-Blender Cloud | Основы Анимации в Blender 2.8 / Animation Fundamentals (2019) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели начать работу с анимацией персонажей? С помощью Blender?
-Команда аниматоров студии Blender Animation Studio подготовила курс "учись на примере", который постепенно познакомит вас с основными принципами анимации персонажей, начиная от простого прыгающего мяча и заканчивая полнофункциональной анимацией персонажа.Производство: Blender CloudЖанр: 3D моделирование, АнимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 07:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D3B7E2F8A314FB9CF1638E1058FF8E807397E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335456   (287346) от 02.11.2019
-
-Blender Cloud | Основы Grease Pencil в Blender 2.8 / Grease Pencil Fundamentals (2019) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender 2.8 имеет совершенно новый набор инструментов 2D-рисования и анимации. Овладейте Grease Pencil благодаря этому курсу.Производство: Blender CloudЖанр: 2D анимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26660C28A363FE14D016E7612C7F92B2BDB3F097
 ```
 
 https://mybot314.ru/tekegram_catalog/

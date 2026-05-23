@@ -1,3 +1,30 @@
+###  Публикация: 1007068   (669744) от 02.07.2016
+
+Mayoiga / The Lost Village / Пристанище потерянных [2016, TV, 12] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа из тридцати человек вместе садится на автобусный тур. Их пункт назначения — покрытая тайной и, возможно, даже не существующая деревенька Нанакимура. В этой деревне обещано утопическое существование, свободное от шор бренного мира... по крайней мере, таковы слухи.
+Автобус направляется глубоко в горы, увозя с собой тридцать молодых парней и девушек, в сердцах (   Читать дальше...   )Производство: Япония, Studio Barcelona / ディオメディアЖанр: ПриключенияРежиссер: Мидзусима ЦутомуПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5324D70DDD5EF39FAC1E0F3AAC1848A078FB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 886386   (668808) от 25.05.2017
 
 Re-Kan! / Ре-Кан! [2015, TV, 13] HDTV 720p rus
@@ -6,7 +33,7 @@ Re-Kan! / Ре-Кан! [2015, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +59,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? / А ты думал, что дев
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +85,7 @@ Gake no ue no Ponyo / Рыбка Поньо на утесе [2008] BDRip 720p ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +112,7 @@ Ao no Exorcist: Kyoto Fujouou Hen / Синий Экзорцист: Нечест�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +139,7 @@ Mitsuboshi Colors / Трехцветные звездочки [2018, TV, 12 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +165,7 @@ Slow Start / Медленный старт [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +191,7 @@ Ansatsu Kyoushitsu: Second Season / Assassination Classroom: Second Season / К�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +217,7 @@ Garo: Guren no Tsuki / Garo: Crimson Moon / Гаро: Кровавая луна 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +243,7 @@ Rescue Me! / Возьми меня! [2013, OVA, 1ep] BDrip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +270,7 @@ Hai-Furi / Haifuri / High School Fleet / Морская школа [2016, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +296,7 @@ Kiznaiver / Кизнайвер [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +322,7 @@ Koutetsujou no Kabaneri / Kabaneri of the Iron Fortress / Кабанери из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +348,7 @@ Sword Art Online: Alicization / Мастера меча онлайн: Алиси
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +374,7 @@ Seisen Cerberus / Шестой Цербер [2016, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +400,7 @@ Hunter x Hunter / Охотник х Охотник [TV-2] [2011, TV, 1-136 из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +431,7 @@ VIPER'S CREED / Змеиное кредо [2009, TV, 12] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +458,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +510,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +536,7 @@ High School DxD Hero | Демоны старшей школы 4 [2018, TV, 13] H
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +562,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi / Мастерска
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +590,7 @@ Kurogane no Linebarrels / Linebarrels of Iron / Стальные Лайнбар�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +616,7 @@ Shinsekai Yori / From the New World / Из Нового Мира [2012, TV, 25 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -617,7 +644,7 @@ Busou Shoujo Machiavellianism / Armed Girl's Machiavellism / Тирания во
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +670,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records / Акашийские хрон�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -654,32 +681,6 @@ Roku de Nashi Majutsu Koushi to Akashic Records / Акашийские хрон�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2021A145BA40C959932815EF9C873039CE2D48B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281322   (619926) от 12.04.2019
-
-Yakusoku no Neverland / The Promised Neverland / Обещанный Неверленд [2019, TV, 12 ep] WEB-DL 720p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619926.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приюте «Грейс Филд» под чутким взором «Матери» живут трое подростков — Эмма, Норман и Рэй. Окружённые младшими братьями и сёстрами они не знают бед и невзгод. Но в одну ночь их идиллия оборачивается кошмаром. Они считали приют раем. Но теперь, когда они знают правду, у них остался один выход: сбежать или... умереть!Жанр: приключения, фантастика, драмаРежиссер: Камбэ МаморуЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35C90B5699E248FE00CCE5A8495864D8DCA596C
 ```
 
 https://mybot314.ru/tekegram_catalog/

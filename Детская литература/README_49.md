@@ -1,109 +1,3 @@
-###  Публикация: 451132   (798088) от 06.11.2021
-
-Анатолий Маркуша | Дороге нет конца (1963) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великое дело - дороги и встречи. Двадцать пять лет я в пути: земля, небо, море, горы, пустыня, и всюду — человек, всюду — люди! Люди, для которых сияет солнце и поют веселые птицы и улыбаются пушистые облака; люди, которых. нельзя остановить, согнуть, уничтожить, потому что они в дороге, ведущей в будущее, а такой дороге пет и не может быть конца... Вот обо всем (   Читать дальше...   )Жанр: Детская литература, путешествияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBC75B91E70DC2708DE53E9FFCD0F9752A2947A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508207   (798000) от 07.11.2021
-
-Гидеон Стерер | Ночные рыцари (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая и атмосферная сказка о том, что ночью не надо бояться чудищ, ведь ночные рыцари всегда начеку.
-Книга начинается с заката: солнце садится, и мальчик волн волнуется из-за наступления темноты, призывая ночных рыцарей. Каждый дом превращается в замок, на страже которого встают смелые рыцари, лучники, капитаны и волшебные существа. У них одна цель — защитить (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D46A6EC1FB575B4767279B440259B60D1297CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508218   (797994) от 07.11.2021
-
-Энн Мэри Хауэлл | Дом с сотней часов (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хелена знала, что уезжать из Лондона – не лучшая идея. Но она и не представляла, какое испытание ждёт её семью. Отец девочки устроился в дом мистера Уэсткотта хранителем часов и подписал ужасный договор: если хоть одни часы остановятся, то их семья потеряет всё своё имущество! Кто же знал, что часов в доме больше сотни?! Хелена не понимает, почему мистер Уэсткотт (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Е.Ю. РыбаковаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E185E0F666BBF3FFC7411381E0AF2E3FEEE2C332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508192   (797992) от 07.11.2021
-
-Алекс Астер | Остров эмблем. Проклятие Ночной Ведьмы. Книга 1 (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797992.jpg" />
-</div>
-
-
-###  Подробнее
-
-На острове Эмблем все люди с рождения знают свою судьбу. Линии жизни на ладонях людей показывают ход их жизни, а разноцветные символы, проступающие на запястьях, указывают будущую судьбу и профессию.
-12-летний Тор Луна, сын правительницы города, родился с эмблемой лидера. Это означает, что в будущем он унаследует власть над городом. Но Тор ненавидит свою судьбу. (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: А.В. ЗахаровФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505BF6EAEA278732FD1F67E48EDEC3C3B850BA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450225   (797942) от 07.11.2021
 
 Юрий Коваль | Пять похищенных монахов (2010) [PDF]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -637,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -663,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -675,6 +569,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD07101E1E34E662529D492172B0AB9703FB01A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386086   (796057) от 27.05.2020
+
+А.И. Плюснин (сост.) | Молитвослов для детей (2012) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Красочно иллюстрированный молитвослов для детей.
+
+Молитва к Божией Матери
+Достойно есть яко воистину блажити Тя, Богородицу, присноблаженную и пренепорочную, и Матерь Бога нашего. Честнейшую Херувим и славнейшую без сравнения Серафим, без истления Бога Слова рождшую, сущую Богородицу Тя величаем.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9CCAF26A8B78CCC5F781EC38FF85698B4F5FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386081   (795978) от 27.05.2020
+
+Джон Клопфер | Истребители зомби (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вечеринка с ночевкой у Зака Кларка оборачивается первостатейным кошмаром: ни с того ни с сего в округе начинается зомби-апокалипсис. И вскоре охватывает всю страну!
+Заку с его лучшим другом-ботаником Райсом и школьной королевой гламура Мэдисон предстоит непростая миссия. Оказывается, именно они должны спасти мир от восставших мертвецов – любителей полакомиться чужими (   Читать дальше...   )Жанр: Фантастика, Приключения для детейПеревод: Анастасия ФомичёваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D533113FC0751D5DEED8F9922FEBDB8863EB939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386083   (795921) от 27.05.2020
+
+Джон Клопфер | Истребители зомби. От винта! (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Зак Кларк с лучшим другом Райсом пережили Ночь живых мертвецов – и это прекрасная новость.
+Новость гораздо хуже: от зомби им все равно не скрыться. Целая страна охвачена эпидемией. Нечисть повсюду. Единственный шанс нации на спасение – Мэдисон, королева средней школы и ходячий антидот. И одной ее на всех не хватит!
+Но у ребят есть новый друг Оззи, настоящий ниндзя. (   Читать дальше...   )Жанр: Фантастика, Приключения для детейПеревод: Анастасия ИвановаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBE381AB969548F873AF33898530A9A99CBA18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386079   (795916) от 27.05.2020
+
+Макс Брэльер | Последние подростки на Земле (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С тех пор, как в городе начался Монстр-Апокалипсис, тринадцатилетний подросток Джек Салливан живет в укрепленном домике на дереве. Но ему одному не справиться с ордами зомби, Крылатых Мерзостей, Бульдозеров и особенно – с необычайно умным монстром, известным как Гррыгх. Поэтому Джек собирает команду: его лучший друг-умник Квинт, бывший школьный хулиган Дирк, верный (   Читать дальше...   )Жанр: Фантастика, Приключения для детейПеревод: Виктория ГорпинкоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C23942F880377CCF75E59327D81C91E00AF391
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1136121   (676484) от 21.05.2017
+
+Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Old Man’s Journey - это приключенческая игра с головоломками и внутренним поиском, рассказывающая историю о жизни, потере, примирении и надежде. Войдите в прекрасный и солнечный рукотворный мир, а затем отправляйтесь в настоящее путешествие, наполненное веселыми и ненавязчивыми головоломками. Графический рассказ о самых важных моментах жизни, разбитых мечтах и меняющихся (   Читать дальше...   )Тип издания: LicenseРазработчик: Broken RulesЖанр: Adventure, Indie, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9340B850B23568A541C4D398183C5E5C9201BBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136154   (676178) от 21.05.2017
+
+Old Man's Journey (2017) [Ru/Multi] (1.0.0) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Old Man’s Journey - это приключенческая игра с головоломками и внутренним поиском, рассказывающая историю о жизни, потере, примирении и надежде. Войдите в прекрасный и солнечный рукотворный мир, а затем отправляйтесь в настоящее путешествие, наполненное веселыми и ненавязчивыми головоломками. Графический рассказ о самых важных моментах жизни, разбитых мечтах и меняющихся (   Читать дальше...   )Тип издания: RepackРазработчик: Broken RulesЖанр: Adventure, Indie, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAAB4BB9B45CB86821ED3530DDEA0C3B7D3DDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030203   (675703) от 29.06.2016
+
+Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Ара Круз - блестящий журналист, которая оказывается в заброшенном особняке, который просто овеян ореолом таинственных, внезапных исчезновений. По мере того, как она будет пытаться выбраться из этого проклятого места, ей придется столкнуться с множеством опасностей. Сможет ли она выбраться и взорвать обложки газет сенсационными новостями, либо же количество бесследно (   Читать дальше...   )Тип издания: LicenseРазработчик: 7 Seals StudioЖанр: Adventure, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAF96669B1AA09B05FCE4387ADF5917B4C5AFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007398   (671552) от 01.07.2016
+
+Everybody's Gone to the Rapture / Хроники последних дней (2016) [Ru/Multi] (1.01) License CODEX
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Конец света произошел 37 минут назад. Пора начинать...Тип издания: LicenseРазработчик: thechineseroom и SCE Santa MonicaЖанр: Adventure, 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21D86323D3CC91E674CEB2BEE36C5BF58DAC6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223730   (671211) от 06.05.2018
 
 D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
@@ -6,7 +110,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Late Shift (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sound of Drop - fall into poison (2015) [Ru/Multi] (1.0) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Awakened (2016) [En/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Awakened (2016) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Full Throttle Remastered (2017) [Ru/En] (1.1.879806) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Subaeria (2018) [Multi] (2.0.46r) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Contrast (2013) [Ru/En] (11736) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Subaeria (2018) [Multi] (2.0.46r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Lake Ridden (2018) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Black Dahlia (1998) [En] (1.10) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Dreamfall Chapters (2014-2016) [Ru/Multi] (5.4.1.1) License GOG [Special Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +656,7 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,110 +667,6 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07BE907C263B50489E0279F9542A5040A2BFB7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139818   (658556) от 03.06.2017
-
-Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всегда ли мы точно знаем куда везет нас поезд метро? Куда бы он нас ни вез, но маршрут мы выбираем сами. Обыкновенный путь домой превращается для героя этой истории в череду необычных приключений.Тип издания: RepackРазработчик: Lama14KulanЖанр: Adventure (Puzzle), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56481E06840157619BEC706E433F272F0DABBB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139848   (658551) от 03.06.2017
-
-RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури.Тип издания: RepackРазработчик: Tequila Works, QLOCЖанр: Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAEFC829CA39782D717674B4D906B09F7032E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225775   (658473) от 17.05.2018
-
-Asemblance: Oversight (2018) [En] (1.01) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asemblance: Oversight - это игра-исследование с элементами головоломки от первого лица. Вы являетесь частью команды ученых и инженеров, которым поручено использовать секретную технологию, помогающую воссоздать человеческий разум. Ваш успех основан на распутывании правды, связанной с истоками этой странной технологии.Тип издания: LicenseРазработчик: Nilo StudiosЖанр: Adventure, Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956833F9A596551463B5AC77ED72B2D942FCF57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225943   (657429) от 18.05.2018
-
-AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы задумывались когда-нибудь, как выглядит мир глазами муравья? AntVentor - это первая короткая глава из серии игр «AntTrilogy» о муравье и его необычных приключениях в фотореалистичном макромире.Тип издания: LicenseРазработчик: LoopyMoodЖанр: Adventure, Casual, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52789669DE0E5D47E11D92ECCC41FE5849DA457
 ```
 
 https://mybot314.ru/tekegram_catalog/

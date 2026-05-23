@@ -1,3 +1,88 @@
+###  Публикация: 1530492   (728802) от 11.02.2022
+
+Фенрир для ВКонтакте v2.77 [Ru/En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кастомный ВК клиент Фенрир для андроид. Поддерживает прослушивание музыки,
+Подсказка стикеров, истории, аудио каталог и т.д.Тип издания: OriginalРелиз состоялся: 10 февраля 2022 г.Разработчик: fenrir_lintПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19651605AB02624487A660A404BA2ADE9CEAAB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530572   (728695) от 11.02.2022
+
+Erectile Dysfunction Cure Yoga v6.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Почему вы должны использовать Йога для лечения ЭД - держать эрекцию надолго?
+1. Чувствуете ли вы себя меньше мужчиной, неадекватным, тревожным, стрессовым и избегаете своего партнера?
+2. Вы паникуете во время полового акта и бежите из этой ситуации?
+3. Вы устали от низкой уверенности и нуждаетесь в постоянном решении?(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 2 февраля 2022 г.Разработчик: Dr. Zio - Yoga TeacherПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5261956A68E510E109564014DD88E65DC4D4603C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990238   (728077) от 02.06.2016
+
+Техэксперт: ГОСТы, СНиПы, СП v1.0.1.56 [Ru] - Строителю, проектировщику, стандартизатору, метрологу, энергетику, специалисту в области безопасности и охраны труда
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ТЕХЭКСПЕРТ позволит Вам работать с более чем 17 000 000 актуальных и постоянно обновляемых документов, включая ГОСТ, ГОСТ Р, ПБ, СП, РД, СНиП и др.
+• Держите под рукой самые актуальные ГОСТы и технические регламенты как в полнотексте, так и в виде сканер-копий
+• Используйте интеллектуальный поиск и удобную навигацию, чтобы быстро найти нужный документ
+• Сохраняйте (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 31.05.2016Разработчик: KODEKS ZAOПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10176C36CEDC0E19C3A8BB5E7317AF5EEE5754FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530808   (727622) от 12.02.2022
 
 Учить английский: Читать книги v1.0.11 [Ru]
@@ -6,7 +91,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +171,7 @@ RawBT служба печати v5.52.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +200,7 @@ iHeart: #1 for Radio, Podcasts v10.12.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +254,7 @@ Onkyo HF Player v2.9.1 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +280,7 @@ Runtastic PRO GPS Бег и фитнес v6.8.1 [Ru/Multi] - GPS трекер, �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +306,7 @@ Terabox: облачное хранилище v2.10.3 Premium MegaMod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +332,7 @@ Month: виджет календаря 2.9.16.5.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +386,7 @@ Legs Workout and Exercises v1.3.31 [Ru/Multi] - Комплекс упражне�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +412,7 @@ Butt Workout v1.3.31 [Ru/Multi] - Тренировка Ягодиц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +438,7 @@ Chest Workout v2.4.31 [Ru/Multi] - Тренировка грудных мышц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +490,7 @@ DigiSender TV Launcher 2.6.3 RU [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +516,7 @@ GlassWire для Android (Data Usage Privacy) 1.0.50r [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +542,7 @@ Balance BY Pro 6.0.203 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +568,7 @@ Talking Tom Gold Run 1.0.1.561 Mod [Infinite Gold Bars] [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +594,7 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +646,7 @@ CamMove  - фоторегистратор из телефона (2014) <Ru>
 >>ПО и Игры на Java
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +672,7 @@ AutoBoy v3.5.1 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,84 +683,6 @@ AutoBoy v3.5.1 AdFree [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F14E504E03168C7E1F4DE896E059BF93F0ACC234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130355   (715878) от 01.05.2017
-
-Электрик v2.0 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель игры - соединить все лампочки с аккумуляторами. Коснитесь экрана чтобы повернуть участок цепи. Участки,подсоедиенные к аккумуляторам подсвечиваются. Для некоторых больших игровых полей	доступно масштабирование. Для масштабирования используйте щипок пальцами, точно так же, как и в стандартной галерее изображений Android. Используйте меню для выбора уровня сложности, (   Читать дальше...   )Тип издания: Пиратка (Разблокированы уровни)Релиз состоялся: 10.05.2015Разработчик: Gennady KulabukhovПоддерживаемая ОС: Android (версия зависит от устройства)Жанр: ГоловоломкиЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9308039303C40526FB711B18AC797E93F8FC886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019635   (715874) от 01.05.2017
-
-MScopesPro for USB Camera v1.28 [En/Rus] - запись видео с внешней веб камеры
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715874.jpg" />
-</div>
-
-
-###  Подробнее
-
-MScopes или MScopesPro позволяет пользователям просматривать, снимать фотографии и записывать видео на USB-видеокамеры на основе цифровых микроскопов, эндоскопов (не медицинский), бороскопы, цифровые видеокамеры или веб-камеры, подключенные к смартфону или планшету через порт USB. Для камер с соединителем типа-A, также OTG кабель  необходим для соединения с microUSB (   Читать дальше...   )Тип издания: Пиратка (Pro с Маркета)Релиз состоялся: 30.04.2017Разработчик: ZyeproПоддерживаемая ОС: Android 4.3+Язык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6DF97A9F395B4E4AE661517D38CF06955B3D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443159   (714408) от 19.02.2022
-
-Окружающие звуки - Звуки природы для сна v2.8.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобное приложение для формирования ощущений окружающей среды за счёт воспроизведения определённых звуков и их комбинаций. Доступные звуки разбиты по категориям для удобства выбора. Звуки океана, сельской местности, города, сада Дзэн и многие другие. Вы можете смешать много звуков природы, музыки и восточные звуки, чтобы получить ваш идеальный успокаивающую (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 17.02.2022Разработчик: mikdroidПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA9864BBA46FD093B4C2218DD9A8D1690E7C1D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

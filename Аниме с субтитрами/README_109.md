@@ -1,3 +1,107 @@
+###  Публикация: 1499430   (147750) от 24.12.2021
+
+Selection Project / Отборочный проект [2021, TV, 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ежегодное шоу «Отборочный проект» — превосходная возможность для молодых девушек, желающих стать знаменитыми, показать свои таланты. Именно с этого проекта легендарный идол Акари Амазава начала свой звездный путь. Выступать на сцене в качестве идола — заветная мечта Сузуне Миямы. Все детство девочка провела в больнице, и только прекрасный голос Акари давал ей надежду (   Читать дальше...   )Жанр: повседневность, музыкальныйРежиссер: Хирамаки ДайсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC70EE5E9F99113D74DE4564EF2D17E24A82DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501010   (147614) от 24.12.2021
+
+Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В далёком будущем люди были изгнаны в подземный мир под названием Лабиринт. В Лабиринте есть несколько колоний с разными условиями: например, одна с безумно высокой температурой, а другая — с залежами золота и серебра. В колонии Пиньинь проживают любопытная девятилетняя девочка по имени Меменпу и её отец Гагамба. Гагамба — «рабочий» с самой низкооплачиваемой профессией: (   Читать дальше...   )Производство: студия Satelight / サテライトЖанр: приключения, фантастикаРежиссер: Вада ДзюнъитиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F026AE587951F3F08D0C505D006E71D8EE7D105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710668   (147529) от 27.12.2013
+
+Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita. / YuShibu. / Героем я не стал, так что пришлось искать работу. [2013, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в фэнтезийном мире, где на далеком севере лежат земли, в которых правит Король Демонов. Воспитание и обучение героев в этом мире поставлено на поток: имеющий геройские задатки молодняк поступает на специальные курсы, после окончания которых сдает госэкзамен и, в случая набора проходного балла, отправляется прямиком на север – сражаться с демонами. Подающий надежды герой Рауль Чейзер, лучший студент своего курса, изо всех сил готовится к экзамену и… обламывается. Оказывается, один из героев оказался достаточно умел и удачлив, чтобы одолеть самого Короля Демонов, а значит, весь институт героев больше не нужен, и курсы закрываются. В условиях экономического спада и безработицы, вызванной окончанием войны, Рауль, чья романтическая мечта оказалась разбита и растоптана, вынужден искать настоящую работу. В результате длительных поисков ему удается устроиться продавцом в маленький магазинчик магических товаров. В один прекрасный день в этот же магазинчик своё резюме приносит девушка по имени Фино Бладстоун, (   Читать дальше...   )Жанр: комедия, эттиРежиссер: Ёсимото КиндзиПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F97AC04BA28F65DAA259FD364402E2FBC8D885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414443   (147323) от 26.12.2020
+
+Kuma Kuma Kuma Bear / Ми-ми-ми-мишка [2020, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юна — 15-летняя девушка, заработавшая миллиарды иен на бирже и теперь ведущая жизнь хикикомори. Особенно ей нравится первая в мире VRMMORPG — World Fantasy Online. После глобального обновления игры она как пользователь, проведший в игре особенно много часов, получает очень редкий костюм медведя. Однако надев его, вместо игры Юна оказывается в глухом лесу. Теперь (   Читать дальше...   )Жанр: комедияРежиссер: Нобута ЮЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A57816B8419BB9469AC114F8FDD74E07420DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415846   (147140) от 26.12.2020
 
 Adachi to Shimamura / Adachi and Shimamura / Адати и Симамура [2020, TV, 12] WEBRip 720p raw
@@ -6,7 +110,7 @@ Adachi to Shimamura / Adachi and Shimamura / Адати и Симамура [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +269,7 @@ Mahou Shoujo Nante Mou Ii Desu kara. Second Season / Меня достало б�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +295,7 @@ Release the Spyce / Выпустить Спайс [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Ken En Ken: Aoki Kagayaki | Xuan Yuan Sword Luminary | Меч Жёлтого и�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Я л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Cheating Craft / Искусство обмана [2016, TV, 12 из 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Soul Buster: Shousei Ran / Разрушитель душ [2016, TV, 12 из 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Al Caral no Isan | Наследие Ал Карал [1993, OVA] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Chuukan Kanriroku Tonegawa | Менеджер среднего звена Тон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,110 +673,6 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F45984935653BF206530E2A0294808B3F5C6692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946674   (144358) от 28.12.2015
-
-Rakudai Kishi no Cavalry / Rakudai Kishi no Eiyuutan / Chivalry of a Failed Knight / Благородство Худшего Рыцаря [2015, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощь страны определяется числом и силой рыцарей-магов, и тут Япония, как и положено, впереди планеты всей. Именно поэтому в рыцарскую школу Хагун приезжает учиться Стелла Вермиллион по прозвищу Алая Принцесса – дома талантливая девушка достигла потолка, а в стране Ямато сильных соперников хоть отбавляй, есть куда расти. Каково же было удивление 15-летней наследницы (   Читать дальше...   )Жанр: приключения, школа, этти.Режиссер: Онума СинПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975F04BF72B3ED92713A71DFA46687E69F8CEBC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061240   (144048) от 28.12.2016
-
-Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: триллер, мистика, сэйнэнСубтитры: русские внешниеПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635FE3EB79165A6412BC61B744F68F170172FEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059704   (144013) от 28.12.2016
-
-Touken Ranbu: Hanamaru / Дикая пляска мечей: Ханамару [2016, TV, 12 из 12] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144013.jpg" />
-</div>
-
-
-###  Подробнее
-
-2205 год. «Историки-ревизионисты» задумали натурально изменить историю и с этой целью совершают «атаки на прошлое». Санива, чьей задачей является защита истории, может наделять жизнью неживые объекты, самые сильные из которых — «парни-мечи». Сериал рассказывает об их беззаботной повседневности.Производство: Студия Dogakobo / 動画工房Жанр: приключенияРежиссер: Наоя ТакасиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397BE8830923ED9F4364C1FD769133FEF003EBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061121   (143958) от 28.12.2016
-
-Watashi ga Motete Dousunda / Kiss Him, Not Me / Целуй его, а не меня [2016, TV, 12 из 12] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня — жирная фудзёси по имени Кае Серинума, которая не может нормально смотреть на общающихся между собой парней: в её голову сразу лезут всякие яойные фантазии. В один прекрасный день в жизни фудзёси случается страшное: погибает любимый персонаж аниме, и из-за переживаний по этому поводу она теряет пару десятков килограммов. Из-под слоёв жира появляется (   Читать дальше...   )Производство: Студия Brains Base / ブレインズ・ベースЖанр: комедия, сёдзёРежиссер: Исиодори ХиросиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF00BF889804E1626CABFE721DAF9B25C5298FCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1214928   (761272) от 24.03.2018
+
+Дораэмон: Останься со мной / Stand by Me Doraemon (2014) BDRemux 3D [H.264/1080p] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ноби - мальчик, которому не везет, что бы он ни делал: он постоянно опаздывает в школу, его обижают школьные хулиганы, а разные неприятности и бедствия прямо-таки липнут к нему. И вот, однажды, через временной портал, к нему, из будущего, приходит его праправнук, вместе с кибер-котом Дораэмоном. Соби, праправнук, Ноби, оставляет ему Дораэмона, дабы тот помог ему (   Читать дальше...   )Производство: Япония, США / Shin Ei Animation, Fujiko Productions, ShogakukanЖанр: Мультфильм, детский, семейный, приключения, полнометражныйРежиссер: Тони Оливер, Рюити Яги, Такаси ЯмадзакиПеревод: Двуголосый закадровый, любительскийОзвучка: DeadSno, den904Субтитры: ОтсутствуютПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C96A63B454D33396B7DF298F5BB05092C4CC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881861   (760450) от 11.04.2015
+
+Книга жизни / The Book of Life (2014)  BDRemux [3D/2D] [1080p]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В мультфильме описывается романтическая история любви на фоне празднования Дня мертвых в Мексике.Производство: США / Reel FX Creative Studios, Twentieth Century Fox, ChatroneЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Хорхе Р. ГутьерресАктеры: Диего Луна, Зои Салдана, Ченнинг Татум, Рон Перлман, Кристина Эпплгейт, Айс Кьюб, Кейт дель Кастильо, Гектор Элизондо, Дэнни Трехо, Карлос АласракиПеревод: Дубляж, iTunes RussiaЯзык субтитров: Russian (Forced, iTunes), Russian (iTunes), Ukrainian (iTunes), English (Forced), English, English (Commentary)Продолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71BEA49C016242EF80031E3BEC1C948632763DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 661836   (760004) от 28.05.2013
 
 Диномама 3D / Dino Time (2012) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
@@ -6,7 +58,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B68E21C326C23933E674F94335E348F66D3B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670067   (714579) от 19.06.2013
-
-Ледниковый период 3: Эра динозавров / Ice Age: Dawn of the Dinosaurs (2009) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714579.jpg" />
-</div>
-
-
-###  Подробнее
-
-К событиям «Ледникового периода 3» жизнь главных героев мультфильма потерпела некоторые изменения. Мамонты Манфред и Элли ожидают появление на свет своего детёныша; саблезубый тигр Диего впал в раздумье о том, не стал ли он слишком «мягкотелым» в компании своих друзей; ленивец Сид, бредя желанием создать собственное племя, решился украсть несколько яиц динозавра. (   Читать дальше...   )Жанр: Мультфильм, Комедия, Приключения, Семейный, ...Режиссер: Карлос Салдана, Майк ТёрмайерПерсонажи: Рэй Романо,  Джон Легуизамо,  Саймон Пегг,  Куин Латифа,  Шонн Уильям Скотт,  Джош Пек,  Дэнис Лири,  Крис Уэдж,  Юнис Чо,  Карен ДишерПеревод: ДублированныйПродолжительность: 01:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB30E97C2F2B74003043E9F8B11CF7F3B6894D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027282   (697571) от 18.06.2016
-
-Зверополис / Zootopia (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Зверополис — современный город, населенный самыми разными животными, от огромных слонов до крошечных мышек. Зверополис разделен на районы, полностью повторяющие естественную среду обитания разных жителей — здесь есть и элитный район Площадь Сахары и неприветливый Тундратаун. В этом городе появляется новый офицер полиции, жизнерадостная зайчиха (   Читать дальше...   )Производство: США, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, боевик, комедия, приключения, семейныйРежиссер: Байрон Ховард, Рич Мур, Джаред БушАктеры: Джиннифер Гудвин, Джейсон Бейтмен, Идрис Эльба, Дженни Слейт, Нейт Торренс, Бонни Хант, Дон Лейк, Томми Чонг, Дж.К. Симмонс, Октавия СпенсерПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8983511CDD0AE634F1DAF166D08D138376A25496
 ```
 
 https://mybot314.ru/tekegram_catalog/

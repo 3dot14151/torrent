@@ -1,3 +1,111 @@
+###  Публикация: 1651374   (222239) от 06.08.2023
+
+Митрополит Владимир (Иким) | Преподобный Силуан Афонский (2015) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Русский инок Силуан подвизался на Греческой земле и был прославлен в лике святых Константинопольским Патриархатом. Как только в России стали известны творения и житие преподобного Силуана, он сделался одним из любимейших святых русского народа. Духоносный старец еще в начале 1930-х годов говорил о близости Страшного Суда… Средство избавления от скорбей и гибели для (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9A0996343FC24625FF4D922064A33EF02B9FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651378   (222171) от 06.08.2023
+
+Новая мысль | Азы Православия для детей (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Всё, что ты узнаешь из этой книги, существует в действительности рядом с тобой, и это не сказка. Но это – удивительнее и чудеснее любой сказки. Это главные тайны мира! Даже некоторые взрослые не знают их, а ты узнаешь!
+
+Хорошенько запомни всё услышанное здесь, ведь это пригодится тебе на всю жизнь!
+(   Читать дальше...   )Жанр: ПравославиеИздательство: Новая мысльФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3271F5DDF80A6B7F3C9011504EC9F47CAB3CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966008   (222160) от 16.12.2015
+
+Джон Доминик Кроссан | Библия. Ужас и надежда главных тем священной книги (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Шокирующие правда и откровенность библейских представлений о Боге приводят в растерянность многих читателей Библии. Как же древняя дикость, вопиющие картины жестокости и насилия в испорченном мире стали величайшей надеждой человечества на счастье и справедливость? Могут ли ужас и надежда главных тем священной книги быть понятны сегодня?
+Джон Доминик Кроссан - один (   Читать дальше...   )Жанр: История религийФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC184071A27A996DB9701ED7E9FE5809769CF9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651383   (222156) от 06.08.2023
+
+Святитель Игнатий (Брянчанинов) | Источник добродетелей. О молитве келейной и церковной (2022) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее значимые статьи святителя Игнатия (Брянчанинова) о молитве келейной (домашней) и церковной, собранные из 1, 2, 4 и 5-го томов его сочинений. В предложенных читателю творениях указаны пути к стяжанию живой, теплой, внимательной, благодатной молитвы, которая, по учению святых отцов, есть «источник добродетелей, причина духовных дарований, невидимое (   Читать дальше...   )Жанр: ПравославиеИздательство: Сретенский монастырьФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C777403FF356DB24D5AC4E0D7AA60C7CB20C2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342879   (221546) от 04.12.2019
 
 Протоиерей Геннадий Фаст | Богородица. Мать. Дева. Заступница (2018) [FB2]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -115,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -141,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -350,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -376,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -402,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -454,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -480,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -506,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -532,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -558,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -569,112 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEF8EF14AA19F2EDB4A69388F3949031B085FF5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737843   (216633) от 23.12.2013
-
-Свящ. Иоанн Якимов | Простонародные поучения сельским прихожанам (1901) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простонародные поучения сельским прихожанам на все воскресные и праздничные дни, на молитву Господню и на разные случаи.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5252E66C09F1AC1DBB34A34630E3963719ABCF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343669   (216518) от 07.12.2019
-
-Барт Эрман | Триумф христианства (2019) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш мир еще не видел более фундаментального и значительного культурного преображения, чем покорение западной цивилизации христианством. Триумфальная христианизация Римской империи стала величайшей исторической победой когда-то запрещенной религии, приверженцев которой преследовали и подвергали мученической смерти. Новая книга всемирно известного исследователя Библии (   Читать дальше...   )Жанр: Культурология, Религиоведение / история религий, ХристианствоПеревод: Наталья ХолмогороваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AB8AD38C8C9575B071DE0CDAC45342A079AC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737540   (216241) от 23.12.2013
-
-Преподобный Паисий Величковский | Об умной или внутренней молитве (1902) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дошел слух до меня последнего, что некоторые из монашеского звания дерзают хулить Божественную, приснопамятную и Боготворную Иисусову, умом в сердце священнодействуемую молитву, созидая таковое свое языкоболие на песце суемудрия без всякого свидетельства.
-
-Вооружает их дерзаю сказать, на это враг, чтобы их языками, как своим орудием, опорочить это пренепорочное и (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3C708300BCD108BB6C631E74F7AEF4B4306566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514747   (215732) от 04.12.2021
-
-Пётр Малков (авт.-сост.) | Введение во храм Пресвятой Богородицы. Антология святоотеческих проповедей (2020) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антология святоотеческих творений на праздник Введения во храм Пресвятой Богородицы включает произведения разных традиций и эпох, византийских и русских авторов — от святителя Германа Константинопольского до святителя Луки Крымского. Издание предваряет вводная статья П. Ю. Малкова, призванная в ясной и доступной форме познакомить читателя с важнейшими богословскими (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6113C7009BFC45B2EB93D6AD10D0344DCD23CAA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

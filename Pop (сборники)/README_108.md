@@ -1,32 +1,3 @@
-###  Публикация: 1190681   (267034) от 10.12.2017
-
-VA - De Top 100 Aller Tijden 1970 (Radio Veronica) (2017) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267034.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Corry & De Rekels - Huilen Is Voor Jou Te Laat (3:04)
-002. Golden Earring - Back Home (3:52)
-003. Simon & Garfunkel - El Condor Pasa (3:07)
-004. Mungo Jerry - In The Summertime (3:32)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8749C82F62A67A2D61F10AB61DD39B8F3B1AC51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190531   (266831) от 10.12.2017
 
 VA - Музыкальная Акварель: Русский Сборник (2017) [MP3|256-320 Kbps] <Pop>
@@ -35,7 +6,7 @@ VA - Музыкальная Акварель: Русский Сборник (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - German Top 100 Single Charts 30.11.2018 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - De Top 100 Aller Tijden 1971 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Club Dance Ambience Vol.168 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Unknown 00's (2017) [MP3|320 Kbps] <Alternative Rock, Modern Pop Rock, Synt
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Hot Mix Radio Vol. 08 (2019) [MP3|320 Kbps] <Pop Dance, EDM>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - German Top 100 Single Charts 07.12.2018 (2018) [MP3|320 Kbps] <Pop, Rap, Hi
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - German Top 40 DBC Deutsche Black Charts 07.12.2018 (2018) [MP3|320 Kbps] <H
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - German Top 50 Official Dance Charts 07.12.2018 (2018) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - German Top 100 Single Charts 15.12.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - De Top 100 Aller Tijden 1972 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - German Top 100 Single Charts 22.11.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 4 (2019) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - The Playlist - Big Ones 2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Зайцев FM Тор 50 Ноябрь 2019 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Золотой граммофон 2018 Суперсборник попму�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Shazam Хит-парад Russia Top 100 Ноябрь (2019) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - De Top 100 Aller Tijden 1973 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - German Top 100 Single Charts 22.12.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -586,7 +557,7 @@ Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Союз Летних Хитов Лучшая 200-ка 50/50 (2012) [MP3|12
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -650,7 +621,7 @@ VA - The Official UK Top 40 Singles Chart (27.05.2012) [MP3|320 кб/с]<Рop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -685,7 +656,7 @@ VA - Лучшая 200ка: Самая модная Русский (2012) [MP3|12
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -720,7 +691,7 @@ VA - The Official UK Top 40 Singles Chart (20.05.2012) [MP3|320 кб/с]<Рop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -755,7 +726,7 @@ VA - Авто хит. Динамит 101.2 FM (2012) [MP3|256 кб/с]<Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -775,6 +746,41 @@ VA - Авто хит. Динамит 101.2 FM (2012) [MP3|256 кб/с]<Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A8157A7C0217A88F583A0D3559EEC6660FAD1EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502675   (259144) от 28.05.2012
+
+VA - Классный Muzon Best Hits (2012) [MP3|192-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren Pres. Gaia - Status Excessu D (Radio Edit)
+02. Ian Carey, Snoop Dogg, Bobby Anthony - Last Night (Rhab Remix)
+03. Dj Niki & Mc Kako$ - Make Love (Special Radio Version)
+04. Taio Cruz feat. Flo Rida - Hangover
+05. ATB feat. Jansoon - Move on
+06. Gilles Luka Feat Niusha - Plus Pres
+07. Flo Rida feat. Christina Aguilera - Good Feeling (Official Remix)
+08. Pulsedriver vs. Djs Form Mars - Youth Of The Nation (DJ Gollum Edit)
+09. Dj Erohin & Marq Markuz - Dj, Kill Me By Yo Music
+10. David Guetta feat. Flo Rida & Nicki Minaj - Where Them Girls At(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

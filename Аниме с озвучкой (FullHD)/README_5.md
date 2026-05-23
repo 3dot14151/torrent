@@ -1,3 +1,82 @@
+###  Публикация: 1342251   (984294) от 25.01.2020
+
+Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение аниме-сериалаПроизводство: Madhouse Studios, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Ито НаоюкиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 25 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2BB0C7942D0C53010A1804EC500719113DD3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358921   (966920) от 09.02.2020
+
+Bougyaku Sareta Tamashii no Jukyou | Corpse Party: Tortured Souls | Вечеринка Мёртвых: Истязаемые Души [2012-2013, OVA, 4 ep + 1 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эта история начинается в начальной школе «Небесное воинство», где происходят таинственные исчезновения учеников. Весь город взбудоражен этими событиями, и вскоре удаётся найти виновника — сумасшедшего учителя, перерезавшего своих жертв ножницами.
+После этих трагических событий школу сносят, а на её месте возводят другую под названием Академия Кисараги. Но события (   Читать дальше...   )Производство: Asread, ЯпонияЖанр: Триллер, УжасыРежиссер: Иванага АкираОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 4 Эпизода по 29 мин.; 1 Эпизод 11 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A39EF8006B899CFD7F6ECF9064228677A969090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359138   (965824) от 10.02.2020
+
+Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война тануки в период Хэйсэй [1994, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Современная Япония. Владения людей всё больше расширяются, и они, вырубая леса, постепенно лишают мест обитания народ тануки — енотовидных собак-оборотней. Чтобы сохранить свой дом на холмах в предместьях Южного Токио, молодёжь тануки активно практикуется в искусстве превращения. За помощью от известных тануки-мастеров магии отправляются подготовленные гонцы. Тануки (   Читать дальше...   )Производство: Япония. Studio GhibliЖанр: комедия, драма, фэнтезиРежиссер: Такахата ИсаоЯзык озвучки: Русский и английскийСубтитры: Русские, английскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053D9F2F6D29D019E41DC9D7176024E957FDE70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359087   (965822) от 10.02.2020
 
 Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последнем Путешествии [2017, TV, 12 ep + 12 sp] BDRip 1080p raw+rus
@@ -6,7 +85,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +112,7 @@ Kill la Kill | Убей или Умри [2011, TV, 24 ep + SP] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +138,7 @@ Mirai Nikki | The Future Diary | Дневник Будущего [2011, TV, 26 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +165,7 @@ Cross Ange: Tenshi to Ryuu no Rondo | Cross Ange: Rondo of Angel and Dragon | К
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +191,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? | And You Thought There Is Never a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +218,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга Магии дл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +244,7 @@ Gekijouban Soushuuhen Overlord | Overlord: Fushisha no Ou & Shikkoku no Eiyuu | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +270,7 @@ Haiyore! Nyaruko-san W | Ползучий Хаос! Няруко-Сан [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +296,7 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +323,7 @@ Girls und Panzer: Kore ga Hontou no Anzio-sen Desu! | Девушки и Танк
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +349,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Та
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +375,7 @@ Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +404,7 @@ Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +430,7 @@ Soul Eater Not! | Пожиратель Душ! Класс НОТ! [2014, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +456,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +483,7 @@ Owari no Seraph | Seraph of the End: Vampire Reign | Последний Сера
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +510,7 @@ Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир И
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +537,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтра�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +563,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +589,7 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +616,7 @@ Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +642,7 @@ Shinmai Maou no Testament Departures | The Testament of Sister New Devil Departu
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +668,7 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -601,84 +680,6 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78970A2F0278C1BB8C6F26322A32B4D84664DACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364521   (932866) от 05.03.2020
-
-Shinmai Maou no Testament | The Testament of Sister New Devil | Новый Завет Владыки Тьмы, Моей Сестры [2014, TV, 12 ep + OVA] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932866.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ты ведь хотел младшую сестру?» — вот таким вот вопросом ошарашил отец своего сына, ученика первого года старшей школы, Басару Тодзё. Кроме того, эксцентричный папаша добавил, что собирается вновь жениться. Вскоре он отправился за границу, оставив Басаре двух красивых сестер, Мио и Марию. Однако девушки оказались не просто какими-то людьми, а настоящими суккубами (   Читать дальше...   )Производство: Production IMS, ЯпонияЖанр: Приключения, Комедия, Фэнтези, ЭттиРежиссер: Сайто ХисасиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 24 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB1629F6F9249B48B83026339B77992D3D62A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365051   (931385) от 06.03.2020
-
-Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | Азбука Цветов: Дом, Милый Дом [2013, Movie] BDRip 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охана уже прижилась в Киссуйсо. Но однажды во владения бабушки Шиджимы прибывает для обучения мастерству управления рёканами Юина — дочка владелицы конкурирующей с Киссуйсо гостиницы Фукуя. Поначалу от неё больше хлопот, чем пользы, но Охана не сдаётся и во всём помогает новенькой. И именно благодаря Юине внучка хозяйки гостиницы находит старые дневники, из которых (   Читать дальше...   )Производство: P.A. Works, ЯпонияЖанр: Повседневность, РомантикаРежиссер: Андо МасахироОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91C0C663EC063E18F955151B8BA37F36CE540B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365052   (931384) от 06.03.2020
-
-Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цветов [2011, TV, 26 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается вокруг Оханы Мацумаэ, шестнадцатилетней девушки, брошенной собственной матерью. Мать девочки сбегает с возлюбленным, но перед этим советует девушке отправиться на горячие источники, принадлежащие бабушке Мацумаэ. Вот только бабушка у Мацумаэ не из тех, кто угощает конфетами. Каково же было удивление девушки, когда она поняла, что (   Читать дальше...   )Производство: P.A. Works, ЯпонияЖанр: Повседневность, Драма, КомедияРежиссер: Андо МасахироОзвучка: Одноголосая, Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 26 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF9412F1DD23E032E09276191CB45FAFAE9ED79
 ```
 
 https://mybot314.ru/tekegram_catalog/

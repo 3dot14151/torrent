@@ -1,3 +1,32 @@
+###  Публикация: 1202174   (790231) от 28.01.2018
+
+2k10 Plus TwinBoot 27.01.2018 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Аддон(дополнение) для сборки "2k10 Live":
+Предназначен для установки Windows. Может использоваться независимо от 2к10, в том числе и вместо среды восстановления Winre.wim.
+Содержит Sources/boot.wim и Sources/boot64.wim на основе модифицированных ядер WinPe 8 от Xemom1.
+Ядра максимально облегчены, отключены сетевые службы и мультимедиа,(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A52FAC4410FA3B20B8CFFF43FF36CEEFA9E64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203346   (787919) от 02.02.2018
 
 2k10 Live MD UEFI 7.13 [Ru]
@@ -6,7 +35,7 @@
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +88,7 @@ Active@ Boot Disk (LiveCD) 10.5.0 RePack by WYLEK (x64) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +145,7 @@ RusLive 2020.07.07 [Ru/En] (обновляемая авторская разда
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +171,7 @@ AdminPE 4.4++ (RC) (09.08.2020) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +227,7 @@ Ultimate Boot CD 5.3.9 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +253,7 @@ Win10PE-2018 xlx (by xalex) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +279,7 @@ BootPass 4.2.8 Full Native [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -278,7 +307,7 @@ Multi Boot USB Creator 1.5.52 [RUS]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -304,7 +333,7 @@ AdminPE10 2.3 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +359,7 @@ Windows 10 PE SE x86 - Acronis 3 in 1 v1 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +412,7 @@ RusLiveFull by NIKZZZZ CD/DVD (24.09.2015) [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +438,7 @@ Acronis BootCD 10PE x86/x64 by naifle (26.09.2018) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +464,7 @@ Hiren's BootCD Pro 2.3 [Русский / Английский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -461,7 +490,7 @@ Live CD7+XP (Seven+Kompact) x86 Update 17.10.2012 [Русский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -491,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -544,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -570,7 +599,7 @@ Hiren's Boot CD 15.1 Rebuild by DLC v.2.0 [Английский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -599,7 +628,7 @@ Windows 8 PE (x86/x64) EFI compact by Xemom1 01.11.16 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -625,7 +654,7 @@ Windows 8.1 PE (x64) v.3.5 by Ratiborus [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -651,7 +680,7 @@ Rescue USB 16 Gb (BuTaJ1 Edition) 3.4
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -665,32 +694,6 @@ Windows 7,8.1 и 10 активируются и создается задача 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D11980198CF8F21531DD422A06ED381DD4225CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837966   (257718) от 20.11.2025
-
-WinPE 11-10 Sergei Strelec (x64) 2025.11.19 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F299C871D415F77C5BBC1E106DEFB862A20A66E
 ```
 
 https://mybot314.ru/tekegram_catalog/

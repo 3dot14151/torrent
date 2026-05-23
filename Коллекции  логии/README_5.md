@@ -1,3 +1,56 @@
+###  Публикация: 1276962   (786941) от 19.01.2019
+
+Зеркала / Mirrors (2008/2010) BDRip [H.264/1080p-LQ] [Дилогия, Unrated]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бен устраивается работать ночным сторожем в бывший торговый центр. Вскоре там начинает твориться что-то жуткое и зловещее. Пытаясь выяснить правду, герой сталкивается с настоящим кошмаром. В зеркалах универмага заключено древнейшее зло, которое жаждет вырваться на свободу. Ответы на все вопросы знает только одна женщина, Анна Эссекер.
+Во второй части: Отец просит (   Читать дальше...   )Производство: США, Румыния, Германия / Regency Enterprises, New Regency Pictures, Luna Pictures, 20th Century Fox Home Entertainment, Fox 2000 Pictures, Upload FilmsЖанр: Ужасы, ДетективРежиссер: Александр Ажа, Виктор ГарсияАктеры: Кифер Сазерленд, Пола Пэттон, Кэмерон Бойс, Эрика Глюк, Эми Смарт, Мэри Бет Пейл, Джон Шрэпнел, Джейсон Флеминг, Тим Ахерн, Джулиан Гловер, Ник Стал, Эммануэль Вожье, Ивэн Джонс, Кристи Карлсон Романо, Уильям Кэтт, Лоуренс Тернер, Стефани Онор, Джон Дэвис, Уэйн Пер, Лэнс Э. НиколсПеревод: Дублированный, Профессиональный, многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:51:22, 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1FEA200A4DA954B25943C535AB45686C712526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121911   (786476) от 07.04.2017
+
+Городские легенды: Коллекция / Urban Legends: Collection (1998-2007) [H.264/1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Есть в штате Невада отель Голдфилд, построенный на заброшенном прииске в начале прошлого века. В разное время там останавливалось много знаменитостей. Но однажды прошел слух, что в отеле появились призраки… Стены этого отеля были свидетелями смерти и страха. Его двери ведут в мрачные подвалы, где мучили и убивали невинных жертв. Его окна смотрят пустыми глазницами, (   Читать дальше...   )Производство: США, ФранцияЖанр: Ужасы, Триллер, ДетективРежиссер: Эд ВинфилдАктеры: Келлан Латс, Марне Паттерсон, Мэнди Амано, Скотт Уайт, Чак Цито, Эшли Рэй, Джон Блум, Тери Коркоран, Родди Пайпер, Ричи ЧэнсПеревод: Профессиональный (многоголосый, закадровый)Субтитры: РусскиеПродолжительность: 01:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8EFEF57A50C06BCE05EF04D0B4F4158F3B0E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204773   (784287) от 07.02.2018
 
 Неуловимые мстители (1966,1968,1971) WEB-DLRip [Трилогия]
@@ -6,7 +59,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Zомбилэнд  / Zombieland (2009, 2019) BDRip [H.264/720p] [Дилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +163,7 @@ G.I. Joe: Бросок кобры  / G.I. Joe: The Rise of Cobra (2009-2013) BDR
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CF53E22C1D40B041F60194AF50A2FC41C902F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782588   (746479) от 03.05.2014
-
-Нимфоманка: Часть 1, 2 / Nymphomaniac: Vol. I, II (2013) BDRip [720p] [Line]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это светлая и поэтичная история эротических переживаний женщины от рождения до пятидесятилетия, рассказанная от лица главной героини, женщины по имени Джо, поставившей себе диагноз — нимфомания...Производство: Дания, Германия, Франция, Бельгия, ВеликобританияЖанр: Драма, эротикаРежиссер: Ларс фон ТриерАктеры: Шарлотта Генсбур, Стэйси Мартин, Стеллан Скарсгард, Шайа ЛаБаф, Кристиан Слэйтер, Ума Турман, Софи Кеннеди Кларк, Йенс Альбинус, Николас Бро, Фелисити Гилберт, Джейми Белл, Уиллем Дефо, Миа Гот, Жан-Марк Барр, Майкл Пас, Морган Хартли...Перевод: Дублированный (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH), ФранцузскийПродолжительность: 01:57:20 + 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBAC5D5A96DBF15B915FA9244D7D094BDE04C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522572   (746032) от 14.01.2022
-
-Властелин колец: Трилогия / The Lord of the Rings: Trilogy (2001, 2002, 2003) BDRip [H.264/1080p-LQ] [Расширенная версия] [Ремастер]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказания о Средиземье - это хроника Великой войны за Кольцо, войны, длившейся не одну тысячу лет. Тот, кто владел Кольцом, получал власть над всеми живыми тварями, но был обязан служить злу.
-Тихая деревня, где живут хоббиты. Волшебник Гэндальф, придя на 111-й день рождения к своему старому другу Бильбо Бэггинсу, начинает вести разговор о кольце, которое Бильбо нашел (   Читать дальше...   )Производство: США, Новая Зеландия / New Line Cinema, WingNut Films, The Saul Zaentz CompanyЖанр: Фэнтези, приключения, драмаРежиссер: Питер ДжексонАктеры: Элайджа Вуд, Иэн Маккеллен, Шон Эстин, Вигго Мортенсен, Билли Бойд, Доминик Монахэн, Джон Рис-Дэвис, Орландо Блум, Шон Бин, Иэн Холм, Лив Тайлер, Кейт Бланшетт, Бернард Хилл, Кристофер Ли, Энди Серкис, Миранда ОттоПеревод: Дублированный, Профессиональный многоголосый, АвторскийСубтитры: Русские, английскиеПродолжительность: 03:48:19 | 03:55:32 | 04:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B21E3E7448586679F569C33251C415F86245BB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

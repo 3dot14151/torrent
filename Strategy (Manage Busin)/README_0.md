@@ -1,3 +1,55 @@
+###  Публикация: 1843389   (1049179) от 20.12.2025
+
+Oddsparks: An Automation Adventure (2024) [Multi] (1.0.S31386/dlc) Repack Other s [Ultimate Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Oddsparks: An Automation Adventure – это стратегия в режиме реального времени с элементами автоматизации, которая подойдет как знатокам, так и новичкам жанра. Исследуйте удивительный волшебный мир, разгадывайте тайны прошлого, стройте мастерские и ищите приключения во главе банды смешных и милых Спарков! Oddsparks – это отличный способ познакомиться с играми в жанре (   Читать дальше...   )Тип издания: RepackРазработчик: Massive MiniteamЖанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A769FAC18A5EFC34ED157E94847C2E1B4C2DE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842667   (1048779) от 16.12.2025
+
+Frostpunk 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Frostpunk 2 открывает новые грани жанра выживания города. Вам предстоит стать Наместником и спасать город в ряде суровых испытаний, которые обрушились лавиной на заснеженный постапокалиптический пейзаж. Стройте районы, учитывайте нужды жителей, а также улаживайте конфликты между фракциями. Только вы сможете управлять разрастающимся поселением и сделать из него процветающий (   Читать дальше...   )Тип издания: RepackРазработчик: 11 bit studiosЖанр: Симуляторы, СтратегииЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BF445AFC4E4EF99F25C8C68BB900F196245584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842322   (1048624) от 15.12.2025
 
 Looper Tactics (2023) [Multi] (1.1) License GOG
@@ -6,7 +58,7 @@ Looper Tactics (2023) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.2.0-b5599/dlc) Repack FitGirl [Ult
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Inn Tycoon (2024) [Ru/Multi] (Version 42) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Floodland (2022) [Ru/Multi] (1.3.22354 HotFix) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Flat Eye (2022) [Multi] (1.2.1v2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Project AURA (2018) [Ru/Multi] (1.1.8) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Prison Architect (2015) [Ru/Multi] (11011/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ ICBM (2020) [Ru/Multi] (1.02.03) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Rise of Industry (2019) [Ru/Multi] (2.3.11301a/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Anno 1800 (2019) [Ru/En] (9.2.972600/dlc) Repack West4it [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0.7583.25061) License GOG [Soundtrack Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Last Haven (2023) [Ru/Multi] (3.02.26) Scene TENOKE
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Trasamire Campaigns (2023) [En] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Dwarf Fortress (2022) [En] (50.07) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Planetbase (2015) [Ru/Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +448,7 @@ SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Jurassic World Evolution (2018) [Ru/En] (1.12.4.52769/dlc) Repack Other s [Premi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Slipways (2021) [Multi] (1.0) License Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Spellcaster University (2021) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Rockefeller Das schwarze Gold [En/Gr] (L) 2013 | 0x0007
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Sol 0: Mars Colonization (2016) [En] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,61 +667,6 @@ Sol 0: Mars Colonization - фантастическая стратегия-си�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF3C4FAF9AFFD407D361A778D0A0BA5247A204E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620938   (963680) от 19.02.2013
-
-Cities XL Platinum 2013 [En] (L) 2013 | COGENT
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стройте города, формируйте мир.
-Cities XL Platinum позволяет проектировать, строить и связать города всех форм и размеров по всей планете Cities XL!
-Постройте более впечатляющих городов, чем когда-либо прежде! Cities XL Platinum предлагает огромное разнообразие более 1000 зданий и сооружений (в том числе 50 новых структур), которые вы можете свободно размещать на более чем 60 гигантских картах, предлагающих разнообразный рельеф и невероятный уровень детализации.
-Возьмите на себя роль виртуального мэра и найдите решения проблем, с которыми сталкиваются современные планировщики города, как нехватка энергии и общественного транспорта. Дайте ответ на растущие потребности своих граждан и найдите идеальный баланс между различными услугами, такими как жилье, отдых и занятость. Специализация вашего города позволит вам создать торговую сеть с соединить ее с другими городами, чтобы обеспечить крупномасштабный финансовый успех с более сложной сетью городов.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F315B9DFFDBA8028E38B84453C7C7DB2C5499AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089087   (953284) от 02.01.2017
-
-Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это игра, которая охватывает всю историю железных дорог, с самого начала и по сей день. Игрок выбирает карту (сценарий) и берет на себя роль начальника железнодорожной компании. Игрок пытается получить прибыль для инвесторов и проходит различные задания, при этом мешая соперникам.Тип издания: LicenseРазработчик: G.O.D., Pop Top SoftwareЖанр: Strategy (Manage, Busin., Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
 ```
 
 https://mybot314.ru/tekegram_catalog/

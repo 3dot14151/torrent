@@ -1,3 +1,55 @@
+###  Публикация: 353379   (974283) от 13.01.2016
+
+NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В Исландии употребляется в пищу тухлое акулье мясо как дань наследию викингов.В Индии считается деликатесом козий зародыш, а в Того очень любят есть крыс.Узнайте о разных вкусах, существующих в мире.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE87598BC452B4C87F9C68AE735103AE0F0BD74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 270127   (974271) от 13.01.2016
+
+NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Откровенный документальный фильм об обрядах и обычаях, которые одни народы считают приемлемыми, а другие – нелегальными и запретными. Мужчины Папуа Новой Гвинеи заглатывают острые тростники и окровавливают языки в удостоверение своей мужественности. Мусульмане-шииты кроят свою плоть ножами, мачете и бритвами. В США живые кровопьющие вампиры собираются на конвенцию (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85AC908930A3A1AB6FBB769F1FDD37EE6CFAEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 353972   (973021) от 14.01.2016
 
 NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisine (2004) SATRip
@@ -6,7 +58,7 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG. Осушить океан: корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ History Channel: Древние пришельцы (3 сезон: 16 серий 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ History Channel: Вселенная. Как космос изменял ход �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ History Channel: Вселенная. Немезида: злобный двойн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +292,7 @@ NG: Апокалипсис: Вторая мировая война: Развяз
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ NG: Запреты. Опознавательные знаки / Taboo. Marks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +344,7 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +422,7 @@ National Geographic: Расследования авиакатастроф. См
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +474,7 @@ NG: Расследования авиакатастроф: Посадка на �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +500,7 @@ BBC: Живой мир: Бегемоты - жизнь в воде / Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +578,7 @@ History Channel: Вселенная. Наше место в галактике �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +604,7 @@ BBC: Планеты. Марс / The Planets: Mars (2019) IPTVRip [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +630,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,63 +668,6 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CCAA03582E2B7B518DC227494754533AE504E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 41641   (964515) от 17.01.2014
-
-BBC: Загадки истории. Мифы и герои / BBC: In Search Of Myths & Heroes (2005) DVDRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый документальный фильм компании ВВС приглашает в увлекательное и захватывающее путешествие в далекое прошлое нашей цивилизации. Вам предстоит познакомиться с четырьмя наиболее известными и загадочными легендами человечества:
-1. Царица Савская;
-2. Шангри-Ла;
-3. Ясон и Золотое Руно;(   Читать дальше...   )Жанр: документальныйРежиссер: Джереми Джеффс (Jeremy Jeffs)Актеры: Майкл Вуд (Michael Wood)Перевод: Русский двухголосый закадровыйПродолжительность: 03:56:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 109312   (962804) от 13.02.2020
-
-Discovery: 100 Величайших Открытий / Discovery: 100 Greatest Discoveries (2004) [TVRip]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любое открытие, в какой бы сфере науки оно ни было сделано, способно коренным образом изменить ход эволюции, хотя на первый взгляд далеко не каждое из них покажется нам важным и полезным. Однако есть в истории науки открытия, мгновенно перевернувшие не только нашу повседневную жизнь, но и наше представление о мире.
-
-Стремление познать себя и окружающий мир — движущая (   Читать дальше...   )Производство: США / ThinkFilm Inc.Жанр: ДокументальныйРежиссер: Майк ФаунтинПеревод: ОдноголосыйСубтитры: ОтсутствуютПродолжительность: 8 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2023DA671D31382534F5A8BA56BD8B698C305EEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

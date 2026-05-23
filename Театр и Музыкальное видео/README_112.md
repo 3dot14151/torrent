@@ -1,3 +1,168 @@
+###  Публикация: 209114   (262512) от 27.11.2019
+
+Пиковая дама (1960) DVD9
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация оперы П.И.Чайковского по одноименной повести А.С.Пушкина.
+
+«Тройка, семерка, туз — не выходили из его головы и шевелились на его губах. …Тройка, семерка, туз — преследовали его во сне, принимая все возможные виды… Все мысли его слились в одну, — воспользоваться тайной, которая дорого ему стоила.»Жанр: Фильм-операРежиссер: Роман ТихомировПродолжительность: 01:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093095257EB44C9737D6521B4327F777034EEF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 57675   (262506) от 27.11.2019
+
+Золушка (2002) DVDRip [Мюзикл]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм не похож ни на классическую "Золушку" советского кино, ни на голливудскую "Синдереллу". Веселая история о прекрасной Золушке, которой так нелегко приходится в жизни из-за самолюбивой мачехи и глупых сестер. Встреча с Принцем на королевском балу - самый волнующий момент фильма, после чего жизнь Золушки становится похожей на сказку.А (   Читать дальше...   )Жанр: Мюзикл / музыкальныйРежиссер: Семен ГоровАктеры: В ролях: Юлия Маврина (...Золушка), Николай Басков (...Принц), Валерий Леонтьев (...Король), Андрей Данилко (...Брунгильда), Валерий Меладзе (...Часовщик), Лолита Милявская (...Мачеха), Лариса Долина (...Крестная-Фея), Олег Скрипка (...Лютнист), Георгий Дрозд, Владимир Горянский, Виталий Линецкий, Ольга Сумская (...Княгиня), Надежда Грановская (...принцесса), Алена (   Читать дальше...   )Перевод: Оригинальный, русскийПродолжительность: 2:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6306587D6FB41B83EA5ED2168821C4FB4874C199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189269   (262025) от 21.12.2017
+
+Голос. Дети-3. Финалистка Ярослава Дегтярева. Лучшее (2017) HDTVRip [VP9/720p-LQ, VP8]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Ярослава Дегтярева – маленькая участница 3-го сезона вокального шоу «Голос. Дети» – покорила зрителей и жюри недетским исполнением сложной композиции. Девочка удивила и подкупила не техникой исполнения, а проникновением в образ, искренностью. Яся - не просто певица, она артистка с блестящей перспективой. За умение найти тропинку к сердцу поклонники называют Ярославу (   Читать дальше...   )1-Ярослава Дегтярёва.  Кукушка  - Слепые прослушивания - Голос Дети - Сезон 3.mkv
+2-Ярослава Дегтярёва - Кукушка (Голос Дети)   Реакция.mkv
+3-Ярослава Дегтярёва Кукушка Поединки Голос Дети Сезон 3.mkv
+4-И.Работова, А.Болдарева, Я.Дегтярёва.  Все пути ангелов  - Поединки - Голос Дети - Сезон 3.mkv(   Читать дальше...   )Жанр: РорПродолжительность: 03:60:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F97AF8280CD7CEA1DF489A83000CE04273F6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193809   (261932) от 22.12.2017
+
+Арам Хачатурян - Валенсианская вдова (1988) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Озорной, задорный спектакль, поставленный Борисом Барановским по мотивам пьесы Лопе де Вега «Валенсианская вдова» не может оставить зрителя равнодушным. Рассказ о молодой вдове Леонарде и её воздыхателях подан в лёгкой фееричной форме, наполнен юмором, энергией и жизнерадостностью.Производство: СССР, ВТПО «Союзтеатр» СТД СССРЖанр: Балет, комедия, экранизацияРежиссер: Борис БарановскийАктеры: Елена Афанасьева, Николай Дорохов, Татьяна Транквелицкая, Александр Куломзин, Александр БанниковСубтитры: отсутствуютПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374AF5FECB033314335C17C324B208ADEF29FCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505614   (261244) от 04.06.2012
+
+30 seconds to Mars - MTV Unplugged (2011) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Запись живого выступления в Нью-Йорке на проекте MTV Unplugged.
+Этот незабываемый 30-минутный концерт включает новые, никогда ранее не показанные кадры, плюс акустическую версию песни Alibi.Жанр: Alternative RockПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838528   (260856) от 23.11.2025
+
+Квартирник у Маргулиса. Группа Моральный кодекс (22.11.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+На «Квартирнике» — легендарный «Моральный кодекс» с бессменным лидером Сергеем Мазаевым! В теплой и непринужденной атмосфере гости и ведущий Евгений Маргулис пообщались, поделились забавными историями и, конечно, пошутили. Но самое главное — это живое исполнение любимых хитов: «В Москве наступает полночь», «Кошки», «В ожидании чуда», «Я тебя люблю», «Солнце», «Ночной (   Читать дальше...   )00:00:05 В Москве наступает полночь
+00:05:26 Кошки
+00:12:30 В ожидании чуда
+00:19:04 Я тебя люблю(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: рок, блюз, джазЯзык: РусскийПродолжительность: 01:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84012854792B08D2C6C25DF3A98D7E56C4D47DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505266   (260813) от 03.06.2012
 
 Сурганова и Оркестр  [01.06.2012] концерт в клубе "16 тонн" <Rock> CamRip
@@ -6,7 +171,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +200,7 @@ Slash: Apocalyptic Love Album Release - Live From New York City (2012) HDTVRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -70,7 +235,7 @@ Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra / Robin Gibb - L
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -96,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -125,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -153,7 +318,7 @@ Queen feat. Adam Lambert — MTV EMA 2011. LIVE (2011) [H.264/720p-LQ] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -181,7 +346,7 @@ AC/DC: Live at Donington (1991/2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -300,7 +465,7 @@ Alizee - En concert (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -330,7 +495,7 @@ Inna. Caliente (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -356,7 +521,7 @@ Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -382,7 +547,7 @@ The Australian Pink Floyd Show Live at Hammersmith Apollo (2011/2012) BDRip [720
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -417,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -446,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -504,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -533,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -560,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -571,176 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494343   (251044) от 10.05.2012
-
-30 Seconds To Mars - Hurricane (Uncensored) (2010) BDRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фентезийный клип-фильм Hurricane от 30 Seconds To Mars. Отлично снят. Главное, пожалуй, музыка, по крайней мере - для меня. Она просто шикарная.Жанр: Hard rock, space rock, progressive rockРежиссер: Bartholomew CubbinsАктеры: Jared Leto, Shannon Leto, Tomo MiličevićПродолжительность: 00:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397202   (250162) от 15.03.2022
-
-Metallica - Live in Moscow (2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальное видео выступления группы «Metallica» на стадионе Лужники в Москве 21 июля 2019 года, в рамках тура WorldWiredTour в поддержку десятого студийного альбома «Hardwired...To Self-Destruct»1. Hardwired
-2. The Memory Remains
-3. The Four Horsemen
-4. Harvester of Sorrow(   Читать дальше...   )Жанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 02:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5A00CF8281E8C365871C0E0639B1FA85A57141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618042   (250122) от 09.03.2023
-
-Праздничный концерт Юсифа Эйвазова и Кирилла Туриченко (2023) TVRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия концерта Юсифа Эйвазова и Кирилла Туриченко. История их знакомства и дружбы по-настоящему удивительна: впервые они встретились на сцене шоу «Маска» в образах Ламы и Носорога. Красивая история дружбы продолжилась и за пределами проекта: Юсиф и Кирилл приготовили для своих слушателей настоящий подарок — большой праздничный концерт, где они выступили сольно, (   Читать дальше...   )01. Туриченко и Эйвазов - Miserere
-02. Туриченко и Эйвазов - Nessun Dorma
-03. Таблетка для памяти о знакомстве Туриченко и Эйвазова
-04. Туриченко и Эйвазов - Мой Друг(   Читать дальше...   )Производство: Россия | Вайт МедиаПродолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D33327B5D8FA548FF83C8DCB01A80113D6F43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493042   (248491) от 07.05.2012
-
-Black Sabbath – Undead And Alive (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248491.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. N.I.B. 	5:16
-2. Paranoid 	2:50
-3. War Pigs 	7:32
-4. Children Of The Grave 	4:16
-5. Snowblind 	6:13(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492974   (248302) от 06.05.2012
-
-Шансон года - 2012 (2012.05.06) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионная версия церемонии вручения ежегодной всенародной премии «Шансон года» — это настоящий праздник для поклонников шансона. Зрителей НТВ ждут те, кто поет с душой и всегда — о самом главном.
-Торжественная церемония проходит в Государственном кремлевском дворце каждую весну, и с каждым годом интерес к этому событию возрастает. Секрет популярности прост: наши (   Читать дальше...   )01. Любовь Успенская - Сирень
-02. Любовь Успенская - Два человека
-03. Лесоповал - Мне улыбнись
-04. Лесоповал - Товарищ мент(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:25:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490705   (248236) от 06.05.2012
-
-VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | KURD28
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deutsch RapПродолжительность: ~03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C9704141D6AE486D774B3EF0AFCA2F1D30129D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,66 @@
+###  Публикация: 545954   (480622) от 12.09.2012
+
+Michel Petrucciani - Best Of - 3CD (2009) [FLAC|Lossless]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Forgotten Magic Words (5:20)
+02. Pot Pourri (14:17)
+03. Say It Again And Again (9:50)
+04. To Erlinda (11:28)
+05. Morning Blues (8:20)
+06. Bimini (10:17)
+07. Contradictions (4:24)
+08. Looking Up (8:08)
+09. Le Bricoleur De Big Sur (3:25)Жанр: Post-Bop, Piano JazzПродолжительность: 03:37:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566659   (480543) от 30.07.2022
+
+Art Blakey & The Jazz Messengers - feat. Wynton Marsalis (1980) 1988, Fortune [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Moanin' [10:23]
+02. My Funny valentine [9:19]
+03. Soulful Mister Timmons [10:25]
+04. My Ideal [6:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B24E9DB4BD6D622A79E6BBC939FF5E9A2D0727D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244585   (480232) от 02.09.2018
 
 Ariel Pocock - Touchstone (2015) Justin Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +69,7 @@ Ariel Pocock - Touchstone (2015) Justin Time Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +98,7 @@ Jaki Byard - Freedom Together! (1966) /1997, OJC/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +127,7 @@ Phillip Bent - The Pressure (1993) /GRP Records/[FLAC|image+.cue]<Smooth, Pop-Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +156,7 @@ Bill Carrothers - Home Row (2008) Pirouet [FLAC|Lossless|image + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +185,7 @@ Gil Evans - Live At The Public Theater New York 1980, Vol. I and II (1994) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +214,7 @@ Noemi Nuti - Nice to Meet You (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +243,7 @@ Charles Lloyd - Nirvana (1968) /2014, Sony Music/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +272,7 @@ Frank Sinatra - The Voice (1955) /1994, Columbia/[FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +301,7 @@ John Pizzarelli - Midnight McCartney (2015) [FLAC|Lossless|WEB-DL]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +330,7 @@ Reinhard Flatischler - Megadrums Live (1988) Puls productions[APE|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +359,7 @@ Ray Anderson - It Just So Happens (1987) Enja[FLAC|Lossless|tracks + .cue] <Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +388,7 @@ Joshua Redman & Brad Mehldau - Nearness (2011) 2016, Nonesuch Records[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +417,7 @@ Earl Bostic - Four Classic Albums (1950 - 1958) 2CD, 2016, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +446,7 @@ Abdullah Ibrahim - The Balance (2019) Gearbox Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +475,7 @@ Monty Alexander - Live at Maybeck Recital Hall, Vol.40 (1994) 1995, Concord Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +504,7 @@ Norah Jones - Late Night Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +533,7 @@ Herb Ellis - The Early Years (1956 - 1965) 4CD, 2020, Enlightenment [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +562,7 @@ Muhal Richard Abrams - Afrisong (1975) 2009, Candid [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +591,7 @@ Bob James - All Around The Town (2008) 2CD, KOCH Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +620,7 @@ Jessica Molaskey - Portraits of Joni (2017) Ghostlight Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +649,7 @@ Marlena - My Heart to Yours (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +678,7 @@ The John Young Trio - A Touch Of Pepper (1962) /2013, Universal/ [FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +707,7 @@ Kaempfert Plays Kaempfert - The Original (2011) [FLAC|tracks|WEB-DL]<Jazz-Pop, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +736,7 @@ Amber Rock Association - Amber Rock (2015) [FLAC|Lossless|WEB-DL]<Jazz, Easy Lis
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -687,64 +750,6 @@ Amber Rock Association - Amber Rock (2015) [FLAC|Lossless|WEB-DL]<Jazz, Easy Lis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B2B84CB6D584C10E76E934369EE799AF7B5B21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939039   (478149) от 20.09.2015
-
-John Carter & Bobby Bradford - Mosaic Select 36 (1969/1971/1972/1979) 3CD /2010, Mosaic Records/ [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478149.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.In the Vineyard [10:31]
-02.Karen On Monday [06:53]
-03.Sticks and Stones [06:18](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 03:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11A5F782EFB80106630871D30DAF7C3652E1C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938903   (478148) от 20.09.2015
-
-Dizzy Gillespie - Have Trumpet, Will Excite! (1959) /2015, Poll Winners Records/ [FLAC|tracks+.cue]<Afro-Cuban Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Belongs To Daddy [06:03]
-02. My Man [04:20]
-03. Moonglow [06:25]
-04. ST. Louis Blues [05:55](   Читать дальше...   )Жанр: Afro-Cuban Jazz, BopПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3728B0675B8B8DB1245F001B41D16CEFC2098C
 ```
 
 https://mybot314.ru/tekegram_catalog/

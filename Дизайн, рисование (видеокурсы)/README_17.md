@@ -1,3 +1,85 @@
+###  Публикация: 1488998   (1001423) от 13.08.2021
+
+Side FX, Jeff Wagner | Geometry Workflows in Houdini 16 (2017) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом мастер-классе Джефф Вагнер подробно расскажет о работе с геометрией в Houdini 16, в том числе о новых SOP-нодах и методах построения сетей.
+
+Содержание мастер-класса:
+- альтернативы ноде Copy SOP(   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8AC5441E9F05670FF507ACC1C4775B90BA41E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488758   (1001422) от 13.08.2021
+
+Side FX, Kai Stavginski | Houdini 16.5 Masterclass Fur & Hair Grooming Toolset (2017) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот мастер-класc покажет вам новые функции управления поведением волос и шерсти в Houdini 16.5. Сначала я покажу функции по отдельности, а затем использую их все вместе на примере проекта с мокрой шерстью. Шерсть будет вести себя в соответствии со скоростью из FLIP симуляции. Также вы увидите работу со связыванием атрибутов в симуляции и изменения генерации шерсти (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FED7E757D9BDB2076067A7969B0CF159234768F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488994   (1001419) от 13.08.2021
+
+Side FX, Ryan Goldade | Houdini 16 Flip Fluids (2017) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный мастер-класс от разработчика мирового лидера в сфере CG - компании SideFX.
+В Houdini 16 мы добавили новые возможности в Flip Fluid симуляции. Теперь у вас есть больше контроля над симуляцией, можно задать ватерлинию, слои контейнера, а также изменять вязкость и скольжение жидкости. Также можно создать новые типы поведения через поверхностное натяжение (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBA0AC5ACC176F4141FB8BF0384984CE84D93A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488757   (1001416) от 13.08.2021
 
 Side FX, Jeff Wagner | Character FX & Cloth in Houdini 17 (2019) PCRec [En, Ru]
@@ -6,7 +88,7 @@ Side FX, Jeff Wagner | Character FX & Cloth in Houdini 17 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +114,7 @@ ENTAGMA, Manuel Casasola | Creating Geometry With VEX (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +140,7 @@ Udemy.com | Architectural Design & Animation in Blender (2019) PCRec [H.264/720p
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +166,7 @@ Udemy.com | Concept Art Masterclass. Create Conceptual Art from Scratch (2019) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +194,7 @@ Udemy.com | Concept Art Essentials. Digital Painting From Scratch (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -172,7 +254,7 @@ Udemy | Создание Sci-Fi ассетов в Blender 2.81 и Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -224,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -253,7 +335,7 @@ CG Cookie | Мультипликационный рендеринг в Blender F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -280,7 +362,7 @@ Blender NPR | Нефотореалистичный рендеринг в Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -308,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -336,7 +418,7 @@ Digital-Tutors | Inking Comic Art in Illustrator [2013] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -363,7 +445,7 @@ Digital-Tutors | Shape Based Character Design in Photoshop [2013] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -390,7 +472,7 @@ Digital-Tutors | Drawing Female Proportions and Surface Anatomy [2013] [EN] PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -417,7 +499,7 @@ Paris Christou | Как рисовать Черри 2.0 / How to draw Cherry 2.0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -445,7 +527,7 @@ Lynda.com | Python Scripting for Blender (2016) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -473,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +608,7 @@ Udemy, Darrin Lile | Blender 2.8 Создание игрового автомо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,7 +689,7 @@ Magisters | Photoshop для веб-дизайнера (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -618,86 +700,6 @@ Magisters | Photoshop для веб-дизайнера (2015) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A0D1D97F4334FC48C7D551329130F7F2FBF8326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978378   (961941) от 24.01.2016
-
-Кальвин Голливуд | Мощь цифрового света (2012) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кальвин Голливуд возвращается со своим новым курсом под названием "Мощь цифрового света".
-Все уроки в курсе выполняются на 100% в Фотошопе, и речь в нем пойдет о манипуляции со светом, техникой осветления и затемнения, и о многом другом. Каждый урок содержит в себе клевые техники, которые вы можете использовать в ваших собственных работах.Жанр: Компьютерная графика, PhotoshopПродолжительность: 01:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7599E78C1AC0715ACC44AD25DA3F9353BE15F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361011   (956843) от 18.02.2020
-
-Кент Траммелл / Kent Trammell | Основы цифрового скульптинга в Blender 2.8 / Fundamentals of Digital Sculpting with Blender 2.8 (2020) PCRec [H.264] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите все основные инструменты, функции и методы цифрового скульптинга в программе Blender 2.8. Этот учебный курс поможет освоить базовые знания и в дальнейшем использовать их в будущих проектах. В конце урока мы создадим симпатичного персонажа Акулы по концепту художника Алисы Вейси.
-Вместе мы применим то, чему научились - от цифрового  шарика до трехмерного представления (   Читать дальше...   )Производство: CGCookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2BCDA08C868465C8A0A9C575145449BEDA8344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980112   (956807) от 28.01.2016
-
-Нетология | Веб-дизайнер: эффективный сайт от идеи до реализации (2014) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь своими руками создавать дизайн сайтов и выработаете чувство вкуса, которое станет основной вашего профессионального роста. Общение с ведущими сотрудниками лучших российских веб-студий даст вам бесконечный заряд для новых дизайн-подвигов, а их знания и опыт помогут в нужный момент спуститься с небес на землю, чтобы правильно организовать работу и сделать (   Читать дальше...   )Жанр: Веб-дизайн, дизайн, ux, uiПродолжительность: 40:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAD8ECA11ADC06D6DEB2070487DAC9499F103F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

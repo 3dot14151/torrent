@@ -1,3 +1,109 @@
+###  Публикация: 1177858   (359987) от 26.10.2017
+
+Shiver (2017) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы будете играть роль своенравного сына, отправившегося навестить своего стареющего отца в отдаленном доме перед его выходом на пенсию. В пути вы попадаете в аварию и оказываетесь на территории заброшенного национального парка Windy Oaks. Используя свои умения и упорство, вы должны найти способ связаться с помощью и убежать, прежде чем парк вас поглотит.Тип издания: RepackРазработчик: Kowai Sugoi StudiosЖанр: Adventure (Horror, Point-and-Click), PuzzleЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF81D35C189934813B44ED90B929DB373C7891FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417104   (359719) от 19.10.2020
+
+9 Monkeys of Shaolin (2020) [Ru/Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+9 Monkeys of Shaolin— настоящее возрождение культового жанра beat 'em up в духе классических игр старой школы. Если в детстве вы часами просиживали за домашней консолью SEGA или Dendy, круша врагов направо и налево, то новый проект от создателей жесткой и бескомпромиссной игры REDEEMER наверняка придется вам по душе!Тип издания: LicenseРазработчик: Sobaka StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3128F9F80DB65BFD65CFC37E1699D8AA3F5610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071555   (358846) от 10.11.2016
+
+The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Город охвачен ужасом. Загадочный серийный убийца оставляет после себя след из трупов, насмехаясь над беспомощностью властей. Но все эти убийства, кажется, как-то связаны с «Серебряным делом», которое двадцать лет назад унесло жизни многих политиков. Неужели неуловимый Камуи Уехара вернулся? И если да, то почему же тогда убийства прекратились двадцать лет назад?Тип издания: LicenseРазработчик: Grasshopper Manufacture Inc., AGM PlayismЖанр: Приключенческие игрыЯзык озвучки: СимплишЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4DF16A9CAC1942D594D9FC2A742DF95B73210F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577740   (356990) от 19.11.2012
+
+The Fall: Mutant City [Ru/Ge] (RePack) 2011 | R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Fall: Mutant City - это продолжение вышедшей и завоевавшей сердца многих The Fall: Last Days of Gaia.
+
+Погрузитесь в угрожающую атмосферу The Fall и вступайте в борьбу за существование в мире, которым управляют деньги и оружие. Великолепные графические эффекты, увлекательный рассказ, а также неповторимая атмосфера The Fall: Mutant City помогут полностью погрузиться в незабываемое приключение.(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: НемецкийЯзык субтитров: РусскийЯзык интерфейса: Немецкий / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D901C869D04D50DEF87CF7F79F9F459D8AB17C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577945   (356989) от 19.11.2012
 
 Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Механики
@@ -6,7 +112,7 @@ Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Ме�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ Reigns: Game of Thrones (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +191,7 @@ Lifeless Planet (2014) [Ru/Multi] (1.5) License GOG [Premier Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +217,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u8) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +243,7 @@ Return of the Obra Dinn (2018) [Ru/Multi] (1.0.86) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +269,7 @@ The Signifier (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +295,7 @@ Syberia. Cold Edition / Сибирь. Специальное издание (С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +321,7 @@ Rayon Riddles  Rise of the Goblin King (2016) [En/Ge] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +347,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +373,7 @@ Remothered: Broken Porcelain (2020) [Multi] (0.14.43) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +399,7 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +425,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/En] (1.0) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +513,7 @@ Firewatch (2016) [Ru/Multi] (1.04) Repack R.G. Revenants
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +539,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +566,7 @@ Cognition: An Erica Reed Thriller (2013) [Multi] (2.1.0.9/dlc) License GOG [GOTY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +592,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +618,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +644,7 @@ Tales (2016) [Ru/Multi] (1.0.1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +670,7 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,111 +681,6 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:708E4BA1AA248B9B490DB957EA69D78D927C9C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071754   (344367) от 16.11.2016
-
-Yesterday Origins (2016) [Ru/Multi] (1.0/u4) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя новейшее приключение от Pendulo Studios, создателей серии Runaway! 1481. Юного Джона унижают и публично тащат по улице. Он обвинен в колдовстве испанской инквизицией и брошен в тюрьму, где его подвергнут пыткам. Позже с ним произойдет алхимическая трансмутация, благодаря которой он обретет бессмертие.Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: Violent, AdventureЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D2941DD3E030FF9F6D477D3FC2AE92EE1BB4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837579   (344021) от 08.11.2014
-
-Penumbra 4: Necrologue / Пенумбра 4: Некролог (2014) [Ru] (1.0) Repack R.G. Механики
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пенумбра 4: Некролог (англ. Penumbra 4: Necrologue) — тотальная модификация для игры Amnesia: The Dark Descent, созданная независимой командой разработчиков и является продолжением серии. Повествование сюжета начинается сразу после того, как Филиппа Лафреска оглушило неизвестное существо во второй части. Очнувшись, он сразу понимает, что вакцина не сработала и он по прежнему заражён. Кларенс (Кевин) — голос в голове Филиппа, являющийся вирусом, вновь начинает прогрессировать в его теле. Но вместо того, чтобы поскорее убить Филиппа, Кевин предлагает ему двигаться дальше. Вдруг по голосовому чату в компьютере с Филиппом связывается Амабель Свансон — та самая ученая, которую Филипп якобы убил из-за галлюцинаций, созданными Кевином. Из её слов становится понятно, что она действительно жива и более того, не встречала Филиппа, так как покинула свой кабинет, где они должны были встретится. Кевин сознаётся что это была его 'маленькая шутка'. Кроме того, Амабель сообщила, что некто связался с командованием станции Мануик и оно в ответ выслало спасательную экспедицию. Теперь главными задачами Филиппа становятся найти Амабель и встретится с экспедицией, а заодно попытаться избавится от вируса.
-(   Читать дальше...   )Тип издания: RepackРазработчик: CounterCurrent GamesЖанр: Survival horror / adventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52A33C8CA346EF88DA393CCC4FC49184C9EA5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179857   (344005) от 02.11.2017
-
-Attentat 1942 (2017) [En/Cz] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Attentat 1942 - это мрачная визуальная новелла, в которой рассказывается история об оккупации нацистской Германией Чехии. Сюжет игры создан в сотрудничестве с теми, кто пережил те страшные события, что позволяет назвать проект исторически достоверным и реалистичным.Тип издания: LicenseРазработчик: Charles University, Czech Academy of SciencesЖанр: Adventure, Quest, NovellaЯзык озвучки: ЧешскийЯзык субтитров: Английский, ЧешскийЯзык интерфейса: Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059AD7A23448ADAA3267C2912EC8F4E37F98FD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418959   (343837) от 26.10.2020
-
-The Book of Unwritten Tales (2012) [Multi] (2.0.0.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343837.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Авентазии назревает война. Во время нескончаемой битвы между Союзом Свободных Рас и Армией Теней престарелый гремлин-археолог Мортимер Макгаффин находит тайник с легендарным артефактом. Понимая, что это древнее сокровище способно изменить ход войны, Армия Теней отправляет своих лучших агентов выкрасть его. Одновременно с этим в приключение оказываются втянуты четыре (   Читать дальше...   )Тип издания: LicenseРазработчик: KING ArtЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6390A38CB33529E8BB907F900D44A28031AFA139
 ```
 
 https://mybot314.ru/tekegram_catalog/

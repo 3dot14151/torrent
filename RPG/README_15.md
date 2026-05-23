@@ -1,3 +1,81 @@
+###  Публикация: 1346237   (792281) от 31.05.2020
+
+Warhammer: Chaosbane (2019) [Ru/Multi] (28.05.2020/dlc) Repack xatab [Deluxe Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы - единственная надежда раздираемого войной мира, последний щит Империи людей на пути орд Хаоса. Играйте в одиночку или объединяйтесь с четверыми друзьями в локальном и онлайн режимах, выбирайте из четырех классов с уникальными навыками и приготовьтесь к эпическим сражениям с использованием самых мощных артефактов Старого Света.Тип издания: RepackРазработчик: Eko SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CB0391AF603D7C6733CFBB0959D320DDC4502C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274759   (791995) от 08.01.2019
+
+Wasteland 2: Director's Cut (2014) [Ru/Multi] (1.0/upd3/dlc) Repack Other s [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Wasteland 2 является прямым продолжением игры 1988-го года Wasteland — первой постапокалиптичейской CRPG и прародителя небезызвестной Fallout. Действие игры разворачивается после ядерной войны между двумя сверхдержавами, в пустошах Аризоны, где отряды рейнджеров пытаются поддерживать мир в разоренных селениях последних выживших. Создавайте свои собственные персонажи, (   Читать дальше...   )Тип издания: RepackРазработчик: inXile EntertainmentЖанр: Adventure, RPG, Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A080D023A3A47E62D15E19052C38F2D04AE0E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201660   (791940) от 25.01.2018
+
+Zwei: The Arges Adventure (2018) [En/Jp] (1.0.3) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Общительный весельчак Поккль и заядлая модница Пипиро - самые обычные сводные брат и сестра. Они и дальше бы жили своей спокойной жизнью в родном городишке, если бы не произошло ограбление века, из-за которого они теперь никак не могут усидеть дома. Ребята решили стать настоящими героями и организовали себе поход за деньжатами и немеркнущей славой, причем первое (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom CorporationЖанр: Ролевая игра, Приключение, ФэнтезиЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9613ED2ECAB58FF48BDF7380B2A39308241074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201665   (791936) от 25.01.2018
 
 LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.0) License CODEX
@@ -6,7 +84,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (23636) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Dragon's Dogma: Dark Arisen (2016) [En] (1.0.0.18) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Divinity: Original Sin (2014) [Ru/En] (2.0.119.430/dlc) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ STAR OCEAN - THE LAST HOPE - 4K & Full HD Remaster (2017) [Multi] (1.0) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Anachronox (2001) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Tales of Vesperia (2019) [Ru/Multi] (1.0/dlc) License CODEX [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Titan Quest (2006) [Ru] (1.20) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Guild of Dungeoneering (2015) [Multi] (1.0UE/dlc) License PLAZA [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (57824) License FAIRLIG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Dungeon No Dungeon (2021) [Multi] (2.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Solasta: Crown of the Magister (2021) [Ru/Multi] (1.2.9/dlc) License CODEX [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ King of Seas (2021) [Ru/Multi] (7677098) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Empire of Sin (2020) [Ru/Multi] (1.06.0.51066/dlc) License CODEX [Premium Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Winter Warfare: Survival (2021) [En] (1.0b7604797) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Darksburg (2020) [Ru/Multi] (1.0.11.17957) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Dungeons & Dragons: Dark Alliance (2021) [Ru/Multi] (1.20.1370/dlc) License CODE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) License GOG (обновляема�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Dex (2014) [Multi] (5.4.0.0/dlc) License GOG [Enhanced Version]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Dex - стильная 2D RPG с элементами стелса и экшен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D8501F4B9BA59A0BA443AEEFA85B0572C9A210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082788   (785175) от 04.02.2018
-
-Kim (2016) [En] (1.4.1.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ролевая игра с открытым миром, вдохновленная одним из самых известных романов Р. Киплинга. Если вы по каким-то странным причинам прогуливали уроки литературы, особенной иностранной, то это была большая ошибка: как много вы упустили! Одно только творчество Р. Киплинга чего стоит...Тип издания: LicenseРазработчик: The Secret Games CompanyЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856A242BE3E20EFFB6475A04DC6EBBF579C2FF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257507   (785034) от 08.06.2020
-
-Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. Истории (2018) [Ru/Multi] (1.0.2.12) Repack Other s
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785034.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Thronebreaker: The Witcher Tales» — ролевая карточная игра с одиночной кампанией, события которой разворачиваются в мире «Ведьмака». В ходе кампании вы познакомитесь с самыми разными героями, столкнетесь с полчищами чудовищ и не раз встанете перед выбором, от которого будет зависеть судьба мира Геральта из Ривии. «Thronebreaker: The Witcher Tales» создана авторами (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: RPG, Strategy, FantasyЯзык озвучки: Русский, Английский, ПольскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07199142C15F32D0681CF062E9AC32664A8FE3AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204619   (784526) от 06.02.2018
-
-FINAL FANTASY X/X-2 HD Remaster (2016) [Ru/En] (1.0) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784526.jpg" />
-</div>
-
-
-###  Подробнее
-
-FINAL FANTASY X рассказывает историю героя по имени Tidus, звезды невероятного спорта Blitzball, который встречает обаятельную юную чародейку по имени Yuna и отправляется вместе с ней в долгое путешествие. Им предстоит спасти мир Spira от бесконечного цикла гибели и перерождения, причиной которого является колоссальное чудовище Sin.Тип издания: RepackРазработчик: Square Enix Product Development Division 1, VirtuosЖанр: RPG, Third-person, 3D, JapaneseЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED28F4DC8B38D0006B94D8F603868D052AE1B2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

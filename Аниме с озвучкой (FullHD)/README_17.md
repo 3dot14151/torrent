@@ -1,3 +1,82 @@
+###  Публикация: 935355   (498103) от 09.09.2015
+
+Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDrip 1080p raw+rus(x3)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем на Земле властвуют могущественные вампиры, поработившие человечество. Эти кровожадные монстры – бессмертные потомки древних аристократических родов – держат людей в страхе, наслаждаясь беспомощностью смертных и горячей кровью в их венах. Став жертвой "поцелуя бессмертия" ужасного графа Ли, отважная девушка Дорис обращается за помощью к (   Читать дальше...   )Производство: Ashi ProductionsЖанр: Приключения, Драма, УжасыРежиссер: Асида ТоёПеревод: MC EntertainmentСубтитры: TX3GФормат: MP4Продолжительность: 01:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9256D189D8BBC70907C123B658031F8CF0D728F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405352   (484681) от 29.08.2020
+
+Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [2012, Movie] BDRip 1080p Hi10p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новый век несет новые опасности. Цифровое рабство, ещё недавно бывшее воспаленной фантазией темных сил, становится реальностью. Среди тех, кто борется с ним — группа Сайрат, пытающаяся раскрыть подноготную человека по имени Фумито Нанахара, деятеля, подмявшего под себя Токио, чье политическое влияние не ограничивается рамками закона. И в момент, когда кажется, что (   Читать дальше...   )Производство: Япония,Жанр: приключения, мистика, драмаРежиссер: Сиотани НаоёсиПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 110 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31402473DFF712BBD1AF1FC8C7E4A672FD6B5365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319922   (476684) от 15.08.2019
+
+Big Order | Приказ свыше [2016, TV, 10] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, Хошимия Эйджи, на вид обычный японский школьник, нахальный и необщительный парень, которому совершенно плевать на учёбу. Но у него есть весьма интересный секрет: ещё будучи мальчишкой, он пожелал уничтожения всего мира. И его желание было исполнено! Страшный катаклизм прокатился по Земле, что обернулось огромными разрушениями и многочисленными смертями. (   Читать дальше...   )Производство: Япония, asreadЖанр: Приключения, МистикаРежиссер: Каманака НобухаруЯзык озвучки: Японский и русскийСубтитры: ОтсутствуютПродолжительность: 10 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0223287DB355716264C9FF682468D31F550C97B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309491   (476390) от 02.09.2020
 
 Canaan | Ханаан [2009, TV, 13 из 13 эп.] BDRip 1080p Hi10P raw+rus
@@ -6,7 +85,7 @@ Canaan | Ханаан [2009, TV, 13 из 13 эп.] BDRip 1080p Hi10P raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +112,7 @@ Aho Girl | Дурочка [2017, TV, 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +164,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +190,7 @@ Birthday Wonderland | The Wonderland | В стране чудес [2019, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +216,7 @@ Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +242,7 @@ Koukaku Kidoutai S.A.C. 2nd GIG | Ghost in the Shell: Stand Alone Complex 2nd GI
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +268,7 @@ Naruto The Movie 10: The Last Naruto the Movie / Наруто последний
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +294,7 @@ Hundred | Сотня [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +320,7 @@ Gekijouban Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +346,7 @@ Miru Tights | Созерцая колготки [2019, TV, 13 из 13] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +373,7 @@ Danshi Koukousei no Nichijou | Daily Lives of High School Boys | Повседн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +399,7 @@ Lapis Re:Lights [TV-1] [2020, TV, 12 из 12] WEB-DL 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +425,7 @@ Kanojo, Okarishimasu / Rent-A-Girlfriend / Девушка на час [2020, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +477,7 @@ Kurenai no Buta / Porco Rosso / The Scarlet Pig / Crimson Pig / Порко Ро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +529,7 @@ The God of High School / Бог старшей школы [2020, TV, 13 ep] WEB-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +555,7 @@ Boku no Hero Academia the Movie 2: Heroes Rising | My Hero Academia the Movie 2:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +581,7 @@ Towa no Quon / Вечность вечного [2011, MV, 6 из 6] BDrip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +659,7 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -599,87 +678,6 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09359109D58535026CCCA3C2A740BE91852CE4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562502   (405125) от 20.10.2012
-
-Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сюжета разворачивается в 1963 году, когда у главной героини, школьницы Уми Комацудзаки, погибает отец. История повествует о буднях Коматсудзаки после этого печального события, ее отношениях с членом школьной газеты, президентом студенческого совета и другими одноклассникамиЖанр: Романтика, школа, сёдзёРежиссер: Горо МиядзакиВ ролях: Масами Нагасава, Дзюнъити Окада, Кэйко Такэсита, Юрико Исида, Дзюн Фубуки, Такаси Найто, Сюнсукэ Кадзама, Нао Омори, Тэруюки КагаваПеревод: Многоголосый закадровыйСубтитры: Английские, Русские (Advantage), ФранцузскиеПродолжительность: 01:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC9C451B65D200982F618E617EB623787DD980B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574496   (385186) от 05.09.2022
-
-Для тебя, Бессмертный [ТВ-1] | Fumetsu no Anata e | To Your Eternity [2021, TV, 20 из 20] BDRip 1080p HEVC 10bit Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизведанное существо проникло в наш мир. Оно не знает почему оно попало сюда и что ему делать? Всё что оно могло - это брести по свету и наблюдать. Оказалось, что пришелец может вселяться во всё, в чем нет жизни. Сначала он стал камнем, затем мхом. Странствуя по окрестностям, существо наткнулось на мертвого волка, вселилось в него и обрело сознание. Хозяином волка (   Читать дальше...   )Производство: Япония / Студия Brains BaseЖанр: Драма, приключения, сверхъестественное, сёнен, фэнтезиРежиссер: Мурата МасахикоЯзык озвучки: Русский многоголосый закадровый, Японский
-- (внешним файлом) Amikiri, Anzen, Derenn, Itashi (AniLibria.TV)Субтитры: Русские (софтсаб)
-- (внешним файлом) (полные/надписи) (AniLibria.TV): Rossik666Продолжительность: 20 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6557BD337C4B10322B8C46973A9746B1CC166C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295522   (382496) от 21.09.2019
-
-Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тору Хонда — простая школьница с непростой жизнью. Она осиротела, лишилась крыши над головой, вынуждена жить в палатке и самостоятельно зарабатывать себе на жизнь. Но Тору не унывает, встречая невзгоды с улыбкой. И вот однажды судьба преподносит ей сюрприз — девочка знакомится с семьёй Сома, над которой висит ужасное проклятье…
-Ремейк аниме Корзинка фруктов (2001г.)Производство: Япония, cтудия TMS / トムス・エンタテインメントЖанр: Реверс-гарем, РомантикаРежиссер: Ибата ЁсихидэЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 25 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:462AD2950CAED31EAAD153F50BCCC785EAF03BE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

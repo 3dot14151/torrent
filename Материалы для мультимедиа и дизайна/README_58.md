@@ -1,3 +1,316 @@
+###  Публикация: 1363486   (942142) от 28.02.2020
+
+Экшены - GraphicRiver - Modern Watercolor Photoshop Action - 25435037 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Modern Watercolor - действие фотошоп превратит ваши обычные изображения в акварельное полотно современного искусства. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C52FAE931725C063D4E7C563607FAB39487F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 157374   (941960) от 28.02.2020
+
+Digital Juice - Fonts Collection: 02 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Большинство людей знакомы с основными шрифтами, поскольку они обычно предустановлены на компьютере и доступны в таких программах как Word или простой текстовый редактор. DJ Fonts это немного другое. Хотя в них включены стандартные OpenType шрифты для каждой группы DJ Font Family, сами по себе DJ Fonts не являются шрифтами в традиционном смысле. До них нельзя добраться (   Читать дальше...   )Разрешение файлов: ~2048 px
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FABD0353F5B748BDBB821A18CAEC158DAFD959E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363468   (941959) от 28.02.2020
+
+3D модели - 3DDD - DECORATION SET - 3D Models - 3dskyPro - Volume 4 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 125 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFA21D71FCA026E62EF19ADC3E4B02175D84D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177794   (941954) от 28.02.2020
+
+Digital Juice - Fonts Collection: 05 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Большинство людей знакомы с основными шрифтами, поскольку они обычно предустановлены на компьютере и доступны в таких программах как Word или простой текстовый редактор. DJ Fonts это немного другое. Хотя в них включены стандартные OpenType шрифты для каждой группы DJ Font Family, сами по себе DJ Fonts не являются шрифтами в традиционном смысле. До них нельзя добраться (   Читать дальше...   )Разрешение файлов: ~2048 px
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652B1520556F515C6FD2CB8B1AFD0A950603468C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165087   (941897) от 28.02.2020
+
+Digital Juice - Fonts Collection: 06 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Большинство людей знакомы с основными шрифтами, поскольку они обычно предустановлены на компьютере и доступны в таких программах как Word или простой текстовый редактор. DJ Fonts это немного другое. Хотя в них включены стандартные OpenType шрифты для каждой группы DJ Font Family, сами по себе DJ Fonts не являются шрифтами в традиционном смысле. До них нельзя добраться (   Читать дальше...   )Разрешение файлов: ~2048 px
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EC26441D7A4A9BCD310554148B61E477DDD4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 141746   (941881) от 28.02.2020
+
+Digital Juice - Fonts Collection: 04 (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Большинство людей знакомы с основными шрифтами, поскольку они обычно предустановлены на компьютере и доступны в таких программах как Word или простой текстовый редактор. DJ Fonts это немного другое. Хотя в них включены стандартные OpenType шрифты для каждой группы DJ Font Family, сами по себе DJ Fonts не являются шрифтами в традиционном смысле. До них нельзя добраться (   Читать дальше...   )Разрешение файлов: ~2048 px
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BB0F1CEE6A3CE3E061301E35067892E3372F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984041   (941699) от 07.02.2016
+
+Текстуры - 28 Gold Foil Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+28 текстур для вашего творчества.Формат: JPGРазрешение файлов: 3600х3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C0848F0DEDCC30601D0129B4599C8A2D2A5016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983864   (941346) от 07.02.2016
+
+Шаблоны - Визитки - 50 Corporate Business card Bundle [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+50 визитных карточек для Вашего творчества.Формат: PSDРазрешение файлов: 1125x675 / 675х1125 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4932A5337AF263B2A3BD6757C73F21DA37DA6BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363764   (940684) от 29.02.2020
+
+Экшены - GraphicRiver - Watercolor Creation Kit - 25712696 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Watercolor Creation Kit - экшен фотошоп превратит ваши изображения в акварельное полотно. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24609B846629C8E6669C8075B7623CFD5AA24D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363757   (940668) от 29.02.2020
+
+Экшены - GraphicRiver - InkSketch - Photoshop Action - 24747552 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+InkSketch - это профессиональное действие фотошоп даёт вашим изображениям удивительный эффект чернильной зарисовки. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E81FBC75677F2F19D822B8038578EDBB7345DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363792   (940579) от 29.02.2020
+
+Экшены - GraphicRiver - Watercolor & Pencil Photoshop Action - 25825237 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Watercolor & Pencil - это профессиональное действие фотошоп даёт вашим изображениям, эффект смешанного стиля акварели и карандашных линий. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867340107E110A53E712CAB46F6B64FE178B7578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363773   (940567) от 29.02.2020
+
+Экшены - GraphicRiver - Pencil Sketch Photoshop Action - 25798646 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+С помощью действия Pencil Sketch вы можете создавать реалистичные и продвинутые эскизы из ваших фотографий с легкостью и за считанные минуты. Превратите свою фотографию в карандашный эскиз! Просто откройте своё изображение и запустите действие! Действие сделает всю работу за вас, оставляя вам полностью слоистые и настраиваемые результаты, которые вы можете дополнительно (   Читать дальше...   )Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0A327315D9BAF8E3146D4B95EC6073D3930119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363809   (940480) от 29.02.2020
 
 NNM-Club Unmarked Team - Чистые музыкальные треки с AudioJungle часть 8
@@ -6,7 +319,7 @@ NNM-Club Unmarked Team - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -366,325 +679,6 @@ Blazing - действие фотошоп с эффектом современн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ACDA4AF774DB8ADE71CCAB0E47A46AA132D73C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364247   (936200) от 03.03.2020
-
-Экшены - GraphicRiver - Gladiator Photoshop Action - 25596174 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gladiator - действие фотошоп создаёт на ваших изображениях удивительный эффект клубов дыма. Неразрушающие слои, полностью регулируемые, чтобы помочь вам получить наилучшие результаты. Все остается многослойным, давая вам много творческого контроля.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3ECEB6056E4859EAEEE1256AD5380605E88E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364502   (936199) от 03.03.2020
-
-Экшены - Creative Market - Rootist Art Photoshop Action - 4205167 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rootist Art - действие фотошоп специально разработанное для современного дизайнера, дизайнера настенного искусства и профессионального фотографа. Эти действия профессионально разработаны, чтобы придать вашим изображениям волшебный и замечательный тон, позволяя вам упростить процесс редактирования и улучшить ваши изображения. Как фотографы, мы используем эти инструменты (   Читать дальше...   )Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEAFF8FBCEC91550ED166177332C5B3551295CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364413   (936194) от 03.03.2020
-
-Стили - GraphicRiver - Epic Text Effects - 24653546 [PSD, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 8 уникальных PSD шаблонов в классном эпическом стиле!.Формат: PSD, ASLРазрешение файлов: 2560×2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B5A569C3C35BB1DAC16A100CB597CDD48B335D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364499   (936192) от 03.03.2020
-
-Экшены - Creative Market - Marker Sketch Photoshop Action - 4321381 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marker Sketch - действие фотошоп превратит ваши изображения в красочный художественный эскиз. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A4147398FE185315A79D4E072F88920F6DE818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364406   (936188) от 03.03.2020
-
-Шаблоны - Wall And Desk Calendar Mockups Set [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор макетов для настенного и настольного календаря - это наша новая работа, которая состоит из 5 бесплатных макетов PSD. Если вам нравятся эти макеты в PSD, вы можете легко приобрести их прямо на нашем сайте. Существует 5 видов календарей, которые будут полезны для дизайнеров и промоутеров. Легко настраивайте их в Photoshop, добавляйте необходимые элементы и наслаждайтесь!Формат: PSDРазрешение файлов: 4000x3200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4385D87BABCF244BDBF41E3A941AF2C185345ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364497   (935693) от 03.03.2020
-
-Экшены - GraphicRiver - Embroidery Sticker - Photoshop Action - 25804960 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Embroidery Sticker - Превратите свои изображения, логотип, тексты в реалистичную накладку-вышивку на джинсовый текстиль всего за пару секунд. Любой цвет для швов! И рваный-рваный край!Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746BF6C6D986035149A556D8F18BF490D9398AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364453   (935648) от 03.03.2020
-
-3D модели - 3DDD - DECORATION SET - 3D Models - 3dskyPro - Volume 3 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 95 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2767F719F414DCEFE765AD3872FA38A0DAF4BCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093186   (935014) от 14.01.2017
-
-Шрифты - Snow For Santa / Снег для Санты [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Количество: 2
-Разработчик: Medina Gregory
-
-Поддержка кириллицы: Есть (Русская, Украинская, Белорусская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FCEF3DEF95C605F3615073316D586C5D4DFC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985487   (934923) от 11.02.2016
-
-Футажи - VideoHive - Crossing Hearts [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фон, логотип, интро, баннер, сайт, меню DVD, презентация, видео переход. Так на оф.сайте характеризуют область применения данных футажей. Подойдут для Дня Святого Валентина, свадеб.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85800632817DA70F2B29D88867FF143B5EC4AAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985529   (934919) от 11.02.2016
-
-Футажи - VideoHive - Heart 2 With Alpha Channel [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футаж анимированные сердечки. Для использования в романтических клипах.Формат: MOVРазрешение файлов: 1920×1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17186A4BA92830348EEB26A0EDC14BF5064DD7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985440   (934837) от 11.02.2016
-
-Шаблоны - Embassy Powerpoint Presentation [PPT, PPTX]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококачественный бизнес-шаблон для PowerPoint,
-более 2900 слайдов в нескольких цветовых решениях.
-Шаблон имеет как стандартное разрешение 16:9, так и 4:3.
-Дополнительный клипарт в данный шаблон включен.Формат: PPT, PPTXРазрешение файлов: 1920х1080 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091E89FAFB8512D3E3140B7E4CA4F521C581D4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364619   (934740) от 04.03.2020
-
-Растровый клипарт - Tomas Veselovsky - Deeezy - Free Neon Style Colorful 3D Lettering - 10915 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный алфавит-латиница в виде неоновых ламп. Материал раздается с официальной документацией.Разработчик: Tomas VeselovskyФормат: PNGРазрешение файлов: 900 x 900
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AAF8209F3BADF09DDECB9BC77597379D011FEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

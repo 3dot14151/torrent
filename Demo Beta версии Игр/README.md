@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1870812   (1068861) от 
+
+Better Than Dead (2026) [Multi] (0.190) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Беспощадный шутер от первого лица. Одна девушка. Один пистолет. Одна запись. Они ворвались в её жизнь. Они сняли её на видео. Они разрушили её. Теперь она вернулась и уже снимает их. Вы играете за выжившую, которой надоело бегать. У неё есть пистолет, нагрудная камера и список целей. Жестокий revenge FPS с видом с бодикамеры, действие которого происходит в Гонконге. (   Читать дальше...   )Тип издания: RepackРазработчик: MONTE GALLOЖанр: Экшены, ИндиЯзык субтитров: Английский, Японский, Корейский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Корейский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F5E5D18F59F515637B8C20118FBD9C51F721F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870901   (1068818) от 
+
+Samsara (2026) [Ru/Multi] (Build 23220073) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Samsara - это экшен-RPG в стиле souls-like, основанная на буддийской мифологии. История вдохновлена «Тибетской книгой мёртвых», которая описывает опыт сознания в «Бардо» - промежуточном состоянии между смертью и перерождением. В этом состоянии вы оказываетесь в загадочном и смертельно опасном загробном мире Кама-дхату, где смерть - это не конец.Тип издания: RepackРазработчик: I N F I N I T Y 27Жанр: Экшены, Приключенческие игры, Инди, Ролевые игры,Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB537C010ACB670825E064098B829EC29DDD817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870222   (1068639) от 
+
+Rise of Piracy (2026) [Ru/Multi] (0.501) Repack AIexandro [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Rise of Piracy, сочетающая элементы стратегии в реальном времени и приключенческого экшена, погружает в жестокий мир морских сражений периода 1600–1900 годов. Здесь управление крошечным судном постепенно перерастает в командование грозной армадой, способной стирать с лица земли целые форпосты благодаря системе полной разрушаемости окружения. Артиллерийский огонь (   Читать дальше...   )Тип издания: RepackРазработчик: IrishJohnGamesЖанр: Симулятор, СтратегияЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9CE1BC3F3B716E8AC9480738DE719A3048FF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868400   (1067665) от 04.05.2026
 
 Heroes of Might and Magic Olden Era (2026) [Ru/Multi] (0.80.07) Repack Let'sРlay [Early Access]
@@ -7,7 +85,7 @@ Heroes of Might and Magic Olden Era (2026) [Ru/Multi] (0.80.07) Repack Let'sРla
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +111,7 @@ Spark in the Dark (2026) [Ru/Multi] (0.3.7) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +137,7 @@ Mistbound / Тумань (2026) [Ru/En] (Build 22477588) Repack Other s [Early A
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +163,7 @@ VASILISA (2025) [Ru/Multi] (Build 21812276) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +189,7 @@ New Cycle (2024) [Ru/Multi] (26-490.03) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Starsand Island (2026) [Ru/Multi] (1.0.0.7673.194862/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +241,7 @@ The Legend of Khiimori (2026) [Ru/Multi] (0.6.4/dlc) Repack Let'sРlay [Early Ac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Everwind (2026) [Ru/Multi] (0.4.417/dlc) Repack Let'sРlay [Capybara Edition] [E
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +293,7 @@ The Scouring (2025) [Ru/Multi] (19.03.26/dlc) Repack Let'sРlay [Digital Deluxe]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +319,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.77.166257-S35) Repack Let'sРlay [Early 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Nested Lands (2026) [Ru/Multi] (0.7.8.12) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +371,7 @@ Pioner (2025) [Ru/Multi] (Build 21335712/dlc) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -319,7 +397,7 @@ R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (Build 21633477) Repa
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -345,7 +423,7 @@ Assetto Corsa Rally (2025) [Ru/Multi] (0.3.1 HF) Repack Let'sРlay [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +449,7 @@ Mashinky (2018) [Ru/Multi] (25.02.2026) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +475,7 @@ Car Service Together (2026) [Ru/Multi] (0.9F6) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +501,7 @@ Purrrifiers: Cleaning Chaos (2025) [Ru/Multi] (0.8444) Repack Pioneer [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +527,7 @@ Outbreak Island (2025) [Ru/Multi] (Update 9/dlc) Repack Let'sРlay [Supporter Ed
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +553,7 @@ Kupala / Купала (2026) [Ru/En] (Build 21869141) Repack Other s [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +579,7 @@ Menace (2026) [Ru/Multi] (0.6.8) License GOG [Earle Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +605,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.050) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +631,7 @@ Comix Zero (2026) [Multi] (0.4.5) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,7 +657,7 @@ THE IRONY (2026) [Multi] (Alpha 0.1.2) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -590,84 +668,6 @@ THE IRONY (2026) [Multi] (Alpha 0.1.2) Repack Let'sРlay [Playtest]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA097458717E8EB081ED694F8C54E22BAB731B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854184   (1057076) от 16.02.2026
-
-Warhammer 40,000 Dark Heresy (2026) [Ru/Multi] (0.0.3.507) Repack Let'sРlay [Playtest]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - инквизитор, а ваша основная цель: защитить Империум любыми необходимыми средствами. Будь то от гнусных ксеносов, еретиков-предателей или ужасных мутантов. Станьте проводником воли Императора там, где надежды не было десятилетиями, исследуйте тайны сводящей с ума Тиран-Звезды и преодолейте самые ужасные испытания, которые готовит вам Ноктис Этерна.Тип издания: RepackРазработчик: Owlcat GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205CD574182AB1AEAE0DEA22159D69022440C95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852434   (1056039) от 07.02.2026
-
-Aztecs: The Last Sun (2025) [Ru/Multi] (0.6.0/dlc) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056039.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Aztecs The Last Sun игрок становится правителем Теночтитлан, великого государства, способного завоевать весь мир. На пользователя полагается множество задач, как на руководителя собственной державы. Ему предстоит развивать город, повышать военную мощь и улучшать качество жизни горожан. Взяв управление над ацтеками, потребуется пройти через три великих века, господствовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Play2Chill S.A.Жанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55F4A8069C5EE6DEF6A32CC106EC44C762DEF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851754   (1055472) от 03.02.2026
-
-Being and Becoming (2026) [Ru/Multi] (2023.2.20f1) Repack Necros [Playtest]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Being & Becoming — это атмосферная метроидвания об умирающем королевстве, которое держится лишь на совместном сновидении тысяч несостоявшихся мучеников. Пророчество Слова сбывается, и сама судьба обращается против вас. Перепишите свою роль в Слове, чтобы вырваться из чудовищного...Тип издания: RepackРазработчик: IchthysЖанр: Экшены, Инди, МетроидванияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B053DD711D8933CE53EC7D5577C4263A06516EF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

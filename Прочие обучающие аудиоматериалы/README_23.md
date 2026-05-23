@@ -1,3 +1,82 @@
+###  Публикация: 1838834   (261468) от 25.11.2025
+
+Роберт Макки | Экшен: Как создать захватывающий сюжет в кино, играх и литературе (2025) [MP3, Вадим Чернобельский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Легенда в области создания историй Роберт Макки и его соавтор Бассим Эль-Вакиль предлагают ключи к созданию блистательных сюжетов в жанре экшен. Они разбирают особенности жанра, рассказывают об основных элементах экшена, о том, как справляться с требованиями сюжета и каких клише необходимо избегать. В качестве примеров авторы ссылаются на самые популярные боевики (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 07:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D984224DAC437E133CBAA4E75A3339AE4456199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838145   (257981) от 21.11.2025
+
+Ричард Фейнман | Радость познания (2025) [MP3, Кирик Вячеслав]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ричард Фейнман — безусловный гений науки. Хотя, сам о себе он отзывался как о человеке «с весьма ограниченным и не развитым интеллектом». Его скромность наряду с острым умом, прямолинейностью и оригинальной манерой изложения — составные части целого феномена, за которым интересно наблюдать в "Радости познания". В этой книге вы не найдете сложных формул (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 11:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C27A2872976AE56393F7FDAC21A1409B2F64D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837896   (257908) от 19.11.2025
+
+Джеймс Чарни, Ной Чарни | Всё о кино за 12 часов. Краткая история кинематографа (2025) [MP3, Антон Ческидов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Если вы задумались о покупке этой книги, то наверняка любите смотреть фильмы, как и все мы. Для большинства зрителей кино – это источник пассивного развлечения, однако стоит только проявить немного внимательности и терпения, восприятие любимых фильмов меняется. Впечатления от просмотра становятся ярче, рождается понимание киноискусства.
+Данная книга подскажет вам, (   Читать дальше...   )Жанр: История искусства, История киноИздательство: БОМБОРАПродолжительность: 12:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B38530C56395DF7984A59A4C1AA348586BABEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837657   (257704) от 18.11.2025
 
 Фредерик Бегбедер | Библиотека выживания. 50 лучших книг (2024) [MP3, Константин Ермаков]
@@ -6,7 +85,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -141,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -195,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -223,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -249,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -329,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -355,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -412,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -439,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -466,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -492,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -518,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -545,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -572,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -600,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -611,89 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD5823E17E3DBCEC51C9567C0D0847D1382737A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833199   (246351) от 02.11.2025
-
-Лэс Гиблин | Принципы уверенного общения. Говори так, чтобы слушали, действуй так, чтобы уважали (2020) [PDF, MP3, Амир Рашидов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте гуру коммуникации и добивайтесь всего с помощью простых правил общения. Их автор, Лэс Гиблин, – признанный эксперт в области межличностного взаимодействия. Он провел более тысячи семинаров по коммуникационным навыкам и основал собственный Центр человеческих отношений. По всему миру было продано более миллиона экземпляров его книг.
-Прочитав эту книгу, вы узнаете, (   Читать дальше...   )Жанр: Зарубежная деловая литература, Зарубежная психологияИздательство: ЭксмоФормат: PDFПродолжительность: 05:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BAE13A8D7725E8AA59395ACDDB4DE33246811A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833203   (246162) от 01.11.2025
-
-Джеймс Миллер | Еда и эволюция. История Homo Sapiens в тарелке (2019) [MP3, Павел Потапов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы едим по нескольку раз в день, мы изобретаем новые блюда и совершенствуем способы приготовления старых, мы изучаем кулинарное искусство и пробуем кухню других стран и континентов, но при этом даже не обращаем внимания на то, как тесно история еды связана с историей цивилизации. Кажется, что и нет никакой связи и у еды нет никакой истории.
-На самом деле история (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 12:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95172E935E5A96A8B0B9C284C5B34BFFB7AE9F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607807   (245985) от 28.01.2023
-
-Кларксон Уэнсли | Гиблое дело (2021) [MP3, Константин Романенко]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245985.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге много интригующего:
-– ГРОМКИЕ НЕРАСКРЫТЫЕ ДЕЛА, СТАВШИЕ ОСНОВОЙ ДЛЯ КИНОСЮЖЕТОВ.
-– СЕРИЙНЫЕ УБИЙЦЫ.
-– СЕКСУАЛЬНЫЕ МАНЬЯКИ.(   Читать дальше...   )Жанр: КриминалистикаПродолжительность: 08:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C428A99CCF3E1CBC69A71B9E625CBEE8FE6AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

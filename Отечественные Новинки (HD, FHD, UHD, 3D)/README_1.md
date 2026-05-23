@@ -1,3 +1,55 @@
+###  Публикация: 1855758   (1058470) от 25.02.2026
+
+Вечно эта любовь! (2026) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Киноальманах, посвященный чувству любви. Девушка влюбляется в своего ангела-хранителя, который только что стал человеком. Мужчина отправляет на свидание своего клона-робота, но тот влюбляется в его девушку. Ради любви к юной красавице внук готов отправить бабушку на тот свет. Четыре женщины так любят одного мужчину, что готовы его убить. В отношения бабушки и внучки (   Читать дальше...   )Производство: РоссияЖанр: Драма, мелодрама, фэнтезиРежиссер: Анастасия Пастори, Виталий МокрушинАктеры: Николай Коротаев, Валерий Гаркалин, Инна Будникова, Майя Мокрушина, Александр Сибирцев, Екатерина Клочкова, Алексей Шарапов, Инна Выходцева, Максим Туранцев, Александр КузнецовПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4E07403C4166D5F79B2BDF68D39AF5D2E44268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855445   (1058119) от 23.02.2026
+
+За Палыча! 2 (2025) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Когда-то Артём Голубь был мажором, уверенным, что отец «порешает» любой вопрос. Но жизнь все расставила по местам: после аварии Тёма попадает в ВДВ. Вернувшись, он работает, растит дочь и старается жить по совести. А дед, легендарный десантник Палыч, выращивает яблони и мечтает о покое. Однако в Подгорный приезжает бизнесмен Василий, он хочет снести памятник Воину-освободителю (   Читать дальше...   )Производство: Россия / Викинг-СТЖанр: комедия, военный, боевикРежиссер: Максим БоевАктеры: Сергей Шакуров, Анатолий Журавлёв, Татьяна Догилева, Евгений Зарубин, Екатерина Лисина, Николай Наумов, Егор Овчинников, Валерий Баринов, Денис Корнух, Эмилия БоеваСубтитры: отсутствуютПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9211BF1FCAD5F160A4C19B611B0F5CDCBA86892E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854631   (1057479) от 19.02.2026
 
 Завербованный (2026) WEBRip [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08D3945EDA256189D596019EA1E132FD27828AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845085   (1050522) от 29.12.2025
-
-Новогоднее письмо (2025) WEBRip [H.264/1080p]
-
->>Горячие новинки
->>Отечественные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Васо живет в Тбилиси. Он счастлив в браке уже больше тридцати лет. Жизнь идет своим чередом, пока однажды, в канун Нового года, его семья не получает письмо из прошлого от незнакомой женщины Маргариты. В письме написано, что в России, в Красноярске у Васо есть внебрачная дочь. Семья отправляет Васо в Россию искать "брошенного ребенка". За три дня до Нового (   Читать дальше...   )Производство: Россия | Кинокомпания "Мечта"Жанр: Драма, семейный, комедияРежиссер: Ирина ГобозашвилиАктеры: Рамиль Сабитов, Валентина Светлова, Мариам Псутури, Георгий Сагиашвили, Екатерина Данилова, София Эль-Гедави, Ольга Смирнова, Алексей Шевченков, Маша Кошина, Максим Костромыкини др.Субтитры: Русские (AI)Продолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C3D41FEB5EBCAB6ED5C90963D7E90E04DC0696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845133   (1050473) от 30.12.2025
-
-Лысый нянь (2025) WEBRip [H.264/1080p]
-
->>Горячие новинки
->>Отечественные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывалому спецназовцу поручают найти украденную программу государственной важности, спрятанную в доме многодетной семьи. Совершенно не приспособленному к заботе о детях майору предстоит устроиться на работу  нянем для детей, которые не упустят возможности напакостить ему и его напарнице из ФСБ.Производство: Россия | «Берг Саунд», Кинокомпания «Темп»Жанр: КомедияРежиссер: Алиса ШитиковаАктеры: Никита Панфилов, Марина Васильева, Марина Денисова, Мария Абрамова, Марк-Малик Мурашкин, Варвара Куприна, Максим Белбородов, Ян Цапник, Денис Бузин, Елизавета ГончаренкоСубтитры: ОтсутствуютПродолжительность: 01:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C40F1440830A7CE00DE002BD29BC55335B3EB84
 ```
 
 https://mybot314.ru/tekegram_catalog/

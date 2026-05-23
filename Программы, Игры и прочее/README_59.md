@@ -1,3 +1,82 @@
+###  Публикация: 510210   (669845) от 14.06.2012
+
+AndroiTS Compass Pro 1.01 - Компас (2012) <En>
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный взгляд!
+Не обычного компаса!Разработчик: Alessandro BonettiЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537385   (667712) от 16.03.2022
+
+Mobi Calculator PRO 1.4.0 Mod by Kirhe [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Mobi Калькулятор PRO приложение, которое будет полезно для всех, кто занимается математикой, инженерным делом и прочими работами связанными с вычислительными действиями. Приложение также будет полезно для студентов и преподавателей ВУЗов, которое значительно облегчит выполнение расчётов. Данный калькулятор работает с полными выражениями на основе RPN-алгоритмов. (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.07.2015Разработчик: IPПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7451792F2ED556877E0C4897F84D09A5F8A6FE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537386   (667671) от 16.03.2022
+
+Mobi Calculator PRO 1.4.2 Mod by andrey.utasco [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Mobi Калькулятор PRO приложение, которое будет полезно для всех, кто занимается математикой, инженерным делом и прочими работами связанными с вычислительными действиями. Приложение также будет полезно для студентов и преподавателей ВУЗов, которое значительно облегчит выполнение расчётов. Данный калькулятор работает с полными выражениями на основе RPN-алгоритмов. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.02.2019Разработчик: IPПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99AE79D38CCB65CF0D50DBADD28097FD40D1698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 901389   (662907) от 26.05.2015
 
 Chicken Invaders / Куриные захватчики 5 версий [En]
@@ -6,7 +85,7 @@ Chicken Invaders / Куриные захватчики 5 версий [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ DuckTales: Remastered / Утиные истории 1.0.2 + Mod [Money] [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +165,7 @@ HERE WeGo v2.0.11424.114741 [Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +248,7 @@ RSS Reader v1.7.0 [Ru] - чтение RSS-лент
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +301,7 @@ Cказки для малышей 3.0.3 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -251,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -278,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -332,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -358,7 +437,7 @@ Where's My Perry / Где же Перри? 1.7.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +465,7 @@ Root Browser (File Manager) 2.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +491,7 @@ CAD Touch Pro v5.09 [Ru/En] - Редактор и просмотрщик фай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +543,7 @@ Half-Life HD+ADDONS+MODS [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +597,7 @@ Samsung Все Сматфоны и планшеты [Ru]
 >>Прошивки для Android устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +623,7 @@ Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -577,7 +656,7 @@ Life Is Strange Anthology [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,87 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E428874ED6541567D13A123442E17F273E68DC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882710   (647005) от 07.06.2015
-
-MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не всегда бывает удобно работать как советует нам Google – через облака. Иногда хочется просто подключить компьютер напрямую к телефону, чтобы поработать с контактами, распланировать дела в календаре или разгрести СМС переписку. Некоторые производители смартфонов Android выпускают для этого специальное ПО, которое подходит только для их устройств. А я расскажу вам (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 5 мая 2015 г.Разработчик: FJ SoftwaredevelopmentПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DAA00314403B9CF1FE0DC25220EB8C03E55130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907058   (641367) от 10.06.2015
-
-Настоящие Ретро Игры / Real Retro Games 1.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящие ретро игры, это сборник лучших игр с самой популярной консоли 90х – Brick Games. Вы устали от сложных и непонятных игрушек? Соскучились по любимым классическим играм? Попробуйте, хотя бы раз, чтобы вспомнить, как здорово это было!
-Теперь, настоящие ретро игры доступны для ваших телефонов и планшетов. Оригинальный звук, удобное управление, различные обложки (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 5 июня 2015 г.Разработчик: NOMOCПоддерживаемая ОС: Android 2.3+Жанр: ArcadeЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E4FE1A60DD2D4C23769AFD4BD78CB737B7B10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897231   (641108) от 10.06.2015
-
-Angry Birds Seasons 5.2.0 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angry Birds устраивают торжества по поводу различных праздников и событий со всего света! Присоединяйся к ним! Наслаждайся любимой затягивающей игрой с впечатляющими переменами! В свежем, весеннем обновлении мы отправляемся в Tropigal Paradise!
-СВЕЖИЙ ЭПИЗОД: Tropigal Paradise
-Уничтожай надоедливых свиней на 26 красивейших уровнях — островах Тихого океана, но остерегайся (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 6 июня 2015 г.Разработчик: Rovio Entertainment LtdПоддерживаемая ОС: Android 2.3 +Жанр: ArcadeЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A673DE7FAA39CAAA2C5347B793DF891FF69FF128
 ```
 
 https://mybot314.ru/tekegram_catalog/

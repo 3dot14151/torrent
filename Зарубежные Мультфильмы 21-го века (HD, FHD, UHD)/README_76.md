@@ -1,3 +1,81 @@
+###  Публикация: 573337   (377758) от 11.11.2012
+
+Нити / Strіngs (2004) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Трагическая гибель владыки великого Авалона вновь разожгла веками тлевшую вражду между авалонцами и зеритами. Юный сын погибшего государя Хэл Тара озабочен не будущим царствованием, а желанием жестоко отомстить зеритам за смерть отца. Переодевшись в простые одежды и взяв с собой только отцовский меч, Хэл покидает родной замок и отправляется навстречу неизвестности…Жанр: Кукольный, Приключения, Фэнтези, ДрамаРежиссер: Андерс Рённов КларлундПерсонажи: Джеймс МакЭвой, Катрин МакКормак, Джулиан Гловер, Дерек Джекоби, Иэн Харт, Клер Скиннер, Дэвид Хэрвуд, Саманта Бонд, Марина Бурас, Пернилла ХёймаркПеревод: Профессиональный (многоголосый, закадровый) / Авторский (одноголосый, закадровый) Антон КарповскийПродолжительность: 01:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208F6776AE37A6242237D62BD551D456DDFD0CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834292   (377752) от 25.10.2014
+
+Почтальон Пэт / Postman Pat: The Movie (2014) Blu-ray 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сколько нужно почтальонов для спасения мира? Достаточно одного, если он работает в паре с любопытным котом, готовым к любым приключениям.Жанр: Мультфильм, комедия, семейный, полнометражныйРежиссер: Майкл Д’Иса-ХоганПеревод: ДублированныйПродолжительность: 01:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7470AA92C28BD45F0F53E170E9D3D0ED36A636A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720068   (376967) от 09.11.2013
+
+Скуби-Ду! Музыка вампира / The Outback (2011) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Скуби-Ду и его команда Шэгги, Фредди, Дафни и Велма берутся за новое дело. Но дело это не обычное, на сей раз им предстоит встреча с потусторонними существами, такими как вампиры и оборотни. Но эта отважная пятерка детективов не боится ни чего, и отправляется в самое логово злодеев…Производство: СШАЖанр: Мультфильм, ДетективРежиссер: Дэвид БлокАктеры: Обба Бабатунде, Джефф Беннетт, Джулианна Бушер, Кристиан Кэмпбелл, Минди Кон, Джим Каммингс, Грэй ДеЛисл, Мэттью Лиллард, Роб Полсен, Минди СтерлингПеревод: Дублированный | ПифагорСубтитры: Вшитые ОтключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: Качество видео: BDRip [720р]
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA9C58021A78414DC1109B4DBD6CF4FD4B389E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327288   (376070) от 24.09.2019
 
 Руслан и Людмила: Перезагрузка / Викрадена принцеса: Руслан i Людмила (2018) BDRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ UglyDolls. Куклы с характером / UglyDolls (2019) BDRemux [H.264/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ UglyDolls. Куклы с характером / UglyDolls (2019) BDRip [H.264/10
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A47414377F50BEF1318F51AD845007F23D6F1238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254901   (369802) от 15.10.2018
-
-Константин: Город демонов / Constantine: City of Demons (2018) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь экзорциста Джона Константина может закончится в любой момент. Его убивает не только пагубная привычка выкуривать по десятку сигарет в день, но и утомительная работа, ведь изгонять демонов из человеческого мира — дело непростое. Каждое новое столкновение с силами зла заставляет Джона вступать в схватку, где победу способны принести не только острый ум и знание (   Читать дальше...   )Производство: США /  Warner Bros. Animation,DC Comics,DC EntertainmentЖанр: МультфильмРежиссер: Даг МерфиАктеры: Лора Бэйли (Trish / Asa the Healer, озвучка), Робин Аткин Даунс (Nergal, озвучка), Мэтт Райан (John Constantine, озвучка), Кевин Майкл Ричардсон (Mahonin, озвучка) и др.Перевод: Многоголосый закадровый (ненормативная лексика)Озвучка / Автор перевода: Flarrow Films / ColdFilmСубтитры: Английские, французские, немецкие, испанскиеПродолжительность: 01:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A8C988D3DA3C849E29B7023D9F1ABECF3B614F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327900   (369801) от 27.09.2019
-
-История игрушек 4 / Toy Story 4 (2019) BDRip [H.264/720p-LQ] [MVO] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический рейнджер Баз Лайтер, ковбой Вуди, собака Спиралька, тиранозавр Рекс и вся команда игрушек снова вместе, и они как никогда готовы к приключениям. С тех пор как Энди поступил в колледж, игрушки поселились в доме своей новой хозяйки Бонни. В свой первый день в школе Бонни смастерила себе из отходов новую игрушку Вилкинса, что положит начало череде событий, (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Фэнтези, Приключения, КомедияРежиссер: Джош КулиПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AFA381D7C37E4BD4E5B97499DFCF594E7BDA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950287   (369572) от 26.10.2015
-
-Миньоны / Minions (2015) Blu-ray [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миньоны живут на планете гораздо дольше нас. У них одна навязчивая идея — служить самой Гадкой личности из имеющихся в наличии. Динозавры, фараоны, Дракула, Наполеон — все они оказались недолговечны. И тогда миньоны рванули в Нью-Йорк. Их ждут деньги, власть, роковая суперзлодейка Скарлет Оверкилл и, конечно же, вкуснейшая «банана»! Во всяком случае, так им кажется.Производство: США / Illumination EntertainmentЖанр: мультфильм, комедия, семейныйРежиссер: Кайл Балда, Пьер КоффанАктеры: Сандра Буллок, Джон Хэмм, Майкл Китон, Эллисон Дженни, Стив Куган, Дженнифер Сондерс, Джеффри Раш, Стив Карелл, Пьер Соффин, Кэти МиксонПеревод: Профессиональный (полное дублирование) (iTunes Russia)Язык субтитров: Английский, Португальский, Китайский, Корейский, Индонезийский, Испанский, ТайскийПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB2DBE27E394664B1B38ACCA2B76ADE72E467A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

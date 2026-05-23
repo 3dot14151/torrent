@@ -1,3 +1,177 @@
+###  Публикация: 1615437   (1037590) от 26.02.2023
+
+La Scaltra - Mater (Мама) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:02:45]
+02. Mater [00:06:52]
+03. Azazel [00:06:07]
+04. Dancing on Debris [00:03:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BB142082A94D59BC6DCAA567A8071A62C7C78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615584   (1037547) от 26.02.2023
+
+Ken Hensley - Past & Present (Songs In Time): A Ken Hensley Anthology 1972-2021 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. When
+02. Inside the Mystery
+03. New York(   Читать дальше...   )Жанр: Rock, Hard Rock |Продолжительность: 05:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6921CB811330DB1B8297E216ED32A4D42AE6B4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441908   (1037200) от 23.01.2021
+
+W.E.T. - Retransmission (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Big Boys Don't Cry
+02. The Moment Of Truth
+03. The Call Of The Wild
+04. Got To Be About Love(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D1DD794FE366A2F9EA615926EF22A2A45C78C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615877   (1037010) от 28.02.2023
+
+Cold Drop - Cold Drop (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lucille
+02. All Night Baby
+03. Don't Wake Me Up
+04. Broke My Heart(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D924B1B91DAEC683B9D7DD9B4EAAA1E40BD55588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615667   (1036998) от 28.02.2023
+
+Whitesnake - Slip Of The Tongue (1989) Reissue, 1996, Geffen Goldline [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Slip Of The Tongue (5:21)
+02. Cheap An' Nasty (3:29)
+03. Fool For Your Loving (4:12)
+04. Now You're Gone (4:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64E77D0EC3086D1CC2AA35C46A057B71A3FB313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442074   (1036874) от 24.01.2021
+
+Europe - Gold (2021) 3 CD, Compilation [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Final Countdown (4:00)
+02. Rock The Night (4:06)
+03. Carrie (4:31)(   Читать дальше...   )Жанр: Melodic Hard Rock, Arena RockПродолжительность: 03:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D105E569A153E05CB4145FEDF622EEA6B816C4D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 372251   (1036639) от 01.03.2023
 
 Ian Gillan - 33 Albums (1976 - 2019) 52 CD [FLAC|Lossless|tracks + .cue, image + .cue]<Hard Rock>
@@ -6,7 +180,7 @@ Ian Gillan - 33 Albums (1976 - 2019) 52 CD [FLAC|Lossless|tracks + .cue, image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +209,7 @@ Whitesnake - 1987 (1987) Reissue, 1988, CBS/Sony [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +238,7 @@ Ravenstine - Ravenstine (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +267,7 @@ Tragedy - I Am Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +296,7 @@ Wolves Of Saturn - the deserts echo and the peyote delusion (2023) [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +325,7 @@ Redlight King - In Our Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +354,7 @@ Snakebite Delight - Killer Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +383,7 @@ Icarus Falls - Hollow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +412,7 @@ Trench Dogs - Stockholmiana (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +441,7 @@ Temptress - SEE (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Doom, Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +470,7 @@ Michael Schenker Group - Immortal (2021) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +499,7 @@ Ram Jam - 3 Albums, 1 Single (1977-2006) [FLAC|Lossless|image + .cue | tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +528,7 @@ April Wine - 21 Albums, 1 Box-set, 35 CD (1971-2016) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +557,7 @@ Steel Panther - 7 Albums (2009-2023) [FLAC|Lossless|image + .cue] <Glam Rock, Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +586,7 @@ Seventh Crystal - Wonderland (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +615,7 @@ Demons Down - I Stand (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +644,7 @@ Wig Wam - Never Say Die (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +673,7 @@ Wig Wam - Out Of The Dark (2023) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +702,7 @@ Iron Butterfly - 9 Albums, 1 Box-set, 26 CD (1967-2020) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - The Many Faces Of Def Leppard - A Journey Through The Inner World Of Def Le
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,180 +745,6 @@ CD - 1 -  The Many Faces Of Def Leppard:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E15C6B3A7665AED6EDE25297A98C2C3A5437A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619317   (1033212) от 15.03.2023
-
-Vilivant - Running On Empty (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Life [00:03:32]
-02. Moving Forward [00:02:47]
-03. Running on Empty [00:03:11]
-04. Comatose [00:03:32](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1A806F48FCE024414382E8FC636CC3C5FE3B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176990   (1033191) от 07.02.2021
-
-Spooky Tooth - 12 Albums, 1 Box-set, 24 CD (1967-2015) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Roots Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spooky Tooth — британская рок-группа, образованная в 1967 году в Лондоне, Англия, участниками The VIPs, The Ramrods и Art. Spooky Tooth, исполнявшие хард-рок с элементами прогрессив, одними из первых (наряду с The Band и Procol Harum) использовали клавишный дуэт в составе. Группа, в ранние годы нередко сравнивавшаяся с Traffic (делами обеих групп управлял один менеджер, (   Читать дальше...   )--------------------------
-
-01. I Think I'm Going Weird (3:21)
-02. What's That Sound (For What It's Worth) (2:50)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Roots Rock |Продолжительность: 20:56:35 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE14EA7966D3C0EC4CEE5E446744476D2F2ADA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446330   (1033050) от 08.02.2021
-
-The Norseman Company - The Coming Of The Chord (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Here Comes Rock and Roll [4:19]
- 2. Master of the Dark [2:55]
- 3. When the Hammer Falls [3:43]
- 4. Since You`ve Been Gone [4:10](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Rock & RollПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1D2F2C555134B9BCED7F30818CDEED6DD8A4B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619479   (1033002) от 16.03.2023
-
-Marco Luponero & The Loud Ones - The War On Science (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Serpent 01:30
-02. Wolf 'Em Down 02:24
-03. Trouble Never Looked So Good 02:59
-04. Blazing Through the Fury 02:31(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8778301496FF287611615A26DEE2C9BDE529A350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446548   (1032731) от 09.02.2021
-
-W.E.T. - 5 Studio Albums (2009-2021) 6xCD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032731.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - W.E.T
-2013 - Rise Up
-2014 - 2014 - One Live-In Stockholm
-2018 - Earthrage(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1644E5D737BBCC354A253499EC243B2A2D5EED4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446829   (1032339) от 11.02.2021
-
-The Raz - The Raz (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Garden (5:55)
-02. No One To Blame (4:50)
-03. Different Colored Leaves (4:39)
-04. Since I Lost You (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3F98FF79B887FAB19D1C6A75F80F92EB365745
 ```
 
 https://mybot314.ru/tekegram_catalog/

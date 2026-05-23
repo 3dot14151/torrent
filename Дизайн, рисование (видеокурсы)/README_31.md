@@ -1,3 +1,82 @@
+###  Публикация: 1398223   (736104) от 25.07.2020
+
+Chris Maynard | Color Theory for CG and VFX Artists (2015) PCRec [En / Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что мы можем сказать? Не все хорошие видео о полигонах и каротажных кривых. После того как вы освоите приёмы из этого видео, вы больше никогда не сможете смотреть телевидение и фильмы. Когда вы увидите сколько телевизионных шоу и фильмов используют шаблонную цветокоррекцию для всех блокбастеров, вы больше не сможете просидеть фильм, и не выкрикнуть то, чему вы научились (   Читать дальше...   )Производство: cmiVFXЖанр: Создание видеоЯзык озвучки: Русский, АнглийскийПродолжительность: 02:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A850BF050ADC56F0CADBC52B9ACC981369FAFE22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527790   (735813) от 30.01.2022
+
+Lynda, William Lidwell | Universal Principles of Design (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В дизайне очень много негласных правил и загадочных теорий, которые позволяют делать дизайнерские работы намного лучше. Впервые, мы рассмотрим их все в одном курсе. В основу "Универсальных принципов дизайна" положена книга Уильяма Лидвелла, удостоенная множества наград. Каждые 2 недели мы будет рассматриваться по одному принципу, начиная с известных и проверенных (   Читать дальше...   )Производство: LyndaЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 05:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B471C7BA85F3E506F49ADB0CC1D15941C6C609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527786   (735801) от 30.01.2022
+
+Digital Tutors, Laura Smith | Animating an Infographic in After Effects (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой серии уроков по After Effects мы рассмотрим процесс создания анимационной инфографики.
+Начнем с подготовки к работе файла Illustrator из предыдущего курса, в котором содержится необходимая нам графика, а затем с головой погрузимся в After Effects, где с помощью диаграмм и анимации постараемся рассказать увлекательную историю, которая не оставит равнодушным (   Читать дальше...   )Производство: Digital TutorsЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 08:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CFDB31182426DA9E5D9BA815F45040AA9DC9E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527811   (735780) от 30.01.2022
 
 FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth Tutorial Course [UE5] (2021) PCRec [En]
@@ -6,7 +85,7 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +113,7 @@ Flippednormals, Abraham Leal | Zbrush 2021 for Absolute Beginners (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +141,7 @@ Wingfox Studio, Alex Vochshakin | Creative Environment Creation in Unreal Engine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +167,7 @@ Udemy, Nikolay Naydenov | Orc Rider and Bull Creature Creation in Zbrush (2019) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +196,7 @@ CGMA, CGsociety, Johan Lithvall | Hair creation for games (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +222,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +248,7 @@ Cubebrush, Tom Paul | Zbrush for Hard Surface Design (2014) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +276,7 @@ RENDER.CAMP, Даниил Нагаец | Профессиональная Виз
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -225,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -253,7 +332,7 @@ Motion Design School | Animated Typefaces with Animography (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -281,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,7 +412,7 @@ Motion Design School | CG Adventure (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +465,7 @@ Udemy, Jan Boode | Fighter Girl Character in Blender 2.91 Tutorial (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -414,7 +493,7 @@ Allan McKay | FX Technical Director Transformation Module 15 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -442,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -471,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +577,7 @@ Skillshare, Miguel Nogueira | Realistic Character Design for Games (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -525,7 +604,7 @@ Skillshare, Neil Bettison | Blender 3 The Ultimate Medieval Scene Course (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -580,7 +659,7 @@ CGCircuit, Matt Skonicki | Scratch to Substance Volume 2 (2018) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,89 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48E89C87BD61244E2C66E10A74D3678F75276269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529326   (732627) от 06.02.2022
-
-Rebelway, Igor Zanic | Water FX in Houdini (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Houdini стал популярным инструментом в индустрии FX. Того, кто освоит его потенциал, будет невозможно остановить!
-«Ныряйте глубже» в водные эффекты и не бойтесь навести «брызг» в этом обширном мастер-классе. В нем Вы не только «намочите ножки». А если Вас нужно немного подтолкнуть, чтобы Вы зашли в воду, мы поможем с этим. Научитесь создавать полный спектр водных (   Читать дальше...   )Производство: RebelwayЖанр: 3D-моделированиеЯзык озвучки: АнглийскийПродолжительность: 16:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FEF44BBD6326793CA25525E08FBD9F5E0CFC319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529724   (732455) от 07.02.2022
-
-Gumroad, Daniel Thiger | Rock Creation Techniques Part 2: Surface Detailing (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скалы и камни это одни из моих любимых материалов для создания в Substance Designer. В данной серии уроков по созданию скал я буду показывать мои самые частоиспользуемые техники.
-В данной второй части мы собираемся посмотреть на то как применить состаривание и эрозию поверхности. Мы начнем с базовых форм и постепенно добавим слои трещин, ям и так далее. Я пройдусь (   Читать дальше...   )Производство: GumroadЖанр: Созданию материаловЯзык озвучки: Русский (отдельным файлом)Продолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09B2832A2DFB50CC3DCB361ECB34841E3670E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529738   (732451) от 07.02.2022
-
-Grant Warwick | Mastering Vray Part 1-12 (2013) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mastering V-ray это элитный учебный курс для профессиональных CGI художников, разработанный с целью предоставления самого актуального и высококачественного образовательного материала на сегодняшний день.
-Сейчас в курсе участвуют около 700 человек, включая художников из ILM, Weta и Sony, а также других студий мирового уровня.
-
-Я (Grant Warwick) обладатель многочисленных (   Читать дальше...   )Жанр: 3D рендерЯзык озвучки: Английский, РусскийПродолжительность: 18:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F80962BC70DEF1E9D47BC97928F0B50761B292
 ```
 
 https://mybot314.ru/tekegram_catalog/

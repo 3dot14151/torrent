@@ -1,3 +1,29 @@
+###  Публикация: 1055801   (483770) от 24.09.2016
+
+BBC: Нюрнбергский процесс. Нацистские преступники на скамье подсудимых / Nuremberg: Nazis on Trial (2006) SATRip (3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Связав воедино повествование и драматическую реконструкцию событий, документальный сериал рассказывает о трех ключевых фигурах нацистской Германии: Германе Геринге, Альберте Шпеере и Рудольфе Гессе. Обширные архивные документы из Европы и Америки, ранее неопубликованные материалы, включающие показания самих заключенных, возрождают на экране фигуры военных преступников. (   Читать дальше...   )Телекомпания: Великобритания, США, BBC, Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:58 + 00:57:16 + 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E6B8C03017800C1D436DBAE596F7252DE52309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055482   (481276) от 25.09.2016
 
 BBC. Секс по интернету. Безопасно? / Websex: What's the Harm? (2012) SATRip
@@ -6,7 +32,7 @@ BBC. Секс по интернету. Безопасно? / Websex: What's the 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +112,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +138,7 @@ BBC: Бахус. Античный бог экстаза / Bacchus Uncovered: Anc
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +164,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +190,7 @@ BBC: Сказочный замок короля Людвига II / The Fairytal
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +216,7 @@ BBC: Мир природы. В мире жуков / Natural World. Beetlemania 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +242,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +268,7 @@ BBC. В краю муссонов: Экстравагантные изгои / W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +294,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +320,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +346,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +372,7 @@ BBC. Мрачное обаяние Адольфа Гитлера / The Dark Char
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +424,7 @@ BBC: Человек на Марсе. Экспедиция на красную п
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +450,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +502,7 @@ BBC: Выдающиеся женщины ХХ столетия. Амелия Э�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +528,7 @@ BBC: Нацизм: Предостережение истории (1999) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +556,7 @@ BBC. Загадки квантовой физики / The Secrets of Quantum Phy
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +582,7 @@ BBC: Атлантида была здесь / Atlantis: the Evidence (2010) IPTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +608,7 @@ BBC Horizon: В какой Вселенной мы находимся? / Which U
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +634,7 @@ BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,7 +660,7 @@ BBC: Каковы размеры Вселенной? / How Big is the Universe? 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -645,32 +671,6 @@ BBC: Каковы размеры Вселенной? / How Big is the Universe? 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87B1475A2F1A61457E482D83F17B59C2ECE1138D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589078   (446937) от 16.09.2020
-
-BBC. Самые опасные дороги мира / World's Most Dangerous Roads (2011) [1-3 из 3 серий] HDTVRip [720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия документальных фильмов от BBC рассказывает о самых опасных дорогах мира...Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD377F74244B9B118773CAE32B070D70A171DF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1182177   (314993) от 11.11.2017
+
+Jamie Christopherson - Stranglehold (Complete Video Game Score) (2007) [MP3|192-320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Tequila's Theme (original version)
+02. Tequila's Theme (orchestral version)
+03. T'Killa Highscore
+04. Woo Bar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABD745DC52485DCB533455230D3048A8A137A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075865   (314227) от 25.11.2016
+
+VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Luciano - Stronger [00:04:18]
+02. Young 13izz - Floi Oi [00:03:52]
+03. DJ Luciano - By Your Side [00:04:53]
+04. Djkam - Higher [00:03:41](   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C48070B7CB8E4258784C7DFDB7A330C3FAFC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582511   (312776) от 02.12.2012
 
 Патруль / End of Watch (2012) [MP3|320 кб/с]<OST>
@@ -6,7 +64,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -41,7 +99,7 @@ VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +128,7 @@ Clint Eastwood, Christian Jacob & The Tierney Sutton Band - Sully / Чудо н�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -99,7 +157,7 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +186,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +215,7 @@ VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +250,7 @@ Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +279,7 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +308,7 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +337,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -308,7 +366,7 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -337,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -366,7 +424,7 @@ NBA 2K9 Soundtrack (2008) [MP3|240-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -395,7 +453,7 @@ NBA 2K13 Soundtrack (2012) [MP3|256-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +482,7 @@ NBA 2K10 Soundtrack (2009) [MP3|256-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +511,7 @@ NBA 2K11 Soundtrack (2010) [MP3|128-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +540,7 @@ Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +569,7 @@ Max Richter - Morgan / Морган (Original Motion Picture Soundtrack) (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +598,7 @@ NBA 2K12 Soundtrack  (2011) [MP3|317-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,7 +627,7 @@ NBA 2k14 Soundtrack  (2013) [MP3|320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +656,7 @@ NBA 2K15 Soundtrack (2014) [MP3|320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,7 +685,7 @@ NBA 2K16 Soundtrack  (2015) [MP3|128-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -656,7 +714,7 @@ Michael McCann, Sascha Dikiciyan, Ed Harrison - Deus Ex: Mankind Divided (Origin
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,7 +743,7 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector'
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -699,61 +757,6 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector'
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47BC3A1568DFAD78765FCF58CE34C328A728EE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266070   (293390) от 11.12.2010
-
-Отбросы / Misfits (2009) [MP3|128-320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 03:29:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080054   (291572) от 05.12.2016
-
-Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music from the HBO Series) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Theme – Westworld (01:42)
-02. Sweetwater (02:53)
-03. Black Hole Sun (02:29)
-04. Paint it Black (05:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F46EEA61C75649EE465435FE7F7C62335B07777
 ```
 
 https://mybot314.ru/tekegram_catalog/

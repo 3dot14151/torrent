@@ -1,3 +1,81 @@
+###  Публикация: 1117932   (814630) от 24.03.2017
+
+Патерсон / Paterson  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Патерсона - сплошная романтика: он работает водителем автобуса в городе Патерсон, штат Нью-Джерси, а в свободное время пишет стихи для любимой жены Лоры. Патерсон облачает красоту повседневности в стихи и встречает поэтов повсюду - такова магия города - родины поэтов Аллена Гинзберга и Уильяма Карлоса Уильямса. Патерсон пишет в стол и даже не мечтает публиковаться, (   Читать дальше...   )Производство: США, Франция, ГерманияЖанр: драма, мелодрама, комедияРежиссер: Джим ДжармушАктеры: Адам Драйвер, Голшифте Фарахани, Нелли, Ризван Манжи, Доминик Лириано, Джейден Майкл, Бэрри Шебака Хенли, Тревор Пархэм, Трой Пархэм, Брайан МакКарти, Фрэнк Хартс, Луис Да Силва мл.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636DE290A0AB6A3860A5E1421F788D152DCB29AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117724   (814574) от 24.03.2017
+
+Годзилла: Возрождение / Shin Gojira / Shin Godzilla (2016) WEB-DL [H.264/1080p-LQ] [JAP]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Загадочная авария в туннелях под мостом-шоссе Токио Бэй Аква Лайн ставит на уши все аварийные подразделения мегаполиса. Шеф МЧС Японии созывает всех, чтобы найти причину аварии, и возможные решения сложившейся проблемы. Они еще не знают, что это только начало. Огромное существо, известное как Годзилла, встало на путь разрушения…Производство: Япония, Cine Bazar, Toho Company, Toho PicturesЖанр: Ужасы, Фантастика, Боевик, ДрамаРежиссер: Хидэаки Анно, Синдзи ХигутиАктеры: Хироки Хасэгава, Ютака Такэноути, Сатоми Исихара, Рен Осуги, Акира Эмото, Кэнго Кора, Микако Итикава, Дзюн Кунимура, Пьер Таки, Кюсаку Симада ...Перевод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: ОтсутствуютПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBBC606236151A151F659E5464E82A8226F0E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117907   (814566) от 24.03.2017
+
+Обитель зла: Последняя глава / Resident Evil: The Final Chapter  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действия фильма разворачиваются с того момента, на котором закончилась предыдущая часть. После того как Вескер предал Элис в Вашингтоне, конец истории человечества стал еще ближе. Элис - последняя надежда на спасение мира. Она должна вернуться к точке отсчета, туда, где все и началось - город Раккун-Сити, где корпорация «Амбрелла» готовится к финальной атаке по тем, (   Читать дальше...   )Производство: США, Франция, Германия, Канада, Япония, Австралия, ЮАР, ВеликобританияЖанр: ужасы, фантастика, боевик, триллерРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Иэн Глен, Эли Лартер, Шон Робертс, Оуэн Мэкен, Фрайзер Джеймс, Руби Роуз, Уильям Леви, Рола, Эвер Андерсон, Марк Симпсон, Милтон ШоррПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C4D31754E73583B44A157F5685C1EE1B4C97DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118134   (814496) от 24.03.2017
 
 Обитель зла: Последняя глава / Resident Evil: The Final Chapter  (2016) BDRemux [H.264/1080p] [EN / EN, Jap Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EC30BBBC1A507568C2EAA7085D793D79C341204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198462   (808019) от 11.01.2018
-
-Пираты Сомали / The Pirates of Somalia  (2017) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808019.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2008 году журналист-новобранец Джей Бахадур формирует полусырой план по внедрению себя в банду пиратов Сомали. В конечном счете он добивается своего и первым смотрит изнутри на то, кто такие эти люди, как они живут, и что за силы ими управляют.Производство: Сомали, Кения, Судан, ЮАР, США / Hungry Man, BCDF Pictures, Kalahari PicturesЖанр: драма, биографияРежиссер: Брайан БаклиАктеры: Аль Пачино, Эван Питерс, Мелани Гриффит, Баркхад Абди, Расселл Познер, Корал Пенья, Киана Мадани, Филип Эттинджер, Эйдан Уайток, Роберт Хоббс, Дэррон КаллиганПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C799BF2B9864DC8F41DD62650125D67EA5BFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198420   (808018) от 11.01.2018
-
-Счастливого дня смерти / Happy Death Day  (2017) BDRip [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый в универе мечтал попасть на её день рождения, но праздник был безнадежно испорчен незнакомцем в маске, убившим виновницу торжества. Однако судьба преподнесла имениннице леденящий душу подарок - бесконечный запас жизней. И теперь у девушки появился шанс вычислить своего убийцу, ведь этот день будет повторяться снова и снова...Производство: США / Blumhouse Productions, Digital Riot Media, Vesuvius ProductionsЖанр: ужасы, триллер, детектив, комедияРежиссер: Кристофер ЛэндонАктеры: Джессика Рот, Израэль Бруссар, Руби Модин, Лаура Клифтон, Джейсон Бэйл, Роб Мелло, Рэйчел Мэттьюз, Рэмси Андерсон, Брэйди Льюис, Фи Ву, Тени Интриаго, Блейн КернПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9AC3793F9B620B2DF722B4F5D1BB9DFCC16C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198343   (807875) от 11.01.2018
-
-Цепной пёс / Bullet Head  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже у самого верного дела возможны разные варианты завершения. Матерые преступники, пытаясь по наводке обчистить полицейский склад, оказываются в ловушке с разъяренным сторожевым псом по кличке ДеНиро. Счастливый финал кажется все более призрачным...Производство: Болгария, США / Millennium Media, Nu Boyana Film Studios, Principato-Young Entertainment, Sunset Junction EntertainmentЖанр: триллер, драма, криминалРежиссер: Пол СолетАктеры: Эдриан Броуди, Антонио Бандерас, Джон Малкович, Рори Калкин, Александра Дину, Кристина Сеговиа, Ори Феффер, Оуэн Дэвис, Велизар Бинев, Джош Этье, Кит Д. Эванс, Джейсон ФренсисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9949AD108864984A21A3FEE8D7884BD672A6F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

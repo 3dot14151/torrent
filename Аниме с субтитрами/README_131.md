@@ -1,3 +1,107 @@
+###  Публикация: 1791285   (13200) от 28.06.2025
+
+mono | Моно [2025, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фотоклуб под угрозой закрытия?! И Киноклуб тоже?! Не волнуйтесь, потому что они объединятся и станут... Синефотоклуб! Теперь членам клуба Сацуки, Ан и Сакурако предложено стать главными героинями последней работы художницы манги Харуно, в центре которой - экшн-камеры. Девушки отправляются запечатлеть прекрасные достопримечательности Японии, экспериментируя с гаджетами, (   Читать дальше...   )Производство: SoigneЖанр: комедия, повседневностьРежиссер: Айкэй РётаПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4441DFE60DE1D66BBF07F34B59DD1D1833A79EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791267   (13189) от 28.06.2025
+
+Hibi wa Sugiredo Meshi Umashi / Food for the Soul / Дни проходят, а еда по-прежнему хороша [2025, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История рассказывает о 5-ти девушках студентках, которые очень любят вкусно покушать и живут полной жизнью студента.Жанр: повседневность, комедия, еда.Режиссер: Кавацура СинъяЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2EE346E6F734E3404448929D16844EE25BB1DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789802   (13172) от 28.06.2025
+
+Classic Stars | Звёзды классики [2025, TV, 13 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Частная академия "Глория" — это школа, где собираются перспективные молодые люди из всех сфер развлечений, включая музыку, искусство и спорт. На музыкальном факультете те, кто соответствует «таланту» великих музыкантов, получают «дар» в свои тела и называются именем этого музыканта. Бетховен, молодой человек, который был признан совместимым после травмы, (   Читать дальше...   )Производство: Студия Platinumvision / プラチナビジョンЖанр: повседневность, музыкальныйРежиссер: Оба ХидэакиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15A57CEA788B8B8AD503F79F272FD4A79158D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790178   (12999) от 30.06.2025
+
+Vigilante: Boku no Hero Academia Illegals | My Hero Academia: Vigilantes | Моя геройская академия: Вне закона [2025, TV, 13 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В мире, где 80 процентов населения обладают сверхспособностями, "Герои" - это избранные, прославленные и уполномоченные использовать свои врожденные способности для служения обществу. Но не каждый может заслужить или получить звание Героя, и те, кто использует свои способности без одобрения общества для борьбы со злом, известны под другим именем - Мстители!Производство: Студия Bones Film / ボンズフィルムЖанр: приключения, фэнтезиРежиссер: Судзуки КэнъитиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED1901445C8D3BE570B0DAE4561A97EFFCF9B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792788   (12997) от 30.06.2025
 
 Shirohiyo | Я белый свин-аристократ, ко мне вернулись воспоминания из прошлой жизни, с которыми я буду растить своего младшего брата [2025, Web, 12 эп.] WEBRip 720p raw
@@ -6,7 +110,7 @@ Shirohiyo | Я белый свин-аристократ, ко мне верну�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Kusuriya no Hitorigoto (2025) | The Apothecary Diaries (2025) | Записки �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Kaijuu 8-gou: Hoshina no Kyuujitsu | Kaiju No. 8: Hoshina's Day Off | Кайдз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Inazuma Eleven: Reloaded – Soccer no Henkaku | Inazuma Eleven: Reloaded – Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +244,7 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +270,7 @@ Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +296,7 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +322,7 @@ Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | К�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +351,7 @@ Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С ны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +377,7 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +403,7 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +429,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +455,7 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +481,7 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +507,7 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +533,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +559,7 @@ Muchuu sa, Kimi ni. | Captivated, by You | Других таких нет [2025,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +637,7 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -572,110 +676,6 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58DD2027D237D81A59D35A7B40A308803D2A62B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805422   (1738) от 21.09.2025
-
-Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Обморочный герой и принцессы-убийцы [2025, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой по имени Тото сильный, но очень застенчивый, и поэтому у него вечные проблемы с созданием команды, отчего он никак не может покинуть стартовый город. А в присутствии женщин он и вовсе падает в обморок при первых признаках флирта. Но однажды три красавицы — Силь, Анемона и Гор — сами предлагают ему объединиться с отряд. Только вот на самом деле каждая из коварных (   Читать дальше...   )Жанр: комедия, приключения, фентези.Режиссер: Акитая НориакиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57199210AB537B99DE9D92F33EE590093C9B063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804330   (1716) от 21.09.2025
-
-Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтный peпeтитop гepцoгини [2025, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1716.jpg" />
-</div>
-
-
-###  Подробнее
-
-He пoлyчив paбoтy cвoeй мeчты пpи кopoлeвcкoм двope, мнoгooбeщaющий мaг Aллeн xoчeт вepнyтьcя к пpocтoй жизни в ceльcкoй мecтнocти. K нecчacтью, y нeгo нeт дeнeг дaжe нa дopoгy. Чтoбы пoдзapaбoтaть, oн пpинимaeт caмoe oчeвиднoe peшeниe — ycтpoитьcя нa paбoтy, нo нe нa aбы кaкyю, a peпeтитopoм дoчepи гepцoгa Гoвapдa, oднoгo из caмыx влиятeльныx двopян кopoлeвcтвa. (   Читать дальше...   )Жанр: фентези.Режиссер: Нагаяма НобуёсиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E134A72F00FA5E2483A5C7BBC04AE54B7F1AF0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805734   (1687) от 21.09.2025
-
-Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одним дождливым днём девушка встречает странное животное на обочине дороги, немного похожее на собаку, но не совсем. Чтобы доказать дружелюбие и милоту, существо предлагает девушке зонтик. Заинтригованная, она берёт зверька домой, и они начинают жить вместе…Производство: LespritЖанр: повседневностьРежиссер: Tsukimisato TomohiroПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9861B750DF33C696543F3022B5EB75C4E969F698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805200   (1542) от 22.09.2025
-
-Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Момо Аясэ верит в духов и призраков, но считает, что НЛО и пришельцы — полнейшая чушь и выдумки. Однажды она заводит дружбу с парнем из школы по прозвищу Окарун (настоящее его имя вслух лучше не произносить), который уверен в прямо противоположном. Чтобы доказать друг другу, что оппонент неправ, оба отправляются в знаковые для противных лагерей места: Момо — в точку, (   Читать дальше...   )Производство: Студия Science Saru / サイエンスSaruЖанр: Экшен, приключения, комедияРежиссер: Ямасиро ФугаПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC15C3CD06D88A596134D179C789A84C7AEDD60B
 ```
 
 https://mybot314.ru/tekegram_catalog/

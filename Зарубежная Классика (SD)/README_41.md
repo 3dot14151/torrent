@@ -1,3 +1,107 @@
+###  Публикация: 47515   (743804) от 17.07.2020
+
+Пункт назначения - луна / Destination Moon (1950) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После многолетних научных стараний, группа ученых из США решает, что пришла пора осваивать просторы космоса, и отправляет корабль на Луну. Освободившись от Земной атмосферы, астронавты сталкиваются с угрозой полного отказа оборудования и всеми радостями отсутствия гравитации. Однако главное открытие ожидает их впереди. По прибытии на Луну, команда с ужасом понимает, (   Читать дальше...   )Жанр: фантастикаРежиссер: Ирвинг Пичел / Irving PichelВ ролях: Джон Арчер, Уорнер Андерсон, Том Пауэрс, Дик Уэссон, Эрин ОБрайн-Мур, Грэйс Стэффорд, Франклин Фэрнум, Эверетт Гласс, Кеннер Дж. Кемп, Нокс МэннингПеревод: Профессиональный (многоголосый закадровый)Субтитры: нетПродолжительность: 01:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE51E87D139E8B69FB1FFCED19E6E064886A799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280533   (743403) от 13.02.2019
+
+Вестерн Юнион / Western Union (1941) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События этой картины рассказывают о строительстве телеграфной линии «Вестерн Юнион» от Омахи, штат Небраска, до Солт-Лейк Сити, штат Юта. Рэндолф Скотт сыграл преступника, пытающегося исправиться и зарабатывать на хлеб честным путем…Производство: США / 20th Century Fox Film CorporationЖанр: Вестерн, ИсторияРежиссер: Фриц ЛангАктеры: Роберт Янг, Рэндольф Скотт, Дин Джэггер, Вирджиния Гилмор, Джон Кэрредин, Слим Саммервилл, Чилл Уиллс, Бартон МакЛэйн, Расселл Хикс, Виктор КилианПеревод: Двухголосый  закадровый (СВ-Дубль)Субтитры: Русские (Forced, Full), английскиеПродолжительность: 01:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8AAF0B1FBD19993879A3678BA1AFD543BDF6449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018484   (743335) от 27.05.2016
+
+Горячие миллионы / Hot Millions (1968) DVDRip [H.264] [АVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Маркус, отсидев срок за растрату, выходит из тюрьмы. Познакомившись с талантливым программистом Цезарем Смитом, он убеждает его исполнить мечту всей жизни Цезаря — отправиться на охоту за бабочками в бассейн Амазонки. Используя резюме Цезаря, Маркус устраивается на работу в крупную корпорацию и затевает сложную и длинную аферу под самым носом у начальства. Попутно (   Читать дальше...   )Производство: Великобритания, США / Metro-Goldwyn-Mayer (MGM)Жанр: Комедия, КриминалРежиссер: Эрик ТилльАктеры: Питер Устинов, Мэгги Смит, Карл Молден, Боб Ньюхарт, Роберт Морли, Сесар Ромеро, Льюис Александр, Линда Барон, Дэвид БедардПеревод: Авторский (В.Рутилов)Субтитры: ОтсутствуютПродолжительность: 01:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880D13763548EF016D827436A73E1C585CF0A9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216345   (743113) от 04.04.2018
+
+Замороженный / Hibernatus (1969) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юбер де Тартас, богатый промышленник, живет счастливо со своей женой Эдме и сыном. Но внезапно странное событие потрясает их жизнь: на полюсе найден замороженный дедушка его жены, пролежавший в ледяной глыбе 65 лет. Его выводят из состояния зимней спячки, а чтобы не травмировать дедушкину психику, пытаются инсценировать вокруг него жизнь начала XX века. Но в их планы (   Читать дальше...   )Производство: Франция, Италия / Gaumont International, Rizzoli Film S.p.a.Жанр: Фантастика, КомедияРежиссер: Эдуар МолинароАктеры: Луи де Фюнес, Микаэль Лонсдаль, Клоди Жансак, Бернар Алан, Анник Алан, Оливье Де Фюнес, Эльетт Демэ, Мартина Келли, Жак Легра, Паскаль МаззоттиПеревод: Дублированный, многоголосый закадровый, двуголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CE1DFBAAABFA32337A9D7576D2F28674D89643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018568   (743013) от 27.05.2016
 
 Укол зонтиком / Le coup du parapluie (1980) BDRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,112 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64CE121D6C566F3587151F6C5EC3987C02532C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521685   (734412) от 02.02.2022
-
-Песнь островов / Song of the Islands (1942) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джефф Харпер со своим напарником Расти плывут на райский гавайский остров Ами-Они, чтобы от имени своего отца поторговаться с местным землевладельцем Деннисом О'Брайеном по поводу покупки участка земли. Однако Джефф влюбляется в дочь О'Брайена Айлин и совершенно забывает о своей миссии. И тогда отцу Джеффа приходиться отправиться на остров, чтобы остудить романтический (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Уолтер ЛэнгАктеры: Бетти Грэйбл, Виктор Мэтьюр, Джек Оуки, Томас Митчелл, Джордж Барбье, Билли Гилберт, Хило Хэтти, Гарри Оуэнс, Лиллиэн Портер, Хэл К. ДоусонПеревод: Одноголосый любительский, Владислав ДаниловСубтитры: РусскиеПродолжительность: 01:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66A3CBAE622DEFA37F9322776A91A912E959920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138172   (734374) от 02.02.2022
-
-Ночь / La Notte / La Nuit / The Night (1961) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть «Трилогии отчуждения» Микеланджело Антониони.
-Писатель — Джованни, его супруга — Лидия… Потемки творческого кризиса… Закат чувств… Сумерки привычек… Больница, близкий друг, погружающийся в «ночь»… Бессильные поиски просвета: тьма воспоминаний, ночной ресторан, богатая ночная вечеринка… Юная Валентина со своей маленькой «ночью» в душе… Утренний «ливень» (   Читать дальше...   )Производство: Франция, ИталияЖанр: ДрамаРежиссер: Микеланджело АнтониониАктеры: Марчелло Мастроянни, Жанна Моро, Моника Витти, Бернхард Викки, Рози Маццакурати, Maria Pia Luzi, Гуидо Аймоне Марсан, Витторио Бертолини, Винченцо Корбелла, Уго Фортунати ...Перевод: Двухголосый закадровыйСубтитры: НетПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52E7F7C420C93EFDBE31F0E44ECD7164B74BDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379934   (733917) от 03.02.2022
-
-Приключение / L'Avventura / The Adventure (1960) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм открывает «Трилогию отчуждения» Микеланджело Антониони.
-Во время круиза богатая и красивая женщина Анна таинственным образом исчезает на необитаемом острове, поссорившись со своим любовником Сандро, что заставляет его и ее подругу Клаудию отправиться на поиски. Не ясно, покончила ли эта сумасбродная, таинственная женщина с собой или уплыла куда-нибудь (   Читать дальше...   )Производство: Италия, ФранцияЖанр: драма, детективРежиссер: Микеланджело АнтониониАктеры: Габриэле Ферцетти, Моника Витти, Леа Массари, Доминик Бланшар, Ренцо Риччи, Джеймс Аддамс, Дороти Де Полиоло, Лелио Луттацци, Джованни Петруччи, Эсмеральда РусполиПеревод: Многоголосый закадровыйПродолжительность: 02:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187E413F4922E88B39FD98F1F2C688D13FC3867F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392897   (732865) от 01.08.2020
-
-Я умирал тысячу раз / I Died a Thousand Times (1955) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже немолодой грабитель Рой "Безумный пес" Эрл помилован после 8 лет тюрьмы. Выйдя из тюрьмы, Рой, по просьбе своего криминального босса Бига Мака, соглашается совершить еще одно ограбление, прежде чем уйти в отставку. Его цель - роскошный отель на горном курорте. В команду грабителей Роя Эрла входят Бэйб Коссак, Ред и танцовщица Мари. Мари влюбляется в (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Триллер, Драма, Криминал, Фильм-нуарРежиссер: Стюарт ХейслерАктеры: Джек Пэланс, Шелли Уинтерс, Лори Нельсон, Ли Марвин, Педро Гонзалез Гонзалез, Лон Чейни мл., Эрл Холлиман, Перри Лопес, Ричард Давалос, Ховард Ст. ДжонПеревод: Авторский, Алексей БагичевСубтитры: ОтсутствуютПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6A67C8BFD6A4ABD9B7AE6A132A703D54EEF513
 ```
 
 https://mybot314.ru/tekegram_catalog/

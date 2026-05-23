@@ -1,3 +1,29 @@
+###  Публикация: 1657364   (37532) от 12.11.2024
+
+Blasphemous 2 (2023) [Ru/Multi] (2.0.0/dlc) Scene Rune
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть серии Blasphemous сулит вам новую встречу с Кающимся, чья история продолжится в Wounds of Eventide - бесплатном дополнении к основной игре. Сердце небес возвестило о возвращении Чуда и предсказало рождение необычного ребенка. Лишившись вечного покоя и проснувшись на незнакомой земле, Кающийся оказывается вовлеченным в бесконечный цикл жизни, смерти и (   Читать дальше...   )Тип издания: SceneРазработчик: The Game KitchenЖанр: Экшны, MetroidvaniaЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90F188BC0184E2DD93471F15D5DE60A64AEED4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760032   (37496) от 12.11.2024
 
 Wall World (2023) [Ru/Multi] (1.2.4.512/dlc) Repack Let'sРlay
@@ -6,7 +32,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.512/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Funko Fusion (2024) [Ru/Multi] (1.2.10.143142/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Karate Survivor (2024) [Ru/Multi] (1.0.2.239/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (1029101748) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (Reika Update) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Let'sРlay [Complete 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Karate Survivor (2024) [Ru/Multi] (1.2.0.277/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ BIOMORPH (2024) [Multi] (1.7.27362) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.00) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2/dlc) Repack Let'sРlay [Digital D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Laser Tanks (2024) [Ru/Multi] (Build 16740402) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Hannah (2024) [En] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.0/dlc) Scene Tenoke [Dig
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.63) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Fire: Ungh’s Quest (2015) (1.1.8329S) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Dog Man: Mission Impawsible (2024) [Multi] (Build 16714564) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ BioGun (2024) [Ru/Multi] (1.600) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.2.20240313) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.018) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Janosik 2 – продолжение истории, начатой в перв�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9D6ECABA211D9589F84793919C18271D65361C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770813   (32143) от 03.01.2025
-
-Slave Zero X (2024) [Ru/Multi] (1.06/dlc) Repack Let'sРlay [Digital Deluxe Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий Хан кулаками из железа и плоти управляет городом с вершины Мегасити С1-9. Из-под гниющего фундамента города поглощенный местью воин отправляется в путь, чтобы положить конец правлению Хана. События Slave Zero X происходят за 5 лет до Slave Zero и привносят новую жизнь в мир, где ужасающие живые машины — рабы — готовы стать новейшим орудием войны в долгой (   Читать дальше...   )Тип издания: RepackРазработчик: Poppy WorksЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A64F9F4CFBBD6BE7AB78291BE6BCF834706A633
 ```
 
 https://mybot314.ru/tekegram_catalog/

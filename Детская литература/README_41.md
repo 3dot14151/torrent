@@ -1,111 +1,3 @@
-###  Публикация: 1110294   (853605) от 02.03.2017
-
-Кир Булычев | Тайна третьей планеты (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кир Булычев - один из самых замечательных российских фантастов. ТАЙНА ТРЕТЬЕЙ ПЛАНЕТЫ - повесть о приключениях девочки Алисы, ее ученого папы и капитана Зеленого, а также добродушного Громозеки и птицы Говоруна.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776ACD403763604DA812764B9FC332F0262C3164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769992   (853488) от 24.03.2014
-
-Митко Яворски | Пшеничное зерно и Океан (1980) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кусочек золота лежал себе укрытый в земле. Дружочки его — мелкие камушки, приютившиеся тут же под землёй, жили и радовались тому, что он сиял в темноте, освещая всё кругом ровным светом, и прозвали его Огневичком. Огневичок никогда не покидал своего убежища, не знал ничего о том, что делается на земле, поэтому не только внимал похвалам приятелей, но и вообще воображал, (   Читать дальше...   )Жанр: СказкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21690D2FAC3A472F09F8FD7A20EF3D6A52674BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769868   (853333) от 24.03.2014
-
-Яков Волчек | Рассказы о капитане Бурунце (1959) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отвага и мужество, человечность и душевность - именно этими благородными качествами обладают герои произведений Я. Волчека, которые повседневно занимаются огромной самоотверженной и подчас небезопасной работой.
-Книга рассказывает читателям о борьбе с нарушителями общественного порядка и социалистической законности, о том, как простые советские люди помогают милициЖанр: Детская прозаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1B32190964B86A41604559BAD2E88EB42B4E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377373   (852930) от 21.04.2020
-
-Михаил Вострышев (сост.) | 198 басен дедушки Крылова (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852930.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Во всех отношениях самый народный наш поэт…
-(А. С. Пушкин)
-…Его басни отнюдь не для детей. Тот ошибется грубо, кто назовет его баснописцем в таком смысле, в каком были баснописцы Лафонтен, Дмитриев, Хемницер и, наконец, Измайлов. Его притчи – достояние народное и составляют книгу мудрости самого народа.
-(Н. В. Гоголь)(   Читать дальше...   )Жанр: Русская классика для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6D5E921DAF1A9599DCB1B605B477BE7530BA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001290   (852200) от 29.03.2016
 
 Юрий Ермолаев | 106 пропавших часов (1965) [PDF]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -519,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -627,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -680,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -691,6 +583,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EAAD7C9C940B4BC39224BA714BAA89626A4126B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379355   (841210) от 28.04.2020
+
+Антея Симмонс | Молния. История о Мэри Эннинг (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мэри Эннинг – удивительная личность в истории палеонтологии. Она родилась в бедной английской семье. Когда ей был год и три месяца, девочка пережила страшный удар молнии, который убил женщину, державшую ее на руках, и еще двоих человек. Мэри чудом выжила. По рассказам очевидцев, именно это событие преобразило ее: из болезненного ребенка она превратилась в ловкую (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D687DA69F40C6971188409BC59F7BD444E639B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379346   (841206) от 28.04.2020
+
+Эдит Несбит | Дети железной дороги (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эдит Несбит – знаменитая английская писательница, прозаик и поэт, автор множества романов, ряд из которых были экранизированы. Представляем вам одну из самых известных её книг.
+Роман «Дети железной дороги» впервые увидел свет в 1906 году. Выдержал несколько экранизаций и входит в золотой фонд детской литературы. Книга рассказывает о жизни лондонского семейства, перебравшегося (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Анастасия БахареваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4574DE08D0A2EBF46694F8C067B888CD03D7F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379325   (841205) от 28.04.2020
+
+Люси Хокинг | Джордж и корабль времени (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Джордж и дружелюбный робот Больцмановский Мозес после космического путешествия на корабле «Артемида» возвращаются на Землю. Но что это за пустыня? Где родной Фоксбридж? Где все? Что вообще происходит на этой планете? Именно это Джорджу предстоит выяснить.Жанр: Фантастика, Приключения для детейПеревод: Евгения КанищеваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A917A8075B561B94255C0922D63D4A54F155FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860784   (841122) от 09.03.2017
+
+В. Крепс, К. Минц | Клуб знаменитых капитанов [9 книг] (1963-1980) [FB2, PDF, DJVU] [Обновляемая]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Клуб знаменитых капитанов» — популярный многосерийный радиоспектакль для детей, выходивший в СССР с декабря 1945 года до конца 1970-х годов. Авторы сценария — Климентий Минц и Владимир Крепс. Персонажами спектакля были герои популярных приключенческих книг. капитан Немо, Гулливер, Робинзон Крузо, Тартарен из Тараскона, барон Мюнхгаузен, Дик Сэнд, капитан корвета (   Читать дальше...   )Жанр: Приключения литературных героев, радиопьесыФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D504E14C0E29CBA4F905C163B37FC3E893A854FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1478902   (1010005) от 21.06.2021
+
+Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cue] <Nature>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Le prince de Myvatn - The Prince of Myvatn
+02. Le cirque d'Asbyrgi - The Cirque of Asbyrgi
+03. Quand la terre mijote - When the Earth Bubbles
+04. Les cygnes chanteurs - Whooper Swans(   Читать дальше...   )Жанр: NatureПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C616F1A216620FF9771BA6F0209FE69E2E48B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 422630   (1006219) от 18.07.2021
 
 Хор Турецкого - Такая Великая любовь... (2004) [FLAC|Lossless|tracks] <Vocals, Art>
@@ -6,7 +35,7 @@
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [F
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -70,7 +99,7 @@ Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <Ne
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -99,7 +128,7 @@ Sacred Spirit (Claus Zundel) 11 альбомов (1994 - 2003) [APE|lossless|ima
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -128,7 +157,7 @@ V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +192,7 @@ Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +227,7 @@ Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -224,7 +253,7 @@ Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -253,7 +282,7 @@ V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -282,7 +311,7 @@ Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (19
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -311,7 +340,7 @@ The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -340,7 +369,7 @@ Ultrasone - S-Logic Demo-CD (2008) [FLAC|Lossless|tracks + .cue] <Audiofile, Tes
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -369,7 +398,7 @@ VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +427,7 @@ The Cactus Blossoms - The Cactus Blossoms (2011) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +456,7 @@ The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +485,7 @@ The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Coun
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +514,7 @@ Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,7 +542,7 @@ James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -542,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,7 +600,7 @@ Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,7 +629,7 @@ Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Co
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -628,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -657,7 +686,7 @@ Atlas - Прогревочный и размагничивающий диск (2
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -683,7 +712,7 @@ Various - Полонезы И Вальсы Русских Композиторо
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -718,7 +747,7 @@ Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -732,35 +761,6 @@ Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:020C12B2BFCF05243F621EA3947E76E1F78B9C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005908   (830743) от 10.04.2016
-
-Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Cry Holy (Eddie Espinosa) (03:30)
-02. Lord We Praise You (Eddie Espinosa) (02:33)
-03. Words Can Never Say (Eddie Espinosa) (03:25)
-04. Soften My Heart (Eddie Espinosa) (03:03)(   Читать дальше...   )Жанр: Praise & WorshipПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2E82A4B67EE983C03D217C69F68E23CF4A57BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

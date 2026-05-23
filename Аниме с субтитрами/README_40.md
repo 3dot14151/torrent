@@ -1,3 +1,108 @@
+###  Публикация: 1499683   (787306) от 24.11.2021
+
+Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021, Web, 11 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Аниме расскажет историю взлёта и падения клана Тайра (Хэйкэ) во время Войны Гэмпэй (1180–1185 гг.). Наследник клана Тайра-но Сигэмори обладает особыми глазами, благодаря которым может видеть призраков. Однажды он встречает Биву, слепого бродячего музыканта, которая предсказывает падение клана Тайра.Производство: Студия Science Saru / サイエンスSaruЖанр: приключения, фэнтезиРежиссер: Ямада НаокоПеревод: официальный (Wakanim)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 11 эп по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3776474E0566854D8911D0459BAC4EA9C7496573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383428   (786723) от 06.06.2020
+
+Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [2020, TV, 12 эп. + 1 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Один мальчик по имени Ао показал Миро звезду, названную её именем. Потом они пообещали друг другу, что откроют астероид, который назовут Ао. Спустя годы Миро поступает в старшую школы. Она хочет присоединиться к кружку астрономии, но узнаёт, что его совместили с геологическим кружком. Более того, там ей повстречалась девушка по имени Ао Манака, которая и оказалась (   Читать дальше...   )Производство: студия Doga Kobo / 動画工房Жанр: повседневностьРежиссер: Хирамаки ДайсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 SP по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E3F2D13D20C2D635325E93553BCFC5BE77BFC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388618   (786664) от 06.06.2020
+
+Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Они встретились посреди Токио под нескончаемым дождем. Он мечтает начать новую жизнь в большом городе. А она никогда не унывает и обладает удивительным даром менять погоду силой мысли. Там, где она — всегда солнце. Вместе они изменят этот мир навсегда.
+© kinopoiskПроизводство: студия CoMix Wave Inc. / コミックス・ウェーブ・フィルムЖанр: романтика, драмаРежиссер: Синкай МакотоПеревод: ReanimediaЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Японские; #3: Китайские; #4: РусскиеПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4BBC7D43A8C4AF2D4634CCB15ADB5730F907E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318374   (786656) от 06.06.2020
+
+Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Футбольный клуб Восточного Токио играет в японской первой лиге, где конкурируют сильнейшие профессиональные команды. Однако лучшие дни «Ист Токио Юнайтед» давно позади, команда превратилась в стабильного аутсайдера, постепенно теряя ценных игроков, спонсоров и преданных поклонников. Тренерская чехарда и безденежье тоже не улучшают ситуацию, радикальное крыло фанатов (   Читать дальше...   )Жанр: спорт, драмаРежиссер: Ко ЮПродолжительность: 26 по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4B3ACF99807A1053A6756900AEF28E508653C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371858   (786542) от 07.06.2020
 
 Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | Не люблю боль, поэтому собираюсь вложить всё в защиту [ТВ-1] [2020, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +111,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Garo: Guren no Tsuki | Garo: Crimson Moon | Гаро: Кровавая луна 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Gabriel DropOut / Габриэль бросает школу [2017, TV, 12 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ World Trigger | Импульс мира [2014, TV, 73] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Yami Shibai / Театр тьмы [ТВ-4] [2017, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Garo: Divine Flame | Гаро: Священное пламя [2016, MV] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Yami Shibai / Театр тьмы [ТВ-3] [2016, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Yami Shibai / Театр тьмы [ТВ-2] [2014, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +348,7 @@ Accel World: Infinite Burst | Ускоренный мир: Бесконечно�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +374,7 @@ Dream Hunter Rem / New Dream Hunter Rem / Рэм, ловец снов [1985-1992
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +400,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +426,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +452,7 @@ One Room / Из одной комнаты [2017, TV, 12 из 12] WEBRip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +480,7 @@ Shamanic Princess / Принцесса-шаман [1996, OVA, 6 ep.] DVDRip Hi10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +506,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -427,7 +532,7 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -454,7 +559,7 @@ Inukami! The Movie: Tokumei Reiteki Sousakan Karina Shirou! | Инуками! [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -480,7 +585,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуясики [2017, TV, 11 из 11] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -506,7 +611,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +637,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +663,7 @@ Dies Irae | Судный день [2017, TV + Web, 18 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,110 +674,6 @@ Dies Irae | Судный день [2017, TV + Web, 18 эп.] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E890A4FE9796EAB24533FBC2CE43B0F7B10A006F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205892   (783185) от 11.02.2018
-
-Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [2017, TV, 13 из 13] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1863 год, бурная эпоха самураев подходит к концу. Япония разделена между фракциями за сёгуната и против сёгуната. Судьба мира находится под угрозой, поскольку армия исторических ревизионистов отправляется из будущего, чтобы изменить ход истории. Чтобы остановить эти силы и защитить настоящую историю, два мечей-воинов, духи, которые являются мечами, оживленными Санивой, (   Читать дальше...   )Производство: Студия UFO TableЖанр: приключения, фэнтезиРежиссер: Сирай ТосиюкиПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3FD3AEBD32D605B5E87E13B428E30E42FF0E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390391   (783061) от 15.06.2020
-
-Arslan Senki: Fuujin Ranbu / The Heroic Legend of Arslan: Dust Storm Dance / Сказание об Арслане [ТВ-2] [2016, TV, 8 из 8 эп.] BDRip 720p Raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Силы Лузитании нечеловеческими усилиями продолжают удерживать власть над Королевством Парса, в то время как Арслан ведет ожесточенное сражение против Серебряной Маски. Арслан уверенно борется за свой законный трон, но осталось еще много проблем, нависающих тяжким бременем над юным принцем. Однако самой главной загадкой для Арслана по-прежнему остается личность его (   Читать дальше...   )Производство: Liden FilmsЖанр: приключения, фэнтези, драмаРежиссер: Абэ НориюкиСубтитры: РусскиеПродолжительность: 8 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20882F708B86D5DABE69E8045BAFFE51DDD4E91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390446   (783051) от 15.06.2020
-
-Mirai Keisatsu Urashiman | Future Police Urashiman | Урасиман: Полиция будущего [1983, TV, 50 из 50] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет начинается с 1983 года, в котором молодой парень Рико ночью во время шторма вместе с котом спасается от преследования полиции и попадает в процессе этого в центр циклона, после чего из-за временно-пространственного искажения, попадает в будущее. В будущем его начинает преследовать преступная мафия «Некрим» во главе с Людовичем. И вот, взяв себе новое имя Рю (   Читать дальше...   )Производство: Tatsunoko Production / タツノコプロЖанр: приключения, комедия, фантастикаРежиссер: Масимо КойтиПеревод: KitsuNeNeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C5F0A74DC7B0EBD50E0BBE89C14DE8B897F913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205929   (782940) от 12.02.2018
-
-Touken Ranbu: Hanamaru | Дикая пляска мечей: Ханамару [2016, TV, 12 из 12] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782940.jpg" />
-</div>
-
-
-###  Подробнее
-
-2205 год. «Историки-ревизионисты» задумали натурально изменить историю и с этой целью совершают «атаки на прошлое». Санива, чьей задачей является защита истории, может наделять жизнью неживые объекты, самые сильные из которых — «парни-мечи». Сериал рассказывает об их беззаботной повседневности.Производство: Студия Dogakobo / 動画工房Жанр: приключения, комедияРежиссер: Наоя ТакасиПеревод: YakusubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BFA87B89F03E18DE7FBB1452AFCCC50D82609E
 ```
 
 https://mybot314.ru/tekegram_catalog/

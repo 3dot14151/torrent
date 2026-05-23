@@ -1,3 +1,109 @@
+###  Публикация: 1192981   (262249) от 20.12.2017
+
+Протоиерей Александр Шаргунов | Царь (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В 90-е годы прошлого века, в преддверии канонизации святых царственных страстотерпцев, вышло 7 книг протоиерея Александра Шаргунова со статьями, посвящёнными им, и свидетельствами о чудесной помощи по их молитвам. В настоящую книгу, в год 95-летия со дня убиения царской семьи и 400-летия Дома Романовых, включены некоторые материалы из прежних книг, а также новые (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB7587B4DE70ED94B9E0117F671D9875F4B0FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193466   (262130) от 21.12.2017
+
+Сергий Нилус | Святыня под спудом (2005) [FB2, EPUB, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: FB2, EPUB, PDF (для Букридеров Amazon Kindle, Sony Reader и др.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10D52B4966D2DDFE85944DD52E27530D4F8BEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193806   (261981) от 22.12.2017
+
+Падре Марчело Росси | Агапа. Настоящая любовь (2014) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Самая продаваемая книга за всю историю Латинской Америки. Есть любовь, от которой происходят все существующие виды любви. Единственная, настоящая, вечная Любовь, Агапа — Божий дар всем нам, чтобы мы могли достичь всего. Жить в присутствии этой Любви, идти навстречу трудностям, дарить и получать заботу, побеждать зло и творить добро, иметь достаток во всем и быть (   Читать дальше...   )Жанр: Духовные размышленияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7C19B62ADFD7CF7D467DD6C54CEFE32510FACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193804   (261821) от 23.12.2017
+
+Митрополит Иерофей (Влахос) | Господские праздники (2001) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателей предлагается перевод книги одного из известнейших современных греческих богословов, Митрополита Навпакта и Святого Власия Иерофея (Влахоса) "Господские праздники"
+Автор подробно и систематически, с привлечением богатого святоотеческого материала, анализирует богословский и литургический смысл всех двенадцати Господских праздников.
+Примеры (   Читать дальше...   )Жанр: Литургическое богословиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9683C3D1DFF8032C9F2F295AFF11CA1D59A524C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504957   (260425) от 02.06.2012
 
 Митрополит Никодим (Ротов) | Иоанн XXIII, Папа Римский [1984] [PDF]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -299,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -574,112 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7817D4657B7AC4B42216ED4CE5943A11ED34B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619150   (249786) от 14.03.2023
-
-Преподобный Анастасий Синаит | Вопросы и ответы (2015) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Анастасий Синаит – известный святой подвижник и православный богослов, живший в VII веке, автор многочисленных произведений, среди которых предлагаемые ныне впервые на русском языке «Вопросы и ответы». Они касаются самой разной и по сей день весьма актуальной тематики: догматической, нравственно-канонической, борьбы с ересями, эсхатологической и др., (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1CFFFBAB6FB5E6C8389D14FB7FC60B9FC011FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619154   (249750) от 15.03.2023
-
-Сибирская Благозвонница | О посмертных мытарствах души (2016) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учение о посмертных мытарствах души содержится в Священном Предании, согласном со Священным Писанием, и в произведениях церковных писателей.
-
-Христос говорил об Ангелах, которые свяжут грешника и отведут в тьму (см. Мф. 22,13), апостол Павел, говоря про день злый (Еф. 6, 13), имел в виду день смерти и начало мытарств, а по толкованию блаженного Феофилакта Болгарского (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC9E21083E3053919EA14458F0255D7B151DAD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608059   (246004) от 28.01.2023
-
-С. Лыжина (сост.) | Юродивый Христа ради. Юродивые, блаженные и праведники в русской классике (2019) [FB2, PDF, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слово «юродство» в изначальном значении — духовно-аскетический подвиг, отказ от мирских благ и от того поведения, которое принято называть «разумным». Такой человек, не заботящийся о собственном быте, говорящий всем правду в лицо и боящийся только Бога, почти всегда кажется глупцом или безумцем, но «разумные» всё равно прислушиваются к юродивому. Это ли не чудо? (   Читать дальше...   )Жанр: Православие. ПрозаФормат: FB2, PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629B951F8E93CC50C7D5FDB55B51DF8ABFD2C793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623384   (245800) от 02.04.2023
-
-Святитель Иоанн Златоуст | Беседы о покаянии (2017) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245800.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлено 9 бесед святителя Иоанна Златоуста к народу Антиохии о покаянии. В них он на основе свидетельств Священного Писания и многих библейских примерах показывает важность, условия и спасительность деятельного покаяния перед Богом в своих грехах и отступлениях от обетов, данных христианином в Таинстве Крещения.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30AD17E3E1120DE2DD2DB034899BA8C976460B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

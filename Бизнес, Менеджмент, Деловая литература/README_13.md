@@ -1,3 +1,87 @@
+###  Публикация: 989244   (911352) от 25.02.2016
+
+Майкл Стелзнер | Контент-маркетинг. Новые методы привлечения клиентов в эпоху Интернета (2011) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Майкл Стелзнер – признанный эксперт в области социальных медиа, создатель одного из самых популярных блогов о маркетинге в социальных сетях SocialMediaExaminer.com (более 150 000 подписчиков).
+В книге Стелзнер рассказывает о разных видах контента, которые вы можете публиковать на своем сайте, в блоге, на странице в социальной сети и которые помогут вам привлечь внимание (   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8328FBA52279D4C13770291F9AFE86316A7C996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989991   (911275) от 25.02.2016
+
+Брайан Трейси | Менеджмент (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сила любой компании определяется качеством работы её менеджеров. Что они делают и как они это делают - ключевой фактор корпоративного успеха. Хотите стать незаменимым для своей компании? Развивайте управленческие навыки.
+
+Хорошая новость в том, что менеджерами не рождаются, а становятся. Когда вы прочитаете о том, что знают самые успешные менеджеры, вы сможете превратить (   Читать дальше...   )Жанр: Бизнес, МенеджементФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9B7ACC585253E1A56B53F0EEA5E1E64ED36836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989994   (911263) от 25.02.2016
+
+Брайан Трейси | Полная вовлеченность. Вдохновляйте, мотивируйте и раскрывайте все лучшее в своей команде (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Руководство по созданию команды звезд от гуру Брайана Трейси.
+
+Успех в бизнесе во многом определяется тем, насколько эффективно менеджеры и предприниматели могут использовать человеческий капитал - вовлекать сотрудников, мотивировать и вдохновлять их.
+Из этой книги известного гуру Брайана Трейси вы узнаете:(   Читать дальше...   )Жанр: БизнесФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FEB13B2C9CFCC0A2751E87A49A56767224C427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989996   (911261) от 25.02.2016
 
 Александр Роднянский | Выходит продюсер (2016) [EPUB]
@@ -6,7 +90,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -464,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -492,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -546,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -572,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -598,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -609,87 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E49950C6757103B22AA6F7652120B4FAB842B88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990624   (909325) от 26.02.2016
-
-Элияху Голдратт | Цель-2. Дело не в везении (2000) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узкие места в производстве, снабжении и продажах найдены и «расшиты». Заводы холдинга, спасенные Алексом Рого с помощью принципа «барабан-буфер-веревка» в книге «Цель», работают как часы. И при всем при этом, оказываются никому не нужными активами в глазах руководителей управляющего холдинга. Однако теория ограничений, хорошо сработавшая на оперативном уровне, помогает (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B66D0E7768B04A49DA45495E48160BE1FB8E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990651   (909321) от 26.02.2016
-
-Уильям Детмер | Теория ограничений Голдратта. Системный подход к непрерывному совершенствованию (2012) [FB2, DOCX]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теория ограничений (TOC, Theory of constraints) – популярная концепция менеджмента, разработанная в 1980-х гг. доктором Элией Голдраттом. Она предлагает концентрировать организационные ресурсы на устранении ограничений (конфликтов), которые мешают компании полностью реализовать ее потенциал. Метод рассуждений Голдратта составляет основу теории ограничений и позволяет (   Читать дальше...   )Жанр: БизнесФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC696899C52C55B4F1AEC8294D6E326077F03CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990659   (909287) от 26.02.2016
-
-Джозеф О'Коннор, Иан Макдермотт | Искусство системного мышления. Необходимые знания о системах и творческом подходе к решению проблем (2012) [FB2, DOCX]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цитата
-"Люди и события не подчиняются законам логики, они куда менее предсказуемы и управляемы, чем математические уравнения. Для них неприменимы быстрые, методичные, логические решения". (Джозеф О'Коннор и Иан Макдермотт)
-
-О чем книга(   Читать дальше...   )Жанр: БизнесФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD50CB2B2CFFAD125420FFEE4F1363768F7873E
 ```
 
 https://mybot314.ru/tekegram_catalog/

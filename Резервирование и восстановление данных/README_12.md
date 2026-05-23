@@ -1,3 +1,190 @@
+###  Публикация: 1808681   (10253) от 26.07.2025
+
+Auslogics File Recovery 12.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Auslogics File Recovery — простая и эффективная в использовании программа, которая предназначена для восстановления случайно удаленных файлов, а также файлов утерянных из-за атак вирусов или системных сбоев. С помощью данной программы можно вытащить файлы с неисправного флеш носителя.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E4B57FD27A03CA99D898D1B68BD70326C5C9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809424   (9858) от 30.07.2025
+
+FreeFileSync 14.4 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5297D2C1E66A7DFDF09FAD2035F6FB909B7D83F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810048   (9520) от 02.08.2025
+
+Auslogics File Recovery 12.0.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Auslogics File Recovery — простая и эффективная в использовании программа, которая предназначена для восстановления случайно удаленных файлов, а также файлов утерянных из-за атак вирусов или системных сбоев. С помощью данной программы можно вытащить файлы с неисправного флеш носителя.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D5894AA0127BE5B71A72592ABBE72F04134089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810484   (9377) от 04.08.2025
+
+TeraByte Image for Windows 3.64 + BootCD [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Программа TeraByte Image for Windows позволяет создать Резервную копию (Бекап) данных, программ, операционных систем для их защиты от потери, повреждения или удаления.
+В случае возникновения проблем с исходными данными, Программа TeraByte Image for Windows может восстановить все сохраненные данные из Резервной копии в исходном виде.
+Резервные копии могут быть сохранены (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DF766E5F2B9F51B7BE9816E41ED12FBE5F7372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811347   (8829) от 09.08.2025
+
+Aiseesoft FoneLab for Android 5.1.12 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft FoneLab for Android — это популярный инструмент, ставший уже практически незаменимым для пользователей Android-смартфонов, для управления своими мобильными помощниками при помощи ПК. Приложение работает практически со всем контентом или данными, которыми оперирует смартфон: это, конечно, обязательная синхронизация содержимого по кабелю или через беспроводное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214D4B059A83F2FB69934F83086FB64F80DF7C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811481   (8702) от 10.08.2025
+
+Hetman Partition Recovery 5.1 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Hetman Partition Recovery - программа восстанавливает данные жестких и внешних дисков, а также любых других устройств под управлением файловых систем FAT / exFAT, NTFS / ReFS, APFS / HFS+, Ext2 / 3 / 4 / ReiserFS / Btrfs / VMFS / Hikvision и XFS / UFS / ZFS. Утилита объединяет комплекс алгоритмов, восстанавливающих имя, атрибуты, содержимое файла и оригинальную структуру (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC926F179D5F54153FD993C47B48485912E3D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820952   (8616) от 29.09.2025
+
+Tenorshare 4DDiG 10.5.8.1 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лучшая программа для восстановления данных
+
+Восстановление данных с жёсткого диска, карт памяти, SD-карт, USB-накопителей, из корзины и т.д.
+Простое восстановление всех удалённых или потерянных документов, фотографий, видео и многого другого.(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6822F8E90B74237D619FDA16C74F9414F3EFABA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821039   (8542) от 30.09.2025
 
 Hekasoft Backup & Restore 0.99.1 + Portable [Multi/Ru]
@@ -6,7 +193,7 @@ Hekasoft Backup & Restore 0.99.1 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +219,7 @@ Hetman Partition Recovery 5.1 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +245,7 @@ DiskDigger 2.0.11.4091 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +271,7 @@ Auslogics File Recovery 12.1.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +297,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +323,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +349,7 @@ MobiKin Backup Manager for Android 2.0.24 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +375,7 @@ O&O DiskImage Professional 21.1.184 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +401,7 @@ R-Studio Network / Technician 9.5 Build 191603 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +427,7 @@ Hasleo Backup Suite 5.4.2.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +454,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7310 RePack (& Portable) b
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +480,7 @@ Coolmuster Android Assistant 6.0.89 RePack (& Portable) by elchupacabra [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +506,7 @@ R-Drive Image Technician 7.3 Build 7310 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +532,7 @@ AOMEI Backupper Technician Plus 8.0.0 (DC 19.09.2025) RePack by KpoJIuK [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1113520   (62497) от 19.03.2024
+
+BBC: Дуб - искусство выживания / Oak Tree: Nature's Greatest Survivor (2016) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм - наполовину научный, наполовину исторический - повествует о богатой событиями и драмами жизни дуба. Он покажет зрителям, насколько дуб - это идеальный представитель своего вида, и расскажет, как проходит жизнь этого почтенного дерева.
+Какие удивительные изменения происходят в дереве, чтобы оно благополучно переживало смену времен года? Вы увидите, как (   Читать дальше...   )Телекомпания: Великобритания, Furnace Limited for BBCЖанр: Документальный, научно-популярный, флораРежиссер: Ник СтэйсиПеревод: Дублированный, интервью - слышна оригинальная речьПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3828209017C5E0142EDD6D957731D962079B8224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124628   (62481) от 19.03.2024
+
+BBC: Доминик Монаган и дикие существа / Wild Things with Dominic Monaghan (2014) HDTV [H.264/1080i-LQ]  (сезон 2, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Доминик Монаган, известный зрителям по трилогии "Властелин Колец" и сериалу "Лост", с самого раннего детства восхищался дикими животными. Он мечтал путешествовать по миру, чтобы найти и взять в руки самых редких и опасных животных на Земле. Теперь у Доминика есть такая возможность и он отправляется на поиски самых уникальных и ядовитых представителей (   Читать дальше...   )Телекомпания: Великобритания, Канада, BBC America, A Cream and Wildfire TV ProductionsЖанр: Документальный, познавательный, природаРежиссер: Роб Брюнер, Виктор Кушманюк, Фрэнк ВилакаУчастники: Доминик МонаганПеревод: Одноголосый закадровый, профессиональный, АРК-ТВПродолжительность: серии по ~00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456776CB0A00126C76DE30C15E692AF67BA33614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154701   (62475) от 19.03.2024
 
 BBC: Город под водой. Павлопетри / City Beneath the Waves: Pavlopetri (2011) HDTVRip [H.264/720p-LQ]
@@ -6,7 +59,7 @@ BBC: Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +85,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +112,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +139,7 @@ Discovery: Экспедиция в Арктику / Expedition to the Edge (2020
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +165,7 @@ BBC: Духи ягуара / Spirits of the Jaguar (1996) DVDRemux (серии 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +191,7 @@ BBC: Есть, голодать, жить дольше / Eat, Fast and Live Long
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +217,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +243,7 @@ BBC: Живой мир / BBC: Natural World (2009-2014) HDTV [H.264/1080i-LQ] (7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +269,7 @@ BBC: Мир природы - Горы тропических дождей / Natu
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +295,7 @@ BBC: Мир природы. Исландия: Дикая жизнь / Natural Wo
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +322,7 @@ BBC: Мир природы. Ошибки природы / Natural World. Natures
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +349,7 @@ BBC: По странам и континентам. Дикая Австрала�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +375,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +401,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +428,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +454,7 @@ BBC: Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +480,7 @@ BBC: Реальная история научной фантастики / The R
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +506,7 @@ BBC: Мир природы. Очковые медведи: Лесные тени
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +532,7 @@ BBC: Революции: Идеи, изменившие мир / Revolutions: Id
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +558,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +585,7 @@ BBC: Секреты ухода за волосами / Hair Care Secrets (2017) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +611,7 @@ BBC: Самое опасное место для работы / Toughest Place t
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +637,7 @@ BBC. Турки-османы. Мусульманские властители Е
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +663,7 @@ BBC. Византий: сказания о трёх городах / Byzantium: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -621,58 +674,6 @@ BBC. Византий: сказания о трёх городах / Byzantium: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:378EE292CF48A0B4EB3BEBDB5D33E39397E0C6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285849   (60924) от 03.04.2024
-
-BBC. Горы - жизнь над облаками / Mountain: Life at the Extreme (2017) HDTVRip (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высоко над облаками лежат затерянные миры - неизведанные, неумолимые и совершенно непредсказуемые. Но в этих гигантских горных цепях планеты существует жизнь. Вопреки всему некоторые замечательные животные и удивительные люди нашли свое пристанище в самых высоких горах Земли. Знаменитая серия из 3 частей из Отдела естественной истории Би-би-си, раскрывающая необыкновенных (   Читать дальше...   )Производство: Великобритания, A BBC Studios production for BBC and PBSЖанр: Документальный, путешествия, флора, фаунаРежиссер: Алекс ЛанчестерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3819896263FA099522F1F92189BBCD074C0546BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116168   (60797) от 04.04.2024
-
-BBC: Реальная история научной фантастики / The Real History of Science Fiction (2014) DVB (Серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный 4-х-серийный проект посвящен истории научной фантастики. Смотрите фильм, где каждая серия посвящена основным темам: роботам, инопланетянам, космосу и путешествиям во времени. Те, кто стоял у истоков жанра научной фантастики, расскажут зрителям, как создавался вымышленный мир, поражающий реалистичностью, логичностью и научной обоснованностью. Вместе с (   Читать дальше...   )Телекомпания: Великобритания, США, Arts ProductionЖанр: Документальный, кинематографРежиссер: Бен Саутвелл, Энди Мозе, Роберт МёрфиУчастники: Джон Карпентер, Артур Кларк, Ричард Дрейфус, Рутгер Хауэр, Джон Лэндис, Эдвард Джеймс Олмос, Дэвид Теннант, Айзек Азимов, Скотт Бакула, Вероника Картрайт, Питер Койот, Джо Данте, Роланд Эмерих, Боб Гейл, Урсула Ле Гуин, Кристофер Ллойд, Николас Мейер, Хэйли Джоэл Осмент, Пол Верховен, Питер УэллерПеревод: Многоголосый закадровый, профессиональный, 24 ДОКПродолжительность: 4х ~00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72368A304FFD70DD3A3C81336B9A9F7723DB5FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1361876   (952020) от 21.02.2020
+
+Space Robinson: Hardcore Roguelike Action (2019) [Ru/Multi] (2.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вы – обычный космический техник, отправленный на отдаленную планету для проведения ремонтных работ в местной колонии. Но когда вы добираетесь до места, то оказывается, что колония пустует, а за стенами базы кишат толпы агрессивных монстров. И чтобы узнать, что случилось с обитателями колонии, вам придется вступить в бой!Тип издания: LicenseРазработчик: Luxorix GamesЖанр: Action, Role-playing, RoguelikeЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A64311341A16653EB5C8EDC359D3F61031D3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361718   (951981) от 21.02.2020
 
 Deathtrap (2015) [Ru/Multi] (1.0.6) License GOG
@@ -6,7 +32,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Hypersensitive Bob (2016) [En] (1291928) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Binding of Isaac: Afterbirth+ (2017) [En] (1.0/dlc) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Sayaka (2017) [En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +162,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Doctor Who: The Eternity Clock (2012) [En/Multi] SteamRip Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +214,7 @@ The Binding of Isaac: Rebirth (2017) [En/Jp] (1.0/upd3/dlc) Repack Other s [Comp
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Infinitesimal Point  (2016) [Ru/En] (1.0) Repack R.G. Жук в Муравейн
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Cat and Ghostly Road (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Iris and the Giant (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ignition (1997) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Dollar Dash [En/Multi5] (L) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Worms Revolution / Worms: Революция + 4 DLC [Ru/En/Multi7] (Steam-Rip/0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +398,7 @@ Heaven Dust (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +424,7 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +450,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/12.01.17/dlc) SteamRip R.G. Иг�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +476,7 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +504,7 @@ Worms Revolution + 4 DLC [Ru/En/Multi8] (Repack/0124) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +532,7 @@ Toricky (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +558,7 @@ Alien Shooter 2: Захват (L) [Ru] 2011
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +584,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.11.3102) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +610,7 @@ Brave: The Video Game / Храбрая сердцем (2012) [Ru/Multi] (1.0.0.3
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -610,7 +636,7 @@ Tinertia (2015) [En/Multi] (1.0.9) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -636,7 +662,7 @@ RYAN BLACK (2017) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -647,32 +673,6 @@ RYAN BLACK (2017) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10CABB72DB0631F1D48AEB45411A9E1172DE449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365615   (928574) от 08.03.2020
-
-Soulcalibur VI / Soulcalibur 6 (2018) [Ru/En] (02.05.00/dlc) Repack xatab [Deluxe Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная серия файтингов в сеттинге вселенной Soul вышла на аркадные автоматы в далёком 1998 году и до сих пор имеет огромную фанбазу по всему миру. Погоня за мистическим мечом растянулась на года, было множество кроссоверов и гостевых персонажей, которые идеально вписывались в реалии мира. Новая игра возвращает нас в бурю непрекращающихся боёв за право стать (   Читать дальше...   )Тип издания: RepackРазработчик: BANDAI NAMCO StudiosЖанр: Arcade (Fighting), ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBFE4256310ABCA9786E9055E003A82B596BDE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

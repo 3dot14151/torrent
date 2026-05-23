@@ -1,3 +1,55 @@
+###  Публикация: 1563260   (505145) от 13.07.2022
+
+Kane and Lynch: Dead Men / Kane and Lynch: Смертники (2007) [Ru] License [Русификатор]
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Другая история от создателей лысого киллера – Агента 47. Жестокий, мрачный, пугающе реалистичный командный боевик расскажет о двух осужденных на смертную казнь негодяях, в силу обстоятельств оказавшихся напарниками. Беспринципный наемник и клинический психопат в страшной и правдивой истории о ненависти, боли и мести, шокирующие сцены насилия, отвязанные криминальные (   Читать дальше...   )Тип издания: LicenseРазработчик: IO InteractiveЖанр: 3rd Person, Action, ShooterЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2816413BF85342C41A08952476D036396F217CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539151   (504062) от 28.08.2012
+
+True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Нью-Йорк, где вас ждет почти безграничная власть над улицами большого яблока. Ведь вы - Маркус Рид, бывший преступник, а ныне полицейский, использующий свои полномочия, чтобы найти и уничтожить убийцу своего наставника, а заодно очистить от отбросов общества кварталы Нью-Йорка от Гарлема до Чайнатауна. Тайное расследование заведет Маркуса в паутину лжи и преступности, выбраться из которой он сможет, только выжив в борьбе с уличными бандами, собственным прошлым и всем, что противопоставит ему (   Читать дальше...   )Тип издания: RePackРазработчик: Luxoflux CorpЖанр: Action (Shooter) / Arcade (Fighting) / Racing (Cars / Motorcycles) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский (Buka) / Русский (Unknown) / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721244CBC6CF1E61298CDF963B059C483B05D697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 378132   (502920) от 24.08.2011
 
 Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
@@ -6,7 +58,7 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Theme Park (1994) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Traffic Giant / Транспортный гигант (2001) [Ru/En] (1.0) Unoff
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механик
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Pirates of the Caribbean: At World's End / Пираты Карибского м�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Real Myst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Clive Barker's Jericho [Ru/En] (RePack/1.0) 2007 | R.G. Element Arts
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ I.G.I. Дилогия [Ru/En] (Rip/RePack/1.0-1.2) 2000-2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Lords of the Realm 3 / Властители земель 3 (2004) [Ru/En] (1.01)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ New York Race / Погоня за 5 элементом [Ru] (L) 2001
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Wizards and Warriors (2000) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Ultimate Spider-Man [Ru/En] (Repack) 2005 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ American Civil War: Gettysburg / Гражданская Война: Решающ
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEB76B1E1D368417035DE9221C7B0EB5193979BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163773   (445742) от 07.09.2017
-
-Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – журналист, которому один старый путешественник захотел рассказать свою историю, хотя его уже более 50 лет считают обманщиком и чудаком. История эта – о путешествии в таинственную страну Центральной Америки под названием Амерзон. По словам старика, оттуда он привез с собой большое яйцо, связанное с верованиями и ритуалами индейского племени, в том числе с размножением (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroidsЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85654724AF11350360203DE203B5CB6229F44CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164102   (443499) от 08.09.2017
-
-Gangland (2004) [Ru/En] (1.4.0) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды жаркой ночью в итальянском Палермо на одной из улочек старого города произошла заварушка. Тишину прорезали крики и выстрелы. На следующее утро на тротуаре было найдено тело Чико Магнано с огнестрельными ранениями. Пистолет обнаружился неподалеку. По свидетельствам двух очевидцев, Чико убили его собственные братья: Романо, Анджело и Сонни. Полиция начала облаву, (   Читать дальше...   )Тип издания: LicenseРазработчик: MediaMobstersЖанр: Strategy, Tactics, Mafia simulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993F4C9FACAC44FDCF297024009CE4DD84530B68
 ```
 
 https://mybot314.ru/tekegram_catalog/

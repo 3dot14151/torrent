@@ -1,3 +1,107 @@
+###  Публикация: 1701681   (47620) от 07.08.2024
+
+Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это научно-фантастическая игра на выживание в жанре "ужасы", в которой сочетаются свободное исследование мрачного мира, сложные бои, уникальный крафтинг и нелинейный сюжет. Попробуйте выжить и раскрыть запутанные тайны Чернобыля в воссозданной с помощью 3D-сканирования реальной Зоне отчуждения. Помните, что присутствие военных – не единственная ваша проблема.Тип издания: RepackРазработчик: The Farm 51Жанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44A5DFE49AC5A9EBA1AC1655947047F97B84BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741507   (47591) от 07.08.2024
+
+PATHOGEN X (2024) [Ru/Multi] (1.0.0.6) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+PATHOGEN X - это не совсем обычная видеоигра. Забудьте о спасении принцесс и накоплении очков. Это детище BraveCat Studios бросает вас с головой в таинственный мир, стирая границы между геймером и участником. Это как шагнуть в запутанный лабиринт. Каждое ваше движение посылает рябь по цифровой неизвестности. Здесь нет ни руководства, ни четких целей.Тип издания: RepackРазработчик: BraveCat'StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2459A8C60A8A41AD10F241E8315EF7E38117F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742114   (47311) от 10.08.2024
+
+VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В вымышленной стране восточно-европейского типа, уже долгие годы сидит у власти диктатор. Правитель был сущим параноиком и устраивал массовые зачистки и убийства тех, кто был против него. Для обеспечения тотального контроля над обычными гражданами, людям начали вживлять в шею чип для отслеживания их перемещения. Всем людям выдали одинаковую одежду с определённым (   Читать дальше...   )Тип издания: SceneРазработчик: Narko GamesЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E24EFB450634641934A2A671B5FDAC24D61268D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742198   (47305) от 10.08.2024
+
+STAR WARS: Battlefront (2015) [Ru/Multi] (1.0.7.64833) Repack FitGirl
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Star Wars: Battlefront 2015 – космический шутер, основанный на событиях одноименной вселенной. Сюжет разворачивается в то же время, игроку доступны все эпичные битвы, когда-либо происходившие в галактике: баталия на снежной планете Хот, сражение в лесах Эндора, оборона Татуина и прочие военные действия, повлиявшие на ход истории. Бейтесь на земле или садитесь за (   Читать дальше...   )Тип издания: RepackРазработчик: DICE, DICE Los AngelesЖанр: Action, ShooterЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D35C325A2CD7AF1E8A89FD0119E94B7C49BC2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742123   (47273) от 10.08.2024
 
 Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
@@ -6,7 +110,7 @@ Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Decepticon [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (1.02.18/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Son and Bone (2024) [En] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ I Am Your Beast (2024) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Diluvian Ultra (2023) [Ru/Multi] (3.5.24) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack dixen18 [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6BC2C0FA215D4C9D9D9B3EB67088A7D44374E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749692   (43542) от 15.09.2024
-
-Borderlands: Trilogy (2013-2019) [Ru/Multi] (1.5.0/1.8.5/1.0.9/dlc) Repack dixen18
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте в классику кооперативных шутеров с дропом оружия – но теперь с улучшениями! Вас ждет базиллион моделей оружия и 4 безбашенных наемника, у каждого из которых собственное дерево навыков! Им предстоит обойти всю планету Пандора, на которой царит беззаконие, в поисках таинственного Хранилища инопланетян. В этом издании классической игры содержится новое оружие, (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B4A176B54B2ED6BDD7B480BF7BDF4F79C92444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749679   (43508) от 15.09.2024
-
-Son and Bone (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда местная ферма подвергается нападению банды бандитов, шериф Сэм Джадж отправляется на их правосудие. Но в своем путешествии Сэм оказывается перенесенным в другой мир, населенный доисторическими существами, динозаврами, и теперь ему приходится бороться за свою жизнь, чтобы вернуться на землю.Тип издания: RepackРазработчик: TeamKill MediaЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC77AFF7145A467099033D83DC16A903553914D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749544   (43507) от 15.09.2024
-
-Far Cry 2 (2008) [Ru/En] (1.03) Repack dixen18 [Fortune's Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - наемник, заброшенный в раздираемую войной и малярией африканскую страну. Ваше задание: найти и уничтожить оружейного барона, для которого эта война неплохой источник дохода. Против вас действует целая армия вооруженных до зубов профессионалов. Внезапность, изобретательность и точный расчет - ваше основное оружие на этой войне. Долгожданное продолжение нашумевшего (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, английскийЯзык субтитров: Русский, английскийЯзык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7D77FAB9F9E817EEE4FE139269ED79F5DB8A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749651   (43501) от 15.09.2024
-
-I Am Your Beast (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43501.jpg" />
-</div>
-
-
-###  Подробнее
-
-I Am Your Beast - это FPS в обертке триллера о мести, чей сюжет разворачивается в североамериканской глуши, где на вас охотятся бойцы военно-промышленного комплекса - а потом охотники становятся жертвами. Вы - тайный агент Альфонс Хардинг, уже шесть лет в отставке, но вас то и дело просят выполнить «одно последнее задание». После того, как вы отказались от очередного (   Читать дальше...   )Тип издания: RepackРазработчик: Strange ScaffoldЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C30DA6CBB50C394BA711EB213E0807340285F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

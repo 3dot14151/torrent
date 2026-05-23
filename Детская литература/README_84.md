@@ -1,108 +1,3 @@
-###  Публикация: 1227624   (644887) от 27.05.2018
-
-Клара Моисеева | Тайна горы Муг (1958) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческая повесть «Тайна горы Муг» рассказывает о далеком прошлом таджикского народа, о людях Согдианы — одного из древнейших государств Средней Азии. Столицей Согдийского царства был город Самарканд.
-Герои повести жили в начале VIII века нашей эры, в тяжелое время первых десятилетий иноземного нашествия, когда мирные города согдийцев подверглись нападению воинов (   Читать дальше...   )Жанр: Детская проза, Историческая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3741A4DC5355817AAF15CA4166A9697D6465268B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227739   (644883) от 27.05.2018
-
-Типография Исаака Н. Зедербана | Небылицы в лицах (1793) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небылицы в лицах, или Собрание веселительных повестей, и забавных сказок, в стихах и прозе, могущих служить иным отрадою в скуке , другим лекарством от печали, а некоторым приятным провождением праздного времени: избраны из иностранных писателейЖанр: Детская проза, Сказки, СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C081C97EDD4842ACF44EA67BBF7B0DD7B9BF949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227743   (644877) от 27.05.2018
-
-Александр Овсянников | Александр Васильевич Суворов (1900) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Граф (1789), затем князь (1799) Алекса́ндр Васи́льевич Суво́ров (13 [24] ноября 1730 — 6 [18] мая 1800) — русский полководец, основоположник отечественной военной теории, национальный герой России. Генералиссимус (1799), генерал-фельдмаршал Священной Римской империи, великий маршал войск пьемонтских, кавалер всех российских орденов своего времени, (   Читать дальше...   )Жанр: Детская проза, Историческая прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E6650FB8D15E8D2460F2DC2B3D5B0382A81563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032801   (644116) от 08.07.2016
-
-Э. Эмден | Весенний марш (1930) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи о дружбе советских и немецких детей. Через три года немцы дружить перестанут.Жанр: Стихи для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901AF2AC6E435BA19718D66CDAFCE8CEA276386D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032806   (644108) от 08.07.2016
 
 Л. Завальнюк | Как Прошка друга искал и другие сказки (2006) [PDF]
@@ -111,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -599,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -625,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -651,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -677,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -689,6 +584,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CE071D1DE1380FF8CD3129114D06478F7A01477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541882   (643125) от 04.04.2022
+
+Марцин Мортка | Викинг Таппи и таинственное место (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Редакция «Вилли Винки» представляет!
+Высокий, сильный и рыжебородый викинг Таппи совсем не грозный завоеватель, как вы могли бы подумать. У него доброе сердце, и он всегда готов прийти на помощь всем, кто в ней нуждается. Он живёт в Шепчущем Лесу, что на берегах Ледового Залива. И, конечно же, у него самые лучшие и интересные в мире соседи: умный Ворон, весёлый Оленёнок, (   Читать дальше...   )Жанр: Детская литература, Приключения, СказкаПеревод: Гаянэ Мурадян, Елена БарзоваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450473A522BC8E802AC5A83E78C61E4DDAA1978C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292884   (643071) от 31.03.2019
+
+Крис Колфер | Сборник классических сказок (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в мир сказок с помощью этого подарочного издания, в котором содержится более тридцати пяти всеми любимых историй в пересказе автора бестселлеров по версии The New York Times Криса Колфера.
+Эта красочная книга придётся по вкусу и новым, и давним поклонникам, которых порадуют любимые сказки, такие как «Золушка», «Спящая красавица», «Джек и бобовый стебель» (   Читать дальше...   )Жанр: Приключения для детей, Сказки, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E876C3BBC41F32FFE50684D289E00093FEDC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518074   (643063) от 03.07.2012
+
+Сергей Алексеев | Рассказы о русском подвиге [1979] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказов писателя-историка о борьбе России с иноземными захватчиками. Главный герой книги - народ, который ценой великого подвига защитил свою Родину, отстоял ее в тяжелой борьбе и завещал святое дело защиты Отечества своим потомкам. От подвигов петровских солдат и суворовских чудо-богатырей до битв Великой Отечественной войны - таковы хронологические границы книги. Для детей младшего школьного возраста.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC45D9F85F09C79B183F8EC7E0B5E2CD22B08A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541847   (642995) от 04.04.2022
+
+Марио Паскуалотто | Прикольные приключения. Школа пиратов. Все на борт! (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Школе пиратов кипит работа! Команды и их капитаны вовлечены в ежегодную гонку шхун "На пиратской волне".
+Джим и его команда ступают на борт легендарной "Бородатой Джанны", где им предстоит освоить основы пиратского дела.
+Но дела пошли совсем не по плану…
+Какие испытания возникнут на пути Морских Волчат и смогут ли они с ними справиться?..(   Читать дальше...   )Жанр: Детская литература, Приключения, ДетективПеревод: Наталья НиколаеваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3176C26D8CC3A71C96A9179D0698ECCE3AFE5D6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

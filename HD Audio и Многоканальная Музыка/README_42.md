@@ -1,3 +1,90 @@
+###  Публикация: 1580161   (332009) от 30.09.2022
+
+VA - Югославская Эстрадная Музыка (1976) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+А1 Мики Евремович - Белая Хризантема
+А2 Мишо Ковач - Заря Заплачет
+А3 Оливер Драгоевич - Копакабана
+А4 Радмила Караклаич - Моя Земля(   Читать дальше...   )Жанр: Pop, Pop Rock, BalladПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A02A41D513E96BF4A8D2E4BC34F831F4224D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955756   (330981) от 13.11.2015
+
+Евгения Лисицина (серия Органная музыка, запись 1972 г.) - И. С. Бах, М. Регер: Партиты, концерт №1 длдя органа, (1986) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1	Партиты На Тему "Sei Gegrüsset, Jesu Gütig" Соль Минор, В. 768
+Концерт №1 Для Органа Соль Мажор, В. 592 (И. С. Бах)
+A2	1. (Allegro)
+B1a	2. Grave(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5469122371C79B871FC2A86F23F1879DF8ED662B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581217   (328048) от 04.10.2022
+
+VA - Hotrocks (1989) Repress [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Hard Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 Boycott - Roadrunner
+A2 Sakari Kuosmanen - Berlin
+A3 Melrose - Horse Doughnut
+A4 Big Saarinen - We're An American Band(   Читать дальше...   )Жанр: Rock & Roll, Hard Rock, Pop RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF17B19978E02F061A45469741DBC0D06EC37C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 841967   (327971) от 18.11.2014
 
 Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray] <Progressive Rock, Art Rock>
@@ -6,7 +93,7 @@ Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray]
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Madonna - Like A Virgin • Мадона - Като Дева • (1989) repress 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA С. Ротару feat. анс. Весёлые Ребята и Синтез-г
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -150,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -176,7 +263,7 @@ Luca Mannutza Trio - Airegin (2021) Japanese Edition  [DSD64 2.0|1bit/2822,4kHz 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -205,7 +292,7 @@ James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Eas
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +327,7 @@ VA - Музикална Стълбица 1 (1985) [FLAC 2.0|192/24|image +.cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +414,7 @@ Mozart - The Best Of... (unknown year) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Class
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -414,7 +501,7 @@ VA - Super Rock Ballads (1992) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -443,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -472,7 +559,7 @@ Rainbow - Ансамбль Rainbow (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +588,7 @@ Chris Rea - Road to hell (1989) [FLAC 2.0 96/24 |tracks(VinylRip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +623,7 @@ UB40 - Крыса На Кухне • Rat In The Kitchen (1987) [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +652,7 @@ Barbra Streisand - Guilty (1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Easy Li
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +681,7 @@ Uriah Heep - Magic Night /Live at Astoria Theatre, London/ [DST 2.0, 5.1 1bit/28
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -663,7 +750,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -683,90 +770,6 @@ Disc 1 (Side A-B)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F0081D644863CFF8B5AD679ACEDFE6EC4C97CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417241   (318734) от 30.11.2011
-
-Celine Dion - A New Day Has Come (2002) [DSD 5.1 1bit/2822,4kHz|SACD-R] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABCA6684D72975A62C6D2D4DAFFF70453404AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582759   (318609) от 11.10.2022
-
-Tina Turner - Foreign Affair (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Soul, Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318609.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Steamy Windows
-A2 The Best
-A3 You Know Who (Is Doing You Know What)
-A4 Undercover Agent For The Blues(   Читать дальше...   )Жанр: Pop Rock, Soul, Rhythm & BluesПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B244ED4421BC554ABD789BA06C28E9C9F1672AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037035   (317802) от 23.11.2016
-
-King Crimson - THRAK (1995) 2015, Discipline Global Mobile [DTS 5.1|LPCM 2.0, 5.1|48,96/24|2Blu-ray]  <Rock, Prog Rock, Art Rock, Avant-Prog>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317802.jpg" />
-</div>
-
-
-###  Подробнее
-
-* Blu-Ray 1: The most comprehensive Hi-Res audio-only disc yet assembled features three complete albums with 5.1 Surround Sound mixes: THRAK, ATTAKcATHRAK and Kcensington THRAK. These three albums also appear in Hi-Res stereo - THRAK in both its original and new stereo mixes - plus a further three complete albums are included in Hi-Res stereo, JurassiKc THRAK, THRAKaTTAKand& (   Читать дальше...   )Disc I
-01. THRAK 2015 mix
-DTS-HD Master Audio 5.1 24/96
-LPCM Stereo 24/96(   Читать дальше...   )Жанр: Rock, Prog Rock, Art Rock, Avant-ProgПродолжительность: 04:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27437A229FA297D4BDFE61590D2B56A1208DD09E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1807742   (10858) от 20.07.2025
+
+Sketchbook v6.2.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Великолепное приложение для рисования. В наличии множество вариантов разнообразных кистей. Поддержка работы со слоями. Возможность экспорта в различные форматы.
+Sketchbook — это то, что вам нужно, — от быстрых эскизов до полностью готовых произведений искусства.Тип издания: PremiumРелиз состоялся: 20.07.2025Разработчик: SketchbookПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCD5331A1EB30468A447177FF7D8EBB9E7BBABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807914   (10826) от 21.07.2025
+
+ByeByeDPI v1.6.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Приложение для Android, которое локально запускает ByeDPI и перенаправляет весь TCP трафик через него. Для стабильной работы может потребоваться изменить настройки. Подробнее о различных настройках можно прочитать в документации ByeDPI. Приложение не является VPN. Оно использует VPN-режим на Android для перенаправления трафика, но не передает ничего на удаленный (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 19.07.2025Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA865E2DA87F56FC85788F4F24614C0A72DC22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807890   (10797) от 21.07.2025
+
+Аудиокниги онлайн v1.86 Mod by Number one' [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Большой каталог аудиокниг разделенный по категориям, с возможностью их скачивания. Для работы возможно понадобится VPN.Тип издания: AdFree (удалена реклама)Релиз состоялся: 20.07.2025Разработчик: Центр разработкиПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E210A291DFBA1C8E20562B361542E7F8445186CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807885   (10794) от 21.07.2025
 
 Truecaller: AI Call Blocker / Oпределитель номера v15.21.6 Mod by Balatan [Ru/En]
@@ -6,7 +85,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.21.6 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +138,7 @@ VK Музыка: песни и подкасты v8.0 Mod by VK Equals [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +190,7 @@ BitTorrent®- Torrent Downloads v8.2.38 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +216,7 @@ Photo Sherlock v1.129 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +242,7 @@ Enhance it v4.2.2 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +346,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.8.8 Mod by v
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +403,7 @@ Purvpn 8.4 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +457,7 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.2_2 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +484,7 @@ Cat Scanner / Сканер породы кошек v19.9.0-G Mod by vadj [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +510,7 @@ Flud v1.11.6.10 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +536,7 @@ Moon+ Reader Pro v10.1 (b1001001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +562,7 @@ MultiTimer: МультиТаймер v1.9.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +588,7 @@ TeraBox: 1TB Облако & AI v4.3.4 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +642,7 @@ AI Photo Editor Pro - Polish v1.662.224 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +668,7 @@ Face Swap - AI Photo Editor v1.4.7 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -601,84 +680,6 @@ Face Swap - AI Photo Editor v1.4.7 Mod by Balatan [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACAF6C3176AD7F6F8DD10459C897BD4E5E8E1420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810213   (9420) от 03.08.2025
-
-Heart Rate Plus: Pulse Monitor v2.9.5 Mod by FeralFox [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проверяйте свою частоту пульса в любое время и в любом месте с помощью Heart Rate Plus - дома или в офисе - когда вы просыпаетесь, расслабляетесь, до и после тренировки.Тип издания: ProРелиз состоялся: 02.08.2025Разработчик: PVDAppsПоддерживаемая ОС: Зависит от устройстваЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13DC8FE4654EB59B1D11173EA3303BC0A7C7663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810643   (9264) от 05.08.2025
-
-Proton VPN 5.12.48.0 Mod [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proton VPN — это единственное в мире бесплатное приложение VPN, которое безопасно в использовании и уважает вашу конфиденциальность. Наш быстрый VPN предлагает безопасный, конфиденциальный, зашифрованный и неограниченный доступ в интернет с дополнительными функциями конфиденциальности и безопасности. Proton VPN также разблокирует доступ к популярным веб-сайтам и (   Читать дальше...   )Тип издания: ModПоддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D74BAEB00336FDB7EFB1FFC9A909AA4DD8C8F3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811339   (8847) от 09.08.2025
-
-Кино HD v3.5.6 Mod by Timozhai [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный клиент онлайн кинотеатра. Множество фильмов, сериалов, трейлеров. Абсолютно бесплатно. Способен искать фильмы и сериалы во множестве источников. Работает весьма быстро. Удобный интерфейс.Тип издания: Mod / CloneРелиз состоялся: 05.08.2025Разработчик: a-apps.cnПоддерживаемая ОС: Android 4.4+ (рекомендовано 8+)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E4EF6CD01242CD7BD1507215B2ED9AC5A338E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

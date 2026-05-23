@@ -1,3 +1,55 @@
+###  Публикация: 1453126   (196339) от 01.07.2023
+
+Охота. Монте-Пердидо / La caza. Monteperdido (2021) WEBRip (сезон 2, серии 1-8 из 8) Ultradox [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В поселке Монте-Пердидо пропали две девочки, Ана и Лусия. Спустя 5 лет Ана возвращается. Расследование открывается вновь, теперь все пытаются выяснить, что же случилось со второй девочкой.Производство: Испания / DLO Producciones, Radio Televisión Española (RTVE)Жанр: триллер, драма, криминал, детективРежиссер: Сальвадор Гарсия Руис, Альваро Рон, Рафаэль МонтесиносАктеры: Меган Монтанер, Ален Эрнандес, Беатрис Карвахаль, Франсис Лоренсо, Феликс Гомес, Беа Сегура, Сара Риверо, Пабло Дерки, Льюм Баррера, Пачи ФрейтесПеревод: Многоголосый любительский (Ultradox)Язык озвучки: РусскийПродолжительность: ~01:00:00 серияРеклама: присутствуют рекламные вставки (аудио / видео)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9099EA2B6827A62F1E502AA06071890742AB3399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421872   (196105) от 04.07.2023
+
+Паранормальные явления / Paranormal (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) OmskBird [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+1960-е годы. Гематолог Рефаат Исмаил невольно становится специалистом по исследованию паранормальных явлений.Производство: Египет / NetflixЖанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Амр Салама, Majid Al AnsariАктеры: Ахмед Амин, Reem Abd El Kader, Samma Ibrahim, Разан Джаммаль, Aya Samaha, Roshdy Elshamy, Adam Wahdan, Ахмед Даш и другие.Перевод: Многоголосый закадровый (OmskBird)Продолжительность: ~00:52:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1DFD02E95EFDC598585C6E500A57A01D87FEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645159   (195778) от 14.07.2023
 
 Фенрис / Fenris (2022) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A8B21CCD4C65C23F32875E584EC9C321DB1B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660255   (189754) от 12.09.2023
-
-Блаженный / Il Santone (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энцо Барони - простой кабельщик из римского Ченточелле. В один прекрасный день он куда-то пропадает, а спустя несколько месяцев так же неожиданно возвращается, но уже c бородой, в белых индийских одеждах и с блаженной улыбкой на лице. Где он был и что с ним случилось - не может сказать никто, даже сам Энцо. Но одно ясно точно: герой изменился, начал предсказывать (   Читать дальше...   )Производство: Италия / Stand By MeЖанр: комедияРежиссер: Лаура МускардинАктеры: Кьяра Бассерманн, Нери Маркоре, Карлотта Натоли, Росселла Брешия, Гуя Йело, Алессандро Ричечи, Давид Девенуто, Клаудио Сегалусио, Beatrice De Mei, Фабрицио Джаннини и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, итальянскийСубтитры: РусскиеПродолжительность: ~00:30:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C269A693B76DB28783CA80AA2F7A22CBC59D5140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660256   (189710) от 12.09.2023
-
-Блаженный / Il Santone (2022) WEBRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энцо Барони - простой кабельщик из римского Ченточелле. В один прекрасный день он куда-то пропадает, а спустя несколько месяцев так же неожиданно возвращается, но уже c бородой, в белых индийских одеждах и с блаженной улыбкой на лице. Где он был и что с ним случилось - не может сказать никто, даже сам Энцо. Но одно ясно точно: герой изменился, начал предсказывать (   Читать дальше...   )Производство: Италия / Stand By MeЖанр: комедияРежиссер: Лаура МускардинАктеры: Кьяра Бассерманн, Нери Маркоре, Карлотта Натоли, Росселла Брешия, Гуя Йело, Алессандро Ричечи, Давид Девенуто, Клаудио Сегалусио, Beatrice De Mei, Фабрицио Джаннини и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, итальянскийСубтитры: Русские (отдельно)Продолжительность: ~00:30:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C6E85E6F30425F65A5B12D05276DEC17A510BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

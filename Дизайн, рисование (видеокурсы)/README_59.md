@@ -1,3 +1,86 @@
+###  Публикация: 1555614   (231215) от 04.06.2022
+
+Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D Painter (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Текстурируйте полную сцену с помощью различных материалов, таких как стена, металл, пластик, дерево, сталь и т.д.
+Мы начнем с создания нового проекта и запекания карт. Затем мы будем создавать текстуры для всех наших ассетов одну за другой с помощью ресурсов, предоставленных Substance 3D Painter.
+После завершения текстурирования мы экспортируем наши текстуры для (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 14:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B261378257117962B7AC8FE05D05ABC5F2EBD2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555613   (231128) от 04.06.2022
+
+Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3.0 (2022) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс познакомит вас с более реалистичным способом создания рига вашего автомобиля с помощью физического движка Blender. Используя Rigid Bodies и Rigid Body Constraints, вы можете буквально вести свой автомобиль по вашей сцене. Этот метод позволяет физическому движку вычислять все движения автомобиля, такие как углы развала, скорости вращения колес, крен кузова, (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, РиггингЯзык озвучки: АнглийскийПродолжительность: 09:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EE9A376927EABAE4AB9F35692AB8512F5AE821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637727   (230633) от 05.06.2023
+
+Зоя Ти | Запись «Большого Ежегодного Вебинара по трендам» от Зои Ти (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Узнай о интерьерных трендах 23/24 всё, через призму психологии и реальной тренд-аналитики.
+
+1. Как меняются предпочтения потребителей в РФ
+2. Что будет пользоваться спросом у платежеспособной аудитории(   Читать дальше...   )Жанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 02:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8190FC144374E0537B5E19A5AAC899F365649E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637759   (230627) от 05.06.2023
 
 Artilike, Галина Гомзина | Акварельный интенсив Родные просторы. Тариф Минимум (2023) WEB-DL [AD] [RU]
@@ -6,7 +89,7 @@ Artilike, Галина Гомзина | Акварельный интенсив 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +115,7 @@ Fluidart, Екатерина Гаврилова | Онлайн курс «Сов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -90,7 +173,7 @@ Artmeup, Кристина Бриль | Текстурная живопись (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -119,7 +202,7 @@ CG Forge, Tyler Bay | Pyro II - Flames & Sparse Pyro (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -147,7 +230,7 @@ Skillshare, Yassine Larayedh | Create Realistic Looking Forests & Mountains in B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -173,7 +256,7 @@ FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -200,7 +283,7 @@ Skillshare, 3D Tudor | Substance Painter to Unreal Engine 5 Masterclass (2022) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -228,7 +311,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine Complete Material Syst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -254,7 +337,7 @@ Tim Bergholz | Ultimate Grenade Tutorial Hardsurface 3D Course (2015) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -280,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -309,7 +392,7 @@ Stan Air | AirHair Tutorial (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -338,7 +421,7 @@ Hudozhnik Online, Полина Абдулаева | Черно-белый Нов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -366,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -394,7 +477,7 @@ Udemy.com | Adobe Photoshop cc course from A-Z Beginner to Master (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -421,7 +504,7 @@ Enterclass, Илья Ибряев | Мачу-Пикчу (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -447,7 +530,7 @@ lectoroom, Елена Базанова | Веточки яблони аквар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -475,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -504,7 +587,7 @@ Ctrl + Paint, Matt Kohr | Custom Brush Design (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +613,7 @@ Ctrl + Paint, Matt Kohr | Vehicle Design Start To Finish (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +640,7 @@ Ctrl + Paint, Matt Kohr | Let's Paint (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -583,7 +666,7 @@ Ctrl + Paint, Matt Kohr | Weapon Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -609,7 +692,7 @@ Udemy, Neil Bettison | Создание научно-фантастическо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -620,84 +703,6 @@ Udemy, Neil Bettison | Создание научно-фантастическо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE6CD4C8495373CFA95BD9F1D7AACFB3D5BD1BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512979   (226831) от 27.11.2021
-
-Ctrl + Paint, Matt Kohr | Costume Design (2016) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн костюма, это очень распространенная тема в индустрии игр и она дает замечательное поле для практики ваших занятий. Этот курс по созданию портфолио, предлагает недельное задание по дизайну. Вместо того чтобы сосредотачиваться исключительно на техниках ФШ и секретах работы с кистью, я сосредотачиваюсь на процессе генерации идей. В каждом курсе по созданию портфолио (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBA5718719E5A0CB7946465B9C68EDFC84E409C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512962   (226798) от 27.11.2021
-
-Ctrl + Paint, Matt Kohr | Digital Sketching 2: Refined Lines (2016) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226798.jpg" />
-</div>
-
-
-###  Подробнее
-
-ряд упражнений, которые помогут вам обрести уверенность как в выполнении простой штриховки, так и в линейном рисунке по фотографии. Помимо традиционных упражнений, я продемонстрирую несколько цифровых инструментов, которые помогут вам усовершенствовать технику линейного рисунка в Фотошопе. Чтобы облегчить вам задачу, я прилагаю к видеокурсу набор кистей Natural Media (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD18EDE00F41549298DA3A1DF04F32826B1B1FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512972   (226760) от 27.11.2021
-
-Ctrl + Paint, Matt Kohr | Creating Realistic Surfaces (2013) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы разобрались с базовой визуализацией, настало время для детализации поверхностей. Так называемый “реализм” изображения, очень часто связан с тщательной и грамотной текстурной детализацией. Данный курс, в семи уроках, демонстрирует два разных подхода текстурирования поверхностей. Первый – ручное рисование, второй – при помощи наложения фотографий. В обоих случаях, (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3120BF723ADF9D0ECCCAA898F4B36EEECBC52F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

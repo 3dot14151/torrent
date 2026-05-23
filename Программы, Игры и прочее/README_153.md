@@ -1,3 +1,81 @@
+###  Публикация: 1755083   (40451) от 13.10.2024
+
+SnapEdit - AI photo editor v7.0.0 Mod by Oflarm [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 13.10.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F04A6B2B594178ECF9F5FAEB8041AB1E7284FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755313   (40393) от 14.10.2024
+
+Magic Eraser / Магический ластик v2.10.11 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.10.2024Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF1E81469A03DD917FE358C96FF19898FAE5668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755629   (40207) от 16.10.2024
+
+WPS Office + PDF v18.13.2 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.10.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56734FE190584A8634B0E69CAEBB098625BC857C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755632   (40188) от 16.10.2024
 
 PictureThis - Plant Identification v4.4.2 Mod by youarefinished [Ru/Multi]
@@ -6,7 +84,7 @@ PictureThis - Plant Identification v4.4.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Folder Player Pro v5.28 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ PhotoRoom v5.4.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ IPTV Pro v8.2.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ ActionDirector - Видеоредактор v7.12.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.5 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Botanicula 1.0.274 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +295,7 @@ Background Video Recorder Pro v10.9.9 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +321,7 @@ Monument Valley NETFLIX 3.7.235 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +349,7 @@ Valiant Hearts: Coming Home 1.0.5 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +375,7 @@ World of Goo Remastered 1.0.23082408 Mod by DroidHaven [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +401,7 @@ EOBD Facile: OBD 2 авто сканер v3.66.1062 Mod by derrin, NURIK kz [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +427,7 @@ Reface: Face Swap AI Generator v4.25 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +453,7 @@ TapScanner v3.0.42 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +482,7 @@ PDF Extra PDF Editor & Scanner v10.17.266453 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +508,7 @@ GTA: San Andreas – NETFLIX 1.86.44544238 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +536,7 @@ GTA: San Andreas — Definitive Edition 1.86.44544238 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +562,7 @@ GTA: Vice City – NETFLIX 1.83.44255649 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +590,7 @@ RuStore для Android v1.53.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +616,7 @@ Vanced Tube v5.1.83.147 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,7 +642,7 @@ GTA: Vice City — Definitive Edition v1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,7 +668,7 @@ AR Ruler App: Линейка Рулетка v2.8.8.1 Mod by srajawwal09 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -601,87 +679,6 @@ ARuler - лучшее и бесплатное приложение на Android 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCC12A028DE3BE8BD795A2F654549B5D6E2C1145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756188   (39789) от 20.10.2024
-
-Monument Valley 2 NETFLIX v3.7.120 Mod by apkvision [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чудесный мир головоломок ждет вас снова! Исследуйте невероятную архитектуру вместе с мамой и ее ребенком в трогательном путешествии по новым уголкам мира.
-
-В продолжении любимой инди-головоломки Monument Valley, лауреата премии BAFTA, вас ждет совершенно новое приключение — в других частях мира, но с не менее невероятной архитектурой. Monument Valley 2 — трогательная (   Читать дальше...   )Тип издания: ModРелиз состоялся: 3 окт. 2024 г.Разработчик: Netflix, Inc.Поддерживаемая ОС: Android 8.0+Жанр: ГоловоломкаЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4E8EC7534FD483CD143177E23FB4AEF13885BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756338   (39785) от 20.10.2024
-
-Valiant Hearts: The Great War 1.0.4 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39785.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом интерактивном графическом романе, включающем боевые и приключенческие сцены, а также решение головоломок, вы погрузитесь в трогательную историю четырех невоспетых героев, подхваченных бурными волнами Первой мировой.
-Valiant Hearts: The Great War — это игра из четырех эпизодов, вдохновленная письмами участников Первой мировой. Дополнительные эпизоды можно приобрести (   Читать дальше...   )Тип издания: FullРазработчик: Ubisoft EntertainmentПоддерживаемая ОС: Android 4.0+Жанр: КвестЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3269B9AFCA85619EBC192B0C716A4AFF0F7E8D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756355   (39784) от 20.10.2024
-
-GTA 3 — Definitive Edition 1.83.44255649 Mod by apkvision [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все начинается в Либерти-Сити. Grand Theft Auto III позволяет идти куда угодно и делать все, что вам захочется. Безжалостный криминальный мир станет вашим, если у вас хватит смелости его покорить.Тип издания: Full + MOD 60 FPSРелиз состоялся: 8 апр. 2024 г.Разработчик: Rockstar GamesПоддерживаемая ОС: Android 5.0+Жанр: ЭкшнЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B33A8789665A56A43294F7A5625957C29AE92A
 ```
 
 https://mybot314.ru/tekegram_catalog/

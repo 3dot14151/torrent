@@ -1,3 +1,55 @@
+###  Публикация: 1302908   (578002) от 18.05.2019
+
+Беличьи секреты (тайны) / Secrets of Squirrels (2018) DVB [H.264]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Белки нравятся всем! Однако, они известны нам лишь только по своим кратким визитам на землю. Милые и игривые, а еще — сообразительные. Именно такими они нам представляются. Создатели данной картины сумели заснять белок в их естественном окружении: высоко в листве и на верхушках деревьев. Они изучили их интеллект, а также постоянную борьбу за господство.Производство: Австрия, ORF, ARTE, NDR и dreiD. at FilmproduktionЖанр: документальный, природа, фаунаРежиссер: Франц ФуксПеревод: Одноголосый закадровый, профессиональный (СВ-Дубль)Субтитры: РусскиеПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60797436CF35717EA9348D8CC0EC3929A9A7787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233639   (577934) от 01.07.2018
+
+Земля медведей / Land of the Bears (Terre des ours) (2013) BDRip [H.264/1080p] [PR]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм рассказывающий о жизни медведей от самого младенчества, до перехода во взрослую жизнь, где никто и никогда больше будет помогать выжить в суровые и долгие зимы. Фильм пестрит прекрасными пейзажами нетронутой и девственной природы в различные времена года, где каждый сезон манит своей неповторимой красотой. В картине покажут жизнь одной семьи (   Читать дальше...   )Производство: Франция, Cameron Pace Group, Centre National de la Cinématographie (CNC), Les films en vrac, Nature Pictures, Orange StudioЖанр: Документальный, семейный, фаунаРежиссер: Гийом ВенсанПеревод: Дублированный (Омикрон)Субтитры: русские, французские, английскиеПродолжительность: 01:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7084F28EF7D12A9871A3F5703CDD1FA4E2E35719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527565   (576936) от 26.07.2012
 
 Приключение в Северном море / North Sea Adventure (2010) HDTVRip [H.264/720p]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Нападение шершней-убийц / Attack of the Murder H
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +246,7 @@ IMAX. Тайна жизни на Земле / IMAX. The Secret Of Life On Earth 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +324,7 @@ IMAX: Вулканы в морских глубинах / IMAX: Volcanoes of the
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +428,7 @@ Nat Geo Wild: Самые опасные змеи Азии / Asia's Deadliest sna
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A820A52C674E2C301BBEC63E857FEB27EFFD53D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307845   (554630) от 11.06.2019
-
-Дикая Германия / Дикая природа Германии / Wildes Deutschland (2013) BDRip [H.264/1080p] (сезон 3, серии 1-2 из 4) [AVO]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увидеть самые красивые природные регионы Германии в новом ракурсе!
-Королева рек Дунай, окаймленная необычными берегами с ошеломляющей флорой и фауной. Чарующий Лаузиц в бывшей приграничной зоне между Востоком и Западом, отмеченный десятилетиями добычи бурого угля и населенный редкими животными. Кристально чистое и самое глубокое озеро Штехлин на севере Бранденбурга, (   Читать дальше...   )Производство: Германия, ARTE, NDR Naturfilm, Rundfunk Berlin-Brandenburg (RBB)Жанр: Документальный, природа, флора, фаунаРежиссер: Юрген АйхингерПеревод: Одноголосый закадровый, авторскийСубтитры: отсутствуютПродолжительность: 00:44:22 + 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC921AF48DC1DC2A8D66A4B864E0CA810BFE3457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308107   (554473) от 12.06.2019
-
-Миссия к китам / Whale Mission (2005) HDTVRip [H.264/1080i-LQ](серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554473.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Миссия к китам» – двухсерийный документальный телефильм о жизни и повадках неуловимых морских обитателей, которых наши предки наделяли сверхъестественной силой. Теперь им угрожает опасность в связи с изменением климата в результате глобального потепления.Производство: Канада, BFS Entertainment, Glacialis Inc. (Iles de la Madeleine)Жанр: Документальный, природа, флора, фаунаРежиссер: Жан Леми, Каролин АндервудПеревод: Двуголосый закадровый, профессиональный (ТПО Ред Медиа)Субтитры: отсутствуютПродолжительность: серии x ~00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280366AA47C5FEC21637E710B5D7E03704711F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

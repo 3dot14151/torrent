@@ -1,3 +1,55 @@
+###  Публикация: 1407015   (470985) от 05.09.2020
+
+Kamigami no Asobi | Забавы богов [2014, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+17-летняя Юй Кусанаги, дочь синтоистского жреца, всю жизнь только училась, прислуживала в храме да занималась фамильным стилем кэндзюцу. И вот однажды девушка обнаружила чудесный меч, одно прикосновение к которому переправило ее в странное место, похожее на огромную, но пустующую школу. Сомнения развеял повелитель Зевс, объяснивший, что молодое поколение небожителей (   Читать дальше...   )Производство: Brains Base / ブレインズ・ベースЖанр: романтика, фэнтезиРежиссер: Кавамура ТомоюкиПеревод: YakuSub Studio (Nika_Elrik, Harushechka)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D51215DE70AD151F989198A43CBEE7338C5D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407005   (470722) от 05.09.2020
+
+Hinako Note | Дневник Хинако [2017, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Хинако Сакураги живет в сельской местности, и ей довольно плохо дается общение с людьми. И дабы улучшить свои навыки общения, она решает, что со старшей школы будет учиться в Токио, и там же хочет поступить в театральный клуб. Вот только выясняется, что жить Хинако будет в старом книжном магазине, вместе с девочкой по имени Куина Нацукава. Но эта (   Читать дальше...   )Производство: Passione / パッショーネЖанр: комедия, повседневностьРежиссер: Такахаси ТакэоПеревод: UndokaktyzЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBECC9E26970CB18BE1DAD6BE68F33AEA1F7A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057922   (470590) от 30.09.2016
 
 Taimadou Gakuen 35 Shiken Shoutai | Anti-Magic Academy: The 35th Test Platoon | 35-й учебный взвод Антимагической Академии [2015, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +58,7 @@ Taimadou Gakuen 35 Shiken Shoutai | Anti-Magic Academy: The 35th Test Platoon | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Days | Дни [2016, TV, 24 из 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Mawaru Penguindrum / Крутящийся пингвиний барабан [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Ajin | Полулюди [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Mashiroiro Symphony: The Color of Lovers / Белоснежная симфони
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +192,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +218,7 @@ Danchigai / Big Difference / Большая разница [2015, TV, 12 + OVA] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +244,7 @@ Akai Koudan Zillion | Red Photon Zillion | Красный фотон Зилли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +270,7 @@ Akai Koudan Zillion: Utahime Yakyoku | Red Photon Zillion: Burning Night | Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +296,7 @@ Gekijouban Hibike! Euphonium | Sound! Euphonium The Movie | Играй, эуфо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +323,7 @@ Princess Tutu | Принцесса Тютю [2002, TV, 38 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +349,7 @@ Neppu Kairiku Bushi Road | Neppuu Kairiku Bushi Road | Burning Wind Ocean Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +375,7 @@ Plunderer | Грабитель [2020, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +401,7 @@ Log Horizon | Лог Горизонтa [TV-1][2013, TV, 25 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +427,7 @@ Seisenshi Dunbine: New Story of Aura Battler Dunbine | Aura Battle Dunbine: The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +453,7 @@ Okusama ga Seito Kaichou! / My Wife Is the Student Council President! / Моя �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +479,7 @@ Isekai Quartet 2 | Четвёрка попаданцев 2 [2020, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +506,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +532,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Завет Дь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +558,7 @@ Fate/Stay Night Unlimited Blade Works / Судьба: Ночь Схватки (�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +586,7 @@ Toaru Hikuushi e no Koiuta | The Pilot's Love Song | Песня любви од�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +612,7 @@ Shashinkan | Фотоателье [2013, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +640,7 @@ Robot Girls Z | Девочки-роботы Зет [2014, TV, 3 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +667,7 @@ Servamp | Сервамп [2016, TV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,58 +678,6 @@ Servamp | Сервамп [2016, TV] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:880D53F1D8F13281A2B617A3FB79AF03237F6F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409836   (440729) от 19.09.2020
-
-Pop in Q | Поп и Кью [2016, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наконец-то завтра выпускной. Но не тут-то было. Так и не попав на церемонию вручения дипломов, пять самых обычных учениц средней школы переносятся в параллельный мир, которому грозит огромная опасность. Чем же обыкновенные, ничем не примечательные девушки смогут помочь? Ответ лежит на поверхности. Танец, способный объединить пять девичьих сердец. Им необходимо полюбить (   Читать дальше...   )Производство: Toei Animation / 東映アニメーションЖанр: приключения, фэнтези, музыкальныйРежиссер: Мияхара НаокиПеревод: А. БутерЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4513ABC7984AC1FFD90411C9D81EDB6EFBCC9809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409972   (440593) от 19.09.2020
-
-Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2020, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь, Какуси Гото. Он мангака, специализирующийся на эротических историях. А ещё у него есть дочь Химэ, которая учится в четвёртом классе. Для Какуси нет ничего важнее любимой дочурки. И именно поэтому он делает всё, лишь бы она… не узнала о его профессии! Ведь тогда девочка не то, что разочаруется в отце — наверняка ещё и возненавидит! С этого и начинается (   Читать дальше...   )Производство: Студия Ajia-dou / 亜細亜堂Жанр: комедия, повседневностьРежиссер: Мурано ЮтаПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3636B99ACFCF7B5AF12B2DDCC62C5A36B3AF987D
 ```
 
 https://mybot314.ru/tekegram_catalog/

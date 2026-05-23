@@ -1,90 +1,3 @@
-###  Публикация: 1341473   (262307) от 28.11.2019
-
-VA - Soul And Love Song (2019) [MP3|320 Kbps] <Soul, R&B, Other>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262307.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Allуshа Jоу - Fnfl
-002. Jеаn Dеаux - It’s Whаtеvеr
-003. Quеntin Mооrе - Swееt Sроt
-004. K'nуа - Cоnstаnt(   Читать дальше...   )Жанр: Soul, R&B, OtherПродолжительность: 09:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E27A3ABAB293B47A12F351A3FF1111A86404BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838572   (260635) от 23.11.2025
-
-VA - No name compilation part 15 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soulful Blues Ballad>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ai - Train to Silence
-02 - Ilaria Argento - Under My Tree
-03 - Ilaria Argento - That Winter Stayed
-04 - Ilaria Argento - We'll Burn Tonight(   Читать дальше...   )Жанр: Soulful Blues BalladПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBAF90BC174BB001091D95DDC68C2010FA23116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838451   (260618) от 23.11.2025
-
-AI - No name compilation part 12 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soulful Blues Ballad>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Weight of a Whisper
- 02 - Shadows on My Shoulder
- 03 - Velvet Shadows
- 04 - The Ghost in the Machine(   Читать дальше...   )Жанр: Soulful Blues BalladПродолжительность: 02:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C486CCCD96F61A40EC5D8434E0485E5889CFA8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837248   (256851) от 15.11.2025
 
 VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul Blues, Soulful Blues Ballad, Soothing Soul Blues>
@@ -93,7 +6,7 @@ VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +35,7 @@ VA - No name compilation part 7 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +64,7 @@ VA - No name compilation part 6 Blues, Soul (2025) [MP3|320 Kbps] <Blues, Soul, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +93,7 @@ John Lee Hooker and John Lee Hooker, Jr. - Best of (1959-2006) Compilation Album
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +122,7 @@ VA - Swing Jazz Wonder Of Romance (2023) [MP3|320 Kbps] <Swing Jazz, Nu Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +151,7 @@ VA - Blues by Can Soulful Blues Ballad Favorites Collection (2025) [MP3|320 Kbps
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +180,7 @@ VA - #003 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +209,7 @@ VA - #004 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +238,7 @@ VA - #005 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +267,7 @@ VA - #006 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +296,7 @@ VA - No name Sultry & Soulful Jazz  compilation (2025) [MP3|320 Kbps] <Sultry & 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +325,7 @@ Chicago Blues Radio - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +354,7 @@ The Millennium Collection - The Best Pop Music Of The 20th Century (1950-1998 20
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -476,7 +389,7 @@ Morgan Luna - Compilation (2025) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -505,7 +418,7 @@ VA - #002 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -534,7 +447,7 @@ VA - #001 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -563,7 +476,7 @@ Chilled Blues - Dark Blues Ballads Winter Nights with Blues (2025) [MP3|320 Kbps
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -592,7 +505,7 @@ Etta Mae Hartwell - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -621,7 +534,7 @@ Enlly Blue - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -650,7 +563,7 @@ Sons of Ashes - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -679,7 +592,7 @@ Ilaria Argento - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -708,7 +621,7 @@ Enlly Blue - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -737,7 +650,7 @@ Sons of Ashes - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -751,6 +664,93 @@ Sons of Ashes - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE5B16607C18EDA9E588954BFD000997EB0FFA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833102   (246161) от 01.11.2025
+
+Мария Варгас - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01 - Ночной звонок
+ 02 - Не для меня
+ 03 - Забудь меня
+ 04 - С любимыми не расставайтесь(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0733ACD61D93B5A4F961D174E5F30C2CAC9D18AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833019   (246124) от 31.10.2025
+
+Chicago Blues Radio - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01 - Midnight ashes (Version 2)
+ 02 - Midnight smoke
+ 03 - Midnight on State Street
+ 04 - Midnight on ice(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6035374CAC9C35D2BCF741F7CF4F035A4B1140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833485   (246092) от 01.11.2025
+
+Chicago Blues Radio - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01 - Midnight Glass of Blues
+ 02 - Whiskey and midnight blues
+ 03 - Whiskey after midnight
+ 04 - Whiskey and midnight blues(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44605BAC2EACD00704B5CE779F902A2168C540BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

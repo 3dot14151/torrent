@@ -1,3 +1,81 @@
+###  Публикация: 1730762   (53038) от 17.06.2024
+
+BIG Launcher 5.3.0 Mod by TryRoom [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+BIG Launcher - хорошо проработанный и очень полезный лаунчер для пожилых людей, плохо видящих и их родственников, что беспокоятся о них. Проект превращает экран смартфона в рабочее пространство с только нужными элементами. При этом они могут похвастаться узнаваемыми пиктограммами и впечатляющими размерами. А значит любой сможет распознать их и выбрать в случае необходимости. (   Читать дальше...   )Тип издания: FullРелиз состоялся: 12.06.2024Разработчик: BIG LauncherПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6D18D423A70270B27F04537AB031255B5F6383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730659   (53037) от 17.06.2024
+
+Виджет Яндекса / Yandex Widget 1.15.0.794 (ARM64) Mod by dag-05 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Яндекс представляет бесплатный виджет для Android, который может запускать голосом приложения и диктовать запросы для поиска в интернете. Пользоваться поисковой строкой с подсказками и быстрыми ответами. Получать актуальную информацию о погоде, пробках и курсах валют и следить за временем и зарядом батареи.Тип издания: ModРелиз состоялся: 22.10.2023Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 4.2+ (Только для ARM64)Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C91BC44982EC49EAADDA2BC5BEAC19A5693EFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730793   (53027) от 17.06.2024
+
+Pro PDF Reader v1.0.8 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Pro PDF Reader - это удобное и мощное приложение для чтения электронных книг, документов и файлов в формате PDF прямо на вашем телефоне. Наша читалка сочетает в себе простоту использования с богатым набором функций, делая процесс чтения легким и увлекательным. Простой и быстрый инструмент для просмотра документов, сохранёных в формате .pdf. В наличии возможность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.06.2024Разработчик: Android Tools (ru)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730656   (53015) от 17.06.2024
 
 Overlays - Floating Launcher 8.1.1 Mod by Alex.Strannik [Multi]
@@ -6,7 +84,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ BitTorrent Pro - Torrent App 8.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ ViewBox v1.8.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ NewPipe Sponsor Block 0.27.0 Mod by N3k1t4_1996 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Smart Launcher 6.4 build 031 Lite-Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Zaycev.net v9.4.0 Mod by Timozhai  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Smart Launcher 6.4 build 031 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Songsterr Guitar Tabs & Chords v5.24.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +321,7 @@ GreenTuber - неофициальный клиент YouTube 0.1.4.2 Mod by MDNI
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +347,7 @@ UpNote - Записка, дневник 9.4.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +373,7 @@ Microsoft Edge 124.0.2478.71 (ARM64) Lite-Mod by Rarity$ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +399,7 @@ Today Weather - Прогноз погоды 2.2.1-15.140524 Mod by Kirlif' [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +425,7 @@ O Launcher 12.3 (ARM64) Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +451,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by Balatan [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +477,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +503,7 @@ SuperImage Pro - AI Enhancer 3.0.2 (ARM64) Mod by ApplicazioniCR [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +529,7 @@ FiiNote / Быстрые заметки v12.9.0.23 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +582,7 @@ Zedge™ Wallpapers & Ringtones 8.48.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +608,7 @@ Motion Portrait v1.7.1 Mod by APKMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +634,7 @@ Folder Player Pro v5.27 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +660,7 @@ VivaVideo Video Editor v9.17.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,87 +671,6 @@ VivaVideo - это простой в использовании видеоред
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD209DC630BC1F5CA2FA3A5CE16448F614CEFD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732415   (52217) от 24.06.2024
-
-SnapEdit - AI photo editor v6.5.8 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52217.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 24.06.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2A21FD62D2894289583DC3F9A1C880E15FE263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821407   (52099) от 02.10.2025
-
-Purvpn 9.8 [En/Farsi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите безопасный и анонимный доступ в Интернет с помощью бесплатного VPN-сервиса для Android всего за несколько нажатий.
-Шифрование данных с использованием конфигураций vmess, vless, shadowsocks, wireguard
-Возможность использовать режим прокси.
-(   Читать дальше...   )Тип издания: FreeПоддерживаемая ОС: Android (минимальная версия не указана)Язык интерфейса: Английский, Фарси
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8D6EE0347454A02AF7BEA696A722F798A4CF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732626   (52097) от 25.06.2024
-
-Grab Photos From Videos / Фото из видео v11.2.0 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Извлекайте фотографии из ваших видео. Просто импортируйте видео со своего устройства, и вы можете либо запечатлеть кадр из видео в определенной позиции, либо сделать ряд фотографий из ваших видео. Установите начальный и конечный диапазон видео, а также количество кадров, которые вы хотите извлечь. Все изображения из видео будут сохранены на вашем телефоне. Разрешение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.06.2024Разработчик: GreenBizkitПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A26652038BC5FF74D0BFE2C61C961E197A43296
 ```
 
 https://mybot314.ru/tekegram_catalog/

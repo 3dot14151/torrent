@@ -1,3 +1,148 @@
+###  Публикация: 948894   (408259) от 22.10.2015
+
+VA - Sapphire Lounge (30 Luxury Chillout Tunes) (2013) [MP3|320 кб/с]<Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Surround Me With Your Love - 3-11 Porter
+02. Soverato (feat. Sitta) (Vocal Version) - Minus 8
+03. Walk Away (feat. Terry Callier) - Road
+04. Painted Room (Carlos Yebra Remix) - Karen Gibson Roc(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE88F38888F146AB3BDD1C8437DA14D7663D9640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948945   (408258) от 22.10.2015
+
+VA - Uplifting Sexy Trance Sound (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Maywave - Flowing Passion (Snow Flakes Remix)
+02. Raddle B & Nellu L vs Marcprest - 7 Billion People 14 Billion Faces (Philler Music Remix)
+03. Morvan - Alyssa (Michael Retouch Remix)
+04. Minamoca & Yu-I - Eternal (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88694E49CFBA1FF0714E49289ECE29FEC2DA23DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413519   (408097) от 04.10.2020
+
+VA - Свежак Vocal Trance NNM (2020) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat. Zoe Johnston - Reverie (3:52)
+02. Alex M.O.R.P.H. feat. Cheryl Barnes - Against The Wind (3:24)
+03. Alexander Popov & Enzo feat. Cari - Stranger Inside (3:14)
+04. Alpha 9 - Tell Me (4:07)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 06:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0633D5DAFA345A0132EEDE95BA1C7BBF4487E30D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413635   (408095) от 04.10.2020
+
+VA - Beatport Deep House: Electro Sound Pack #176 (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Ryan Fuller - Virgin Of Rock (Original Mix)
+002. Davix Project - Caribe
+003. Jeff Bhaume - Caraibe
+004. Immure - Time (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FD6A16364A35A05B6F6D59EABD30A3127DAB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413637   (408079) от 04.10.2020
+
+VA - Beatport Progressive House: Electro Sound Pack #179 (2020) [MP3|320 Kbps] <Progressive House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Upercent - The Red Moon
+002. Q-Green - Something (Remix)
+003. 2symmetry - Dr. Bob (Club Mix)
+004. Mario Ochoa - Rising Sun(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 10:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367EEC3C3E31D2B0F4F430F6510961CA927736EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413638   (407991) от 04.10.2020
 
 VA - Beatport Progressive Trance: Sound Pack #181 (2020) [MP3|320 Kbps] <Progressive Trance, Electro>
@@ -6,7 +151,7 @@ VA - Beatport Progressive Trance: Sound Pack #181 (2020) [MP3|320 Kbps] <Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Mega Cut Dreams (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +215,7 @@ VA - FreeFall Again (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -105,7 +250,7 @@ VA - Dubstepium vol. 4 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +285,7 @@ VA - Seclusion: Techno Electronic Party (2019) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +314,7 @@ VA - Beatport Psy Trance: Electro Sound Pack #183 (2020) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +343,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #184 (2020) [MP3|320 Kbps] <Drum
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +372,7 @@ ATB - All the Best (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -258,7 +403,7 @@ VA - The Key To Your Joy (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -287,7 +432,7 @@ VA - Top50: Tracks Deep House Ver.22 (2020) [MP3|320 Kbps] <Deep-House, Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -316,7 +461,7 @@ VA - Trance In Motion Vol.127 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +496,7 @@ VA - Deep+   Vol. 5 (2012) [MP3|320 кб/с]<Deep House(Tech House,Vocal House)>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +531,7 @@ VA - Juicy House Beats Vol. 1 (2012) [MP3|320 кб/с]<House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -421,7 +566,7 @@ VA - Loco – Carnivorous Attack (2012) [MP3|320 кб/с]<Ragga Jungle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +601,7 @@ VA - Lounge Paradise: The Pure Music Selection (2012) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +636,7 @@ VA - Creative Music Box 3 (2012) [MP3|320 кб/с]<Dub Step/Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +671,7 @@ VA - The Best Of Trance 60 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +700,7 @@ VA - Лучшая клубная музыка AndrS vol.28 (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +735,7 @@ Depeche Mode - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,7 +764,7 @@ VA - Empire Records - Sound Clinic 6 (2017) [MP3|320 Kbps] <House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +793,7 @@ VA - Ibiza Deep Groove Squad (2017) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -662,157 +807,6 @@ VA - Ibiza Deep Groove Squad (2017) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74EA3FF9FA39B33A0028771BDC604336E7644C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563356   (404024) от 22.10.2012
-
-VA - In Da Club Vol.66 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404024.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Various - Earth Hour (Club Mix)
-002. Rex Mundi - Interstate Of Lightning (Original)
-003. Susana feat. Julian Vincent - Fall In Deep (Alexander Popov Remix)
-004. Ralphie B - Delphi (Original Mix)
-005. Ridgewalker feat. El - Find (Andy Moor Remix)
-006. Ruben De Ronde - Timide (Andrew Rayel Remix)
-007. Tucandeo - Lockdown (Big Room Mix)
-008. Tritonal & Sibicky - Suzu (Ben Gold Remix)
-009. Wellenrausch - Sanctified (Original Mix)
-010. Tenishia & Ruben de Ronde - Story Of Life (Julian Wess & Mike Carey Dub Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209F9E21F0160512E48D20BF657ED52FEA067703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712430   (403247) от 19.10.2013
-
-Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flash In The Night 1982
-02. Will You Му Near Me 1984
-03. Night City 1985
-04. Broken Hearts 1981(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8871DD08B28AD0F01AE96005BE0D4C67773A53D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712398   (403245) от 19.10.2013
-
-Pet Shop Boys - 25 Best Songs (2012) [MP3|227 - 266 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go West 1993
-02. Love Etc. 2009
-03. Suburbia 1986
-04. It's A Sin 1987(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77374C9C30DA0F8416E37D94A2579B800D126E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712902   (403241) от 19.10.2013
-
-Duran Duran - 25 Best Songs (2012) [MP3|233 - 266 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mars Meets Venus 2000
-02. All You Need Is Now 2010
-03. Is There Something I Should Know 1981
-04. The Reflex 1983(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BAAC7395CE466B61D5C46B3622A158E258E111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712388   (403231) от 19.10.2013
-
-Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Magdalena (Single Version) 1985
-02. In The Heat Of The Night (Single Version) 1985
-03. Little Girl 1985
-04. Midnight Man (Single Version) 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDC62E4D3187CF4D444C4A7847844ECFA5AE11A
 ```
 
 https://mybot314.ru/tekegram_catalog/

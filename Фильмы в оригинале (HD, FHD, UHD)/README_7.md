@@ -1,3 +1,81 @@
+###  Публикация: 1103116   (887153) от 11.02.2017
+
+За осенью следует зима / After Fall, Winter (2011) WEB-DLRip [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Немолодой американский писатель Майкл испытывает творческий кризис и находится на грани суицида. Он бросает свой дом в Нью-Йорке и приезжает в Париж, в надежде найти стимул к возвращению в творческую жизнь. Вскоре после прибытия он встречает Софи, сексуальную, умную и душевную медсестру, которая занимается уходом за умирающими людьми. Майкл и Софи сразу же начинают (   Читать дальше...   )Производство: Франция, Five Minutes Before the Miracle, FilmBuff, D3 PicturesЖанр: ДрамаРежиссер: Эрик ШефферАктеры: Эрик Шеффер, Лиззи Брошере, Кристиан Мюло, Сильви Лоийе, Низеема Тейо, Хезер Аиткен, Ребекка Джеймс, Маттиас Ван КашПеревод: ОтсутствуетЯзык озвучки: Английский, местами французскийЯзык субтитров: АнглийскийПродолжительность: 02:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D83A8E67FDBD96B2431A546D4433A0836BCA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103364   (886889) от 11.02.2017
+
+Манчестер у моря / Manchester by the Sea  (2016) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ленивый и безответственный сантехник Ли после внезапной смерти брата назначен опекуном своего племянника-подростка. Возвращение в родной город дает новый ход трагедии, сокрытой в его прошлом.Производство: СШАЖанр: драмаРежиссер: Кеннет ЛонерганАктеры: Кейси Аффлек, Мишель Уильямс, Кайл Чандлер, Лукас Хеджес, Бен О’Брайэн, Ричард Донелли, Вирджиния Лоринг Кук, Куинси Тайлер Бернстайн, Мисси Ягер, Стивен Хендерсон, Бен Хэнсон, Мэри МэлленПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06563C8C0D8307B4A511BB48911788750679F052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995383   (885654) от 10.03.2016
+
+Ип Ман 3D / Yip Man 3  (2015) BDRemux [H.264/1080p] [Ch / EN, Ch Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Полубиографический фильм о жизни Ип Мана - первого человека, начавшего открыто преподавать кунг-фу (стиль Вин-Чунь).Производство: Гонконг, Dreams Salon Entertainment Culture, Pegasus Motion Pictures, Starbright Communications and Super Hero FilmsЖанр: боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Ен, Линн Хун, Цзинь Чжан, Майк Тайсон, Патрик Там, Карина ЭнДжи, Кент Чэн, Ка-Ян Леунг, Квок-Куен ЧанПеревод: ОтсутствуетЯзык озвучки: китайскийЯзык субтитров: английский, китайскийПродолжительность: 01:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0908398914599E31EE7F463A5BFA62AA6EC13CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995230   (885644) от 10.03.2016
 
 Ип Ман 3D / Yip Man 3 (2015) BDRip [H.264/720p] [Ch / Ch Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -555,7 +633,7 @@ XX / XX (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18DDFCF025B8987D50DFC975C9326D68B53CE1A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106487   (873378) от 19.02.2017
-
-Контрольная точка / Check Point  (2017) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бродяга случайно обнаруживает замаскированную террористическую ячейку в небольшом городке, где все знают друг друга (или думают, что знают). Поскольку помощи при угрозе полномасштабного террористического вторжения ждать неоткуда, команда «случайных героев» должна объединиться, чтобы бороться и защитить свою страну от врага самостоятельно.Производство: СШАЖанр: боевик, триллер, военныйРежиссер: Томас Дж. ЧерчилльАктеры: Кэйн Ходдер, Минди Робинсон, Кенни Джонсон, Тайлер Мэйн, Уильям Форсайт, Рики Харрис, Билл Голдберг, Фред Уильямсон, Стивен Джеффрис, Криста Гротте, Мишель Ли, Мел НовакПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ACC46A46D40B6D9139D7314795CFA6CFD918A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106344   (872623) от 19.02.2017
-
-Лунный свет / Moonlight  (2016) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик, подросток, мужчина... Ему выпало родиться и жить в Майами, где миром правят наркотики и деньги. В мучительном поиске правды и принятии самого себя, преодолевая драму в семье и предательство друзей, он должен сделать выбор своего пути. Но может ли человек изменить судьбу?Производство: СШАЖанр: драмаРежиссер: Барри ДженкинсАктеры: Махершала Али, Шарифф Эрп, Дун Сэндерсон, Алекс Р. Хибберт, Жанель Моне, Наоми Харрис, Джейден Пайнер, Херман 'Кахеей МакГлаун, Камал Ани-Беллоу, Кеоми Гивенс, Эдди Бланкард, Руди ГобленПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F575993DE09145BA0CCED852B370F4E05E662A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106936   (869838) от 21.02.2017
-
-Глаза моей матери / The Eyes of My Mother  (2016) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая Франциска жила с мамой и папой в уединённом доме в сельской местности. Всё было хорошо и спокойно, пока однажды с их семьёй не произошла трагедия, после чего девушка выросла немного странной.Производство: СШАЖанр: ужасы, драмаРежиссер: Николас ПессАктеры: Дайан Агостини, Оливия Бонд, Уилл Брилл, Джо Кертис-Грин, Флора Диаз, Кика Магальхаес, Пол Назак, Клара ВонгПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0BD3B570238D7E499377262456536A6D9E3E71
 ```
 
 https://mybot314.ru/tekegram_catalog/

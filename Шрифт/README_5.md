@@ -1,3 +1,134 @@
+###  Публикация: 1274642   (792950) от 07.01.2019
+
+Шрифты - Creative Market - La Mona Kids / Cyrillic+Greek - 682077 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+La Mona Kids это довольно интересный шрифт, который относится к типу детской графики.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA46CFD61066E394338E46EDEC5046DEB88D2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274618   (792924) от 07.01.2019
+
+Шрифты - Creative Market - Biker Remastered font + graphics - 681973 [TTF, OTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обновленный шрифт Biker включает в себя символы кириллицы, цифры и другие основные символы. Также теперь он разделен на файлы шрифтов для теневого слоя. Грубые и чистые версии доступны. В качестве бонуса включена иллюстрация черепа с крыльями и лентой и иллюстрация медведя в векторном формате eps.Формат: TTF, OTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00769F552B5F375382C499E6025DFA2AAFBD6BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274425   (792923) от 07.01.2019
+
+Шрифты - Creative Market - Juxta Script | 7 fonts - 1969528 [OTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Juxta (сокращение от juxtaposition) составляет два совершенно разных стиля шрифта: моноширинный sans для программирования и монолинейный скрипт. Идеальная геометрия сетки и некоторые декоративные элементы, такие как перечеркнутые буквы, придают Juxta дух скандинавского минималистичного дизайна.
+Разработчик: Petr BushuevФормат: OTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FCFAF1E0191D757B1B1150C7A366EB4154E7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274621   (792922) от 07.01.2019
+
+Шрифты - Creative Market - Cookie Font - 954738 [TTF, OTF, EOT, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Cookie - один из первых шрифтов автора, тонкий и рукописный в верхнем и нижнем регистре. Похож на написание мелом или карандашом, с рваным краем, но в то же время это красиво. Кроме того, Cookie включает в себя не только латинские, но и кириллические символы и цифры, всего 184 символа. Шрифт тонкий, но вы можете сделать его средним или жирным.Формат: TTF, OTF, EOT, EPS, AI, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0906A530DBB4EAE788407D77ECD03633B633CE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274619   (792920) от 07.01.2019
+
+Шрифты - Creative Market - Blacktear Script | Roman&Cyrillic - 959441 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Blacktear харизматичный рукописный шрифт с современным креативным штрихом, простой и удобный для создания потрясающих надписей. Blacktear поставляется с прописными и строчными буквами, пунктуацией, цифрами, особыми европейскими иероглифами, кириллическими символами и дополнительными символами.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179544B88AD6E62C162D4DD333268E6F03CFF1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274665   (792176) от 08.01.2019
 
 Шрифты - Creative Market - Galpon Family, Greek+Cyrillic - 365913 [OTF]
@@ -6,7 +137,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,137 +668,6 @@ Another Wild - грубый шрифт каллиграфической кист
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:403360ACC4A3F1E4B52173E65DA592ACAD16231E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275863   (789335) от 13.01.2019
-
-Шрифты - Creative Market - Beer Script Typeface - 278955 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный шрифт Beer подойдет для различного рода вывесок, пивных баров, логотипов и многое другое.
-О, пиво. Все его попробовали. Все любят его. Так почему бы не превратить его в шрифт? Все прописные, вся пунктуация, все числа - значит быть заголовком что бы выделяться!Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65072B5BD996C7B4744006ED4A4503AE63AFC93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275867   (789331) от 13.01.2019
-
-Шрифты - GraphicRiver - CornerOne Typeface - 18071538 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой, круглый шрифт, который идеально подходит для винтажной рекламы, абсолютно любых представлений, презентаций. Понятно, лаконично, лучше всего - CornerOne.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DFD5E9DC71B2273DA9A24249DC11F30B8225EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275860   (789326) от 13.01.2019
-
-Шрифты - Creative Market - Anniversa - Wedding Font - 1143895 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anniversa - это свадебный шрифт с современным стилем каллиграфии, подходящий для дизайна, дизайна элементов, свадьбы, мероприятий, логотипа и т. д.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020AEC7EB9AB37F88BA034ED30BA100281580E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275859   (789254) от 13.01.2019
-
-Шрифты - Creative Market - Adefebia Wedding Script Font - 389122 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый и элегантный свадебный шрифт, который имеет уникальный стиль и современную каллиграфию. Шрифт хорошо подойдет для дизайна, дизайна элементов, свадьбы, событий, футболок, логотипов и т. д.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B112C6F36F7D922B1B3DD5BAB26FAFDC7CA97EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275868   (789227) от 13.01.2019
-
-Шрифты - GraphicRiver - Pribor – Clean Lo-Fi Stencil Font With Cyrillic - 4174149 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый шрифт автора «Pribor», созданный под впечатлением от старых электроприборов и других устройств из СССР в 80-х годах. Pribor имеет минималистичный, простой и слегка использованный стиль ло-фи. Стиль ретро-механики, хорошая читабельность и превосходный внешний вид в разных размерах, который позволяет использовать его для логотипов, печати, веб-приложений, (   Читать дальше...   )Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1840C43F92FEF7B2E63C4F370850033D901DD31
 ```
 
 https://mybot314.ru/tekegram_catalog/

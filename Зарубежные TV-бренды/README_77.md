@@ -1,3 +1,55 @@
+###  Публикация: 932921   (499343) от 08.09.2015
+
+Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 серии из 5)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вам нужен хороший взрыв? Мастер-пиротехник Мэтт Барнетт готов прийти на помощь! Клиенты со всего мира обращаются к нему с самыми невероятными просьбами – Мэтту приходится взрывать бомбы времен Второй мировой войны, метамфетаминовые лаборатории, а также устраивать грандиозные салюты, от которых захватывает дух. Каждый новый заказ – будто испытание, но Барнетт проходит (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F2D45C102FA338220ECB672ED61B358BC191C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926566   (499092) от 08.09.2015
+
+Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip  [H.264/720p-LQ] [1-5 серии из 5]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вам нужен хороший взрыв? Мастер-пиротехник Мэтт Барнетт готов прийти на помощь! Клиенты со всего мира обращаются к нему с самыми невероятными просьбами – Мэтту приходится взрывать бомбы времен Второй мировой войны, метамфетаминовые лаборатории, а также устраивать грандиозные салюты, от которых захватывает дух. Каждый новый заказ – будто испытание, но Барнетт проходит (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B412B5318FDBB892AB74E61759762D95265E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539751   (498847) от 02.09.2012
 
 Странный секс (сезон 3, серии 1-10 из 10) / Strange Sex (2011-2012) TVRip
@@ -6,7 +58,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NGW: Бойцовский клуб для животных / Animal Fight Club (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery. Ржавая империя / Junkyard Empire (2015) HDTVRip (1-4 с�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NGW: Рожденные в Африке. Круг жизни / Born in Africa (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ NGW: Земля хищника / Predator Land (2019) HDTV [H.264/1080i-LQ] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ Discovery Science: Встреча с инопланетянами: Кванто�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ BBC: Еда будущего / Tomorrow's Food (2015) HDTVRip [H.264/720p-LQ] (3
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ BBC:Стюарты в изгнании / BBC:The Stuarts in Exile (2015) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ Discovery: Разрушители легенд. Дрифт в Сан-Франц�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ BBC: Неизвестные викинги. Под парусами дракка
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ BBC: Вся правда о красоте / The Truth About Looking Good (2018)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +668,6 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F7BA15C89F0644B61EB7E99D5B1105F545D6842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158803   (490175) от 17.08.2017
-
-Тайгер Вудс: взлёты и падения / Tiger Woods: The Rise And Fall (2010) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о взлетах и падениях одного из величайших гольфистов в истории Тайгера Вудса. Вудс — многократный победитель чемпионатов по гольфу, первый из которых — «детский» — он выиграл в пять лет.Телекомпания: Великобритания / BBCЖанр: Документальный, Биография, СпортПеревод: Одноголосый закадровый, профессиональный (Вадим Прохоров)Субтитры: отсутствуютПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5F9095960398B52635CB122A10EF22F551015F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158664   (489593) от 17.08.2017
-
-History Channel: Проклятие острова Оук / The Curse of Oak Island (2016) HDTV [H.264/1080i-LQ] (Сезон 4, серии 1-17 из 18)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489593.jpg" />
-</div>
-
-
-###  Подробнее
-
-У побережья Новой Шотландии есть маленький остров, хранящий великую тайну. В XVIII веке люди заметили, что по ночам остров светится странным светом, однако те, кто отправился выяснять, что это за свет, не вернулись. Чуть позже двое мальчишек обнаружили на острове странную яму — вход в засыпанную землей шахту. Эта находка положила начало лихорадке кладоскательства, (   Читать дальше...   )Телекомпания: США / History Channel HDЖанр: Реальное ТВ, Документальный, ТелепередачаПеревод: Двуголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: ~00:41:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A1A23D4D56BD8B12ADDCA198865D45A84680E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

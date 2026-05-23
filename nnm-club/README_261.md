@@ -1,25 +1,23 @@
-###  Публикация: 1859309   (1061042) от 15.03.2026
+###  Публикация: 1861690   (1062781) от 27.03.2026
 
-Delibes / Chopin - Douglas (Berliner Philharmoniker, Herbert von Karajan) - Coppelia-Ballettsuite / Les Sylphides (1961) Reissue, Repress [LAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Romant ...
+С.В. Белугина | Архитектура компьютерных систем. Курс лекций. Учебное пособие (2020) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Delibes: Coppelia-Balletsuite
-A1 Vorspiel Und Mazurka
-A2 Szene Und Walzer Der Swanhilde
-A3 Csardas(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:56:11
+Учебная дисциплина «Архитектура компьютерных систем» рассчитана на 74 аудиторных часа и предназначена для студентов 2 курса специальности «Программирование в компьютерных системах».
+Целью изучения дисциплины является формирование у студентов знаний о представлении информации в вычислительных системах, об архитектуре и принципах работы ЭВМ и её основных логических (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93634F230E038A4D13E88D04713564CB8FA6F9BD
+magnet:?xt=urn:btih:3248EE65DEB496A74FFA5894F25BE206714A8C6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859378   (1061041) от 15.03.2026
+###  Публикация: 1861688   (1062780) от 27.03.2026
 
-Возвращение в Сайлент Хилл / Return to Silent Hill (2026) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+Stack Overflow | Node.js. Самое полное руководство для веб-разработчиков в примерах от сообщества Stack Overflow (2026) [PDF]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Джеймс Сандерленд тяжело переживает разлуку со своей возлюбленной и получает таинственное письмо, которое приводит его в город Сайлент Хилл. Джеймс надеется найти её там, однако город сильно изменился под влиянием некой зловещей силы. Джеймс исследует Сайлент Хилл и сталкивается с пугающими существами и образами — как знакомыми, так и незнакомыми. Сомневаясь в своём (   Читать дальше...   )Производство: Франция, США, Великобритания, Германия, Сербия, Япония / Davis Filmsm The Electric Shadow Company, SupernixЖанр: ужасы, драмаРежиссер: Кристоф ГанАктеры: Джереми Ирвин, Ханна Эмили Андерсон, Иви Темплтон, Пирс Иган, Роберт Нэйрн, Никола Алексис, Ив Маклин, Эмили Кардинг, Мартин Ричардс, Ховард СаддлерПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:45:47
+Книга «Node.js. Самое полное руководство для веб-разработчиков в примерах от сообщества Stack Overflow» представляет собой продвинутое учебное пособие по работе на языке JavaScript в кроссплатформенной среде выполнения Node.js - чрезвычайно популяр н ой и важнейшей в области веб-разработки. Вспомогательный контент для программистов с любым опытом и уровнем знаний (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86ED2FD0E9767EE34E6D8E55A992BC21079E72BE
+magnet:?xt=urn:btih:15B707DC7990CBD240D32A9BA0AD9A8C1B3F4384
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859381   (1061040) от 15.03.2026
+###  Публикация: 1861687   (1062779) от 27.03.2026
 
-Пятая жертва / Victim Five (1964) BDRip [H.264] [AVO]
+Я.М. Демяненко, М.И. Чердынцева | С++ как второй язык в обучении приемам и технологиям программирования. Учебное пособие. 2-е изд. (2025) [PDF]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Миллионер нанимает детектива, чтобы тот расследовал убийство его камердинера. Выясняется, что убийство связано с событиями войны и нацистскими военнопленными, которые так и не вернулись в Германию. Людей, причастных к тем событиям, убивают одного за другим. Следы ведут в Южную Африку.Производство: Великобритания, ЮАР / Towers of London ProductionsЖанр: боевик, криминал, детектив, приключенияРежиссер: Роберт ЛиннАктеры: Лекс Баркер, Энн Смирнер, Рональд Фрэйзер, Вальтер Рилла, Дитмар Шенхер, Герт ван дер Берг, Ховард Дэвис, Перси Сиефф, Вероника Венделл, Густель ГунделахПеревод: Авторский (Алексей Яковлев)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:28:05
+В учебном пособии внимание уделяется языку С++ и использованию объектно-ориентированного подхода. Пособие состоит из десяти глав. Излагаемый материал рассматривается на большом количестве подробно разобранных примеров. Пособие адресовано студентам первого и второго курсов, обучающимися по бакалаврским программам по направлениям «Прикладная математика и информатика» (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательство Южного федерального университетаФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0236CC58501E593051D3AD47F6A7E3FA948C19BF
+magnet:?xt=urn:btih:B8B327BE5C614DA2BF975BFBD6F2A5A3A93F54AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +77,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859387   (1061039) от 15.03.2026
+###  Публикация: 1861684   (1062778) от 27.03.2026
 
-VA - The Sound of 2026, Chapter 2: Barcelona (Night Mix) (2026) [MP3|320 Kbps] <Melodic House & Techno, Trance>
+Ришал Харбанс | Грокаем алгоритмы искусственного интеллекта. 1-е издание (2023) [PDF]
 
->>Electronic
->>House
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Bay Skies feat. KIMERA V - The Call (UNWA Remix - Mixed) [6:59]
-02. Emir Guven - Sailing With You (BAIRES Remix - Mixed) [5:01]
-03. Risen - Go Fast (Katoff Remix - Mixed) [4:01]
-04. Ancient Umbra - Critical Thinking (Original Mix - Mixed) [4:12](   Читать дальше...   )Жанр: Melodic House & Techno, TranceПродолжительность: 01:18:41
+Искусственный интеллект — часть нашей повседневной жизни. Мы встречаемся с его проявлениями, когда занимаемся шопингом в интернет-магазинах, получаем рекомендации «вам может понравиться этот фильм», узнаем медицинские диагнозы… Чтобы уверенно ориентироваться в новом мире, необходимо понимать алгоритмы, лежащие в основе ИИ.
+«Грокаем алгоритмы искусственного интеллекта» (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E57148DB1089E92ECC111A3D420077812F3EA63F
+magnet:?xt=urn:btih:C27186896B579FE3A076CC762AEB8E5A13B92B97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +104,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859383   (1061038) от 15.03.2026
+###  Публикация: 1861683   (1062777) от 27.03.2026
 
-VA - The Sound of 2026, Chapter 2: Barcelona (Day Mix) (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Trance>
+Сплин best (1994-2025) [MP3|320 Kbps] <rock>
 
->>Electronic
->>House
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. F4T4L3RR0R - Some Calls Should Remain Unanswered (Intro - Mixed) [1:48]
-02. Martin Cantrill - Tilt Resurrection (Original Mix - Mixed) [6:40]
-03. Ale De Nova - How Can I Get You (Original Mix - Mixed) [2:53]
-04. Arni - Confession (Original Mix - Mixed) [4:44](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, TranceПродолжительность: 01:14:00
+[2:37] . 01-Звери
+[5:36] . 02-Сказка (remake 1994)
+[5:05] . 03-Что ты будешь делать?
+[3:24] . 04-Нечего делать внутри(   Читать дальше...   )Жанр: rockПродолжительность: 04:49:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F950F893B9D17945EF4E654E082BD5200F94CB21
+magnet:?xt=urn:btih:BC4F4A9656BCA7F1F60742F84E3ED1A6C01E0642
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859388   (1061037) от 15.03.2026
+###  Публикация: 1861671   (1062776) от 27.03.2026
 
-Руины прошлого / Катастрофа / Blue Ruin (2013) BDRip [H.264]
+Rishal Hurbans | Grokking AI Algorithms. How AI solves complex problems. 2nd Edition (2026) [PDF] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь Дуайта потеряла всякий смысл с тех пор, как его родители были убиты. Он бродяжничает, избегая контактов с миром. Но когда приходит новость о том, что убийца вышел на свободу, Дуайт возвращается туда, где всё началось, чтобы отомстить...Производство: США, Франция / Film Science, Neighborhood Watch, Paradise City, The Lab of MadnessЖанр: драма, криминал, триллерРежиссер: Джереми СолньеАктеры: Мэйкон Блэр, Идайбер Ороско, Рональд Саркос, Дани Сантьяго, Адриан Сантьяго, Джордж Фредерикс, Элизабет Фредерикс, Сидне Андерсон, Брук Беннетт, Эллен Данахер, Девин Рэтрей, Эми ХаргривзПеревод: профессиональный многоголосый (НТВ), авторский (Визгунов)Язык озвучки: русский, английскийСубтитры: русские (Notabenoid), английскиеПродолжительность: 01:30:24
+Artificial intelligence algorithms are the backbone of search and optimization, deep learning, reinforcement learning, and, of course, generative AI. This book introduces the most important AI algorithms using relatable illustrations, interesting examples, and thought-provoking exercises. Written in simple language and with lots of visual references and hands-on (   Читать дальше...   )Жанр: Genetic Algorithms, Natural Language Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43027DAF78A7B952D82BC0B3B0508A17A6D94A14
+magnet:?xt=urn:btih:977608126AE42C34E1C2F55D2DF803C29A51E991
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +159,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859392   (1061036) от 15.03.2026
+###  Публикация: 1861667   (1062775) от 27.03.2026
 
-Autorun Organizer 6.32 [Multi/Ru]
+Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Autorun Organizer - простое в использовании приложение, позволяющее управлять программами, которые запускаются при старте системы. Инструмент является надежным менеджером автозагрузки, который позволяет просматривать и управлять программами, запускающимися автоматически при старте системы. Вы можете просмотреть свойства программ, проверять на вирусы с помощью онлайн-антивируса (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Your detailed guide to all things Cisco―a leading player in network technology.
+
+With 800 pages of in-depth content, Cisco Networking All-in-One For Dummies is your one-stop guide to the ins and outs of networks powered by Cisco, a leading maker of networkin solutions including routers, switches, and security. You'll get thorough explanations of how to design, (   Читать дальше...   )Жанр: LANs, Internet & Networking Computer Hardware, Computer NetworkingЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4F7CC180F16C7075ADAA02A88FC6BA75FF967F0
+magnet:?xt=urn:btih:5339D589909348E0CC5B74E9DBE370EB93FEBE96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,25 +187,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859219   (1061035) от 15.03.2026
+###  Публикация: 1861664   (1062774) от 27.03.2026
 
-Всадник шторма: Легенда о Молоте / The Islander / Storm Rider: Legend of Hammerhead (2026) Telecine [звук с TS] [AD]
+John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture. A Quantitative Approach (The Morgan Kaufmann Series in Computer Architecture and Design). 7th Edition (2025) [PDF]  ...
 
->>Горячие новинки
->>Экранки с рекламой
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Спустя 300 лет после Великого Потопа легенда о изгнанном Всаднике шторма вдохновляет двух мятежных островитян на поиски правды о происхождении их мира.Производство: Хорватия / Fig Production Group, Garden of Titans, Intermarium MediaЖанр: фантастика, боевик, приключенияРежиссер: Зоран Лисинац, Домагой МазуранАктеры: Джеймс Космо, Кэролайн Гудолл, Билли Барретт, Марко Ильзе, Сара-Софи Бусснина, Фрэнсис Томелти, Джои Анса, Горан Богдан, Сергей Трифонович, Грант ДжорджПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:46Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+Computer Architecture: A Quantitative Approach, has been considered essential reading by instructors, students and practitioners of computer design for nearly 30 years. The seventh edition of this classic textbook from John Hennessy and David Patterson, winners of the 2017 ACM A.M. Turing Award recognizing contributions of lasting and major technical importance to (   Читать дальше...   )Жанр: Computer Hardware Design & Architecture, Microprocessor Design, Computer ScienceЯзык: АнглийскийИздательство: Morgan KaufmannФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B41F8DC97F3086830818453ED963F400DDD010E
+magnet:?xt=urn:btih:04FF9EB9F93348FEF3C62222EA3A1A1D6614F60F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +213,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859218   (1061034) от 15.03.2026
+###  Публикация: 1861659   (1062773) от 27.03.2026
 
-Всадник шторма: Легенда о Молоте / The Islander / Storm Rider: Legend of Hammerhead (2026) Telecine [H.264/1080p] [звук с TS] [AD]
+Stack Overflow | HTML5 для профессионалов. Руководство по разработке в примерах от сообщества Stack Overflow (2025) [PDF]
 
->>Горячие новинки
->>Экранки с рекламой
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Спустя 300 лет после Великого Потопа легенда о изгнанном Всаднике шторма вдохновляет двух мятежных островитян на поиски правды о происхождении их мира.Производство: Хорватия / Fig Production Group, Garden of Titans, Intermarium MediaЖанр: фантастика, боевик, приключенияРежиссер: Зоран Лисинац, Домагой МазуранАктеры: Джеймс Космо, Кэролайн Гудолл, Билли Барретт, Марко Ильзе, Сара-Софи Бусснина, Фрэнсис Томелти, Джои Анса, Горан Богдан, Сергей Трифонович, Грант ДжорджПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:46Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+Перед вами компактное, но вместе с тем весьма насыщен ное руководство по HTML - основополагающему языку разметки, лежащему в основе каждой веб-страницы. Здесь собрана только самая важная и актуальная информация для быстрого и эффективного освоения HTML, от простейших структур до расширенных возможностей современной веб-разметки.
+Вы узнаете, как создавать и структурировать (   Читать дальше...   )Жанр: Компьютерная литература, Программирование, WEB-мастерингИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AE9988380013E6A29220FB20858D05886996395
+magnet:?xt=urn:btih:ED825B53375EC3A5A2F24DBAE09F4559A8B29B06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,25 +240,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859395   (1061033) от 15.03.2026
+###  Публикация: 1861615   (1062772) от 27.03.2026
 
-Руины прошлого / Катастрофа / Blue Ruin (2013) BDRip [H.264/720p]
+СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь Дуайта потеряла всякий смысл с тех пор, как его родители были убиты. Он бродяжничает, избегая контактов с миром. Но когда приходит новость о том, что убийца вышел на свободу, Дуайт возвращается туда, где всё началось, чтобы отомстить...Производство: США, Франция / Film Science, Neighborhood Watch, Paradise City, The Lab of MadnessЖанр: драма, криминал, триллерРежиссер: Джереми СолньеАктеры: Мэйкон Блэр, Идайбер Ороско, Рональд Саркос, Дани Сантьяго, Адриан Сантьяго, Джордж Фредерикс, Элизабет Фредерикс, Сидне Андерсон, Брук Беннетт, Эллен Данахер, Девин Рэтрей, Эми ХаргривзПеревод: профессиональный многоголосый (НТВ), авторский (Визгунов)Язык озвучки: русский, английскийСубтитры: русские (Notabenoid), английскиеПродолжительность: 01:30:24
+Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02FE820711065C36C43C4453564AEEF1F4F21349
+magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +266,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859394   (1061032) от 15.03.2026
+###  Публикация: 1861623   (1062771) от 27.03.2026
 
-Своя игра (15.03.2026) WEBRip [H.264/1080p]
+У.У. Сойер | Прелюдия к математике (1972) [DJVU]
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Руслан Пещеров, Алексей Меркушёв, Александр БеляевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:07
+Книга для тех кто любит математику и другие точные науки, для выбирающих свой путь в науку. Особенно рекомендую тем, кто считает математику скучным и не интересным предметом.
+Рассказ о некоторых любопытных областях математики с предварительным анализом математического склада ума и целей математики. Книга "Прелюдия к математике", написанная автором Сойер (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AAFE3C3CC19E87228830E43F9DE6995F1E37531
+magnet:?xt=urn:btih:381E64327CEEAC9AB12E34990F90029B47BCFB0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,28 +293,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859396   (1061031) от 15.03.2026
+###  Публикация: 1861655   (1062770) от 27.03.2026
 
-More - Destructor (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBHM>
+Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Heart on Fire
-02. Rocquiem
-03. Scream
-04. New World(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:46:39
+This book explains how the Z Garbage Collector was designed, why it was designed this way, the common pitfalls to avoid when using ZGC in JDK 25 and how to get useful information from the garbage collector.
+Java is one of the most widely used programming languages in the world. It is a memory-safe language that completely relies on a good garbage collection (GC) (   Читать дальше...   )Жанр: Software Engineering & Systems Development, Programming & Programming LanguagesЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C77BE13153EFF7C6E74D4762EE8A717A275F1C9
+magnet:?xt=urn:btih:516A56F00F035988B357025CD6AFC1911E8728C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,26 +320,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859228   (1061030) от 21.03.2026
+###  Публикация: 1861651   (1062769) от 27.03.2026
 
-OTUS, Андрей Буранов, Алексей Цыкунов | Administrator Linux. Professional (2025) PCRec [AD] [RU]
+Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (2025) [PDF] [EN]
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Вы изучите Linux на продвинутом уровне и овладеть основными рабочими инструментами системного администратора. Это позволит уверенно, быстро и эффективно решать профессиональные задачи.
-Полученные знания позволят вам работать с такими операционными системами, как: Debian, Ubuntu, Redhat, Fedora, Oracle Linux, Rocky Linux, OpenSUSE и другими дистрибутивами.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 85:24:06Реклама: наложение на видео (плашка спонсора)
+Programming Language Pragmatics is the most comprehensive programming language textbook available today, with nearly 1000 pages of content in the book, plus hundreds more pages of reference materials and ancillaries online. Michael Scott takes theperspective that language design and language implementation are tightly interconnected, and that neither can be fully (   Читать дальше...   )Жанр: Compiler Design, Object-Oriented Design, Software DevelopmentЯзык: АнглийскийИздательство: Elsevier Inc.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7949B6A4FE85C33DBD751A71ABEF7747B98B20E3
+magnet:?xt=urn:btih:6F6621355D220C8786B499349C817E3E546E49D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,25 +346,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859398   (1061029) от 15.03.2026
+###  Публикация: 1861647   (1062768) от 27.03.2026
 
-MassTube Ultra 21.5.3.196 [Multi/Ru]
+Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Edition (2024) [PDF, EPUB] [EN]
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
+Revised for a new second edition, Intermediate C Programming provides a stepping-stone for intermediate-level students to go from writing short programs to writing real programs well. It shows students how to identify and eliminate bugs, write clean code, share code with others, and use standard Linux-based tools, such as ddd and valgrind.
+
+This second edition provides (   Читать дальше...   )Жанр: C Programming, C Programming Language, Programming AlgorithmsЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAEE0CE9AD782A17976A40A2D94C4374263C9145
+magnet:?xt=urn:btih:539554072C9EB1F09B8AF1788016BD49B69F53AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,167 +374,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859399   (1061028) от 15.03.2026
+###  Публикация: 1861879   (1062767) от 27.03.2026
 
-KeePassXC 2.7.12 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061028.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeePassXC — программа для управления паролями. Позволяет безопасно хранить пароли и автоматически вводить их на посещаемых сайтах. Для хранения используется специальная база данных, которая шифруется с помощью надёжного алгоритма шифрования AES (Rijndael) с использованием 256-битного ключа. Важной особенностью является то, что программа не хранит никаких данных в (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F472D38CE0C246AFDEEA55E3B727080772B196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859400   (1061027) от 15.03.2026
-
-Dzem - Sobie potrzebni (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mimo wszystko (3:53)
-02.  Idzie lepsze (4:31)
-03.  Dusza (5:35)
-04.  Sobie potrzebni (6:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897EA4C9BCAA22FD979EA7B0B54D74AA42F0F842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859401   (1061026) от 15.03.2026
-
-Horseman - No Surrender in Dark Days (2026) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Days
-02. No Surrender
-03. Time to Defend
-04. Shards and Lies(   Читать дальше...   )Жанр: Hardcore, Thrash MetalПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38A05CAF1B454833312B071A098ACE57B04A99D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859403   (1061025) от 15.03.2026
-
-Brian Bee Frank and Syndicated Madness - Chasing The Dragon (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hate (3:45)
-02.  LIVING IN THE CHANGES (4:24)
-03.  TIME (4:16)
-04.  SHAKE IT LOOSE (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D39036330A10AD3C07491BEC7DF8A79EE10C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859406   (1061024) от 15.03.2026
-
-Collettivo Manichini - I want it all (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Katy (4:43)
-02.  All night blues (4:27)
-03.  I want it all (3:04)
-04.  That ride (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832637A2CC352DCBE4C3654E3DA93158C6D188CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859397   (1061023) от 15.03.2026
-
-Война миров / War of the Worlds (2025) WEBRip [H.264/1080p] [DVO]
+Оскорбление / L'insulte (2017) BDRip [H.264/720p] [MVO]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Уильям Рэдфорд работает аналитиком в Министерстве внутренней безопасности. Благодаря своей должности, у него есть неограниченный доступ к устройствам жителей США. Он удалённо выявляет хакеров и опасных террористов. В то же время Рэдфорд следит за жизнями Дэвида и Фейт, его детей, за которых он беспокоится после смерти жены. Но однажды Уильям с ужасом видит, что на (   Читать дальше...   )Производство: США, Германия / Bazelevs Company, Patrick Aiello ProductionsЖанр: ужасы, фантастика, триллерРежиссер: Рич ЛиАктеры: Айс Кьюб, Ева Лонгория, Иман Бенсон, Генри Хантер Холл, Девон Бостик, Андреа Сэвадж, Кларк Грегг, Николь Пуллиам, Майкл О’Нил, Джим МескименПеревод: Двуголосый любительский (OldBoy & Naked Skull)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:30:47
+О споре двух мужчин — ливанца Тони и палестинского беженца Ясера. Один из них, добрый христианин Тони, случайно проливает воду на голову Ясера. После их взаимной перепалки Тони решает подать в суд. Наступает долгий судебный процесс, в ходе которого сталкиваются не только оппоненты и их родственники, но и всё общество...Производство: Ливан, Бельгия, Кипр, Франция, США / CanalЖанр: драма, криминал,  триллерРежиссер: Зиад ДуэриАктеры: Адель Карам, Камел Эль Баша, Камилла Саламех, Диаманд Бу Аббуд, Рита Хайек, Талаль Эль-Жорди, Кристин Чоуири, Джулия Кассар, Рифаат Торби, Карлос ЧаинПеревод: профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, арабскийСубтитры: английскиеПродолжительность: 01:53:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:082714A37084BC44878E46BC2BAEE4F53B56A58B
+magnet:?xt=urn:btih:C84421D2183A508A90F7FE6D84251EAC7B822E54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,25 +400,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859402   (1061022) от 15.03.2026
+###  Публикация: 1861880   (1062766) от 27.03.2026
 
-Люди в чёрном: Интернэшнл / Men in Black International (2019) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+ImageGlass 9.4.1.15 + Portable [Multi/Ru]
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Люди в черном, тайная организация на страже покоя и безопасности Земли, уже не раз защищали человечество от нападения отбросов Вселенной. На этот раз самая большая опасность для мирового сообщества, которой агентам предстоит противостоять - шпион в их рядах.Производство: США, Китай / Columbia Pictures, Tencent Pictures, Amblin EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Ф. Гэри ГрейАктеры: Крис Хемсворт, Тесса Томпсон, Кумэйл Нанджиани, Ребекка Фергюсон, Рейф Сполл, Эмма Томпсон, Лиам Нисон, Лоран Буржуа, Ларри Буржуа, Кайван НовакПеревод: Дублированный (СинеЛаб СаундМикс)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:54:50
+ImageGlass - это легкий и универсальный просмотрщик изображений, который вполне может заменить стандартный Photo Viewer в операционной системе.
+Приложение поддерживает большой спектр форматов, включая JPG, JPE, JFIF, JPEG, PNG, GIF, ICO, BMP, DIB, TIF, TIFF, EXIF, WMF, EMF, TGA, PSD, HDR, EXR, SGV, WEBP. ImageGlass предоставляет все обычные возможности просмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF211E6572880645E3883BD179AE484F9BC574C2
+magnet:?xt=urn:btih:D3D80ABFDF6DBE6FCCA539ED8C9627FF8DB58664
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,25 +427,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859405   (1061021) от 15.03.2026
+###  Публикация: 1861883   (1062765) от 28.03.2026
 
-BioShock 2 (2010) [Ru] (Build 789537) Repack seleZen
+Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
 
 >>Win Игры
->>Action (FPS)
+>>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Десять лет - изрядный период даже для истории обычного города, а под водой десятилетие сопоставимо с вечностью. За это время утопический город Восторг обветшал еще больше, а некоторые его районы полностью оказались во власти воды. Однако в нем по-прежнему тлеет жизнь - хищная, агрессивная и всегда готовая к борьбе. Самые жестокие и коварные мутанты до сих пор бродят (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Marin, 2K Australia, 2K China и Digital Extremes, Arkane StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+В игре Last Epoch вас ждут путешествия во времени, захватывающие подземелья, увлекательная настройка персонажей и бесконечные возможности повторного прохождения. Эта игра в жанре «ролевой экшен» понравится как опытным игрокам, так и новичкам. Путешествуйте в прошлое мира Этерры, сталкиваясь с темными империями, гневными богами и девственными землями, найдите способ (   Читать дальше...   )Тип издания: RepackРазработчик: Eleventh Hour GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08A6B0449698067F06DDFB0ECA201E18F4860C56
+magnet:?xt=urn:btih:6AE18365FFA08EB918982F126437BB90C8BA3564
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,25 +453,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859390   (1061020) от 16.03.2026
+###  Публикация: 1861882   (1062764) от 27.03.2026
 
-DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Decepticon
+Эдриенн Браганца | «По-моему, неплохо». Конструктивные код-ревью (2026) [PDF]
 
->>Win Игры
->>Action (FPS)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-DOOM: The Dark Ages - это не типичный шутер с беготней и стрельбой. Конечно, в ней есть и это - орда демонов не очень-то располагает к чаепитию с сухариками, - но эта часть франшизы погружается глубже. Это шанс понять, почему Палач Рока разрывает и рвет с такой нечестивой яростью. Пристегните ремни, потому что вам предстоит средневековая война в аду. Представьте (   Читать дальше...   )Тип издания: RepackРазработчик: id SoftwareЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+Сделайте код-ревью продуктивным, вызывающим положительные эмоции процессом, каким он и должен быть. Неважно, проверяют ваш код или же вы проверяете чью-то работу, получите продуманные инструкции, которые помогут избежать напряженных дебатов, неплодотворных придирок и узких мест — всего того, чего мы привычно ждем от код-ревью.
+Научитесь здравому и внимательному подходу (   Читать дальше...   )Жанр: Проектирования программного обеспечения, Тестирование программного обеспечения, Разработка программного обеспеченияИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C02F31E81B219EDDCBD771246B48EAD95E8759E4
+magnet:?xt=urn:btih:5FB836D4EB9C80105CC26C67A0BB30C286F298A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,25 +480,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859409   (1061019) от 15.03.2026
+###  Публикация: 1861881   (1062763) от 27.03.2026
 
-Роберт Хайнлайн | Наш прекрасный город (2025) [MP3, ReadMic]
+Adrienne Braganza | "Looks Good To Me". Constructive code reviews (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Deliver code reviews that consistently build up your team and improve your applications.
+
+“Looks Good to Me” offers a unique approach to delivering meaningful code reviews that goes beyond superficial checklists and tense critical conversations. Instead, you’ll learn how to improve both your applications and your team dynamics.Жанр: Software Design Tools, Software Testing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3546C0375A5000D9A1606C4FF580AE985A625B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861698   (1062762) от 27.03.2026
+
+Кристина Агатова | Городская магия. Побочка любовь 3, Галя, у нас отмена (2026) [MP3, Елена Кузьмина]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Корреспондент Пит Перкинс уже давно ведёт в городской газете популярную рубрику "Наш прекрасный город", где обличает пороки городских властей. Жадный  мэр, расположивший на все руководящие посты в городе своих друзей и родственников, продажные офицеры полиции, проворовавшиеся городские службы - никого не обходит стороной острое перо репортёра. Но, не смотря (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:44:09
+Редкая удача – найти хорошую квартиру за адекватную цену. Галя думала, что ей невероятно повезло, пока не узнала, что жить предстоит не одной, а с самым настоящим призраком девушки. Но призрак-то не платит аренду! Наглую соседку надо выгнать любыми доступными способами… Или не так уж это и необходимо? Галя, у нас отмена?Жанр: ФэнтезиИздательство: ЛитРесПродолжительность: 04:40:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:967A2B9BD3DC6FB4865BB4C281C965797A732FEC
+magnet:?xt=urn:btih:FDAC791AA64CCC937FA2111D9746C7F9018FC002
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,55 +534,161 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859412   (1061018) от 15.03.2026
+###  Публикация: 1861886   (1062761) от 27.03.2026
 
-Eoin Shannon - Every Drunk's Gotta Story (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Черное солнце (2025) WEBRip [H.264/720p] (сезон 2, серии 1-12 из 12)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В новых сериях Жук возвращается на работу в Следственный комитет, где его первым делом становится загадочный труп мужчины, выловленный рыбаками в Финском заливе. В это же время, неожиданно для всех, Чагин признаётся в совершении другого убийства. Узнав об этом, Жук просит отдать ему дело напарника: он не верит, что тот способен на преступление. Жуку предстоит выяснить, (   Читать дальше...   )Производство: Россия | «Кинокомпания Драйв»Жанр: Детектив, триллер, драмаРежиссер: Евгений МилыхАктеры: Юрий Чурсин, Максим Стоянов, Юрий Беляев, Евгений Харитонов, Марина Петренко, Александра Большакова, Филипп Азаров, Михаил Сафронов, Олег Доброван, Андрей Попов и др.Субтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3AC8BC299DBC897C5C97DE7E1D8AB4635BD683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861800   (1062760) от 07.04.2026
+
+Mask of Soul (2026) [Ru/Multi] (Build 22531021) Repack Let'sРlay
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Mask of Soul - это двухмерная метроидвания-экшен-приключенческая игра, в которой Чон-о Часа, хранитель врат Подземного мира, преследует сбежавших духов в хаосе разрушающейся границы между Подземным миром и миром живых и восстанавливает баланс в мире. Исследуйте извращенные регионы и пробудившихся демонов под Красной Луной, испытайте на себе точный парирующий бой, (   Читать дальше...   )Тип издания: RepackРазработчик: XION ENTERTAINMENTЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DDEF43C61D334322FA64A3D48D4A47FFB4223A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861694   (1062759) от 27.03.2026
+
+NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Дракон Комодо захватывал наше воображение более века, но мы только сейчас раскрываем некоторые из его самых невероятных секретов.Производство: США | Yellow Border Production Services, National GeographicЖанр: документальный, природаРежиссер: Джефф ЛакПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEDE87967A4F01BE5776F9CF221E63D072C1D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861894   (1062758) от 27.03.2026
+
+Chez Kane - Reckless (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  Reckless (4:41)
+02.  Personal Rock N' Roll (2:59)
+03.  Night of Passion (4:48)
+04.  Strip Me Down (4:46)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5D1F3E7FB8C677B4F646181BA013DFF4AB879D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861893   (1062757) от 27.03.2026
+
+Пресеты - Gradefruit - Blockbuster II [XMP, DNG, CUBE]
+
+>>Материалы для мультимедиа и дизайна
+>>Пресеты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Улучшите визуальное восприятие с помощью насыщенных, ярких цветов и динамичных тонов, которые отличают современные блокбастеры.Формат: XMP, DNG, CUBE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DD6959AE91C84F5D205A02B07F2C23772B9CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861896   (1062756) от 27.03.2026
+
+The Mood Mosaic - French Vices (Hot Mounts & Deep Focus) (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
+>>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sweetheart Candy Lovin (3:42)
-02.  Game Night In Hell (3:28)
-03.  Bartender (4:22)
-04.  Puppetmaster (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:34
+01.  Alex Nesta - Fantasme D'Emmanuelle (3:19)
+02.  Le Crocodile Porte Clé (2:16)
+03.  Pétrol Pop (3:08)
+04.  Munich Party (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AA3DC7F2FA4AFCE606AA24A169D5AC69D922C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859414   (1061017) от 15.03.2026
-
-DxO FilmPack 8.3.0 Build 755 Portable by conservator [Multi]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061017.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO FilmPack – редактор фотографий с крупнейшей базой уникальных фильтров и эффектов для ваших фотографий. В программе собраны разнообразные эффекты для фотографий, которые используются самыми востребованными и известными фотографами современности.
-Не ждите от DxO FilmPack огромного набора инструментов. Данный редактор создан для быстрого редактирования фотографий (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие (Русский отсутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D6BC718B0661F6914A5C57966A6FB727979563
+magnet:?xt=urn:btih:F2CE4F63289D4678BA7E7F9D012B5D7FD5FA3987
 ```
 
 https://mybot314.ru/tekegram_catalog/

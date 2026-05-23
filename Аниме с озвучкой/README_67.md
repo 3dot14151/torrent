@@ -1,3 +1,108 @@
+###  Публикация: 1804675   (11323) от 16.07.2025
+
+Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодой, но уже известный каллиграф Сэйсю Ханда впал в грех гордыни – и ударил старого мастера, прилюдно заявившего, что в его внешне красивых иероглифах не хватает души. Так Ханда-сан стал изгоем в мире высокого искусства, а строгий отец отослал его на пустынный остров в Восточно-Китайском море, чтобы тишина и свежий морской воздух прочистили непутевому сыну мозги (   Читать дальше...   )Производство: Kinema CitrusЖанр: комедия, повседневностьРежиссер: Татибана МасакиОзвучка: OriginalЯзык озвучки: Японский и РусскийПродолжительность: 12 эп. по 23 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40670BDD86FD45FF8C144CF998F0EA7E0E359AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807264   (11098) от 18.07.2025
+
+Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант общежития богинь [2021, TV, 10 из 10 эп.] BDRip 1080p HEVC 10-bit raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Нагумо Коуши оказывается бездомным, без гроша в кармане и без родственников, которые могли бы позаботиться о нем. Когда он валялся на улице, его подбирает девушка по имени Минерва, и предлагает стать комендантом общежития, полного проблемных студенток женского университета.
+Окруженный своеобразными и трудными разновозрастными особами женского пола, Коуши начинает (   Читать дальше...   )Производство: asreadЖанр: кoмедия, повседневность, эттиРежиссер: Накасигэ СюнсукэПеревод: AniLibriaОзвучка: Original (Commentary) (ep. 01, ep. 10)Язык озвучки: Японский, Английский и РусскийСубтитры: Английские (Полные и Надписи) и Русские (Полные и Надписи)Продолжительность: 10 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B8FD9F58520C743BE0664555E066D437C113A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807261   (11097) от 18.07.2025
+
+Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, Movie] BDRip 1080p 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В один прекрасный день по Земле пронёсся ветер, унёсший воспоминания каждого человека на земле. Люди забыли абсолютно всё, даже способность к общению. Забыв все блага цивилизации, в одно мгновение, мир опустился до первобытного уровня. Однако один человек сумел избежать катастрофы - прикованный к инвалидной коляске Джонни, подвергшийся многочисленным экспериментам (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: приключения, фантастика, драмаРежиссер: Ямадзаки КадзуоПеревод: Чупахин ДаниилЯзык озвучки: японский, русский, английскийСубтитры: русскиеПродолжительность: 80 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F3C86CFD80EB1206631CF64D531682E223854B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807178   (11065) от 18.07.2025
+
+Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru You ni Natta Ken ni Tsuite | Bogus Skill «Fruitmaster» | Парадоксальный навык «Мастер фруктов» [2025, TV,  ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В мире, где фрукты даруют навыки, Лайту, который мечтает стать авантюристом, достаётся самый бесполезный - навык Мастера фруктов. Второй попытки не будет, за жизнь можно съесть только один плод, иначе тебя ждёт смерть. Тем временем его подруга детства Лена быстро достигает S-ранга. Лайт случайно съедает второй фрукт, выживает и узнаёт, что истинная суть Мастера фруктов (   Читать дальше...   )Производство: Asahi ProductionЖанр: приключeния, фэнтeзи, экшенРежиссер: Кимура РюитиПеревод: CrunchyRollЯзык озвучки: Японский и РусскийСубтитры: Английские ASS(int) (Полные и Надписи) и Русские ASS(int) (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB85FE4A4FAD69059C49E284CCD6CA6666C4E117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808600   (10376) от 25.07.2025
 
 D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103] HDTV 1064p raw+rus
@@ -6,7 +111,7 @@ D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд В�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пo
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +372,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +425,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +451,7 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +477,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 | Туал
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +503,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +555,7 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь Ночных
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +581,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +607,7 @@ Bad Girl | Плохая девочка [ТВ-1] [2025, TV, 10 из 12] WEBRip 10
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +633,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Клеватесс: К�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FBA89385EDF2EAF210CC68CA3261F7AAC1AA857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805091   (1911) от 20.09.2025
-
-Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Orejihanki | Переродившись в торговый автомат, я блуждаю по подземелью [ТВ-2] [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фанат торговых автоматов умирает, спасая один из них от падения (смягчив это падение собственным телом). Затем он обнаруживает, что переродился в фэнтезийном мире в виде разумного торгового автомата. Он может видеть и слышать, но неподвижен, а его речь ограничена стандартными фразами из японских торговых автоматов, вроде «Добро пожаловать» и «Очень жаль». К счастью, (   Читать дальше...   )Производство: Япония, студия Studio GokumiЖанр: комедия, фэнтези, исекайРежиссер: Ямамото ТакасиЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714ACBBBEC29A4B5004C8CA9B088406003EEA14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805166   (1907) от 20.09.2025
-
-Стать сильнее! Новая сага | Tsuyokute New Saga [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1907.jpg" />
-</div>
-
-
-###  Подробнее
-
-После ожесточённого сражения маг-мечник Кайл всё-таки побеждает Владыку Демонов, но при этом теряет своих товарищей, да и сам оказывается серьёзно ранен. Находясь на грани смерти, Кайл набредает на какую-то странную реликвию, которой владел Владыка Демонов, берёт её в руку и... та отправляет его назад в прошлое, в то время, когда он был ещё совсем молодым. С трудом (   Читать дальше...   )Производство: Япония / Студия Studio Massket, Studio ClutchЖанр: Приключения, фэнтезиРежиссер: Naoki MizusawaЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EB182AE9293D22CB537BAD8E7D42C632F91379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818911   (1815) от 20.09.2025
-
-Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут цикады (второй сезон) [2007, TV, 24 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1815.jpg" />
-</div>
-
-
-###  Подробнее
-
-В том, что в тихом омуте водятся черти, юному Кэйити пришлось убедиться на своём собственном опыте. Переехав с родителями из города в живописную деревушку Хинамидзаву и подружившись в маленькой местной школе с очаровательными одноклассницами, он даже не подозревал, насколько обманчиво его представление об этом безмятежном крае и его обитателях. Но, как позднее выяснил (   Читать дальше...   )Производство: Япония, Studio DEENЖанр: триллер, ужасы, детектив, мистика, драмаРежиссер: Кон ТиакиОзвучка: Eladiel & Lupin - двухголосая (жен./муж.)Язык озвучки: Японский и Русский(Eladiel & Lupin)Продолжительность: 24 эп. по ~24 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D9C9697759A83559CBA48913E57487BE35F3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818929   (1814) от 20.09.2025
-
-Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут цикады (первый сезон) [2006, TV, 26 эп. + OVA] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1814.jpg" />
-</div>
-
-
-###  Подробнее
-
-В том, что в тихом омуте водятся черти, юному Кэйити пришлось убедиться на своём собственном опыте. Переехав с родителями из города в живописную деревушку Хинамидзаву и подружившись в маленькой местной школе с очаровательными одноклассницами, он даже не подозревал, насколько обманчиво его представление об этом безмятежном крае и его обитателях. Но, как позднее выяснил (   Читать дальше...   )Производство: Япония, Studio DEENЖанр: триллер, ужасы, мистика, детективРежиссер: Кон ТиакиОзвучка: Юки Нацуи (1-9), Евгения Лурье (10-26) - одноголосая (муж., жен.)Язык озвучки: Японский и русскийПродолжительность: 26 эп. по ~24 мин. + 1 OVA ~24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DCE4BF62507D131C07FC8BBD15E224E6E69E6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

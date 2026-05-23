@@ -1,3 +1,82 @@
+###  Публикация: 1785564   (24458) от 16.03.2025
+
+Genius Art: Image AI Generator v1.2.5 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свой творческий потенциал с помощью инструментов для рисования и изображений на базе искусственного интеллекта.
+Превратите свои фотографии и идеи в потрясающие творения с помощью Genius Art: Image AI Generator. Независимо от того, являетесь ли вы художником, дизайнером или просто любителем творчества, это приложение предоставит вам всю мощь передовых инструментов (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.03.2025Разработчик: AMOBEAR TECHNOLOGY GROUPПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780554   (24423) от 17.03.2025
+
+Night clock / Ночные часы v2.10.43 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Простые часы для вашего смартфона. Весьма удобны в тёмное время суток. Присутствует возможность вывода информации о погоде, уведомлениях, заряде. Даже online-радио есть.Тип издания: PremiumРелиз состоялся: 18.03.2025Разработчик: Stefan FruhnerПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFA5DBCB95C8A8EDDDB14843C3208B9E14D1A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785749   (24375) от 17.03.2025
+
+Screen Mirroring - TV Miracast v4.0.0.73 Mod by vadj [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Приложение для зеркалирования и трансляции экрана на телевизор. Хотите легко отразить экран своего телефона на телевизоре? Хотите, чтобы проекция экрана была быстрой, стабильной и отзывчивой? Используйте Screen Mirroring – Miracast for TV — бесплатное приложение для дублирования экрана, которое обеспечивает плавное зеркальное отображение вашего смартфона на экране (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.03.2025Разработчик: StudiosoolterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07092396BE64828B97410A644D80A40CCEE91FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785709   (24356) от 17.03.2025
 
 WiFi Analyzer v6.0 (b98) Mod by vadj [Ru/Multi]
@@ -6,7 +85,7 @@ WiFi Analyzer v6.0 (b98) Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Device Info HW+ v5.21.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +137,7 @@ FBReader Premium v3.8.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +163,7 @@ IPTV Pro v9.0.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +215,7 @@ TikTok 39.1.3 Mod Asia by Dmitry Nechiporenko + Plugin 2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +267,7 @@ Call Filter / Фильтр Звонков v1.23.5 Mod by Balatan [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +293,7 @@ Smart Tools v2.1.15 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +319,7 @@ LazyMedia Deluxe v3.369 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +345,7 @@ Passwords & Passkeys－Safe v25.0.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -293,7 +372,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.7.60 Мод by Applicazioni
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -319,7 +398,7 @@ Arduino Remote v1.0.2 Mod by Johann Shilinski [En] (авторская разд�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -424,7 +503,7 @@ Tone Generator PRO 3.78 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -479,7 +558,7 @@ MiHome v10.3.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -508,7 +587,7 @@ SD Maid 2/SE v1.4.3-beta0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +613,7 @@ AdGuard Ad Blocker TV Premium Final [No-Root] v4.9.50 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -561,7 +640,7 @@ Bananastreet: Deep House & EDM v4.1.61 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -588,7 +667,7 @@ SnapEdit - AI photo editor v7.3.5 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -599,84 +678,6 @@ SnapEdit — одно из лучших приложений для редакт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87ADD067A465AB9B4E2E2C5AAC11C93222E986B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789850   (22283) от 06.04.2025
-
-InColor: Coloring & Drawing v6.5.4 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22283.jpg" />
-</div>
-
-
-###  Подробнее
-
-С разнообразными интересными страницами для окрашивания, ваш Android в одно мгновение превратится в идеальный инструмент для расслабления и совершенствования навыков рисования. Имитация реальных мазков краски и звука, замечательная функция наложения градиента, предоставляет вам самый реалистичный опыт окрашивания. Инновационный способ управления, идеально подходит (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.04.2025Разработчик: EyewindПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD437CAF641765CE12B8FD4D23DD7C1529EF5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790251   (22091) от 08.04.2025
-
-CCleaner Pro: ПО для очистки 25.07.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22091.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - один из самых известных и популярных инструментов для очистки пространства мобильного устройства. С его помощью можно удалять ненужные файлы, освобождать место, анализировать состояние системы и с высокой степенью безопасности находиться в интернете, а так же многие другое. С данной программой пользователи получат практически полный контроль над гаджетом (   Читать дальше...   )Тип издания: ProРелиз состоялся: 07.04.2025Разработчик: PiriformПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E64CB64DD6F92DD7FA451E39DC92F6934F2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790582   (21964) от 09.04.2025
-
-Dict Box - Английский словарь v8.9.9 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма недурственный англо-русский и русско-английский словарь (и не только)  без необходимости подключения к Интернету. Присутствует каталог с возможностью индивидуального наполнения оного. В наличии возможность создания напоминаний. Присутствует функция разговорника с распознаванием речи.Тип издания: ProРелиз состоялся: 09.04.2025Разработчик: EVOLLY.APPПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9FDA53A71A2A9484A43B4482F8356551E63648
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1476338   (1011563) от 11.06.2021
+
+DRIFT21 (2021) [Ru/Multi] (6845677) License CODEX
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Тюнингуйте дрифт-машину мечты, меняйте запчасти, повышайте мощность и соревнуйтесь с другими игроками на легендарных японских трассах Эбису! Выезжайте на трассу и опробуйте все лучшие и знаменитые машины мира дрифта! Двигатели, подвеска, колёса - в Вашем гараже доступно свыше 1800 заменяемых компонентов.Тип издания: LicenseРазработчик: ECC GAMES S.A.Жанр: Racing, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC38417AC96A22A4042D481B45E5AAB2E518E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485150   (1005570) от 24.07.2021
 
 Urban Trial Tricky (2021) [Ru/Multi] (1.0.1) License DOGE [Deluxe Edition]
@@ -6,7 +32,7 @@ Urban Trial Tricky (2021) [Ru/Multi] (1.0.1) License DOGE [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Need For Speed Underground - Dilogy [En/Ru] (RePack) 2003 - 2004 | R.G. Revenant
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +84,7 @@ GTR2 Light [Ru] (RePack/2.0.0.0) 2006 (2013) | SimProject
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +112,7 @@ Gas Guzzlers: Combat Carnage / Gas Guzzlers: Убойные гонки [Ru/En] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +140,7 @@ Test Drive: Ferrari Racing Legends [En] (L) 2012 | Proper FAIRLIGHT
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +168,7 @@ Re-Volt [En/Multi8] (RePack/1.2a12.1225) 1999 | R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -172,7 +198,7 @@ Sonic & All-Stars Racing Transformed En/Multi5] (L) 2013 | RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -224,7 +250,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.0.7.0/dlc) SteamRip Let'sРlay [Gold P
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +276,7 @@ Road Rash [En] (L) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +303,7 @@ Burnout Paradise: The Ultimate Box [Ru/En/Multi8] (L/1.1.0.0) 2009 | RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +329,7 @@ Race Driver: GRID (2008) [Multi] (1.3.0.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +355,7 @@ Colin McRae Rally Remastered (2014) [Multi] (1.0) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +381,7 @@ Sébastien Loeb Rally EVO (2016) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +407,7 @@ Camper Jumper Simulator (2017) [En/Pl] (1.0) License HI2U
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +433,7 @@ Death Track: Resurrection [En/Multi6] (L) 2008 | PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +461,7 @@ DiRT: Anthology / DiRT: Антология [Ru/En] (Repack) 2007-2012 | R.G. М�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +488,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (1.0/upd5) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +514,7 @@ MX Nitro: Unleashed (2017) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,7 +540,7 @@ Ridge Racer Unbounded [Ru/En/Multi6] (RePack/1.13) 2012 | R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +569,7 @@ DiRT Showdown (2012) [Ru/Multi] (1.2) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -569,7 +595,7 @@ Need for Speed: Most Wanted 2012 [Ru] (RePack/1.5) 2012 | Audioslave
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -596,7 +622,7 @@ Vector 36 (2017) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -648,7 +674,7 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -660,33 +686,6 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack =nemos=
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06DF1EAD6B8C75E6114D07228075A1AD2CEBD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104249   (880954) от 14.02.2017
-
-MX Nitro (2017) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мотокросс, заряженный Нитро, безбашеными трюками и скоростью - это MX Nitro!
-Свист в ушах и адреналин разгоняет кровь до предела, в мире MX Nitro мотокросс не знает границ. Решишься ли ты на очередной безрассудный трюк чтобы добыть Нитро и победить? Гони на полной скорости, вылетай с трамплинов и крути невообразимые трюки изо всех сил. Заводи мотор, крепко ухватись (   Читать дальше...   )Тип издания: LicenseРазработчик: Saber InteractiveЖанр: Racing (Moto), Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F87EB75874EF33DC85CA19125D22B5B21F2097
 ```
 
 https://mybot314.ru/tekegram_catalog/

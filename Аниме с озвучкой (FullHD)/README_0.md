@@ -1,3 +1,81 @@
+###  Публикация: 1849899   (1054115) от 25.01.2026
+
+Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War | Семь смертных грехов: Знамение священной войны [2016, TV, 4 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Отвоевав королевство Лионес у Святых Рыцарей, Семь Смертных Грехов вместе с Элизабет и Хоуком наконец-то могут насладиться заслуженным спокойствием. Но новая угроза появляется на горизонте, и, кажется, счастливым и беззаботным дням наших героев скоро придет конец...Производство: Япония, A-1 PicturesЖанр: фэнтези, сёнен, экшен, эттиРежиссер: Токоро ТомокадзуЯзык озвучки: Русский закадровый (AniLibria - Cleo-chan, Kari, Nuts)Продолжительность: ТВ, 4 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E55341E5BE6CEDF2C604A7458F3E1D3B5C99A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849900   (1054114) от 25.01.2026
+
+Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the Commandments | Семь смертных грехов 2: Возрождение заповедей [2018, TV, 24 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сильнейшие святые рыцари Лионесса, известные как «Семь смертных грехов», вместе с принцессой Элизабет смогли предотвратить переворот в королевстве и восстановить своё доброе имя. Но беда не приходит одна. Король Бартра увидел будущее, в котором над миром нависли десять зловещих теней. Камелоту, что находится к югу от Лионесса, грозит страшная опасность. Смогут ли (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: приключения, фэнтези, сверхъестественное, сёнен, экшенРежиссер: Фурута ДзёдзиЯзык озвучки: Русский закадровый (AniLibria - Anzen, Cleo-chan, Hekomi, Kari, Sharon)Продолжительность: ТВ, 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C228FA8FBDD743FBFAAAEAFAFC0BF8013F0A94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849901   (1054113) от 25.01.2026
+
+Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the Movie: Prisoners of the Sky | Семь смертных грехов: Узники небес [2018, Movie] WEBRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Приближается день рождения Бартры - короля Леонесса. Семь смертных грехов отправляются на поиски ингредиентов для праздничного стола. Во время поисков одного из ингредиентов - легендарной "небесной рыбы" Мелиодас и Хоук попадают на таинственный "Небесный остров", где встречают потомков клана богинь - небожителей.Производство: Япония, A-1 PicturesЖанр: приключения, фэнтези, магия, сверхъестественное, сёнен, экшенРежиссер: Абэ НориюкиЯзык озвучки: Русский закадровый (AniLibria - Ados, Amikiri, Anzen, Cleo-chan, December, Gomer, Hekomi, Kanade EU, Kari, Lupin, Malevich, Myuk, Narea, Sharon)Субтитры: SubRip (Русский, Полные)Продолжительность: 1 час 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8B651CD83FE2BA0E7E968055CA80CA39DA2CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849902   (1054112) от 25.01.2026
 
 Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the Gods | Семь смертных грехов 3: Гнев богов [2019, TV, 24 эп.] WEBRip 1080p raw+rus
@@ -6,7 +84,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Gekijouban Nanatsu no Taizai: Hikari ni Norowareshi Mono-tachi | The Seven Deadl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слуш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +451,7 @@ Outbreak Company | Операция - Вторжение | Мятежная ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +477,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +529,7 @@ Watashi wo (o) Tabetai, Hitodenashi | This Monster Wants to Eat Me | Монст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +609,7 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +635,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +661,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,85 +672,6 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60783AFE90DB945155D80D83E5CBEE9DF0A4595F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841133   (1047827) от 10.12.2025
-
-Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Человек-бензопила. Фильм: История Резе [2025, Movie] WEB-DL 1080p raw+rus+ukr+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой охотник на демонов Дэндзи, который ждал свидания со своей возлюбленной Макимой, попадает под ливень. Укрывшись от дождя, он случайно встречает девушку по имени Резе, работающую в соседнем кафе. Та добродушно ему улыбается, и разговор становится более непринужденным. После этой встречи повседневная жизнь Дэндзи начинает меняться.Производство: Япония / Mappa, ShueishaЖанр: аниме, мультфильм, фэнтези, боевикРежиссер: Тацуя ЁсихараАктеры: Кикуносукэ Тоя, Рэина Уэда, Томори Кусуноки, Сёго Саката, Аи Файруз, Нацуки Ханаэ, Сиори Идзава, Райан Кольт Леви, Карин Такахаси, Кэндзиро Цуда, Мая Утида, Юя УтидаПеревод: ДублированныйЯзык озвучки: Русский, Украинский, Японский, АнглийскийСубтитры: русские (Forced, Full - Екатерина Левина), английские (Forced, Full, SDH - iTunes), китайские, иврит, украинские (Forced, Full - Інга Будвітіс)Продолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67904F550DC4EC7B165C62FE8D56B042E1F79E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841017   (1047641) от 08.12.2025
-
-Жизнь сорокалетнего мужчины в другом мире | Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper in Another World [2025, TV, 13 из 13] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кенъичи, одинокий художник манги, которому уже почти стукнул сорокет, внезапно, даже без помощи всеми нами любимого грузовика, оказывается в фэнтезийном мире.
-Оглядевшись вокруг и полазив немного в выскочившем игровом меню, он узнает, что несмотря на это чудесное перемещение, ему всё ещё доступен популярный японский онлайн-магазин. Он может в любой момент туда что (   Читать дальше...   )Производство: Япония / Студия East Fish StudioЖанр: Комедия, фэнтези, эттиРежиссер: Юдзуми КэйэйЯзык озвучки: Русский (AniLibria, Dream Cast, КОМНАТА ДИДИ, JAM CLUB, VF-Studio); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188C799E2DED0459006D371D8974B6BE50E02AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840345   (1047280) от 04.12.2025
-
-Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел дизайна [2021, TV, 13 эп.] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047280.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отделе дизайна животных на Небесах дизайнеры ежедневно создают множество новых животных, борясь с необоснованными требованиями своего клиента - Бога. Наблюдая за работой отдела, можно найти ответы на такие вопросы, как: "Почему единороги не могут существовать?", "Что делает животное вкусным?", "Какое существо самое сильное в океане?" (   Читать дальше...   )Производство: Япония, Asahi ProductionЖанр: комедия, фэнтези, повседневность, сейненРежиссер: Масуй СойтиЯзык озвучки: Русский закадровый (AniDub - 9й Неизвестный, Dreamy Sleep), (animevost), (AniFame - Rabe Sachte)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2F559A9A93B97C2D6900A40154885B6FC504A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

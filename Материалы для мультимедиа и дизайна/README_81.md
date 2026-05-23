@@ -1,3 +1,318 @@
+###  Публикация: 1377269   (853145) от 21.04.2020
+
+Шаблоны - Creative Market - Autumn Scene & Mock-up Creator - 3006016 [PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот удивительный генератор макетов и сцен позволяет вам создавать свои собственные оригинальные сцены или использовать нашу готовую сцену, просто перетаскивая элементы в Photoshop. Все элементы основаны на фотографиях, в большом разрешении и отличном качестве, что позволяет создавать действительно огромные сцены, может использоваться для больших экранов и для печатных (   Читать дальше...   )Формат: PSD, JPGРазрешение файлов: 1080x1080-4500x3004
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88849261871F2669EE7F4260654B0489AC0E3AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377252   (853137) от 21.04.2020
+
+Шрифты - Jeremy Landes - Velvetyne - Le Murmure [TTF, OTF, EOT, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный кириллический шрифт. Материал раздается с официальной документацией и дополнениями.Разработчик: Jeremy LandesФормат: TTF, OTF, EOT, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D556C7A0990C086579884444C904A25EBAA6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377392   (853136) от 21.04.2020
+
+Экшены - GraphicRiver - Modern Mix Photoshop Action - 26316380 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Modern Mix - превратите ваши фото в художественный образец современного искусства в один клик. Это фотошоп действие автоматически наносит нужное количество мазков краски и создаёт элементы графики. Он прост в использовании, полностью редактируем. Состоит из правильно организованных слоёв, имеет текстовую инструкцию и видео-урок.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5C233646754035A8ABD4B77EA6514299E6C83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377400   (853039) от 21.04.2020
+
+Экшены - GraphicRiver - Coloration Photoshop Action - 25931273 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Coloration - превосходное действие фотошоп для пост обработки ваших изображений с эффектом карандашного эскиза и добавлением красочных акварельных мазков. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73CE4A8853D98A11514AE3720342BBF990E40C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498934   (852529) от 29.09.2021
+
+Шаблоны - Creative Market - Food Safe Paper Mockup (tortilla) - 6405424 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Профессиональные и простые в использовании макеты упаковки для фотошопа.Формат: PSDРазрешение файлов: 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DAF73E73AC4FDEC4877A98C6D9CDF726DF84C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 770167   (852469) от 24.03.2014
+
+Векторный клипарт - Красивые девушки 5 / Beautiful Girls 5 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Красивые девушкиФормат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C07F2A1634DCA8ACC161594B0ED9B702EEC5DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110564   (851843) от 03.03.2017
+
+Шрифты - A&S Porkchop Primitive Bold [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Количество / Штук: 2
+Разработчик: Steve Contreras (SIGNFONTS-Art&Sign)
+
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D92C682F210B18097B2BC9F511BC3843FE79A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110793   (851748) от 03.03.2017
+
+Растровый клипарт - CreativeMarket - Watercolor Marijuana Pack:47elements [PNG, JPG ]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Интересный и весёлый пакет акварельных листьев марихуаны для Вашего нового творчества. Пакет содержит несколько разных форм  и цветов листьев конопли, и 30 различных акварельных бумаг.Формат: PNG, JPGРазрешение файлов: 2904x2907 - 5700x3869
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056159F273A5805F668FD913D0B4FDB5BD2A9195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110804   (851653) от 03.03.2017
+
+Шаблоны - GraphicRiver - Black & White Artistic Photo Manuolation [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Придайте художественный и творческий стиль Вашим фотографиям с помощью этого замечательного шаблона.Формат: PSDРазрешение файлов: 2400x3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAD8D90C6F7D44E0F84546E688D342D9C2A34E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377647   (851627) от 22.04.2020
+
+Звуковые библиотеки - Ezra Cohen – Odyssey SFX [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Odyssey SFX - профессиональный пакет динамических научно-фантастических звуковых эффектов, в состав которого входит 5 готовых саундтреков.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659786549E0D54AE4EAF269C7AD474BC0437EDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110813   (851522) от 03.03.2017
+
+Шаблоны - GraphicRiver - Geometrical Photo Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Придайте Вашим фотографиям стильный и современный дизайн, с элементами различных фигур, с помощью этого шаблона.Формат: PSDРазрешение файлов: 3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF1B4577F4F20F1D30E6DC98F87E57E7A760BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110788   (851521) от 03.03.2017
+
+Рамки - CreativeMarket - 10 Minimalist White Mockup Frames [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эти захватывающие белые рамки в минималистичном стиле, подойдут для любой Вашей фотографии или дизайна, которые Вы хотите продемонстрировать в цифровом виде.Формат: PSDРазрешение файлов: 5553x3702
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4629779CC2111BD61E5FF728A5C6BB1F8368777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377632   (851383) от 22.04.2020
 
 Звуковые библиотеки - Epic Sound Effects - Aurora [WAV]
@@ -6,7 +321,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -361,325 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3215CA87AA89DCE7D336AD1B27677E1FF51459D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377796   (849562) от 23.04.2020
-
-Футажи - VideoHive - Transparent Rain Drops - Rain Dropping - Real Rain Effect - 20288894 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849562.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этого пакета вы можете создать реальный эффект дождя, падающего на окно или стекло.
-Вы можете смешивать все элементы, что бы добиться идеального эффекта. Движение капель дождя реалистично анимированы, с прозрачным фоном, что позволяет хорошо вписываться в общий цвет фона, текстуру, видео и фотографии.
-Хорошо работает со всеми программами редактирования, (   Читать дальше...   )Формат: MOVРазрешение файлов: Full HD 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D21A78FEBEB54B0FC4671AEEE61E1F11582152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377956   (849464) от 23.04.2020
-
-Футажи - VideoHive - 25 4K Action Light Leaks and Bokeh - 21357857 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 25-ти красивых файлов Light Leaks и Bokeh в ультра высоком разрешении 4K.
-Так же в этом пакете вы получаете в качестве бонуса 10 уникальных световых переходов.
-Все очень легко использовать: Выберите кадр, который вы хотите стилизовать в своем проекте. Поместите выбранную световую утечку или боке над вашим видео. В большинстве программ для редактирования, (   Читать дальше...   )Формат: MOVРазрешение файлов: UHD (3840x2160)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909014ACF5F7E3339F00BC92DAFC652ABA2F8BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377930   (849458) от 23.04.2020
-
-3D модели - KitBash3D - Neo Tokyo 2 [OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение, которое на самом деле соответствует своему предшественнику. Благодаря новым воображаемым небоскребам, расширенным и обогащенным городским кварталам, большому разнообразию башен и свежим деталям, таким как рекламные щиты и смелые вертолетные площадки, этот комплект переопределит ваши научно-фантастические миры и расширит возможности всех ваших проектов (   Читать дальше...   )Формат: OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19452FA8615AD268607568CA9C97D83D8538B139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499363   (849175) от 01.10.2021
-
-Сборник - 4000 Wedding Templates Bundle for Photoshop [PSD, ABR, TTF, FON, ASL, OTF, PFM]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор свадебных шаблонов для Photoshop.Формат: PSD, ABR, TTF, FON, ASL, OTF, PFM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114D0D7CEFFD9B407D540AFE51D608115515FD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770770   (848867) от 26.03.2014
-
-Растровый клипарт - Кошечки [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое красота?
-Это дом, где два кота.
-Что такое теснота?
-Это дом, где три кота.(   Читать дальше...   )Формат: PNGРазрешение файлов: от 512х394 - 1703х474
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E543A2833D4C92848D69261BD34DBB4490C8FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111625   (848165) от 05.03.2017
-
-Шрифты - CreativeMarket - ChapterOne - 4 Font Styles+Extras [TTF, OTF, AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848165.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChapterOne интересный шрифт, с старинным конденсированным характером и OpenType особенностью. Этот пакет включает специальные принадлежности - логотип, и вы можете редактировать это. Подходит и применяется для создания дизайна брендов, логотипов, упаковок продукции, приглашений, этикеток и многое другое.Формат: TTF, OTF, AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AA28C74C91A97DE0335BD08E721E0A7194D861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378207   (848164) от 24.04.2020
-
-Растровый клипарт - Creative Space Custom Scene Creator by Creative Stuff [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свой собственный удивительный проект для творческих продуктов или любой другой макет.Формат: PSDРазрешение файлов: 3000x2000-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0023A3E44F06C25AB57F7478824FD9A021431373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111639   (848163) от 05.03.2017
-
-Шрифты - CreativeMarket - daydream [OTF, TTF, SVG, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daydream является шрифтом, который имеет характер вверх и вниз, как танцор. Шрифт имеет очень уникальный стиль каллиграфии, он очень подходит для использования в работе современного дизайна. Может использоваться в качестве заголовков, логотипов, свадебных приглашений и многое другое.Формат: OTF, TTF, EOT, SVG, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BD81E26783BE9324C5D20346B4A26FE7CF9363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111633   (848155) от 05.03.2017
-
-Шрифты - CreativeMarket - Borders, a hand brushed font [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый и оригинальный шрифт похожий на кисть, который имеет верхний и нижний регистр символов.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8302D0E3CC79CD406BE7B52BC935AFA8245794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378293   (848027) от 24.04.2020
-
-Шаблоны - Creative Market - Sandwich Builder / Creator - 3187559 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот конструктор / создатель сэндвичей позволяет вам создавать свой собственный оригинальный сэндвич, перетаскивая элементы в Photoshop. Все элементы на основе фотографий, в большом разрешении и отличном качестве, могут быть использованы для больших экранов или проектов печати. Вы можете использовать его для веб-сайтов, баннеров, изображений заголовков, обложек Facebook, (   Читать дальше...   )Формат: PSDРазрешение файлов: 4500x2698-4500x4653
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395C44F9A13AA5DDBA3724F435225F5726E82F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111432   (847957) от 05.03.2017
-
-Текстуры - CreativeMarket - Rainbow watercolor seamless pattern [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный набор содержащий в себе акварельные бесшовные модели и формы, которые помогут Вам сделать прекрасные плакаты, визитные карточки, открытки, блокноты, приглашения и т.д.Формат: PNGРазрешение файлов: 3600x3600 | 3600x4371 - 4356x2754
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2076AE2C37354250D61757CC11395DB7E0CA0BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378189   (847922) от 24.04.2020
-
-Шаблоны - Creative Market - Scene Essentials - Plants & Flowers - 578140 [PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы устали от использования одних и тех же растений снова и снова? Нужен красивый цветок или два для вашего нового макета или пользовательской сцены? Не беспокойся, я тебя прикрою! :).Формат: PSD, PNGРазрешение файлов: 324x1486-4800x3200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E00B03C307A5A46533C77946ECAF4AE8B162139
 ```
 
 https://mybot314.ru/tekegram_catalog/

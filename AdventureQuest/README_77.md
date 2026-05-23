@@ -1,3 +1,107 @@
+###  Публикация: 1717886   (58936) от 22.04.2024
+
+My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Под огнями Сеула вы, назначенный водитель, выхватываете заказ у загадочной девушки. Перед вами стоят ангелы женской группы страны. В результате внезапного скандала вы выдаете себя за их агента и становитесь опорой музыкальной индустрии! Вас ждет аромат любви и блеск карьеры – как выберете? Попросту говоря, перед вами довольно не самая обычная игра, а фантастическая (   Читать дальше...   )Тип издания: SceneРазработчик: Bing WorldЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: КорейскийЯзык субтитров: Английский, Китайский (традиционный), КорейскийЯзык интерфейса: Английский, Китайский (традиционный), Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717875   (58927) от 22.04.2024
+
+Scars Above (2023) [Ru/Multi] (1.0.0.132679) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Scars Above использует научно-фантастический сеттинг. История повествует о приключениях Кейт. Так зовут ученую и астронавтку, что вместе с командой оказалась на населённой монстрами экзопланете из-за внезапно появившегося на орбите Земли артефакта под названием метаэдр. В результате астронавты перенеслись за пределы Солнечной Системы туда, где раньше обитала загадочная (   Читать дальше...   )Тип издания: LicenseРазработчик: Mad Head GamesЖанр: Action, Adventure (Horror), 3rd Person, 3DЯзык озвучки: Английский, Французский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5B4505E83A9C55CAFEB098E7B2B3FD7014C2DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657379   (58923) от 22.04.2024
+
+Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вас ждет новое приключение от студии Blazing Griffin, удостоенной награды BAFTA Scotland. Знаменитый детектив Эркюль Пуаро отправится в Лондон с простым, казалось бы, поручением – отвезти на выставку картину. Увы, во время церемонии открытия ее украдут. Игроки впервые смогут вести расследование вместе с известным спутником Пуаро, который ранее появлялся в книгах, (   Читать дальше...   )Тип издания: LicenseРазработчик: Blazing GriffinЖанр: Приключение, КвестЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7DA14EF29B29F2170746FE02FA4590CC2FA5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717910   (58907) от 22.04.2024
+
+The Mildew Children / Дети Плесени (2024) [Ru/En] (1.1.0) Repack Other s [18+] [AD]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Witch's Cauldron - это мрачная история, в которой детская невинность сочетается с языческим ритуалом. Игрокам предстоит стать на место Кирфел, юной ведьмы, связанной узами макабрического ритуала в деревне, где царят древние традиции. Вместе со своими сестрами она сталкивается с возможной гибелью, которая ожидает всех участников. Однако среди теней появляется (   Читать дальше...   )Тип издания: RepackРазработчик: The Growing StonesЖанр: Приключенческие игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, АнглийскийРеклама: После установки на рабочем столе создается ярлык, ведущий на офф. сайт автора репака
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6216B5E682AE097FB9A11AAD5BEC67EF10AD2308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717926   (58888) от 22.04.2024
 
 Sophia the Traveler (2024) [Multi] (1.0) Scene Tenoke
@@ -6,7 +110,7 @@ Sophia the Traveler (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Aquamarine (2022) [En] (2.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ FLAKE The Legend of Snowblind (2024) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Shinkansen 0 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Scott Whiskers in: the Search for Mr. Fumbleclaw (2024) [Multi] (1.0.155) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Once a Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Staffer Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/En] (27042024/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Tad the Lost Explorer (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719/dlc) Sc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ POOLS (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:011C415B8F7D0CD64479FFA3A4AD3E973E7D859B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723146   (56569) от 14.05.2024
-
-The Bridge Curse 2: The Extrication / Проклятый мост 2: Эвакуация (2024) [Ru/Multi] (1.6.4) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56569.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bridge Curse 2: The Extrication - продолжение одноименной серии психологических хорроров от первого лица, созданных по мотивам тайваньских городских легенд. События разворачиваются на территории университета Вэнь Хуа, где студенты не раз замечали сверхъестественную активность и убеждены в существовании призраков в стенах своего учебного заведения. В попытках (   Читать дальше...   )Тип издания: RepackРазработчик: SOFTSTAR ENTERTAINMENTЖанр: Приключенческие игрыЯзык озвучки: Английский, Китайский (традиционный)Язык субтитров: Русский, Английский, Тайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Тайский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DA5E27C7E54993DB77116C1AFDF9F1724EEC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723182   (56523) от 15.05.2024
-
-INDIKA (2024) [Ru/Multi] (14207837) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56523.jpg" />
-</div>
-
-
-###  Подробнее
-
-INDIKA - игра от третьего лица с историей о странном мире, в котором религия вступает в противоборство с жестокой реальностью. Игра повествует о молодой монахине, которая отправляется на поиски самой себя бок о бок с рогатым другом. Внешне Индика - обычная, ничем не выдающаяся монахиня. Она всеми силами пытается нести бремя монастырской жизни. Однако скромность и (   Читать дальше...   )Тип издания: RepackРазработчик: Odd MeterЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBD419F8957BBCF71D5F479AFBBC04E082DB499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723483   (56359) от 16.05.2024
-
-Poltergeist Watcher (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poltergeist Watcher вдохновленная классическими фильмами о паранормальных явлениях, игра забрасывает вас в старинный особняк, в котором бушует полтергейст. Атмосфера тяжелая, зловещая. Чтобы пережить эту ночь, вам понадобится смекалка. Обязательно нужна наблюдательность. Хорошая память также имеет решающее значение. И, пожалуй, самое главное - непоколебимая сила (   Читать дальше...   )Тип издания: RepackРазработчик: DuckGodЖанр: Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F924F9782A773682F6C7274B341A740182B5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683076   (56331) от 17.05.2024
-
-Hollow Cocoon (2023) [Ru/Multi] (1.20) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hollow Cocoon - это приключенческая хоррор игра от первого лица, действие которой разворачивается в Японии 1980-х годов. Попробуйте себя в роли Минато Дзимба (Minato Jinba), студента колледжа, который возвращается в родной город своей матери после того, как получил известие о том, что его бабушка находится в критическом состоянии. Спрячьтесь от монстра и соберите (   Читать дальше...   )Тип издания: SceneРазработчик: NAYUTA STUDIOЖанр: Приключенческие игры, ИндиЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Китайский, Японский и другиеЯзык интерфейса: Русский, Английский, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EBC84893EDE60D1FA48480E0F29FF12F4EC1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

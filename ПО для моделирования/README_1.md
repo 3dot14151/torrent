@@ -1,3 +1,159 @@
+###  Публикация: 1443312   (1035650) от 28.01.2021
+
+Realbook v3.1 For Cinema 4d [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Realbook - это предустановка для Cinema 4D, с помощью которой вы можете создать свою персонализированную и анимируемую 3D-книгу всего за несколько шагов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4162778E6D87FB9FDEB41AFD5AE2E17E7E32DA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444618   (1034321) от 02.02.2021
+
+HB MODELLINGBUNDLE v2.31 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+HB ModellingBundle - это набор из более чем 70 скриптов для CINEMA 4D, предназначенных для 3D-моделирования. Цель этих скриптов - улучшить рабочие процессы и значительно ускорить выполнение многих операций. Это означает меньше щелчков и меньше движений мыши.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C538ED0B0F53DCBFD08DA5B7A01741F145048B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445804   (1033366) от 06.02.2021
+
+Solid Angle To Arnold 3.3.0 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Arnold - это обновленная версия плагина для программы трехмерного моделирования и анимиации MAXON Cinema 4D. Данный плагин является продвинутой, современной системой рендеринга в аспекте трехмерного моделирования современного кинопроизводства, при монтаже сцен, создании персонажей и анимации. Arnold, является мощным плагином, который предназначен для создания различных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E6B0822D9766921601DD51BA7F743801170324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446356   (1032843) от 08.02.2021
+
+U-RENDER 2021.1.3 for Cinema 4D [Ru/En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+U-RENDER - это плагин для рендеринга в реальном времени для Cinema 4D. Ранее известный как Tachyon Render, теперь он переименован в U-Render. U-Render очень подходит для высококачественного рендеринга, анимации и визуализации в реальном времени.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B586C70D4247FA1C01D7C0D6A9380B0BD6636C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456385   (1025052) от 22.03.2021
+
+Nitro4D QuickRender v1.02 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+QuickRender - это очень полезный плагин, вы можете легко сделать быстрый рендеринг в вашем окне просмотра с помощью любого движка рендеринга который вы хотите, например, вы можете увидеть любую проблему с ошибкой до окончательного рендеринга! уже есть предустановки для RedShift, Octane, Prorender, Hardware, Hardware OpenGl, вы также можете создать свой собственный (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA9788029F2767EA167948F5F8401FC52ED2128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456668   (1024825) от 23.03.2021
+
+Terraform4D v1.1.0 For Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Terraform4D - это мощный плагин на основе генератора ландшафтов для Maxon Cinema 4D R20 - R23 с возможностью художественного управления. Это позволяет вам создавать настраиваемые ландшафты на основе слоев, неразрушающим способом. Рабочий процесс интуитивно понятен и гибок, и каждый аспект ландшафта всегда доступен для редактирования.Создавайте ландшафты из процедурных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04349BF28DB47637CBCBE12D9022ECB77C9DBD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460603   (1022383) от 06.04.2021
 
 MagicaVoxel 0.99.6.3 [En]
@@ -6,7 +162,7 @@ MagicaVoxel 0.99.6.3 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +188,7 @@ PolyDesign3D - PolySnow Plus 1.01 for 3ds Max 2016-2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +214,7 @@ PolyDesign3D - PolyCloth 2.02 for 3ds Max 2016-2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +240,7 @@ Aspire 10.514 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +268,7 @@ Multiscatter 1.618 for 3ds Max 2014-2021 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +297,7 @@ ArchvizTools - Kitchen Cabinet Generator 4.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +375,7 @@ ArchvizTools - Picture Frame Generator 1.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +401,7 @@ ArchvizTools - Sliding & Stacking Door Generator 2.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +427,7 @@ RayFire 1.84 for 3ds max 2020 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +454,7 @@ MakeHuman 1.0.2 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +480,7 @@ Aviz Studio ATiles Pro 2.62 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +506,7 @@ Planetside Terragen 3.3.03.0 Pro Plus Animation [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +534,7 @@ V-RayMtl Converter 3 3.97 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +560,7 @@ Quick Stitch v1.0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +586,7 @@ Soulburn scripts pack v.112 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +613,7 @@ V-ray 5.10.22 Cinema 4D R20-R24 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -483,7 +639,7 @@ FD UVToolkit 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -510,7 +666,7 @@ Noise Scape v.2 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -521,162 +677,6 @@ Noise Scape v.2 For Cinema 4d [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:961378CAE542244188B554F0637B88C92D8F9162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374997   (868536) от 12.04.2020
-
-Motion Drop 1.5 For Cinema 4d [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин Motion Drop который позволяет создавать до шести так называемых капель, которые случайным образом перемещаются друг вокруг друга.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8DFB92F48DFFB4CCD01458967DDB835D84944F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375172   (868525) от 12.04.2020
-
-WTools3D LWCAD v2018.31 For Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868525.jpg" />
-</div>
-
-
-###  Подробнее
-
-LWCAD - это плагин для популярных 3d редакторов, который предоставляет инструменты для создания: стен, окон, дверей, лестниц и т.п. архитектурных объектов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02360BC60E5A27E05E481CCA697CF3D6FE179A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375109   (868523) от 12.04.2020
-
-City Rig 2.13 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868523.jpg" />
-</div>
-
-
-###  Подробнее
-
-City Rig - это городской генератор для Cinema 4D. Он создает среднюю и высокую детализацию городской среды и пейзажей с улицами, тротуарами, складами, многоэтажками, фабриками и жилыми домами и многим другим. Все, что вам нужно для создания подробных городов всего за несколько минут.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF8C27A2B452B8BFB98A50374E48C4B151BB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999427   (862069) от 23.03.2016
-
-Aurora 3D Animation Maker 16.01070843 Portable by PortableAppС [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora 3D Animation Maker  — программа для создания 3D анимации, с помощью которой можно создавать логотипы, тексты, видеоролики. Программа имеет множество анимационных эффектов, такие как: фейерверк, дым, снег, пламя, или пустоты пространства, Вы сможете контролировать все аспекты Вашей анимации, в том числе продолжительность анимации, скорость воспроизведения и (   Читать дальше...   )Язык интерфейса: русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3080DEB4C739324C47728FAD63DDA69C4A9E0ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999991   (860407) от 24.03.2016
-
-Aurora 3D Animation Maker 16.03230029 RePack & Portable (x86) by FoXtrot [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora 3D Animation Maker — программа для создания 3D анимации, с помощью которой можно создавать логотипы, тексты, видеоролики. Программа имеет множество анимационных эффектов, такие как: фейерверк, дым, снег, пламя, или пустоты пространства, Вы сможете контролировать все аспекты Вашей анимации, в том числе продолжительность анимации, скорость воспроизведения и (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92533EB523B1D5A312E255966270341C28870977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376466   (858356) от 18.04.2020
-
-Vertex Normal Tool v1.04 For Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vertex Normal Tool - это плагин для C4D, который добавляет инструмент для создания и управления вершинными нормалями на многоугольных объектах в C4D. Практически все другие высокопроизводительные 3d-приложения (3ds Max, Maya и т. Д.) поддерживают редактирование нормалей вершин, а в то время как c4d поддерживает импорт, рендеринг и т. Д. Нормалей вершин, ему не хватает (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82379AF0720CBFFA937F18127B476451DD826BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1577339   (347765) от 22.09.2022
+
+Альфа и Омега: Клыкастая братва / Alpha and Omega (2010) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Омега - волк, далёкий от высших кругов. Он мечтает познакомиться с самой популярной волчицей в стае - Альфой. И вот судьба подбрасывает ему неплохой шанс - работники заповедника отправляют их в Айдахо. Волку и волчице придётся сплотиться, для того, чтобы вернуться на свою родину.Производство: США, Индия, Канада / Crest Animation Productions, Lions Gate Family EntertainmentЖанр: мультфильм, мелодрама, комедия, приключенияРежиссер: Энтони Белл, Бен ГлюкАктеры: Джастин Лонг, Хайден Панеттьери, Деннис Хоппер, Дэнни Гловер, Ларри Миллер, Эрик Прайс, Викки Льюис, Кристина Риччи, Крис Кармак, Брайан ДонованПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829461A19F741F89889947211FE73EBAF5B10C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257240   (347183) от 25.10.2018
+
+Мадагаскар 3 / Madagascar 3: Europe's Most Wanted (2012) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лев Алекс, зебра Марти, гиппопотамиха Глория и жираф Мелман, а также король Джулиан, Морис, Морт и Пингвины все еще пытаются вернуться в Нью-Йорк. На этот раз их путь пройдет через Европу, где они откроют свой цирк.Производство: СШАЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Эрик Дарнелл, Том МакГрат, Конрад ВернонПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), английскиеПродолжительность: 01:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B3EA94359D36DE88B404DBAF0A68BD53FA7743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179561   (346193) от 01.11.2017
+
+Реальная белка 2 / The Nut Job 2: Nutty by Nature (2017) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В продолжении веселых хвостатых приключений белке Злюку и его друзьям снова нужно действовать сообща. На сей раз — чтобы спасти свой дом: мэр города задумал вырубить их парк и построить на его месте бездушные аттракционы… К счастью, у Злюка и других любителей арахиса есть план, не последняя роль в котором отведена новым друзьям наших героев — белым мышам под предводительством (   Читать дальше...   )Производство: Канада, Корея Южная, США / ToonBox Entertainment, Redrover Co. Ltd., Gulfstream PicturesЖанр: Мультфильм, Приключения, КомедияРежиссер: Кэллан БрункерПерсонажи: Уилл Арнетт, Кэтрин Хайгл, Майя Рудольф, Джеки Чан, Изабела Монер, Петер Стормаре, Бобби Каннавале, Бобби Мойнахан, Джефф Данэм, Габриэль Иглесиас ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375B66E5B22B3A89A6D4A70A2D7098957873B645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418323   (346133) от 25.10.2020
 
 Путешествие на Луну / Over the Moon (2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DBDBB27D2E045D3630079FAA9A71362E3A95551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074361   (337326) от 19.11.2016
-
-В поисках Дори / Finding Dory (2016) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дори — синяя доброжелательная рыбка-хирург, страдающая провалами в памяти. Она упорно стремится избавиться от своего недуга и найти свою семью.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Эндрю Стэнтон, Энгус МакЛэйнАктеры: Эллен ДеДженерес, Альберт Брукс, Эд О’Нил, Кэйтлин Олсон, Хайден Роуленс, Тай Буррелл, Дайан Китон, Юджин Леви, Слоун Мюррэй, Идрис ЭльбаПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0C9755EEAF0C75E602342BE9634CA14A1F131D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840144   (336827) от 11.11.2014
-
-Самолеты: Огонь и вода / Planes: Fire and Rescue (2014) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолетик Дасти — который стал уже легендой воздушных гонок вскоре узнает, что его двигатель сильно повреждён, и он никогда не может больше участвовать в скоростных воздушных гонках. Дасти ищет себе новое занятие и знакомится с мужественной пожарно-спасательной командой, которой руководит ветеран авиации вертолёт по имени Ренждер. Узнав насколько тяжела и опасна (   Читать дальше...   )Жанр: Мультфильм, комедия, приключения, семейный, полнометражныйРежиссер: Роберт ГаннавейАктеры: Дейн Кук, Эд Харрис, Джули Боуэн, Кертис Армстронг, Джон Майкл Хиггинс, Хэл Холбрук, Уэс Стьюди, Брэд Гэррет, Тери Хэтчер, Стейси КичПеревод: Профессиональный (полное дублирование)Субтитры: Русские (полные + форс.), английские (Full + SDH + SDH-Colored)Продолжительность: 01:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE778DAFE09869991A247F6A227AF0CDEF927FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330826   (336263) от 12.10.2019
-
-Король Лев / The Lion King (2019) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336263.jpg" />
-</div>
-
-
-###  Подробнее
-
-История об отважном львенке по имени Симба. Знакомые с детства герои взрослеют, влюбляются, познают себя и окружающий мир, совершают ошибки и делают правильный выбор.Производство: США / Walt Disney Pictures, Fairview EntertainmentЖанр: Мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Джон ФавроПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH), английскиеПродолжительность: 01:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840FF4AFA32B6D94406F7616D5627BE0353FD274
 ```
 
 https://mybot314.ru/tekegram_catalog/

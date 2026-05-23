@@ -1,3 +1,85 @@
+###  Публикация: 1004879   (836409) от 07.04.2016
+
+Андрей Парабеллум и др. | Быстрые деньги в консалтинге (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сегодня, несмотря на большой спрос, рынок консалтинговых услуг малому и среднему бизнесу практически не заполнен, что, несомненно, является позитивным фактором для его освоения. Однако в условиях почти отсутствующей конкуренции важно не ошибиться в собственных действиях. И поможет вам в этом пошаговая инструкция от авторов книги, известных российских бизнес-лидеров, (   Читать дальше...   )Жанр: Бизнес-консалтинг и личностный тренингФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE7DA651EC18E324B953D288610404DA633ACD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004734   (836317) от 07.04.2016
+
+Терри Бэкон | Элементы власти: уроки лидерства и влияния (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что объединяет тип характера человека, его знания, репутацию, экспрессивность, привлекательность и сеть знакомств? Все это — источники власти. Их комбинация — ключ к лидерству и влиянию.
+Эта книга сочетает личный опыт автора и самые актуальные исследования на тему власти и влияния. Из нее вы узнаете:
+как люди обретают и теряют власть;
+как власть проявляется в организациях;(   Читать дальше...   )Жанр: Бизнес, ПсихологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC2CCC9CCDD387447CF4C3AF6333C03FC23FB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380076   (836099) от 01.05.2020
+
+Юлия Бадун | Бизнес библия для женщин (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первая книга о тонкостях и «подводных камнях» построения и ведения бизнеса, написанная именно женщиной-предпринимательницей.
+Описанная автором концепция при помощи привлеченных экспертов развеивает многочисленные мифы и предубеждения в бизнесе, стереотипы о бизнес-среде, а также деловом партнерстве мужчин и женщин, формируя пошаговую систему для ведения осознанного (   Читать дальше...   )Жанр: Стартапы и создание бизнесаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7580BD2EE980CE47A0554A9922255796E218FD58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004738   (836044) от 07.04.2016
 
 Рохит Бхаргава | Не очевидно. Как выявлять тренды раньше других (2016) [EPUB]
@@ -6,7 +88,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_834005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -143,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -169,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -196,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -222,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -249,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -276,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -302,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -330,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -357,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -383,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -409,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -435,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -462,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -488,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -540,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -566,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -592,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -604,84 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:443DCB847F1238D40CE94280930FDD8AE3D303A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381205   (829300) от 05.05.2020
-
-Брендан Кейн | Миллион подписчиков. Как раскрутить ваш аккаунт за 30 дней (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подойдут ли идеи и инструменты, которые работают при продвижении аккаунтов звезд, тем, кто начинает с нуля? Сможет ли человек, никогда не появлявшийся на телевидении, в кино или в СМИ, собрать миллионы подписчиков по всему миру? Чтобы это проверить, Брендан провел эксперимент – попробовал раскрутить свой собственный аккаунт. Меньше чем за месяц у него было уже больше (   Читать дальше...   )Жанр: Интернет-маркетингПеревод: Евгений ПивоваровФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A0E94B864D2BEFB18C7B0308653EEC418296F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381202   (829170) от 05.05.2020
-
-Дмитрий Лебедев | Деньги делают деньги. От зарплаты до финансовой свободы (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из составляющих свободы – финансовая независимость. Доход финансово свободного человека позволяет ему не думать постоянно о деньгах как о средстве существования. Дмитрий Лебедев написал эту книгу на основании собственного опыта обретения финансовой свободы и опыта своих клиентов, друзей и знакомых. Все примеры в ней реальны, все рекомендации конкретны и проверены. (   Читать дальше...   )Жанр: Личные финансы, Ценные бумаги, ИнвестицииФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F0DC72547011639468FB793D75FCB7617D8F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006414   (828494) от 11.04.2016
-
-Ирина Рыженкова | Профессиональные навыки менеджера. Повышение личной и командной эффективности [2-е издание] (2016) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о необходимых и полезных для менеджера навыках и умениях. Описание управленческих методик четко привязано к конкретным практическим задачам и проблемам, возникающим у менеджеров в ежедневной работе: при подготовке и проведении совещаний, переговоров, презентаций, а также при работе в команде. Материалы данной книги обеспечивают менеджеров новейшими (   Читать дальше...   )Жанр: МенеджментФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D21D9C51165209C5E68680DD1A18EBD34A4659
 ```
 
 https://mybot314.ru/tekegram_catalog/

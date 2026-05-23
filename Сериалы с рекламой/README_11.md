@@ -1,3 +1,55 @@
+###  Публикация: 1280987   (749695) от 09.02.2019
+
+Патрик Мелроуз / Patrick Melrose (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-5 из 5) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Патрик Мелроуз — плейбой, аристократ и алкоголик. Несмотря на деньги, жизнь Патрика сложно назвать легкой и безмятежной. Все детство ему пришлось терпеть жестокое отношение отца, пока мать предпочитала не вмешиваться. Подросший Патрик находит в себе силы пробраться в высший свет, но вместе с этим начинается его путь к саморазрушению.Производство: Великобритания, СШАЖанр: драмаРежиссер: Эдвард БергерАктеры: Бенедикт Камбербэтч, Дженнифер Джейсон Ли, Хьюго Уивинг, Себастьян Мальц, Джессика Рэйн, Прасанна Пуванараджа, Пип Торренс, Анна Маделей, Индира Варма, Гари Бидл и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: английскиеПродолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D45B41A4415E9C14B8443E605D154B526E9958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280991   (749601) от 09.02.2019
+
+Человек в высоком замке / The Man in the High Castle (2018) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-10 из 10) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Германия и Япония выиграли Вторую мировую. Америка разделена пополам между победителями, но, разумеется, спустя много лет после поражения (действие разворачивается в 1962-м) сознательные американцы организуют глубоко засекреченное подполье. Занимаются повстанцы в основном распространением странной кинохроники, на которой показана победа в войне союзнических войск. (   Читать дальше...   )Производство: США / Amazon Studios, Electric Shepherd Productions, Headline PicturesЖанр: фантастика, триллер, драмаРежиссер: Дэниэл Персивал, Карин Кусама, Брэд АндерсонАктеры: Алекса Давалос, Руперт Эванс, Люк Клеинтенк, DJ Куоллс, Джоэль де ла Фуэнте, Кэри-Хироюки Тагава, Руфус Сьюэлл, Ли Шортен, Чела Хорсдэл, Арнольд Чун и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английские, английские (SDH)Продолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E73F9E44F7E391A0B249EFB01ACE4DCBB0CBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281000   (749596) от 09.02.2019
 
 Острые предметы / Sharp Objects (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) AMS [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D9BC502A5B2D710D207AEECB8DD555B7CDCD4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528556   (734426) от 02.02.2022
-
-Не лги / Du sollst nicht lugen (2021) HDRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734426.jpg" />
-</div>
-
-
-###  Подробнее
-
-После ночи с Хендриком жизнь Лауры изменилась. На самом деле она даже не хотела встречаться с Хендриком, потому что совсем недавно пережила тяжёлый разрыв отношений. Кроме того, одинокий врач является отцом одного из ее учеников. И после волшебного вечера они оказываются в постели у Лауры дома. Однако на следующее утро следует тяжёлое пробуждение: у Лауры провал (   Читать дальше...   )Производство: Германия / Filmpool FictionЖанр: драма, криминалРежиссер: Йохен ФрейданкАктеры: Фелицитас Волль, Барри Атсма, Sophie Pfennigstorf, Шенке Мёринг, Фредерике Бехт, Гуннар Хельм, Стефани Хёнер, Джессика Макинтайр, Altamasch Noor, Тино Мевес и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео (2 бегущих строки), аудио вставки (2 короткие) рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CAC4722D316716E0B901C78D59CFCD0A1F5A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528975   (733489) от 04.02.2022
-
-Джек Ричер / Jack Reacher / Reacher (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ColdFilm [AD]
-
->>След.
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший военный полицейский Джек Ричер (Алан Ричсон) прибывает в провинциальный городок Маргрэйв в штате Джорджия. По приезде его тут же арестовывают по подозрению в убийстве местного музыканта. Ричеру придётся доказать невиновность и найти реальных преступников в городе, который насквозь прогнил от коррупции.Производство: США / Amazon Studios, Blackjack Films Inc., Paramount TelevisionЖанр: Боевик, триллер, драма, криминалРежиссер: Норберто Барба, М. Дж. Бассетт, Сэм ХиллАктеры: Алан Ричсон, Малкольм Гудвин, Уилла Фицджералд, Хью Томпсон, Кристофер Уэбстер, Брюс МакГилл, Макс Дженкинс, Гэвин Уайт, Лесли Фрэй, Джонатан КёнсгенПеревод: Многоголосый любительский (ColdFilm)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серияРеклама: Присутствуют рекламные вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BE810851E26CBD3BF30FD083D2C7AA83C497F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

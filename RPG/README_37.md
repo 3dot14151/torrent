@@ -1,3 +1,81 @@
+###  Публикация: 1327883   (252171) от 18.05.2023
+
+The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2012) [Ru/Multi] (3.5.0.26g) License GOG [Enhanced Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+«Ведьмак 2: Убийцы королей», вторая часть приключений профессионального охотника на монстров Геральта из Ривии, разворачивает зрелую, философскую историю - продолжение одной из наиболее детально проработанных ролевых игр, когда-либо выходивших для ПК. Пришло время невиданного хаоса. Могущественные силы сталкиваются в борьбе за власть и величие. Северные королевства (   Читать дальше...   )Тип издания: LicenseРазработчик: CD Projekt REDЖанр: Ролевая игра, Экшны, ФэнтeзиЯзык озвучки: Русский, Польский, Английский, Немецкий и другиеЯзык субтитров: Русский, Польский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Польский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC171828C48B9702D3366D7D1E398499D3C98ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634564   (252123) от 21.05.2023
+
+Greedventory (2023) [Multi] (1.0.2) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Greedventory - это захватывающий ролевой экшен, который проверит ваши навыки и нервы. Это не типичное путешествие героя - вам понадобятся молниеносные рефлексы и острый ум, чтобы выжить в мире, где всем правит Жадность. Пройдя через мир, полный магических артефактов и древних сокровищ, вы столкнетесь лицом к лицу с безжалостным братством, которое стремится заполучить (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Tower BasementЖанр: Ролевая игра, СраженияЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE59D914C648457A989E1BEA3F71C73CB98D1E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635688   (252004) от 27.05.2023
+
+The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064/dlc) Repack DjDI [Precious Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+The Lord of the Rings: Gollum - это официальная адаптация, основанная на литературных произведениях Дж. Р. Р. Толкина. Ему больше нечего терять… Как далеко он зайдет, чтобы вернуть свою Прелесть? Действие разворачивается одновременно с событиями, описанными в «Братстве кольца». The Lord of the Rings: Gollum - это приключенческая игра и эпический интерактив. В роли (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Action, Adventure, RPGЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64187B21493691E857CD54F8C10E749D28B8A6EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192586   (251879) от 31.05.2023
 
 Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.0b_update) License GOG
@@ -6,7 +84,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064) Scene FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ DELTARUNE (2025) [Ru/Multi] (1.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Citizen Sleeper 2 Starward Vector (2025) [Ru/Multi] (1.2.21/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -214,7 +292,7 @@ God of War (2022) [Ru/Multi] (1.0.13) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Swindle (2015) [En] (1.061) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Kung Fu Grand King (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.04.80648/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Repack DjDI [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.00.06.R293.8b7ed397/dlc) Repack DjDI [Digital
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Lost Eidolons (2022) [Ru/Multi] (1.00.06.R293.8b7ed397/dlc) Repack DjDI [Digital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E78D041C8304283AAB508D759561BB8628ADBCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421036   (225798) от 17.10.2022
-
-Stirring Abyss (2020) [Ru/Multi] (1.06.01) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stirring Abyss — пошаговая тактическая инди-игра с выраженными элементами РПГ, в которой вам предстоит раскрыть древние тайны глубин в антураже классических историй Говарда Лавкрафта. Вы командуете выжившим экипажем подводной лодки США «Салем», которая затонула в ранние годы холодной войны при выполнении сверхсекретной исследовательской миссии. Люди оказываются посреди (   Читать дальше...   )Тип издания: LicenseРазработчик: Sleepy Sentry, K-ProjectЖанр: Приключение, Ролевая игра, ТактическаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438BFBA0A4739EDE8C6E4493601E0ED71840FCAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584374   (224969) от 18.10.2022
-
-The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224969.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Последний Орикру» - это сюжетная экшн-РПГ, в которой вы окажетесь втянуты в противостояние двух рас на частично терраформированной планете, отделенной от космоса защитным барьером. Ваши решения привнесут в сюжет интересные повороты - вы можете напрямую повлиять на ход противостояния и его итоги. Вас ждут сотни жарких схваток в жестоком мире, где средневековье граничит (   Читать дальше...   )Тип издания: RepackРазработчик: GoldKnightsЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81EAE4CFB9C1ED473B9BF2788B867D202B4E717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612815   (224434) от 03.08.2023
-
-Knights of Braveland (2023) [Ru/Multi] (1.1.4.50/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гильдия Героев пришла в упадок. Злодеи победили и держат в страхе все королевство. Объединитесь со своими друзьями, чтобы восстановить замок гильдии и одолеть всех главарей. Каждое странствие создается из сотни особых событий, которые сложатся в неповторимую историю. Эльфийки откроют вам тайные тропы, а простой трактирщик вполне может оказаться оборотнем.Тип издания: SceneРазработчик: Tortuga TeamЖанр: Action, Adventure, Indie, RPGЯзык субтитров: Русский, Английский, Китайский, ПортугальскийЯзык интерфейса: Русский, Английский, Китайский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC492B914B6912AB13FAD2AC2F141D774FA1D11D
 ```
 
 https://mybot314.ru/tekegram_catalog/

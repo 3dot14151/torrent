@@ -1,3 +1,174 @@
+###  Публикация: 1099168   (907088) от 31.01.2017
+
+Gary Moore - G-Force (1980) Reissue, 1990, Victor [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. You (4:13)
+02. White Knuckles/Rockin' And Rollin' (5:10)
+03. She's Got You (4:58)
+04. I Look At You (6:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC2D27E98BFDFF278C55213BB3EFF1CE72BDF04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299046   (906760) от 27.08.2021
+
+Poison - 13 аlbums, 18 CD (1986-2013) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Poison - американская глэм-рок и хард-рок группа, образованная в 1983 году. Наибольшего успеха и популярности группа достигла в конце 80-х, начале 90-х годов. С гитаристом Richie Kotzen в 1993 году был записан альбом «Native Tongue». Работа вызвала шквал положительных рецензий.  В 2007-м группа выпустила интереснейший свой первый кавер-альбом, «Poison’d», в который (   Читать дальше...   )--------------------------
+
+01. Talk Dirty To Me (3:46)
+02. I Won't Forget You  (3:36)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock |Продолжительность: 16:55:09 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15FE326BBBAB473DEE50278479726A142FC290A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099521   (904894) от 01.02.2017
+
+Midnite Club - Circus Of Life (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01|  Circus  (04:03) 
+02|  Afraid Of Love  (04:49) 
+03|  Promises Remain  (04:37) 
+04|  Behind My Eyes  (03:15) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990EE68B990D644441BF06C65E9BF2E113CEB533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492185   (904016) от 29.08.2021
+
+Trance - 2 Studio Albums (2017-2021) 2xCD [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Trance, основанные в 1974 году, принадлежит к пионерам немецкого Hard Rock и Heavy Metal. В то время парни были заняты под именем Tribut, прежде чем сменить название группы на Trance. Некоторые проблемы с менеджментом и другие вопросы не очень помогли поддержанию успешной карьеры, что привело к прекращению деятельности в 1998 году.
+
+Лидер группы, гитарист Маркус (   Читать дальше...   )2017 - The Loser Strikes Back
+2021 - Metal ForcesЖанр: Hard Rock, Heavy MetalПродолжительность: 01:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4511C098A8E9D1257B33B4B1AD2B5A59673A8D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099609   (903366) от 02.02.2017
+
+Black Star Riders - Heavy Fire (2017) Limited Edition [FLAC|Lossless|tracks]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+[04:28] 01. Heavy Fire
+[03:16] 02. When The Night Comes In
+[03:21] 03. Dancing With The Wrong Girl
+[04:20] 04. Who Rides The Tiger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6948EC239AF45DF30B46A99B5A3B937617A326CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992102   (902583) от 01.03.2016
+
+Tony Carey  - Retrospective: 1982-1999 (2000) [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Rock, Hard RockПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0F4515A6C18837C7376A720798790F207C3BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991947   (902435) от 01.03.2016
 
 Gorky Park ‎ - The Best (1999) Compilation [FLAC|Lossless|image + .cue] <Rock , Hard Rock>
@@ -6,7 +177,7 @@ Gorky Park ‎ - The Best (1999) Compilation [FLAC|Lossless|image + .cue] <Rock 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +206,7 @@ FM - Indiscreet 30 (2016) Reissue [FLAC|Lossless|image + .cue] <AOR, Arena Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +235,7 @@ Dario Mollo's Crossbones - Rock The Cradle (2016) Japanese Edition [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +264,7 @@ Black Sabbath - The Ultimate Collection (2017) 2CD Compilation remastered [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +293,7 @@ Bridgeville - Aftershock (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +322,7 @@ Night Ranger - High Road (2014) Japanese Deluxe Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +351,7 @@ Night Ranger - 35 Years And A Night In Chicago (2016) Live [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +380,7 @@ Foreigner - 6 альбомов (1977-1987) Remaster /2007, Atlantic/ [APE|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +409,7 @@ BlackOwl - Fly Away (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +438,7 @@ Van Halen - 5150 (1986) [APE|lossless]<Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +464,7 @@ Sven Larsson - 2 альбома (2010-2012) [FLAC|Lossless|image + .cue] <Westco
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +492,7 @@ Gotthard - #13 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +521,7 @@ Degreed - Dead But Not Forgotten (2015) [FLAC|Lossless|image + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +550,7 @@ Apollo - Waterdevils (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -408,7 +579,7 @@ Monkeyhead - Monkeyhead (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +608,7 @@ Billy Rankin - Growin' Up Too Fast (1984) Reissue, Remastered, 2002, Zoom Club R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -466,7 +637,7 @@ Black Stone Cherry - The Human Condition (2020) Deluxe Edition, 2021, Mascot Rec
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -495,7 +666,7 @@ Black Sabbath - Paranoid (1970) 4CD Super Deluxe, Reissue, Remastered 2016 [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -524,7 +695,7 @@ Grand Funk Railroad - 10 Albums (1969-1976) Collection /2002,2003 Capitol Record
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +724,7 @@ Horisont - About Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -567,175 +738,6 @@ Horisont - About Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDEAEC688D31BF19633E4CC06C915D06F5E38ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371603   (888708) от 01.04.2020
-
-Valentine - 2 альбома (1990-2008) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1997 - Hugo
-2000 - Time On Earth
-2004 - Fire In The NightЖанр: Melodic Hard RockПродолжительность: 02:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B3369DF3BFE76C8B32715F132E2CB7ED503CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371527   (888570) от 01.04.2020
-
-Robert Berry - 5 альбомов (1994-2008) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1993 - Pilgrimage To A Point
-1994 - In These Eyes
-1995 - Takin' It Back(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5462E618F9E4290B2B81B1A0355DFB1B1F813DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371600   (888363) от 01.04.2020
-
-Ramos-Hugo - The Dream (2008) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824185504743B21FC90F64D0C2A4873BC7F23655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371617   (888354) от 01.04.2020
-
-Hugo - 3 альбома (1997-2004) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1997 - Hugo
-2000 - Time On Earth
-2004 - Fire In The NightЖанр: Melodic Hard Rock, AORПродолжительность: 02:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A30677690344E8376FDEEFB12DC35E68C2AB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103173   (887903) от 11.02.2017
-
-Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Jamieson Intro (00:19)
-02. Insatiable (04:00)
-03. Caught In The Middle (04:01)
-04. Touch  (03:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE657D1D994492958E1E13687A73D0A3EA1C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103149   (887701) от 11.02.2017
-
-Thunder - Wonder Days (2015) Limited Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предтечей "Thunder" был проект "Nuthing Fancy", появившийся в Лондоне в конце 70-х, в котором играли вокалист Дэнни Боус, гитарист Люк Морли, басист Мак Маккензи и ударник Крис Хасси. Эта формация выпустила один сингл и в начале 80-х сменила вывеску на "Terraplane". Под новым названием коллектив оказался более плодовитым и выпустил ряд (   Читать дальше...   )CD 1 - Wonder Days
-CD 2 - Live At Waken 2013Жанр: Melodic Hard RockПродолжительность: 01:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F071BE9DEB3979625FA78B1B0494C14C2E01A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

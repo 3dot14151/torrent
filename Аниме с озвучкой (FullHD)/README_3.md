@@ -1,3 +1,84 @@
+###  Публикация: 1439036   (1028754) от 27.02.2021
+
+Клетки за работой!! [ТВ-2] | Hataraku Saibou!! [TV-2] [2021, TV, 08 из 08] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эта история о вас.
+Эта история о вашем теле.
+По последним данным человеческое тело состоит из приблизительно 37 триллионов клеток. Каждая из них неустанно работает на благо своего мира, который мы называем своим телом.
+Эритроциты разносят кислород, лейкоциты сражаются с бактериями… Всевозможные клетки исполняют свой долг невзирая на любые трудности.(   Читать дальше...   )Производство: Япония, студия David ProductionЖанр: приключения, комедияРежиссер: Огура ХирофумиЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 08 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3BD4C2E9664F4ABE3C75ADADD3F9E1BDBBF9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453828   (1026274) от 14.03.2021
+
+Death Note | Тетрадь Смерти [2006, TV, 37 из 37] BDRip 1080p raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У старшеклассника Лайта Ягами в жизни есть всё: успехи в школе, популярность среди сверстниц, замечательные родители, блестящее будущее. Возможно, поэтому так тяжело ему жить в мире, полном несправедливости, и осознавать, что никакие законы не способны исправить людей – и очистить мир от зла. Но однажды юноша находит странную чёрную тетрадку и знакомится с её владельцем (   Читать дальше...   )Производство: Япония, Madhouse StudiosЖанр: Аниме, Мистика, Триллер, Детектив, ДрамаРежиссер: Тэцуро Араки, Наоясу Ханьюй, Томохико ИтоЯзык озвучки: Русский, Английский, ЯпонскийСубтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 37 серий по ~23 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92632903787ACFAFF49C7DE7E4D777D4EEE11C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438585   (1025514) от 19.03.2021
+
+Клетки за работой! КОД: ТЬМА | Hataraku Saibou Black [TV-1] [2021, TV, 13 из 13] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Юный эритроцит каждый день неустанно разносит кислород по телу. Но среда, где ему приходится работать, объята непроглядной тьмой… Алкоголизм, курение, стресс, нехватка сна… Что думают клетки, которые до изнеможения работают в мире, похожим на разваливающийся завод? Эта история о вашем теле…Производство: Япония, студия Liden FilmsЖанр: Боевик, Драма, КомедияРежиссер: Ямамото ХидэёЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8888FCFCE02C92A315C7B454760F0C53C083AF18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416989   (1025507) от 19.03.2021
 
 Higurashi no Naku Koro ni: Gou / Higurashi: When They Cry - Gou / Когда плачут цикады (2020) [2020, TV, 24 ep] WEB-DL 1080p Rus
@@ -6,7 +87,7 @@ Higurashi no Naku Koro ni: Gou / Higurashi: When They Cry - Gou / Когда п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +166,7 @@ Dr. Stone: Stone Wars / Доктор Стоун [ТВ-2] [2021, TV, 11 ep] WEB-D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +221,7 @@ Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +299,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +378,7 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриот Мориарти [ч
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +404,7 @@ Domestic na Kanojo | Домашняя девушка [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +430,7 @@ Sankarea | Санка Рэа [2012, TV, 12 эп. + 1 SP +2 OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +456,7 @@ Btooom! | Взрыв! [2012, TV 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +482,7 @@ Rosario to Vampire | Розарио + Вампир [TV1 + TV2] [2008, TV, 26 э�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +534,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +560,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +586,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +612,7 @@ Ishuzoku Reviewers | Interspecies Reviewers | Межвидовые реценз�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +638,7 @@ Enen no Shouboutai | Пламенная бригада пожарных [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +664,7 @@ Obsolete (2020) | Устаревший (2020) [2020, Web, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -594,84 +675,6 @@ Obsolete (2020) | Устаревший (2020) [2020, Web, 6 из 6] BDRip 1080p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0448CE07EC0F0AD0707E0312A6E687481717631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465785   (1018689) от 28.04.2021
-
-Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2014 году инопланетяне предстали перед человечеством и предложили сделку. За каждую тонну известняка они пообещали дать людям одну мощную боевую единицу под названием Exoframe — это трёхметровая меха, которая эффективнее, дешевле и проще в эксплуатации, чем какое-либо другое оружие землян. После этого «бартера» обстановка на Земле начала стремительно меняться. (   Читать дальше...   )Производство: Buemon / 武右ェ門Жанр: приключения, фантастика, мехаРежиссер: Сирато СэйитиЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 6 эп. по 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9BA4523FC3A1BB99A56512E1E9B08244C0A29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467040   (1017882) от 03.05.2021
-
-Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычному старшекласснику Канамэ Судо приходит сообщение с приглашением в загадочную мобильную игру «Darwin's Game». Стоило ему запустить приложение, как он стал частью игры, в которой игроки сражаются между собой, причём каждому из них дана сверхъестественная способность — сигил. Сможет ли Канамэ победить сильных противников и выжить в игре, где цена ошибки — смерть? (   Читать дальше...   )Производство: Студия NexusЖанр: приключенияРежиссер: Токумото ЁсинобуЯзык озвучки: Японский, РусскийСубтитры: #1: Русские, ASS, Полные+надписи |Продолжительность: 11 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82FC12BD517C9CC6F7806BFB61F3B581D2FB83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467241   (1017868) от 03.05.2021
-
-Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не любит [2020, Movie] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый рассуждает о любви по-своему. Для Юны романтика превыше всего, в то время как Акари чересчур приземлённа и практична в своих взглядах. Но девушки есть девушки. А что насчет парней? Те, оказывается, недалеко ушли от своих подруг. У Кадзуоми ветер в голове, и парень будто ничего не смыслит в вопросах любви. А вот Рио времени зря не теряет и не упускает ни одной (   Читать дальше...   )Производство: A-1 PicturesЖанр: комедия, романтикаРежиссер: Куроянаги ТосимасаЯзык озвучки: японский, русскийСубтитры: отсутствуютПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD58687280A182E51309C37D9BCF01A2A8B5FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1032132   (645955) от 07.07.2016
+
+VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rocketpunk - The Warning Wheel
+02. Dr. Ruth - Piano Sonata (Benny Knox Remix)
+03. Circuito Zeta - En Directo
+04. Mario Sacco DJ - Frenesia(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906367   (645539) от 08.06.2015
+
+VA - Ibiza Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Reston - I'm Sending You (03:36)
+02. Blackman - Everybody (Nu York Lights Mix) (03:36)
+03. Don Major - At Sunset (03:35)
+04. Frank Scozzi - Unconsciousness Without Limits (03:33)(   Читать дальше...   )Производство: Liquid Lounge RecordingsЖанр: Deep HouseПродолжительность: 01:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE2B509E8B78F5FFB620D8D7FD9A09AD9E892DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142069   (644860) от 13.06.2017
+
+VA - We Are The Night: Best Of The Clubs (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.  United States Of Dance - We Are The Night (Extended Mix)  4:57
+02.  Michael Ruland - Dreamer (Ibiza Dub Mix)  6:39
+03.  Mykel Mars - L.A. Nights (Paul Aus Berlin Remix)  5:12
+04.  Dedsec Crew - Big Boys Party (San Francisco Mix)  4:56(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F0EB00DC740603C329D381E3568F1272EDAB0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142113   (644858) от 13.06.2017
 
 VA - Best Of Deep House Vol.04 (2017) [MP3|320 Kbps] <House, Deep House>
@@ -6,7 +93,7 @@ VA - Best Of Deep House Vol.04 (2017) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Tropical Highlight - Regressive Life (EP) - 2011 /PND 0084/ [MP3|320 kbps]<Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_643969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +148,7 @@ VA - Deephouse Top 100 Vol.8 (2019) 2CD [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +177,7 @@ VA - Hed Kandi Pres: Beach House (2011) /HEDK110/ [MP3|320 kbps]<Tech House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_641642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +203,7 @@ VA - Stay In Ibiza 2017 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +232,7 @@ VA - Maxxx Power Tunes Vol 1 (Maximum Music for Maximum Power) (2017) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +261,7 @@ VA - Vocal House Essentials 2018 (Mixed by Vin Veli) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -203,7 +290,7 @@ VA - Champagne Lounge Deep House (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -232,7 +319,7 @@ VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -261,7 +348,7 @@ VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -290,7 +377,7 @@ VA - Clubfete 2017.02 (63 Summer Club & Party Hits)  [MP3|320 Kbps] <Funky, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +406,7 @@ VA - House of Love Vol. 1 (2015) [MP3|320 кб/с]<House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +435,7 @@ VA - Ibiza Chill House Sensations (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +464,7 @@ VA - Be Spa EP (2016) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +493,7 @@ VA - Friends Connection 3: Odd Machinery (Mixed By Nightbob) (2018) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +522,7 @@ Michael Rehulka - Balearic Soul (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +551,7 @@ VA - Ibiza Tech House Dance Sounds (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +580,7 @@ Various Artist - Ibiza 2012 Back to the Island (2012) [MP3|320 кб/с]<Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +644,7 @@ Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - 5 Years Of Claremont 56 Compiled Edited & Mixed By The Idjut Boys (2012) [M
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,7 +708,7 @@ VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -650,7 +737,7 @@ VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -664,99 +751,6 @@ VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4B072089AA96B4693CDDB53A9D31C45B7D06308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034054   (634367) от 13.07.2016
-
-VA - A House Is Not A Home Without A Dog #01 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634367.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roland'Sousa - Feeling This Music (7:19)
-2. Andy Caz - Morning Theme (8:11)
-3. Fragoso - Mint (7:28)
-4. Ruben B Goode - Mind & Soul (6:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A1829ECAF64FA48A3BE657C90B842618C6A4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519134   (633884) от 08.07.2012
-
-VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazem Beltagui - Macarize (Intro Mix) 06:36
-02. Alandanat - Voyager (Original Mix) 07:08
-03. Outlook - Airplane (Original Mix) 06:30
-04. Aleksey Yakovlev - Space Odyssey (Original Mix) 07:08
-05. Eximinds - August (Original Mix) 07:56
-06. Mick Elsa - Significant Others (Original Mix) 08:07
-07. Vitodito - Pisha (Original Mix) 06:42
-08. Allan V. - What If (Original Mix) 07:56
-09. Michael Elliot - Pool Splash (Original Mix) 08:00
-10. Domestic Technology - Californian (Original Mix) 05:44Жанр: Progressive HouseПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB4446902292901A5084B5B1F4D23F22B097AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907606   (633864) от 14.06.2015
-
-VA - Deep House Ibiza - Vol 1 (2015) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pirupa - I can C through U feat. Manuela - Original Mix (06:16)
-02. Barbara Tucker - You Want Me back - Paolo Madzone Zampetti 2015 Vibe Rmx (06:40)
-03. BAG - Back It Up feat. Taka Boom - Rickie Snice Rmx (06:25)
-04. Paolo Madzone Zampetti - Close Your Eyes - Original Mix (07:03)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7A75A9D9011322EEC53C8F01CCCB1B633C458
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,188 @@
+###  Публикация: 477542   (86196) от 03.04.2012
+
+Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Выступление Red Hot Chili Peppers на фестивале Rock In Rio 2011.01. Monarchy Of Roses
+02. Can't Stop
+03. Charlie
+04. Otherside
+05. Look Around
+06. Dani California
+07. Under The Bridge
+08. Factory Of Faith
+09. Throw Away Your Television
+10. Pea(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: 01:42:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477555   (86175) от 03.04.2012
+
+Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+30-го августа, в день выхода новой пластинки RHCP “I’m”With You” музыканты исполнят весь альбом полностью на концерте в Кёльне... Посмотреть прямую трансляцию концерта поклонники могли в кинотеатрах 39 стран мира, в том числе в США, Аргентине, Чили, Бразилии и странах Европы. В Москве трансляция шла в клубе «16 тонн»... Red Hot Chili Peppers была основана в Калифорнии в 1983 году. С тех пор коллектив продал более 60 миллионов копий своих альбомов...01. Monarchy of Roses
+02. Factory of Faith
+03. Brendan's Death Song
+04. Ethiopia
+05. Annie Wants a Baby
+06. Look Around
+07. Frankenstein (Edgar Wiliams cover)
+08. The Adventures Of Rain Dance Maggie
+09. Jam
+10. Did I Let You Know (with Michael Bulger on trumpet)(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: Видеокодек: MPEG-2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477653   (86121) от 03.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 03 Пиратская Вечеринка 4.28Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477679   (86120) от 03.04.2012
+
+Кто есть кто? (1977) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по пьесе Григория Горина.
+
+В день 40-летия доктора наук, директора НИИ Андрея Андреевича Щукина к нему в дом приходит некто Щагин и заявляет, что Щукин - это он, и все заслуги настоящего Щукина по праву принадлежат ему, потому что в роддоме их перепутали. Он доказывает Андрею Андреевичу, что все его достижения не результат таланта и способностей, а (   Читать дальше...   )Жанр: комедия, спектакльРежиссер: Марк РозовскийПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1FB90FA0E756975B5D213A3C7D46781331846C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476909   (85969) от 02.04.2012
+
+B.B. King: Live (2006) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Запись представляет собой снятый в течение четырех ночей в собственном клубе короля блюза в Нэшвилле и Мемфисе и Теннесси, группы B.B. King Blues Band, которая выступала вместе с ним во всем мире. Сама природа блюза это импровизация, и B.B. King, король импровизации. Он играет то, что он чувствует, и чувствует, что он играет, и публика в восторге от его игры. В своей 52-летней карьере он сделал свыше 15 тысяч представлений, охватывая 300 концертов в год во всем мире.01. Manhattan Blues (by B.B. King's band)
+02. Two I Shoot (by B.B. King's band)
+03. Why I Sing The Blues
+04. I Need You So
+05. Bad Case Of Love
+06. Blues Man
+07. When Love Comes To Town
+08. All Over Again
+09. Ain't That Just Like A Woman
+10. A Whole Lot Of Loving(   Читать дальше...   )Жанр: BluesПродолжительность: 01:52:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477147   (85945) от 02.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 02 Пиратская Вечеринка 4.25Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476649   (85784) от 01.04.2012
 
 Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
@@ -6,7 +191,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +217,7 @@ Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +246,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +301,7 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -177,7 +362,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -206,7 +391,7 @@ Iron Maiden: En Vivo! (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -232,7 +417,7 @@ Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -258,7 +443,7 @@ Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +479,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +508,7 @@ Iron Maiden - En Vivo! (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +561,7 @@ Angel Voices. Libera in Concert(2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -436,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -462,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -488,7 +673,7 @@ Monsters of Metal Vol.8 (2012) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -523,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +742,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,174 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470204   (83095) от 19.03.2012
-
-Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria
-02. Silent Night
-03. When A Child Is Born
-04. Sweeter The Bells(   Читать дальше...   )Жанр: New AgeРежиссер: Frank Peterson (for Nemo Studios)Актеры: Richard Naxton, Johnny Clucas, Dan Hoadley, Christopher Tickner, Gerry O'Beirne, Rob Fardell, Jan-Eric Kohrs, Lawrence White, Gunther Laudahn, Richard CollierПеревод: ОтсутствуетПродолжительность: 01:22:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470281   (83066) от 19.03.2012
-
-Мегамикс Philizz Video YearMix 2011. Пиратская Вечеринка HD x264 1080p 6,64Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
-И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2011! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 57 мин 51 сек (00:57:51)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A9B43AA7475B8BCE9EE20C0BFCBAAB2DC0C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470049   (82932) от 18.03.2012
-
-Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray x264 DTS 1080p 13Gb
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Видеоклипы Digital Musical Rays-Vol 01 20101: Hindi New Songs. И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра Blu-Ray!
-
-Данный релиз для тех, кому не "по карману" оригинал 36,3 Gb: Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray DTSЖанр: TV, Video, Popular music, Pop musicПеревод: Не требуетсяПродолжительность: 2 часа 53 мин 13 сек (02:53:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469119   (82805) от 18.03.2012
-
-Дядюшкин сон / БДТ им. Товстоногова (2011) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Санкт-Петербургского Большого Драматического театра им.Товстоногова.
-
-В маленький провинциальный городок Мордасов приезжает престарелый богатый князь, которого местная светская "львица" Марья Александровна Москалева решает женить на своей красавице дочери Зиночке, в которую был влюблён Павел Александрович, племянник князя.
-(   Читать дальше...   )Жанр: трагикомедия, спектакльРежиссер: Темур ЧхеидзеПродолжительность: 01:21:04 + 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469028   (82706) от 17.03.2012
-
-UK Top 40 Music Video Hits Febuary 2012 (DVD5)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Gotye Feat Kimbra - Somebody That I Used To Know
-02 David Guetta Feat Sia - Titanium
-03 Will.I.Am Feat Mick Jagger & Jennifer Lopez - T.H.E. (The Hardest Ever)
-04 Jessie J - Domino(   Читать дальше...   )Жанр: Музыка (видеоклипы)Перевод: ОтсутствуетЯзык субтитров: нетПродолжительность: 02:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468309   (82271) от 15.03.2012
-
-Приключения Электроников - Клипы [2001-2011, Pop-Punk, DVDRip,TVRip,WEBRip] [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключе́ния Электро́ников — российская панк-рок-супергруппа. «Приключения Электроников» не исполняют собственных песен (за исключением песни "Уходит детство") — исключительно кавер-версии песен из советских детских фильмов, мультфильмов и просто хиты тех лет.Жанр: РоссияПродолжительность: 00:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88AF25AF57C898C9E75416342D5E3A5641B1C85
 ```
 
 https://mybot314.ru/tekegram_catalog/

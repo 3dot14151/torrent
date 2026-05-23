@@ -1,3 +1,134 @@
+###  Публикация: 1802729   (14080) от 19.06.2025
+
+Шрифты - joliciatype - Envato - Laire Sans 40 Font + Variable Font - Z98P5DT [TTF, OTF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Laire Sans имеет 40 стилей обычных, сжатых и наклонных шрифтов с насыщенностью от тонкого до очень черного, имеет в общей сложности 693 знака, также доступна кириллица.Формат: TTF, OTF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDD98894930D41162A5201FF6DEF02D442E782F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803569   (13669) от 23.06.2025
+
+Шрифты - Eric_Burntilldead - Envato - Malevice Inkbleed - AT2H7UX [TTF, OTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с поддержкой кириллицы, с гладкими закругленными краями и эффектным эффектом чернильного отблеска. Этот шрифт с 9 различными значениями толщины от тонкого до черного позволяет легко создавать смелые и яркие дизайны. Эффект чернильных пятен придает винтажный и классический оттенок, сохраняя при этом свежесть и уникальность.Формат: TTF, OTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165AD4B3095C61127FBDDD971C50E0000AF54E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803436   (13666) от 23.06.2025
+
+Шрифты - Alexander Pravdin - Behance - Bezier Sans - 147898999 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный для персонального пользования шрифт с кириллицей в пяти вариациях.
+Материал раздаётся с официальной документацией.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E178B79962F213F380C56A831E538785BE1817C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803439   (13665) от 23.06.2025
+
+Шрифты - Alexander Pravdin - Behance - SONGER - 62260557 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное для персонального пользования акцидентное семейство с кириллицей низкоконтрастных "монолайн" шрифтов, с овальными формами и прямыми окончаниями терминалов в 15 вариациях. Символы закрыты и имеют расширенные внутрибуквенные просветы. Вторичные элементы, вроде пунктуации и диакритики намеренно подчеркнуты. В контурах присутствует умеренная оптическая (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFE860CE25620324F2E79B0F53F513F29DD422A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803440   (13664) от 23.06.2025
+
+Шрифты - Alexander Pravdin - Behance - Comic Helvetic - 86895479 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт в трёх вариациях, содержит расширенные символы латиницы и кириллицы. Проект, вдохновленный шрифтами "Comic Sans" и "Helvetica".Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432DA97C62A96F38C1FD918F1639853E552DF331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803574   (13577) от 24.06.2025
 
 Шрифты - Sentavio - Envato - Ronald Gunfire Serif Font Family - UQMZEGL [OTF, EOT, SVG, WOFF, WOFF2, TTF]
@@ -6,7 +137,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -544,138 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB14DD8F40C5C855C289C7B4EDFF99B7B28F8683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806944   (11301) от 16.07.2025
-
-Шрифты - Behance - Ravid Balaliev - Vela Sans - 118694463 [OTF, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vela Sans - это модификация шрифта Manrope font project. Vela Sans - это бесплатное семейство современных шрифтов grotesque. Он поддерживает латиницу, кириллицу и греческий языки.
-Материал раздаётся с официальной документацией.Формат: OTF, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D5B5CD04D3D255D2D28AF29810C5A161F59C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806952   (11298) от 16.07.2025
-
-Шрифты - Behance - Ilya Zherikov - Oks [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей, создан на основе популярных в 60-е гг. буквенных форм (см., например, надписи на станциях метро «Таганская» и «Коломенская» московского метрополитена), но в своём развитии отошёл достаточно далеко от прототипа.
-Материал раздаётся с официальной документацией.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BA89051B9FCFD23CDFD17CEA032743502BB3EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807244   (11186) от 17.07.2025
-
-Шрифты - MyFonts - Tanguera [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11186.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как «другой» взгляд Bellas Artes, Козиупы и Пола на переплетение классицизма в каллиграфии можно сравнить с повторяющимися узорами стандартизированных танцевальных движений, Tanguera скорее напоминает танцоров, исполняющих свободную форму классического аргентинского танца. Независимо от того, открыты объятия или закрыты, шаги параллельные или перекрещивающиеся, (   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94728DD852FCF582DA25459BCCB310F0348723E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807849   (10793) от 21.07.2025
-
-Шрифты - Behance - Bohdan Hdal - Vernyhora Font Family 2.0 - 57510467 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей 6 стилей.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E78C4DEF971B3A6A784A8B324A1DB091686016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807848   (10763) от 21.07.2025
-
-Шрифты - Bohdan Hdal - Koziyar - Mod By He Rez AD [OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей, возникший благодаря Александру Столовому-киевскому архитектору, который очень любит свою малую родину-село Козиевка на Харьковщине. Александр всячески пытается пропагандировать село, рекламирует местную традицию навоза слив, как архитектор сделал скульптуры для Козиевки, продвигает идеи правильного ландшафтного дизайна в общественных местах.Формат: OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6EC1399470239D0C5CBF92B153A4EC2F7BA714
 ```
 
 https://mybot314.ru/tekegram_catalog/

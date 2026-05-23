@@ -6,7 +6,7 @@ Velaya - Geschichte einer Kriegerin / Велая - сказание о воит�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +58,7 @@ Diablo: Hellfire - The Hell 2 (2019) [En] (1.2504) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +84,7 @@ BioShock Infinite (2013) [Ru] (1.0) Unofficial [Русификатор]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +110,7 @@ Resident Evil 3: Nemesis / Обитель Зла 3 (1999) [Ru/En] (1.1.0) Repack
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +136,7 @@ Command & Conquer Generals Zero Hour: World War II (2013) [Ru/En] (0.27) Repack/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +162,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +188,7 @@ Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+/0.95) Repack/Mo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Elder Scrolls IV: Oblivion - Oblivion Association: Era of Change HD (2006) [
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +240,7 @@ Heroes of Might and Magic III: Horn of the Abyss / Герои меча и маг
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +266,7 @@ Blood: One Unit Whole Blood (1998-2016) [En] (12.2016) Repack/Mod 1nomok [BloodC
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +292,7 @@ Descent + Descent II (1995-1996) [Ru/En] (0.58-1/dlc) Mod [DXX Rebirth]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +318,7 @@ Heretic HD PBR (2023) [Ru/Multi] (1.2) Repack/Mod Other s
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +344,7 @@ True Stalker (2023) [Ru/Multi] (1.5) Repack/Mod AP-PRO Team
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +370,7 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +396,7 @@ Return to Castle Wolfenstein (2020) [Ru/Multi] (5.2-final-1/dlc) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +448,7 @@ Quake II: Add-on Mod Pack (1997) [En] Repack/Mod firstlast2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +474,7 @@ XCOM: Area 51 (2016) [Ru/En] (0.971) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +500,7 @@ XPiratez - Labyrinthus Noctis (2024) [Ru/En] (N8) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +526,7 @@ X-Com: From the Ashes (2022) [Ru/En] (0.1.0.3) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +552,7 @@ Xeno Operations Legacy (2024) [Ru/En] (0.97.06) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +578,7 @@ Legend of Ahssun / Легенда об Ахссуне (2018) [Ru/Multi] (1.2) Mo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +604,7 @@ Need for Speed: Undercover PR 7.7 (2024) [Ru/Multi] (1.0.0.1/252136) Repack/Mod 
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +630,7 @@ Need for Speed: ProStreet HD (2024) [Ru] (1.1) Repack/Mod Финиган
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -656,7 +656,7 @@ Wolfenstein 3D (1992-2020) [En] (2.01.2020) Repack/Mod 1nomok [Beyond the Grave:
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 946674   (144358) от 28.12.2015
+
+Rakudai Kishi no Cavalry / Rakudai Kishi no Eiyuutan / Chivalry of a Failed Knight / Благородство Худшего Рыцаря [2015, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мощь страны определяется числом и силой рыцарей-магов, и тут Япония, как и положено, впереди планеты всей. Именно поэтому в рыцарскую школу Хагун приезжает учиться Стелла Вермиллион по прозвищу Алая Принцесса – дома талантливая девушка достигла потолка, а в стране Ямато сильных соперников хоть отбавляй, есть куда расти. Каково же было удивление 15-летней наследницы (   Читать дальше...   )Жанр: приключения, школа, этти.Режиссер: Онума СинПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975F04BF72B3ED92713A71DFA46687E69F8CEBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061240   (144048) от 28.12.2016
+
+Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: триллер, мистика, сэйнэнСубтитры: русские внешниеПродолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635FE3EB79165A6412BC61B744F68F170172FEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059704   (144013) от 28.12.2016
+
+Touken Ranbu: Hanamaru / Дикая пляска мечей: Ханамару [2016, TV, 12 из 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+2205 год. «Историки-ревизионисты» задумали натурально изменить историю и с этой целью совершают «атаки на прошлое». Санива, чьей задачей является защита истории, может наделять жизнью неживые объекты, самые сильные из которых — «парни-мечи». Сериал рассказывает об их беззаботной повседневности.Производство: Студия Dogakobo / 動画工房Жанр: приключенияРежиссер: Наоя ТакасиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397BE8830923ED9F4364C1FD769133FEF003EBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061121   (143958) от 28.12.2016
+
+Watashi ga Motete Dousunda / Kiss Him, Not Me / Целуй его, а не меня [2016, TV, 12 из 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня — жирная фудзёси по имени Кае Серинума, которая не может нормально смотреть на общающихся между собой парней: в её голову сразу лезут всякие яойные фантазии. В один прекрасный день в жизни фудзёси случается страшное: погибает любимый персонаж аниме, и из-за переживаний по этому поводу она теряет пару десятков килограммов. Из-под слоёв жира появляется (   Читать дальше...   )Производство: Студия Brains Base / ブレインズ・ベースЖанр: комедия, сёдзёРежиссер: Исиодори ХиросиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF00BF889804E1626CABFE721DAF9B25C5298FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060693   (143779) от 28.12.2016
 
 Drifters | Скитальцы [2016, TV, 12] HDTV 720p raw
@@ -6,7 +110,7 @@ Drifters | Скитальцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes | Как госпо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Sora to Umi no Aida | Between the Sky and Sea | Между небом и мор�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Conception / Зачатие [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Keijo!!!!!!!! / Кейджо !!!!!!!! [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Kino no Tabi: The Beautiful World - The Animated Series | Kino`s Journey: The Be
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Code:Realize Sousei no Himegimi | Код понимания: Страж пере
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Элег�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +397,7 @@ Assault Lily: Bouquet | Штурмовая Лилия: Букет [2020, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Golden Kamuy (2020) | Золотое божество [ТВ-3][2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Visual Prison | Визуальная тюрьма [2021, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Iwa Kakeru! Sport Climbing Girls | Скалолазки [2020, TV, 12 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Mama wa Shougaku Yonensei / Mama is a 4th Grader / Мама-четверокла
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Anitore! EX / Anime de Training! EX / Тренировки с аниме! [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Magic-Kyun! Renaissance / Магия-кюн: Ренессанс [2016, TV, 13 и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +607,7 @@ Ushio to Tora / Усио и Тора [ТВ-1] [2015, TV, 26 из 26] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +633,7 @@ Sono Toki, Kanojo wa. | И тогда она... [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +659,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,110 +670,6 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE60E07336E6BEECD61D0CC7714FAE693176879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252948   (141801) от 28.12.2018
-
-Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream of Bunny Girl Senpai / Эта глупая свинья не понимает мечту девочки-зайки! [2018, TV, 13] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сакута Азусагава — обычный старшеклассник, который в один прекрасный день видит перед собой девушку в костюме кролика. Он узнаёт, что девушка — его сенпай по имени Май Сакурадзима, которая также является известной актрисой, на данный момент прервавшей карьеру. Но это ещё не самое странное, люди просто перестали её видеть из-за некоего загадочного «синдрома полового (   Читать дальше...   )Жанр: комедия, романтика, драма, мистикаРежиссер: Соичи МасуиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9399C0D8A7CF332CC74932B2A5E023D0A3E8D94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520502   (141783) от 28.12.2021
-
-Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового глаза [2021, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виви - первый человекоподобный искусственный интеллект. Созданная для увеселения посетителей парка развлечений, она встречает Мацумото, ещё одного ИИ, пришедшего из будущего, и её жизнь меняется. У них есть великая цель: исправить историю и предотвратить войну между ИИ и людьми... Чтобы достичь успеха, у Виви есть 100 лет!Производство: Wit Studio / ウィットスタジオЖанр: приключения, фантастикаРежиссер: Эдзаки СимпэйПеревод: Wakanim (дехардсаб и оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE3C18E3357EDEC2C49F6F72EA67A85D74A30C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195189   (141766) от 29.12.2017
-
-Tenchi Muyou! Ryououki Dai Yon-ki / Тэнти - лишний! Рё-о-ки 4 [2016, OVA, 4 эп.] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертая часть рассказывает о свадьбе отца Тенти и рождении Кэнси.Производство: AICЖанр: приключенияРежиссер: Кадзисима Масаки / Kajishima Masaki / 梶島正樹Перевод: Вадим КузьминЯзык озвучки: ЯпонскийСубтитры: RU ASSФормат: MKV BDRipПродолжительность: 4 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BB62FC42A20AD4C877F5BF38070142E4434072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171508   (141593) от 29.12.2017
-
-Sengoku Night Blood | Ночная кровь эпохи Сенгоку [2017, TV, 12 + SP] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал по мобильной игре для женской аудитории «Ночная кровь эпохи Сенгоку» (Sengoku Night Blood) о противостоянии фракций полководцев эпохи Сенгоку, ставших вампирами и оборотнями (а в действительности — всё теми же бисёненами, только некоторые из них ещё и со звериными ушами), совместное детища компаний Marvelous, Kadokawa и бренда компании Idea Factory OtomateПроизводство: Студия Typhoon Graphics / 颱風グラフィックスЖанр: приключенияРежиссер: Кикути КацуяПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин. + SP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F200034BD3D2D7C901CF430CC695E72A223975
 ```
 
 https://mybot314.ru/tekegram_catalog/

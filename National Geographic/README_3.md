@@ -1,3 +1,29 @@
+###  Публикация: 1102560   (889223) от 10.02.2017
+
+Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Нильский крокодил - крупное пресмыкающееся семейства настоящих крокодилов. Самый большой из трёх видов крокодилов, обитающих в Африке, и второй по величине в мире после гребнистого крокодила. Благодаря району обитания, размерам и силе, известен как крокодил-людоед, в древние времена являлся предметом страха и поклонения. До настоящего времени остаётся, пожалуй, наиболее (   Читать дальше...   )Телекомпания: США, Earth-Touch and SNI/SI Networks L.L.C.Жанр: Документальный, познавательный, флора, фаунаРежиссер: Бенджамин ХьюлеттПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228F6EAF4416239EFFAEAE13F1017BD17BD014C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 296970   (889082) от 17.02.2011
 
 NG: Самые страшные мировые морские катастрофы / The World's Deadliest Sea Disasters (2007) TVRip
@@ -6,7 +32,7 @@ NG: Самые страшные мировые морские катастроф
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +111,7 @@ NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +137,7 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +163,7 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +190,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +216,7 @@ Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +242,7 @@ NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +294,7 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +320,7 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +346,7 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +372,7 @@ Nat Geo Wild: Дикие острова: Невиданные острова / U
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +398,7 @@ NG: Суперспособности животных / Animal Superpowers (2012
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +424,7 @@ NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +450,7 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +476,7 @@ Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +502,7 @@ Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +528,7 @@ NGW. Львы: как братья стали королями / Lion Brothers: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +554,7 @@ NG: Затерянные сокровища Майя / Lost Treasures of the May
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +580,7 @@ NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +658,7 @@ NG. Бушующие миры: Смертоносная пыль / Storm Worlds:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,32 +669,6 @@ NG. Бушующие миры: Смертоносная пыль / Storm Worlds:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D61F5CF566ACD79A347B67E92DC6B1D2D6F68918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378945   (842550) от 27.04.2020
-
-NG: Марс: Один день на красной планете / Mars: One Day on the Red Planet (2020) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Использование данных с орбитальных станций и марсоходов позволило воссоздать достаточно точное изображение поверхности Красной планеты и раскрыть некоторые ее секреты. За время совершения Марсом одного полного вращения вокруг своей оси вы увидите вулканы-монстры, древние озера, инопланетные ледяные миры и места крушения космических кораблей. Исследуйте перспективы (   Читать дальше...   )Производство: США / National GeographicЖанр: Документальный, космосРежиссер: Martin JohnsonПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1612B0DC7B2DC34C5E7B2E583A4F2E411FFBB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

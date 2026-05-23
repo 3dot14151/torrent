@@ -1,3 +1,85 @@
+###  Публикация: 1781971   (26403) от 26.02.2025
+
+The Gnomon Workshop, Josh Docherty | Modeling For Film & TV Hard-Surface Vehicles (2025) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите вывести свои модели на уровень золотого стандарта отрасли, этот семинар покажет вам, как профессиональные моделисты, работающие в кино и на телевидении, создают автомобили мирового уровня, пригодные для серийного производства.
+
+При моделировании активов в индустрии визуальных эффектов художникам часто предоставляются сканы или фотограмметрия объекта (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 02:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC04AD66FC367C166A8C96D73CB9A11950AA464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782351   (26167) от 28.02.2025
+
+Abe Leal 3D | Complete Guide to Retopology (2025) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Изучите необходимые навыки для создания правильной топологии для игр, анимации и оптимизации. С этими быстрыми и простыми инструментами ваши работы будут выглядеть потрясающе.Производство: Abe Leal 3DЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 08:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF460BF4082EAAB0D15F452266336FCD1586EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782568   (26110) от 01.03.2025
+
+Udemy, Edward Harding | Learn Architectural Design & Animation With Blender (2025) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свои навыки архитектурного проектирования с помощью Blender: новый курс для начинающих и продолжающих!
+
+Этот курс был создан с одной целью: помочь вам с легкостью создавать потрясающие архитектурные рендеры! Независимо от того, новичок вы или уже пробовали Blender, я разбил процесс на части, чтобы сделать его максимально простым и эффективным.Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 19:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D99AFC1CC246700072AEBDB8451930FF8AA10A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783195   (25805) от 04.03.2025
 
 Хохлов Сабатовский, Юрий Худов | 3D-моделирование в Blender для новичков (2024) PCRec [AD] [RU]
@@ -6,7 +88,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -33,7 +115,7 @@ Coloso., LouLL_AroLL | 30 Days from 0 Skill to Pro 3D Artist with Daz & Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -62,7 +144,7 @@ Udemy, Logan Wiesen | Realistic 3D Character Creation By Logan Wiesen (2025) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -88,7 +170,7 @@ Udemy, Marwan Sufyan | AutoCAD Architectural 3D Modeling (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -116,7 +198,7 @@ Udemy, Ag Motion Designs | Cinema 4D & Redshift: Looping Animation Mastery (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -144,7 +226,7 @@ Domestika, Jonas Pfeiffer | Abstract Portrait Animation with Cinema 4D (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -172,7 +254,7 @@ Udemy, Rob Tuytel | Creating snow environments for Blender & Unreal (2025) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -198,7 +280,7 @@ Udemy, 3D Tudor | 3D Trees with Blender Geometry Nodes (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -224,7 +306,7 @@ Udemy, 3DRedBox Studio | Eco Bike 3D Modeling and Rendering: 3Ds Max to Vray | C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -250,7 +332,7 @@ Udemy, Businge Ismail | Houdini for every Artist (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -276,7 +358,7 @@ Udemy, Billy McDaniel | Procedural City Generation in Unity C#: Grid-Based & Mod
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -302,7 +384,7 @@ Udemy, Eric Giessmannl | Quill to Unreal Engine pipeline – VR animation for 3D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -328,7 +410,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 4.3 Low Poly Guide (2025) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -354,7 +436,7 @@ Udemy, Rafael Falconi | Creating Golden Hour Atmosphere to Cityscape in Photosho
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -380,7 +462,7 @@ Udemy, David Nixon | Unreal Engine 5 for Games: Physics (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -406,7 +488,7 @@ Udemy, Penny de Byl | Shader Development from Scratch with Cg - Unity 6 Compatib
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -432,7 +514,7 @@ Udemy, Marcello Pattarin | 3ds max Workflow Game PBR Complete Course (2025) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -458,7 +540,7 @@ Udemy, Navid Abbas Zadeh | Interior design- autodesk 3dsmax and vray- from zero 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -484,7 +566,7 @@ CGCircuit, Andrii Zamorskyi | Ship splash and foam (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -510,7 +592,7 @@ Udemy, 3D Tudor, Vladan Trhlik | Blender Geometry Nodes - Boats (2025) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -536,7 +618,7 @@ Blender Studio, Simon Thommes | Stylized Rendering with Brushstrokes (2024) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -564,7 +646,7 @@ Udemy, Hamood Mehmood | Beginner Car Rigging & Animation in Blender (2025) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -592,7 +674,7 @@ ArtStation, Navid Valizadeh | Master Creating Optimized Sci-Fi Space Station Doo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -604,88 +686,6 @@ ArtStation, Navid Valizadeh | Master Creating Optimized Sci-Fi Space Station Doo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FFF843C2C7087FEEBB015C684F1C91B5D1E268B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793857   (20207) от 26.04.2025
-
-Skillshare, Gui Jorge Porto | Blender Grease Pencil: Combining 3D and 2D Animation (2024) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender сам по себе является потрясающим бесплатным инструментом для 3D—художников, но с тех пор, как они внедрили Grease Pencil — инструмент, позволяющий рисовать 2D-элементы непосредственно в 3D-пространстве, - он стал незаменимым инструментом и для 2D-художников. Используя Grease Pencil в Blender, у вас появятся бесконечные возможности для смешивания стилей, 2D, (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделирование, Анимация, Grease PencilЯзык озвучки: АнглийскийПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE78F4ADC2820758D1D33F4BAE6AD71902712E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793868   (20206) от 26.04.2025
-
-Джама Джурабаев | 360 Panoramic Drawing in Blender 2.8 (Grease Pencil) (2018) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20206.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом руководстве показаны различные подходы к созданию 360-градусного панорамного рисунка в Blender 2.8 с помощью Grease Pencil.
-
-Рабочий процесс 360 в Blender гораздо более оптимизирован и эффективен по сравнению с предыдущими техниками, которые я использовал в Photoshop или 3D-Coat.
-(   Читать дальше...   )Производство: GumroadЖанр: 3D моделирование, Рисование, Blender, Grease PencilЯзык озвучки: АнглийскийПродолжительность: 03:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196D9EDA913420D05080339807B7CECE1EE8CD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793839   (20197) от 26.04.2025
-
-Udemy, Canopy Games, Michael Bridges | Blender Python Scripting - A Step-by-Step Guide for Beginner (2025) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите повысить эффективность своего процесса 3D-моделирования за счет автоматизации? Тогда вы обратились по адресу!
-Blender - это невероятно универсальное программное обеспечение, способное создавать потрясающие 3D-модели. Но знаете ли вы, что его функциональность можно расширить с помощью сценариев на Python? Этот курс познакомит вас с Python API Blender, что позволит (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, СкриптингЯзык озвучки: АнглийскийПродолжительность: 09:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A485710C74498007934D2705A01F916334A9F050
 ```
 
 https://mybot314.ru/tekegram_catalog/

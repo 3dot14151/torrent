@@ -1,3 +1,81 @@
+###  Публикация: 1837425   (256698) от 16.11.2025
+
+Кей-поп-охотницы на демонов / KPop Demon Hunters (2025) WEB-DL [H.264/2160p] [hand made Upscale AI] | DUB (Original songs)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+С древних времён девушки с необычными голосами охраняют людей от демонов: пением устанавливают защитный барьер, чтобы зло не проникло в наш мир. Такова миссия трёх участниц женской кей-поп-группы Huntrix, и они с ней успешно справлялись, пока их фанатов не начала переманивать мужская — команда коварных демонов, прикидывающихся симпатичными парнями.Производство: США / Columbia Pictures Corporation, Sony Pictures Animation, NetflixЖанр: мультфильм, фэнтези, боевик, комедия, музыкаРежиссер: Крис Аппельханс, Мэгги КанАктеры: Арден Чо, Мэй Хун, Ю Джи-ён, Ан Хё-соп, Ким Юн-джин, Кен Жонг, Ли Бён-хон, Дэниэл Дэ Ким, Руми Оак, Джоэль Ким БустерПеревод: Дублированный (Videofilm Ltd)Язык озвучки: Русский, АнглийскийСубтитры: Русский (Songs, Full), Английский (Full)Продолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFC1814F655E46D6E7FB5A5A8788389C316B00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836987   (256658) от 15.11.2025
+
+Кей-поп-охотницы на демонов / KPop Demon Hunters (2025) WEB-DL [H.264/1080p] DUB (Original songs)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+С древних времён девушки с необычными голосами охраняют людей от демонов: пением устанавливают защитный барьер, чтобы зло не проникло в наш мир. Такова миссия трёх участниц женской кей-поп-группы Huntrix, и они с ней успешно справлялись, пока их фанатов не начала переманивать мужская — команда коварных демонов, прикидывающихся симпатичными парнями.Производство: США / Columbia Pictures Corporation, Sony Pictures Animation, NetflixЖанр: мультфильм, фэнтези, боевик, комедия, музыкаРежиссер: Крис Аппельханс, Мэгги КанАктеры: Арден Чо, Мэй Хун, Ю Джи-ён, Ан Хё-соп, Ким Юн-джин, Кен Жонг, Ли Бён-хон, Дэниэл Дэ Ким, Руми Оак, Джоэль Ким БустерПеревод: Дублированный (Videofilm Ltd)Язык озвучки: Русский, АнглийскийСубтитры: Русский (Songs, Full), Английский (Full)Продолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3656BA339B153E872383DB442EDCD869AB0C9493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499775   (256406) от 21.05.2012
+
+За короля / For The King (2011) [H.264/720p-LQ] WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+История о слуге, который всегда был преданным своему королю.Жанр: короткометражный анимационный фильмРежиссер: Амунд ЛундваллПерсонажи: Слуга и его корольПеревод: Без слов / НемойПродолжительность: 00:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990E0CE6436F04C06E7E67341682554F84DC9649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499807   (256398) от 21.05.2012
 
 Мифология / Mitologia (2009) [H.264/720p-LQ] WEBRip
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37AC5C0C7B0482F3C1EE12887B41D01441A3DB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537449   (250044) от 16.03.2022
-
-Кот в сапогах / Puss in Boots (2011) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечи пересекутся и сердца будут разбиты в приключениях с одним из самых любимых персонажей из Шрэка — котом в сапогах. Это удалая поездка ранних лет кота в сапогах, когда он объединяется с умным Шалтай-Болтаем и сообразительной Кисой, чтобы украсть знаменитую Гусыню, несущую золотые яйца.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Крис МиллерПеревод: Дублированный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), английские (full, SDH, SDH-Colored)Продолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232BC9496229E81D4375A6C37D0FAD5A3BE3234D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298528   (249905) от 16.07.2022
-
-Лего Скуби-Ду! Улетный Пляж / Lego Scooby-Doo! Blowout Beach Bash (2017) BDRemux [H.264/1080p] (MVO)
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249905.jpg" />
-</div>
-
-
-###  Подробнее
-
-После раскрытия очередного дела команда детективов отправляется отдохнуть на «Улётном пляже», где должно состояться состязание по «отрыву». Прибыв в отель, они узнают, что на пляж напали духи пиратов Улёта и Пляжа, основателей «Улётного пляжа», и похитили пиратские шляпы, которыми награждались победители состязаний. Фреду Джонсу и Велме Динкли предстоит доказать (   Читать дальше...   )Производство: США, LEGO GroupЖанр: мультфильм, ужасы, фэнтези, комедия, детектив, семейныйРежиссер: Этан СполдингАктеры: Фрэнк Уэлкер, Грэй Гриффин, Мэттью Лиллард, Кейт Микуччи, Джефф Беннетт, Кейт Хиггинс, Джошуа Китон, Том Кенни, Натали Ландер, Джек МакБрайерПеревод: Многоголосый закадровый, любительский (Колобок)Субтитры: русские, английскиеПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1371EA756959248AEFE1FD103080D3C0A55164E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564313   (249764) от 18.07.2022
-
-Базз Лайтер / Lightyear (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249764.jpg" />
-</div>
-
-
-###  Подробнее
-
-История приключений легендарного космического рейнджера Базза Лайтера.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фантастика, боевик, драма, приключения, семейныйРежиссер: Энгус МакЛэйнПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874483C65155E8CBC9D222DCC2D6720FF14015CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

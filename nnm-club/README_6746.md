@@ -1,448 +1,25 @@
-###  Публикация: 1274767   (792241) от 08.01.2019
+###  Публикация: 1509665   (794086) от 13.11.2021
 
-Lenny Kravitz - Raise Vibration (2018) Japanese Edition [MP3|320 Kbps] <Rock, Soul, Funk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792241.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We Can Get It All Together
-2. Low
-3. Who Really Are The Monsters?
-4. Raise Vibration(   Читать дальше...   )Жанр: Rock, Soul, FunkПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0DEA899574D3BE23715B4251A527996163B816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274799   (792240) от 08.01.2019
-
-А. Д. Люблинская (отв. ред.) | История в энциклопедии Дидро и Д'Аламбера (1978) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792240.jpg" />
-</div>
-
-
-###  Подробнее
-
-На свете было, есть и будет множество разных энциклопедий, но лишь одну из них зачастую называют просто энциклопедией (или Энциклопедией с большой буквы), а ее авторов — просто энциклопедистами. Можно пользоваться различными специальными и общими энциклопедическими словарями и не иметь понятия о других, но о французской Энциклопедии Дидро и Д'Аламбера должен знать (   Читать дальше...   )Жанр: История, политология, философия, искусство, литературоведение, правоведение, религиоведение, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0B58115077051CE646889BE30E23A793B4AC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274687   (792239) от 08.01.2019
-
-Журнал | Кухни и ванные комнаты №12-1 (195) (декабрь 2018 - январь 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Кухни и ванные комнаты» содержит актуальную информацию об основных стилях и направлениях, последних дизайнерских и технологических решениях, новых материалах, идеи и полезные советы по обустройству кухонь и ванных комнат в целом, включая декорирование и аксессуары.Жанр: Строительство, ремонт, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92A8AD0887EBC3D5B069429A658CA7993958CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274846   (792238) от 08.01.2019
-
-Trent Reznor & Atticus Ross - Bird Box (2019) The Null Corporation [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Dark Ambient, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outside (12:42)
- 02. Undercurrents (04:03)
- 03. Looking Forwards And Backwards (09:00)
- 04. What Isn't Anymore (07:49)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Dark Ambient, ScoreПродолжительность: 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023655D2D13D5166E92EA7489F9ABA2E01D02D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274812   (792237) от 08.01.2019
-
-VA - Insane Records presents: Terror Night Series - 4 Releases (2015-2018) [MP3|320 Kbps] <Aggrotech, Dark Electro, Harsh EBM, Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792237.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 - Terror Night • Vol.1 Industrial Madness (2CD)
-2016 - Terror Night • Vol.2 Sounds Of The Dead Future (2CD)
-2017 - Terror Night • Vol.3 Mechanized Occultism (2CD)
-2018 - Terror Night • Vol.4 Digital Prophecy For Cyber Harvest (2CD)(   Читать дальше...   )Жанр: Aggrotech, Dark Electro, Harsh EBM, IndustrialПродолжительность: 08:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD3B6E7CC89BDB722C61FE3AEC51FCCBB48F75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274728   (792236) от 08.01.2019
-
-Владимир Ждамиров - Где-то там... (2017) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце в решку (4:54)
-02. Звонок на откидной (5:06)
-03. Где-то там (3:44)
-04. Любовь и закон (3:54)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88E022D2EBF62F293B7B777905DB4C143237D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274689   (792235) от 08.01.2019
-
-Журнал | Красивые дома №6 (189) (2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Красивые дома» — ведущее российское издание по архитектуре, строительству и дизайну, ориентированное на читателей — домовладельцев и застройщиков, стремящихся создать новый облик дома. Журнал публикует реализованные проекты загородных домов отечественных и зарубежных архитекторов с планами и экспликациями помещений, дизайн-проекты коттеджей, вилл и особняков (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD588C6E2E38E60E97B28DDD2348DF79FE00CE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201157   (792234) от 25.01.2018
-
-Kane Strang - Two Hearts and No Brain (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lagoons (02:28)
-02. Silence Overgrown (03:23)
-03. Not Quite (03:07)
-04. Oh So You're Off I See (04:01)(   Читать дальше...   )Жанр: Indie Rock, Dream PopПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045282248A1E865BA7081CC951203546090CE8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201498   (792233) от 25.01.2018
-
-DJ Koze - Seeing Aliens (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeing Aliens (04:52)
-02. Seeing Aliens (extended Breakthrough Listen) (08:17)
-03. Nein König Nein (07:18)Жанр: House, DeepПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FFE07039F1D54321802BCA2B62E42C9F2C972C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201613   (792232) от 25.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0008 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Blanche - Sign Of Love ( 7'' Version 1985 )
-02. Call It Heaven - Boys Boys Boys ( 1987 )
-03. The Crosslines - Angel Eyes ( Maxi Version 2013 )
-04. Tapps - Crazy For You ( 1995 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025133CAAA747B5AEB4A6BD96BEB11E640F776D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201560   (792231) от 25.01.2018
-
-Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Remember Clifford [05:00]
-02. Hot Dig a Dee [04:38]
-03. No Moon at All [02:51]
-04. Paradise [03:10](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4F7C9A46FBBC98E379D0DD0188211F3BD8BDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201550   (792230) от 25.01.2018
-
-Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly with Me [02:48]
-02. My Funny Valentine [02:58]
-03. I've Got You Under My Skin [02:54]
-04. Never Will I Marry [02:37](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C3E50C2AE1AABFC9E67E2DFE864F15CC019342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201545   (792229) от 25.01.2018
-
-Андрей Иванов | Исповедь лунатика (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Иванов – русский прозаик, живущий в Таллине, лауреат премии «НОС», финалист премии «Русский Букер». Главная его тема – быт и бытие эмигрантов: как современных нелегалов, пытающихся закрепиться всеми правдами и неправдами в Скандинавии, так и вынужденных бежать от революции в 20–30-х годах в Эстонию («Харбинские мотыльки»).
-Новый роман «Исповедь лунатика», (   Читать дальше...   )Жанр: Проза, КонтркультураПродолжительность: 11:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59DE318A3688424783E47A682F26F96B1080D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201602   (792228) от 25.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0006 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Rogers - Happy Moon ( 1986 )
-02. Device - Hanging On A Heart Attack ( 1986 )
-03. Angela Lee - Why Can't We Live ( 1986 )
-04. Shanghai - Radio Girl ( Classical Version 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98814F3FA04154FE4B735B1D4321EE9E549CCB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201609   (792227) от 25.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0007 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Midnight - Disco Light ( 1986 )
-02. Mike Mareen - Lady Ecstasy ( 1988 )
-03. Dyva - Clap Again ( Extended Version 1983 )
-04. Body Heat - Dancing In The Moonlight ( Murder Mix 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ECED146C135BE111747F8E0B96DEA18F837AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201469   (792226) от 25.01.2018
-
-Lione/Conti - Lione/Conti (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+Ophis - Spew Forth Odium (2021) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Ascension
-02. Outcome
-03. You're Falling
-04. Somebody Else(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:17
+01. Default: Empty (9:04)
+02. Of Stygian Descent (9:30)
+03. Conflagration Eternal (11:28)
+04. Temple of Scourges (10:35)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 01:03:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1410F7A175CC4D04857A0A9913DBB789B48F2EE6
+magnet:?xt=urn:btih:7109B104D5049CA51010DF82105889C2E2EAB216
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201410   (792225) от 25.01.2018
+###  Публикация: 1509482   (794085) от 13.11.2021
 
-Вера Лукьянская, Елена Горбунова-Посадова (сост.) | Колобок (1910) [JPG]
+Алиса и гонки на воздушных шарах / Alice's Balloon Race (1926) DVDRip
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: JPG
+Алиса и кот Джулиус принимают участие в гонке на воздушных шарах. Соревнования осложняются тем, что один из участников гонки конкурирует с соперниками самыми радикальными методами...Производство: США, Walt Disney ProductionsЖанр: Рисованная анимация, детскийПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:07:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE27BA0BC560B0A95CC1D36F7ADF149079C18AEA
+magnet:?xt=urn:btih:608B6D0192A9873F7810A5B16FB672DE74DA9A35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,27 +53,276 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201314   (792224) от 25.01.2018
+###  Публикация: 1509629   (794084) от 13.11.2021
 
-Монах Симеон Афонский | Земное счастье и небесное блаженство или почему мы не Боги (2013) [PDF]
+Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Коламбус Блю Джекетс (12.11.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+13 ноября 2021, суббота. 03:00 МСК
+Стадион: Нейшнвайд-Арена (Коламбус, США), 16 985 зрителей (89% при вместимости 19 115)
+Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Кевин Поллок (Кинкардин, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C892F5C38AEF3BF61803490CC011D057F186066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509765   (794083) от 13.11.2021
+
+Brain Echoes - Blackbird (On A White Oak Tree) (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (01:08)
+02. Time Capsule (05:58)
+03. Stranger (03:27)
+04. Seven Years (03:59)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE68C41BD2007265244B3B39E8DF56727C1218B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509676   (794082) от 13.11.2021
+
+Пятеро на одного (13.11.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D5E79E9DAA6CE6CBAECAC79E8270D4CC671022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509686   (794081) от 13.11.2021
+
+Своя игра (13.11.2021) WEBRip [H.264/1080p] (выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67CDC01AAD8FF2D70517774E75F49A10175CA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509706   (794080) от 13.11.2021
+
+Своя игра (13.11.2021) WEBRip [H.264/1080p] (выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D45174475034645138E9479F991F003A6975C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509484   (794079) от 13.11.2021
+
+Kylie Minogue - DISCO: Guest List Edition (2021) [AAC|~334 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:11)
+02. Miss a Thing (3:56)
+03. Real Groove (3:15)
+04. Monday Blues (3:09)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEFBBBBB1E88BD88EF1D91D949A06FCEB3E9E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509611   (794077) от 13.11.2021
+
+VA - Beatport Drum And Bass: Sound Pack #365 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Aries, Kelvin - Dancehall
+002. Jon The Dentist - Seahorses Forever
+003. Jaguar Paw - Nastya
+004. Neman - Mistakes(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5952D47D8F3AF253093BAF892B3E3613F4C568E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509659   (794076) от 13.11.2021
+
+Nancy Wilson - You And Me (2021) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. You And Me (feat. Sue Ennis)
+02. The Rising
+03. I'll Find You
+04. Daughter(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B858C65748F6806A7DFF0E72D9C236EA5E0E5B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509691   (794075) от 13.11.2021
+
+DubVision - Tomorrowland Friendship Mix (2021-11-11) [MP3|320 Kbps] <Progressive House, Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. DubVision - Take My Mind w/DubVision & Firebeatz - Lambo
+02. Swedish House Mafia & The Weeknd - Moth To A Flame (DubVision Bootleg)
+03. DubVision - Young Money
+04. DubVision - I Don't Wanna Know(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A3C0EC96D59FBD473D657ED619838AAE1AA96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509720   (794074) от 13.11.2021
+
+Неугасимая лампада (изд.) | Икона Пресвятой Богородицы «Всецарица». Чудеса, акафист, молитвы, информация для паломников (2016) [PDF, DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Книга "Земное счастье и небесное блаженство или почему мы не Боги?" монаха Симеона Афонского - это практическое постижение основных категорий нравственной и духовной жизни и раскрытие процесса формирования души на трудных путях ее Спасения.
-
-Этой книгой "Земное счастье и небесное блаженство или почему мы не Боги?" иеромонах Симон (Безкровный) (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+Сборник, посвящённый чудотворному образу Пресвятой Богородицы «Всецарица», открывается рассказом о его обретении и чудотворениях, которые были явлены по молитвам православных христиан. В разделе «Молитвословия» помещены кондак, акафист, молитва Божией Матери, читаемые пред Её чудотворной иконой «Всецарица». Желающие поклониться святыне найдут на страницах сборника (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:760E1C1EC01AA5DE7D7DF43562F9634365CE97E4
+magnet:?xt=urn:btih:1F309212491217FD475D3F83FF65CBC2BF1598F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,15 +330,271 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201647   (792223) от 25.01.2018
+###  Публикация: 1509421   (794073) от 13.11.2021
 
-BlueHarvest 7.0.1 [Multi/Ru]
+L.A. Guns - Checkered Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ветераны хард-рока L.A. GUNS выпустили новый студийный альбом "Checkered Past" 12 ноября на лейбле Frontiers Music Srl.
+"Checkered Past" сочинялся и записывался в конце 2020 – начале 2021 года. На нем Трейси Ганс (Tracii Guns, гитара), Фил Льюис (Phil Lewis) и компания продолжают разрабатывать более мрачную тематику текстов, которая доминировала (   Читать дальше...   )01. Cannonball
+02. Bad Luck Charm
+03. Living Right Now
+04. Get Along(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFABC4111DB0F8364D6EF662FB29A7CB312AC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509548   (794072) от 13.11.2021
+
+Картинки - NNM-Club - Календари на 2022 от Warrior 123 №19 - 1509548 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1038
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086F2BAC297642205B0C8EDCC2E65E47EE1B2B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509729   (794071) от 13.11.2021
+
+Ирина Рысакова, Наталья Мокиевская | Моя Россия. Природа России (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данная книга раскрывает красоту и богатство природы нашей страны. Юный читатель познакомится с морями и океанами, озерами и реками России, узнает о равнинах и горах, вулканах и гейзерах. Ему будет интересна информация о специфике российского климата и погоды, о проблемах охраны природы и уникальных заповедных местах. А цветные иллюстрации помогут ребенку запомнить (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A140D8CBA008484D9C1BEA602639D94A8F5F5685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201115   (794070) от 23.01.2018
+
+Docetism - Breast And Vulture (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Downtempo, Dub>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Physis
+02. One Forest
+03. Buczyna
+04. Old Oak(   Читать дальше...   )Жанр: Reggae, Downtempo, DubПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0F315B427090B70EABBDFA5AEC9DCC95472416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200960   (794069) от 23.01.2018
+
+VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Trance Hunter - Power Of The Code (Jens Jakob remix)
+02. Nx-Trance - Symbiont (original mix)
+03. Stella Project - Universe (Mark Eworth remix)
+04. Luca Gazzola - North Rose (Diego Morrill's Manticore mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683D1E1B0AF47AAF9FA49553E5DB7EF81F4F712A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201080   (794068) от 23.01.2018
+
+VA - Urban Dance Vol.23 (2018) 3CD [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+СD1:
+01.  Ofenbach vs. Nick Waterhouse  -  Katchi  2:34
+02.  Alan Walker, Noah Cyrus & Digital Farm Animals  -  All Falls Down  3:19
+03.  Jason Derulo feat. French Montana  -  Tip Toe  3:09(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49E1745FA438B00E551733B1074BFF59D6DCD06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201050   (794067) от 23.01.2018
+
+Tape86 - Discography 2 Releases (2008-2010) 33 Recordings [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Ambient, Abstract, Glitch>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Psychic Vomit (04:53)
+ 02. Sad Bullshit (04:30)
+ 03. Simply Metallic Taste (Album Version) (03:58)
+ 04. Bad Luck (05:30)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Ambient, Abstract, Glitch •Продолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CAE8DD557E7F5C04B03BF3B5C06613D49E348D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201043   (794066) от 23.01.2018
+
+Der W - IV (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Neuland (Erinnerung Ist Sperrgepack)
+02. Mehr!
+03. Zeit
+04. Justitia(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DC1EABE66F3F1FF9897F79132EA22369560FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200258   (794065) от 23.01.2018
+
+Eleven - 11 (2012) [MP3|320 Kbps] <Dance, Synthpop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. 11:11
+02. Love Comes from Yourself
+03. Hollow Earth
+04. Another Life(   Читать дальше...   )Жанр: Dance, Synthpop, ElectroПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBB2BB65963DFB35DEB1DC4568B4F00A38E46FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201179   (794064) от 23.01.2018
+
+BlueHarvest 7.0.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +607,7 @@ BlueHarvest -  утилита, помогающая автоматизирова
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:984CE502B63D72EA64A510876A50A25FD29E051C
+magnet:?xt=urn:btih:CB8C728EF1E54BE5F7AE9AF866E6653991E29BF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,166 +615,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201376   (792222) от 25.01.2018
+###  Публикация: 1201090   (794063) от 23.01.2018
 
-Свящ. Роман Бартницкий | Синоптические Евангелия. История возникновения и толкование (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792222.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге прослеживается история исследований, посвященных Евангелиям от Матфея, Марка и Луки, начиная с их анализа раннехристианскими писателями и заканчивая документом Папской библейской комиссии "Толкование Библии в Церкви", а также новейшими методами и способами изучения Библии.
-
-Издание дополнено разделом, посвященным последним исследованиям исторической (   Читать дальше...   )Жанр: История религии, теология, библеистикаПеревод: с польск. М. Касьяненко, С. Карпенка, А. ПавловойФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E2F8D5B97D9617D6FE4ED2F441BABFCE7F4A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201500   (792221) от 25.01.2018
-
-VA - One On One: Auto Dance Mixtape (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792221.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ina Wroldsen - Strongest
-002. Bigflo & Oli - Dommage
-003. David Guetta - Dirty Sexy Money
-004. Flo Rida - Hola (Feat. Maluma)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C258A3053DE153E6837B641C9DEC530A2871776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201624   (792220) от 25.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0010 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gurcan Erdem - Hold My Hand ( 12'' Version )
-02. Valerie Star - Call My Name ( 2014 )
-03. Michael Bedford - Space Boys ( 7'' Version 1987 )
-04. Ryan Paris - Together Again ( 2015 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51C8CAF72D2AB74703239DCC17EA7B817980C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201487   (792219) от 25.01.2018
-
-Журнал | Домашняя кухня. Лучшие кулинарные рецепты №9 (141) (сентябрь 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о кулинарии. Каждый выпуск - своеобразное ресторанное меню у вас дома, в котором отыщутся оригинальные рецепты горячих и холодных блюд, сезонных первых блюд, рецепты для праздничного стола и ежедневного рациона. В журнале вас ждет множество рецептов и полезных советов, вы сможете учитывать калорийность блюд. Фитнес-меню, детская кухня, страничка диетолога (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A019CA1467DC9A7713EAB3C427F76BA3DAE06DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201483   (792218) от 25.01.2018
-
-Anvil - Pounding The Pavement (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitch In The Box
-02. Ego
-03. Doing What I Want
-04. Smash Your Face(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4A5F317A083B1012B771BC40216B8156E2E094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201409   (792217) от 25.01.2018
-
-CoolUtils Total Audio Converter 5.3.0.160 RePack by вовава [Ru/En]
+MediaHuman YouTube to MP3 Converter 3.9.8.20 (2101) RePack (& Portable) by ZVSRus [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский | Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:909CF29803433963E57D7C32B1261159EBC6D034
+magnet:?xt=urn:btih:B9C582769E33A40A3910D85D450F110639DD9A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,26 +641,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201627   (792216) от 25.01.2018
+###  Публикация: 1274271   (794062) от 06.01.2019
 
-Aiseesoft Screen Recorder 1.1.28 RePack (& Portable) by ZVSRus [Ru/En]
+Домашнее рождество / Hometown Christmas (2018) HDTVRip [MVO] [AD]
 
->>Архив торрентов
->>Архив Программ
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft Screen Recorder - это программа, с помощью которой можно записывать определенную область на экране компьютера. Вы можете использовать приложение для записи онлайн фильмов, видео из игр до HD/4K качества, радио, делать видеоинструкции, записывать видео с вебкамер.
-Помимо видео, Aiseesoft Screen Recorder также может записывать аудио на вашем компьютере, в (   Читать дальше...   )Язык интерфейса: Русский | Английский
+Ноэль Коллинс возвращается в Луизиану на Рождество. Она мечтает воссоздать рождественское представление, которое раньше ставила ее покойная мама. Ее планы омрачает встреча со школьной любовью Ником Расселом, бейсбольной звездой, который вернулся домой из-за травмы. Им придется преодолеть боль разрыва, потому что их родители влюблены. Когда представлению грозит срыв, (   Читать дальше...   )Производство: СШАЖанр: МелодрамаРежиссер: Эмили Мосс УилсонАктеры: Кристофер Берри, Донни Боас, Эрин Кехилл, Стивен Коллетти, Мелисса Гилберт, Роберт Гудсон, Остин Хигсмит, Исайа Лаборд, Кристиан Манн, Брайан МакНамараПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:24:13Реклама: Присутствуют вставки текстовой рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D35816C48621625AB541FFFDC79DBCDA88E8F73
+magnet:?xt=urn:btih:A634C132521AF148091FDCC34A021A49515CBBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274415   (794061) от 06.01.2019
+
+Рождество наступает / Christmas Around the Corner (2018) HDTVRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клэр, венчурный капиталист из Нью-Йорка, уезжает в тихий городок в штате Вермонт на рождественские каникулы и снимает комнату над книжным магазином Фортенбери. По приезду, Клэр узнает, что весной в городе было наводнение, и из-за этого знаменитый рождественский фестиваль в городе был отменен, наряду с другими развлечениями. Она сразу же хочет вернуть книжному магазину (   Читать дальше...   )Производство: США / MarVista Entertainment, Marvista Entertainment / Warner VOD, Neshama EntertainmentЖанр: Драма, мелодрамаРежиссер: Меган ФоллоузАктеры: Александра Брекенридж, Джейн Александр, Джейми Спильчук, Сарита Ван Дайк, Нэнси Макдональд, Скотт Макдональд, Флоренс Мур ...Перевод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:23:17Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35F35607510516458FF6A3B18B217DE02A24C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274321   (794060) от 06.01.2019
+
+Путь к Рождеству / Road to Christmas (2018) HDTVRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Телепродюсер Мэгги Бейкер собирается снять пятый в своей карьере рождественский выпуск кулинарной передачи и решает отойти от традиций и запустить его в прямом эфире. Но неожиданно на её пути встает бывший продюсер этой программы, ярый сторонник традиционного Рождества. Чтобы найти компромисс, они отправляются в путешествие по стране в поисках новых и старых рождественских (   Читать дальше...   )Производство: США / The Hallmark Channel, Crown Media ProductionsЖанр: СемейныйРежиссер: Аллан ХэрмонАктеры: Джесси Шрэм, Терил Ротери, Матрея Скаррвинер, Чад Майкл Мюррэй,  Джефф Гонек, Карди Вонг, Ревекка Ассельстин, Джим Калабриго, Элиссон Амиго, Б.Дж. ХаррисонПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:23:41Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C16981D88B343B9BA9087DAC96F6065CDBF5C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1102409   (889690) от 10.02.2017
+
+The Rein De Graaff Trio with Ronnie Cuber and Nick Brignola - Baritone Explosion! Live At Nick's (1994) 2016, Solid Reco[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.Softly As In A Morning Sunrise [13:15]
+ 02.Caravan [13:55]
+ 03.In A Sentimental Mood [02:20]
+ 04.What's New [02:51](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F12FAA90159090C7EECA142B2B4341ED179227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494436   (889205) от 07.09.2021
+
+Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Four Paths of Light, Part 1 (4:15)
+02. Four Paths of Light, Part 2 (6:22)
+03. Four Paths of Light, Part 3 (5:30)
+04. Four Paths of Light, Part 4 (3:10)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F5260F7F56C4C588532C42D2B72A14DE37F4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371776   (888714) от 01.04.2020
 
 Joe Bushkin Featuring Buck Clayton - Three Classic Albums Plus 1946 - 1951 (2013) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -6,7 +64,7 @@ Joe Bushkin Featuring Buck Clayton - Three Classic Albums Plus 1946 - 1951 (2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Various - A Twist of Jobim (1997) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Various - A Twist Of Marley (2001) [FLAC|Lossless|image + .cue] <Jazz, Reggae, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +151,7 @@ John Coltrane & Archie Shepp - New Thing At Newport (1965) 2009, Verve[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Masabumi Kikuchi - End For The Beginning (1973) Remaster, 2015, Unversal[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Bob Brookmeyer - Back Again (1978) 1990, Gazell[FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Paul Quinichette - For Basie (1957) 2001, Silen[APE|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Lee Konitz - frescalalto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +296,7 @@ The Horace Silver Quintet - A Fistful Of Silver: Blowin' The Blues Away & Finger
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +325,7 @@ Mellow Motif - Mellow Motif (2010) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Bugge Wesseltoft - Songs (2011) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Rhoda Scott Lady Quartet - We Free Queens (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +412,7 @@ Daymé Arocena - Nueva Era (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Afro-Cub
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - The Acid Jazz Test Part Three (1995) [FLAC|Lossless|image + .cue] <Acid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +470,7 @@ Oscar Peterson Trio - Encore At The Blue Note (1993) 1998, Telarc[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +499,7 @@ Billy Taylor Trio - At Town Hall (1954) Remaster, 2014, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +528,7 @@ The Dave Bailey Quintet - Two Feet In The Gutter (1961) Remaster, 2015, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Art Blakey & The Jazz Messengers - Blue Night (1985) Remaster, 2015, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +586,7 @@ Malia & Boris Blank - Convergence (2014) [FLAC|Lossless]<Electronic, Future Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Nicki Parrott - The Look of Love (2013) [FLAC|Lossless|image + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +644,7 @@ Wade Legge Trio (1953-1955) 2016, Fresh Sound Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,7 +673,7 @@ Marcus Johnson - Chocolate City Groovin' (1998) Encoded Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -644,7 +702,7 @@ Onaje Allan Gumbs - That Special Part Of Me (1998) MCA Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -673,7 +731,7 @@ Stanley Cowell - Musa: Ancestral Streams (1974) 2006, Bomba Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -687,63 +745,6 @@ Stanley Cowell - Musa: Ancestral Streams (1974) 2006, Bomba Records [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B501E5E439A78C0582F13EDE7CA636BD4E6B826A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103411   (886050) от 12.02.2017
-
-Monika Roscher Bigband - 2 Album (2012, 2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Failure in Wonderland
-2016 - Of Monsters and BirdsЖанр: Fusion, Contemporary JazzПродолжительность: 02:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB377665B5127892C0CDB424911902235BF9239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103537   (886007) от 12.02.2017
-
-Various Artists - Hammond Street (2001) [FLAC|Lossless|image + .cue] <Acid Jazz, Rock, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Past Present Organisation - Itchy Feet
-02. Trashmonkeys - Clubtown
-03. Sugarman Three - Soul Barrio Part 2
-04. James Taylor Quartet - Car Chase(   Читать дальше...   )Жанр: Acid Jazz, Rock, Funk, SoulПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD919D424276B93E06D9610C41D63AFCEBAA69D
 ```
 
 https://mybot314.ru/tekegram_catalog/

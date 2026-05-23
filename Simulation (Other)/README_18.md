@@ -1,3 +1,29 @@
+###  Публикация: 1678455   (136781) от 17.10.2025
+
+STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в будущее космических войн! В игре Star Fleet II: Krellan Commander вам предстоит управлять современным космическим крейсером и исследовать сектора, сражаться с вражескими кораблями, брать их на абордаж и захватывать планеты. Эффективно управляйте своим кораблем, экипажем и эскортом и найдите путь к победе. 35 галактических регионов с более чем 1700 (   Читать дальше...   )Тип издания: LicenseРазработчик: Trevor Sorensen, Mark BaldwinЖанр: Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EEAA45608A90AAA5F118D66E1E52DF327BC2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 258062   (134668) от 27.11.2023
 
 Operation Steel Tide (2002) [Ru] (1.0) Unofficial
@@ -6,7 +32,7 @@ Operation Steel Tide (2002) [Ru] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.32/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Skinwalker Hunt (2022) [Ru/Multi] (1.011) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Creature Lab (2023) [Multi] (2.0.40/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Zipp's Café (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (2.33/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Destroyer: The U-Boat Hunter (2023) [Ru/Multi] (1.0/dlc) Scene Rune [Supporter B
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Prison Tycoon: Under New Management (2021) [Multi] (1.0.2.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ The Fabulous Fear Machine (2023) [Ru/Multi] (1.0.28) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Buried Alive: Breathless Rescue (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.4.0.r49909/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Islanders (2019) [Ru/Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Booze Masters: Freezing Moonshine (2023) [Ru/Multi] (5150) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ The Faraway Land (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.80) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Beer Factory (2024) [Ru/Multi] (build 69) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Grand Emprise: Time Travel Survival (2023) [Ru/Multi] (20230809) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.13.1.1/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.14.2) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.8.1151.18467/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.8.1151.18467/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C961026553FCBCC0A79B02B75C77FF2AF7A1F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697313   (119010) от 06.02.2024
-
-Spells and Secrets / Spells & Secrets (2023) [Multi] (1.0.3) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spells and Secrets - приключенческий экшен с элементами рогалика, который позволит вам раскрыть свой внутренний мир волшебника! Отправляйтесь в волшебное путешествие по миру Грайфенштейна, престижной академии волшебников, и творчески используйте свои заклинания, чтобы победить злых магических существ, угрожающих школе. Создайте свой собственный образ студента-волшебника, (   Читать дальше...   )Тип издания: LicenseРазработчик: Alchemist Interactive, rokaplayЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E01E2B86342B8A85F536B3B1B49E2BADD78D71
 ```
 
 https://mybot314.ru/tekegram_catalog/

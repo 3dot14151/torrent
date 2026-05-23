@@ -1,3 +1,206 @@
+###  Публикация: 1196016   (138948) от 31.12.2017
+
+VA - The Official UK Top 40 Singles Chart 29.12.2017 [MP3|192-320 Kbps] <Alternative, Indie, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect 4:23
+02. Wham! - Last Christmas 6:49
+03. Eminem - River (Feat. Ed Sheeran) 3:41
+04. Mariah Carey - All I Want For Christmas Is You 3:58(   Читать дальше...   )Жанр: Alternative, Indie, OtherПродолжительность: 02:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F8AD78BCCA3863040F388236F896C0A7F013EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195799   (138855) от 31.12.2017
+
+VA - super rock KYOi от NNNB (2017) [MP3|320 Kbps] <Rock, Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Toto  -  Africa  4:55
+02.  Van Halen  -  Jump  4:00
+03.  Van Stephenson  -  Modern Day Delilah  4:13
+04.  Ambrosia  -  How Much I Feel  4:44(   Читать дальше...   )Жанр: Rock, Disco, PopПродолжительность: 04:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29DB59C0CB504D4B765C0D4B6CE1E2F21513F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088581   (138657) от 31.12.2016
+
+VA - Singles Chart Hot 100 Billboard (07 January 2017) (2016) [MP3|320 Kbps] <Pop, Alternative, Bro-Country, Dancehall, R&B, Synthpop, Indie>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Mariah Carey - All I Want For Christmas Is You 4:02
+002. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+003. The Chainsmokers feat. Halsey - Closer 4:06
+004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop, Alternative, Bro-Country, Dancehall, R&B, Synthpop, IndieПродолжительность: 06:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF685DDFFD91B84286322229624EC16752228C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349082   (138613) от 30.12.2019
+
+VA - Громкие новинки Декабря Vol 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1.Alan Walker, Ava Max - Alone, Pt. II (2:59)
+2.Alec Benjamin - Mind Is A Prison (2:42)
+3.Andro - Моя душа (2:35)
+4.Artik & Asti, Руки Вверх! - Полечу за тобою (4:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902EBC582FB8795179B1CF0003AFAD1CA1BEAB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349068   (138609) от 30.12.2019
+
+VA - Новинки с разных популярных MP3 сайтов. Ver.91 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+RusDance:
+1.#2Маши - Много Кофеина (Denis Bravo Remix) (4:05)
+2.ALEX & RUS - Дикая Львица (Olmega & Eugene Star Remix) (3:08)
+3.Audiosoulz - Dancefloor (Lavrushkin & Max Roven Remix) (2:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD13111B770844B56FFB1C83AB6042A1D595933E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196003   (138569) от 31.12.2017
+
+VA - Electric Oxygen Workout Music (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Sagan - Tempus (Extended Mix)
+002. Ayin - Revive Me (Erick Kasell Remix)
+003. Martin Garrix, Matisse & Sadko - Forever (Extended Mix)
+004. Dave Till - Mistika (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195864   (138429) от 31.12.2017
+
+VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 – Ed Sheeran – Shape of You
+02 - Luis Fonsi – Despacito (Remix)
+03 – Luis Fonsi – Despacito (Featuring Daddy Yankee)
+04 – The Chainsmokers – Something Just Like This(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195853   (138169) от 31.12.2017
 
 VA - Союз Новогодний (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +209,7 @@ VA - Союз Новогодний (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Gym Hits 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Music News vol.60 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - The Club music (2012) [MP3|256 кб/с]<Сlub>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -157,7 +360,7 @@ VA - Танцуй и не останавливайся (2012) [MP3|256 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +395,7 @@ VA - Western Mood (2023) 2CD  [MP3|320 Kbps] <Country>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +424,7 @@ VA - Музыка для машины Vol.44 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +453,7 @@ VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -285,7 +488,7 @@ VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -314,7 +517,7 @@ VA - Новогодняя феерия (2012) [MP3|320 кб/с]<Рор>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +552,7 @@ VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -384,7 +587,7 @@ VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +613,7 @@ VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -445,7 +648,7 @@ VA - Новогодний cборник зарубежной музыки (2012)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +683,7 @@ VA - Music News vol.319 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +712,7 @@ VA - Музыка для машины Vol.46 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +741,7 @@ VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,7 +770,7 @@ VA - Music News vol.320 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,227 +784,6 @@ VA - Music News vol.320 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B587BC27EAC041947B1A2978C83C0F73AE4AA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681249   (132919) от 02.12.2023
-
-VA - ЕвроХит Топ 40 Europa Plus 01.12.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Cristian feat. Alis Shuka - The Day Before (2:25)
-02. Maneskin - Honey (Are U Coming) (2:47)
-03. Robin Schulz - One With The Wolves (3:00)
-04. Jung Kook feat. Jack Harlow - 3D (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C18CC264B849DD5A83B40E167527E47DEE7300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681227   (132884) от 02.12.2023
-
-VA - Русские Хиты 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132884.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BASKAEVA - Спам (3:07)
-002. Винтаж, ТРАВМА - Госпожа (2:36)
-003. Lil Mak - Сводит с ума (1:52)
-004. NATAL'A - Осень цвета антрацит (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594963   (132779) от 28.12.2012
-
-VA - Another Rock'n'Roll Christmas (2002) [MP3|320 кб/с]<Pop, Swing, Rock'n'Roll>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Glitter - Another Rock and Roll Christmas [0:03:45.66]
-02. Chicory Tip - Rockin' Fround The Christmas Tree [0:02:07.36]
-03. Showaddywaddy - Perfect Harmonie [0:04:35.20]
-04. Jona Lewie - Stop The Cavalary [0:02:57.01]
-05. Dik Cadbury - The Star That Fell To Earth [0:04:25.03]
-06. Noel Redding & Friends - No More Christmas [0:03:04.63]
-07. Edison Lighthouse - Feel Christmas [0:04:01.04]
-08. Fancy - Jingle Bells And Candy Canes [0:04:06.70]
-09. Santa Claus & His Rockin' Snowmen - Mary's Boy Child - Oh My Lord [0:05:17.73]
-10. Greg Lake - Believe In Father Christmas [0:03:31.49](   Читать дальше...   )Жанр: Pop, Swing, Rock'n'RollПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C368D8F92EA22A44D92660DCF32E74209244F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595783   (132227) от 29.12.2012
-
-VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Pop, Funky, Dance, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Locked Out Of Heaven 03:53
-02. Rihanna - Diamonds 03:45
-03. The Lumineers - Ho Hey 02:43
-04. Taylor Swift - I Knew You Were Trouble. 03:39
-05. Justin Bieber - Beauty And A Beat (Feat. Nicki Minaj) 03:48
-06. Ke$Ha - Die Young 03:33
-07. Maroon 5 - One More Night 03:39
-08. Flo Rida - I Cry 03:43
-09. Phillip Phillips - Home 03:30
-10. Macklemore & Ryan Lewis - Thrift Shop (Feat. Wanz) 03:55(   Читать дальше...   )Жанр: Pop, Funky, Dance, VocalПродолжительность: 02:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593162   (132150) от 29.12.2012
-
-VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность:01:17:12
-CD 1:
-01. Coldplay - Viva La Vida (3:55)
-02. Eminem Ft Rihanna - Love The Way You Lie (4:23)
-03. Editors - Papillon (3:50)
-04. Natalia - I've Only Begun To Fight (3:30)
-05. Golden Earring - When The Lady Smiles (4:36)
-06. 50 Cent Ft Justin Timberlake - Ayo Technology (4:07)
-07. Jasper Steverlinck Ft Steven & Stijn Kolacny - Life On Mars (4:00)
-08. Amy Winehouse - Rehad (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 06:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682069   (132027) от 05.12.2023
-
-VA - Music News vol.321 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inna Sigle - Шаг (03:00)
- 002. Alice Harp - Просто Танцую (02:18)
- 003. Andrei Ursu - Hai, Inima! (03:00)
- 004. ANNA - ПДД (03:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EFD85453E28F9494507203A39EC1D65FDB98B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682234   (131760) от 06.12.2023
-
-VA - CarMusic 2 for lady (2023) [MP3|320 Kbps] <Pop, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arem Ozguc - Astronaut In The Ocean (2:36)
-02. Greesha - Baila (3:12)
-03. CryJaxx - Popstar (2:44)
-04. Remix Kingz - As It Was (Remix) (2:53)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 04:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5E2844D4A4195528394B604B6BC21BBA480427
 ```
 
 https://mybot314.ru/tekegram_catalog/

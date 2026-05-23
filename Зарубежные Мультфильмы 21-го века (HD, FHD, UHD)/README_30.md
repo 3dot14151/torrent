@@ -1,3 +1,81 @@
+###  Публикация: 1501792   (833535) от 11.10.2021
+
+В поисках Дори / Finding Dory (2016) BDRip [H.264/1080p-LQ] [Локализованная версия]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Дори — синяя доброжелательная рыбка-хирург, страдающая провалами в памяти. Она упорно стремится избавиться от своего недуга и найти свою семью.Производство: США, Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Эндрю Стэнтон, Энгус МакЛэйнПеревод: ДублированныйСубтитры: Русские, английские (full, SDH)Продолжительность: 01:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3B8120ADC4206FF29BE358493DE04D05EB5DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501814   (833216) от 11.10.2021
+
+Город героев / Big Hero 6 (2014) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Юный Хиро Хамада — прирожденный изобретатель и гений конструирования роботов. Вместе со старшим братом Тадаши они воплощают в жизнь самые передовые идеи в Техническом университете города будущего Сан-Франсокио. После серии загадочных событий друзья оказываются в центре коварного заговора. Отчаявшись, Хиро решает использовать веселого и добродушного экспериментального (   Читать дальше...   )Производство: США / Walt Disney Pictures, Walt Disney Animation StudiosЖанр: Мультфильм, Фантастика, Комедия, Семейный, БоевикРежиссер: Дон Холл, Крис УильямсПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 01:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26852CD0776E8CBD482801CF51459EA8A66A988C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501819   (833214) от 11.10.2021
+
+Гринч / The Grinch (2018) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Любой бы на месте Гринча позеленел и взбесился. Как порядочный интроверт он живёт в тёмной пещере на самой вершине горы подальше ото всех, но эти «все» готовят грандиознейшее празднование нового года. Они шумят, всё украшают и дико бесят. Кто бы отказал себе в удовольствии испортить праздник? Гринч решает украсть Новый год.Производство: Франция, Япония, США / Universal Pictures, Universal Animation Studios, Illumination EntertainmentЖанр: ПриключенияРежиссер: Ярроу Чейни, Скотт МоужерПеревод: ДублированныйСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C78E9E1271F0807D310E45303FA6C0E380E4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 879787   (832958) от 20.03.2015
 
 Школа Монстров: Призрачно / Monster High: Haunted (2015) BDRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Angry Birds в кино / Angry Birds (2016) BDRip [H.264/720p] 60fps
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -594,86 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774381   (828731) от 06.04.2014
-
-Корпорация монстров / Monsters, Inc. (2001) BDRip [1080p] [hand made 60fps]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Склизский гад в сливном бачке, мохнатый зверь, похожий на чудовище из «Аленького цветочка», гигантские мокрицы под кроватью — все они существуют на самом деле. Все, что им нужно — пугать детей, потому что из детских криков они получают электричество.
-
-Полнометражный мультфильм рассказывает о кризисах в мире монстров, их жизни. Но однажды вся мирная жизнь монстров (   Читать дальше...   )Производство: СШАЖанр: Компьютерная анимация, Комедия, ПриключенияРежиссер: Пит Доктер, Дэвид Силверман, Ли АнкричПерсонажи: Джон Гудман, Билли Кристал, Мэри Гиббс, Стив Бушеми, Джеймс Коберн, Дженнифер Тилли, Боб Питерсон, Джон Ратценбергер, Фрэнк Оз, Дэниел ГерсонПеревод: ДублированныйЯзык субтитров: Rus (форс.), Rus (полные), Eng (полные)Продолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC348D947B3842EC348F2E43CDA4F5FCA2A5A73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773976   (828636) от 06.04.2014
-
-Реальная белка / The Nut Job (2014) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пытаясь выжить в городе, неразлучные друзья — белка Злюк и крысёнок Бадди натыкаются на магазин, до краёв набитый их любимым лакомством — орехами. Чувствуя, что «мечты сбываются», приятели планируют величайшее ограбление в истории грызунов. Но тут совсем некстати нарисовались бедные родственники из парка — прямо 13 друзей арахиса! Однако им всем невдомёк, что магазин (   Читать дальше...   )Производство: Канада, Корея Южная, СШАЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Питер ЛепениотисПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский (SDH)Продолжительность: 01:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC928AA3C55D199BE7E0AEA09AD3211FFA37B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773978   (828620) от 06.04.2014
-
-Реальная белка / The Nut Job (2014) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пытаясь выжить в городе, неразлучные друзья — белка Злюк и крысёнок Бадди натыкаются на магазин, до краёв набитый их любимым лакомством — орехами. Чувствуя, что «мечты сбываются», приятели планируют величайшее ограбление в истории грызунов. Но тут совсем некстати нарисовались бедные родственники из парка — прямо 13 друзей арахиса! Однако им всем невдомёк, что магазин (   Читать дальше...   )Производство: Канада, Корея Южная, СШАЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Питер ЛепениотисПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский (SDH)Продолжительность: 01:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DE4ADBDE66487DBC0395D8800BF7C6566B3C3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

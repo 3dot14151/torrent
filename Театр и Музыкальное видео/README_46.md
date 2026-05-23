@@ -1,3 +1,168 @@
+###  Публикация: 1212241   (776353) от 10.03.2018
+
+Вадим Галыгин и гр. Ленинград / 8 Марта (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данное музыкально-художественное произведение создано для привлечения общественного внимания к проблеме отношений между мужчиной и женщиной.Производство: РоссияЖанр: ПопСубтитры: русскиеПродолжительность: 00:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0381696988B2863D616BFFB1D192C33049DE7B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212216   (776301) от 10.03.2018
+
+Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это полное собрание клипов и лучших концертных выступлений немецкой группы. Все видео взято с оригинальных блю рей и двд, звук не менял, так как он превосходный. Поскольку фирменный блю рей с клипами делался из обычного видео с низким разрешением и судя по всему учавствовали в этом процессе люди слабо разбирающиеся в видео, и состряпали халтуру. Выставили в некоторых (   Читать дальше...   )00 Intro
+01 Rammstein - Du riechst so gut
+02 Rammstein - Links 2 3 4
+03 Rammstein - Rammstein(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 03:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E930D1866A57759E9B9616E8D41F4534D94796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212202   (776273) от 10.03.2018
+
+VA - Весенний марафон № 229: (Новые Лучшие Зарубежные клипы) (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Весенние (10.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent - Deep In Your Eyes (Official Video) (3:06)
+2. AMI - Niste dragoste (Official Video) (3:17)
+3. Ashley Monroe - Hands On You (Official Music Video) (3:46)
+4. Camila Cabello - Never Be the Same (4:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Soul, House, TranceПродолжительность: 01.39.51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6484DACB8BC435EA6D611BF4C6710D546D3ECB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014175   (776101) от 08.05.2016
+
+Валентин Черных - День приезда - день отъезда (1978) TVRip (2 части) (Театр им. Моссовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по одноименной пьесе В. Черных в постановке Государственного академического театра имени Моссовета. Психологи Петров и Бурцева приезжают из Москвы в небольшой город по просьбе директора завода, чтобы выяснить причины сложившейся на предприятии напряженной обстановки, участившихся увольнений рабочих. Ученым удается выяснить подлинные причины создавшейся (   Читать дальше...   )Производство: СССР, ЦТ, Московский Государственный академический театр им. МоссоветаЖанр: Телеспектакль, драмаРежиссер: Павел Хомский, Юрий ЗавадскийАктеры: Георгий Тараторкин, Ия Саввина, Лариса Наумкина, Людмила Шапошникова, Юрий Кузьменков, Вячеслав Бутенко, Леонид Евтифьев, Александр Леньков, Михаил ПогоржельскийПродолжительность: 2 x ~ 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4849AE621263CF2FCF681D46113F3A25203E52D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212357   (776084) от 11.03.2018
+
+Квартирник на НТВ у Маргулиса. Brazzaville (03.10.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В гости к ведущему Евгению Маргулису пришла инди-группа «Браззавиль», участники которой исполнили самые любимые композиции, рассказали об истории названия коллектива и семейных отношениях в группе, а также признались в любви к квартирникам.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303984AB7647485C4B5F95C31ECFF0189399967B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013801   (775680) от 09.05.2016
+
+Everest of Rock - 2 (1980) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Так назван сборник ( Everest of Rock ) Уверен , что сборник понравится "старичкам" но и молодым ценителям современного Рока будет интересно познакомиться с классикой жанра . (Иваныч)© Часть 2.01 The Doors - The Changeling (1971)
+02 Deep Purple - Smoke On The Water (1972)
+03 Alice Cooper - Schools Out (1972)
+04 The Hollies - Long Cool Woman in a Black (1972)(   Читать дальше...   )Жанр: Rock, Classic RockФормат: MatroskaПродолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C1B8B2E2B855EBE0222DB70BEE425890A9B245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277584   (775648) от 21.01.2019
 
 Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p]
@@ -6,7 +171,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +197,7 @@ The Bee Gees - One For All Tour Live in Australia 1989 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +226,7 @@ Accept - Restless And Live (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +252,7 @@ Accept - Restless And Live (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +278,7 @@ Whitesnake - The Purple Tour '2015 (2018) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +310,7 @@ Bon Jovi - Music Video (51 клип) (1985-2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -200,7 +365,7 @@ Eric Clapton «Live In San Diego with special guest JJ Cale» (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +393,7 @@ Led Zeppelin - Celebration Day 2007 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -257,7 +422,7 @@ Rammstein - Live Aus Berlin (1999) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -286,7 +451,7 @@ Paul Rodgers - Free Spirit  (2018) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -312,7 +477,7 @@ Texas International Pop Festival - Got No Shoes, Got No Blues (1969) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -341,7 +506,7 @@ Il Volo Takes Flight - Live from The Detroit Opera House { Deluxe edition } (201
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +562,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +588,7 @@ Radiohead - Le Reservoir, Paris (2003) DVDRip [PR]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +644,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +673,7 @@ Everest of Rock - 3 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +702,7 @@ Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -550,180 +715,6 @@ Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE34075B528B9D42560B1C8C775DB769A10945F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779332   (771075) от 22.04.2014
-
-СупердискотЭка / Супердискотека 90-х от Радио Рекорд (19.04.2014) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771075.jpg" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х возвращает в детство, когда мы обменивались на переменке вкладышами, вырывали странички с замечаниями из дневника, спешили домой рубиться в Сегу и Денди, а по вечерам всей семьей смотрели Санта-Барбару.
-Это гораздо больше, чем просто концерт! Это грандиозное высокотехнологичное шоу и одновременно возвращение в мир 90-х - туда, где музыку слушали (   Читать дальше...   )01. Балет А.Духовой - Тодес
-02. Юля Волкова (ex. t.A.T.u.) - Нас не догонят
-03. гр.На-На - Шляпа
-04. Линда - Мозговые помехи(   Читать дальше...   )Жанр: Концерт, Pop, Pop-rapПродолжительность: ~ 02:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1BF16D34C364F64FF5C583A68760D7748E643C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779326   (771069) от 22.04.2014
-
-СупердискотЭка / Супердискотека 90-х от Радио Рекорд (19.04.2014)  SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771069.jpg" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х возвращает в детство, когда мы обменивались на переменке вкладышами, вырывали странички с замечаниями из дневника, спешили домой рубиться в Сегу и Денди, а по вечерам всей семьей смотрели Санта-Барбару.
-Это гораздо больше, чем просто концерт! Это грандиозное высокотехнологичное шоу и одновременно возвращение в мир 90-х - туда, где музыку слушали (   Читать дальше...   )01. Балет А.Духовой - Тодес
-02. Юля Волкова (ex. t.A.T.u.) - Нас не догонят
-03. гр.На-На - Шляпа
-04. Линда - Мозговые помехи(   Читать дальше...   )Жанр: Pop, Pop-rapПродолжительность: ~ 02:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BE89C1BB0A854917DB7A16ECAC1DB30AFE5B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778960   (771053) от 22.04.2014
-
-Браво - 30 лет. Концерт в Stadium Live (2014) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добрый вечер, Москва
-02. Мода
-03. Мне грустно и легко
-04. Если бы на Марсе(   Читать дальше...   )Жанр: Rock, Beat, County RockПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C6A5E2CE97C78B1541BB1A49D7CA4727F06246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266717   (771006) от 13.05.2016
-
-Adriano Celentano - Greatest Video. Vol.2 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПеревод: ОригинальныйПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978245A051C992D5B59874C802965DE6AF52C3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718244   (770885) от 13.05.2016
-
-VA - Золотая коллекция Ретро (2006) 4xDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный видеоматериал представляет собой уникальную подборку песен в исполнении замечательных артистов эстрады Советского времени.01. Когда нам двадцать лет (Л. Клемент)
-02. Да! (В. Круглова)
-03. Королева (Г. Отс)
-04. Я люблю тебя, жизнь (М. Бернес)(   Читать дальше...   )Жанр: Концерт, РетроПродолжительность: 01:07:07 | 01:10:35 | 01:01:34 | 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F7B3B48FA4A0AE508087D40EFB6F0CCC7A1A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885842   (770671) от 08.04.2015
-
-VA - Весенний марафон № 163 / Видеоклипы (Зарубежный Коктейль Новинок) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние (06.04.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A.M.R feat. Ai Takekawa - Beyond The Moon (Original Mix) (00:09:04)
-2. Aerosmith - Girs of summer (00:04:02)
-3. ATC - Thinking Of You (Official Video) (00:03:29)
-4. Blake Shelton - Sangria (Official Video) (00:03:56)
-5. Cimorelli - All My Friends Say (Official Video) (00:03:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, RockПродолжительность: 01.35.30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC454DA34C7FC48B825653BD25F37714F3EA8E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

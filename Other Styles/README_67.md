@@ -1,3 +1,206 @@
+###  Публикация: 1027189   (698462) от 18.06.2016
+
+John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From "The Nice Guys" (02:01)
+02. Kids Today (03:23)
+03. Disco Party Fight (04:00)
+04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E90FB61B9FBCA93A4FBA5C3BE58FD75CE5989D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027190   (698242) от 18.06.2016
+
+John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From "The Nice Guys" (02:01)
+02. Kids Today (03:23)
+03. Disco Party Fight (04:00)
+04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C3E580776AB4719E290A3672AA33D9CA439196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027103   (698122) от 18.06.2016
+
+Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Kelpcake (00:46)
+02. Finding Dory (Main Title) (00:55)
+03. Lost at Sea (01:36)
+04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C728B895B0797A921083FB96EE41D8716E8B43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027169   (697914) от 18.06.2016
+
+Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен против Супермена: На заре справедливости (2016) [FLAC|24/44.1|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Blood of My Blood (04:31)
+02. Vigilante (04:02)
+03. May I Help You, Mr. Wayne?(03:34)
+04. They Were Hunters (02:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DE33AA3018E7306E791535A573B88BBE885392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288140   (697766) от 10.03.2019
+
+Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1 	How Gone Is Goodbye 	3:15
+2 	Shake The Sugar Tree 	3:09
+3 	Do You Know Where Your Man Is 	3:46
+4 	Cleopatra, Queen Of Denial 	3:12(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8920FEFA2BD2335C89DB4242852CAE6E62DDEACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287946   (697761) от 10.03.2019
+
+Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Крис Веласко хорошо известен по его совместными саундтреками с Сашей Дикисияном, например Dark Messiah, John Woo's Stranglehold, Hellgate: London и многими другими. Но когда у Криса подворачивается возможность написать что-либо без своего лучшего друга, он пытается воспользоваться ею сполна (правда, всё равно приходится просить его о помощи). Самостоятельно он написал (   Читать дальше...   )1. Legend of the Firstborn (1:57)
+2. The Coloseum (2:55)
+3. Lichthammer (1:50)
+4. Path of the Righteous (2:19)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75E737FFDDFD727EB7564C784B0F89F819C364D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025747   (697694) от 18.06.2016
+
+OST - Mick Gordon - DOOM (2016) [MP3|320 кб/с] <Electronic / Progressive Metal>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Main Menu (05:05)
+02. You Will Be Worse (05:15)
+03. The Beginning (07:40)(   Читать дальше...   )Жанр: Electronic / Progressive MetalПродолжительность: 05:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 332404   (697360) от 05.05.2011
 
 Хор Сретенского монастыря - Кто ны разлучит от любве Божия... (2001) [MP3|320 kbps]<Духовные песнопения>
@@ -6,7 +209,7 @@
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_697360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -41,7 +244,7 @@ Peru - Constellations (1989) [FLAC|Lossless|tracks + .cue] <New Age, Synth-pop>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +273,7 @@ Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -99,7 +302,7 @@ Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +331,7 @@ Sverre Knut Johansen - Secret Space Program (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +360,7 @@ Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +389,7 @@ Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Tranc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +418,7 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +447,7 @@ VA - The Nice Guys / Славные парни (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +476,7 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +505,7 @@ Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +534,7 @@ Majestica - In the Midst of Stars (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -360,7 +563,7 @@ Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +592,7 @@ Jupiter Panic - Moments of Nostalgia (2016) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -418,7 +621,7 @@ Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +656,7 @@ Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +685,7 @@ Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +714,7 @@ Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +743,7 @@ Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,206 +757,6 @@ Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F78AD9FE89CF8687A3B40E64C37AC0535D03141A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027627   (694553) от 20.06.2016
-
-Majestica - In the Midst of Stars (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Midst of Stars [00:04:30]
-02. Carousel [00:04:00]
-03. In Bloom [00:05:31]
-04. Close of Day [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EA06B98590BE3DE3F900B0F22C0554AEB65205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534111   (694253) от 02.03.2022
-
-Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kbps] <New Age, Ambient, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vision (6:12)
-02. New Feelings (7:14)
-03. Silent Motions (9:16)
-04. Classic Approach (6:17)(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64F9FF2629F3FFFE68A67BC5FEAA8A22DD26F42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741387   (694165) от 20.06.2016
-
-Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat, Rautalanka>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Guitar, Beat, RautalankaПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF414FCD78CF4246A59D487924AB18710EE8BEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027678   (694052) от 20.06.2016
-
-Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture Soundtrack) (1984) (Remastered 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (02:40)
-02. Terminator Arrival / Reese Chased / Sarah On Motorbike (07:09)
-03. Terminator Gets Guns / Search For Sarah (01:13)
-04. Reese Dreams Of Future War (01:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F8C30A5FAEE09CDAB6B54ACD973506B981C43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221131   (692994) от 25.04.2018
-
-David Osborne - Best of David Osborne: Solo Piano Performances (2018) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listen to Your Heart
-02. On the Wings of Love
-03. When I Was Your Man
-04. To Where You Are(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D560EF3C1693AA3DB845E156C4E04E8F8D0CF9D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221154   (692993) от 25.04.2018
-
-George Toward - Red Fantasies - Rhythms of Pure Romance (2018) [MP3|256 Kbps] <Instrumental, Jazz, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Compilation (3:22)
-02. Open Your Heart (3:23)
-03. Slow Seduction (2:55)
-04. Champagne (3:25)(   Читать дальше...   )Жанр: Instrumental, Jazz, Easy ListeningПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD9C9D76DC0573E0F90404A1FE25CCFF4F2C1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027961   (692964) от 21.06.2016
-
-Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vietnam War IV (01:41)
-02. Trials of the Blood Dragon (03:37)
-03. Bullet Proof (01:51)
-04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

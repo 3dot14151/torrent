@@ -1,3 +1,175 @@
+###  Публикация: 1072017   (351721) от 13.11.2016
+
+Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Gregorian представляет последнюю главу своего прощального тура "Masters Of Chant" в заключительном концерте "Final Chapter".
+То, что началось для продюсера Фрэнка Петерсона и группы в 1999 году, стремительно превратилось в монументальное победное шествие: более 10 миллионов проданных альбомов, а также множество золотых и платиновых наград, делают (   Читать дальше...   )01. Masters of chant
+02. Still haven't found what i'm looking for / only you
+03. Stay
+04. Join me(   Читать дальше...   )Производство: Ear musicЖанр: New Age, Enigmatic, ChoralРежиссер: Мартин МюллерАктеры: GregorianПеревод: ОтсутствуетПродолжительность: 02:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E87DF3E1A9C63E956EE9DBB4AAD184C5C315042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578523   (350586) от 22.11.2012
+
+Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro HouseПродолжительность: 00:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82811AC5C11CF478FF2DE90EB398721CCE2BFE1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578524   (350427) от 22.11.2012
+
+DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectroПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B5B64C898F8C0023269FFD970B197C07F56AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724562   (350234) от 20.11.2013
+
+The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Историческое и триумфальное возвращение Ролинг Стоунз в Гайд-Парк вне всяких сомнений было событием лета. Более 100 тысяч исступлённых фанатов всех возрастов набились в парк на два захватывающих концерта под открытым небом, чтобы увидеть то, что Мик Джаггер, Кейт Ричардс, Чарли Уотс и Рони Вуд делают лучше всего. «Камни» представили 5 звёздных концертов, которым (   Читать дальше...   )01. Start Me Up
+02. It s Only Rock n Roll
+03. Street Fighting Man
+04. Ruby Tuesday(   Читать дальше...   )Жанр: Classic RockФормат: DVD videoПродолжительность: 01:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDABAF111149F668AC008460EA89DEF4216F534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579114   (350081) от 22.11.2012
+
+U.D.O. - Live in Sofia (2012) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Rev-Raptor
+02. Dominator
+03. Thunderball
+04. Leatherhead
+05. Independence Day
+06. Screaming For A Love-Bite
+07. Heart Of Gold
+08. Vendetta
+09. Princess Of The Dawn
+10. I Give As Good As I Get(   Читать дальше...   )Жанр: Heavy MetalРежиссер: AFM RecordsПеревод: ОтсутствуетПродолжительность: 02:25:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329706   (350011) от 06.10.2019
+
+Квартирник НТВ у Маргулиса. Грузинский вечер (05.10.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В эту субботу на «Квартирнике НТВ у Маргулиса» состоялся настоящий праздник: в уютной атмосфере певец Ираклий Пирцхалава, джазовый музыкант Гия Дзагнидзе, музыкант Нэш Тавхелидзе, актриса Екатерина Волкова и режиссер Михаил Довженко исполнили народные песни и произнесли много грузинских тостов. Артисты пришли к Евгению не с пустыми руками: они преподнесли ему настоящий (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320044EA26FBF0216D5CECFDFD0C569B6AB22AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178886   (349051) от 31.10.2017
 
 Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
@@ -6,7 +178,7 @@ Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +207,7 @@ Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +236,7 @@ ZZ Top - Definitely Then (Double Down) 1980 (2008) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +265,7 @@ Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +291,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +346,7 @@ Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -203,7 +375,7 @@ Joe Cocker / Fire it Up Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -229,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -255,7 +427,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -284,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -313,7 +485,7 @@ Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -339,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -368,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -394,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +621,7 @@ Suicidal Angels - Division Of Blood (Bonus DVD) (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +650,7 @@ VA - Осенний марафон № 202 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +679,7 @@ Dave Gahan - Live Monsters (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +708,7 @@ Sensation White - Celebrate Life Amsterdam (THE SHOW) (2010) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -550,168 +722,6 @@ Sensation White - Celebrate Life Amsterdam (THE SHOW) (2010) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01484E97D3F3E8C0D6814B5608CB987AE566BCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330083   (343257) от 09.10.2019
-
-P!nk (Pink)  Rock in Rio (05.10.2019) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rock In Rio, один из крупнейших и самых известных музыкальных фестивалей в мире, теперь проводит для себя двухлетнюю рутину, каждый год чередуя Лиссабон с его духовным домом в Рио-де-Жанейро. В 2019 году Cidade do Rock снова наполнится звуками значков мировой музыки, причем не только из мира рока, но также из поп-музыки, фанка, соула, MPB, электронной музыки и многого (   Читать дальше...   )Act I
-Get the Party Started
-Beautiful Trauma
-Just Like a Pill(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5A2B7F61885B350F336AB9E076D2A3E1D8DB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580116   (342464) от 25.11.2012
-
-Led Zeppelin - Celebration Day(2007)  DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозный концерт группы Led Zeppelin на площадке O2 Arena в Лондоне,  Порядок песен (стартуют ребята символично с «Good Times Bad Times» – первой песни первого альбома 1969 года), освещение, работа операторов – здесь все подернуто духом реконструкции, но с искренним ощущением чуда. Никакие фильтры и ракурсы не сделали бы за группу то, что она смогла – пересилить давно вызревшие конфликты, играть в восемь рук, без минуса (кроме как в «Kashmir») самую живую и чувственную музыку XX века. Едва ли найдется много групп, относящихся к себе так требовательно, так самозабвенно оттачивающих свое мастерство. Сплав техничности и блюзовой интуиции – таковы Led Zeppelin на своем пике. Львиная харизма Роберта Планта, солидная виртуозность Пейджа не могут оставить равнодушным меломана. Да и не меломана тоже – настолько удачно в камеру попали тонкие психологические мостки, наведенные между участниками. В случае с Led Zeppelin это чуть ли не решающий фактор, от которого зависит сыгранность команды. Хотя прослезиться под «Celebration (   Читать дальше...   )Жанр: Hard RockРежиссер: Dick CaruthersАктеры: John Paul Jones, Jimmy Page, Robert Plant, Jason BonhamПеревод: ОтсутствуетПродолжительность: 02:03:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579235   (342321) от 25.11.2012
-
-Yanni - Live At El Morro, Puerto Rico (2011) H264  HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342321.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 и 17декабря 2011года, Янни исполнил 20-летнюю мечту выступить в красивом и историческом месте 16-го века Кастильо Сан-Фелипе дель Морро в Сан-Хуане, Пуэрто-Рико. Были исполнены многие классические хиты Yanni, а также несколько новых произведений . Его музыка уникальна, равно как и состав его оркестра, объединяющий прекрасных музыкантов.Жанр: New AgeРежиссер: YanniАктеры: Оркестр и вокалисты Lisa Lavie , Lauren JelencovichПеревод: ОтсутствуетЯзык субтитров: EngПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580617   (342174) от 25.11.2012
-
-СупердискотЭка / Супердискотека 90-х от Ю. Санкт-Петербург, СКК (2012) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342174.jpg" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х - легендарный ретромегадэнс, собирающий ежегодно десятки тысяч человек в Санкт-Петербурге и Москве. Каждую СупердискотЭку 90-х в прямом эфире транслирует канал MTV, а в праздничные дни 1 января и 12 июня СупердискотЭку 90-х показывали по Первому каналу и ее смотрела вся Россия. СупердискотЭка 90-х возвращает в детство, когда мы обменивались на (   Читать дальше...   )01. Intro
-02. Дискотека Авария - Хип-хоп хаус и рок-н-ролл
-03. Дискотека Авария - Новогодняя
-04. Дискотека Авария - Mix(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 03:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0A3BCDC93D342918200BE8D548113BF7A5035D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580472   (341230) от 26.11.2012
-
-Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605E328C2AC14F1ECA3D853B78E33D32FBB7FC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 410529   (341028) от 15.11.2011
-
-Mike Oldfield - Incantations​ [1978 (переиздание 2011) г., Progressive Rock, New Age, Progressive Pop, DVD5]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Rock, New Age, Progressive PopФормат: DVD VideoПродолжительность: 01:33:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

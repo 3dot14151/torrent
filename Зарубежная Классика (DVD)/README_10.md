@@ -1,3 +1,29 @@
+###  Публикация: 96625   (73901) от 03.02.2012
+
+У Фантоцци опять неприятности / Fantozzi subisce ancora (1983) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Четвертый эпизод саги о бухгалтере Фантоцци. Вновь у Фантоцци возникает масса проблем на рабочем месте и в семье. Вместо того, чтобы решить хотя бы некоторые из них, Фантоцци наживает себе новые проблемы, втянувшись в одну мафиозную авантюру. А тут еще дочка, мартышкообразная, Марианджела со своим сексуальным маньяком. И если Фантоцци отправляется купаться, то именно (   Читать дальше...   )Жанр: КомедияРежиссер: Нери ПарентиАктеры: Паоло Вилладжо, Анна Маццамауро, Милена Вукотич, Риккардо Гарроне, Джулио Фарнезе, Карло Коломбо, Антонио Франчиони, Плинио Фернандо, Уго Болонья, Марио ПедонПеревод: Многоголосый закадровыйСубтитры: НетПродолжительность: 01:23:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749834   (43308) от 17.09.2024
 
 Миссия в Москву / Mission to Moscow (1943) DVD5
@@ -6,7 +32,7 @@
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

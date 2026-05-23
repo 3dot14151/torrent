@@ -1,3 +1,146 @@
+###  Публикация: 1314610   (517228) от 16.07.2019
+
+VA - Enhanced Session Electro House (2019) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Ante Perry - Turbolized
+002. Janno Kekkonen - Avastus
+003. Melih Aydogan - Making Love (The Distance & IGI Remix)
+004. Luis Junior - Tesis(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 11:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2729BEF20B99A9CC6FA9F4FF84E0A4E845E5C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314611   (517225) от 16.07.2019
+
+VA - Feel The Love: Club House Electromix (2019) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Roma Greer - Final Shot (Original Mix)
+002. Zulu Natives - Baghdad
+003. Junk That - Money (Original Mix)
+004. Dj Junior - Hold You (Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 11:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D174BC78BB6647CA47A7A0AA309990DC75A0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314418   (517220) от 16.07.2019
+
+VA - Record Super Chart 595 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1.Billie Eilish - Bad Guy (3:14)
+2.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)
+3.Aaron Smith - Dancin (Krono Remix) (4:15)
+4.Ed Sheeran & Justin Bieber - I Don't Care (Jonas Blue Remix) (3:12)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB384F2891A657632DFA7DD62EAA131731C3374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930260   (516397) от 22.08.2015
+
+VA - Natural Lounge and Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Mauri J – Judith’s Song
+02. P & V Guitarra – Mas Que Nada
+03. Moonlight Electric Orchestra – Waveform Sax
+04. David Maj – Marea(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6215437B5C1BB61DD570FB9FF19BBA850B2F2354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930257   (516395) от 22.08.2015
+
+VA - Ibiza Residence (2015) [MP3|320 кб/с]<House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dimitri Vegas, Like Mike & Ne-Yo - Higher Place (Extended Mix) [04:25]
+02. Felix Jaehn - Ain't Nobody (Loves Me Better)Жанр: House, ClubПродолжительность: 05:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907FD15DDD0089A626DF6CB3B574B879D89EE387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930146   (516392) от 22.08.2015
 
 VA - Best Deep & Chillhouse Sounds (2015) [MP3|320 кб/с]<Deep House, Chill House>
@@ -6,7 +149,7 @@ VA - Best Deep & Chillhouse Sounds (2015) [MP3|320 кб/с]<Deep House, Chill Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +178,7 @@ VA - Perfect Sin Lounge Moments Best of Relaxed Bossa Nova and Sexy Smooth Beat 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +207,7 @@ VA - Office Sounds – Chillout Edition (2015) [MP3|320 кб/с]<Downtempo, Chil
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +236,7 @@ VA - Cafe Chillout Music Club Bar Music (2015) [MP3|320 кб/с]<Downtempo, Chil
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +265,7 @@ VA - House 100 August 2018 (6) (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +294,7 @@ Richard Brown - Best of 1994-2012. Compiled by Firstlast (2018) [MP3|256-320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -183,7 +326,7 @@ VA - Summer Beach Party Vol. 02 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -212,7 +355,7 @@ VA - 60 Minutes. Old School Dance Music vol.9 (mixed by Dj V) (2022) [MP3|320 Kb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +384,7 @@ VA - Portal: Electro Psychedelic (2019) [MP3|320 Kbps] <Psy Trance, Goa>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +413,7 @@ VA - Globalism: July Techno Set (2019) [MP3|320 Kbps] <Techno, Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +442,7 @@ VA - Art Of Deep House (2019) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +471,7 @@ VA - Hot Electro House Party (2018) [MP3|320 Kbps] <Electro Houe, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +500,7 @@ VA - Sublime Drum And Bass (2019) [MP3|320 Kbps] <Bass, D&B, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +529,7 @@ VA - Ego Night: Original Mix Electro House (2019) [MP3|320 Kbps] <Electro House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +558,7 @@ VA - Ambient Beautiful (2018) [MP3|320 Kbps] <Ambient, Lounge, Lo Fi>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -444,7 +587,7 @@ VA - Chill Island (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -473,7 +616,7 @@ VA - SunState Trance Nation (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +645,7 @@ VA - Ibiza Beach House Party (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +674,7 @@ VA - All the Lounge You Need (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +703,7 @@ VA - Play Electro In My House Vol 1 (2015) [MP3|320 кб/с]<Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +732,7 @@ VA - Lounge Cafe Lounge Playlist (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,151 +746,6 @@ VA - Lounge Cafe Lounge Playlist (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B793599B0CFF9DC45A4F047A442A607D7D2A410A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931343   (513013) от 25.08.2015
-
-VA - Lounge and Chill Out The Best Of (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Hay - True as History - The Grand Light Mix
-02. Central Station - Love and Smoke - N.Y.C Lounge Mix
-03. Barney Visser - Speak Low - Chill Mix
-04. Canaall Groove - Post(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56174098AA0D67398AA7B844C3AF559250705EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930940   (512931) от 25.08.2015
-
-VA - Tantric Sex and Lovemaking Music Background Music for a Night of Tenderness Love and Passion (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Love - Tantric Sex
-02. Romantic Dinner - Emotional Songs
-03. Tantra Chill - Sensual Relaxation
-04. Erotic Massage - Erotic Music Lounge(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DC968392E5DBE43BF25CBD6167F3E86CB6EF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931574   (511944) от 26.08.2015
-
-VA - Club Hits 2k15 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Green Point - Everything Has an End (Club Mix) [07:28]
-02. Definable - Seaside [08:16]
-03. Deportrance - Midsummernight [06:42]
-04. Sebastian Mulah - How Can I Save You [07:57](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081E81800A16BDFD2544B7F3226B265305EB0317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931602   (511940) от 26.08.2015
-
-VA - Hot And Sexy Lounge Grooves Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ MIBOR - Dreams (5:06)
-02. Johannes Huppertz - Lazy Jazz (4:36)
-03. Blue Wave - Roots & Wings (5:37)
-04. Newton - Glad but Sad (4:58)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2D901EBAF15138F3AEC7DE25939DC1C1E838B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931387   (511932) от 26.08.2015
-
-VA - Lounge Music Cafe - Cafe IBIZA (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabado Playground - Ipanema Beach
-02. Jox Talay - Groove Theory
-03. Speed Tentacles - On My Way Chillout
-04. Jox Talay - SLS Pool(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5794472432C9335BDFA0CB97DDA8E13A4E39CA13
 ```
 
 https://mybot314.ru/tekegram_catalog/

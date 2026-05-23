@@ -1,3 +1,29 @@
+###  Публикация: 493457   (249326) от 09.05.2012
+
+Sopcast 0.8.2 (ubuntu ppa,.tar.gz) [Multi/Русский]
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+SopCast Player - клиент, позволяющий смотреть видео-трансляции, которые распространяются по технологии p2p.Название программы: SopcastЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492547   (248306) от 06.05.2012
 
 GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
@@ -6,7 +32,7 @@ GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tor Browser 2.3.25-1 [x32, x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +86,7 @@ Tor Browser 5.0.5 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +112,7 @@ Tor Browser 5.0.6 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +138,7 @@ Rider 2023.1.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -140,7 +166,7 @@ BricsCAD Ultimate 23.2.04-1 [x64] (rpm,deb,tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -166,7 +192,7 @@ KingStation 0.2a [x86-64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -192,7 +218,7 @@ Wowza Streaming Engine (linux) 4.7.8 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +270,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [En] [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +297,7 @@ IDA Pro 7.7 + IDA Pro 8.3 [x86_64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +323,7 @@ DaVinci Resolve Studio for Linux 17.4.2 Build 9 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +349,7 @@ DaVinci Resolve Studio for Linux 17.4.3 Build 10 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +375,7 @@ PyCharm Professional 2023.3.1 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +401,7 @@ IntelliJ IDEA Ultimate 2023.3.2 [х64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +427,7 @@ WebStorm 2023.3.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +453,7 @@ PhpStorm 2023.3.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +481,7 @@ CLion 2023.3.1 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +507,7 @@ Wolfram Mathematica 13.3.1 [x64] (.sh)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +535,7 @@ BricsCAD Ultimate V24.1.07-1 [x86_x64] (rpm, deb, tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +561,7 @@ KingStation 0.3a [x86-64] (AppImage)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +587,7 @@ Linux UsefulPack 12.04 (L) [Русский] (2012)[x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -596,7 +622,7 @@ DraftSight V1R1.4 beta [x86] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -626,7 +652,7 @@ Oracle Database 11g Release 2 11.2.0.3 Linux [ENG]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -652,7 +678,7 @@ Transmission for Linux 4.0.6 (38c164933e) [x32, x64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -664,32 +690,6 @@ Transmission, в отличие от многих других BitTorrent кли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECB44D091D0CBF8AF81C8C185CCFEAC6BFCDB48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741566   (47599) от 07.08.2024
-
-Master PDF Editor for Linux 5.9.50 [x86_64, arm64] (deb, rpm, tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master PDF Editor - это простая в использовании, но максимально эффективная программа для работы с PDF документами. С ее помощью Вы легко сможете просматривать, создавать и редактировать, объединять несколько файлов в один и разделять исходный файл на несколько документов, комментировать, шифровать, подписывать и печатать интерактивные PDF документы. Программа оснащена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25976DD5F351D6571D3E0D6986CB807899CDD62A
 ```
 
 https://mybot314.ru/tekegram_catalog/

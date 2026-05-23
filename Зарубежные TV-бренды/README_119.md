@@ -1,3 +1,56 @@
+###  Публикация: 1665290   (130984) от 08.12.2023
+
+NG. Непокорный остров / Port Protection (Lawless Island) (2023) WEB-DL [H.264/1080p] (сезон 8, серии 1-16 из 16)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Изменчивый климат юго-востока Аляски постоянно бросает вызовы жителям небольшого поселка Порт Протекшн, живущим на самом краю цивилизации. Гэри старательно выполняет свои обязанности отца семейства, запасаясь припасами, Керли пытается противостоять жизненным невзгодам после постигшей его страшной утраты, Мэри старается скрыть свой страх перед предстоящим выживанием (   Читать дальше...   )Производство: США, Adjacent Productions, National GeographicЖанр: документальный, природа, выживаниеУчастники: Гэри Мюлбергер, Сэм Карлсон, Мэри Миллер, Дэн НахтрабПеревод: двуголосый профессиональныйСубтитры: английскиеПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B63DD8C13F4EB5CAF1712F946A412C7B58DB856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668181   (130944) от 08.12.2023
+
+В поисках Утраченной Цивилизации / Quest for the Lost Civilization (1998) WEBRip [H.264] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Писатель Грэм Хэнкок путешествует по миру и объясняет свою противоречивую теорию о том, что представители древней цивилизации путешествовали по планете еще в 10500 году до нашей эры, распространяли передовые астрономические знания и строили древние обсерватории.
+Доказательства, собранные Грэмом Хэнкоком в своих путешествиях, легли в основу как этого мини-сериала, (   Читать дальше...   )Производство: ВеликобританияЖанр: документальный, история, древние цивилизацииРежиссер: Грэм ХэнкокУчастники: Грэм Хэнкок, Роберт Шох, Санта-ФайяПеревод: одноголосый профессиональный (Pazl Voice)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 3 x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E56AEBC655FD77FAADBF9D8888017364416B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525046   (130216) от 19.01.2022
 
 BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (2021) WEB-DL [H.264/1080p] (серии 1-6 из 6) [DVO]
@@ -6,7 +59,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +85,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +137,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +163,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +189,7 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +215,7 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +241,7 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +371,7 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +397,7 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +449,7 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +475,7 @@ Discovery: Паранормальная Ирландия / Spooked: Ireland (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +608,7 @@ Discovery: Войны нашего столетия / The Century of Warfare (19
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +636,7 @@ BBC: Семь периодов жизни звезды / Seven Ages of Starlight
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -609,7 +662,7 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,58 +673,6 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F886A6EB259FD6B4F80C760E554C66DE89F940D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360268   (116305) от 22.02.2024
-
-Если бы мы строили сегодня / If We Built It Today (2019) IPTVRip [H.264] (серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116305.jpg" />
-</div>
-
-
-###  Подробнее
-
-В программе мы обсудим с архитекторами, историками, инженерами и строителями можно ли использовать современные инновации для воссоздания шедевров. Узнаем, утеряны ли навсегда методы, с помощью которых они были возведены и сколько времени займет постройка, если мы захотим воссоздать объект культурного наследия, сколько понадобится для этого рабочих. Сможем ли мы вообще (   Читать дальше...   )Производство: США, Канада / Arcadia Content, Sky Vision, Discovery Science Channel, Arcadia EntertainmentЖанр: ДокументальныйРежиссер: Jeff Parker, David WaughУчастники: Michael Heiser, Dan DebenhamПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 10 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C56D15DEEAFA869AA64E45F06BD4A6D64A90C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180623   (116283) от 22.02.2024
-
-Машины, которые создали Америку / The Cars That Made America (2017) HDTVRip [H.264/720p-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Революция в автомобилестроении в начале 20-го века преобразила США. История гениев, добившихся успеха и славы, и неудачников, выбывших из гонки. Один автомобиль может построить империю, разрушить жизнь, объединить или поссорить людей. Но в одном все согласны безоговорочно: современная жизнь просто немыслима без автомобиля. Такие люди, как Генри Форд, братья Додж, (   Читать дальше...   )Производство: США, Magilla EntertainmentЖанр: Документальный, биография, историяУчастники: Ричард Бак, Майкл Бальцано III,  H.W. BrandsПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:23:44+01:20:55+01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E917190BAE2FA435031B490011A903183100C2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

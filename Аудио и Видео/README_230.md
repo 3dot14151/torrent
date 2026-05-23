@@ -1,3 +1,32 @@
+###  Публикация: 1529328   (244844) от 06.02.2022
+
+VA - Discovery Series 002 (2019) [AAC|~335 Kbps] <Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Alexey Union, Alexander Alar - Istanbul (Original Mix) (7:00)
+02. Bruno Pauwels - Peaches on the Moon (Original Mix) (5:53)
+03. Feelmark - Contact (Original Mix) (6:45)
+04. Tantra - Bali (Original Mix) (7:31)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A95286E318E18026FDD022C3DC9CAB9DE623A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529327   (244836) от 06.02.2022
 
 VA - Discovery Series 001 (2019) [AAC|~335 Kbps] <Melodic House & Techno, Deep House, Progressive House>
@@ -6,7 +35,7 @@ VA - Discovery Series 001 (2019) [AAC|~335 Kbps] <Melodic House & Techno, Deep H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Discovery Series 003 (2021) [AAC|~342 Kbps] <Melodic House & Techno, Organi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Discovery Series 004 (2022) [AAC|~331 Kbps] <Progressive House, Melodic Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Chilhouette - Questions (2015) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - My Chillout Playlist (2022) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Winter Lounge, Vol. 2 (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -180,7 +209,7 @@ Chilhouette - Sights from Within (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Chill Out Lovers, Vol. 1 (2022) [AAC|~317 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 2 (2022) [AAC|~275 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Winter Lounge, Vol. 1 (2020) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Edelweiss: Alpine Chill to Unwind (2022) [AAC|~316 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -353,7 +382,7 @@ VA - 1 Year Arroma Records (2022) [AAC|~304 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -382,7 +411,7 @@ Martin Hiska - Blue Times (2022) [AAC|~360 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -411,7 +440,7 @@ VA - Notes from the Depth, Vol. 7 (2019) [AAC|~306 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -440,7 +469,7 @@ VA - Notes from the Depth, Vol. 8 (2019) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -469,7 +498,7 @@ VA - Lisboa Orange: Urban Chillout Music (2022) [AAC|~318 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -498,7 +527,7 @@ VA - Coffee Chill Time, Vol. 2 (2016) [AAC|~334 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -527,7 +556,7 @@ VA - Coffee Chill Time, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -556,7 +585,7 @@ VA - Coffee Chill Time, Vol. 3 (2017) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - Notes from the Depth, Vol. 9 (2020) [AAC|~330 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -614,7 +643,7 @@ VA - Coffee Chill Time, Vol. 6 (2020) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -643,7 +672,7 @@ VA - Notes from the Depth, Vol. 11 (2020) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - Notes from the Depth, Vol. 10 (2020) [AAC|~332 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -701,7 +730,7 @@ VA - Oasisphere (Compiled by Salvo Migliorini) (2020) [AAC|~315 Kbps] <Deep Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -715,35 +744,6 @@ VA - Oasisphere (Compiled by Salvo Migliorini) (2020) [AAC|~315 Kbps] <Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64EBFB5197B027F8097FBEDF30BC5362967611AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535297   (244297) от 06.03.2022
-
-VA - Everlust (Compiled by Seel) (2021) [AAC|~323 Kbps] <Deep House, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Assem - Liquid Soul (5:22)
-02. Angata, Yohana - Ga'agua (8:03)
-03. Seel, Pere - Bise (8:28)
-04. Shan Nash - Sufi (6:41)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 02:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9165E0EEE33259F0BAFB561B1BABC273B53F6D51
 ```
 
 https://mybot314.ru/tekegram_catalog/

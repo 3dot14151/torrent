@@ -1,3 +1,55 @@
+###  Публикация: 1791108   (1248) от 24.09.2025
+
+Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Внимание! Вы получили приказ выполнить миссию, от которой зависит судьба всего мира. Проследите за созданием легендарного элитного боевого отряда времен Второй мировой в игре Commandos: Origins. Долгожданное продолжение серии Commandos позволит вам вернуться к основам жанра «тактика в реальном времени». Это времена, когда зеленый берет Джек О'Хара и пятеро его спутников (   Читать дальше...   )Тип издания: RepackРазработчик: Claymore Game StudiosЖанр: СтратегииЯзык озвучки: Английский, Французский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB3514F10AD878CCF1E6647A7FA3CBCDFE1D7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759487   (1117) от 25.09.2025
+
+Old World (2022) [Ru/Multi] (1.0.79871/dlc) Repack Let'sРlay [Complete Bundle]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Old World - это историческая стратегия, в которой вы управляете империей на протяжении нескольких поколений. Удастся ли вам оставить после себя великое наследие в эпоху великих царей и цариц? Заключайте браки ради политической выгоды, растите наследников и выстраивайте отношения со знатными семьями вашего царства. Ибо в жестоком, неумолимом мире монархов нет ничего (   Читать дальше...   )Тип издания: RepackРазработчик: Mohawk GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9E5BF2383B7376CCF37A1E2C9478D104233BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761664   (1114) от 25.09.2025
 
 Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Premium Edition]
@@ -6,7 +58,7 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.01.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.2/dlc) Repack Let'sРlay [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack seleZen [Rei
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

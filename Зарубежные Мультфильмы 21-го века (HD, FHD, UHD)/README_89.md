@@ -1,3 +1,81 @@
+###  Публикация: 1190741   (266679) от 10.12.2017
+
+Гадкий я / Despicable Me (2010) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться.Производство: США, Франция / Illumination EntertainmentЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Пьер Коффан, Крис РеноПерсонажи: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер СоффинПеревод: Дублированный (Лицензия BD EUR), Профессиональный (двухголосый, закадровый) (Кубик в кубе), Авторский (одноголосый, закадровый) (А. Гаврилов, Ю. Сербин)Субтитры: Русские (Full-length, Forced), Украинские (Full-length), АнглийскиеПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C467232F132322C921D666538DB0A7623E2E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190745   (266529) от 10.12.2017
+
+Маленький вампир / The Little Vampire 3D (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Это история о маленьком вампире Рудольфе — тринадцатилетнем мальчике, чью семью преследует злостный охотник на вампиров. Однажды Рудольф встречает обычного мальчика, Тони, своего сверстника. Тони без ума от старинных замков и страшных историй про вампиров, поэтому он не раздумывая предлагает Рудольфу свою помощь. Теперь эту парочку ждут весёлые и невероятные приключения (   Читать дальше...   )Производство: Нидерланды, Германия, Дания, Великобритания, Ambient Entertainment GmbHЖанр: Мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Рихард Клаус, Карстен КилерихПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203DCA7C0D8454EBC47F39BAF98DD391684580FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190945   (265619) от 11.12.2017
+
+Гадкий я 3 / Despicable Me 3 (2017) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Грядет третье пришествие. Многодетный суперагент, роковая красотка и бессмертные миньоны на подходе. Готовьтесь. Они будут править миром.Производство: США / Illumination EntertainmentЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Кайл Балда, Пьер Коффан, Эрик ГуильонПерсонажи: Стив Карелл, Кристен Уиг, Трей Паркер, Миранда Косгров, Дэна Гайер, Пьер Коффан, Стив Кугэн, Джули Эндрюс, Дженни СлейтПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Форс.+Полные), Английские (Full+SDH+SDH Colored)Продолжительность: 01:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92ADE6D3CCF260695416DC6657D36C066028C439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267596   (265544) от 07.12.2018
 
 В поисках Немо / Finding Nemo (2003) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DC43EDF994652E205A87BB1B30E44081BF71B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837425   (256698) от 16.11.2025
-
-Кей-поп-охотницы на демонов / KPop Demon Hunters (2025) WEB-DL [H.264/2160p] [hand made Upscale AI] | DUB (Original songs)
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256698.jpg" />
-</div>
-
-
-###  Подробнее
-
-С древних времён девушки с необычными голосами охраняют людей от демонов: пением устанавливают защитный барьер, чтобы зло не проникло в наш мир. Такова миссия трёх участниц женской кей-поп-группы Huntrix, и они с ней успешно справлялись, пока их фанатов не начала переманивать мужская — команда коварных демонов, прикидывающихся симпатичными парнями.Производство: США / Columbia Pictures Corporation, Sony Pictures Animation, NetflixЖанр: мультфильм, фэнтези, боевик, комедия, музыкаРежиссер: Крис Аппельханс, Мэгги КанАктеры: Арден Чо, Мэй Хун, Ю Джи-ён, Ан Хё-соп, Ким Юн-джин, Кен Жонг, Ли Бён-хон, Дэниэл Дэ Ким, Руми Оак, Джоэль Ким БустерПеревод: Дублированный (Videofilm Ltd)Язык озвучки: Русский, АнглийскийСубтитры: Русский (Songs, Full), Английский (Full)Продолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFC1814F655E46D6E7FB5A5A8788389C316B00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836987   (256658) от 15.11.2025
-
-Кей-поп-охотницы на демонов / KPop Demon Hunters (2025) WEB-DL [H.264/1080p] DUB (Original songs)
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256658.jpg" />
-</div>
-
-
-###  Подробнее
-
-С древних времён девушки с необычными голосами охраняют людей от демонов: пением устанавливают защитный барьер, чтобы зло не проникло в наш мир. Такова миссия трёх участниц женской кей-поп-группы Huntrix, и они с ней успешно справлялись, пока их фанатов не начала переманивать мужская — команда коварных демонов, прикидывающихся симпатичными парнями.Производство: США / Columbia Pictures Corporation, Sony Pictures Animation, NetflixЖанр: мультфильм, фэнтези, боевик, комедия, музыкаРежиссер: Крис Аппельханс, Мэгги КанАктеры: Арден Чо, Мэй Хун, Ю Джи-ён, Ан Хё-соп, Ким Юн-джин, Кен Жонг, Ли Бён-хон, Дэниэл Дэ Ким, Руми Оак, Джоэль Ким БустерПеревод: Дублированный (Videofilm Ltd)Язык озвучки: Русский, АнглийскийСубтитры: Русский (Songs, Full), Английский (Full)Продолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3656BA339B153E872383DB442EDCD869AB0C9493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499775   (256406) от 21.05.2012
-
-За короля / For The King (2011) [H.264/720p-LQ] WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256406.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о слуге, который всегда был преданным своему королю.Жанр: короткометражный анимационный фильмРежиссер: Амунд ЛундваллПерсонажи: Слуга и его корольПеревод: Без слов / НемойПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990E0CE6436F04C06E7E67341682554F84DC9649
 ```
 
 https://mybot314.ru/tekegram_catalog/

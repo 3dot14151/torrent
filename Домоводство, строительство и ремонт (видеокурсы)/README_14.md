@@ -1,3 +1,112 @@
+###  Публикация: 1780013   (27462) от 16.02.2025
+
+Артем Крылов | Проектирование в Revit и Лира-сапр многоэтажного жилого дома с подземным паркингом. Разделы КР, КЖ (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы научитесь проектировать полный раздел КР и КЖ, используя REVIT и ЛИРА-САПР, а также освоите расчет на прогрессирующее обрушение. В процессе обучения вы разберетесь в работе с программами REVIT, ЛИРА-САПР, AutoCAD и САПФИР.
+
+Что вы получите после прохождения курса:Практические навыки от инженеров-практиков.
+Курс создан профессионалами, которые не (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 51:42:32Реклама: Ватермарки на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE88B3E1E65D4B06792E38B3F1134AEE9D1FBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780011   (27421) от 16.02.2025
+
+Алена Спирина, Ольга Пениоза | Все секреты кекса (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Безвозвратно прошло то время, когда кексы пекли «на глаз» и «на скорую руку»!
+Современные кондитеры вывели их на уровень, когда кекс стал круче, чем торт, и даже названия стали затейливыми: гато де вояж, тревел кейк, мадлен...
+Мягкие и сочные, воздушные и плотные, наполненные орехами или цукатами. Большие и маленькие, посыпанные сахарной пудрой (   Читать дальше...   )Жанр: ВебинарЯзык озвучки: РусскийПродолжительность: 07:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA80D464DC902283C2E20CC9B0026291B2A6CDB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780642   (27101) от 19.02.2025
+
+Вероника Папкова | Самая вкусная самса с индейкой (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Здесь вы найдете все секреты приготовления одной из вариаций самсы с индейкой. Любите такое? Смотрите, готовьте и собирайте комплименты от дегустаторов.Жанр: Обучающее видеоЯзык озвучки: РусскийПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83B65899841984AB96B1E3E68A87FFD70BCB609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780646   (27080) от 19.02.2025
+
+Анна Грибанова | Домашний квас (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Это вкусно. Это полезно. Это увлекательно. Ты можешь почувствовать себя кулинаром и повелителем бактерий в одном флаконе  и наблюдать как в обычной трехлитровой банке зарождается бурная микробиологическая жизнь.Жанр: Обучающее видеоЯзык озвучки: РусскийПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:674A680A490E6C4648CB7E56F9EA224F8AA32481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780922   (27027) от 20.02.2025
 
 Умный садовник, Владимир Задоркин | Размножение лиственных и хвойных растений (2024) WEB-DL [AD] [RU]
@@ -6,7 +115,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -34,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -63,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -89,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -118,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -147,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -174,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -203,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -231,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -260,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -289,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -317,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -346,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -372,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -400,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -429,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -456,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -482,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -511,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -540,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -566,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -592,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -604,119 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4128BCFAEE2C7EF4625A6F3398CBA11E8EBEA25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783187   (25737) от 04.03.2025
-
-Ольга Пекарько | Волшебная азия (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25737.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе вы научитесь печь   азиатские  мучные изделия на закваске: китайские паровые булочки с начинкой, индийские лепешки, японский молочный хлеб, корейские пончики и турецкие  бублики.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D6B3DD7097B03B8F3CF225C7F7D3B5DD07D157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783297   (25639) от 05.03.2025
-
-Марина Берестова | Сборник курсов Быстрые решения для сада (2024) WEB-DLRip [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25639.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как и чем закрыть забор + 5 готовых решений
-
-Формат: видео мастер-класс
-Узнаете, какие растения закроют ваш забор так, что площадь вашего сада визуально будет казаться больше(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 00:40:46Реклама: Ватермарки и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B023EE8D5BAB21CF5B23530EA4DA3D226FECF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783326   (25633) от 05.03.2025
-
-Марина Кучеренко | Школа новичка в органическом земледелии (2020) WEB-DL  [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Базовый курс органического земледелия
-7 насыщенных занятий по основам органического и природосообразного земледелия. Будет полезен и новичкам и бывалым органическим земледельцам.
-
-Базовый Курс Органического Земледелия решает три основные задачи:(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:00:55Реклама: Ватермарки и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8320C8A4A57D4E472E9938721AE10C1773CDEF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783622   (25531) от 06.03.2025
-
-Умный садовник, Дмитрий Звонка | Курс «Сад мечты своими руками» (2020) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25531.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате прохождения курса вы научитесь:
-• Выбирать качественные саженцы
-• Правильной посадке
-• Что и как делать после посадки(   Читать дальше...   )Производство: Умный садовникЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:45:09Реклама: Ватермарки и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEAB3C4CE46D44EACAA1CE54C4DADA97076A576
 ```
 
 https://mybot314.ru/tekegram_catalog/

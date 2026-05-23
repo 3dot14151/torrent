@@ -1,3 +1,110 @@
+###  Публикация: 1109698   (846474) от 06.03.2017
+
+Лазурный берег / Costa Azzurra (1959) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Забавные (и не очень) истории нескольких людей, произошедшие в Каннах. Торговец овощами и его супруга, решившая стать актрисой; кинодива, прозванная «пожирательницей мужчин» и находящаяся в поисках новой жертвы; ревнивый муж-сицилиец, проводящий здесь медовый месяц со своей, затюканной им женой. Всех этих персонажей свел вместе Лазурный Берег.Производство: Италия, Франция / Glomer Film, Lux Film S.p.a., Societ Cinmatographique LyreЖанр: КомедияРежиссер: Витторио СалаАктеры: Альберто Сорди, Рита Гэм, Антонио Чифарелло, Эльза Мартинелли, Франко Фабрици, Джорджия Молл, Жорж Маршаль, Лорелла Де Лука, Жак Бертье, Лучана АнджолиллоПеревод: Одноголосый закадровый (Urasik)Язык субтитров: РусскийПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167FE44A034DDD16BEBF58849C9780FB57FFA082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499821   (846174) от 03.10.2021
+
+Негодяи / The Spoilers (1942) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Конец девятнадцатого века, эпоха «золотой лихорадки», охватившей Аляску. На Клондайке правят лихие людишки: ловкие мошенники, алчные дельцы и сорвиголовы всех мастей, а дела, чаще всего, решаются с помощью кулаков и безотказного шестизарядного кольта. У честного бизнесмена капитана Роя Гленнистера силой пытаются отсудить прииск. За вероломной аферой стоит коррумпированный (   Читать дальше...   )Производство: США / Charles K. Feldman Group, Frank Lloyd Productions, Universal PicturesЖанр: драма, вестернРежиссер: Рэй ЭнрайтАктеры: Марлен Дитрих, Рэндольф Скотт, Джон Уэйн, Маргарет Линдсей, Гарри Кэри, Ричард Бартелмесс, Джордж Кливлэнд, Сэмьюэл С. Хайндс, Расселл Симпсон, Уильям ФарнумПеревод: Двухголосый профессиональный (Film Prestige, СВ-Дубль)Язык озвучки: Русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546E77D4A3BA78B00C189CFA58C760D13A7824E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308334   (845742) от 13.03.2011
+
+Похищение сабинянок / Il ratto delle sabine (1961) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация легендарного эпизода ранней римской истории.
+Что делать, если твоя страна переполнена крепкими и весьма буйными мужчинами, а женщин катастрофически не хватает? А вот в соседних краях, у сабинов, прекрасного пола явный избыток. Может быть, просто похитить нужное количество? Но как?
+
+Правитель Рима, отважный и благородный Ромул, разработал простой и быстрый (   Читать дальше...   )Производство: Италия, Франция, Югославия / C.I.P.R.A., Dubrava Film, F.I.C.I.TЖанр: приключения, комедияРежиссер: Ришар ПотьеАктеры: Роджер Мур, Милен Демонжо, Джорджия Молл, Шилла Габель, Марино Мазе, Жан Маре, Розанна Скьяффино, Фолько Люлли, Луиза Маттиоли, Франсис БланшПеревод: Многоголосый профессиональныйПродолжительность: 01:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892E9352F7CB643DA1C5BFB0DD18A774E32680F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 770365   (845222) от 28.03.2014
+
+С глазу на глаз / A Tu Per Tu (1984) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Трудна и непредсказуема жизнь главного героя фильма таксиста Джино Шакалуга. Его донимает сварливая жена, на работе одни неприятности. И вот однажды в его такси садится обанкротившийся финансист Эмануэле Сансони, которого преследуют агенты финансовой полиции. Тут то и начинается череда курьёзов и случайностей, происходящих с главными героями этой искромётной комедии.Жанр: КомедияРежиссер: Серджо КорбуччиАктеры: Паоло Вилладжо, Джонни Дорелли, Адриано Паппалардо, Мариса Лаурито, Франко Рессель, Марильда Дона, Лучио Розато, Джулиана Каландра, Виктория Дзинни, Сол Борджезе, Марио Донатоне, Трэйси Фриман, Миммо Поли, Моана Поцци, Маурицио Ромоли, Васко Сантони, Стефано ВиалиПеревод: Профессиональный (двухголосый, закадровый) + Авторский (Владимир Штейн)Продолжительность: 01:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E29D3ECE5A2EA30C15C0D496BAF4576F60EF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 89056   (845178) от 29.04.2013
 
 Хищники / Les Felins (1964) DVDRip
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADF9BD5847C10D14ACC99050CC41AFBD3AED5908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193432   (841511) от 18.04.2010
-
-Седьмая рота нашлась / The Seventh Company Has Been Found / On a retrouve la 7eme compagnie! (1975) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение комедии "Куда же делась седьмая рота?" о трех молодых солдатах, затерявшихся в немецком тылу и успешно чинивших неприятности и диверсии немецким войскам. Ведя свою подрывную деятельность, они умудряются отыскать и освободить своих захваченных однополчан. …Производство: Франция / Gaumont International, Production 2000Жанр: Комедия, ВоенныйРежиссер: Робер ЛамуреАктеры: Жан Лефевр, Пьер Монди, Анри Гибе, Пьер Торнад, Бернар Деран, Жак Моно, Рене Булок, Робер Дальбан, Жан Ружери, Эрик КоленПеревод: Многоголосый закадровыйПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FFD89068C10B1F584392E650084871CAAFA375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110351   (841430) от 09.03.2017
-
-Опасный перегон / Night Passage (1957) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841430.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Грант Маклэйн, работающий охранником на железной дороге, не смог задержать грабителя, его уволили. Он стал зарабатывать на жизнь игрой на аккордеоне. Неожиданно он получает предложение от Бэна Кимбела, шефа ЖД, вернуться на старое место работы, так как банда Уайта три раза подряд ограбила поезда, везущие зарплату рабочим. Бэн Кимбэл поручает ему доставку (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Джеймс НилсонАктеры: Джеймс Стюарт, Оди Мерфи, Дэн Дюрьи, Дайян Фостер, Илэйн Стюарт, Брендон Де Уайлд, Джей С. Флиппен, Херберт Андерсон, Роберт Дж. Уилки, Хью БомонтПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E62F869FBA0D0A1211C9CC4254A3D69353433C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000859   (841167) от 04.04.2016
-
-Вторжение похитителей тел / Invasion of the Body Snatchers (1978) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Джека Финнея "Похитители тел". Сан-Франциско, 1970-е годы. После сильного ливня по всему городу распускаются загадочные цветы. Биолог Элизабет Дрисколл приносит один из них домой. И вскоре замечает, что ее приятель Джеффри странно себя ведет. Элизабет обращается за советом к своему другу Метью Бэннэллу, и с удивлением узнает, что она (   Читать дальше...   )Производство: СШАЖанр: Ужасы, фантастика, экранизацияРежиссер: Филип КауфманАктеры: Дональд Сазерленд, Брук Адамс, Джефф Голдблюм, Вероника Картрайт, Леонард Нимой, Арт Хиндл, Лилия Гольдони, Кевин МакКарти, Дон Сигел, Том Ладди, Стэн Ричи, Дэвид Фишер, Том Дальгрен, Гэрри Гудроу, Джерри Уолтер, Морис Аргент, Сэм Конти, Вуд Мой, Р. Вонг, Роуз КауфманПеревод: Профессиональный двухголосый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DB01B98F81ECEE7333DF26989FC5D600382D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499380   (840959) от 06.10.2021
-
-Капо / Kapo (1960) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанная на реальных фактах, история нравственного падения еврейской девушки, попавшей в невообразимые условия гитлеровской фабрики смерти Освенцим и ставшей капо (надзирательницей). Чтобы не голодать, жить без постоянного страха смерти, не опасаясь изнурительных каторжных работ, нужно только одно – быть жестокой... Фильм был номинирован на премию Оскар в 1961 (   Читать дальше...   )Производство: Италия, Франция, Югославия, Cineriz, Vides Cinematografica, Zebra Films, Francinex, Lovcen FilmЖанр: драма, военныйРежиссер: Джилло ПонтекорвоАктеры: Сьюзен Страсберг, Лоран Терзиефф, Эмманюэль Рива, Диди Перего, Джанни Гарко, Annabella Besi, Грациэлла Гальвани, Паола Питагора, Eleonora Bellinzaghi, Бруно ШипиониПеревод: Любительский двухголосый (den904 & DeadSno)
-Язык озвучки: Русский, итальянскийСубтитры: Русские (garageforsale), английскиеПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07BA3DEC28EF081BAEC4ADC42279D13B9AE6D171
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 266655   (305799) от 05.12.2010
+
+Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дилогия]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Осень 2008 года. Агент ФБР Виктория Макферсон отправляется в штат Мэн для расследования убийства Одри Данниген. Фотографии с места преступления не оставляют сомнений - маньяк, известный как «Палач Восточного побережья», вновь начал собирать кровавую жатву. Убийца не поленился тщательно вымыть труп, при вскрытии не было обнаружено никаких улик. Преступник снова не (   Читать дальше...   )Тип издания: RePackРазработчик: GameCo StudiosЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F769A18485D1112490DA92C6CF7C3F38BAC4F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333292   (304946) от 24.10.2019
+
+The Park (2015) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Park — это психологический ужастик от первого лица; действие происходит в мрачном парке развлечений, полном темных секретов. В этой короткой, на пару часов, игре на первый план выходит напряженная история и исследование, а не бой и экшн. День в парке развлечений... забытый плюшевый мишка... потерявшийся ребенок. Когда солнце зайдет над парком «Атлантик-Айленд», (   Читать дальше...   )Тип издания: RepackРазработчик: FuncomЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2FB5A6CF8EE935FD8D79B084B6F08FD924CA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582982   (304708) от 05.12.2012
+
+The Moment Of Silence / Момент истины [Ru] (L) 2005
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2044 год. Жизнь сотрудника телекоммуникационного агентства Питера Райта, потерявшего семью в авиакатастрофе незадолго до начала описанных событий, внезапно изменилась после ареста его соседа. Темной ночью отряд спецназа взял штурмом квартиру несчастного и уволок неизвестно куда. Помощь испуганным домочадцам жертвы полицейского произвола — гораздо более достойное занятие, чем поиск истины на дне стакана виски. Питер ввязывается в историю с правительственными заговорами, слухами об инопланетянах, контролирующих жизнь каждого землянина, и таинственными «людьми в черном», способными попирать все мыслимые гражданские права и свободы.
+(   Читать дальше...   )Тип издания: ЛицензияЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B11B8E57E6E7FDC8B94D6B13CBB122E79EA0E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077845   (303936) от 29.11.2016
+
+Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игра Quern - Undying Thoughts является нелинейной адвенчурой от первого лица, действия которой развернутся в одной из мультивселенных, в мире, где остров по всем сторонам омывается бескрайним океаном, что же ждет вас впереди? Получайте подсказки из двух источников: рационального и духовного.Тип издания: LicenseРазработчик: Zadbox EntertainmentЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, Венгерский, ФранцузскийЯзык интерфейса: Английский, Венгерский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200D2F0270871830AFCB81A6A3A996CC7F278BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077967   (303815) от 29.11.2016
 
 Quern - Undying Thoughts (2016) [Multi] (1.0) Repack Other s
@@ -6,7 +111,7 @@ Quern - Undying Thoughts (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Norman's Night In (2019) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ TSIOQUE (2018) [En/De/Pl] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +371,7 @@ Perception (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +397,7 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +423,7 @@ Centralia: Homecoming (2019) [Ru/Multi] (1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +449,7 @@ Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +475,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +501,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +527,7 @@ Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Колле
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +553,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +579,7 @@ Slender: The Arrival (2013) [Ru/En] (2.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +605,7 @@ Between Me and The Night (2016) [Ru/Multi] (1.12) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +631,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +657,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +669,6 @@ Tales from the Borderlands – эпизодическое приключение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4D3686255E79707F60803027BE0A3265E073D88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422133   (289344) от 13.12.2011
-
-A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на фюрера. Операция "Валькирия" [Ru] (RePack/1.02) 2009 | SxSxL
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операция "Валькирия" - знаменитый план Германского Сопротивления с целью убить Гитлера. Штандартенфюрер Майер, он же советский разведчик в управлении имперской безопасности, узнает о том, что гестапо вышло на след заговорщиков. Сделав все возможное, чтобы расследование дела поручили ему, он пытается пустить гестапо по ложному следу, переиграть самого группенфюрера (   Читать дальше...   )Тип издания: RePackРазработчик: SPLine GamesЖанр: Arcade / Adventure (Logic / Quest) / 3D / 3rd personЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0BEA85926BDDAAB174473690888BF02E3DDD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080788   (287577) от 07.12.2016
-
-The Descendant (2016) [Multi] (3.2/dlc) License PLAZA [Episode 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287577.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Descendant — это приключенческая игра в сеттинге техногенного апокалипсиса, после которого человечество было вынужденно “спуститься” под землю, дабы выжить. Проходили столетия. Мир оправился от ядерного Холокоста, и все Ковчеги открылись, кроме одного — Ковчега-01. Каждое действие и выбор сделанный вами напрямую влияет на то, кто будет жить, а кто умрёт.Тип издания: LicenseРазработчик: Gaming Corps ABЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23275557C30503549673E85250631FFA84DD18E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080685   (287375) от 07.12.2016
-
-The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Telltale Games Series]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте за Ли Эверетта, осужденного преступника, получившего второй шанс на жизнь в мире, опустошенном мертвецами. Среди оживших трупов и оставшихся выживших, готовых пойти на что угодно ради собственной безопасности, защита девочки-сироты по имени Клементина станет искуплением грехов для главного героя в этом мире, превратившемся в ад.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56152CFB0271B3EC6B787079998051681F41BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080863   (285733) от 08.12.2016
-
-That Dragon, Cancer (2016) [En] (1.0) License PROPER-PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285733.jpg" />
-</div>
-
-
-###  Подробнее
-
-That Dragon, Cancer – интерактивный пересказ реальной истории о борьбе с раком 4-х летнего Джоэла Грина, который, к сожалению, не смог справиться с болезнью. Игроков ждет два часа геймплея, на протяжении которых предстоит погрузиться в личные воспоминания родителей мальчика и пережить то, что переживали они, начиная с момента, когда у Джоела диагностировали рак, (   Читать дальше...   )Тип издания: LicenseРазработчик: Numinous GamesЖанр: Adventure, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0AA3B3640ED1A9A6BB9861B9AAEAD6D23EF639
 ```
 
 https://mybot314.ru/tekegram_catalog/

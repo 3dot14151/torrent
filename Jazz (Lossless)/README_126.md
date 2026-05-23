@@ -1,3 +1,61 @@
+###  Публикация: 1143777   (633395) от 19.06.2017
+
+Jorge Pardo - Huellas (2012) 2CD, Cabra Road [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Zapatito [06:56]
+02. Chulo Miguel [08:02]
+03. Y tu Tambien [05:20](   Читать дальше...   )Жанр: Ethnic Jazz, World FusionПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FFB57ACCAA2137B6BB10954E53304FE22C004B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143773   (633392) от 19.06.2017
+
+Members Of The Benny Goodman Orchestra - A Tribute To Benny Goodman (1998) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sing, Sing, Sing [04:24]
+02. In The Shade Of The Old Apple Tree [02:50]
+03. My Wild Irish Rose [02:40]
+04. When The Saints Go Marching In [03:06](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6AD007B391E9D97226500325E1C7BFABFCF620D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034853   (632676) от 14.07.2016
 
 Jeremy Steig - Fusion (1970) Groove Merchant[APE|Lossless|image + .cue] <Jazz Fusion>
@@ -6,7 +64,7 @@ Jeremy Steig - Fusion (1970) Groove Merchant[APE|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Bobby Hutcherson - Linger Lane (2012) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Ornette Coleman - New York Is Now! Vol. 1 (2014) [FLAC|Lossless]<Jazz, Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Ahmad Jamal - I Remember Duke, Hoagy & Strayhorn (1995) [FLAC|Lossless]<Jazz, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Enrico Pieranunzi - Monsieur Claude A Travel with Claude Debussy (2018) Bonsai M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Louis Armstrong - Classics & Rarities: Milestones Of A Jazz Legend (1927 - 1961)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Houston Person - All Soul (2005) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Tony Bennett - The Beat Of My Heart (1957) 2017, Sony Music [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Rufus Harley - The Pied Piper of Jazz (1966, 1967) 2000, Label M [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +325,7 @@ Elvin Jones, James Moody, Clark Terry - Summit Meeting (1977) Vanguard[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Illinois Jacquet - The Definitive Black & Blue Sessions: God Bless My Solo (1978
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Milt Jackson - And The Thelonious Monk Quintet (2013) [FLAC|Lossless]<Jazz, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +412,7 @@ Wynton Marsalis - The Music of America (2012) 2CD /Sony Masterworks/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +441,7 @@ Joey DeFrancesco - In The Key Of The Universe (2019) Mack Avenue [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +470,7 @@ Tal Farlow - Three Classic Albums Plus (1954 - 1959) 2CD, 2013, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +499,7 @@ Matthew Shipp Trio and Nicole Mitchell - All Things Are (2019) [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +528,7 @@ Peggy Lee - A Portrait of Peggy Lee 1941-1942 (1986) Sony [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +557,7 @@ Chet Baker & Gerry Mulligan - Original Quartet 1952, 1953 (2018) 2CD, Jazz Image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +586,7 @@ Nat King Cole - Ultimate Nat King Cole (2019) [FLAC|Lossless|tracks + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +615,7 @@ Nicki Parrott - From New York To Paris (2019) [FLAC|Lossless|WEB-DL|tracks] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +644,7 @@ Jackie McLean - The Jackie Mac Attack Live (1991) Birdology [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +673,7 @@ Kenny Drew - Undercurrent (1961) Remaster, 2011, Audio Wave [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +702,7 @@ Heads Of State - Four In One (2017) Smoke Sessions Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +731,7 @@ George Gershwin - The Original Gershwin Collection (2011) BoxSet 5CD[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_629091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -697,70 +755,6 @@ George Gershwin - The Original Gershwin Collection (2011) BoxSet 5CD[FLAC|Lossle
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521315   (628983) от 10.07.2012
-
-VA - Verve - Unmixed2 & Remixed2 (2003) 2CD [FLAC|Lossless]<Downtempo, Broken Beat, Deep House, Jazzdance, House, Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нетленные вещи Сары Воэн, Эллы Фитцджеральд, Диззи Гиллеспи, Аструд Джилберто, Оскара Брауна не столько заново ожили, сколько громогласно напомнили о себе нам, запутавшимся в электронной паутине. Особый респект Gotan Project за восхитительный ремикс любимейшей песни Сары Воэн «Whatever Lola Wants». Если сравнить с альбомом Unmixed, то видно, как бережно отнеслись исполнители к исходному материалу.01. Dizzy Gillespie - Manteca (The Funky Lowlives Remix) :: 06:53
-02. Nina Simone - Sinnerman (Felix Da Housecat's Heavenly House Mix) :: 04:35
-03. Sarah Vaughan - Whatever Lola Wants (Gotan Project Remix) :: 04:40
-04. Oscar Brown, Jr. - Brother Where Are You? (Matthew Herbert Remix) :: 04:05
-05. Ella Fitzgerald - Slap That Bass (Miguel Migs Petalpusher Remix) :: 04:44
-06. Archie Shepp - Blues For Brother George Jackson (Mondo Grosso Next Wave Mix) :: 05:11
-07. Ella Fitzgerald - Angel Eyes (Layo & Bushwacka Remix) :: 05:34
-08. Ramsey Lewis - Do What You Wanna (Mr. Scruff's Soul Party Mix) :: 05:24
-09. Cal Tjader - Soul Sauce (Fila Brazillia Remix) :: 04:16
-10. Willie Bobo - Fried Neckbones And Some Home Fries (Dan The Automator Remix) :: 04:30(   Читать дальше...   )Жанр: Downtempo, Broken Beat, Deep House, Jazzdance, House, Jazz, BopФормат: 2xCD, CompilationПродолжительность: 02:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FE32C3F082081384449ACE9046480C90C72FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909156   (628583) от 17.06.2015
-
-McCoy Tyner - Dimensions (1984) /2005, Collectables/[FLAC|tracks+.cue]<Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One For Dea [10:02]
-02. Prelude To A Kiss [04:01]
-03. Precious One [08:02]
-04. Just In Time [06:08](   Читать дальше...   )Жанр: Jazz, Post-Bop, Piano JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5EE789314BC85BF615A22858F56C6521BA1DA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

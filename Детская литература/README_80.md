@@ -1,107 +1,3 @@
-###  Публикация: 1224224   (667122) от 09.05.2018
-
-Михаил Чистяков | Родное (1883) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D167CC715E75FC5A9198BD563B1A5ED53E31227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138103   (665362) от 28.05.2017
-
-Аня Амасова, Виктор Запаренко | Пираты Кошачьего моря [2] (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбылась мечта Дженифыр Котес - она стала капитаном пиратского судна! Теперь юному капитану и ее команде предстоит отправиться на остров Бешеного Патрика и разыскать там сокровища Корноухого. Однако неожиданности подстерегают "Ночной кошмар" на каждом шагу: корабль то захватывают пираты-конкуренты, то терзает десятибалльный шторм, то затягивает в водоворот… (   Читать дальше...   )Жанр: Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C298C4903A1B9687E0AB1F2873D8DA609ED968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138093   (665248) от 28.05.2017
-
-Книжная серия | Космические истории [4] (2016-2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая серия нашей фантастики для детей, подростков и продвинутых взрослых. Книги с симпатичными картинками. Ее зовут Никки. Она учится в самой престижной школе Солнечной системы. На Луне. У нее есть друзья, деньги и слава. Она умеет сражаться и учиться, хотя зачастую знает предметы лучше, чем ее учителя. Неудивительно, ведь у нее за спиной – самый мощный компьютер (   Читать дальше...   )Жанр: Детская фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72707A16E302BDF912E1A32D797EDBB3C7267A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538134   (664513) от 19.03.2022
-
-Керри Райан, Джон Парк Дэвис | Карта Куда Угодно. Сердце Потока. Книга 4 (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потерянное Солнце вырвалось на свободу. Родной город Фина, Пристань Клучанед, разрушен, а Пиратская Река стремительно превращается в чёрное застойное болото. Существование всех бесчисленных миров под угрозой. К тому же Фин и Маррилл столкнулись с предательством самого близкого друга. И теперь вынуждены сражаться с ним, а в союзниках — вчерашний враг. Чтобы остановить (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Татьяна БушуеваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D310FC22B4D468E47F7EE7FC7F867940341219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538179   (664510) от 19.03.2022
 
 Самуил Маршак | Где обедал воробей (1987) [PDF]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -640,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -667,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -679,6 +575,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE5632012CF2500DCD08ACD3293066A9C527D2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902709   (659226) от 30.05.2015
+
+Вильям Козлов | Юрка Гусь (1962) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На восток, отстукивая километры, мчится санитарный поезд. Унылый лес подступил к полотну железной дороги. Костлявые руки осин и берез ловят клочья паровозного дыма. На пригорках, уткнувшись в промозглое небо шестами, спят причесанные дождем стога.
+   Мальчишку со всех сторон обдувает холодный осенний ветер. Он забирается в рукава, холодит грудь и спину, охватывает тело (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14822F5BFF5D96C08BEF4FC11529EBD23C90EAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902840   (659212) от 30.05.2015
+
+Виталий Злотников | Мы с Шерлоком Холмсом (2005) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шутливые пародии на темы рассказов о Шерлоке Холмсе.Жанр: Детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951771CA5CAD8C16DC93536314EDFCAF197DFB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139701   (658555) от 03.06.2017
+
+Дж. К. Роулинг | Гарри Поттер. Полная коллекция (1997-2007) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Все семь электронных книг из серии о Гарри Поттере – которая стала международным бестселлером и отмечена множеством наград – с изумительными иллюстрациями Олли Мосс на обложках можно загрузить в виде одного пакета. Окунитесь в историю, которая захватила воображение миллионов людей по всему миру.Жанр: Детская фантастикаПеревод: Мария СпивакФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19614A945914DBB873C7EF5E781163ABFA1B322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539461   (658205) от 25.03.2022
+
+Аманда Луззадер | Русалочка(Луззадер) [3 книги] (2021-2022) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга 1. Талисман забытых земель. ISBN: 978-5-17-137473-0. Год: 2021
+Бринн Финли идет в среднюю школу. И оказывается единственной русалочкой в классе, не способной творить магию! А без магических способностей нельзя стать стражем моря, как все остальные русалки. В школе и дома Бринн приходится притворяться умелой волшебницей, но она понимает, что долго ее ложь не (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: Нина СеменоваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1DC926E0095F99D911248C889E28DCE315BC4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

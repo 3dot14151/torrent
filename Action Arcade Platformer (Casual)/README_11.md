@@ -1,3 +1,33 @@
+###  Публикация: 540845   (501955) от 30.08.2012
+
+Awesomenauts [En/Multi6) (L/Steam-Rip/1.3) 2012 | R.G. Игроманы
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3587 год. Охватывающий звезды конфликт, в котором огромные армии роботов скованы бесконечными боями. В своей борьбе за галактическое господство, они призывают самую сильную группу наемников во вселенной: Awesomenauts!
+
+Awesomenauts — это MOBA, сделанная в виде доступного платформера с игрой 3-на-3. Выходите на сетевые поля боя со своими друзьями в онлайн-компании или локальном разделенном экране, и вам никогда не придется ждать начала онлайн матча, благодаря системе подключения на лету!
+
+Планируйте как вы улучшите и настроите навыки каждого персонажа в соответствии со своим игровым стилем. Новые предметы и Awesomenaut'ы будут регулярно добавляться! (   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Жанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык интерфейса: Английский, Multi6
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A9421AEFEA6DF8A31F0D44CAA3AC51DBEB669D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934949   (500196) от 07.09.2015
 
 Giana Sisters: Dream Runners (2015) [Ru/En] (1.0) Repack R.G. Freedom
@@ -6,7 +36,7 @@ Giana Sisters: Dream Runners (2015) [Ru/En] (1.0) Repack R.G. Freedom
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +62,7 @@ Red Goddess Inner World (2015) [En/Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +88,7 @@ Daydreamer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +116,7 @@ Exile's End (2015) [En] (1.0) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +142,7 @@ Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +168,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +194,7 @@ Platypus Adventures (2022) [En] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +220,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +246,7 @@ Starbound (2016) [Ru/En] (1.4.4) Repack R.G. Alkad
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +272,7 @@ Blade Kitten (2010) [En/Multi] (1.0/dlc) RePack Let'sPlay [Re-Release Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +298,7 @@ The Messenger (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +324,7 @@ Dark Matter (2013) [Ru/En/Ge] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +350,7 @@ Selma and the Wisp (2016) [Ru/Multi] (1.0/u2/dlc) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +376,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) License GOG [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +402,7 @@ Tiny Echo (2017) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +428,7 @@ Gateways (2012) [En] (1.15) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +454,7 @@ Teslagrad (2015) [Ru/Multi] (1.4.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +480,7 @@ Small Tanks [En] (RePack) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +506,7 @@ Deadlings: Rotten Edition (2014) [Ru/Multi] (0.0.51) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +532,7 @@ Monkey King: Master of the Clouds (2018) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +558,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) Repack R.G. Catalyst [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +610,7 @@ Lost in Play (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +636,7 @@ Cut the Rope [Ru/Multi4] (L) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +662,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,33 +673,6 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16365DA35ECAB8AB3F1AD6C97CA9816BA53D353C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064894   (422943) от 21.10.2016
-
-Lost Socks: Naughty Brothers (2016) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйся в погоню за потерянными носками! Lost Socks: Naughty Brothers - это платформер, действие которого разворачивается в безумном мире с нескончаемым весельем и хардкорными испытаниями.
-Эта игра выделяется тем, что персонаж просто не может остановиться, так что приготовься к мощному натиску врагов, пуль и прочих препятствий!Тип издания: RepackРазработчик: Nerf Game Co. Ltd.Жанр: Adventure, Arcade (Platform), IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA42B36AF775E665377B1720F8540B64BD349F8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

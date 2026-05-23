@@ -1,3 +1,107 @@
+###  Публикация: 1801272   (15125) от 09.06.2025
+
+Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Воровка по имени Клэй отправляется в подземелье, наполненное монстрами и ловушками, чтобы найти пропавшего отца. Когда она попадает на уровень, куда ещё не ступала нога искателя приключений, на её пути появляется могущественная смотрительница подземелья и предлагает... работу! Теперь вместо того чтобы исследовать подземелье, Клей должна определять задачи для новых (   Читать дальше...   )Производство: студия OLM / オー・エル・エムЖанр: приключения, фэнтезиРежиссер: Ямаи СаякаПеревод: SanaeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17CF108EE5157F2B9C6C63A2887FD4C9CA071CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801463   (15080) от 10.06.2025
+
+Moonrise | Восход Луны [2025, Web, 18 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+После того, как силы повстанцев атакуют Землю, беззаботный наследник становится главным подозреваемым и присоединяется к специальному военному подразделению, чтобы найти настоящего зачинщика на Луне.Производство: Студия Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Коидзука МасасиПеревод: Sanae (остальное Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 18 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8B3D8A4FFC5D96262089605C847B00E29663D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789404   (14352) от 17.06.2025
+
+Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбольного поля [2025, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мурата — офисный работник, который любит посещать бейсбольные матчи на ближайшем стадионе. Там он знакомится с Рурико — девушкой, разносящий пиво, с внешностью гяру, — и становится её первым постоянным клиентом. Рурико ведёт себя с Муратой довольно холодно, но когда он выпадает из поля зрения, даёт о себе знать невинная сторона её личности.Производство: Студия EMT Squared / EMTスクエアードЖанр: спорт, романтикаРежиссер: Китамура ДзюнъитиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881CF6533A0770BE23FE21F97E931B191F34D634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788971   (14339) от 17.06.2025
+
+Aru Majo ga Shinu Made / Once Upon a Witch's Death / Пoкa вeдьмa нe умрёт [2025, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В свой семнадцатый день рождения ученица ведьмы Мег узнаёт, что жить ей осталось всего год. Её наставница, ведьма-долгожительница Фауст, объясняет, что единственный способ снять смертельное проклятие — собрать слёзы радости и прорастить семя жизни. Заставить тысячу человек разрыдаться от счастья — разве ж это задача?..Жанр: повседневность, фэнтези.Режиссер: Нигорикава АцусиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7761E554AFF29D67DB2A3F3997E29E21E2F3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789361   (14134) от 19.06.2025
 
 Wind Breaker Season 2 | Ветролом 2 [2025, TV, 12 эп.] WEBRip 720 raw
@@ -6,7 +110,7 @@ Wind Breaker Season 2 | Ветролом 2 [2025, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Enen no Shouboutai San no Shou | Fire Force (2025) | Пламенная бриг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Danjo no Yuujou wa Seiritsu Suru? (Iya, Shinai!!) / Can a Boy-Girl Friendship Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita 2 / Убив�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Shoushimin Series / How to Become Ordinary / Как стать обычным ч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +269,7 @@ Katainaka no Ossan, Kensei ni Naru / From Old Country Bumpkin to Master Swordsma
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +295,7 @@ Zatsu Tabi: That's Journey / Это путешествие [2025, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Gorilla no Kami kara Kago Sareta Reijou wa Ouritsu Kishidan de Kawaigarareru | T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Maebashi Witches | Ведьмы Маэбаси [2025, TV, 12 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Aharen-san wa Hakarenai 2 / Непостижимая Ахарэн-сан 2 [2025
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 эп.] WebRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +427,7 @@ Kakushite! Makina-san!! | Makina-san's a Love Bot?! | Прячься, Макин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +455,7 @@ Nazotoki wa Dinner no Ato de | The Dinner Table Detective | Разгадыван
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +481,7 @@ Shiunji-ke no Kodomo-tachi / The Shiunji Family Children / Дети семьи �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +507,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | Ki
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +535,7 @@ Chuuzenji-sensei Mononoke Kougiroku: Sensei ga Nazo o Toite Shimau kara. | Жу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +561,7 @@ Ninja to Koroshiya no Futari-gurashi | A Ninja and an Assassin Under One Roof | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +587,7 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +613,7 @@ A Rank Party o Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu o Meza
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Kowloon Generic Romance | Обычная романтика в Цзюлуне [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Teogonia | Теогония [2025, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -573,110 +677,6 @@ Teogonia | Теогония [2025, TV, 12 эп.] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:020234602234B065228BEEA7DDE52D106FFC843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791285   (13200) от 28.06.2025
-
-mono | Моно [2025, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотоклуб под угрозой закрытия?! И Киноклуб тоже?! Не волнуйтесь, потому что они объединятся и станут... Синефотоклуб! Теперь членам клуба Сацуки, Ан и Сакурако предложено стать главными героинями последней работы художницы манги Харуно, в центре которой - экшн-камеры. Девушки отправляются запечатлеть прекрасные достопримечательности Японии, экспериментируя с гаджетами, (   Читать дальше...   )Производство: SoigneЖанр: комедия, повседневностьРежиссер: Айкэй РётаПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4441DFE60DE1D66BBF07F34B59DD1D1833A79EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791267   (13189) от 28.06.2025
-
-Hibi wa Sugiredo Meshi Umashi / Food for the Soul / Дни проходят, а еда по-прежнему хороша [2025, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13189.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает о 5-ти девушках студентках, которые очень любят вкусно покушать и живут полной жизнью студента.Жанр: повседневность, комедия, еда.Режиссер: Кавацура СинъяЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2EE346E6F734E3404448929D16844EE25BB1DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789802   (13172) от 28.06.2025
-
-Classic Stars | Звёзды классики [2025, TV, 13 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частная академия "Глория" — это школа, где собираются перспективные молодые люди из всех сфер развлечений, включая музыку, искусство и спорт. На музыкальном факультете те, кто соответствует «таланту» великих музыкантов, получают «дар» в свои тела и называются именем этого музыканта. Бетховен, молодой человек, который был признан совместимым после травмы, (   Читать дальше...   )Производство: Студия Platinumvision / プラチナビジョンЖанр: повседневность, музыкальныйРежиссер: Оба ХидэакиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15A57CEA788B8B8AD503F79F272FD4A79158D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790178   (12999) от 30.06.2025
-
-Vigilante: Boku no Hero Academia Illegals | My Hero Academia: Vigilantes | Моя геройская академия: Вне закона [2025, TV, 13 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12999.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где 80 процентов населения обладают сверхспособностями, "Герои" - это избранные, прославленные и уполномоченные использовать свои врожденные способности для служения обществу. Но не каждый может заслужить или получить звание Героя, и те, кто использует свои способности без одобрения общества для борьбы со злом, известны под другим именем - Мстители!Производство: Студия Bones Film / ボンズフィルムЖанр: приключения, фэнтезиРежиссер: Судзуки КэнъитиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED1901445C8D3BE570B0DAE4561A97EFFCF9B92
 ```
 
 https://mybot314.ru/tekegram_catalog/

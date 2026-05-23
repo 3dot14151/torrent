@@ -1,3 +1,111 @@
+###  Публикация: 645347   (865575) от 18.04.2013
+
+2 Chainz ft. Lil Wayne - Yuck (Uncensored) (2013) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB35F510CB7C5E1D1FFF3C6078CFF11D59F8B300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189176   (864656) от 04.04.2010
+
+A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Недавно испытал жестокий приступ ностальгии, и в результате появился этот релиз. Это та самая группа - продолжательница дела легендарной ABBA, также известная по большому количеству всевозможных кавер-версий и безумно популярная в 2000 году (а может и сейчас даже найдутся поклонники). Очень красочное видео и незамысловатый текст песен - одним словом - Europop. Дорожки (   Читать дальше...   )01. Gimme! Gimme! Gimme! (A man after midnight) {03:42} (1999)
+02. Mamma mia {03:43} (1999)
+03. Super trouper {04:27} (1999)
+04. Dancing queen {04:26} (2000)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375133   (863867) от 15.04.2020
+
+We Blame The Empire - Updraft (2020) WEBRip [H.264/1080p-LQ] <Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CDA We Blame The Empire (2020) AeroПроизводство: Animals Mosh Harder RecordsЖанр: MetalcoreПродолжительность: 00:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA32B99DCD6469B16AE31680D9FDE6062FC375B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375554   (863763) от 15.04.2020
+
+Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.264/1080p-LQ] <Post-Hardcore, Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CDA: Concepts (2020) Worry About Me (Ellie Goulding & blackbear Cover) (Single)
+Music Video: Ellie Goulding & blackbear - Worry About Me (2020)Жанр: Post-Hardcore, MetalcoreСубтитры: ENПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64D932DE5F7AA107F3228C912F8AFA9958307BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375301   (863761) от 15.04.2020
 
 Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden Metalcore, Groove Metal >
@@ -6,7 +114,7 @@ Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +143,7 @@ Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +227,7 @@ Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Meta
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +256,7 @@ Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -204,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -233,7 +341,7 @@ ABBA - The Definitive Collection (1974-1982) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -262,7 +370,7 @@ Sara Tunes - VIP (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -288,7 +396,7 @@ Marty - Suddenly (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -314,7 +422,7 @@ Chase The Ace - California (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -340,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -369,7 +477,7 @@ Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +535,7 @@ Supermax - Rhythm Of Live (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +562,7 @@ Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +647,7 @@ The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +673,7 @@ AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +699,7 @@ Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,114 +710,6 @@ Nightwish — финская симфоник-метал-группа с жен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830A0A7B7A5A80C8D2B969180232650FCD5B8CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379560   (838986) от 29.04.2020
-
-Вика Старикова - Сборник кавер-версий (2017-2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктория Старикова — юная певица, которая обрела первую популярность на шоу «Минута славы». Несмотря на жёсткую критику со стороны жюри, Вика сумела завоевать своих первых поклонников не только в среди детской, но и среди более взрослой аудитории.
-В родном Нижнем Тагиле, Вика была удостоена престижной премией на церемонии «Человек года» в номинации «Дети, прославившие (   Читать дальше...   )01. А зори здесь тихие
-02. Ангел и я 2
-03. Ангел и я
-04. Богемская рапсодия(   Читать дальше...   )Жанр: CoversАктеры: Виктория СтариковаПродолжительность: 00:02:17-00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DA8558A4E8D1460284F8DB31673FBC68624E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501173   (837993) от 08.10.2021
-
-Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - Sleeping Sun (2005 Version)Жанр: Symphonic MetalПродолжительность: 00:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E02563E607AEC4026088E841D23D44DF0C4BF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501186   (837870) от 08.10.2021
-
-Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - The Islander (2008)Жанр: Symphonic MetalПродолжительность: 00:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54802080155FBA17881C74A78ED68E54AF2B047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501365   (836561) от 09.10.2021
-
-Crematory - Greed (2004) DVDRip [H.264/1080p-LQ] [Upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crematory — готик-метал группа из Германии, образованная в 1991 году. Группа стала узнаваемой в середине 1990-х, выступая в турне на разогреве таких команд как My Dying Bride, Tiamat и Atrocity. Группа начала с традиционного стиля дэт-метал, затем взяла направления индастриал и готик-метал в записях поздних альбомов.CREMATORY - Greed (2004)Жанр: Industrial, Gothic MetalПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B08516AD0C43CE36590D05E30290C1DABE1399
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1365512   (928936) от 08.03.2020
+
+Halestorm - Vicious (Stripped) (2020) [FLAC|Lossless|tracks] <Alternative, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Black Vultures (Stripped) (3:55)
+2. Do Not Disturb (Stripped) (3:21)
+3. Chemicals (Stripped) (4:30)
+4. Heart of Novocaine (Stripped) (3:25)(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 00:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256A8E6011417A21F6A0FB8C3C86269675A4F2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365870   (927408) от 09.03.2020
 
 Noir Reva - Continuance (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -6,7 +35,7 @@ Noir Reva - Continuance (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Cure - The Head On The Door (1985) Reissue, 2008, Universal/Fiction [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +93,7 @@ Wyldest - Dream Chaos (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Colony House - Only the Lonely (2017) [FLAC|Lossless|tracks] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +151,7 @@ As Lions - Selfish Age (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +180,7 @@ Silverstein - A Beautiful Place To Drown (2020) [FLAC|Lossless|tracks + .cue] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +209,7 @@ Acid Test - Drop 1993  [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +238,7 @@ Passenger - Passenger (2003) voice Anders Friden (In Flames) [FLAC|Lossless|imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +267,7 @@ Children Collide - Theory Of Everything (2010) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +296,7 @@ Aaron Gillespie - Out Of The Badlands (2016) [FLAC|Lossless|tracks] <Indie, Acou
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Cure - Mixed Up (1990) [FLAC|Lossless|image + .cue] <Alternative Rock, New W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +354,7 @@ Morrissey - I Am Not a Dog on a Chain (2020) [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +383,7 @@ Mono Inc. - Together Till The End (2017) [FLAC|Lossless|tracks] <Gothic Rock, Da
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +412,7 @@ Porridge Radio - Every Bad (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +441,7 @@ Papa Roach - F.E.A.R. (2015) [FLAC|Lossless]<Alternative Rock, Modern Rock, Elec
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +470,7 @@ Anti-Flag - American Spring (2015) [FLAC|Lossless|tracks + .cue] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +499,7 @@ Good Moaning - The Roost (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +528,7 @@ Tori Amos - Diamond Collection (1998) Unofficial Release [FLAC|Lossless|image + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +557,7 @@ Vaux - 2 Albums (2003, 2006) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +586,7 @@ Eldest 11 - Under a Black Flag (2014) [FLAC|Lossless|WEB-DL]<Alt. Metal | Modern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +615,7 @@ Noel Gallagher's High Flying Birds - Blue Moon Rising (2020) EP [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +644,7 @@ Worriers - You or Someone You Know (2020) [FLAC|Lossless|tracks + .cue] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -644,7 +673,7 @@ Sundara Karma - Youth Is Only Ever Fun In Retrospect (2017) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -673,7 +702,7 @@ No Resolve - Unity (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Moder
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -702,7 +731,7 @@ Morrissey - You Are The Quarry (Deluxe Edition) 2 СD (2004) [FLAC|Lossless]<Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -719,35 +748,6 @@ You Are the Quarry — наиболее успешный альбом в кар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5C8C0701C9D01017E5514B64BDC8CF6A5C3DEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099677   (903582) от 02.02.2017
-
-Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Sign 4:12
-02. Sweetheart 4:20
-03. Scratch 2:43
-04. Locket 3:37(   Читать дальше...   )Жанр: Rock, Alternative Rock, Folk RockПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E355B2054E6C95C3E593786802B248B0E7940E
 ```
 
 https://mybot314.ru/tekegram_catalog/

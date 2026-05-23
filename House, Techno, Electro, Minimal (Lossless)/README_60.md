@@ -1,3 +1,90 @@
+###  Публикация: 1194638   (155974) от 25.12.2017
+
+VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Techno, Leftfield, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Peet - Fear Of Andarana (06:37)
+ 02. Niko Mayer - Anunnaki (08:04)
+ 03. Simon Shackleton - We All Shine On (06:51)
+ 04. Stas Drive Pres. Quattar - Arjuna (05:16)(   Читать дальше...   )Тип издания: CD, Mixed •Жанр: Ambient, Downtempo, Techno, Leftfield, House •Продолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433995   (154879) от 22.12.2020
+
+Michael Cassette - Temporarity (2020) 10th Anniversary Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Nu Disco, Synthwave, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. My Name Is Michael Cassette (3:29)
+ 02. Shadow’s Movement (3:54)
+ 03. Crockett's Theme (3:39)
+ 04. Through The Windows (3:31)(   Читать дальше...   )Жанр: EDM, Progressive House, Nu Disco, Synthwave, RetrowaveПродолжительность: 03:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75C79DBFAF008687EBE36898FF4247DF933D2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270996   (154527) от 21.12.2018
+
+S36 - Turkish Delight EP (2018) Sumo Smash Record [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Space Rat (02:56)
+ 02. S.t.O Groove (03:33)
+ 03. Terra (03:30)
+ 04. No Stromo (06:31)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D49E734E3CEB215FCB0F1417E5B7FBD3879BD6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347113   (154374) от 22.12.2019
 
 SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
@@ -6,7 +93,7 @@ SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Octal Industries - Our Seasons (2019) Vertex Recordings [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +180,7 @@ The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Above & Beyond - Group Therapy Best Of 2022 pt.1 (2022) DJ Mix [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -150,7 +237,7 @@ VA - Clubhits Top 200 Vol. 13 (2019) [FLAC|Lossless|tracks] <Club, Future House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -179,7 +266,7 @@ VA - Futuro (Mixed And Compiled By John Digweed) - 2023 [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -208,7 +295,7 @@ VA - Disco House Sounds 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -237,7 +324,7 @@ VA - Steyoyoke Gems Solar 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +353,7 @@ VA - Steyoyoke Gems Nocturnal 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +382,7 @@ Kollektiv Turmstrasse - Unity of Opposites (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +411,7 @@ VA - Echogarden Compilation #1 • #2 • #3 (2013-2016) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +440,7 @@ Vince Clarke - Songs of Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -382,7 +469,7 @@ VA - Oh Holy Night (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -411,7 +498,7 @@ VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -440,7 +527,7 @@ VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -469,7 +556,7 @@ VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -498,7 +585,7 @@ VA - Anjunabeats. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +614,7 @@ Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +643,7 @@ Kobarey - The Four Sides of Orithyia (2018) Lowless [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -585,7 +672,7 @@ My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +699,7 @@ Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +728,7 @@ Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Di
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -655,93 +742,6 @@ Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:892466BE7EC711DF16E62C74A77E52B6765407A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272491   (142798) от 28.12.2018
-
-Gabe Gurnsey - Physical (2018) [FLAC|Lossless|tracks + .cue] <Disco House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra Clear Sound (4:03)
-02. You Can (3:33)
-03. Temazzy (3:40)
-04. Harder Rhythm (5:18)(   Читать дальше...   )Жанр: Disco HouseПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660E0336C05EC70DDC50D723B9292BD20064EAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272712   (142781) от 28.12.2018
-
-Moby - Everything Was Beautiful, and Nothing Hurt (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dance, Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ceremony Of Innocence (Hyperion Remix) (06:10)
-02. Like A Motherless Child (Broken Places Remix) (05:49)
-03. Falling Rain And Light (Seas Of Light Remix) (06:01)
-04. Mere Anarchy (The Storm Rise Remix) (04:52)(   Читать дальше...   )Жанр: Electronic, Dance, Techno, HouseПродолжительность: 02:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFAEF1FD4AEAF78267287B4B78CA3B1A342DC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195508   (142498) от 29.12.2017
-
-Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckley) (2017) [FLAC|Lossless|tracks + .cue] <House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clubbed to Death (03:23)
-02. Galvanize (feat. Rejjie Snow) (03:55)
-03. Body Language (feat. RAYE) (03:40)
-04. Killer (feat. Seal) (04:52)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2249DF63514AED4EC3F3886D858321D028563D
 ```
 
 https://mybot314.ru/tekegram_catalog/

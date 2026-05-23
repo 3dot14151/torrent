@@ -1,3 +1,107 @@
+###  Публикация: 918155   (921941) от 22.01.2017
+
+Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Как и ожидал, моя школьная романтическая жизнь не удалась [2015, TV, 13 эп. + 1 OVA] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Нелюдимый старшеклассник Хатиман Хикигая стронулся в развитии с мертвой точки… и запутался. Он считал себя циником – а стал помогать людям, думал, что неудачник – а удостоился внимания незаурядных девушек, мечтал спокойно дотянуть до конца школы – а покоя-то нет! Стоило приоткрыться – и личина изгоя треснула, теперь приходится разбираться с собственным «клубом служения» (   Читать дальше...   )Производство: Студия FeelЖанр: комедия, романтика, школаРежиссер: Ойкава КэйПеревод: Dreamers TeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 серий + 1 OVA по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F8DE3CA5754DA8EA7909D610337425D4875FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490070   (920638) от 19.08.2021
+
+Macross Plus | Макросс Плюс [1994, OVA, 4 из 4] BDRip 1080p 10-bit raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Исаму Альву Дайсона, безрассудного военного лётчика, назначают лётчиком-испытателем в проекте по созданию передового военного истребителя. Параллельно, на той же военной базе работает конкурирующий проект, но массовое производство получит лишь истребитель одного из проектов. Пилотом для конкурирующей команды оказывается друг детства Исаму — Гульд Гоа Боуман, с которым (   Читать дальше...   )Производство: Triangle Staff / トライアングルスタッフЖанр: приключения, фантастика, меха, драмаРежиссер: Ватанабэ СинъитироПеревод: DracatЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 4 эп. по 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687B81469EBE2A3479C645898A9B010C9DF7DD24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366912   (920578) от 13.03.2020
+
+Arata Kangatari | Arata: The Legend | Легенда Араты [2013, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+15-летний Арата Хинохара, жертва школьных хулиганов, в расстроенных чувствах блуждал по городу, мечтая провалиться сквозь землю – и вдруг очутился в сказочном мире Амавакуни, а его тамошний тезка перенесся в современную Японию. Арата «оттуда» от обмена только выиграл – ведь дома его обвинили в самозванстве и убийстве владычицы, теперь же вместо крайне неприятных (   Читать дальше...   )Производство: Satelight / サテライト, JM AnimationЖанр: приключения, фэнтезиРежиссер: Ясуда КэндзиПеревод: YakuSub Studio (Aero, Helge, Nika_Elrik)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA8067F826090A30D5E4A639C98755275A664BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366916   (920570) от 13.03.2020
+
+Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир [2017, TV, 24 из 24] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Тогрул Махмуд - юный паша, преданно служащий своей стране, над которой начинают сгущаться тучи войны из-за угрозы нападения со стороны агрессивно настроенной Империи. Да и внутри государства не все гладко, население разделилось на пацифистов и тех, кто жаждет войны. Махмуд отправляется в поход, чтобы сохранить мир любой ценой. Всё глубже и глубже погружаясь в политические (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Фурухаси КадзухироПеревод: AniPlay (lanalynx)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5CF14B3951B96D8D85972ECCC612F9D1E95313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490074   (920525) от 19.08.2021
 
 Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRip 1080p 10-bit raw
@@ -6,7 +110,7 @@ Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Macross Plus: Movie Edition | Macross Plus The Movie | Макросс Плюс: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Lodoss Tou Senki: Eiyuu Kishi Den / Record of Lodoss War: Legend of the Heroic K
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +191,7 @@ Urawa no Usagi-chan / Усаги-чан из Уравы [2015, TV, 13 из 13] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. | Science Fell in Love, So I Tr
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Yuu Yuu Hakusho / Yu Yu Hakusho: Ghost Files / Отчет о буйстве ду
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +269,7 @@ Paradise Kiss | Райский поцелуй [2005, TV, 12] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +297,7 @@ Natsume Yuujinchou Go / Тетрадь дружбы Нацумэ [ТВ-5] [2016,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +326,7 @@ Yakitate!! Japan / Baked Fresh!! Ja-Pan / Японская свежая выпе
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +352,7 @@ Robot Girls Z Plus / Девочки-роботы Зет [2015, ONA, 6] WEB-DLRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +379,7 @@ Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +405,7 @@ Nanako Kaitai Shinsho / Amazing Nurse Nanako / Нанако [1999, OVA, 6 ep.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +431,7 @@ Kizuoibitou / Wounded Man / Человек со шрамом [1986, OVA, 5 ep.] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +457,7 @@ Neppuu Kairiku Bushi Road [2013, TV-спешл] HDTV 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +483,7 @@ Mugen no Ryvius | Infinite Ryvius | Бесконечное путешестви�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +509,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +535,7 @@ Girlfriend (Kari) | Girlfriend (Beta) | Девушка (Бета) [2015, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +561,7 @@ Soukyuu no Fafner: Dead Aggressor - Exodus | Небесный Фафнир: Ис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +589,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +616,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita | Я 300 ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -538,7 +642,7 @@ Dr. Stone: Stone Wars | Доктор Стоун [ТВ-2] [2021, TV, 11 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +668,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -575,110 +679,6 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:197BE1C80462C746A003017FCAC7FF572C08785C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865507   (913212) от 02.02.2015
-
-Memories Off | Забыть прошлое [2001, OVA, 3 эп.] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томоя, студент колледжа, пережил в недавнем прошлом тяжелую потерю - его девушку сбила машина. Томоя винит в произошедшем себя. Если бы он не забыл в тот день зонтик, Аяке не пришлось бы бежать к колледжу что бы принести ему его. Он пытается отвлечься, но снова и снова, стоит закрыть глаза, как перед ним предстает Аяка. Три овашки - три истории Томоя найти новую (   Читать дальше...   )Производство: EasyfilmЖанр: драма, романтикаРежиссер: Ёкота КадзуСубтитры: русские отФормат: DVDRipПродолжительность: 3 эп., 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C003572F4D19F43F7AC520AB0BA2FF1AB2E92181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865521   (913151) от 02.02.2015
-
-Memories Off 2nd | Memories Off 2 | Забыть прошлое 2 [2003, OVA, 3 эп.] DVDRip 720p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Ширакава Хотару пианистка. Она очень любит играть на фортепиано, а так же у нее есть любимый, Инами Кен, она настолько влюблена что готова бросить обожаемое фортепиано ради любимого. Он же обычный простодушный, добрый парень, в один дождливый день отдал незнакомой девушке свой зонт, а та в него влюбилась…. И кто бы мог подумать что она лучшая подруга (   Читать дальше...   )Производство: Picture Magic & RikuentaiЖанр: драма, романтикаРежиссер: Окао ТакахироСубтитры: русские отФормат: DVDRipПродолжительность: 3 эп., 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84C75B538C17EB5EFA5B8B0905F5F0E5B4F43A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989938   (912983) от 24.02.2016
-
-High School DxD Born | Демоны старшей школы [ТВ-3] [2015, TV + OVA, 12 + 1 + 6sp] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Иссэй Хёдо счастлив – дом стал дворцом, отныне в его гареме вся женская часть клуба оккультизма академии Куо во главе с очаровательной Риас Гремори, принцессой подземного мира. Но мудрый учитель, он же глава падших ангелов Азазель, объяснил юному демону, что этого мало – надо изучать своих девушек, отслеживать их поведение, решать возникшие проблемы. (   Читать дальше...   )Жанр: приключения, комедия, эттиРежиссер: Янагисава Тэцуя / Yanagisawa Tetsuya / 柳沢テツヤПродолжительность: 12 эпизодов по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B232C5FC7E7ED3B6A95EA0D23904E0D43F7226D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368357   (910897) от 19.03.2020
-
-Kemeko Deluxe! | Кемеко Делюкс! [2008, TV, 12 из 12] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда бочкообразный пухлый экзоскелет, напоминающий сплюснутую матрёшку, украшенную свадебным платьицем с фатой, вламывается к вам в окно и из авиационного пулемёта расстреливает ватагу набегающих крабообраных роботов, лучше не спрашивать: «А вы, собственно, кто?», ибо в ответ можно получить бодрое «А я твоя невеста!»Производство: Студия Hal Film Maker / ハルフィルムメーカーЖанр: приключения, комедия, эттиРежиссер: Мидзусима ЦутомуПеревод: Kain; Stan WarHammerЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49691B4C8BDCEDA8952074BDD7CA01F9BB07ED8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1352292   (1000894) от 15.01.2020
+
+Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. A Wind of Love (6:21)
+02. Heavenly Ways (9:35)
+03. Mystery (4:54)
+04. Crystal Song (5:09)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E93916572FEA2A13FB4147D40AFDB908FDF11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970640   (988580) от 01.01.2016
 
 David Nevue - Awakenings: The Best of David Nevue 2001-2010 (2012) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
@@ -6,7 +35,7 @@ David Nevue - Awakenings: The Best of David Nevue 2001-2010 (2012) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +64,7 @@ David Nevue - Whisperings: The Best of David Nevue 1985-2000 (2001) [FLAC|Lossle
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +93,7 @@ Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +119,7 @@ Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -119,7 +148,7 @@ David Arkenstone - Dream Palace. Pan Pipes with String Orchestra (2005) [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -148,7 +177,7 @@ Deep Forest - World Mix (1992) 1994 Columbia [FLAC|Lossless|tracks + .cue] <Hous
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -177,7 +206,7 @@ Jim Brickman - Pure (2006) Japanese Edition [FLAC|Lossless|image + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +235,7 @@ Jim Brickman - Timeless (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -235,7 +264,7 @@ Jim Brickman - Grace (2005) [FLAC|Lossless|tracks + .cue] <New Age, Solo Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -264,7 +293,7 @@ Briza (David Arkenstone) - Ambient Cafe (2006) [FLAC|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +322,7 @@ Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|im
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +351,7 @@ Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +380,7 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Mus
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +409,7 @@ VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +438,7 @@ VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -438,7 +467,7 @@ David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -467,7 +496,7 @@ Enigmatic Obsession - Secrets Of Seduction (2005) [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -496,7 +525,7 @@ Jens Gad (ex.-Enigma) - Le Spa Sonique (2006) [FLAC|Lossless|tracks + .cue] <Dow
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -525,7 +554,7 @@ Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +583,7 @@ Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +612,7 @@ Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +641,7 @@ David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -641,7 +670,7 @@ VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -670,7 +699,7 @@ Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -699,7 +728,7 @@ Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Ele
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -713,35 +742,6 @@ Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Ele
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360558   (960739) от 15.02.2020
-
-David Arkenstone - Celtic Spa (2020) [FLAC|Lossless|WEB-DL|tracks] <New age, Folk, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ripples In The Myst (6:25)
-2.Glendalough (5:21)
-3.Wandering Spirits (6:37)
-4.Emerald Eyes (5:43)(   Читать дальше...   )Жанр: New age, Folk, CelticПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDFAC3222573E019B2FFE46ACB88958945F7213
 ```
 
 https://mybot314.ru/tekegram_catalog/

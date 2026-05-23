@@ -1,3 +1,81 @@
+###  Публикация: 1171279   (320278) от 03.11.2018
+
+Battle Chasers: Nightwar (2017) [Ru/Multi] (24034) SteamRip R.G. Игроманы
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Battle Chasers: Nightwar - это красочная ролевая игра с интересным сюжетом, где герою предстоит путешествовать по опасным подземельям и участвовать в сражениях, механика которых заимствована из классических jRPG.  Погрузитесь в мир комикса-бестселлера 90-х!Тип издания: SteamRipРазработчик: Airship SyndicateЖанр: Strategy (RTS, TBS), RPG, ActionЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC04B9384C2346DF0961C07CA6396B9FE78E723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582668   (320248) от 10.10.2022
+
+HuniePop (2015) [En] (1.2.0) License GOG [Deluxe Edition] [18+]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+HuniePop – это своеобразный симулятор для PC, Mac и Linux. Игровой процесс совмещает симулятор свиданий, головоломку, элементы ролевой игры, стиль визуальной новеллы и нелинейный сюжет. Примечание: игра HuniePop содержит нецензурную лексику, откровенные сексуальные сцены, частичную наготу и рекомендуется только взрослой аудитории.Тип издания: LicenseРазработчик: HuniePotЖанр: Симулятор, Ролевая игра, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3E3EE338AD21400A1E7CF7905C1C16DF89DA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259508   (318119) от 04.11.2018
+
+Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. Истории (2018) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кровная вражда» — ролевая карточная игра с одиночной кампанией, события которой разворачиваются в мире «Ведьмака». В ходе кампании вы познакомитесь с самыми разными героями, столкнетесь с полчищами чудовищ и не раз встанете перед выбором, от которого будет зависеть судьба мира Геральта из Ривии.Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: RPG, Strategy, FantasyЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B70E4590872F3BE7C6436608F52655A832AE51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185729   (315776) от 05.11.2018
 
 WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
@@ -6,7 +84,7 @@ WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Fallout: New Vegas (2012) [Ru] (1.4.0.525/2.0.3 beta) Repack Other s [Ultimate E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ DeathSpank: Thongs of Virtue [En] (L) 2010 l SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Inquisitor / Инквизитор (2012) [Multi] (1.10.18) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Lords Of The Fallen (2014) [Ru] (1.0/dlc) Repack xatab [Game of the Year Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0/dlc) License GOG [Game of the Year 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Surge 2 (2019) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Crashlands (2016) [En/Ch] (1.4.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Tyranny (2016) [Ru/Multi] (1.2.1.0160/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.7.0.1280/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Sword Art Online: Lost Song (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Blackguards (2014) [Ru/Multi] (1.6/dlc) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/En] (1.0) Repack xa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ DRAGON QUEST HEROES™ Slime Edition (2015) [En/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Dungeon Souls (2016) [En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Dungeon Souls (2016) [En] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C1A59B4D8C17BA839C2F8F7BFA97D685F4088D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185383   (292749) от 21.11.2017
-
-Blackguards 2 (2015) [Ru/Multi] (2.3) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blackguards 2 - сиквел пошаговой ролевой стратегии, в которой теперь ещё больше гексагональных боевых полей и ещё более мрачная история, переполненная жестокостью и преступлениями. Сами определяйте свой стиль игры: каким бы не был ваш персонаж по классу, только вы решаете, как он будет развиваться. Но за каждым поступком идут последствия, так что хорошенько подумайте, (   Читать дальше...   )Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA7B17E7EA7E47A957F72D048713293B0E2F9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185520   (292592) от 21.11.2017
-
-Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack xatab [Game of the Year Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженеры из Vault-Tec круглосуточно работали над интерактивным воспроизведением жизни в Пустоши, чтобы вы могли насладиться ей, не покидая собственного убежища. Сюда входит обширный мир, уникальные бои, поразительно реалистичные визуальные эффекты, множество вариантов выбора и невероятная группа динамичных персонажей.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1720D6998932CB56B312DB25AACEEBC0DC03854E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185541   (290760) от 22.11.2017
-
-Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики [Definitive Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в очаровательный мир, где каждое принятое решение и каждый выбранный путь оказывают влияние на вашу судьбу. Obsidian Entertainment и Paradox Interactive с гордостью представляют вашему вниманию новую RPG - Pillars of Eternity! Приготовьтесь, ибо вас ожидает головокружительное приключение, наполненное новыми открытиями и опасностями. Отправляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52910E6C3D6B3B4967520B78BA553689E268D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

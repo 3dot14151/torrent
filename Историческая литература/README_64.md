@@ -1,3 +1,82 @@
+###  Публикация: 1162731   (455131) от 03.09.2017
+
+С. Дашиньский, Ян. Радопольский | Подготовка войны против СССР (1929) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В труде приводится богатый фактический материал, характеризующий основные противоречия между империалистическим миром и СССР и работу буржуазии различных стран по экономической, политической и военной подготовке нового выступления против Советского Союза; авторы анализируют также возможные формы и размах будущей войны против СССР и дают характеристику политики мира (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F309C1E43CAA9FF69BD229AB4D99BA503AD3521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162699   (455007) от 03.09.2017
+
+Г. Г. Хмуркин | Предчувствие Ленина (2017) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Космопланетарный феномен Владимира Ильича Ленина не укладывается в тесные рамки привычных схем. Осмысление жизни и деятельности Вождя требует привлечения более широкого — метаисторического — подхода. Его основой может послужить Живая Этика (Агни Йога), этико-философское учение Рерихов, которые иначе, нежели последователи или критики коммунизма, оценивали Ленина. (   Читать дальше...   )Жанр: Биографическое исследованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFD1A6D93D7CE61770521268D44BEAD42BC5578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162799   (454569) от 03.09.2017
+
+Николай Кун | Иллюстрированные мифы Древней Греции (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выдающаяся книга русского историка и писателя Николая Куна (1877–1940) вот уже целое столетие является путеводной звездой для детей и взрослых, помогающей проникнуть в мир древнегреческой мифологии.
+Книга «Иллюстрированные мифы Древней Греции» представляет собой пересказы ключевых сюжетов эллинских мифов в сопровождении шедевров мировой живописи кисти таких мастеров, (   Читать дальше...   )Жанр: Мифы, Легенды, ЭпосФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4063097BC971C0B2966C9760A86ABE290FB5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408672   (453301) от 13.09.2020
 
 Кирилл Галанкин | Судмедэкспертиза. Увлекательная история самой скандальной науки (2020) [EPUB, FB2, PDF]
@@ -6,7 +85,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:595411E79227ABAF8E28C9A0008A96531BA89F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164038   (444273) от 08.09.2017
-
-А. Бушков | Сталин. Ледяной трон (2005) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444273.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей новой книге А. Бушков продолжает исследовать личность Сталина в последние два десятилетия его жизни. Большевистский террор, кадровая чистка в преддверии войны, закулисные интриги в окружении вождя и великая схватка с фашизмом стали предметом его непредвзятого анализа.
-Автор не ставит перед собой задачу ни «реабилитировать», ни «восхвалять» Сталина. Он только (   Читать дальше...   )Жанр: историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03646B1D1D4498C4572886A6A02F9613EF5A8FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164060   (444119) от 08.09.2017
-
-Ю. Борев | Краткий курс сталинизма в анекдотах и преданиях (1991) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всегда было важно как жил, что создал и оставил после себя человек. А если не просто человек, если волею судеб облеченный почти неограниченной властью нового государства?
-Сталин. Сегодня это уже не имя, не фамилия, не партийная кличка. Это философское понятие, включающее в себя трагическое время и трагедии миллионов людей.
-Предлагаемое произведение - своеобразный (   Читать дальше...   )Жанр: история, фольклорФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAE49A9B93C8FD2683A669F50C0085F04FDD764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163996   (444118) от 08.09.2017
-
-А.Я. Вышинский | Сталин и враги народа (2012) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444118.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге А.Я. Вышинского рассказывается о И.В. Сталине и его борьбе с врагами Советской России. Автор подробно останавливается на политических судебных процессах второй половины 1920-1930-х гг., приводит фактический материал о деятельности троцкистов, диверсантов, шпионов и т.д. Кроме того, разбирается вопрос о юридических обоснованиях этих процессов,  о  сборе  доказательств (   Читать дальше...   )Жанр: история, юриспруденцияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B75C9AD8B0D581192C087AC4A09C95C94B5036
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1754781   (40598) от 12.10.2024
+
+Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack dixen18
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Anno 2205 – полюбившийся игрокам симулятор городского строительства выходит в космос! В Anno 2205 вы поможете человечеству сделать очередной шаг в светлое будущее. Покорив Землю, вы построите богатые, кипящие жизнью города и огромные промышленные комплексы – но для того, чтобы по-настоящему обеспечить благополучие человечества, необходимо выйти в космос.Тип издания: RepackРазработчик: Blue ByteЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD60437CF6C56AC4164FAF75FE4FF08841AD708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681706   (40334) от 15.10.2024
+
+SteamWorld Build (2023) [Ru/Multi] (1.0.12/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+SteamWorld Build является спин-оффом франшизы Стимворд. В ней уже были метроидвании, пошаговые тактики, карточные ролевые игры. А данный тайтл представляет собой градостроительный симулятор. От своих предшественников продукт отличается не только жанром, но и графикой. Здесь она впервые во франшизе стала трехмерной. Как и раньше, действие происходит в стимпанковском (   Читать дальше...   )Тип издания: LicenseРазработчик: Thunderful DevelopmentЖанр: Симулятор, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275EF07E7FC8F33F9B754B7ACD5150DB9FB58CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756090   (39945) от 19.10.2024
 
 Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
@@ -6,7 +58,7 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.23.68800/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.18.1-f3/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Terraformers (2022) [Ru/Multi] (1.5.30/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Millennia (2024) [Ru/Multi] (1.0.22991.F/dlc) Repack FitGirl [Premium Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ EcoGnomix (2024) [Multi] (1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Farlanders (2023) [Multi] (1.2.0f1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Factory Town (2021) [Ru/Multi] (2.2.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Concordia (2021) [Multi] (1.3.6/dlc) License GOG [Digital Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Necroking (2024) [Ru/Multi] (1.5.2rc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Ticket to Ride (2023) [Multi] (1.6.0/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Railbound (2022) [Multi] (3.06) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Season 7/dlc) Scene TinyISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.8/dlc) Repack seleZen [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Trade Conquest (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B11D7CE7908D213CF3DE90E40050D655DF1515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729696   (32167) от 03.01.2025
-
-Airship: Kingdoms Adrift (2023) [Multi] (1.6.1.2) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airship: Kingdoms Adrift - это симулятор торговли и боев воздушных кораблей, действие которого разворачивается на просторах стимпанк-мира Сфеары вскоре после Великой Небесной войны. Между Ацерлийским королевством, Новой Виридианской республикой и Тевтонской конфедерацией установилось шаткое перемирие. Внезапно оказавшиеся никому не нужными солдаты и пилоты ищут новые (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution IndustryЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4F105C0253F9DBF9C287C150168043B1CBFDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771359   (31831) от 06.01.2025
-
-From the Depths (2014) [Ru/Multi] (4.2.1.1/dlc) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31831.jpg" />
-</div>
-
-
-###  Подробнее
-
-From the Depths - это аркадный экшен, в котором игрокам нужно создавать и управлять собственными боевыми крейсерами. Во From the Depths вы можете строить и лично управлять от первого лица линкорами, самолётами, подводными лодками, космическими кораблями, танками, воздушными шарами и многим-многим другим! В игре присутствует довольно широкий диапазон контента для (   Читать дальше...   )Тип издания: RepackРазработчик: Brilliant Skies Ltd.Жанр: Экшены, Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A21C886B49727277F36A22FCF964D175F7E428
 ```
 
 https://mybot314.ru/tekegram_catalog/

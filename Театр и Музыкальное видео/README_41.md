@@ -1,3 +1,171 @@
+###  Публикация: 1504614   (809615) от 24.10.2021
+
+Сборник  видеоклипов (2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.
+ 1.Alan Walker, Sabrina Carpenter & Farruko - On My Way.
+2.Alyosha - Капли Anton Kraynov REMIX
+3.Anitta - Paradinha
+4.Arash ft Sean Paul - She Makes Me Go.(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB1AFAB93B56B7FB1528B40CC7461DC5FC7F091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134615   (809386) от 16.05.2020
+
+Бенефис (2017) IPTVRip [H.264] (2 части) (Театр им. Е. Вахтангова)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Театра имени Евгения Вахтангова.
+В сценической версии театра пьеса получила не только новое название, но и несколько измененный сюжет. Легендарный артист пошёл на рискованный эксперимент - он сыграл главную роль, к тому же женскую, с блеском, без фальши, точно выдержав жанр в лучших традициях Театра имени Евгения Вахтангова.Производство: Россия, Театр имени Евгения Вахтангова, ГТРК "Культура"Жанр: Театр, драмаРежиссер: Владимир Иванов, Николай НеклюдовАктеры: Владимир Этуш, Ольга Тумайкина, Евгений Князев, Екатерина Симонова, Сергей Пинегин, Светлана ИозефийСубтитры: отсутствуютПродолжительность: 01:05:00 + 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C7C39828C7BA010822EE7E1F7780827C8F30BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317478   (809350) от 02.04.2011
+
+Музыкальный ринг на НТВ. Выпуск №17. Ранетки vs The MATRIXX  (01.04.2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: Концерт, ТВ-ШоуПродолжительность: ~ 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62494F0038E5B38C055691A865D556142C22963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657591   (809187) от 18.05.2013
+
+Михаил Шуфутинский. Концерт в День рождения - Love Story (2013.05.17) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На НТВ – телевизионная версия юбилейного концерта известного российского шансонье Михаила Шуфутинского.
+Юбиляр исполнил на сцене «Крокус Сити Холла» свои лучшие песни, накопившиеся за многолетнюю музыкальную деятельность: от самых первых, еще эмигрантского периода, до новых, рожденных совсем недавно.01. Я родился в Москве
+02. Мосты
+03. Наколочка
+04. Еврейский портной(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:49:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119056   (808881) от 27.03.2017
+
+Chris Isaak - Best of Chris Isaak (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Один из ста самых сексуальных исполнителей по версии телеканала Vh1, сниматься в чьих клипах считала за честь Летиция Каста, исполнитель незабвенного хита «Wicked Game», Крис Айзак серьезно подошёл к выпуску своего альбома «Best Of». В него вошли действительно лучшие песни, включая «Baby Did a Bad Bad Thing», известную по скандальному фильму С. Кубрика «С широко (   Читать дальше...   )Жанр: Classical Rock, Blues, Pop-musicПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EEC11A0AF5D706BBC050CFF48337CB65166AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198412   (808017) от 11.01.2018
+
+Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert der Wiener Philharmoniker (2018) HDTVRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прямая трансляция Новогоднего концерта Венского филармонического оркестра из Золотого зала Musikverein. Популярный концерт Венского филармонического оркестра, который традиционно проходит в Вене в первый день наступившего нового года и транслируется в 90 стран мира, на этот раз проведёт итальянский дирижёр Риккардо Мути. Музыкальная основа программы - произведения (   Читать дальше...   )Часть 1
+Johann Strauss, Jr.
+Entrance March from the Operetta "The Gypsy Baron"
+Josef Strauss(   Читать дальше...   )Производство: Австрия, ORF, Sony ClassikalЖанр: Музыкальный концерт, классическая музыкаПродолжительность: 02:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232366CE14638152DACC887671B948B71FA5C248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197434   (807863) от 11.01.2018
 
 Ленинград - Live (СК Олимпийский, Москва, 2017.12.16) WEBRip [H.264/1080p-LQ]
@@ -6,7 +174,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -37,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +232,7 @@ Evanescence Live at The Tonight Show With Jay Leno & Evanescence Live at Conan  
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +362,7 @@ Eurovision-2013. Final (2013.05.18) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +417,7 @@ Metallica: Francais pour une nuit (2009) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -304,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +637,7 @@ Behemoth - Lucifer (Director's Cut) (2011) [H.264/720p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -495,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -521,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,176 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0546A9A4C7FF245C60843A0F1D5DA58E73F78EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009153   (802121) от 25.04.2016
-
-Був'е - Влюбленные / Був'є - Закохані (2016) WEB-DL [H.264/2160p] [4K]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802121.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сети появился клип группы «Був'є» и Александра Положинского на песню «Закохані». Эта композиция является официальным саундтреком фильма «Жива» режиссера Тараса Химича. На данный момент создатели картины держат сюжет в секрете. «Это история женщины, а не о войне, хотя автоматы там есть», - говорит Химич.Производство: УкраинаЖанр: РокРежиссер: Тарас ХимичПродолжительность: 00:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691C0C8B62F91831FFB166D47278471F17A93686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010573   (802029) от 25.04.2016
-
-Andrea Bocelli - Cinema (2016) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Версия нового альбома Андреа Бочелли "Cinema". Когда слушаешь записи Андреа Бочелли, поражаешься удивительной энергетике его голоса и манере исполнения. Казалось, что певец вновь и вновь проживает моменты мелодраматичных и романтических историй, о которых повествует его музыкальный репертуар. Голос Бочелли в буквальном смысле заставляет умирать и воскресать (   Читать дальше...   )1. "Maria" from West Side Story
-2. "Nuovo Cinema Paradiso" from Cinema Paradiso
-3. "Moon River" from Breakfast at Tiffany's
-4. "Cheek to Cheek" from Top Hat(   Читать дальше...   )Жанр: Classical crossover, Pop, OperaЯзык субтитров: АнглийскийПродолжительность: 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51291579328B21ECCEA05CB2A770E74DE180B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120528   (801961) от 31.03.2017
-
-Александр Гладков - До новых встреч! (1973) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801961.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пьесе Александра Константиновича Гладкова.
-Действие проходит в годы Великой Отечественной Войны. По-разному складываются судьбы двух подруг - Люси и Люки. Люся - человек цельный и постоянный в своих привязанностях. Люка, возлагая надежды лишь на свою красоту, стремилась любыми средствами достигнуть избранной цели - стать артисткой. Вновь встретились подруги после (   Читать дальше...   )Жанр: Телеспектакль, экранизацияРежиссер: Юрий СергеевАктеры: Нина Русланова, Марианна Вертинская, Екатерина Васильева (VI), Андрей Мартынов, Николай Волков мл., Всеволод Платов, Григорий Лямпе, Юрий ЛихачевСубтитры: отсутствуютПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC0223E2EDF09506E0CEE9871785CB298ABB162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616395   (801959) от 25.04.2016
-
-Группа Стаса Намина “Цветы” - Лучшие песни за 30 лет. Юбилейный концерт (2001) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный концерт группы «Цветы» посвящённый 30 летию их деятельности на сцене, записанный в янвяре 2001 года в концертном зале «Россия» с участием музыкантов, работавших в группе "Цветы" в 1970-2000 гг., и друзей группы. Друзья и специальные гости концерта (те, кто пел/подпевал): Андрей Макаревич, Николай Носков, Дмитрий Ревякин, Алексей Романов, Андрей (   Читать дальше...   )01. Есть глаза у цветов (О.Фельцман, Р.Гамзатов)
-02. Больше жизни (В.Семенов Л.Дебренев)
-03. Не надо (С.Дьячков О.Гаджикасимов)
-04. Звездочка моя ясная (В.Семенов О.Фокина)(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:05:58 + 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9404DC8F12A337490273A482D21886B6A82EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199101   (801633) от 15.01.2018
-
-Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801633.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-105 50 Cent - Candy Shop
-106 Лигалайз - Моя Москва
-107 Trick Trick & Eminem - Welcome 2 Detroit(   Читать дальше...   )Жанр: Rap, Hip hopФормат: MKVПродолжительность: 03:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536B9952B36CE79FEB6DD7F68545F8A7B4B6EA46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506061   (801397) от 29.10.2021
-
-ВИА "Самоцветы" Фильм-концерт (1973) TVRip [H.264] [handmade AI colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-концерт с участием ВИА "Самоцветы".
-Фильм полностью колоризован.01.За того парня
-02.Налетели дожди
-03.Верба
-04.Чаривна бойкивчанка(   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: ЭстрадаРежиссер: Юрий МаликовЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C4327099A97955CE4B41A41ABFA26CC8841060
 ```
 
 https://mybot314.ru/tekegram_catalog/

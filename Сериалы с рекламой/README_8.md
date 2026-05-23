@@ -1,3 +1,55 @@
+###  Публикация: 1510137   (792082) от 15.11.2021
+
+Волчица / Матушка Гусыня / Gasmamman (2019) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, шведские, датские, норвежские, финскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34A433BF589D0D8DBB8E1FA84E4CE3B26299CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510130   (792081) от 15.11.2021
+
+Волчица / Матушка Гусыня / Gasmamman (2017) HDTVRip [H.264/720p-LQ] (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, шведские, датские, норвежские, ФинскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3A5BB87B83DCF409428F3213EF74EA34D47E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510131   (792078) от 15.11.2021
 
 Волчица / Матушка Гусыня / Gasmamman (2016) HDTVRip (сезон 3, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACE7C9C37D22995042DCB01D87801375D6ECD6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390529   (782579) от 16.06.2020
-
-Затопленный город / Curon (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-7 из 7) HDRezka [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина с детьми, подростками-близнецами, возвращается в родной город, где вскоре исчезает. Теперь ребятам предстоит столкнуться с древними легендами и мрачными семейными тайнами.Производство: Италия / Indiana Production CompanyЖанр: Триллер, детектив, фэнтезиРежиссер: Фабио Молло, Лида ПатитуччиАктеры: Giulio Brizzi, Juju Di Domenico, Анна Ферцетти, Лука Лионелло, Margherita Morchio, Федерико Руссо, Алессандро Тедески, Валерия Билелло, Максимилиан Дирр, Макс МалатестаПеревод: Многоголосый профессиональный (HDRezka Studio)Продолжительность: ~00:45:00 серияРеклама: Голосовые вставки, в начале и конце серии.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7878FDA031A2D457864BF85A986C76803A55731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206323   (782468) от 13.02.2018
-
-Кардинал / Cardinal (2017) WEB-DLRip (сезон 2, серии 1-6 из 6) Baibako [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый канадский триллер. Инспектор Кардинал борется со своими прошлыми ошибками, которые могут привести к окончанию его карьеры, во время расследования текущего дела, которое становится все более запутанным и ужасным. Сериал является экранизацией романа «Сорок имен скорби» Джайлса Бланта.Производство: Канада / Dazmo Camera, Téléfilm Canada, Touchpoint Films, Wildling PicturesЖанр: триллер, драма, криминалРежиссер: Даниэл ГрауАктеры: Билл Кэмпбелл, Карин Ванасс, Олден Адайр, Джеймс Даунинг, Гленн Гульд, Дебора Хей, Эрик Хикс, Джеймс Томас, Кристен Томсон и др.Перевод: Многоголосый закадровый, профессиональный (Baibako)Продолжительность: ~00:43:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FE1DA102342970DEBE24401D1C6046C0098F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

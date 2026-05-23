@@ -1,3 +1,136 @@
+###  Публикация: 1632557   (198695) от 10.05.2023
+
+Plugin Alliance & TBTECH Kirchhoff-EQ 1.6.4 VST, VST 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Продвинутый эквалайзер отличается функцией эмуляции работы реальных аналоговых фильтров.
+Kirchhoff-EQ — это совершенный 32-полосный параметрический эквалайзер, созданный для всех критически важных профессиональных приложений. Он отличается улучшенным качеством звука, согласованными с аналоговыми кривыми, 15 типами фильтров с плавно изменяемой формой и 32 классическими (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8868676B45E235F070C5F94A8ABDB14BE418639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647266   (195524) от 17.07.2023
+
+MAGIX Sound Forge Pro Suite 17.0.2 Build 109 RePack by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+SOUND FORGE вот уже более 20 лет задает стандарты в том, что касается работы со звуком. SOUND FORGE Pro задаёт ориентиры для уже не первого поколения продюсеров, мастеров звукозаписи и артистов. SOUND FORGE Pro позволяет записывать, обрабатывать и восстанавливать звуковой материал с высочайшим выходным качеством звука. Трансляция, запись CD или потоковое воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DF33A1593AD950A6B1B6FF368E3E28A428F4E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652660   (194388) от 12.08.2023
+
+MediaHuman Audio Converter 2.2.1 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+MediaHuman Audio Converter - бесплатный аудио конвертер, позволяющий конвертировать музыку в большинство популярных форматов. Поддерживает следующие форматы: WMA, MP3, AAC, AC-3, WAV, FLAC, OGG, AIFF и Apple Loseless.
+
+Не содержит ничего лишнего и имеет простой интуитивно понятный пользовательский интерфейс. Использует последние версии кодеков, что гарантирует высокое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4B8504873667ED4168A319C347E5C97C204FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587594   (192670) от 31.10.2022
+
+Unfiltered Audio - Instant Delay 1.3.0 VST, VST3, AAX RePack by TeamCubeadooby [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Любой, кто знаком с Unfiltered Audio, вероятно, может догадаться, что даже простая задержка от этих парней будет немного отличаться. Добавьте Instant Delay в стандартный режим возврата задержки, и он будет послушно выполнять все повседневные задачи, которые вы ожидаете – все, что угодно, от стереофонического эха на вокальной дорожке до эмбиентных хвостов задержки (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2E7064D05373EDEFE6661C6793CC4B7FAE9274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587658   (192601) от 31.10.2022
+
+W.A. Production CHORDS Pro + Notes 1.0.0 VSTi, VSTi3, AAX RePack by TeamCubeadooby [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Поместите этот MIDI-эффект перед любым MIDI-плагином, генерирующим звук, и нажмите кнопку воспроизведения DAW. Интеллектуальные алгоритмы будут генерировать зацикленные варианты до 8 аккордов с полным контролем над формой аккорда, инверсиями, скоростью, разделами, нотами арпеджио и многим другим. Затем просто перетащите MIDI прямо из плагина в свой проект, позволяя (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAC2FDCCE8A534C31AA3A086269E16C8811CC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587795   (192358) от 01.11.2022
 
 Credland Audio - StereoSavage 2.0.0 VST, VST3, AAX (x86/x64) [En]
@@ -6,7 +139,7 @@ Credland Audio - StereoSavage 2.0.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +166,7 @@ iZotope - Relay 1.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +192,7 @@ iZotope - Nectar 3 Plus 3.8.0 VST, VST3, RTAS, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -85,7 +218,7 @@ W.A. Production & K391 - Put Me On Drums 1.0.1 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -111,7 +244,7 @@ VoosteQ - Material Comp 1.7.1 VST, VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -139,7 +272,7 @@ E-Phonic - Invader 2 1.0.10 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -165,7 +298,7 @@ iZotope - VocalSynth 2 2.6.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -192,7 +325,7 @@ iZotope - Insight 2 2.4.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -218,7 +351,7 @@ QuikQuak - Pitchwheel 5.2.0 VST, VST3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -244,7 +377,7 @@ Cycling '74 Max 8.5.0 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -271,7 +404,7 @@ Signum Audio - SKYE Dynamics 1.0.2 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +430,7 @@ WXAudio - NANI Plugin 2.0.2 VST 3 (x64) RePack by JustFun598 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -325,7 +458,7 @@ Techivation Full Bundle 07.11.2022 VST, VST 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -352,7 +485,7 @@ iZotope - Vinyl 1.11.0 VST, VST3, NKS, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -378,7 +511,7 @@ Positive Grid - BIAS FX 2 Elite Complete 2.5.1 STANDALONE, VST, VST3 , AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -404,7 +537,7 @@ reFuse Software - Bucketverb 1.1.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -430,7 +563,7 @@ BLEASS - Megalit 1.0.9 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -457,7 +590,7 @@ reFuse Software - Lowender 1.5.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -484,7 +617,7 @@ Nomad Factory - Integral Studio Pack 3 5.13.5 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -511,7 +644,7 @@ AegisubUE [Unofficial Edition] v2 (3.3.3, 9643) RePack (& Portable) by xetrin [M
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -537,7 +670,7 @@ Kiive Audio - ADC1 Compressor 1.0.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -548,141 +681,6 @@ Kiive Audio - ADC1 Compressor 1.0.1 VST 3, AAX (x64) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A08733400D11F643FB97862E1B67D8FDB6B70939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590943   (187761) от 16.11.2022
-
-A.O.M. Total Bundle 1.15.4 VST, VST3, AAX, CLAP (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный пакет профессионального программного обеспечения от A.O.M. Corporation для мастеринга и работы со звуком.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D07F070AD11055F0D7B0E89BEE49727931877F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591511   (187189) от 18.11.2022
-
-Way Out Ware - Odyssey 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработано создателями WayOutWare инструментов Legendary timeWARP2600 и Kick Axe.
-WayOutWare гордится тем, что создает эмуляторы высочайшего качества. Фактически, TimeWARP был единственным продуктом эмуляции ARP 2600, одобренным его создателем Аланом Р. Перлманом.
-WayOutWare, опираясь на это наследие превосходной эмуляции ARP, создала действительно точную копию (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F47C81BCA1B3222BC6120311E88B6B43B589B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591322   (187167) от 18.11.2022
-
-Rob Papen - BLUE III 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда он был впервые выпущен в 2005 году, «BLUE» уже отражал передовой, творческий и, что наиболее важно, музыкальный подход Роба Папена к разработке виртуальных синтезаторов. Сам Роб Папен назвал это «Cross-fusion synthesis», потому что он охватывал как субтрактивный, так и FM-синтез в одной творческой концепции.
-С его преемником BLUE-II «Cross-fusion synthesis» (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75989F69811DA81F1F61EDB67D1E4251008F1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591512   (187143) от 18.11.2022
-
-AIR Music Technology - Hype 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название Hype говорит само за себя — это революционный и захватывающий плагин для синтезатора с функциями, которые выходят далеко за рамки его огромной библиотеки звуковых пресетов.
-Первоначально созданный исключительно для продуктов Akai Professionals Standalone MPC и Force по многочисленным просьбам, мы рады предложить Hype в форматах AU, VST, AAX и Desktop App (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F65D57FFB358F7D482257011F80AD43B18066CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591677   (186873) от 19.11.2022
-
-AIR Music Technology - TubeSynth 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186873.jpg" />
-</div>
-
-
-###  Подробнее
-
-TubeSynth имитирует звучание классических винтажных аналоговых полисинтезов, оснащенных пятью встроенными воздушными эффектами. Инструмент создан AIR и основан на той же передовой технологии аналогового моделирования, что и в их широко известном настольном плагине synth Vacuum Pro
-Вы откроете для себя новые пышные звуковые ландшафты, о которых раньше и не мечтали. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7630FA270D34A2AC1413DDDE3961501DA94858D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

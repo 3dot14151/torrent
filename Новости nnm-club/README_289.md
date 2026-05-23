@@ -1,3 +1,185 @@
+###  Публикация: 1210947   (42483) от 25.09.2024
+
+Левиафан (2014) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Автослесарь Николай Сергеев живет со своей второй женой Лилией и сыном от первого брака в маленьком северном городке на берегу моря. Нечистый на руку мэр города Шевелят пытается изъять его дом и землю для собственных нужд. После двух проигранных судов Николай обращается за помощью к своему старому другу Дмитрию, успешному столичному адвокату. Но приезд московского (   Читать дальше...   )Производство: Россия / Нон-стоп ПродакшнЖанр: драмаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Платон Каменев, Сергей Бачурский, Валерий ГришкоПеревод: Не требуется (Русский, Лицензия)Субтитры: ОтсутствуютКачество: BDRip 1080pПродолжительность: 02:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7501E915EF8726DB80E41E46FFA6DF239DEE236A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750632   (42479) от 25.09.2024
+
+Ускорение / Slingshot (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Астронавты отправляются на Титан, спутник Сатурна, в рамках опасной миссии. Их цель — исследовать неизвестные регионы этого загадочного мира. В процессе экспедиции они сталкиваются не только с внешними угрозами, но и с испытаниями, связанными с сохранением своего восприятия реальности. Любая ошибка может поставить под угрозу успех всей миссии.Производство: Венгрия, Индонезия, США / Bluestone Entertainment, Filmsquad, Széchenyi FundsЖанр: Фантастика, триллерРежиссер: Микаэль ХофстрёмАктеры: Кейси Аффлек, Лоренс Фишбёрн, Эмили Бичем, Томер Капон, Дэвид Моррисси, Шарлотта Лёвгрен, Марк Эбулу, Николет Барабаш, Ágota Dunai, Nahna JamesПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5FEC2530B5A4BC7C823B39DE8F6A72C0A2C136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712711   (42377) от 26.09.2024
+
+Ookami to Koushinryou: Merchant Meets the Wise Wolf | Spice & Wolf: Merchant Meets the Wise Wolf | Волчица и пряности (2024) [2024, TV, 25 из 25] WEBRip 1080p raw+rus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Странствующий торговец Крафт Лоуренс и предположить не мог, чем обернётся для него очередной визит в давно знакомую деревню, но именно тут ему навязывается в компанию необычный попутчик. Новый компаньон умеет отличить правду ото лжи, любит выпить и вкусно поесть… но у неё большой пушистый хвост, а из-под длинных волос торчат волчьи ушки! Добро пожаловать в мир торговых (   Читать дальше...   )Производство: Япония, PassioneЖанр: приключения, фэнтези, романтика, драмаРежиссер: Такахаси ТакэоПеревод: Crunchyroll (полные и надписи)Язык озвучки: Японский; Русский (AniLibria), (AniBaza), (ТО «Дубляжная»)Субтитры: Английские; Русские и другиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90EEF9F03F37EB166222F99D2328D7209D0D290B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145973   (42268) от 27.09.2024
+
+Полное собрание фильмов о рыбалке братьев Щербаковых (2005) DVDRip (серии 1-63 из 68)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия учебных фильмов о снастях и различных способах рыбалкиТелекомпания: Братья ЩербаковыЖанр: Телепередача, Документальный, СпортУчастники: Братья ЩербаковыЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 63 серии ~ 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBACDCB22F7BF752B2D17BED48A9D2FF3E2D0887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727393   (42177) от 28.09.2024
+
+Яндекс.Погода v24.9.20 Mod by vadj [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 27.09.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0437257D3F4FF31B0004EC52B3288D98F4E03A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748074   (42165) от 28.09.2024
+
+Ребел Ридж / Rebel Ridge (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бывший морпех вступает в схватку с коррупцией в небольшом городке, когда местные правоохранители незаконно изымают у него крупную сумму, необходимую для залога за кузена.Производство: США / Bonneville Pictures, Film ScienceЖанр: боевик, триллер, драма, криминалРежиссер: Джереми СолньеАктеры: Аарон Пьер, Дон Джонсон, Аннасофия Робб, Дэвид Денман, Эмори Коэн, Oscar Gale, Reid Williams, Стив Зиссис, Дэниэл Чунг, Дэна ЛиПеревод: Многоголосый (TVShows, HDrezka Studio, LE-Production), Двуголосый (ViruseProject), Авторский (М.Яроцкий)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, Английские (Full, SDH)Продолжительность: 02:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6A9625DD86D8BC1691FF2B6F125CAF96BA52FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751783   (42164) от 28.09.2024
+
+Одинокие волки / Wolfs (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Пути двух соперничающих решал пересекаются, когда их обоих вызывают помочь скрыть промах видного нью-йоркского чиновника. В течение одной взрывоопасной ночи им придётся отбросить свои мелкие обиды и эго, чтобы довести дело до конца.Производство: Великобритания, США / Apple Studios, Columbia Pictures Corporation, Plan B Entertainment, Smoke HouseЖанр: триллер, криминалРежиссер: Джон УоттсАктеры: Брэд Питт, Джордж Клуни, Эми Райан, Остин Абрамс, Пурна Джаганнатан, Wael Alroyly, Златко Бурич, Линда Карола, Ирина Дубова, Ричард КайндПеревод: Профессиональный многоголосый (RGB)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECF4C16D9DA5541566CDFEE5062B8B7F1BC766C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751466   (42126) от 28.09.2024
 
 Российские сотовые операторы внедряют блокчейн в сим-карты
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +396,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (1.0.3.7) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +503,7 @@ Telegram приглашает к разработке аналога YouTube
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +581,7 @@ Great White - 32 Albums, 1 EP  (1984 - 2021) 41 CD [FLAC|Lossless|image + .cue|t
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +661,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (3.1.0.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -490,193 +672,6 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (3.1.0.1/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E5CB3BA7C2F9C47D7B557E859C27A37FBF16DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754252   (40651) от 12.10.2024
-
-Parallels Desktop 20 20.1.0 (55732) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40651.jpg" />
-</div>
-
-
-###  Подробнее
-
-самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение такое, как Microsoft Office, без какого-либо ущерба для быстродействия.
-Parallels Desktop Business Edition позволяет сотрудникам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2024Разработчик: Parallels International GmbHПоддерживаемая ОС: 12+Язык интерфейса: Английский, Немецкий, Французкий,Русский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54576F67C75E7C39FBB0ED8CB17EAFC2468855C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754686   (40549) от 13.10.2024
-
-Прототип сверхзвукового авиалайнера Boom Supersonic XB-1 обновил рекорд скорости
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40549.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 октября 2024 года демонстратор сверхзвукового реактивного самолета Boom XB-1 совершил свой пятый испытательный полет с авиабазы Мохаве, установив при этом несколько новых рекордов. Boom XB-1 — это платформа для испытания систем будущего самолета Overture, которая втрое меньше финального варианта. Конечная цель проекта — возвращение коммерческой сверхзвуковой гражданской (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755482   (40338) от 15.10.2024
-
-Windows 11 PRO 24H2 26100.1742 Update 8 by Ghost Spectre [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрано из en-us_windows_11_business_editions_version_24h2_x64_dvd_59a1851e.iso
-
-Что такое Compact / Superlite:
-— Superlite эта версия уже настроена - для опытных пользователей - подходит для игр и стриминга.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D97D6D2643673A0224A72E75C2373732802DF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755340   (40330) от 15.10.2024
-
-Чужой: Ромул / Alien: Romulus (2024) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуя заброшенную космическую станцию, группа космических колонизаторов сталкивается лицом к лицу с самой ужасающей формой жизни во Вселенной.Производство: Великобритания, США, Венгрия, Австралия, Новая Зеландия, Канада / 20th Century StudiosЖанр: ужасы, фантастика, триллерРежиссер: Феде АльваресАктеры: Кейли Спейни, Дэвид Джонссон Фрэй, Арчи Рено, Изабела Мерсед, Спайк Ферн, Айлин У, Рози Эде, Сома Саймон, Бенсе Океке, Виктор ОризуПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, Грузинский, АнглийскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C2ADBA8AD8DD4830ECFA3F05C6686BFE35683B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755164   (40236) от 16.10.2024
-
-Субстанция / The Substance (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слава голливудской звезды Элизабет Спаркл осталась в прошлом, хоть она всё ещё ведёт популярное фитнес-шоу на телевидении. Когда её передачу собираются перезапустить с новой звездой, Элизабет решает принять уникальный препарат «Субстанция». Так на свет появляется молодая и сексуальная Сью. Однако у совершенства есть своя цена, и расплата не заставит себя долго ждать.Производство: Великобритания, Франция / Blacksmith, Film FranceЖанр: ужасы, драмаРежиссер: Корали ФаржаАктеры: Маргарет Куолли, Деми Мур, Деннис Куэйд, Edward Hamilton-Clark, Гор Абрамс, Оскар Лесаж, Кристиан Эриксон, Робин Грир, Том Мортон, Уго Диего ГарсияПеревод: Многоголосый любительский (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C71FD6B58C6540F2A9FF9D41FDA290350742B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754605   (40018) от 18.10.2024
-
-Skype вернул себе позиции самого популярного файлообменника в России
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype вернул себе позиции самого популярного файлообменника в России
-Росстат отмечает взрывной рост пользователей некогда популярного файлообменника Skype в России: за первые сутки после блокировки мессенджера Discord его установили 32 млн человек. Таким образом, он впервые с 2012 года стал самым популярным файлообменником в России.«Мы рады, что наши блудные пользователи, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396489   (39930) от 19.10.2024
-
-Wavelet: Headphone specific equalization v24.10 (2173) Mod by Kirlif' [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчик pittvandewitt разработал приложение Wavelet, которое может точно настроить звучание подключенных к смартфону наушников благодаря встроенным инструментам. Главная особенность — наличие звуковых профилей для 2300 моделей наушников, как проводных, так и беспроводных. Эта функция называется AutoEq. Она настраивает звучание на нейтральный стандарт Harman. (   Читать дальше...   )Тип издания: FullРелиз состоялся: 19.10.2024Разработчик: pittvandewittПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9654A0FA823CCD4B24316C82BEC3D0D5092921E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

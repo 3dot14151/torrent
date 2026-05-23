@@ -1,29 +1,3 @@
-###  Публикация: 929879   (517019) от 21.08.2015
-
-Lost: Via Domus (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Рейс 815 совершал обычный перелет из Сиднея в Лос-Анджелес. Самолет был полностью заполнен, вежливые стюардессы разносили закуски, а каждый из пассажиров погрузился в собственные мысли. Их судьбы удивительны и неповторимы: кто-то бежал от правосудия, кто-то хотел в далекой стране заглушить боль расставания, кто-то надеялся встретить свою любовь. Каждому (   Читать дальше...   )Тип издания: LicenceРазработчик: Ubisoft MontrealЖанр: Action-adventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5042264DCF2169E10F932CA4D6E6A33B877EB1F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930059   (517010) от 21.08.2015
 
 Stranglehold (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -32,7 +6,7 @@ Stranglehold (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Smurfs 2 / Смурфики 2 (2013) [Xbox360] [RegionFree] [FreeBoot] [Lice
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +60,7 @@ Serious Sam 3: BFE / Крутой Сэм 3 (2012) [Xbox360] [RegionFree] [FreeBo
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +86,7 @@ Ninja Gaiden 3 [PS3] [RUS] [PAL] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +114,7 @@ DiRT Showdown [PS3] [ENG] [PAL] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +141,7 @@ Sonic The Hedgehog 4 Episode I [WiiWare] [PAL] [MULTI 6] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +168,7 @@ Ni no Kuni II: Revenant Kingdom (2018) [EUR] [PS4] 5.05 [HEN] [License] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +194,7 @@ Escape Dead Island (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +220,7 @@ Up: The Video Game / Вверх (2009) [Xbox360] [RegionFree] [FreeBoot] [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +246,7 @@ Kung Fu Panda / Кунг-фу Панда (2008) [Xbox360] [RegionFree] [FreeBoot
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +272,7 @@ MX vs ATV Supercross (2014) [PS3] [USA] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +299,7 @@ Pac-Man and the Ghostly Adventures 2 (2014) [Xbox360] [RegionFree] [FreeBoot] [L
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +325,7 @@ Mortal Kombat: Komplete Edition / Смертельная Битва: Полно�
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +377,7 @@ Ferrari: The Race Experience (2010) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +403,7 @@ Xenogears (1998) [PS1] [USA] [License] [En]
 >>PS1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +429,7 @@ Facebreaker  (2008) [PS3] [EUR] 2.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +455,7 @@ Aliens vs. Predator (2010) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +481,7 @@ Pro Evolution Soccer 2013 (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +507,7 @@ Final Fantasy IX (2000) [PS1] [USA] [License] [En]
 >>PS1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +534,7 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [PAL] [Unofficial] [Ru/Multi
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +560,7 @@ Ace Combat: Assault Horizon Limited Edition [PS3] [RUS] [PAL] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +587,7 @@ Phineas and Ferb: Quest for Cool Stuff (2013) [Xbox360] [RegionFree] [FreeBoot] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -639,7 +613,7 @@ The Expendables 2 Video Game (2012) [Xbox360] [RegionFree] [FreeBoot] [License] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -665,7 +639,7 @@ Cars 2: The Video Game / Тачки 2 (2011) [Xbox360] [RegionFree] [FreeBoot] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -676,6 +650,32 @@ Cars 2: The Video Game / Тачки 2 (2011) [Xbox360] [RegionFree] [FreeBoot] [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:605682BCF694B11B577779DB1484578E83199F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931523   (511574) от 26.08.2015
+
+The Legend of Zelda: Twilight Princess (2006) [Wii] [NTSC] [Unofficial] [Ru/Multi]
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Когда страну Hyrule окутывает зловещая тьма, юный фермер Линк опять становится героем поневоле. Когда Линк попадает в Сумеречное Царство, то принимает другое обличье - превращается в волка-оборотня. В сражениях с порождениями тьмы ему помогает загадочное существо с магическими способностями по имени Мидна. С Мидной все непросто: она коренной житель Сумеречного Царства (   Читать дальше...   )Тип издания: UnofficialРазработчик: Nintendo EADЖанр: Action, AdventureЯзык озвучки: AнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEF08D8A0481B71D727EDBD2C4D82B39881121A
 ```
 
 https://mybot314.ru/tekegram_catalog/

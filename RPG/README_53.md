@@ -1,3 +1,81 @@
+###  Публикация: 1723111   (56615) от 14.05.2024
+
+King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+King Arthur: Legion IX представляет собой сочетание пошаговых тактических боев и ролевой механики, ориентированной на персонажей. Игроки берут на себя роль Гая Юлия Менто, римского трибуна, ведущего нежить Девятого легиона через фантастическое царство Авалона. Это темное фэнтези с элементами артурианской истории приветствует новичков свежим повествованием и персонажами, (   Читать дальше...   )Тип издания: RepackРазработчик: NeocoreGamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF561542D9403438FDC58CBDE37E40F0C6F833D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723171   (56597) от 14.05.2024
+
+Bloody Heaven 2 (2024) [Multi] (0.04) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Bloody Heaven 2 – в основе сюжета заложена популярная мошенническая игра Hades. Где игрокам предстоит прорваться сквозь поля Бога и добраться до владений демонов, чтобы сразиться с Повелителем Танатосом в его морозном аду. Попросту говоря, перед вами традиционный рогалайт с построением рун. Игровой процесс, которого основан на четырех основных действиях.Тип издания: RepackРазработчик: ShaneGameЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E438D46EE3DE538CE3A52F863382D4818940D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723270   (56472) от 15.05.2024
+
+Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отважные искатели приключений, академия Кростини открывает для вас свои двери! Спуститесь в усовершенствованные подземелья классической игры, где ждут увлекательные бои и бесчисленные подвиги. Выбирайте уроки и задания и создавайте непобедимый отряд! Соберите идеальную команду из шести студентов и штурмуйте лабиринты. Вам доступно 10 рас и 18 профилей, каждый с уникальным (   Читать дальше...   )Тип издания: RepackРазработчик: ZerodivЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA8581FDAD30BC320FEDC34167FEC7DD685D8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646693   (56223) от 18.05.2024
 
 Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
@@ -6,7 +84,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Maid of the Dead (2024) [Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Athenian Rhapsody (2024) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Bloody Heaven 2 (2024) [Multi] (0.043) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ ASTLIBRA Revision (2022) [Multi] (1.3.7/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ CONSORTIUM (2014) [Ru] (1.26.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ CyberHoney (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ SpellForce 3 Reforced (2017-2021) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Withering Rooms (2024) [Multi] (1.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA64FA6A84A72A75705B0359C66A60F122208B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727152   (54726) от 01.06.2024
-
-Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Astor: Blade of the Monolith вставьте себя на место Астора, молодого воина, которому предстоит раскрыть правду о происхождении своего народа и противостоять растущему злу. Исследуйте яркую планету Глизе, которая когда-то была владением таинственной древней расы, а теперь кишит созданными ими разумными Диодеками. Однако появилась темная сила, Хилцик, которая нарушила (   Читать дальше...   )Тип издания: SceneРазработчик: C2 Game StudioЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E98CF7575988F476DE94F213CA490672ED8F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727135   (54688) от 01.06.2024
-
-Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Astor: Blade of the Monolith вставьте себя на место Астора, молодого воина, которому предстоит раскрыть правду о происхождении своего народа и противостоять растущему злу. Исследуйте яркую планету Глизе, которая когда-то была владением таинственной древней расы, а теперь кишит созданными ими разумными Диодеками. Однако появилась темная сила, Хилцик, которая нарушила (   Читать дальше...   )Тип издания: RepackРазработчик: C2 Game StudioЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A941594FB4B81535508D33726FCD921F0E139C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727405   (54650) от 02.06.2024
-
-The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitGirl [Anniversary Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 200 наград «Игра года», приключение номер в сотне лучших игр для PC всех времен и даже «Лучшая игра поколения» – знаменитая сага The Elder Scrolls V: Skyrim не нуждается в представлении. Однако нуждается в соответствующем издании для современных игровых платформ. И это издание грядет. The Elder Scrolls V: Skyrim. Special Edition оживляет эпический фэнтези-мир (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Adventure, RPGЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F64FD1D5FD91A86845B265626290FB67D58943
 ```
 
 https://mybot314.ru/tekegram_catalog/

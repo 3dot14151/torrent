@@ -1,3 +1,81 @@
+###  Публикация: 1827387   (186086) от 21.10.2025
+
+Diablo II (2000) [En] (1.14d/dlc) Repack Necros
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Diablo 2 — продолжение легендарного ролевого экшена с изометрическим видом камеры в фэнтезийном мире Diablo. В конце первой части главный герой уничтожает вселенское зло именуемое Диабло и вонзает его Камень Душ себе в лоб, рассчитывая таким образом удержать одно из Первичных Зол в своём теле. Но Владыка Ужаса берет под контроль тело воина и начинает процесс освобождения (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Экшен, РПГЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A0CAEF5CA16DF349BF7373D36CFB2C2A588E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591903   (184767) от 20.11.2022
+
+Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Интерактивный роман Relayer Advanced грамотно сочетает элементы из жанров РПГ и экшена и приправляет все это продуманной научно-фантастической вселенной. События игры переносят в альтернативную реальность. В 2049 году человеческая раса, которая уже вышла за пределы солнечной системы, сталкивается с угрозой со стороны практически неизученной цивилизации, называющей (   Читать дальше...   )Тип издания: LicenseРазработчик: Dragami GamesЖанр: Ролевая игра, Фантаcтика, СтратeгияЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C99AF2D8B7EAFE20AAB9A4F6C434EE8198BB2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652711   (183497) от 28.09.2023
+
+Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Обычный город в Mondealy, в котором жил наш главный герой, имел свои секреты. С одной из тайн пришлось столкнуться молодому парню. Майкл смог найти удивительное место в подземелье, которое открывало вид на совершенно другой мир. Разузнать больше подробностей придется путем погружения в ту неизведанную часть. Юноша сможет оказаться в загадочном королевстве, решая (   Читать дальше...   )Тип издания: LicenseРазработчик: uglycoalЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132B6884A2CD7A9ACF097B0E7D56E40ADA5D88F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518054   (183420) от 28.09.2023
 
 Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
@@ -6,7 +84,7 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Earthlock: Festival of Magic (2016) [Ru/Multi] (1.1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Bound By Blades (2022) [Multi] (1.7.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dust to the End (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Dragon Quest XI: Echoes of an Elusive Age (2018) [Ru/Multi] (1.0/dlc) Repack xat
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Surge (2017) [Ru/Multi] (55623) License GOG [Augmented Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Pentiment (2022) [Multi] (1.0.1212) License Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Blade of Immortality (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Vosphia (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,84 +668,6 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D7A6066F32DAE30CFD18963AEF3A2EE54A59B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668854   (171814) от 21.10.2023
-
-Space Wreck (2023) [En] (1.3.24) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space Wreck - пошаговое приключение, события которого произойдут в космосе. Вы играете колонистами, покинувших Землю в поисках нового дома. Но по дороге случилось неприятно. На шаттл с пассажирами напали космические корсары. Корабль был сильно поврежден и теперь необходимо попасть на заброшенную станцию неподалеку, чтобы отыскать рабочие детали.Тип издания: SceneРазработчик: Pahris Entertainment SIAЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE6974DB7FBDAEBA57A2E7EB8B64AB6373F4F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671029   (171485) от 23.10.2023
-
-Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что-то неладно в тихом средневековом городке Сенора. Таинственное Темное Братство, кажется, взяло под свой контроль город, и задача персонажа игрока - раскрыть личности злодеев и освободить жителей. Большая часть игрового процесса посвящена исследованию города и его окрестностей, общению с людьми и сбору информации, которая будет способствовать развитию истории. (   Читать дальше...   )Тип издания: LicenseРазработчик: WestkaЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470995DB595CA23E9FC921DAA2EDA8B744C026AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514772   (170801) от 05.12.2021
-
-The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/dlc) License CODEX [Ultimate Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы окунуться в тактическую ролевую игру, до краёв наполненную обаянием, юмором и сумасшедшими персонажами?! Они нескладные, неопытные и склочные, но... им придётся терпеть друг друга, чтобы добраться до главного сокровища данжена - статуэтки Гладуэльфёры. Однако у них быстро возникает ощущение дежавю... Проведите этот отряд сомнительных героев через приключение, (   Читать дальше...   )Тип издания: LicenseРазработчик: Artefacts StudioЖанр: Приключенческая ролевая игра с пошаговой стратегией бояЯзык озвучки: Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F5D8447F1E659A926FD744F74B424B5A161358
 ```
 
 https://mybot314.ru/tekegram_catalog/

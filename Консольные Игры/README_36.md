@@ -1,29 +1,3 @@
-###  Публикация: 935109   (500121) от 07.09.2015
-
-G-Force: Миссия Дарвина (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500121.jpg" />
-</div>
-
-
-###  Подробнее
-
-G-Force является трехмерным экшен-платформером, события которого основаны на фильме с одноименным названием. Выступив в роли секретного агента, морской свинки по имени Дарвин, вам вместе со специально подготовленным боевым отрядом предстоит отправиться на спасение мира от очередного злодея. Для борьбы с коварным врагом и преодоления различных трудностей, в вашем (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Eurocom, Keen GamesЖанр: Action / Adventure / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD46B3CC2AE396570AD3B9387AD19F265EB8F51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934977   (500058) от 07.09.2015
 
 Lollipop Chainsaw (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
@@ -32,7 +6,7 @@ Lollipop Chainsaw (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +32,7 @@ LEGO Jurassic World / LEGO Мир Юрского периода (2015) [Xbox360]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +58,7 @@ Madden NFL 16 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +84,7 @@ Brave: The Video Game / Храбрая сердцем (2012) [Xbox360] [RegionFr
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +110,7 @@ Spider-Man: Edge of Time (2011) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +136,7 @@ NASCAR Unleashed (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +162,7 @@ Days of Thunder: NASCAR Edition (2011) [PS3] [USA] 3.60 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +188,7 @@ Inversion (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +214,7 @@ Monsters vs. Aliens (2009) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [Licens
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +240,7 @@ EA Sports MMA (2010) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +266,7 @@ Tomb Raider (2013) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +292,7 @@ G.I. JOE The Rise of Cobra (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +345,7 @@ Battle Chasers Nightwar (2018) [Switch] [EUR] 8.1.0 [NSP] [eShop / 1.0.2] [Ru/En
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +374,7 @@ L.A. Noire (2017) [PS4] [EUR] 6.72 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +400,7 @@ Super Mario Odyssey (2017) [Switch] [EUR] 8.1.0 [NSP] [eShop / 1.3.0] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +427,7 @@ Robot Rescue Revolution (2013) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PS
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +454,7 @@ Fuel (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +480,7 @@ Bionic Commando Rearmed (2008) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +506,7 @@ RIDE (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +532,7 @@ The LEGO Movie Videogame (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +558,7 @@ Kingdoms of Amalur: Reckoning + DLC (2012) [Xbox360] [RegionFree] [FreeBoot] [Un
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +584,7 @@ Supremacy MMA (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -636,7 +610,7 @@ The Bluecoats: North vs South (2016) [PS3] [EUR] 4.21 [PSN] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -665,7 +639,7 @@ Divinity: Original Sin 2 - Definitive Edition (2019) [Switch] [USA] 10.1.0 [NSP]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -676,6 +650,32 @@ Divinity: Original Sin 2 - Definitive Edition (2019) [Switch] [USA] 10.1.0 [NSP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6916C7521C4BF69968AD151F633EEF791E747BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053192   (491789) от 20.09.2016
+
+Dead or Alive 5 Plus (2013) [PSVita] [USA] 3.60 [HENkaku] [Repack / 1.01 ] [En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Самые классные бойцы в истории игр впервые на PlayStation®Vita! Насладитесь техничными боями и сногсшибательными локациями из прославленной игры Dead or Alive 5 с массой новых возможностей! Бейтесь с любимыми персонажами с помощью простых касаний и жестов в режиме Touch Fight. Играйте гораздо лучше с утроенной детализацией движений в режиме Training Plus. Синхронизируйте (   Читать дальше...   )Тип издания: RepackРазработчик: Team NinjaЖанр: Action, Fighting, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74047E8479B963CAD613C8A590EC3172AE9A6AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

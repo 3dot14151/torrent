@@ -1,3 +1,56 @@
+###  Публикация: 1326011   (386452) от 19.09.2019
+
+Фантастические твари / Fantastic Beasts (2016, 2018) BDRip [H.265/1080p-LQ] [10-bit] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Поиск и изучение необычайных волшебных существ приводят магозоолога Ньюта Саламандера в Нью-Йорк. Скорее всего, он отбыл бы на поезде дальше, если бы не «немаг» (так в Америке называют магглов) по имени Якоб, оставленный в неположенном месте магический чемодан и побег из него фантастических животных Ньюта.
+   Могущественный тёмный волшебник Геллерт Грин-де-Вальд пойман (   Читать дальше...   )Производство: Великобритания, США / Heyday Films, Warner Bros.Жанр: фэнтези, приключения, семейныйРежиссер: Дэвид ЙейтсАктеры: Эдди Редмэйн, Кэтрин Уотерстон, Дэн Фоглер, Элисон Судол, Колин Фаррелл, Кармен Эджого, Эзра Миллер, Саманта Мортон, Рон Перлман, Джон Войт, Джонни Депп, Дэн Фоглер, Джуд Лоу, Кевин Гатри, Вольф Рот, Зои КравицПеревод: ДублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 02:12:52 / 02:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E0AE41BC4D3E527954F3AE056A1CBA03E001D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174478   (384949) от 15.10.2017
+
+Зачетный препод / Fack ju Gohte (2013,2015) BDRip [H.265/1080p-LQ] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Комедийная история о бывшем незадачливом грабителе банков Зеки Мюллере, а ныне крутом преподе в школе Гёте. Благодаря нетрадиционным методам преподавания ему удается обрести популярность среди учеников самого буйного и ненормального класса во всей школе.Производство: Германия / Constantin Film Produktion GmbH, Rat Pack Filmproduktion GmbHЖанр: КомедияРежиссер: Бора ДагтекинАктеры: Элиас ЭмБарек, Каролине Херфурт, Катя Риман, Яна Палласке, Алвара Хёфельс, Йелла Хаазе, Макс фон Гробен, Анна-Лена КленкеПеревод: Дублированный (R5, iTunes)Субтитры: отсутствуютПродолжительность: 01:57:47 | 01:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B68754AA6A3B0EAC722F98C74534ABB69418E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063963   (384261) от 30.10.2016
 
 Каникулы. Коллекция / The Vacation. Collection (1983-1997) BDRip [H.264/720p]
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +221,7 @@ Superнянь / Babysitting (2014-2015) BDRip [H.264/720p] [Дилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,59 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B29D11FDA8AE139DF003FFEA5B080DC6EF144CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179049   (348503) от 31.10.2017
-
-Двойная рокировка: Трилогия / Infernal Affairs: Trilogy / Mou gaan dou I-III (2002, 2003) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348503.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух людей, ежесекундно рискующих жизнью. Один из них — агент мафии в полиции, другой — полицейский, внедренный в мафию. Каждый стремится к одному: разоблачить врага...Производство: Гонконг, Китай, Сингапур / Media Asia Films, Basic Pictures, Eastern Dragon Film Co. Ltd., Mediacorp Raintree PicturesЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Эндрю Лау, Алан МакАктеры: Энди Лау, Тони Леунг, Энтони Вонг, Чау Санг, Эрик Цанг, Келли Чен, Самми Ченг, Эдисон Чен, Шоун ЮПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:40:42 | 01:59:28 | 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC21AB0D8DF72BED7AD2FC35DA5CF65A8EE3546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418795   (343844) от 26.10.2020
-
-Неуловимые мстители (1966,1968,1971) WEBRip [H.264] [Трилогия]
-
->>Коллекции / *логии
->>Отечественное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343844.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Неуловимые мстители» — советский цветной художественный фильм-истерн, поставленный на Московской ордена Ленина киностудии «Мосфильм» Эдмондом Кеосаяном по мотивам повести Павла Бляхина «Красные дьяволята», о приключениях четырёх подростков в годы Гражданской войны.
-Все три части знаменитой трилогии о "Неуловимых мстителях". Блистательная режиссура, актёрская (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Приключения, боевикРежиссер: Эдмонд КеосаянАктеры: Василий Васильев, Виктор Косых, Валентина Курдюкова, Михаил Метёлкин, Борис Сичкин, Армен Джигарханян, Владимир Белокуров, Надежда Федосова, Виктор Колпаков, Иван Жеваго, Александра Денисова, Лев Свердлин, Савелий Крамаров, Глеб Стриженов, Инна Чурикова, Павел Винник, Ефим Копелян, Владимир Трещалов, Геннадий Юхтин, Иван Савкин, Валентина Ананьина, Альбина Матвеева, (   Читать дальше...   )Язык озвучки: Русский, Английский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:13:03 + 01:16:11 + 01:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429E33E36B1EB67F9F7110EC35E8F4D9A383590D
 ```
 
 https://mybot314.ru/tekegram_catalog/

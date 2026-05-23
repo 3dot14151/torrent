@@ -1,3 +1,82 @@
+###  Публикация: 1452658   (1027469) от 07.03.2021
+
+Райя и последний дракон / Raya and the Last Dragon (2021) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Отважной воительнице по имени Райя и её верному спутнику Тук-Туку предстоит покинуть родное королевство Кумандра, чтобы отыскать последнего оставшегося в мире дракона, и с его помощью вернуть надежду на победу над могущественным врагом.Производство: США / Walt Disney PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Дон Холл, Карлос Лопес Эстрада, Пол БриггсПеревод: ОтсутствуетСубтитры: Русские (Full (FOCS)), английские, испанские, французские, немецкие, итальянские, португальскиеПродолжительность: 01:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8152E73410FC7A3F5648DA85523FC2AFDC748EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217076   (1027445) от 07.03.2021
+
+Пробуждение жизни / Waking Life (2001) HDTVRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Весь этот анимационный фильм от начала до конца — ошеломляющая цепь превращений, калейдоскоп парадоксов, постоянное меняющийся мир, путешествие из реальности в сон и обратно.
+Это философская притча, наполненная вечными вопросами и неожиданными ответами на них, здесь каждый шаг рождает новые загадки, мгновения фильма сталкиваются и перетекают одно в другое, как накатывающиеся (   Читать дальше...   )Производство: США, Detour Filmproduction, Flat Black Films, Fox Searchlight Pictures и др.Жанр: фэнтези, драма, мультфильм, детектив, для взрослыхРежиссер: Ричард ЛинклейтерАктеры: Тревор Джек Брукс, Лорелей Линклэйтер, Уайли Уиггинс, Гловер Гилл, Лара Хикс, Амес Асбелл, Ли Махони, Сара Нельсон, Джанин Аттавэй, Erik GrosticПеревод: Многоголосый профессиональныйПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 269215   (1027425) от 07.03.2021
+
+Гадкий Я / Despicable Me (2010) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться.Производство: США, Франция / Illumination EntertainmentЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Пьер Коффан, Крис РеноАктеры: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер СоффинПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C34EDF59E9EA66A3F709ADFDD22FC7A806DCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452985   (1027129) от 09.03.2021
 
 Райя и последний дракон / Raya and the Last Dragon (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [Line]
@@ -6,7 +85,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66CEF030415F9398A4DA66086152DC130652052A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459244   (1023230) от 01.04.2021
-
-Душа / Soul (2020) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже немолодой школьный учитель музыки Джо Гарднер всю жизнь мечтал выступать на сцене в составе джазового ансамбля. Однажды он успешно проходит прослушивание у известной клубной певицы и, возвращаясь домой вне себя от счастья, падает в люк и умирает. Теперь у Джо одна дорога — в Великое После, но он сбегает с идущего в вечность эскалатора и случайно попадает в Великое (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Пит Доктер, Кемп ПауэрсПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FD371A0726846EC1688766608002EB569AACFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459623   (1023050) от 02.04.2021
-
-Душа / Soul (2020) BDRip [H.265/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, музыка, полнометражныйРежиссер: Пит Доктер, Кемп ПауэрПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988DE5475912E5373D57EC89E74B552F11177F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460126   (1022721) от 04.04.2021
-
-Душа / Soul (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, музыка, полнометражныйРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Филисия Рашад, Давид Диггс, Анджела Бассетт, Грэм Нортон, Рэйчел Хаус, Алиси Брага, Ричард Айоади, Доннел Роулингс, Амир-Халиб Томпсон, Марго Холл, Сакина Джэффри, Фортун ФеймстерПеревод: Дублированный (iTunes), многоголосый закадровый (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1001F27A729536F439B1556305271B853D09F988
 ```
 
 https://mybot314.ru/tekegram_catalog/

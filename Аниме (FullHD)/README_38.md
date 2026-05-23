@@ -1,3 +1,57 @@
+###  Публикация: 1178889   (351396) от 30.10.2017
+
+Mitsuami no Kamisama | Pigtails | Богиня с косичками [2015, Movie] BD-rip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+И содрогнулась земля. И вышло море из берегов. И было это только начало всех бедствий. А затем...
+
+Девушка, уединённо живущая на берегу моря. Привычного мира больше нет, но для неё день проходит как обычно. Она заплетает волосы в косы, стирает и сушит бельё. Она не замечает, как вокруг неё вещи говорят с миром - подушка спорит с зонтиком о катастрофе, новая зубная (   Читать дальше...   )Производство: студия Production I.GЖанр: повседневность, драмаРежиссер: Итадзу ЁсимиПеревод: zafhozЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D638581B1A1CA14681EF1DC67DEC7FD6878092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178606   (351132) от 30.10.2017
+
+Kemono Friends | Животные-друзья | Дикие друзья [2017, TV, 12 эп.] BD-rip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В «гигантском интегрированном зоопарке» под названием «Джапари Парк» творится неладное: из-за таинственной субстанции, получившей название «песчаная звезда», животные начали превращаться в антропоморфных существ — зверодевушек. «Джапари Парк» ежедневно посещает множество людей, которые прекрасно проводят там время, но однажды в парк забредает потерявшийся ребёнок. (   Читать дальше...   )Производство: студия Yaoyorozu / ヤオヨロズЖанр: приключения, комедияРежиссер: ТацукиПеревод: Elven_TankmanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F672E4865B06CB4AFA4AA6892B075DB655C7703B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480706   (350650) от 23.10.2020
 
 Queen's Blade Unlimited | Клинок Королевы: Безграничные [2011, OVA, 2 эп. ] BDrip 1080p raw
@@ -6,7 +60,7 @@ Queen's Blade Unlimited | Клинок Королевы: Безграничны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Queen's Blade: Rebellion | Клинок Королевы: Мятеж [2012, TV +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Queen's Blade: Rurou no Senshi | Queen's Blade: Wandering Warriors | Клино�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ Queen's Blade: Utsukushiki Toushitachi | Queen's Blade: Beautiful Warriors | К�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Queen's Blade: Vanquished Queens | Клинок королевы: Поверже
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Sengoku Collection / Parallel World Samurai / Коллекции смутног�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +244,7 @@ Sakamichi no Apollon / Аполлон: Дети на холме [2012, TV, 12 с
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +272,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12 эп.] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +298,7 @@ Bungou Stray Dogs 3 / Великий из бродячих псов [ТВ-3] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +324,7 @@ Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +350,7 @@ Pupipoo! | Пупипо! [2013, TV, 15 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +378,7 @@ Fumikiri Jikan | Crossing Time | Железнодорожный переезд [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +404,7 @@ Busou Shoujo Machiavellianism | Armed Girl's Machiavellism | Тирания во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +430,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +456,7 @@ Fate/Grand Order: Moonlight/Lostroom | Судьба/Великая Кампан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +482,7 @@ Princess Principal | Принцесса-шпионка | Подручные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +508,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +534,7 @@ Ixion Saga: Dimension Transfer | ИКСИОН САГА: Пространстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +560,7 @@ Lost Song | Потерянная песня [2018, ONA, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +586,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место за п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +612,7 @@ Guskou Budori no Denki (2012) / The Life of Guskou Budori / Житие Гуск�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +640,7 @@ Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +666,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,58 +677,6 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D9F7645127AB03BA89CEC30DE416A6A349F5AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954517   (339360) от 08.11.2015
-
-Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алиса: Дело об убийстве [2015, МV] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куроя... то есть, Арисугава Тэцуко, или же просто Алиса — ученица средней школы, вместе с матерью вернулась в её родной город после развода родителей, заселилась в новый дом, поступила в новую школу с формой в виде посредственных матросок, да собственно и вся история. Вот только в округе происходят сомнительные вещи: к одной из парт в классе многие месяцы никто не (   Читать дальше...   )Жанр: повседневностьРежиссер: Ивай СюндзиПеревод: 1) Jima Lostinime; 2) TimecraftЯзык субтитров: русскийПродолжительность: 100 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407C8508838725B20D464A4DD195ECCC67E0DC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330520   (338971) от 11.10.2019
-
-Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апельсиновой улицы OVA [1989, OVA, 8 из 8] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Кёсукэ Касуга со своей семьей, которая состоит из папаши-фотографа, кота-обжоры и двух непоседливых сестричек-школьниц, в очередной раз переезжает на новое местожительство. Столь частые переезды семьи Кёсукэ отнюдь не случайны, ведь он и его близкие обладают странными мистическими способностями, позволяющими совершать разные полезные, но не всегда разумные поступки: (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: романтика, комедия, повседневностьРежиссер: Накамура Койтиро, Ко Ю, Ёсинага НаоюкиПеревод: IsitoryЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D537652E0AA243EDDDD25223DF764F4ADAE01543
 ```
 
 https://mybot314.ru/tekegram_catalog/

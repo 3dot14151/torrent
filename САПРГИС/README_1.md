@@ -1,3 +1,29 @@
+###  Публикация: 1002465   (844344) от 02.04.2016
+
+MapInfo Pro 15.0 Build 18 (x86) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+MapInfo Professional – географическая информационная система (ГИС), предназначенная для сбора, хранения, отображения, редактирования и анализа пространственных данных.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8B8020F156728123401EDBEDF2CC5B26C02CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309775   (840499) от 16.03.2011
 
 MapInfo Professional 9.0 Portable [RUS]
@@ -6,7 +32,7 @@ MapInfo Professional 9.0 Portable [RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Delcam PowerMILL Pro 2016 SP10 Version 20.0.10.64.1187259 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +85,7 @@ StairDesigner 7.05a [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Autodesk AutoCAD 2018 О.49.0.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Autodesk Robot Structural Analysis Pro 2017 30.0.0.5913 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +164,7 @@ Autodesk Advance Steel 2017 Build 722 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +190,7 @@ Autodesk AutoCAD Civil 3D 2017 11.0.659.0 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +216,7 @@ Nemetschek Allplan 2015 (30 Years Edition) Build 28.501.4211.1019 (x64) [Multi/R
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +242,7 @@ Autodesk EAGLE Premium 8.0.1 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +268,7 @@ T-FLEX CAD 15.0.30.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +294,7 @@ BricsCad Platinum 18.1.09.51732 [RU]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +320,7 @@ Autodesk AutoCAD Raster Design 2017 build 4.0.19.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +376,7 @@ Bentley MicroStation CONNECT Edition 10.00.00.25 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +402,7 @@ IMSI TurboCAD 2016 Pro Platinum 23.1 Build 31.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +428,7 @@ Autodesk СПДС модуль 5.0 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +454,7 @@ AspenTech AspenONE 8.8 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +480,7 @@ Autodesk Inventor Professional 2019 Build 136 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +506,7 @@ Autodesk AutoCAD Plant 3D 2019 (M046.04)  [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +532,7 @@ Autodesk AutoCAD Mechanical 2019 (23.0.46.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +558,7 @@ Autodesk AutoCAD Electrical 2019 (16.0.49.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +584,7 @@ Autodesk AutoCAD Architecture 2019.0.1 (8.1.60.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +610,7 @@ Autodesk Advance Steel 2019 (1578) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +637,7 @@ Autodesk Navisworks Manage 2019 (16.0.1326.55) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -637,7 +663,7 @@ Autodesk AutoCAD MEP 2019 (8.1.48.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,32 +674,6 @@ AutoCAD MEP помогает проектировать инженерные с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52AD384F28346F0217430EC67CAA504003369B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222988   (680564) от 01.05.2018
-
-Autodesk Robot Structural Analysis Professional 2019 (32.0.0.6490) [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk Robot Structural Analysis Professional предоставляет в распоряжение проектировщиков полный набор инструментов для расчета конструкций зданий любого размера и сложности. Этот продукт, предназначенный для расчета строительных конструкций, обеспечивает более рациональный рабочий процесс и взаимодействие с Autodesk® Revit® Structure, расширяя возможности информационного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929807B94A929EE76306E8013892B1E6D042304F
 ```
 
 https://mybot314.ru/tekegram_catalog/

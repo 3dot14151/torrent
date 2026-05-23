@@ -1,3 +1,56 @@
+###  Публикация: 1183102   (299039) от 18.11.2017
+
+Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвете | Песнь Лу, что возвещает рассвет [2017, Movie] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В небольшом прибрежном городке живёт обычный школьник Кай. Мечтает Кай перебраться в Токио, где сможет реализовать свою мечту стать всемирно известным музыкантом. А пока он с друзьями организовал музыкальную группу "Сирена" и с переменным успехом выступает перед местными жителями.
+Но всё меняется, когда он встречает самую настояющую русалку. Как эта встреча (   Читать дальше...   )Производство: студия Science Saru / サイエンスSaruЖанр: приключенияРежиссер: Юаса МасаакиПеревод: Drnndy + BBNGЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 110 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27238DAD16EDC13DE798ACC5454B7A1C883D2F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174707   (298776) от 18.11.2017
+
+Frame Arms Girl | Боевые куколки | Вооружённая малышка [2017, TV, 12 эп.] BD-rip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Покупки в интернете - та ещё лотерея. Заказываешь себе что-нибудь, ждёшь-ждёшь, а посылка берёт и теряется на пути к тебе. Знакомо? Оказывается, таким промышляет не только наша почта. Правда нашей главной героине Ао Геннай повезло немножко больше, чем нам. Ничего она не заказывала, ничего не ждала, а в один прекрасный день ей по ошибке доставили чужую посылку. Да (   Читать дальше...   )Производство: студия ZEXCS / ゼクシズЖанр: приключения, комедия, меха, эттиРежиссер: Кавагути КэйитироПеревод: Mike PayneЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72ACDBAD806487B48385175D3700F479668A37A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333907   (298733) от 27.10.2019
 
 Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Sleep | Ранма 1/2: Кошмар! Ладан сновидений [2008, Movie] BDRip 1080p raw
@@ -6,7 +59,7 @@ Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Slee
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1991-2008
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ Kono Subarashii Sekai ni Shukufuku o! | Konosuba: God's Blessing on This Wonderf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +215,7 @@ Taboo-Tattoo | Запретная татуировка [2016, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +241,7 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +267,7 @@ Alice to Zouroku | Алиса и Дзороку [2017, TV, 12 эп.] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +295,7 @@ Psycho-Pass: Sinners of the System| Психопаспорт: Грешники �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +324,7 @@ Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +352,7 @@ Onii-sama e... | Dear Brother | Уважаемый старший брат [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +378,7 @@ DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +404,7 @@ Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Lov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +430,7 @@ Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Conf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +456,7 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +482,7 @@ Mouretsu Pirates - Akuu no Shin'en | Moretsu Pirates: Abyss of Hyperspace | Ли
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +508,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +534,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +586,7 @@ Koukaku Kidoutai Stand Alone Complex: Solid State Society / Ghost in the Shell: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +612,7 @@ Shin Kidou Senki Gundam Wing | Mobile Suit Gundam Wing | Мобильный во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +638,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +664,7 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -622,58 +675,6 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829D8910E5631C8833285176B27B6046FC0F2E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152464   (266745) от 10.12.2017
-
-Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Sukasuka [2017, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятьсот лет назад человечество было практически уничтожено ужасными «Тварями». Ныне выжившие представители других рас обитают на парящих островах в постоянном страхе. Противостоять «Тварям» могут только девушки, которых называют «Феями», обладающие способностью использовать силу древнего оружия — «Священных мечей». Жизни «Фей» коротки, а сражения с «Тварями» — единственный (   Читать дальше...   )Производство: студия SatelightЖанр: приключения, фэнтезиРежиссер: Вада ДзюнъитиПеревод: 1) SovetRomantica; 2) SoraSubsЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1C1411D622A9B7B35D07146423C111ECED7159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190748   (265671) от 11.12.2017
-
-Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в нашем светлом будущем, где война с терроризмом вышла на новый виток, после того как Сараево было уничтожено самодельной ядерной бомбой. Бывшие демократические державы окончательно превратились в государства тотальной слежки, а страны третьего мира захлестнула волна этнических чисток. Мир погрузился в пучины хаоса и насилия. И на руинах (   Читать дальше...   )Производство: студия Geno Studio / ジェノスタジオЖанр: боевик, фантастикаРежиссер: Мурасэ СюкоПеревод: 1) Ивашков Егор; 2)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 114 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47A6C75BD5E8DE28C57B4854CCAAC490D56DE5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

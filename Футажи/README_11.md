@@ -1,3 +1,81 @@
+###  Публикация: 1420844   (331046) от 02.11.2020
+
+Футажи - AtmosFX – Halloween Zombie Bash [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Halloween Zombie Bash (Ударный зомби Хэллоуин) - Это голографические цифровые декорации. Они не живые, но эти зомби более чем живые! В анимационном оформлении Halloween Zombie Bash отряд сумасшедших зомби танцует, джемит и пугает ваше сердце - а если вы не будете осторожны, то и ваш мозг. Включает в себя три веселых танцевальных номера, группу из пяти человек, играющую (   Читать дальше...   )Формат: MP4Разрешение файлов: 1920x1080, 1080x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB57AF3A32C778C89D2D08D312A5D90DF565C005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420727   (331044) от 02.11.2020
+
+Футажи - AtmosFX – Paranormal Passage [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Paranormal Passage (Паранормальный переход) - Это голографические цифровые декорации. Кто стучит в стену ?! Неужели духи подземного мира обнаружили портал в земной план - в вашем доме !? Коллекция цифровых украшений «Паранормальный проход» включает в себя три отдельные сцены, наполненные полтергейстом, идеально подходящие для проецирования на стены, потолки и другие (   Читать дальше...   )Формат: MP4Разрешение файлов: 1920x1080, 1080x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3930EDECACAF44FDA87060E00F12E220C0735F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420779   (331042) от 02.11.2020
+
+Футажи - AtmosFX – Hoppy Easter [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Hoppy Easter (Пасха Хоппи) - Это голографические цифровые декорации. Познакомьте свою семью с веселым кроликом по имени Хоппи, который хочет принести радость в ваш дом в эту Пасху. Зайчик Хоппи с корзиной, полной украшенных яиц, украшен тремя игривыми индивидуальными украшениями, которые одинаково очаруют детей и взрослых. Независимо от того, где вы создаете коллекцию (   Читать дальше...   )Формат: MP4Разрешение файлов: 1920x1080, 1080x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D0529D56B33CE313423A80945FADC093D57954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420747   (331037) от 02.11.2020
 
 Футажи - AtmosFX – Jack-O'-Lantern Jamboree 2 [MP4]
@@ -6,7 +84,7 @@
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,86 +668,6 @@ Terrors from Beyond (Ужасы извне) - Это голографическ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DB05043F02C83E828783614AC142291555F059B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420858   (323814) от 02.11.2020
-
-Футажи - AtmosFX - Enchanted Snowman [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enchanted Snowman (Очарованный снеговик) - Это голографические цифровые декорации. Погода может быть прохладной, но с ней приходит веселый снеговик, который обязательно согреет вам сердце. Катаясь в зимней стране чудес, этот очаровательный снеговик развлекает всех, кто его встречает. Коллекция из пяти индивидуальных украшений, Enchanted Snowman - это теплые объятия (   Читать дальше...   )Формат: MP4Разрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B378C920D2897193DCBA37965EB9F0AECB1EEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420107   (321547) от 03.11.2020
-
-Цифровые декорации - AtmosFX - Eerie Eyes [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ужасающими взглядами очень наблюдательных глаз эта анимированная коллекция цифровых украшений на Хэллоуин доказывает, что за нами всегда кто-то наблюдает. Проекции Eerie Eyes состоят из восьми различных типов глаз, а также сцены с пугающим множеством глаз и страшных зубов. Как бы вы ни старались, вы не сможете отвести взгляд!
-
-Для достижения максимального эффекта (   Читать дальше...   )Производство: США, AtmosFXЖанр: Анимация, КороткометражныйФормат: MP4Продолжительность: 28 роликов, от 00:01:07 до 00:01:15 каждыйРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967C5D6E3699CD620C5C33A2DBE0920B711C5FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843816   (320084) от 24.11.2014
-
-Футажи - VideoHive - Particle Shine (6-Different Backgrounds Loop) - 151304 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из шести Full HD футажей. Свободно парящие шарики в различных цветовых гаммах. Скриншоты сделаны: первые четыре - с превью на оф. сайте, под спойлером - непосредственно с файлов раздачи.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B052AA459721783C63212553BB7D3D73251738
 ```
 
 https://mybot314.ru/tekegram_catalog/

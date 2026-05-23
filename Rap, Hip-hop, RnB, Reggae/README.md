@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1872106   (1070192) от 
+
+Shaggy - Lottery (2026) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Reggae, Ragga HipHop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. God Is Amazing (feat. Mutabaruka & Vanessa Amorosi)
+02. Lottery (feat. Jeremih)
+03. Boom Body (feat. Akon & Aidonia)
+04. Looking Lovely (feat. Robin Thicke)(   Читать дальше...   )Жанр: Reggae, Ragga HipHopПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9268E877E7F45E7F2E9965C39168F001AD7251EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866972   (1066381) от 22.04.2026
+
+Баста/Гуф - Баста/Гуф 2026 (2026) [MP3|320 Kbps] <Rap, Hip-Hop, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Из песни слов не выкинешь
+2. XV Лет спустя
+3. Дедули
+4. Улицам нужен твой огонь(   Читать дальше...   )Жанр: Rap, Hip-Hop, PopПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E00788722E70FE6CA9A4D7AF87FF2BA674D8581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866974   (1066380) от 22.04.2026
+
+Баста/Гуф - Баста/Гуф 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Из песни слов не выкинешь
+2. XV Лет спустя
+3. Дедули
+4. Улицам нужен твой огонь(   Читать дальше...   )Жанр: Rap, Hip-Hop, PopПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A771F8FAA4063A04237073047B30883636B604F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865980   (1065912) от 
 
 Ка тет - Заточка цепей бензопил (2026) [MP3|320 Kbps] <Рэп>
@@ -7,7 +94,7 @@ https://t.me/izofen
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +123,7 @@ Conway The Machine - G.O.A.T. (2026) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -65,7 +152,7 @@ Rihanna - Unapologetic (2012) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -94,7 +181,7 @@ Diana King - Think Like A Girl (1997) CD Album, Enhanced [FLAC|Lossless|tracks +
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -123,7 +210,7 @@ VA - Chillhop Essentials Spring (2026) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -152,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -181,7 +268,7 @@ Gnarls Barkley - Atlanta (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Alter
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -210,7 +297,7 @@ Bruno Mars - The Romantic (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Funk , Sou
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -239,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +384,7 @@ Mozzy - Not A Chance In Hell (2026) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +413,7 @@ Johnyboy - Холод 2 (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -355,7 +442,7 @@ TLC - Ooooooohhh…On the TLC T (1992) [FLAC|Lossless|tracks + .cue] <R&B, Funk 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -384,7 +471,7 @@ The English Beat - Special Beat Service (1986) [FLAC|Lossless|tracks + .cue] <Re
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -413,7 +500,7 @@ Icegergert - Глаз Бога (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -442,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -471,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +587,7 @@ Oxxxymiron - Национальность: нет (2025) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +616,7 @@ Oxxxymiron - Национальность: нет (2025) [FLAC 24/48|Lossless|WE
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -645,7 +732,7 @@ VA - Chillhop Essentials Winter (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -659,93 +746,6 @@ VA - Chillhop Essentials Winter (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0021BBC6257EC999D102625661FE7AE88A73D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840520   (1047411) от 05.12.2025
-
-Noize MC - Алхимия (2025) EP [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Улица Авеля
-2. Пчёлы слов
-3. Чернокнижник
-4. Планета ЗемляЖанр: Rap, Hip-HopПродолжительность: 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29360679A84E69A6361AD068B7D3FB036236FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840522   (1047410) от 05.12.2025
-
-Noize MC - Алхимия (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Улица Авеля
-2. Пчёлы слов
-3. Чернокнижник
-4. Планета ЗемляЖанр: Rap, Hip-HopПродолжительность: 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3677036E2389B38F478E0999906F6CE980A5F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839772   (1046976) от 01.12.2025
-
-Хаски - Партизан (2025) [FLAC 24/48kHz|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я боюсь [00:03:33]
-02. Интро [00:00:38]
-03. Музыка рай [00:02:36]
-04. Контроль [00:03:20](   Читать дальше...   )Жанр: Alternative Hip-HopПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73DD268C295A32BCDC6D475E2590B06A91E4103
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1691766   (61630) от 27.03.2024
+
+Gekai Elise | Doctor Elise: The Royal Lady with the Lamp | Королева со скальпелем [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Злaя импepaтpицa Элизe былa кaзнeнa. Oнa пepepoдилacь, в дpyгoй жизни cтaлa тaлaнтливым xиpypгoм и cтapaлacь иcкyпить винy зa пpoшлoe, пoмoгaя людям. Пoгибнyв в aвиaкaтacтpoфe, oнa cнoвa пepepoдилacь и вepнyлacь в cвoю пepвyю жизнь, нo зa 10 лeт дo кaзни. Coxpaняя вocпoминaния o cвoиx пpeдыдyщиx жизняx, Элизe нe xoчeт cтaнoвитьcя пpeжнeй злoй coбoй и пoвтopять oшибки (   Читать дальше...   )Производство: студия Maho FilmЖанр: комедия, романтика, фэнтезиРежиссер: Хабара КумикоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Multi-SubПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED3EF3251AB35FA1E42189CE19AEC4FF687D817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693716   (61537) от 28.03.2024
+
+Gekkan Mousou Kagaku | Delusional Monthly Magazine | Псевдонаучный ежемесячник [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В городе Мост, на втором этаже ветхого здания находится одна редакция. Она выпускает ежемесячный журнал о таких феноменах, которые кажутся невозможными даже учёным. Главному редактору, красавчику Таро, помогают школьник Дзиро и пёс Сабуро. Новая удивительная история закручивается, когда к ним за помощью обращается учёный Горо Сато.
+© crunchyrollПроизводство: студия OLM / オー・エル・エムЖанр: повседневностьРежиссер: Мияваки ТидзуруПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Mutli-SubПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D780C7C6D012A6C963B9D7C930E616B5F286EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691291   (61472) от 29.03.2024
+
+Mahou Shoujo ni Akogarete / Gushing over Magical Girls / Восхищаясь девушками-волшебницами [2024, TV, 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Утэнa Xиpaги вceгдa вocxищaлacь дeвyшкaми-вoлшeбницaми и мeчтaлa cтaть кpyтoй гepoинeй, кoтopaя бopeтcя co злoм. Пoэтoмy кoгдa oнa вcтpeчaeт cyщecтвo, yтвepждaющee, чтo y Утэны ecть cкpытaя мaгичecкaя cилa, тyт жe peшaeт, чтo eё мeчтa cбылacь. Ho вcё pyшитcя из-зa внeзaпнoгo пoвopoтa coбытий: oнa пpeвpaщaeтcя в злoдeйкy! He зaинтepecoвaннaя в coюзe c cилaми злa, (   Читать дальше...   )Жанр: комедия, этти, фэнтези, юри, махо-сёдзё.Режиссер: Оцуки АцусиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE962C4BD95F8A830130E9EA46E3E30DAB9912A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646159   (61467) от 29.03.2024
+
+Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] WebRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+2222 год. Год назад на Землю пролились «Слёзы Новой Луны» — загадочный ядовитый ливень, который стёр с лица планеты почти всё человечество. Зато он породил отвратительных монстров-людоедов, и выжившим пришлось спасаться бегством. Они построили подземное убежище и назвали его Амазия. Однако там они столкнулись с новыми трудностями: необходимостью уживаться с искусственным (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: фантастикаРежиссер: Ямамото ЮсукэПеревод: Funimation; AniLibriaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D468F040F96329ECD6395C867073A1E6E298C455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690409   (61210) от 31.03.2024
 
 Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles - The Divine Visionary Candidate Exam Arc | Магия и мускулы [ТВ-2] [2024, TV, 12 эп.] WEBRip 720 raw
@@ -6,7 +111,7 @@ Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +139,7 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +167,7 @@ Metallic Rouge | Металлическая Руж [2024, TV, 13 эп.] WebRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +194,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +220,7 @@ Bucchigiri?! | Буттигири [2024, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +246,7 @@ Kuramerukagari | Ослепляющая Кагари [2024, Movie] WEBRip 544p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +272,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +298,7 @@ Mugen Shinshi: Bouken Katsugeki Hen | Джентльмен из грёз: Ска
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +324,7 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +350,7 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +376,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +403,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +429,7 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +456,7 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +482,7 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +508,7 @@ Mother: Saigo no Shoujo Eve | Глаза Марса [1993, Movie] VHSRip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +534,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +560,7 @@ TWD Express Rolling Takeoff | TWD-Экспресс: Плавный взлёт [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +586,7 @@ Kurokami The Animation / Темная богиня [2009, TV,   23 серий] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +612,7 @@ Kuroi Ame ni Utarete | Жертвы чёрного дождя [1984, Movie] DVDR
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +638,7 @@ Campione! Matsurowanu Kamigami to Kami Koroshi no Maou | Чемпион! ~Шко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +664,7 @@ Touken Ranbu Kai: Kyoden Moyuru Honnouji | Танец мечей: Лабирин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,110 +675,6 @@ Touken Ranbu Kai: Kyoden Moyuru Honnouji | Танец мечей: Лабирин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF536D49023B3673259AB16B68932275C6BD9C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725958   (55303) от 26.05.2024
-
-Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, ONA, 6 эп.] WEB-DL 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55303.jpg" />
-</div>
-
-
-###  Подробнее
-
-В антологию, созданную по мотивам сказок братьев Гримм, вошли шесть волшебных историй с мрачными поворотами сюжета, раскрывающих теневую сторону человеческих желаний.Производство: студия Wit Studio / ウィットスタジオЖанр: драма, триллер, ужасыПеревод: NetflixЯзык озвучки: Японский; Английский;Субтитры: Японские; Английские; Русские; Multi-SubПродолжительность: 6 эп. по 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE43B8DEF2F0F2358AF9CE2DC7B257011D947095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726106   (55219) от 27.05.2024
-
-Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демон [2024, Movie] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хиираги Яцусэ, первокурсник старшей школы, который изо всех сил пытается завести друзей, несмотря на свои усилия угодить другим. Его жизнь принимает неожиданный поворот, когда однажды летним днем ​​он встречает Цумуги, девушку-они (демона), ищущую свою мать в человеческом мире. Таинственным образом начинает падать снег... и начинается их приключение.Производство: Япония, студия ColoridoЖанр: приключенияРежиссер: Томотака СибаямаПеревод: NetflixЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 94 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FF7573FCA82EB09D7ECB7BB873268435FE54AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726091   (55120) от 28.05.2024
-
-Garouden: The Way of the Lone Wolf | Легенда о голодных волках: Путь одинокого волка [2024, Web, 8 эп.] WEBRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бегущего от преступного прошлого Джузо Фудзимаки шантажом заставляют принять участие в незаконном турнире, и ему предстоит сразиться с лучшими мастерами боевых искусств в смертельно опасных поединках.Производство: Япония, NazЖанр: приключения, экшенРежиссер: Итагаки АцусиПеревод: NetflixЯзык озвучки: Японский и английскийСубтитры: Английские; Русские; УкраинскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4E0455517C9F90EFADF0AC96480C8303C19D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612865   (54622) от 02.06.2024
-
-Omamori Himari / Защитница Химари [2010, TV, 12 серий] BDrip Hi10p 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юто Амакава происходит из клана борцов с демонами, которые, как известно, существуют и делают все, чтобы извести немногих людей, способных причинить им вред. Родители мальчика погибли и успели лишь оставить маленькому сыну талисман, призванный хранить его от потусторонних сил – но только до 16 лет. Так Юто и дожил до совершеннолетия под присмотром подруги детства (   Читать дальше...   )Жанр: комедия, романтика, мистика, эттиРежиссер: Усиро СиндзиПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC26B6BEF5C5195295A31D0BFEAB35C72F2978E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

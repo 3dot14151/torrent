@@ -1,3 +1,88 @@
+###  Публикация: 501286   (258376) от 25.05.2012
+
+Алина Уиллер | Индивидуальность бренда. Руководство по созданию, продвижению и поддержке сильных брендов [2004] [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Создание индивидуальности бренда является одним из основных компонентов маркетинга и очень важным процессом как для дизайнерских фирм, так и для специалистов по маркетингу и топ-менеджеров компаний. Индивидуальность - это визуальное и вербальное выражение бренда. Стратегия построения индивидуальности бренда основывается на "видении" бизнеса компании, ее истории, культуре и отражает глубинное понимание потребностей и восприятия клиентов. Проявляясь на визитных карточках и веб-сайтах, в рекламных кампаниях и корпоративных буклетах, индивидуальность повышает осведомленность потребителей о бренде и помогает расширять бизнес.
+Эта книга представляет собой полное и доступное руководство по созданию индивидуальности бренда. В ней подробно раскрыты все фазы этого процесса - начиная с исследования и анализа бизнеса и заканчивая управлением брендом.
+Автор книги Алина Уиллер - один из ведущих профессионалов в сфере брендинга. Ее фирма Rev Group помогает в разработке программ индивидуальности бренда для компаний, (   Читать дальше...   )2004Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44170D36471E302074514A95368CECE735D45E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501342   (258365) от 25.05.2012
+
+Юрий Мороз | Пособие для гениев [2005] [DOC]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Это первая книга Юрия Мороза, автора школы своего дела, адресована широкому кругу читателей, студентам, наемным работникам, бизнесменам. В основу книги положен анализ практической деятельности российского предпринимателя.
+
+Настоящая книга способна изменить вашу картину мира. Это значит, что вы сможете увидеть многие пути, ведущие вас к смыслу вашей жизни. Но будьте осторожны! Далеко не всем это знание будет во благо. А кроме того, эта книга лишит вас незнания, и после этого бесполезно будет отпираться и оправдываться в бездействии.
+
+Если после прочтения вы решите действовать, – вы не одиноки. Эта книга – манифест целой школы, Школы Своего Дела. Вы не первый, кто встал на путь действий, и это значит, что вы получите поддержку от тех, кто пошел по этому пути раньше вас.2003Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3845E4FF8FF3299D76B64EA8DF1A5153BA235F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498347   (253993) от 18.05.2012
+
+О.Г. Овчинникова | Ребрендинг [2007] [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ребрендинг представляет собой комплекс процедур, направленных на повышение потребительской лояльности, усиление конкурентоспособности организации. Как осуществить репоэиционирование бренда и определить примерную стоимость проекта? Об этом вы узнаете из этой книги. Какую тактическую линию выбрать, чтобы сохранить позиции фирмы на рынке, — решиться на ребрендинг или ограничиться рестайлингом?
+ В книге содержится анализ реального опыта российских компаний. Рассматривается роль креатива и способы осуществления планов — обратиться за консультацией к специалистам или проводить ребрендинг самостоятельно? Книга предназначена для маркетологов, PR-специалистов, руководителей малых предприятий, а также для всех, кому интересна тема динамики бренда!2007Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C099C234E1D7255861033C9E606E629976B1940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497627   (253793) от 17.05.2012
 
 Н.Рязанцева, Д.Рязанцев | 1С:Предприятие. Бухгалтеркий учет. Секреты работы [2003] [PDF]
@@ -6,7 +91,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -39,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -74,7 +159,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -100,7 +185,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -128,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -155,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -181,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -207,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -235,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -263,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -289,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -315,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -341,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -368,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -394,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -420,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -446,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -472,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -499,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -525,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -551,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -579,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -619,88 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32FD4512831AC5E91971711FDA4D8EC60E063E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964999   (227175) от 13.12.2015
-
-Виктор Орлов | Запрещенный копирайтинг (2013) [PDF, FB2, DOC]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никаких секретных, запрещенных и тому подобных технологий в области копирайтинга в трилогии не найти, как и во всех других книгах В. Орлова по данной теме - если подойти вдумчиво, то все это - приемы классического копирайтинга, сформировавшегося век назад. А слова, вроде "Секретный", "Запрещенный" - не более, чем рекламные фишки.
-Достоинство В. (   Читать дальше...   )Жанр: Бизнес, КопирайтингФормат: PDF, FB2, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C8E5D833D71D81FE2D6791BDDA8B076868B714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965374   (226210) от 14.12.2015
-
-Виктор Газман | Лизинг. Финансирование и секьюритизация (2011) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226210.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии читатель познакомится с ранее не освещавшейся в литературе цикличностью развития лизинга в США, Германии, Великобритании, Японии, Италии, Франции, России; с пропорциями в финансировании лизинга и его левериджем; с теорией и практикой секьюритизации лизинговых активов; с формированием стоимости лизинговых контрактов; с механизмом уступки денежных (   Читать дальше...   )Жанр: Бизнес, финансы, экономикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235AC1A6689558A0F451B589B913F973D8CB545F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965478   (225914) от 14.12.2015
-
-Эммануэль Фрэсс и др. | Все о… Business is digital Now! Лови момент! (2014) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие стратегии, собранные по всему миру: Россия, Европа, Америка, Азия….
-Мы живем в динамичную эпоху. Digital повсюду, ни один сектор не смог избежать его влияния… Индустрия, медиа, культура – все становится digital. Этот феномен воодушевляет новаторов и заставляет консерваторов терять почву под ногами.
-
-Digital, еще 15 лет назад практически отсутствующий в современном (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F42C887EE282C9E4EB22C2A67A743D737965949
 ```
 
 https://mybot314.ru/tekegram_catalog/

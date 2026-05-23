@@ -1,3 +1,82 @@
+###  Публикация: 1653935   (205952) от 19.08.2023
+
+Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel Next Door Spoils Me Rotten | Ангел по соседству меня балует [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Старшекласник Аманэ Фудзимия живёт в одном доме с первой красавицей своей школы, Махиру Сииной. Они почти не общались до тех пор, пока одним дождливым днём он не предложил Сиине свой зонтик. После этого она стала готовить, убирать и всячески заботиться о неряшливом Аманэ. Так начинается история их сближения и зарождающихся чувств.
+© crunchyrollПроизводство: студия Project No.9Жанр: романтика, повседневность, школаРежиссер: Имаидзуми КэнъитиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Сrunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94A0C7D10C46A0B36622480746AA13A02ABE4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567887   (205582) от 05.08.2022
+
+Techno Police 21C | Технополиция XXI века [1982, Movie] BDRip  HEVC 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в начале 21-го века, его главным героем является Кен, патрульный на мотоцикле на шоссе, предположительно, на Юго-западе США, которого призвали в полицию Сентинел-Сити где он, как ожидается, продержится всего шесть месяцев. Cводный отряд полицейских получает на вооружение роботов — своих двойников.Производство: Япония / Studio Nue, Dragon ProductionЖанр: приключения, фантастика, мехаРежиссер: Мацумото МасасиПеревод: Озвучено по переводу отЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый Любительский)Субтитры: ОтсутствуютПродолжительность: 78 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D03D439FF058EFAA9D960C7B7209DCC9C66A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567989   (205531) от 06.08.2022
+
+Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Старшекласснику Наоя признаётся в любви милая и дружелюбная девушка по имени Минасэ. Проблема заключается в том, что у него уже есть девушка! Но он отказывается так просто сдаваться. Теперь он вместе с Минасэ собирается убедить свою девушку Саки, чтобы он встречался с ними обеими одновременно… Согласится ли она?Производство: Tezuka ProductionsЖанр: комедия, повседневность, романтика, сёнэн, мультсериалРежиссер: Кувабара СатосиПеревод: официальный (crunchyroll)Язык озвучки: Русский, любительский многоголосыйСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0090461C51918B449DAF8B06706BE1D1B908AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565894   (205276) от 22.09.2022
 
 Улыбка Арснотории | Warau Arsnotoria Sun! | Smile of the Arsnotoria the Animation [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +85,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -89,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -118,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -145,7 +224,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -171,7 +250,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью (фи�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -197,7 +276,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -225,7 +304,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 из 10 +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -251,7 +330,7 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 из 12 + OV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -277,7 +356,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -329,7 +408,7 @@ Armitage III: Dual Matrix | Армитаж: Двойная матрица [2002,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -355,7 +434,7 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов [ТВ-1] [2013,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -381,7 +460,7 @@ Futoku no Guild | Immoral Guild | Развращённая гильдия [2022,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -407,7 +486,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -433,7 +512,7 @@ One Piece Film: Red | Ван-Пис: Фильм пятнадцатый [2022, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -459,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -489,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -516,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -543,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -569,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -596,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -607,88 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55D9CCE16106B4CF8F905231DC94CFD0BD65A32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624440   (200340) от 05.04.2023
-
-О моём перерождении в меч [ТВ-1] | Tensei Shitara Ken Deshita | Reincarnated as a Sword [2022, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой приходит в себя и с удивлением обнаруживает, что переродился в фантастическом мире, но не в обличии могучего война или волшебника, как это обычно бывает, а в виде меча, способного прокачиваться и изучать новые навыки. Поэтому он не стал отчаиваться и полетел рубить монстров направо и налево, мечтая оказаться в руках у какой-нибудь горячей эльфийской (   Читать дальше...   )Производство: Япония / Студия C2CЖанр: приключения, фэнтезиРежиссер: Исихира СиндзиЯзык озвучки: Русский многоголосый, закадровый, Японский
-- Crowley, Itashi, Silv, Zozya (AniLibria.TV)
-- Leo, Skyfinger, Abe, LucyNyuElf, Zariko (SHIZA Project)
-- Orru, Mirona, Jerwis, Berserk (Dream Cast)(   Читать дальше...   )Субтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV)
-- Оформление: ВВПупкинПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852A5BA6D694557BAECF96AE3370D8E30802951F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626071   (200045) от 12.04.2023
-
-Она видела небо / Sora no Aosa o Shiru Hito yo / Her Blue Sky [2019, Movie] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители Аои и Аканэ погибли 13 лет назад, и, чтобы заботиться о младшей сестре, Аканэ пришлось отказаться от планов переехать в Токио вместе со своим парнем Синносукэ. С тех пор Аои чувствует себя в долгу перед сестрой. Однажды известный исполнитель песен в жанре энка по имени Данкити приглашает Аои, только делающую первые шаги на музыкальном поприще, выступить (   Читать дальше...   )Производство: Япония / Her Blue Sky Production Committee, Aniplex, CloverWorksЖанр: аниме, мультфильм, мелодрама, фэнтези, музыкаРежиссер: Тацуюки Нагаи, Миюки КурокиАктеры: Рихо Ёсиока, Сион Вакаяма, Рё Ёсидзава, Ё Таити, Фукуси Отиаи, Кэн Мацудаира, Ацуми Танэдзаки, Акинори Эгоси, Тикахиро Кобаяси, Хироки МаэдаПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:50Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF4E3B9E9B7DFC3F223F9B244E41F5890DACB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626894   (199808) от 16.04.2023
-
-Каким-то образом я стал сильнейшим, прокачивая фермерские навыки | Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta [2022, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как же приятно пожинать плоды своих трудов, когда ты фермер! Эл Уэйн настолько проникся этим созидательным делом, что решил отточить свой навык на максимум и стать лучшим в мире. Но тех, кто ожидает, что это история про бескрайние поля да пестики с тычинками, ждёт сюрприз. Ведь, получив высший уровень, Эл внезапно понял, что его жизнь сделала крутой поворот совсем (   Читать дальше...   )Производство: студия Studio A-CATЖанр: приключения, комедия, романтика, фэнтезиРежиссер: Нагахама НорихикоЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0996C70E173334AD8D66FBBEB78DA12283C5A82
 ```
 
 https://mybot314.ru/tekegram_catalog/

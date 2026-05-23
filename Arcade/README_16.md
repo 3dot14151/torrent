@@ -1,3 +1,29 @@
+###  Публикация: 1286316   (712496) от 02.03.2019
+
+Fimbul (2019) [Ru/Multi] (1.0) License RELOADED
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Fimbul — это динамичные бои в викингском антураже, а также глубокий сюжет и холодный мир скандинавских саг, воплощенные во внутриигровых комиксах. Почувствуйте студеное дыхание Фимбулвинтера — зимы в канун Рагнарёка! В ваших руках — легкая в освоенииТип издания: LicenseРазработчик: ZaxisЖанр: Adventure, Quest, IndieЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9E67225524260E11CAB69829F2F66E10F5322F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130895   (712022) от 03.05.2017
 
 Gold Rush! 2 (2017) [En/De] (1.0) License PLAZA
@@ -6,7 +32,7 @@ Gold Rush! 2 (2017) [En/De] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Distrust (2017) [Ru/Multi] (1.1.4/Upd4) Repack Other s [Cruise Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Monster Slayers (2017) [En] (1.1.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ LEGO Marvel's Avengers / LEGO Marvel Мстители (2016) [Ru/Multi] (1.0.0.2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Impact Winter (2017) [Ru/Multi] (3.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +241,7 @@ Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +267,7 @@ The King of Fighters XIV (2017) [Multi] (1.19) License CODEX [Steam Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +293,7 @@ Trials of the Blood Dragon (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Ruin of the Reckless (2017) [En/Fr] (1.0.1b) License GOG [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Roguelands (2015) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +371,7 @@ Steampunk Tower 2 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +397,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2018) [Ru/Multi] (0.96) License PL
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +423,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License DEFA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +449,7 @@ War Truck Simulator (2016) [Ru/Multi] (1.20) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +475,7 @@ The Gift / Подарочек (2000) [Ru] (1.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +501,7 @@ Moccasin (2017) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +527,7 @@ The Swords of Ditto (2018) [Ru/Multi] (1.0.4.01-108) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +553,7 @@ World to the West (2017) [Multi] (1.0.1) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +579,7 @@ She Wants Me Dead (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +605,7 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +634,7 @@ Rayman Origins [Ru/En/Multi8] (RePack/1.0.32504) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -635,7 +661,7 @@ DRAGON BALL FighterZ (2018) [Ru/Multi] (1.14) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,32 +672,6 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4DE28662F0766EB2E654E6E3A89AC7A0EDF0A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028680   (688091) от 23.06.2016
-
-Mighty No. 9 (2016) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический японский сайд-скроллер! Полная трансформация! Mighty No. 9 — это японский двухмерный сайд-скроллер с лучшими элементами из 8- и 16-разрядных классических игр, которые вы знаете и так любите, преобразованными с помощью современных технологий, новых технических решений и пожеланий поклонников в нечто совершенно новое и потрясающее!Тип издания: LicenseРазработчик: Comcept , Inti CreatesЖанр: Arcade (Platform), 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Английский, Французский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15315BD8501FB9FF90353463C29F30EFCA4C9F34
 ```
 
 https://mybot314.ru/tekegram_catalog/

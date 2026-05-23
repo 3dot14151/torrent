@@ -1,3 +1,55 @@
+###  Публикация: 1596635   (7574) от 16.08.2025
+
+Odd Realm (2019) [En] (1.0.37.8) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Odd Realm – это игра, объединяющая как стратегию так и симулятор выживания. Игроку предстоит взять на себя роль лидера небольшого поселения и обеспечить жителей необходимыми ресурсами, домами, а также защитить своих подданных от кровожадных врагов и бесчестных бандитов с большой дороги. Вариативность развития сюжета предоставляет геймеру широкие возможности для строительства (   Читать дальше...   )Тип издания: LicenseРазработчик: Unknown Origin Games IncЖанр: Симулятор, Строительство, МенеджментЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC7454B4E5FD7F346DDBC9B5338881820F41DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775558   (7566) от 16.08.2025
+
+Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в Into the Emberlands - милую игру с элементами roguelite, где вам предстоит исследовать завораживающий мир, который заволокла таинственная миазма, и восстановить дом очаровательных нэков. Вы - избранный светоносец, и в вашем распоряжении фонарь с дарящим свет угольком. С его помощью вы можете путешествовать по окутанным миазмой землям. Возвращайте заблудившихся (   Читать дальше...   )Тип издания: LicenseРазработчик: Tiny RoarЖанр: Приключенческие игры, Казуальные игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07539FBC34427C392ABEC9D303E35BA002A688DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765669   (7564) от 16.08.2025
 
 Black Forest (2016) [Multi] (2.4) License GOG
@@ -6,7 +58,7 @@ Black Forest (2016) [Multi] (2.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Inkshade (2025) [En] (1.0.004) Repack AIexandro
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | P
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10837) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Dust Fleet (2023) [Multi] (6.4.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Foundation (2019) [Ru/Multi] (1.10.3.12/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Coral Island (2023) [Multi] (1.2-1238/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.2.0) Repack Let'sРlay [Supporter Bun
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Nordhold (2025) [Ru/Multi] (1.1.05/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.1.3/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (build 18840735) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Synergy (2024) [Ru/Multi] (2508200455) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612/dlc) Repack FitGirl [Premium
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Talisman: Digital 5th Edition (2024) [Ru/Multi] (Build 84407/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Kingdom's Deck (2025) [Ru/Multi] (1.1.3) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Totally Accurate Battle Simulator (2019) [Ru/Multi] (1.1.8.7/dlc) Repack Pioneer
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.5.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Oddsparks: An Automation Adventure (2024) [Multi] (s31271/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Prison Architect (2015) [Ru/Multi] (1.02 r11056/dlc) Repack Let'sРlay [Total Lo
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Coral Island (2023) [Multi] (1.2.1239/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Coral Island – классический симулятор фермы, пер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:374783385EE9A459099C1EB5AC18ABBC1B100593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258438   (4250) от 06.09.2025
-
-The Colonists (2018) [Ru/Multi] (1.9.17.1/dlc) License GOG
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4250.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Colonists - это игра о создании инопланетной колонии, вдохновленная сериями The Settlers и Anno. Вам предстоит управлять группой самовоспроизводящихся роботов, которые сбежали с Земли в поисках более дружелюбного места, где они наконец смогут почувствовать себя людьми. Вместе со своими подопечными вы пройдете три стадии развития колонии, создавая железнодорожные (   Читать дальше...   )Тип издания: LicenseРазработчик: CodebyfireЖанр: Симулятор, Строительство, МенеджментЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2BC9E068A2F51834973B05BC6A22E441700BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816860   (3956) от 07.09.2025
-
-SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) Repack Yaroslav98
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3956.jpg" />
-</div>
-
-
-###  Подробнее
-
-От одноклеточного организма до галактического божества - развивайте свое создание в вами созданной вселенной. Пройдите пять этапов эволюции Spore: Клетка, Существо, Племя, Цивилизация и Космос. Каждый этап обладает своим уникальным стилем, задачами и целями. Вы сами выбираете, как играть. Начните с одной клетки и доведите свое примитивное существо до уровня отважного (   Читать дальше...   )Тип издания: RepackРазработчик: MaxisЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538FD7E33BE7ABC0A64ECB7FBD4B366125F95E90
 ```
 
 https://mybot314.ru/tekegram_catalog/

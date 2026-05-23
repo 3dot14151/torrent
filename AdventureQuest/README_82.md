@@ -1,3 +1,107 @@
+###  Публикация: 1737176   (49903) от 16.07.2024
+
+KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+KAKU: Ancient Seal предлагает стать на место Каку, героя с непростой миссией - пройти через огромный и опасный континент и восстановить равновесие на земле. Вместе со своим верным питомцем - свиньей - вы сразитесь с могущественными повелителями стихий и исследуете подземные руины, наполненные древними механизмами и скрытыми секретами.Тип издания: RepackРазработчик: BINGOBELLЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111131ACE2477704C73B0060B5818E2A95116669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640417   (49888) от 16.07.2024
+
+Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Холст в ожидании последних штрихов. Исполнителя главной роли ждут на сцене. Роману не хватает лишь последней главы. Пришло время столкнуться со своими страхами в последний раз. Серия, оставившая глубокий след в жанре психологических хорроров от первого лица с упором на сюжет, вновь возвращается на экраны, чтобы рассказать заключительную леденящую кровь историю в (   Читать дальше...   )Тип издания: LicenseРазработчик: Anshar Studios, Bloober TeamЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4762B82EEE5070EE4DF22606D554433725A596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737220   (49865) от 16.07.2024
+
+Layers of Fear 2 (2019) [Ru/Multi] (1.00) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Layers of Fear 2 призвана продолжить традиции по вселению страха в головы игроков, заложенные в первой части. На этот раз декорации меняются. Если в предыдущей игре серии протагонистом был спятивший художник, жаждущий создать величайший шедевр, жертвуя при этом рассудком, то в центре внимания сиквела находится кинозвезда, играющая свою самую большую роль в произведении (   Читать дальше...   )Тип издания: LicenseРазработчик: Bloober TeamЖанр: Horror, Adventure, Puzzle, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E21F05B28350BF4E15B1BA4809176B871DA6290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737174   (49863) от 16.07.2024
+
+KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+KAKU: Ancient Seal предлагает стать на место Каку, героя с непростой миссией - пройти через огромный и опасный континент и восстановить равновесие на земле. Вместе со своим верным питомцем - свиньей - вы сразитесь с могущественными повелителями стихий и исследуете подземные руины, наполненные древними механизмами и скрытыми секретами.Тип издания: SceneРазработчик: BINGOBELLЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDAEDE317AFADA077A71685D8522F2006AC8EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737262   (49840) от 16.07.2024
 
 Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
@@ -6,7 +110,7 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Antichamber (2013) [Ru/En] (build 296940) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Under The Waves (2023) [Ru/Multi] (01.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Apollo Justice: Ace Attorney Trilogy (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Until Then (2024) [Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Ducky: The Brave (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Dawning Clocks of Time: Remake (2024) [En] (1.0.0.0701.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Longing (2020) [Ru/Multi] (1.8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4128250015C3F9D687A5FC518B9DD265E1F7C1EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739555   (48605) от 28.07.2024
-
-The Star Named EOS (2024) [Ru/Multi] (1.0.0_03) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48605.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Star Named EOS - не совсем обычная приключенческая игра. Здесь не нужно сражаться с драконами или пилотировать космические корабли. Вместо этого вы возьмете в руки фотоаппарат - казалось бы, обычный инструмент, превратившийся в ключ к разгадке семейной тайны. В этом повествовании вам предстоит сыграть роль человека, в прошлом которого не хватает частички. Вооружившись (   Читать дальше...   )Тип издания: RepackРазработчик: Silver Lining StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B91A9EFD4954053084821BAA0C5B79DEFA252A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739505   (48582) от 28.07.2024
-
-Undying (2021) [Ru/Multi] (1.0.2.41413/dlc) Repack FitGirl [Premium Edition - Series 1]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Застигнутая врасплох среди зомби-апокалипсиса и с осознанием того, что время истекает, Англинг ни перед чем не остановится, чтобы гарантировать безопасность своего сына, Коди. Переживая бесчисленные опасности, включая инфекцию зомби, начинающую овладевать ее телом, не говоря уже о том, чтобы учить Коди, как выжить в их жесткой новой реальности.Тип издания: RepackРазработчик: VanimalsЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Японский, Французский и другиеЯзык интерфейса: Русский, Английский, Японский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8B2E8B2985570ABF0905C45CD77F5A57542FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739489   (48558) от 28.07.2024
-
-Over Islands (2024) [Multi] (2.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Over Islands – помогите местным жителям мира, который состоит из разношерстных летающих островов. Соединяйте между собой острова и сойдитесь в эпическом противостоянии с безжалостными монстрами. Думаете сможете победить кровожадное зло? Сумасшедший экшен, управление городом, удивительные квесты и проработанная вселенная. Все это и немного больше вы найдете в нашей (   Читать дальше...   )Тип издания: RepackРазработчик: Aridide ProductionЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EE24BCD02E4C4EFB102096A17EA56A9B079FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668839   (48524) от 29.07.2024
-
-Monolith (2023) [Multi] (1.1.7) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-фантастическое приключение молодой и отважной космической исследовательницы по имени Тесса Картер. Представьте себе, что вы открываете глаза и обнаруживаете себя на незнакомой планете, после крушения вашего космического корабля. Ваша память о том, что произошло и как вы оказались здесь, подводит вас, и теперь только вы сможете разгадать эту загадку. Вас сопровождает (   Читать дальше...   )Тип издания: LicenseРазработчик: Animation ArtsЖанр: Приключение, Квест, МистикаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD223C4EE7E9BC9759BD404BB074922C364EBF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

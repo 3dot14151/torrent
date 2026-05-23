@@ -1,3 +1,82 @@
+###  Публикация: 670445   (712643) от 20.06.2013
+
+Супермен: Непобежденный / Superman: Unbound (2013) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+К городу приближается несокрушимый андроид. К Земле приближается огненный шар. Бесстрашная красавица-журналистка приближается к своей цели — сделать об этом репортаж.
+ Это самый обычный день для Человека из стали, только на этот раз плечом к плечу с ним сражается его двоюродная сестра, Супердевушка. Приключения начинаются, когда Супермен узнаёт о том, что силы безжалостного (   Читать дальше...   )Жанр: мультфильм, боевик, приключенияРежиссер: Джеймс ТакерПерсонажи: Мэтт Бомер, Стана Катич, Джон Ноубл, Молли С. Куинн, Дидрих Бадер, Джейсон Бех, Фрэнсис Конрой, Йен Джеймс Корлетт, Мелисса Дисней, Александр ГоулдПеревод: Дублированный (лицензия)Язык субтитров: русские, английскиеПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625A0F863DA59046C14BBB07A26A5D57416138BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130796   (712274) от 03.05.2017
+
+Кубо. Легенда о самурае / Kubo and the Two Strings (2016) Blu-ray [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кубо — наследник великого рода, но когда возвратились духи прошлого, жаждущие мести, на его защиту отважилась встать лишь странная парочка хранителей. И теперь для Кубо единственный шанс на спасение — найти магические доспехи отца, легендарного самурая.Производство: США / Focus Features, Laika EntertainmentЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Трэвис НайтПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские, английские, испанские, португальскиеПродолжительность: 01:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4E697B8226DDCC4945E52F5AF978505BE15A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130885   (712103) от 03.05.2017
+
+Кубо. Легенда о самурае / Kubo and the Two Strings (2016) BDRip H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кубо — наследник великого рода, но когда возвратились духи прошлого, жаждущие мести, на его защиту отважилась встать лишь странная парочка хранителей. И теперь для Кубо единственный шанс на спасение — найти магические доспехи отца, легендарного самурая.Производство: СШАЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Трэвис НайтПерсонажи: Арт Паркинсон, Шарлиз Терон, Рэйф Файнс, Джордж Такей, Кэри-Хироюки Тагава, Бренда Ваккаро, Руни Мара, Мэттью МакКонахи, Мейрик Мерфи, Мина НодзиПеревод: Дублированный (Лицензия)Субтитры: Русские, английскиеПродолжительность: 01:41:36Реклама: отсутствует.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3516AAB64EC41EDDCABD694E5F79B55D279599C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791788   (711596) от 01.06.2014
 
 Война миров: Голиаф / War of the Worlds: Goliath (2012) BDRip [H.264/720p-LQ] [VO]
@@ -6,7 +85,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +165,7 @@ LEGO Супергерои DC: Флэш / Lego DC Comics Super Heroes: The Flash 
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_707483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA87E71B68A36927D0075A0AD410F2DE44966E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533848   (700976) от 26.02.2022
-
-Бешеные кролики. Вторжение на Марс / Rabbids Invasion: Mission to Mars (2022) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они могли бы отправить роботов… Но зачем, если есть Бешеные кролики? Вливайтесь в безбашенный экипаж — и вперед, на марсианскую миссию, где всё идет наперекосяк.Производство: США / Ubisoft Film & Television ProductionЖанр: мультфильм, комедия, семейныйРежиссер: Франц КиршнерПеревод: Дублированный (студия SDI)Субтитры: русские (forced, full), английские (full)Продолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962A63DFD1524D3DC11E21E9FAF2BC1790319B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144744   (700047) от 21.04.2018
-
-Рок Дог / Rock Dog (2016) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте, новый герой отправляется покорять город зверей! Он — пёс Боуди, и он не унывает, несмотря ни на что. Ему на роду написано сторожить родную деревню от волков, а он мечтает стать учеником живой рок-легенды, кота по имени Энгус. Однако у Энгуса совсем другие планы, да и волки подстерегают за каждым углом. Но если не вешать хвост, то всё в твоих лапах!Производство: Китай, США | Dream Factory Group, Eracme Entertainment, Huayi Tencent Entertainment CompanyЖанр: Мультфильм, комедия, приключения, семейный, музыкальный, полнометражныйРежиссер: Эш БраннонПерсонажи: Люк Уилсон, Эдди Иззард, Дж.К. Симмонс, Льюис Блэк, Кенан Томпсон, Мэй Уитман, Хорхе Гарсиа, Мэтт Диллон, Сэм Эллиотт, Уилл ФиннПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A03CE93FA6601E8C107EF141AD76A79FC17014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026813   (699600) от 17.06.2016
-
-Сезон охоты 4: Страшно глупо / Open Season: Scared Silly (2015) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элиот, Буг и вся их лесная братва попадают в совершенно новое и очень-очень смешное приключение.Производство: США, Sony Pictures AnimationЖанр: МультфильмРежиссер: Дэвид ФейссАктеры: Кэтлин Барр, Гари Чок, Тревор Дивэлл, Донни Джеймс Лукас, Мелисса Штурм, Мэттью В. ТейлорПеревод: Дублированный (iTunes)Продолжительность: 01:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FEA573BE5F48034C426A09B1B18D4C89C53A50
 ```
 
 https://mybot314.ru/tekegram_catalog/

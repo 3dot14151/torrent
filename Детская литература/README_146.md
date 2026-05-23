@@ -1,108 +1,3 @@
-###  Публикация: 729758   (309660) от 02.12.2013
-
-Елена Ильина | Пушистый гость (1959) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_309660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Послевоенный вариант новогодних приключений в детском саду, сильно отличающийся от текста первого издания.Формат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729678   (309638) от 02.12.2013
-
-А. Кумма | Вторая тайна золотого ключика (1988) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дети растут и вырастают, а Деревянный Человечек по имени Буратино, который в огне не горит и в воде не тонет, продолжает свой бег в поисках золотого ключика. Он такой же веселый и озорной.
-Через сорок лет после выхода книги А. Н. Толстого "Золотой ключик" она все так же манила к себе. Дети мечтали о новых приключениях Буратино и его друзей, о радости нового (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3297CAA0765020FA2DEB393706D30A5FD127ECD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729303   (309499) от 02.12.2013
-
-Константин Паустовский | Квакша (1987) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309499.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли три рассказа: Барсучий нос, Заячьи лапы и Квакша. Рассказы о животных и природе среднерусской полосы. Они учат любить все живое, быть наблюдательным, добрым, отзывчивым.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF738DB235BB06FEC31DFA8E91A844D824245965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729315   (309497) от 02.12.2013
-
-А. Барто | Младший брат (1968) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи для детей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD23BAFB03123BF07EB3D0E28C548AD845F780A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 729331   (309494) от 02.12.2013
 
 Михаил Булатов | Солнце, Месяц и Ворон Воронович (1977) [PDF]
@@ -111,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -358,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -674,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,6 +580,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0127ED764FA4E6478B9ECFF8E39B8508F8F16795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730060   (307480) от 03.12.2013
+
+Жаклин Уилсон | Вечеринка с ночевкой (2006) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В свой день рождения Эйми пригласила нас на вечеринку с ночёвкой! Мы танцевали как настоящие поп - звёзды, примеряли наряды и соревновались, у кого в рот поместится больше чипсов. На дне рождения Беллы мы плавали в бассейне, а у Эмили Играли в футбол! Хлоя приготовила разноцветные конвертики с приглашениями на свою вечеринку... для всех, кроме меня. Всё равно ей пришлось меня позвать, но лучше бы я туда не ходила.
+Скоро и мой день рождения. Мне тоже хочется устроить вечеринку с ночёвкой. Но я боюсь приглашать подруг к нам домой - ведь моя сестра Лили не такая, как все...Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD709212730B3A499698EE9262DD634D7965EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730032   (307464) от 03.12.2013
+
+В. А. Солоухин | Ножичек с костяной ручкой (1985) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассказы о детстве мальчика, проведённом в деревне, о друзьях и сверстниках героя, об их близости к природе и крестьянскому труду, о разных случаях из жизни ребят.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE44451C3229740DA5D46E5085FB09D2F43F8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730051   (307315) от 03.12.2013
+
+П.А. Кропоткин | Петропавловская крепость. Побег (1983)] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мы предлагаем вам, ребята, книгу о мужественном поступке замечательного русского революционера Петра Алексеевича Кропоткина, о его побеге из царской тюрьмы в Петербурге.
+П.А. Кропоткин сам рассказал об этом в своей интереснейшей книге «Записки революционера».
+Когда вы станете старше, вы сможете прочесть её целиком. А пока что прочтите рассказ о побеге. Он вам, конечно, понравится.
+
+Для младшего школьного возрастаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA35CCB6EBBAC54401873826B01075D3A93BC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729970   (307312) от 03.12.2013
+
+В. Дитякин | Леонардо да Винчи (1959) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о замечательной жизни гениального итальянского художника и ученого Леонардо да Винчи (1452 — 1519). Леонардо да Винчи жил и творил в эпоху итальянского Возрождения, о которой Фридрих Энгельс писал: «Это был величайший прогрессивный переворот из всех пережитых до того времени человечеством, эпоха, которая нуждалась в титанах и которая породила титанов по силе мысли, страсти и характеру, по многосторонности и учености». Таким титаном эпохи Возрождения и был Леонардо да Винчи. Он вошел в историю человечества не только как художник и ученый, но и как инженер, строитель, писатель и архитектор. Юный читатель с интересом прочитает эту книгу о гениальном художнике и ученом Леонардо да Винчи.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA21FED7265CFE2B26BD17A10808BA69BBABD24
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1677377   (33945) от 17.12.2024
+
+Миссия невыполнима / Mission Impossible (1996 - 2023) BDRemux [H.264/1080p] [Коллекция]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Миссия невыполнима» — серия фильмов-боевиков, состоящая из шести частей, выпущенных с 1996 по 2018 год и основанная на одноимённом телесериале. В центре сюжета — история агента Итана Ханта, которого на протяжении всех фильмов играет Том Круз. Формально фильмы основаны на двух старых телесериалах «Миссия невыполнима» (1966—1973, 1988—1990). В них небольшая команда (   Читать дальше...   )Производство: США, Германия, Китай, Италия, Франция, Норвегия, Великобритания, ОАЭ, Чехия, Россия, Индия, Канада / Paramount Pictures, Cruise/Wagner ProductionsЖанр: боевик, триллер, приключенияРежиссер: Брайан Де Пальма, Джон Ву, Джей Джей Абрамс, Брэд Бёрд, Кристофер МакКуорриАктеры: Том Круз, Джон Войт, Эммануэль Беар, Генри Черни, Жан Рено, Винг Реймз, Кристин Скотт Томас, Ванесса Редгрейв, Ингеборга Дапкунайте, Эмилио Эстевес, Хейли Этвелл, Ребекка Фергюсон, Пом Клементьефф, Ванесса Кирби, Саймон Пегг, Кэри Элвес, Ши Уигхэм, Индира Варма, Марк ГэтиссПеревод: дублированный, многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:13 / 02:03:35 / 02:05:25 / 02:12:56 / 02:11:34 / 02:27:25 / 02:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A587A4AE2C5B3BBBF060AA77F46294F6C6E5D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702797   (33939) от 17.12.2024
+
+Джеймс Бонд. Агент 007 / James Bond (1962-2021) BDRip [H.265/1080p] [10-bit] [Коллекция]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Бонд, коммандер ВМФ Великобритании, также известный как «агент 007» - главный персонаж романов британского писателя Яна Флеминга о вымышленном агенте MI6. Получил широкую популярность после начала экранизации романов Флеминга. Серия фильмов о Джеймсе Бонде именуется «бондианой» и является одной из самых продолжительных серий фильмов в истории. С 1962 по 2012 (   Читать дальше...   )Производство: США, Великобритания, Таиланд, Франция, Германия (ФРГ), Мексика, Чехия, Багамы / United Artists, Columbia Pictures Corporation, Famous Artists Productions, MGM/UA Entertainment Co., MGM/UA Distribution Co., Metro-Goldwyn-Mayer, 20th Century Fox, EON Productions, B25, Cinesite, Danjaq, Universal PicturesЖанр: боевик, триллер, приключенияРежиссер: Вэл Гест, Гай Хэмилтон, Джон Глен, Ирвин Кершнер, Ли Тамахори, Льюис Гилберт, Майкл Аптед, Марк Форстер, Мартин Кэмпбелл, Питер Р. Хант, Роджер Споттисвуд, Сэм Мендес, Теренс Янг, Кэри Дзёдзи ФукунагаАктеры: Шон Коннери, Джордж Лэзенби, Питер Селлерс, Роджер Мур, Тимоти Далтон, Пирс Броснан, Дэниэл КрэйгПеревод: дублированный, многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:49:50 / 01:55:12 / 01:50:01 / 02:10:23 / 01:56:58 / 02:11:08 / 02:22:18 / 02:00:08 / 02:01:38 / 02:05:13 / 02:05:40 / 02:06:28 / 02:07:59 / 02:10:48 / 02:14:05 / 02:11:18 / 02:10:53 / 02:13:20 / 02:10:00 / 01:59:20 / 02:08:20 / 02:12:34 / 02:24:33 / 01:46:14 / 02:23:09 / 02:28:06 / 02:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F16C6A5DC12EB62C9889D38C1B86AFD05075C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700702   (33642) от 20.12.2024
 
 Дэдпул / Deadpool (2016 - 2024) BDRemux [H.264/1080p] [Трилогия]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBC49027EB0E4D1060A15399D9AFB3D3494C8296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919087   (20225) от 26.04.2025
-
-Машина времени в джакузи: Дилогия / Hot Tub Time Machine: Dilogy (2010, 2015) BDRip [H.264] [Theatrical cut]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Лу попадает в беду, Ник и Джейкоб решают воспользоваться машиной времени в джакузи, чтобы вернуться в прошлое, но неожиданно оказываются в будущем с Адамом младшим. Теперь им придется изменить будущее, чтобы исправить события в прошлом.Производство: США / Metro-Goldwyn-Mayer (MGM), Paramount PicturesЖанр: фантастика, комедияРежиссер: Стив ПинкАктеры: Роб Кордри, Крэйг Робинсон, Кларк Дьюк, Адам Скотт, Гиллиан Джейкобс, Чеви Чейз, Коллетт Вульф, Бьянка Хаазе, Джейсон Джонс, Кумэйл НанджианиПеревод: Дублированный (Лицензия R5)Язык субтитров: Английский (Full + SDH)Качество: BDRipПродолжительность: 01:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8834D26DF0AA9F40D41E9426BBC1369DD511671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620016   (20137) от 27.04.2025
-
-Титаны - Дилогия: Битва Титанов / Clash of the Titans (2010), Гнев Титанов / Wrath of the Titans (2012) BDRemux [H.264/1080p]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя десятилетие после героической победы над чудовищным Кракеном Персей пытается жить спокойной жизнью деревенского рыбака и отца-одиночки. В то же время между титанами и богами начинается борьба за власть. Олимпийцы, утратившие былую преданность людей, теряют контроль над тюрьмой, в которой заключены титаны и их глава Кронос. Сила титанов растет, в то время как (   Читать дальше...   )Производство: Legendary Pictures / Warner Bros. PicturesЖанр: Фэнтези, боевик, приключенияРежиссер: Джонатан ЛибесманАктеры: Сэм Уортингтон, Лиам Нисон, Рэйф Файнс, Эдгар Рамирез, Тоби Кеббелл, Розамунд Пайк, Билл Найи, Дэнни Хьюстон, Джон Белл, Лили ДжеймсПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (BD, Е. Воронин), английский (полные, SDH)Продолжительность: 01:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA117D269128CD6D29BCB1359B1AF437CF2621C
 ```
 
 https://mybot314.ru/tekegram_catalog/

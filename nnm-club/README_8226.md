@@ -1,25 +1,22 @@
-###  Публикация: 1526322   (738514) от 24.01.2022
+###  Публикация: 841342   (741396) от 22.04.2015
 
-Bart&Baker - More Electro Swing Stories (2016) [AAC|~316 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+Far Cry 4 (2014) [Ru] (1.10.0/dlc) SteamRip Let'sPlay [Gold Edition]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>3
+>>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Bart&Baker, George Bangable, Sax By C. Sharp - Der Tag (Extra Medium Remix) (4:10)
-02. Bart&Baker, Marcella Puppini - Stop Googling Me! (Bost & Bim Dub Remix) (4:00)
-03. Bart&Baker, David Costa Coehlo - Just Click (Dr Cat Remix) (3:23)
-04. Bart&Baker, Carole Gireaud - Danke Schoen (La Comtesse Remix) (4:30)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:08:33
+Действие игры происходит в Кирате — стране с богатыми традициями. Это маленькое государство затерялось среди вершин Гималаев и ему угрожает деспотичный правитель. В роли главного героя — Аджая Гейла — вы, исполняя последнее желание матери, отправляетесь в эту страну. Забытый богом уголок мира одновременно и прекрасен, и опасен. Исследуя местность, покрытую диким (   Читать дальше...   )Тип издания: SteamRipРазработчик: Ubisoft Montral, Ubisoft Shanghai и Red Storm EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B33107D0E4920CBE911164896975F6B672104C1
+magnet:?xt=urn:btih:0E398CBD39AD893C9A9608883E1B63C4A3121B4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526476   (738513) от 24.01.2022
+###  Публикация: 666197   (741391) от 08.06.2013
 
-Mirror for Toshiba TV 1.1.3 [En]
+Супермен: Непобежденный / Superman: Unbound (2013) BDRemux [1080p]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Отображение экрана для телевизоров Toshiba. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Toshiba. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ Toshiba с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+К городу приближается несокрушимый андроид. К Земле приближается огненный шар. Бесстрашная красавица-журналистка приближается к своей цели —
+сделать об этом репортаж.
+Это самый обычный день для Человека из стали, только на этот раз плечом к плечу с ним сражается его двоюродная сестра, Супердевушка.
+Приключения начинаются, когда Супермен узнаёт о том, что силы безжалостного (   Читать дальше...   )Жанр: мультфильм, боевик, приключенияРежиссер: Джеймс ТакерПеревод: Многоголосый закадровый (любительский)Язык субтитров: Русский, АнглийскийПродолжительность: 01:15:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CD21B1D8236F6A2B1E795AFC2494C83DF0E3C8F
+magnet:?xt=urn:btih:52F3489EB574C25784D911CF1F39D9A711224F71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,26 +53,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526395   (738512) от 24.01.2022
+###  Публикация: 666045   (741380) от 08.06.2013
 
-GoodTask 6.9.3 [Multi/Ru]
+Разработчики до неузнаваемости изменили дизайн будущей Firefox 25
 
->>Архив торрентов
->>Архив 4Apple
+>>След.
+>>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
-GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 haha interactiveПоддерживаемая ОС: OS X 10.13+Язык интерфейса: Русский, Английский, Немецкий и другие
+Разработчики компании Mozilla решили кардинально изменить внешний вид Firefox 25 релиз которого намечен на октябрь текущего года.В подтверждение своих намерений, сотрудники Mozilla создали специальную страницу в интернете, на которой проводится обсуждение проекта под назанием Australis.
+(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:591F69BB25792748AAC84B2202763E849F17458E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,579 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526331   (738511) от 24.01.2022
+###  Публикация: 1397301   (741375) от 19.07.2020
 
-Swing Republic - Electro Swing Republic (2011) [AAC|~309 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Downbeat (3:36)
-02. Peas and Rice (3:16)
-03. Scrub Me Mama with a Boogie Beat (3:24)
-04. Any Old Thing (4:33)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475A9C98571E25E74D9FC3A83CF1FB6A3A4AFE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526425   (738510) от 24.01.2022
-
-XCOrganizer 1.2.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738510.jpg" />
-</div>
-
-
-###  Подробнее
-
-XCOrganizer - это инструмент, который позволяет легко найти любой проект на диске. Просматривайте проекты Xcode, рабочие области Xcode, игровые площадки Swift и пакеты Swift, сгруппированные по типам. Назначьте теги в зависимости от целей проекта. Добавляйте все, над чем вы работаете, в избранное.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 Sergii KryvoblotskyiПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34EC766447225BB896EEA7ADD85B6CA29A8EF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526327   (738509) от 24.01.2022
-
-Lamuzgueule - Iceberg Club (2021) [AAC|~326 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stracciatella (Intro) (0:32)
-02. Ice Cream (3:28)
-03. Triple Lutz (3:50)
-04. Marshmallow (3:51)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBE878C7013B12825D2753AE4155FEC38981A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526362   (738508) от 24.01.2022
-
-VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 2 (2015) [AAC|~332 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swingrowers - That's Right! (Jamie Berry Remix) (3:40)
-02. Swing Republic - No No No (2:21)
-03. Jem Stone - Be-Bop 2 Hip-Hop (4:53)
-04. JFB, Beardyman - Swing Ya Beard (4:32)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4168DE88A6F2A3D4B1D8AB3A12644C676AF6EAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526404   (738507) от 24.01.2022
-
-Money Pro - Personal Finance 2.7.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2015-2019 iBear LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522A525D9095BA72C8CD3CE987AE315A6476A570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526334   (738506) от 24.01.2022
-
-Swing Republic - Mo' Electro Swing Republic - Let's Misbehave (Deluxe Version) (2015) [AAC|~332 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing Republic, Dolly Dawn & Her Dawn Patrol - How'd Ja Like to Love Me? (3:41)
-02. Swing Republic, Duke Ellington, Ivie Anderson - Truckin' (4:08)
-03. Swing Republic, Karina Kappel - Sing It Back (3:32)
-04. Swing Republic, Benny Goodman, Jimmy Rushing - He Ain't Got Rhythm (4:14)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7AFA72F7C2500B833C790C9F4A1559DCB42274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526412   (738505) от 24.01.2022
-
-SyncBird Pro 3.6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738505.jpg" />
-</div>
-
-
-###  Подробнее
-
-SyncBird Pro - это файловый менеджер iPhone, который обеспечивает синхронизацию iOS и чистку iTunes. Передавайте музыку, плейлисты, фотографии, видео, книги - все, между вашим iPhone, iPad, iPod и Mac без использования iTunes. Эксклюзивные функции SyncBird под названием PhoneCare и TunesClean созданы для того, чтобы освободить больше свободного места на вашем iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC562EC2CF7DA8D4A7C1149C4EE61EA738799668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526360   (738504) от 24.01.2022
-
-VA - Sidewalk Bistro, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naoki Kenji - Destination Earth (4:27)
-02. The Sushi Club - Hypnosia (7:13)
-03. Castlebed - Gravity (3:29)
-04. Gerrit van der Meer - Freudenberg (Springtime Edit) (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B882254B777AD5E2191F03395DDFD76A44B2575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526462   (738503) от 24.01.2022
-
-Valentina Studio Pro 11.5.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9B38C517ABBD38AB0A37B385A6A6029CF662B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526364   (738502) от 24.01.2022
-
-VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 1 (2015) [AAC|~313 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing Republic - Crazy in Love (Radio Edit) (3:55)
-02. Nick Hollywood - Deep Henderson (3:41)
-03. The Correspondents - Washington Square (3:34)
-04. JFB - Wobble and Squeak (4:14)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4EE4C5908535B669175655B3CBD509960E9438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526457   (738501) от 24.01.2022
-
-Viper FTP 6.1.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-клиент для macOS, с поддержкой популярных протоколов - FTP, SFTP, WebDAV и Amazon S3, который позволяет легко получить доступ к различным удаленным серверам для управления, получения/передачи файлов.
-Контекстное меню Viper FTP обеспечивает доступ к многочисленным инструментам и функциям, которые позволяют открыть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C2BD61ECB59CAA7CC0E1579BAA35207E76B6B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526418   (738500) от 24.01.2022
-
-Omni Toolbox 1.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Omni Toolbox - это обширный набор инструментов для создания графических отчетов об оборудовании iPhone, проверки аккумулятора iPhone, загрузки видеороликов TikTok, создания рингтонов и исправления общих сбоев программного обеспечения iOS.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD860C065BCBAB0101EA4514086748B8E235F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526460   (738499) от 24.01.2022
-
-Battery Indicator for Mac 2.12.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2022 Sindre SorhusПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE6EA1E68ADF0D20585087A0E19AD4DE6A0655C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526458   (738498) от 24.01.2022
-
-Things 3 v3.15.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2007-2022 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D721AAAD4A42B7DCD462C88054DC5B3F8CE3E15C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526496   (738497) от 24.01.2022
-
-AYVY 1.19.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738497.jpg" />
-</div>
-
-
-###  Подробнее
-
-С AYVY вы, наконец, можете прекратить поиски красивой, простой, быстрой и удобной программы просмотра мультимедиа. Мы сделали все, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2020-2021 Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397A3E4A3A36E05562B6560ACFD60A909FB12D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526480   (738496) от 24.01.2022
-
-Paw (HTTP & REST Client) 3.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый продвинутый инструмент API для Mac. Paw является полнофункциональным HTTP-клиентом, который позволяет тестировать API.
-Здесь вы можете с лёгкостью формировать запросы (начиная от HTTP-заголовков, заканчивая телом POST и данными авторизации), тут же проверять их на наличие ошибок (например, отсутствие необходимых полей OAuth или неверный Content-Type), затем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.01.2022Разработчик: © 2022 Paw Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCFB815C6EEC99B237503EBF3A5E37293D42583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526433   (738495) от 24.01.2022
-
-Between the Buried and Me - Automata I,II (2018) 2xCD, EP [FLAC|Lossless|tracks + .cue] <Progressive Metal, Avant-Garde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738495.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - 2018 Automata I EP:
-01. Condemned to the Gallows (06:35)
-02. House Organ (03:41)
-03. Yellow Eyes (08:45)(   Читать дальше...   )Жанр: Progressive Metal, Avant-Garde MetalПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50B592E1DE4E16DFD60A2B0722949C6D33D9B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526326   (738494) от 24.01.2022
-
-Lamuzgueule - Electro Swing Best of, Pt. 2 (2021) [AAC|~330 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gangsta's Paradise (3:49)
-02. Lamuzgueule, Bart&Baker - Bada Boum (2:38)
-03. Alors on Danse (2:35)
-04. Zoologic (4:02)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B6C4916D99B6291DE59FDBFE1339EE9F23B89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526560   (738493) от 24.01.2022
-
-Ecliptic Sunset - Sinister Temperance (2015) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spell of Thoth (02:16)
-02. Hatefully Concealed(04:20)
-03. I, the Unseen (03:44)
-04. The Lycanthrope's Dream (03:09)(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A0E95AD24F9029D1F55839C34AA0BEA5090AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526555   (738492) от 24.01.2022
-
-Amadeus Pro 2.8.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2021 HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4120C32E892CE3511124FB2DF68E0EE1397800E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526385   (738491) от 24.01.2022
-
-Stanley Cowell Trio - Dancers In Love (2000) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+Rova Saxophone Quartet - In Transverse Time (2018) Les Disques Victo [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. A Whole New World [7:53]
-02. Ole Texas [5:24]
-03. Charleston Rag [4:30]
-04. I Never Dreamed [6:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:26
+01. Oxygen [7:43]
+02. The Dark Forest Suite: Introduction [1:29]
+03. The Dark Forest Suite: Song 1 [2:37]
+04. The Dark Forest Suite: Song 2 [3:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:56:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F670BF910D2EF81DA6775425F7E5BED988F34D78
+magnet:?xt=urn:btih:04E7C74FED8F5B383A744C1D6316A02B6363E4BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,28 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526407   (738490) от 24.01.2022
+###  Публикация: 1397240   (741374) от 19.07.2020
 
-Feedback Force - Break the Automation (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+Morta Skuld - Wounds Deeper Than Time (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Beast (4:42)
- 02. Pitch Black (3:51)
- 03. Mindless Enemy (4:16)
- 04. Silver Eyes (4:22)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:43:52
+01. Breathe In The Black (05:04)
+02. Hating Life (03:52)
+03. My Weakness (04:03)
+04. Against The Origin (04:08)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:484A676DCAB8BF27FD41B3B6A86BE7A9FE25A1EA
+magnet:?xt=urn:btih:B0961BF59D60EBD00E421BF81866CC8F8D93FED5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,28 +138,590 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526503   (738489) от 24.01.2022
+###  Публикация: 1397267   (741373) от 19.07.2020
 
-Sam Martin - Blue Tuesday (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+Мэри Стюарт | Мэри и ведьмин цветок (2018) [MP3]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. It Was Always You (4:00)
- 02. All My Tears (2:41)
- 03. I Still Haven't Found What I'm Looking For (3:39)
- 04. A Day In The Life (3:58)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:17:05
+Непоседе Мэри кажется, что каникулы у двоюродной бабушки в деревне тянутся целую вечность... ну, ровным счетом ничего не происходит!
+Но вот она встречает маленького черного кота, который приводит ее в лес - к тому месту, где растет очень красивый, никогда не виданный раньше цветок... и приключения начинаются...Жанр: СказкаПеревод: Марина КлеветенкоПродолжительность: 03:46:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94058FC10A61408234BCC418CC679E2DB2A22A98
+magnet:?xt=urn:btih:39DEFDD6893F5195D2FEE6A29CD6D806478817B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397169   (741372) от 19.07.2020
+
+Omminous - Immensity (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Behind All the Consent (04:57)
+ 02. Vile Maxim (05:34)
+ 03. Prisoner of a Present Time (04:47)
+ 04. Black Sun (07:42)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8709A5E923E9BDA5BD1C26C1A2FD0C8D23605B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397272   (741371) от 19.07.2020
+
+Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep House, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Australiana (07:50)
+ 02. Zamia Trail (06:02)
+ 03. Morning Breeze (07:16)
+ 04. Eucalyptus (08:36)(   Читать дальше...   )Жанр: Ambient, Deep House, Dub TechnoПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90220EFAA5E8E1F57B0380D304B640AADC6ACC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397201   (741370) от 19.07.2020
+
+Футбол. Примера Дивизион (Ла Лига). Чемпионат Испании 2019-2020. 34-й тур. Атлетико — Мальорка (2020) HDTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Примера Дивизион (Ла Лига). Чемпионат Испании по футболу 2019-2020. 34-й тур
+03 июля 2020, пятница. 23:00 МСК
+Атлетико (Мадрид) — Мальорка (Пальма-де-Мальорка)
+Стадион: Ванда Метрополитано (Мадрид, Испания), вместимость: 68000(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55F3714C307897C4B855E1213B51BD95E1BE59A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397250   (741369) от 19.07.2020
+
+Mean Streak - Eye of the Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Last Nail in the Coffin [4:02]
+ 2. From the Cradle to Grave [4:41]
+ 3. Heavy Metal Rampage [4:35]
+ 4. Sacred Ground [5:05](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E33C663BBD4C237460E0B91FCE1093E582A0FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397204   (741368) от 19.07.2020
+
+Футбол. Примера Дивизион (Ла Лига). Чемпионат Испании 2019-2020. 34-й тур. Гранада — Валенсия (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Примера Дивизион (Ла Лига). Чемпионат Испании по футболу 2019-2020. 34-й тур
+Гранада (Гранада) — Валенсия (Валенсия)
+Стадион: Лос-Карменес (Гранада, Испания), вместимость: 23014.
+Главный судья: Адриан Кордеро Вега (Испания);(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397024   (741367) от 19.07.2020
+
+VA - German Top 100 Single Charts 17.07.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Apache 207 - Bläulich
+02. Kontra K - Tiefschwarz (feat. Samra)
+03. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat)
+04. KC Rebell, Summer Cem, Loredana - GEH DEIN WEG (feat. Loredana)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568FB144F98B49B3CDB987FB4BA532D2DC5CE155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397031   (741366) от 19.07.2020
+
+VA - The Official UK Top 40 Singles Chart 17.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat) 2:51
+02. Dababy - Rockstar (Feat. Roddy Ricch) 3:02
+03. Joel Corry, Mnek - Head & Heart 2:46
+04. Lady Gaga & Ariana Grande - Rain On Me 3:02(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2520CF7382FA315A157DB76E7111B1258863832B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397260   (741365) от 19.07.2020
+
+Юрий Кудинов - Клоун Плюх и друзья (2018) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Клоун Плюх - Двери в сказку
+02. Юрий Кудинов - Осень-позолота
+03. Катя Шитова и Клоун Плюх - Смешной котёнок
+04. Клоун Плюх - Лошадь(   Читать дальше...   )Жанр: Детские песниПродолжительность: 02:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D60644027D2A30F6D131C7CEB8C386C6572591B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397304   (741364) от 19.07.2020
+
+DJ Krush - Trickster (2020) [FLAC|Lossless|Web-DL|tracks] <Trip Hop, Abstract Hop, Breakbeat>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Incarnation (2:56)
+02. Doomsayer (3:44)
+03. Onomatop (3:54)
+04. Regeneration (4:04)(   Читать дальше...   )Производство: Es.U.Es Corporation – Es81-2020BЖанр: Trip Hop, Abstract Hop, Breakbeat, Hip-Hop, InstrumentalПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397195   (741363) от 19.07.2020
+
+Лиса, заяц и петух (1942) TVRip [H.264] [hand made colored]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация известной русской сказки. Встречая зиму Заяц строит для себя добротный дом. Лиса же сооружает дом изо льда. Весной лисий дом тает. Выгнав Зайца Лиса поселяется у него дома. На помощь Зайцу приходит Петух. Увидев Петуха, Лиса бросается прочь, а Заяц вновь поселяется в своём доме.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, Детский, СказкаРежиссер: Ольга ХодатаеваСубтитры: отсутствуютПродолжительность: 00:10:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397311   (741362) от 19.07.2020
+
+VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hush - Good Vibrations (3:25)
+02. Orlando - Singing In The Rain (4:06)
+03. Heartclub - Super Trouper (3:53)
+04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397206   (741361) от 19.07.2020
+
+Джио Сара | Утреннее сияние (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Печальные события в жизни Ады Санторини вынуждают ее уехать на другой конец страны и поселиться в очаровательном плавучем домике на Лодочной улице. Жизнь на озере кажется настоящим приключением, а соседи становятся близкими друзьями. Но однажды Ада находит на чердаке сундук, в котором покоятся свадебное платье, записная книжка и несколько фотографий. Ада рассказывает (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 09:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAB173801B3BD98BA0D616DB2FC096AC10BCF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397149   (741360) от 19.07.2020
+
+Keppeki Danshi! Aoyama-kun | Clean Freak! Aoyama-kun | Чистюля Аояма [2017, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что будет, если совместить несовместимое? Например, возьмём спортивную игру на большом поле с мячом, где легко упасть и испачкаться, порой приходится трогать грязный мяч, не говорим уже о том, что, играя в неё, невозможно не вспотеть. А теперь возьмём патологического чистюлю, который ненавидит грязь и микробы и даже слышать не хочет о них. Невозможно, скажете вы. (   Читать дальше...   )Производство: Studio Hibari / スタジオ雲雀Жанр: комедия, спортРежиссер: Итикава КадзуяПеревод: AniPlay (lisiyaka, Kora_Neko, Kaktus_chan)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E08FEA6A97299FA071960B6C77FBF60AA315E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396553   (741359) от 19.07.2020
+
+Alestorm - No Grave But the Sea (2017) Napalm Records [FLAC|Lossless|image + .cue] <Folk Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. No Grave But the Sea (03:30)
+02. Mexico (03:10)
+03. To the End of the World (06:43)
+04. Alestorm (03:57)(   Читать дальше...   )Жанр: Folk Metal, Power MetalПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D053A6947CB78CEA0343502FD908B15077C762E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784387   (741353) от 07.05.2014
+
+Остров Крым. Выпуск 21. По местам боевой славы Крыма (2014.05.07) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Остров Крым" - цикл документальных фильмов, которые расскажут об удивительной истории, невероятной природе, уникальных артефактах и достопримечательностях Крымского полуострова. Мы отправимся в путешествие по самым знаковым местам полуострова вместе с ведущими - Александром Олешко, Валдисом Пельшем, Дмитрием Харатьяном, Ариной Шараповой, Геннадием Хазановым (   Читать дальше...   )По местам боевой славы КрымаЖанр: ДокументальныйРежиссер: Людмила Снигирева, Илья Петров, Андрей ЛиничПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E798B05D2A2143EB0504F4D65A805BA6BFD3F5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397284   (741342) от 19.07.2020
+
+Первая передача на НТВ. Автомобильная передача (19.07.2020) WEBRip [H.264/1080p-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+00:20 Огненный укус: за что участник дорожного конфликта пальнул по оппоненту из "Осы"?
+03:31 Осторожней с дорожным катком! Ошибка машиниста катка чуть не привела к роковым последствиям. Почему пострадавший остался без компенсации?
+06:54 От мелкого ремонта к полуразобранной машине: как можно остаться без двигателя "по гарантии" от автосервиса? (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:26:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396934   (741341) от 19.07.2020
+
+VA - Black Hole Trance Music 07-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Zara Taylor & Martin Graff - Falling (Extended Mix) 06:31
+02. Orkidea - That Feeling (Extended Mix) 07:13
+03. Craig Connelly & Siskin - All For Love (Extended Mix) 07:45
+04. Gordey Tsukanov - The Clutch (Extended Mix) 07:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821EBC5652E2DC19DB9D0482DD6A80D79CCE942F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397140   (741340) от 19.07.2020
+
+VA - Holiday Body Workout Hits (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Amy Phillips - Sorry Not Sorry (3:23)
+02. Jonas Gerard - I'm Upset (3:18)
+03. Little Play, Layla Young - Girls Like You (4:14)
+04. Tia Matthews - Most Girls (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558B43781E0A68BC308300EA857F75F5935AF140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397216   (741339) от 19.07.2020
+
+Pretenders - Hate for Sale (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Hate for Sale (02:30)
+02. The Buzz (03:50)
+03. Lightning Man (02:56)
+04. Turf Accountant Daddy (03:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB1FEFD09076B1E9477B58B3DC8AA773DA9E3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397258   (741338) от 19.07.2020
+
+Прибрежные деревни Англии / Penelope Keith's Coastal Villages (2017) HDTV [H.264/1080i] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Известная британская актриса и телеведущая Пенелопа Кит совершает путешествие по неповторимым деревням Британии, где исследует одну из жемчужин Соединенного Королевства - ее потрясающую береговую линию. Пенелопа ищет то общее, что объединяет жителей этих деревень: от рыбалки и спасательных шлюпок до прогулок на лодках и отдыха на море, приносящего радость, изучает (   Читать дальше...   )Производство: Великобритания, Madman EntertainmentЖанр: Документальный, природа, путешествияРежиссер: Джон ХодсонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317627669C592F9A8B8FBAB65DEB3F425AC5F387
 ```
 
 https://mybot314.ru/tekegram_catalog/

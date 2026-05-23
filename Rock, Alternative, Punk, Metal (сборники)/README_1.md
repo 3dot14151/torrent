@@ -1,3 +1,90 @@
+###  Публикация: 1844923   (1050368) от 29.12.2025
+
+Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard rock, Glam rock, Pop rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Great Unknown (& H.e.a.t) ❂ Into The Great Unknown 2017
+02. Higher (Winner Of Idol) ❂ The Idol Years 2009
+03. Livin' On A Prayer (& Bon Jovi) ❂ Eriksplanations Vol. 2 2025
+04. Fearless (& New Horizon) ❂ Gate Of The Gods 2022(   Читать дальше...   )Жанр: Hard rock, Glam rock, Pop rockПродолжительность: 05:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557528C8813E3A6238C025E4518E6D0F639AAD91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843780   (1049778) от 23.12.2025
+
+The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock, Indie rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. A Man Will Do Wrong (& The Arcs) ❂ Electrophonic Chronic 2023
+02. Ain't Nothing Like You (Hoochie Coo) (& Jim Jones & Mos Def) ❂ Blakroc 2009
+03. Behind The Eyes (& The Arcs) ❂ Electrophonic Chronic 2023
+04. Can't Find My Mind (& The Cramps) ❂ OST He Put The Bomp ! In The Bomp 2007(   Читать дальше...   )Жанр: Garage rock, Blues rock, Indie rockПродолжительность: 08:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C260EEFC530264BABFB276673CF0E5D9FD25E1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840449   (1047231) от 05.12.2025
+
+VA - Solo Projects From Ария (1985-2025) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Маврин - Крылья. instrumental
+02. Дубинин & Маврин - Ужас и Страх. live
+03. Беркут - Берёзы
+04. Маврин - Иллюзия(   Читать дальше...   )Жанр: RockПродолжительность: 07:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCC5983B274B177B574F182265FFA7F8276734B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839740   (1046814) от 30.11.2025
 
 Мария Варгас - Favorites Collection Part 2 (2025) [MP3|192 Kbps] <Blues, Blues Rock, AI>
@@ -6,7 +93,7 @@
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Gov't Mule - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Blues & Rock part  15 Compilation (2023) [MP3|320 Kbps] <Blues & Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Music For You vol. 28 (2023) [MP3|320 Kbps] <Rock, Metal, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +296,7 @@ Laura Cox - Compilation (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Now That's What I Call A Love Song (4CD) (2023) [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +354,7 @@ Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - The Stress: Rock Psychedelic Compilation (2023) [MP3|320 Kbps] <Psychedelic
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death m
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Impressive Sound 2022.2: Volume III (2022) [MP3|320 Kbps] <Post-metal, blac
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Impressive Sound 2022.2: Volume I (2022) [MP3|320 Kbps] <Progressive metal,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Music for You vol.15 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +615,7 @@ Mick Jagger - Angel in My Heart (2021) 2CD, Compilation [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +644,7 @@ Ian Gillan - Unchain Your Brain (2021) 2CD, Compilation  [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +673,7 @@ Dorothy - Compilation (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +702,7 @@ Omega - Movin' World (2023) 2CD Compilation  [MP3|320 Kbps] <Rock, Psychedelic, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Private Partners: Rock Blues Lyric Collection (2021) [MP3|320 Kbps] <Rock B
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Private Partners: Rock Blues Lyric Collection (2021) [MP3|320 Kbps] <Rock B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ACFFFE446F686A330A4A97A452D1CACD601F078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440828   (1038252) от 19.01.2021
-
-VA - XV Anniversary Compilation (2021) [MP3|320 Kbps] <Doom Metal, Drone, Post-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shattered Hope - Prometheus Unbound (28:44)
- 02. S.C.A.L.P. - Третья Весна - The Third Spring (09:14)
- 03. Amederia - Doomed Ground (12:08)
- 04. Invernoir - Cast Away (07:10)(   Читать дальше...   )Жанр: Doom Metal, Drone, Post-MetalПродолжительность: 13:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3272E725EBE634DD4F2FC27FBE6C78415A2FFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441112   (1037978) от 20.01.2021
-
-Zepparella - 100% Zepparella (2021) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immigrant Song
-02. Song Remains the Same (Live)
-03. The Rover
-04. Whole Lotta Love(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA08F092C27E13274E65E968321D80AFB1A9719C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441259   (1037759) от 21.01.2021
-
-VA - XV Years Of Doom & Solitude (2021) [MP3|320 Kbps] <Doom Metal,  Drone, Post-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037759.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elusive God - Silence Is Our Doom (04:52)
- 002. Ekklesiast - Цветок Тревоги - Flower Of Dismay (15th Anniversary Remix) (06:46)
- 003. Restless Oblivion - Mistilteinn (06:49)
- 004. Shattered Hope - In Cold Blood (13:09)(   Читать дальше...   )Жанр: Doom Metal,  Drone, Post-MetalПродолжительность: 28:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B045314C4A2C6B1AC5AA725011DCE1CCAD6341A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

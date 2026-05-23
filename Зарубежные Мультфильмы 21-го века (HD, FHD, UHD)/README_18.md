@@ -1,3 +1,81 @@
+###  Публикация: 753480   (936208) от 05.02.2014
+
+Мой маленький пони: Девочки из Эквестрии / My Little Pony: Equestria Girls (2013) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Следуя за похитившим корону Кристальной Империи вором, Твайлайт Cпаркл попадает в альтернативный мир, в котором она превращается в девочку-подростка и сталкивается с самым серьёзным испытанием в своей жизни — старшей школой! При помощи своих новых друзей, которые напоминают ей оставшихся в Понивилле Эпплджек, Рэрити, Рэйнбоу Дэш, Пинки Пай и Флаттершай, она начинает (   Читать дальше...   )Производство: Канада, СШАЖанр: Мультфильм, Фэнтези, КомедияРежиссер: Джэйсон ТиссенАктеры: Тара Стронг, Эшли Болл, Андреа Либман, Табита Сен-Жермен, Кэти Уизлак, Ребекка Шойкет, Ли Токар, Ричард Йен Кокс, Николь Оливер, Винсент ТонгПеревод: Дублированный | ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11AFA2BE88BE9814FF7E59A2215FCE446FC282FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753673   (936124) от 05.02.2014
+
+Облачно, возможны осадки: Месть ГМО / Cloudy with a Chance of Meatballs 2 (2013) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Все жители острова Поплавок покинули родной дом после событий предыдущего мультфильма. Главный герой Флинт Локвуд теперь работает в компании The Live Corp на своего кумира Честера. Но ему придется оставить свой пост когда он узнает, что его печально-известная машина все ещё работает и производит на свет опасных гибридов. Флинту предстоит ещё раз спасти мир и не дать (   Читать дальше...   )Производство: США, Columbia Pictures, Sony Pictures Animation, Sony PicturesЖанр: Фэнтези, Комедия, СемейныйРежиссер: Коуди Камерон, Крис ПирнПерсонажи: Билл Хейдер, Анна Фэрис, Джеймс Каан, Уилл Форте, Энди Сэмберг, Бенджамин Брэтт, Нил Патрик Харрис, Терри Крюс, Кристен Шол, Коуди КамеронПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF42D6C09C9AF74C2A48A59AB84E79D4CFE06500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753755   (936109) от 05.02.2014
+
+Облачно, возможны осадки: Месть ГМО / Cloudy with a Chance of Meatballs 2 (2013) BDRemux [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Все жители острова Поплавок покинули родной дом после событий предыдущего мультфильма. Главный герой Флинт Локвуд теперь работает в компании The Live Corp на своего кумира Честера. Но ему придется оставить свой пост когда он узнает, что его печально-известная машина все ещё работает и производит на свет опасных гибридов. Флинту предстоит ещё раз спасти мир и не дать (   Читать дальше...   )Производство: США, Columbia Pictures, Sony Pictures Animation, Sony PicturesЖанр: Фэнтези, Комедия, СемейныйРежиссер: Коуди Камерон, Крис ПирнПерсонажи: Билл Хейдер, Анна Фэрис, Джеймс Каан, Уилл Форте, Энди Сэмберг, Бенджамин Брэтт, Нил Патрик Харрис, Терри Крюс, Кристен Шол, Коуди КамеронПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E6FEE70538167800442DF47192935CBC7B540C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753677   (936077) от 05.02.2014
 
 Облачно, возможны осадки: Месть ГМО / Cloudy with a Chance of Meatballs 2 (2013) BDRip [1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F61BAD4317D55AD71FAE61EA1A3F7B58FA5E133A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094952   (927553) от 19.01.2017
-
-Груффало / The Gruffalo (2009) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927553.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сказке «Граффало» рассказывается о волшебных приключениях мышонка, который отправился в лес за орехами. По пути мышонку встречаются три хищника, пожелавших им полакомиться. И, чтобы спастись, мышонок придумывает чудовище. Но позже выясняется, что вымышленное чудовище более чем реально.Производство: Великобритания, ГерманияЖанр: Корткометражный, компьютерная анимацияРежиссер: Макс Лэнг, Джейкоб ШухПерсонажи: Хелена Бонем Картер (рассказчик), Джеймс Корден (мышонок), Том Уилкинсон (Лис), Джон Херт (Филин), Роб Брайдон (Змей), Робби Колтрейн (Груффало)Перевод: Дублированный, Любительский (Двухголосый закадровый), Одноголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 00:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E66B27D5D47967218031C4AAE0C6FA0527EFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094964   (927460) от 19.01.2017
-
-Дочурка Груффало / The Gruffalo's Child (2011) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений храброго мышонка. Теперь в существование большого злобного мыша предстоит поверить дочурке Граффало.Производство: Великобритания, ГерманияЖанр: Короткометражный, компьютерная анимацияРежиссер: Уве Хеидсшоттер, Йоханнес ВейландПерсонажи: Хелена Бонем Картер (рассказчик), Ширли Хендерсон (малышка Груффало), Джеймс Корден (мышонок), Том Уилкинсон (Лис), Джон Херт (Филин), Роб Брайдон (Змей), Робби Колтрейн (Груффало)Перевод: Дублированный, любительский многоголосый закадровый, любительский двухголосый закадровый, одноголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 00:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A332D2F70B7FDC4403853611F98D401C8D8A1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366109   (925288) от 10.03.2020
-
-ВАЛЛ·И / WALL·E (2008) UHD BDRip [H.265/2160p] [SDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робот ВАЛЛ·И из года в год прилежно трудится на опустевшей Земле, очищая нашу планету от гор мусора, которые оставили после себя улетевшие в космос люди. Он и не представляет, что совсем скоро произойдут невероятные события, благодаря которым он встретит друзей, поднимется к звездам и даже сумеет изменить к лучшему своих бывших хозяев, совсем позабывших родную Землю.Производство: США / FortyFour Studios, Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, фантастика, приключения, семейныйРежиссер: Эндрю СтэнтонПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622D98DE287CEB0B993C835E88DEC0BD3B6FDFC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

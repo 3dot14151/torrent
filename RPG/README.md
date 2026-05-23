@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1871445   (1069737) от 
+
+Soulstone Survivors (2025) [Ru/Multi] (1.5c) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Soulstone Survivors - это динамичный action-roguelite, в котором вы уничтожаете орды врагов, сражаетесь с колоссальными боссами и прокладываете свой путь к богоподобной силе. Станьте Охотником за Пустотой, используйте разрушительные навыки, создавайте уникальное оружие и открывайте взламывающие игру синергии. Вам предстоит освоить огромное древо навыков, разблокировать (   Читать дальше...   )Тип издания: SceneРазработчик: Game Smithing LimitedЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A177E700790E071F75573315BD04507D0BD3AEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871327   (1069581) от 
+
+Fight Life Vanguard (2026) [Ru/Multi] (1.2.0.655) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в путешествие вместе с некогда могущественным и щедрым, а теперь забытым богом, чья энергия постепенно исчезает из мира. Преданный своим человеческим учеником, который решил стать новым божеством, пожертвовав своим учителем, Божественный Дух сначала не доверяет человечеству, но затем становится свидетелем их храбрости в борьбе с тьмой. Перед тем как отправиться (   Читать дальше...   )Тип издания: RepackРазработчик: StartImpulse, Two Cakes StudioЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F352977157ACE381C70DB9E0A5212B79A6EC98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871116   (1069320) от 
+
+Valor of Man (2026) [Multi] (1.1.03) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Войди в Valor of Man, пошаговую ролевую игру, действие которой происходит в мире, раздираемом разрушением и откровениями. Собери свою команду из четырех чемпионов из 12 уникальных классов героев, каждый из которых имеет свои роли и стили игры. Овладей искусством синергии, открывая и комбинируя более 700 способностей, предметов и артефактов, которые могут изменить (   Читать дальше...   )Тип издания: LicenseРазработчик: Legacy ForgeЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C974825359CBF8CAE45FABF7942B35DB57663B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868763   (1067743) от 02.05.2026
 
 Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack FitGirl [Super Deluxe Edition]
@@ -7,7 +85,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack FitGirl [Super Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +111,7 @@ Mass Effect 3 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +137,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack FitGirl [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +163,7 @@ Mass Effect 2 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +189,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack dixen18 [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Look Outside (2025) [En] (2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +241,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.5/dlc) Repack HardwareMining
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Weird RPG 2 (2026) [Ru/Multi] (1.0.37) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Ai Limit (2025) [Ru/Multi] (Build 22521250/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +346,7 @@ tawarerumono: ZAN 2 (2026) [Multi] (22071867/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +372,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Hard
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +398,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326) Repack dixen18 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +424,7 @@ Across the Obelisk (2021) [Ru/Multi] (1.7.5/dlc) Repack Let'sРlay [Complete Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +450,7 @@ Lost Soul Aside (2025) [Ru/Multi] (1.101/dlc) Repack HardwareMining [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +476,7 @@ Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +502,7 @@ Solasta: Crown of the Magister (2020) [Ru/Multi] (1.5.97/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +528,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack Other s [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +554,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack FitGirl [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +580,7 @@ Under The Island (2026) [Multi] 1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +606,7 @@ Dragon Quest I and II HD: 2D Remake (2025) [Multi] (1.0.2.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (3.0.91735/dlc) Repack Decepticon [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -580,7 +658,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack FitGirl [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -591,84 +669,6 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack FitGirl [Royal Ed
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD5DE7276A7886EB784B080840E7CF05724976AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858924   (1060790) от 13.03.2026
-
-Escape from Ever After (2026) [Ru/Multi] (2.7.4) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Escape from Ever After - это приключенческая ролевая игры, вдохновлённая классическими играми Paper Mario, в которой сказочные персонажи и герои книг должны дать отпор капитализму! Когда Флинт Баклер, классический искатель приключений из сказок, штурмует замок своего заклятого драконьего врага Тиндер, он обнаруживает, что некогда устрашающая крепость превратилась (   Читать дальше...   )Тип издания: RepackРазработчик: Sleepy Castle Studio, Wing-It! CreativeЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Японский, Португальский и другиеЯзык интерфейса: Русский, Английский, Японский, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB5BDE72FD7609789C3172018ACF4EC5CD7E138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858334   (1060289) от 10.03.2026
-
-Weird RPG 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Weird RPG 2 - это инновационная игра в жанре экшн-RPG с видом от третьего лица. Боевые механики игры основаны на парировании, как в Sekiro. Сложность игры ниже, чем у большинства игр в стиле Souls, и в ней нет штрафов за смерть. Не пробовали Sekiro? Боитесь его сложности? Эта игра идеально для вас. Уже играли в Sekiro? Тогда инновационная система снаряжения этой (   Читать дальше...   )Тип издания: RepackРазработчик: yuzhenЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5126356B14794EFCA935E266674E1905C59608B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858174   (1060137) от 09.03.2026
-
-Kingdom Come: Deliverance Dilogy (2018-2025) [Ru/Multi] (1.9.6-404-504czj3/1.5.49/dlc) Repack HardwareMining
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingdom Come: Deliverance II - захватывающий сюжетный ролевой экшен с богатым открытым миром, действие которого разворачивается в Европе XV века. Взгляните на средневековую жизнь глазами молодого Индржиха из Скалицы - обычного человека с необычной судьбой, который начал свой путь «из кузнецов в королевский двор» в поисках отмщения за предательство, исследуя прекрасное, (   Читать дальше...   )Тип издания: RepackРазработчик: Warhorse StudiosЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, ЧешскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B94B126A7B186FBCFAF8E616E43AB814A98E0BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

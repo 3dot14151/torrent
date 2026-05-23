@@ -1,3 +1,56 @@
+###  Публикация: 1805834   (11852) от 11.07.2025
+
+Современная инженерия: Когда что-то идет не так / When Big Things Go Wrong (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Современная инженерия: Когда что-то идёт не так» — это увлекательный документальный сериал, где ошибки инженеров становятся началом глубоких расследований. С помощью архивных кадров, компьютерной графики и интервью с экспертами проект детально исследует причины аварий сложных технических сооружений — от мостов и небоскрёбов до плотин и промышленных объектов. Каждый (   Читать дальше...   )Производство: США | «Plimsoll productions»Жанр: Документальный, историяУчастники: Мосин Мелвин, Роб Белл, Дэниел Дикрелл, Люк Бисби, Роберт Гленистер, Сайэн Проктор, Асегун Генри, Мэтт Робинсон, Эндрю Херрман, Джерри ШеммелПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AAF4ED4B20FD8FCC9DC6EA943CE0FA9710F6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806581   (11436) от 15.07.2025
+
+BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4) [VO]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Помпеи: новые раскопки» — увлекательный документальный сериал, который погружает зрителей в тайны одного из самых известных и трагических городов Древнего Рима.
+Археологи впервые за десятилетия проводят масштабные раскопки Инсулы 10 — квартала в северной части Помпей. Съёмочная группа получила уникальный доступ к этим работам. Теперь зрители могут увидеть открытия, (   Читать дальше...   )Производство: Великобритания | BBC, Arte France Cinéma, Lion TelevisionЖанр: документальный, историяРежиссер: Елена МортеллитиУчастники: Кейт Флитвуд, Крис Джексон, Роберта Приску и др.Перевод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: Английские (forced hardsub)Продолжительность: ~00:58:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48586F9357235DDD566FF0841295673130CD9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809336   (9911) от 30.07.2025
 
 History: Кевин Костнер: Запад / Kevin Costner's the West (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
@@ -6,7 +59,7 @@ History: Кевин Костнер: Запад / Kevin Costner's the West (2025)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +111,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +137,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +163,7 @@ PBS: Первые люди / First Peoples (2015) WEB-DL [H.264/1080p] (сезо
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +215,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2013) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +241,7 @@ Discovery: Челюсти против кракена / Jaws vs Kraken (2022) WE
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +267,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +293,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +319,7 @@ NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +345,7 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +371,7 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +398,7 @@ Discovery. Великий замысел по Стивену Хокингу / St
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +424,7 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +450,7 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

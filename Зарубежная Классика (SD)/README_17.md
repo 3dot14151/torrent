@@ -1,3 +1,107 @@
+###  Публикация: 859846   (942544) от 15.01.2015
+
+Полицейская академия 3: Переподготовка / Police Academy 3: Back in Training (1986) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Правительство заявило, что только одна из двух полицейских школ может продолжать свою работу. Начинается жестокое состязание на выживание - ни одна из академий не желает закрываться, в дело идут все средства. Махони, Хайтауэр, Тэклберри, Джонс, Хукс и Кэллагэн под командованием несгибаемого коменданта Лассарда, мобилизуют для спасения своей Альма Матер новую команду (   Читать дальше...   )Производство: США | Warner Bros. Pictures, Police Academy ProductionsЖанр: Комедия, КриминалРежиссер: Джерри ПэрисАктеры: Стив Гуттенберг, Бубба Смит, Дэвид Граф, Майкл Уинслоу, Мэрион Рэмси, Лесли Истербрук, Арт Метрано, Тим Казурински, Боб Голдтуэйт, Джордж Гейнс, Шон Уэзерли, Скотт ТомсонПеревод: Профессиональный дублированный, профессиональный двухголосый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE6814A96977E43F295F68DEF31253D20AA8EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983469   (941984) от 07.02.2016
+
+Лорна Дун / Lorna Doone (1951) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Местные феодалы из клана Дунов, убивают фермера Джека Рида. Его сын Джон решает сам бросить вызов убийцам. Он поднимается на скалу, обнаружив тайный проход к замку через пещеру возле водопада, и встречает маленькую девочку, которая перевязывает ему запястье. Узнав, что она является внучкой главы ненавистного клана, он готов сорвать повязку и обещает собравшимся членам (   Читать дальше...   )Производство: США / Edward Small ProductionsЖанр: Драма, МелодрамаРежиссер: Фил КарлсонАктеры: Барбара Хейл, Ричард Грин, Карл Бентон Рейд, Уильям Бишоп, Рон Рэнделл, Шон МакКлори, Онслоу Стивенс, Лестер Мэтьюз, Джон Денер, Глория ПетроффПеревод: Одноголосый закадровый (Kolobroad)Субтитры: ОтсутствуютПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9FBE75A8ADCE96102F693BB96D29F625F86ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983639   (941783) от 07.02.2016
+
+Большая касса / La grosse caisse (1965) DVDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бурден, скромный и на первый взгляд, ничем не примечательный работник парижского метрополитена. Но в один прекрасный день все узнают что он еще и талантливый писатель -«реалист». Однако с этого его приключения только начинаются…Производство: Франция / Cocinor, Les Films MarceauЖанр: Триллер, Комедия, КриминалРежиссер: Алекс ЖоффеАктеры: Бурвиль, Поль Мёрисс, Франсуаза Делдик, Даниэль Секкальди, Анри Пьегэ, Филипп Марш, Менашем Шувал, Бернар Фрессон, Жак Легра, Жорж ОдуберПеревод: Любительский двухголосый, закадровыйПродолжительность: 01:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DD9C1D09E443FA8F394392E18FAE2C69A67BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088148   (941302) от 10.01.2017
+
+Сети шпионажа / Gibraltar (1938) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Один за другим взрываются и тонут британские суда. Англичане предполагают, что это диверсия, и что немецкое шпионское гнездо находится на британской военно-морской базе в Гибралтаре. Загадкой для англичан является и то, как врагу удается взрывать тщательно охраняемые суда.Производство: Франция / Cin-Alliance, DisCina, Gloria FilmЖанр: Драма, Военный, ДетективРежиссер: Федор ОцепАктеры: Роже Дюшен, Эрих фон Штрогейм, Вивиан Романс, Иветт Лебон, Жан Перье, Абель Жакен, Мадлен Сюффель, Полетт Пакс, Андре Роанн, Жорж ФламанПеревод: Одноголосый закадровый (Виктор Рутилов)Продолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C672B7B66A2CAED86B11662850A97F6F2889B94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 750996   (941094) от 02.02.2014
 
 Джоси Уэйлс – человек вне закона / The Outlaw Josey Wales (1976) BDRip
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B084D5CC0C68A543E1774275423788D8D03337FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981033   (925969) от 17.02.2016
-
-Спи, моя любовь / Sleep, My Love (1948) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элисон Куртлэнд просыпается в середине ночи в бостонском поезде. Но она не может вспомнить, что она там делает и как она там оказалась. Услужливая пожилая дама помогает Элисон дозвониться до мужа, который уверяет её, что она исчезла сразу же после того, как угрожала убить его. По возвращении в Нью-Йорк Элисон по настоянию мужа посещает психиатра, но этот визит совершенно (   Читать дальше...   )Производство: США, Triangle ProductionsЖанр: Триллер, детектив, фильм-нуарРежиссер: Дуглас СеркАктеры: Клодетт Колбер, Роберт Каммингс, Дон Амичи, Рита Джонсон, Джордж Кулурис, Куеени Смит, Ральф Морган, Кей Люк, Фред Нерни, Рэймонд БёррПеревод: Одноголосый закадровыйПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B283B89AE0F8EDD4C5BBF4D8EFF7D50D13820B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089726   (925951) от 20.01.2017
-
-Мы не ангелы / We're No Angels (1955) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкая, развлекательная комедия. Трое заключенных с  Острова Дьявола изображают Санта-Клауса в семье, которую они пришли ограбить.
-Вся троица отсиживала пожизненные сроки, и терять им нечего: Джозеф за фальшивомонетчество, а двое других — за убийство. Семейство же они застают переживающим трудности, которые никак не подходят к Рождеству.Производство: США / Paramount PicturesЖанр: Мелодрама, Комедия, КриминалРежиссер: Майкл КёртицАктеры: Хамфри Богарт, Альдо Рэй, Питер Устинов, Джоан Беннетт, Бэзил Рэтбоун, Лео Г. Кэррол, Джон Баэр, Глория Тэлботт, Лиа Пенман, Джон СмитПеревод: Многоголосый закадровый (ТК "Домашний")Язык субтитров: АнглийскийПродолжительность: 01:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43D5C103F404B177B45A63E62B24D2B27A17CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089970   (924304) от 21.01.2017
-
-Фиеста / Fiesta (1947) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о близнецах Марии и Марио Моралесах, судьбы которых сложились очень интересным образом, но не так, как того хотел их отец Антонио. Он – некогда знаменитый матадор, и всегда мечтал, чтобы Марио пошел по его стопам. Но юноша не разделял желания родителя и всегда тяготел к игре на пианино. Мать поддерживала сына в его стремлении стать композитором. (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, МелодрамаРежиссер: Ричард ТорпАктеры: Эстер Уильямс, Аким Тамирофф, Рикардо Монтальбан, Джон Кэрролл, Мэри Астор, Сид Черисс, Фортунио Бонанова, Хуго Хаас, Джин Ван, Джои ПрестонПеревод: Одноголосый закадровый (И. Клушин)Язык субтитров: Русский, английскийПродолжительность: 01:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B49A8E0F021C92C169BA54510B07DE8C55A925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981243   (924300) от 18.02.2016
-
-Последняя граница / The Last Frontier (1955) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924300.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приграничном форте появляется Джед Купер, чтобы помочь солдатам отразить нападение враждебно настроенных индейцев, однако его усилия не находят понимания у командования гарнизона.Производство: США / Columbia Pictures CorporationЖанр: ВестернРежиссер: Энтони МаннАктеры: Виктор Мэтьюр, Гай Мэдисон, Роберт Престон, Джеймс Уитмор, Энн Бэнкрофт, Расселл Коллинз, Питер Уитни, Пэт Хоган, Гильермо Кальес, Джон Л. КейсонПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A42FD52F1A15D324C37106E1F09305057FD4D6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

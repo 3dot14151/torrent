@@ -1,3 +1,55 @@
+###  Публикация: 1327419   (265896) от 19.11.2019
+
+Американская история ужасов / American Horror Story (2019) WEB-DLRip [H.264/720p-LQ] (сезон 9, серии 1-9 из 9) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+После призраков, клоунов и ведьм настал черед слэшеров 1980-х, где незадачливых подростков убивает незнакомец с ножом и в маске. По всем правилам жанра истории об убийце полушепотом пересказывают вокруг костра, в деле замешаны прошлые преступления и не самая надежная психиатрическая больница.Производство: США / Brad Falchuk Teley-Vision, Ryan Murphy Productions, 20th Century Fox TelevisionЖанр: ужасы, триллер, драмаРежиссер: Брэдли Букер, Альфонсо Гомес-Рехон, Майкл АппендальАктеры: Эван Питерс, Сара Полсон, Дэнис О’Хэр, Кэти Бейтс, Джессика Лэнг, Фрэнсис Конрой, Лили Рэйб, Анджела Бассетт, Эмма Робертс, Шайен Джексон и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:55:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FC7E03D396D8F5E9A7C15DAA3002718AF460AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327418   (265895) от 19.11.2019
+
+Американская история ужасов / American Horror Story (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 9, серии 1-9 из 9) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+После призраков, клоунов и ведьм настал черед слэшеров 1980-х, где незадачливых подростков убивает незнакомец с ножом и в маске. По всем правилам жанра истории об убийце полушепотом пересказывают вокруг костра, в деле замешаны прошлые преступления и не самая надежная психиатрическая больница.Производство: США / Brad Falchuk Teley-Vision, Ryan Murphy Productions, 20th Century Fox TelevisionЖанр: ужасы, триллер, драмаРежиссер: Брэдли Букер, Альфонсо Гомес-Рехон, Майкл АппендальАктеры: Эван Питерс, Сара Полсон, Дэнис О’Хэр, Кэти Бейтс, Джессика Лэнг, Фрэнсис Конрой, Лили Рэйб, Анджела Бассетт, Эмма Робертс, Шайен Джексон и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:55:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E5C46EFEEA0DD75FAC712884B1DD6DA2210C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189843   (264982) от 12.12.2017
 
 Ясновидящий / Shut Eye (2017) WEBRip (сезон 2, серии 1-10 из 10) BaibaKo  [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77CE70D5129C7906AC10D978C5EAEE3E5502911F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037973   (238780) от 28.04.2022
-
-Киллджойс / Килджой / Killjoys (2016) WEB-DLRip [H.264] (сезон 2, серии 1-10 из 10) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238780.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далекой-далекой межпланетной системе трое смелых, ловких и чертовски привлекательных наемников ведут бесконечную охоту за преступными элементами. Кредо команды — не занимать ничью сторону. Однако в раздираемой локальными боями галактике сделать это очень непросто. Их мир стоит на грани межклассовой войны, а задания, которые получают охотники за головами, становятся (   Читать дальше...   )Производство: Канада, Mendacity Pictures, Bell Media, Temple Street ProductionsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Стефан Плещински, Паоло Барзмен, Питер СтеббингсАктеры: Ханна Джон-Кэймен, Аарон Эшмор, Люк МакФарлейн, Тамсен МакДонаф, Том Эллисон, Роб Стюарт, Патрик Гэрроу, Мэйко Нгуен, Келли МакКормак, Шон ПэкПеревод: Многоголосый профессиональный - BaibaKoОзвучка / Автор перевода: Лира Грим, Ольга Мотрич, Владимир Курдов и Акмал Гурезов / Наталья Черненко и Фиона КудреватыхЯзык озвучки: Русский, английскийПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701E8042E3B19ED2C0E8086CF416408832B9B400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076640   (238685) от 28.04.2022
-
-Стрелок / Shooter (2016) WEBRip [H.264] (сезон 1, серии 1-10 из 10) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главным персонажем является бывший морской пехотинец и снайпер Боб Суэггер. Не по своей воле он оказывается вовлеченным в тайный заговор, главная цель которого заключается в ликвидации американского президента. Догадавшись о том, что его планируют подставить, Боб уходит в бега и готовится к тому, чтобы найти настоящего киллера...Производство: США, Closest to the Hole ProductionsЖанр: боевик, драмаРежиссер: Дэвид Стрейтон, Саймон Селлан Джоунс, Кристоф ШревеАктеры: Райан Филипп, Шантель Ван Сантен, Синтия Аддай-Робинсон, Омар Эппс, Лекси Колкер, Джесси Брэдфорд, Мэтт Шалленбергер, Дилэйна Митчелл, Эдди МакКлинток, Джералд МакРэйниПеревод: Многоголосый профессиональный - BaibaKoЯзык озвучки: Русский, английскийПродолжительность: ~00:42:00 серияРеклама: присутствуют голосовые и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4871678AA81BDAA6C8B63CEC7323D294B32449C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

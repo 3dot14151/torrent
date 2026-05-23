@@ -6,7 +6,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +32,7 @@ UFO Robot Grendaizer / Грендайзер [1975, TV, 1-74 из 74] 19xDVD5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +86,7 @@ Tsutsu Yume Gunnm / Gunnm / Сны оружия / Боевой Ангел Али
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVDRem
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -140,7 +140,7 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +166,7 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Берсерк: Бехерит В�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +194,7 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -248,7 +248,7 @@ Berserk: Ougon Jidai Hen | Берсерк | Berserk Golden Age Arc | Берсе�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +274,7 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +300,7 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +326,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +352,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +378,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +404,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +430,7 @@ Byousoku 5 Centimeter | 5 сантиметров в секунду | 5 Centimete
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -459,7 +459,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +485,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +512,7 @@ Summer Wars | Летние Войны [2009, Movie] DVD9 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +538,7 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять сантиметро
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,7 +567,7 @@ Summer Wars | Летние Войны [2009, Movie] DVDRemux 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,7 +593,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -619,7 +619,7 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -645,7 +645,7 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -671,7 +671,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

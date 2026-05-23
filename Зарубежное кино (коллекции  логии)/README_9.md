@@ -1,3 +1,55 @@
+###  Публикация: 1128576   (640720) от 29.05.2018
+
+Лара Крофт: Расхитительница гробниц. Дилогия / Lara Croft: Tomb Raider. Dilogy (2001-2003) HDRip [AVO]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Она — само совершенство! На нашей планете нет женщины, которая могла бы сравниться с ней. Она — божественно прекрасна, невероятно умна и потрясающе отважна. Она владеет всеми видами рукопашного боя, изумительно стреляет из любых видов оружия и способна выжить в самых экстремальных условиях. Эта девушка — дочь лорда. Ее имя — леди Лара Крофт. И пусть трепещут злодеи, (   Читать дальше...   )Производство: США, Великобритания, Япония, Германия / Paramount PicturesЖанр: Фэнтези, Боевик, Триллер, ПриключенияРежиссер: Саймон Уэст / Ян Де БонтАктеры: Анджелина Джоли, Джон Войт, Айэйн Глен, Ной Тейлор, Дэниэл Крэйг, Ричард Джонсон, Крис Барри, Джулиан Райнд-Татт, Лесли Филлипс, Роберт Филлипс, Рэйчел Эпплтон, Джерард Батлер, Киаран Хайндс, Крис Барри, Ноа Тейлор, Джимон Хонсу, Тиль Швайгер, Саймон Ям, Теренс Йин, Дэниэл КалтагоринПеревод: Авторский (одноголосый, закадровый) А.ГавриловСубтитры: ОтсутствуютПродолжительность: 01:40:32 / 01:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302F6779E37BDCDDAA76F12B693E820814EAB8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224092   (638890) от 30.05.2018
+
+Планета обезьян: Пенталогия – 40 лет эволюции  / Planet of the Apes: 40-Year Evolution Collection (1968/1970/1971/1972/1973) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Все новые и новые опасности приносит как людям, так и обезьянам будущее. На карту поставлена сама возможность существования этих биологических видов. И уже всем становится понятно, что только совместные усилия и выход на новый уровень взаимодействия дадут шанс планете в надвигающейся череде катастроф…Производство: СШАЖанр: Фантастика, ПриключенияРежиссер: Дж. Ли ТомпсонАктеры: Родди МакДауэлл, Клод Экинс, Natalie Trundy, Северн Дарден, Лью Эйрз, Пол Уильямс, Остин Стокер, Ной Кин, Ричард Истхэм, Франс НуйенПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C916F946928160A7B0118832639B35EB7CBBB493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 12716   (637724) от 19.07.2013
 
 Чарльз Спенсер Чаплин / Charles Chaplin (1921-1957) [Полнометражные фильмы]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_637724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -278,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C95DF8684719D0C58A9D7FE16180CD02A367DF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912250   (610167) от 26.06.2015
-
-Железный человек / Iron Man (2008-2013) BDRip [H.264/720p-LQ] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия расскажет фантастическую историю о Железном человеке - борце за справедливость во всем мире. Оказывается даже один человек может спасти мир, ему лишь нужно очень сильно этого захотеть. Эта история поведает нам о том, как миллиардер изобретатель Тони Старк превратился в героя, который жертвует всем для того, чтобы спасти человечество от разрушений и террора.Когда мир Старка рушится на его глазах по вине неизвестных противников, Тони жаждет найти виновных и свести с ними счеты. Оказавшись в безвыходной ситуации, Старк может рассчитывать только на себя и свою изобретательность, чтобы защитить тех, кто ему дорог. Это становится настоящим испытанием для героя, которому придется не только сражаться с коварным врагом, но (   Читать дальше...   )Производство: США, Китай / DMG Entertainment, Marvel Studios Inc, Noble Media, Outlaw Sinema, Paramount PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Шейн БлэкАктеры: Роберт Дауни мл., Гвинет Пэлтроу, Дон Чидл, Гай Пирс, Бен Кингсли, Джеймс Бэдж Дэйл, Ребекка Холл, Тай Симпкинс, Уильям Сэдлер, Джон ФавроПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), Украинский (Forced, Full), Английский (Full, Full-Songs, SDH, SDH-Colored)Продолжительность: 02:06:01 / 02:04:39 / 02:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECA7BCEC3ED118938F0982FCD744F3AB5A8F4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 135909   (609291) от 27.07.2010
-
-Коллекция Марлен Дитрих / Marlene Dietrich Collection (1930-1958) 11*DVD
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Триллер / ДетективРежиссер: Билли УайлдерВ ролях: Тайрон Пауэр, Марлен Дитрих, Чарльз Лотон, Эльза Лэнчестер, Джон Уильямс, Хенри Дэниэлл, Иэн Вулф, Торин Тэтчер, Норма Варден, Уна О'Коннор, Фрэнсис Комптон, Филип Тонг, Рута Ли
-
-Знаменитый рассказ Агаты Кристи был настолько блестяще экранизирован великим Билли Уайлдером («Бульвар Сансет», «В джазе только девушки»), что фильм не разочарует и самого придирчивого любителя (   Читать дальше...   )Субтитры: русские, английскиеПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

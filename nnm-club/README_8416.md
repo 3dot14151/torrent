@@ -1,80 +1,22 @@
-###  Публикация: 1283780   (730946) от 19.02.2019
+###  Публикация: 682480   (733602) от 23.05.2014
 
-VA - Are You Lonesome Tonight. 23 Romantic Instrumentals (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Jazz, Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camels Pick-Nick
-02. Linger A While
-03. Concerto D'Aranjuez
-04. Plaisir D'Amour(   Читать дальше...   )Жанр: Jazz, Easy Listening, InstrumentalПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31678EAE6D17502EBD2926752D2D62584AF40E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021935   (730945) от 31.05.2016
-
-VA - Passion Dance Hit 90s (2016) [MP3|314-320 кб/с] <Electronic, Dance, Latin, Samba, Hard Trance, Euro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After 8 - Fly Away 04:39
-02. 20 Fingers & Roula - Lick It 04:22
-03. 365. Magic Affair - The Rhythm Makes You Wanna Dance 04:11
-04. Ace Of Base - Life Is A Flower 03:46(   Читать дальше...   )Жанр: Electronic, Dance, Latin, Samba, Hard Trance, Euro HouseПродолжительность: 06:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6E2E6072FE2E5181AD2962A735C7A8BA8B3E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127701   (730944) от 22.04.2017
-
-GPU Caps Viewer 1.34.2.1 + Portable [En]
+Социопат / Twisted (2013) WEB-DLRip (Сезон 1 / Серии 1-19 из 19) To4ka
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
+История молодого парня — шестнадцатилетнего подростка, у которого большие проблемы с его прошлой жизнью. Он совсем недавно нашел двух своих лучших подруг, которых знал с самого детства. Но однажды его одноклассницу нашли в подвале своего дома, мертвой, и он становится главным подозреваемым по этому делу.Жанр: триллер, драма, детективРежиссер: Джо ЛазаровАктеры: Кайли Банбери, Мэдди Хассон, Эван Джогиа, Дениз Ричардс, Сэм Робардс, Кимберли Куинн, Эштон Мойо, Тодд Джулиан, Грэй Дэймон, Джамила Веласкес и др.Перевод: Многоголосый закадровый, любительский - To4kaОзвучка: Александр Нелюбин, Ирина Грачева, Марина Комчарукова и Андрей ХомяковФормат: AVIПродолжительность: ~00:44:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:455D246EAD5D40618B0DE887292052472918A961
+magnet:?xt=urn:btih:7350C7B6F9DEFE8E7266246FCD0BC58E8BF282E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,27 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530087   (730943) от 09.02.2022
+###  Публикация: 731163   (733596) от 23.05.2014
 
-Хоккей. НХЛ 2021-2022. Питтсбург Пингвинз - Бостон Брюинз (08.02.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Морская полиция: Лос Анджелес / NCIS: Los Angeles (2013) WEB-DLRip (Сезон 5, Серии 1-24 из 24) BaibaKo
 
->>Спорт и активный отдых
->>Хоккей
+>>Зарубежные сериалы
+>>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-9 февраля 2022, среда. 03:00 МСК
-Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: Setanta Sports HDЖанр: Спорт, хоккейЯзык озвучки: Русский,  АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:10:34
+5-й сезон NCIS: Los Angeles — драмы о сложной работе — наблюдении под прикрытием.
+Отдел особых проектов — подразделение NCIS, которое занимается опасными преступниками, угрожающими безопасности всей страны. Используя фальшивые личности и последние технологии, команда специалистов работает под прикрытием, рискуя собственными жизнями ради достижения цели. Специальный (   Читать дальше...   )Жанр: триллер, драма, криминал, детективРежиссер: Тони Уормби, Терренс О’Хара, Джеймс Уитмор мл.Актеры: Крис О`Доннелл, LL Кул Джей, Линда Хант, Peter Cambor, Daniela Ruah, Адам Ямал Крэйг, Barrett Foa, Роки Кэрролл, Клер Кэри, Винсент Де Пол и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Светлана Доманова, Татьяна Оболевич, Дмитрий Глебов и Виталий ТкаченкоПродолжительность: ~00:43:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DCA6687A57C61B33E6F625CEFAB1C8F75E76A6B
+magnet:?xt=urn:btih:9BAC7346E4F9778105E349F6DAC0C648FD996AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283898   (730942) от 19.02.2019
+###  Публикация: 787856   (733592) от 23.05.2014
 
-VA - Car Songs: The Anthems (2019) 4CD [MP3|320 Kbps] <Pop, Rock>
+Windows XP SP3 WIM Edition by SmokieBlahBlah 18.05.14 [Ru]
 
->>Pop
->>Зарубежная поп-музыка
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-CD01:
-01. Meat Loaf - Dead Ringer For Love
-02. Bonnie Tyler - Holding Out For A Hero
-03. Cyndi Lauper - I Drove All Night(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:08:09
+Данная сборка является быстро устанавливающейся заливкой (~10-15 мин), в которую входят 2 редакции Windows XP SP3:
+1) только с .NET Framework 1.1-3.5, VC++ Runtimes, DirectX и RuntimePack
+2) с Office 2003, .NET Framework 1.1-3.5, VC++ Runtimes, DirectX и RuntimePack
+(   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73F8E54BA5E432D717E3D1A556A6404BDFD8D87D
+magnet:?xt=urn:btih:2636CBDC3727572D5254BBD7445A4A06D676E2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,28 +80,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021861   (730941) от 31.05.2016
+###  Публикация: 788118   (733590) от 23.05.2014
 
-VA - Total Eclipce: Sweet Sound Jazz (2016) [MP3|320 кб/с] <Swng, Smoth Jazz, Blues>
+Властелин колец / The Lord of the Rings (2001-2003) BDRip [1080p] [hand made 60fps] [Extended Edition] [Трилогия]
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Oscar Peterson - Tea For Two
-02. Sister Paris - Dream Chaser - Ambient Passion Mix
-03. CoolCut - Please Come Home - Snip & Slap Mix
-04. Lester Young - A Foggy Day(   Читать дальше...   )Жанр: Swng, Smoth Jazz, BluesПродолжительность: 04:01:32
+Производство: США, Новая ЗеландияЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Питер ДжексонАктеры: Элайджа Вуд, Вигго Мортенсен, Шон Эстин, Иэн МакКеллен, Орландо Блум, Доминик Монахэн, Билли Бойд, Энди Серкис, Миранда Отто, Бернард ХиллПеревод: ДублированныйЯзык субтитров: Rus (форс.), Rus (полные), Eng (форс.), Eng (полные)Продолжительность: 04:23:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85A38B36EE4C70F0C1C36FDF3DABB4D8C0C41D4C
+magnet:?xt=urn:btih:F295ED85A3557EA518BE05B93667CDFA9BFDAC85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,27 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530082   (730940) от 09.02.2022
+###  Публикация: 762007   (733588) от 23.05.2014
 
-Хоккей. НХЛ 2021-2022. Питтсбург Пингвинз - Бостон Брюинз (08.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+Американцы / The Americans  (2014) WEB-DLRip (Сезон 2, Серия 01-13 (13)) (NewStudio)
 
->>Спорт и активный отдых
->>Хоккей
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-9 февраля 2022, среда. 03:00 МСК
-Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:13
+История о сложном браке двух агентов КГБ, которые под видом американцев заселяются в пригород Вашингтона сразу после того, как президентом избирают Рейгана. Подставной брак Филлипа и Элизабет с каждым днем становится все более настоящим и эмоциональным, несмотря на эскалацию холодной войны и опасные отношения, которые они должны поддерживать с сетью шпионов и информаторов. (   Читать дальше...   )Жанр: Боевик, триллер, драма, криминалРежиссер: Адам Аркин, Гэвин О’Коннор, Томас ШламмиАктеры: Мэттью Риз, Кери Рассел, Аннет Махендру, Холли Тейлор, Роман Блат, Пол Джуд Летерски, Марми КосикоПеревод: Многоголосый закадровый, профессиональный (NewStudio)Продолжительность: ~00:47:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DCB8E94347A25E00EABDD65E9E08ADC3825048B
+magnet:?xt=urn:btih:DA7A94821DB7F0766DE1F5619148FBC951B8BFE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,271 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021739   (730939) от 31.05.2016
+###  Публикация: 1528980   (733586) от 04.02.2022
 
-Валентин Прозоровский | Домашняя аптечка (2015) [MP3]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человеку без лекарств не обойтись. Каждый может получить в домашних условиях травму, у каждого может заболеть голова или зуб, подняться температура или начаться расстройство желудка. В этом случае выручит домашняя аптечка — аптечка „на всякий случай“. Какие лекарства должны там быть? Как оказать своим близким и самому себе первую доврачебную помощь?Жанр: Научно-популярная медицинаПродолжительность: 08:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270863C969AD2C3E90AD4502A29A9EDB81672AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284043   (730938) от 19.02.2019
-
-Мамульки Bend - Письма счастья (2019) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730938.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Поехали
-2. Альпочино
-3. Заработал денег
-4. Диалог(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EBEF4B442A3763B6E796C871C73955648BE0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530089   (730937) от 09.02.2022
-
-Хоккей. НХЛ 2021-2022. Коламбус Блю Джекетс - Вашингтон Кэпиталз (08.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730937.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 февраля 2022, среда. 03:00 МСК
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690580A8429FF1485DF49DFF0231B8442F52987B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021718   (730936) от 31.05.2016
-
-Анатолий Бирюков | Лечебный самомассаж (2015) [MP3]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лечебный самомассаж - неотъемлемая часть комплексного лечения больных с различными повреждениями и заболеваниями. Научными наблюдениями установлено благотворное действие самомассажа при различных заболеваниях. Самомассаж необходимо применять во всех случаях, когда нужно усилить приток питательных веществ, улучшить обмен веществ в тканях, добиться рассасывания при (   Читать дальше...   )Жанр: Медицина, массаж, физиотерапияПродолжительность: 03:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB1BEFF6E7D7ADE6D0377544EEB6194F33E7621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284079   (730935) от 19.02.2019
-
-reaConverter Pro 7.478 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730935.jpg" />
-</div>
-
-
-###  Подробнее
-
-reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
-Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A651748B71314F2F38B2EE3C62D96C40E5FC4599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127768   (730934) от 22.04.2017
-
-VA - Весенние заводные хиты. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730934.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna D - Под Макияжем 3:11
-002. Дмитрий Первушин - Поиск 3:00
-003. Mainstream One - Нам Солнце Светит Ярче 3:00
-004. Ost Up (Остап) - Раздень Свою Музыку 4:06(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D47E4AFBDE5DDB878C76BE63AF2DBDB2456A4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324952   (730918) от 17.04.2011
-
-Новый Ералаш. Часть - 2 (2011.04.16) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский юмористический киножурнал об историях, которые случаются с ребятами в школе и дома,во дворах и на улице. Поучительные кинозарисовки прививают молодому поколению любовь и уважение к сверстникам и окружающим.Жанр: ЮморПродолжительность: ~ 00:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBFE864764A1B12E7E11204F20D75F7C45E888E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324891   (730915) от 17.04.2011
-
-Журнал | Playboy [South Africa] №4 [2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44E8126F4334AEBAF654D489EB1AA4D027B472D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324950   (730909) от 17.04.2011
-
-Новый Ералаш. Часть - 1 (2011.04.16) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский юмористический киножурнал об историях, которые случаются с ребятами в школе и дома,во дворах и на улице. Поучительные кинозарисовки прививают молодому поколению любовь и уважение к сверстникам и окружающим.Жанр: ЮморПродолжительность: ~ 00:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79FAF86BB3EDE6DF910801B8CAE56DE5C35A66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530014   (730902) от 09.02.2022
-
-Makoto Ozone - Pandora (2000) Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Count Basie And His Orchestra - Swingin' At The Chatterbox (1937) 2001, Stardust Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. You Never Tell Me Anything! [5:16]
-02. Lullaby for Rabbit [5:24]
-03. Reunion [5:47]
-04. Sofi [5:10](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:46
+01. Shoe Shine Boy [3:58]
+02. Oh, Lady Be Good [4:43]
+03. St. Louis Blues [5:26]
+04. Tattersfield Stomp [2:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:39:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F0AECC3FE67E6E7AC50A969C7679ED033098E33
+magnet:?xt=urn:btih:3D5C9C15EF6CABEF95DF53B154ECD2258635F4B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,257 +161,569 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529831   (730901) от 09.02.2022
+###  Публикация: 1529053   (733585) от 04.02.2022
 
-VA - Divas of Pop Lounge - Smooth Breathtaking Vocal Selection (2018) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Lagoona, Nora Jaxas - Be as I Am (Soulful Pop Mix) (4:00)
-02. Chilhouette - The Meaning (4:43)
-03. Bossana - Call Me (4:51)
-04. Soul Magnet - Living for the Moment (Radio Version) (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A864F8A28DE6B4B6ACAAE92F2F2DC1FCA6E9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530005   (730900) от 09.02.2022
-
-VA - Chillout & Lounge Classics, Volume One (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leisure Pleasure - Grape Leaves (5:54)
-02. Diario - The Love That Remains (6:01)
-03. Aqua Mundi - Chuchaqui (5:47)
-04. Crossing Colors - Bright Sun Rays (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891C8101FD33DFD588D47FAF3EB6C14CD162F8CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529999   (730899) от 09.02.2022
-
-Blank & Jones, Julian & Roman Wasserfuhr - Relax - Jazzed 1 (2012) [AAC|~324 Kbps] <Jazz, Chill Out, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Life (Jazzed) (2:57)
-02. Perfect Silence (Jazzed) (5:39)
-03. Relax (Your Mind) (Jazzed) (6:24)
-04. Hideaway (Jazzed) (5:48)(   Читать дальше...   )Жанр: Jazz, Chill Out, LoungeПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19437559F4B9DBCBAA7F8803686DA20716B87C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529763   (730898) от 09.02.2022
-
-VA - Cooked, Vol. 3 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo Herrmann - Green Earth (2:15)
-02. Living Room - Waikiki Beach Dreaming (Short Dreaming) (1:42)
-03. Area Code 51 - Chasing Stars (3:14)
-04. Chillson - It s Allright (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Smooth JazzПродолжительность: 01:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A1ED8060E7998D02D3FF91A3346384DA37FADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530009   (730897) от 09.02.2022
-
-VA - Ibiza Sunset Disco Session, Vol. 1 (2022) [AAC|~322 Kbps] <House, Nu Disco, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy P - Last Knockers (Mr. Tea Remix) (6:42)
-02. Jayl Funk, Quincy Jointz, Georges Perin - Give Me Love (4:11)
-03. Lakeshouse - Firkanta (6 AM Sensual Dub Mix) (9:59)
-04. The Funk District - Let's Rock Some More (Original Mix) (7:07)(   Читать дальше...   )Жанр: House, Nu Disco, Deep HouseПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B44C21468D2234C4645324BDDF850BB196A64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529770   (730896) от 09.02.2022
-
-VA - Trance 2021 Top 100 (2022) [AAC|~327 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Allen, Paul Skelton, Deirdre McLaughlin - Fairytales (3:41)
-02. 4 Strings, Trance Classics, Ellie Lawson - Safe From Harm (Omar Sherif Remix) (3:23)
-03. Michael Angelo, Solo - Every Time We Said Goodbye 2021 (3:31)
-04. Bixx - The High Road (3:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C03789068EACB2C9F45A229B5A0E0E1A67EF9AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530000   (730895) от 09.02.2022
-
-Dave Liebman Expansions - Selflessness: The Music Of John Coltrane (2021) Dot Time Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Day [7:46]
-02. Compassion [5:37]
-03. My Favorite Things [8:40]
-04. Ole [7:52](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A809C062D6CAED087042325915E786C604BE502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529891   (730894) от 09.02.2022
-
-Cafe De Anatolia, Professor - Ethno World (2020) [AAC|~294 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Professor - Sabali (5:19)
-02. Professor - Koio (5:24)
-03. Professor - Nedelja (6:45)
-04. Professor - Sacred Touch (7:08)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 02:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80526B141EAB6404B447ED8E8BE5B137C87DB2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530121   (730893) от 09.02.2022
-
-Кунигунда встречается с семьёй / Cunegonde recoit sa famille (1912) DVDRip
+Джон Банни. Тяжба Сьюзен / Suing Susan (1912) TVRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Этот совсем небольшой ролик из некогда очень известной серии фильмов про Кунигунду. Героиня этих фильмов - нелепая, неуклюжая, невезучая и безумно смешная дамочка, которая вечно попадает во всякие забавные ситуации. В этом ролике она в роли горничной, которой нужен отгул, чтобы повидаться с родственниками. А для этого надо сделать уборку в доме. Родня ей помогает. (   Читать дальше...   )Производство: Франция, Lux Compagnie Cinématographique de FranceЖанр: Комедия, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Little ChrysiaПеревод: Немой с интертитрамиСубтитры: Голландские интертитры, русские отдельным файломПродолжительность: 00:05:44
+История о непростых взоимоотношениях соседей - старой девы и старого холостяка. Как символ этих сложностей забор между их участками. Похоже на наши дачные конфликты?Производство: США, Vitagraph Company of AmericaЖанр: Комедия, короткометражный, немое киноРежиссер: Лоуренс ТримблАктеры: Джон Банни, Флора Финч, Джеймс Моррисон, Дороти КеллиПеревод: Немой с интертитрамиСубтитры: Голландские интертитры, русские встроенные отключаемыеПродолжительность: 00:12:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96A7F8B09C4C4614EFDA95B4F76638628B308B89
+magnet:?xt=urn:btih:FE42F20B0A40BBFFD759FED61F124B8A637C586B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529048   (733584) от 04.02.2022
+
+Redstacks - Revival Of The Fittest (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Группа была основана Джеффри Реветом(ex-STREAM OF PASSION) и Юке Вестерхофом в 2018 году. К ним присоединились барабанщик Tim Beutel
+(Weitere) и басист Роб ван дер Лоо (EPICA, экс-DELAIN). В записи альбома
+приняли участие гостевые музыканты: Paul Adrian Villarreal (A DYING
+PLANET, Ex-SUN CAGED), Martin van der Starre, Jan Willem Ketelaers(   Читать дальше...   )01. Overture 1848
+02. Oceans
+03. Jealousy
+04. Dreamworld Junkie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529057   (733583) от 04.02.2022
+
+Клоун Коко и магия / KoKo's Magic (1928) TVRip [H.264]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Шутки Клоуна КоКо с волшебным порошком.Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские встроенные отключаемыеПродолжительность: 00:06:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528639   (733582) от 04.02.2022
+
+VA - For The Users Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Elevate the Sky - Forged In Neon (4:20)
+02. DeltaCity - StarKiller (5:16)
+03. Palm Lakes - Nothing To Me (4:04)
+04. Megatronix - Notorious (5:54)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C55B4B6F68448018FFDC6EC26B1E583660F13D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528978   (733581) от 04.02.2022
+
+VA - Colored Clouds 2: Electro House Session (2022) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот релиз объединяет в себе самые яркие и модные новинки электронной сцены наступившего нового года. Иконы танцевальной музыки объединили свои усилия для создания насыщенной энергией и позитивом коллекции треков.001. Tommy Baynen - Signs Of Dark Matter
+002. L.Gu - Outlook
+003. J Apollo - Modular
+004. Bachir Salloum - Aurora(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17B5B58AB5E5ECE4462BB749518AC0CBFF04FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528950   (733580) от 04.02.2022
+
+VA - Dancing Beat: Fitness Funky Session (2022) [MP3|320 Kbps] <Funky House, Disco House, Electro>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Занятия спортом и музыка — для большинства вещи, друг от друга неразделимые. Особым образом это относится к фитнесу, где темп играет едва ли не основную роль. В предлагаемом сборнике предлагаем Вам высококачественную подборку плейлиста для занятий физическими тренировками и оздоровительными программами.001. Angel Moraes - Silicon Rain
+002. Franko Ferreri - Dancing Beat
+003. Mona Vale - You've Got Me
+004. Gregor Botteghi - Better(   Читать дальше...   )Жанр: Funky House, Disco House, ElectroПродолжительность: 09:02:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528952   (733579) от 04.02.2022
+
+VA - Dancing In Space: Future House Music (2022) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Заглавной темой музыки сборника "Dancing In Space" является фантастика и космические путешествия, и многие треки этого лонгплея вполне подошли бы в качестве саундтрека для космических сиквелов кинематографа. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам сборника.001. Mas Ricardo - Techtribe
+002. Oh, Hayir! - Ravens
+003. Staffan Lindberg - The Orbit
+004. Gianfranco Echandia - Two Cats(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 11:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B555426BC473AE996746258C9097C8088096D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528851   (733578) от 04.02.2022
+
+Сергей Михалков | Весёлый дом (1965) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов Сергея Михалкова, а так же стихи иностранных авторов в его переводе.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528976   (733577) от 04.02.2022
+
+VA - Dreaming Of Better Day: Deep House Playset (2022) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Dreaming Of Better Day", это отличная подборка треков в стиле Deep House! Впечатляющие басовые линии в сочетании с чистотой синтезатора, ритмы с некоторой долей прогрессива делают такую музыку привлекательной для поклонников этого, наверное, самого популярного жанра электронной музыки.001. Riky Mura - Get Alone
+002. Tamas Skafar - Farewell Gift
+003. Joiodj & Chanelle - My Heart's Not Free
+004. Marcel Vogel - Why Don't You Leave Me(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D955EE6161527E0D45DCBD4C1F2AED0608CF7D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528773   (733576) от 04.02.2022
+
+Saxon - Carpe Diem (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <NWOBHM, Heavy-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Carpe Diem (Seize The Day) 04:42
+02. Age Of Steam 04:08
+03. The Pilgrimage 06:28
+04. Dambusters 03:19(   Читать дальше...   )Жанр: NWOBHM, Heavy-MetalПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F311F51B528AD16455B2DC003A313422CB9916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528961   (733575) от 04.02.2022
+
+VA - Brighter Nights: Deep House Dreaming Megaset (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Если вы отдаете предпочтение жанру Deep House, то этот сборник подойдёт вам по всем параметрам. Удивительно сфокусированная коллекция эксклюзивных треков, делает лонгплей под названием «Brighter Nights» набором, который поможет вам утолить свой эстетический музыкальный голод.001. Audiense - July Sunset
+002. Ed Lee - I Got U
+003. Bemannte & Brüder - Brighter Nights
+004. Dott Santafeo - La Forcina(   Читать дальше...   )Жанр: Deep House, Soft ElectroПродолжительность: 13:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949317BFF88F05D1AA09186FA1829CD80FA3706A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528966   (733574) от 04.02.2022
+
+VA - E-Dance: Clubbing Electro House (Vol.07) (2022) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отплясали разноцветными огнями новогодних ёлок праздники и уже пора подводить итоги музыкальных новинок прошедшего праздника, что мы и можем наблюдать в представляемом 7-м релизе "E-Dance: Clubbing Electro House". Кульминация самых популярных танцевальных хитов, за которые голосовали слушатели всего мира.001. Coke Montilla - Show Me What Love Is
+002. Milena Badcock - Butterfly
+003. Darren Glancy - Pill Of Love
+004. Lau Kid - By The Fire(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 07:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AD5F5E2470503410F7598820F41675AED87A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528946   (733573) от 04.02.2022
+
+VA - Ambient Aqua Form (2022) [MP3|320 Kbps] <Ambient, Downtempo, Relax, Meditation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Гипнотичный лонгплей наполнен неяркими миражами фанк-балеарики, интроспективным пинкфлойдовским грувом и романтичным эмбиент софт-эхом, словно идеальный саундтрек для несмелых бликов зимнего безмолвия. Одно мгновение — и вы уже по ту сторону стены, сидите на пляже с бутылкой прохладного пива и наблюдаете за целующими горные массивы приливами.001. Anders Brørby - Long Weekend
+002. Germind - Guaava
+003. Mind Over Midi - Waves And Intervals
+004. Troth - Forge Fabric(   Читать дальше...   )Жанр: Ambient, Downtempo, Relax, MeditationПродолжительность: 13:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EEBD4A61557F14F3502538CD2C5AE7E140E4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528862   (733572) от 04.02.2022
+
+Crystal Ball - Crysteria (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CRYSTAL BALL - швейцарская Melodic Power Metal группа.
+"Crysteria" - одиннадцатый полноформатный альбом CRYSTAL BALL, вышедший 28-го января 2022-го на Massacre Records. Продюсированием, сведением и мастерингом "Crysteria" занимался Стэфан Кауфманн, бывший барабанщик ACCEPT и гитарист U.D.O., работавший с альбомами групп VANIZE, EMPIRE и ACCEPT, (   Читать дальше...   )01. What Part Of No 03:54
+02. You Lit My Fire 03:58
+03. Call Of The Wild (Feat. Ronnie Romero) 03:14
+04. I Am Rock 03:16(   Читать дальше...   )Жанр: Hard Rock,  Heavy MetalПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B6117FB5A2639D8AFB338FFDE2CA3EACD865D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529045   (733571) от 04.02.2022
+
+ППК - Перезагрузка (2002) [AAC|~350 Kbps] <Electro>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Перезагрузка (Space Club Mix) (9:39)
+02. Перезагрузка (Melodica Remix) (8:44)
+03. Перезагрузка (Trailer Trash Remix) (7:43)
+04. Русский транс (Club Edit) (6:46)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FD0BC0E3145061C01C9169BB688F67D0E60636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528968   (733570) от 04.02.2022
+
+Diana Ross & The Supremes - Baby Love (1973) Compilation 1963-1966, Czechoslovak pressing [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Baby Love (P) 1964
+A2 (I'm So Glad) Heartaches Don't Last Always (P) 1965
+A3 Ask Any Girl (P) 1964
+A4 Mother Dear (P) 1965(   Читать дальше...   )Жанр: SoulПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781F141E8F72A0370848ACD82AC6439534ACCC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528986   (733569) от 04.02.2022
+
+Сайонара / Sayonara (1957) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Джеймса Миченера. Майора Ллойда Грувера, героя авиации, переводят из Кореи в Японию. Он противник межрасовых браков, в том числе брака его сослуживца Джо Келли, решившего жениться на японке. Тем не менее, по просьбе Джо, майор становится свидетелем на их свадьбе. У Ллойда не складываются отношения с Эйлин Уэбстер, дочерью генерала; у (   Читать дальше...   )Производство: США, Pennebaker Productions, William Goetz ProductionsЖанр: драма, мелодрамаРежиссер: Джошуа ЛоганАктеры: Марлон Брандо, Патриция Оуэнс, Джеймс Гарнер, Марта Скотт, Миико Така, Миёси Умэки, Ред Баттонс, Кент Смит, Дугласс Уотсон, Рэйко КубаПеревод: профессиональный многоголосый (SomeWax), профессиональный двухголосый (НТВ+ ( Елена Борзунова и Олег Мартьянов))Субтитры: русские, английские SDHПродолжительность: 02:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1192A028BF1174D52515DE460234987A3A5DB7A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528958   (733568) от 04.02.2022
+
+Пол Тремблей | Голова, полная призраков (2021) [MP3, Вероника Райциз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+15 лет назад.
+Жизнь семьи Барретт рушится, когда они узнают о диагнозе своей четырнадцатилетней дочери Марджори. У девочки все признаки острой шизофрении, и, к отчаянию родителей, врачи не в силах остановить ее безумие. Тогда Барретты обращаются к священнику, который предлагает провести обряд экзорцизма, веря в то, что в Марджори вселился демон. А чтобы покрыть бесконечные (   Читать дальше...   )Жанр: Мистический триллерПродолжительность: 09:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5DB7E06537C23D086DC14DEA7DBEBA7FE30CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528974   (733567) от 04.02.2022
+
+VA - Best New Hype: Deep Tech House (2022) [MP3|320 Kbps] <Deep, Tech House, Electro>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя бесконечные возможности электронной музыки со сборником Best New Hype. Музыка представляемого сборника, по сути является экспериментальной и слушать ее - это как исследование творческого процесса современных музыкантов-новаторов.001. Funkwise - Swing High
+002. Venice Monster Pets - Not Your Hands
+003. Tlazohtla - Profundidades
+004. House Nerds Sa - Yorubas In Amazon(   Читать дальше...   )Жанр: Deep, Tech House, ElectroПродолжительность: 09:52:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528943   (733566) от 04.02.2022
+
+Пётр Налич - Vivamus (2022) [MP3|320 Kbps] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+1. Izza Love
+2. Sampo
+3. Бури
+4. За море(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081F19AD8D8AE6BCBC1944823CE5792E5C96753F
 ```
 
 https://mybot314.ru/tekegram_catalog/

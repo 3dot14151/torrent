@@ -1,3 +1,81 @@
+###  Публикация: 1728732   (53848) от 09.06.2024
+
+Российские ТОПО карты (ex. Советские военные карты) PRO v7.2.3 Mod by Nik2001Nik3006 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это приложение для навигации по бездорожью по мировым топографическим картам (главным образом – карты советского генштаба). Кроме русских, есть еще много других подробных и актуальных карт, ортофотопланов и слоев. Несмотря на то, что большинство российских карт в приложении датируются еще 80-ми годами, они отчасти все еще остаются наиболее точными картами для многих (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 01.02.2024Разработчик: ATLOGIS Geoinformatics GmbH & Co. KGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64609EA5A59E5891ADA97C80F6F65A7603485666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723123   (53837) от 09.06.2024
+
+SnapEdit - AI photo editor v6.4.4 Mod by Oflarm, 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / Mod + CloneРелиз состоялся: 07.06.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111435733E749D37E01FDC88EB799A0BB3F33FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729071   (53833) от 09.06.2024
+
+Погода & Радар Pro / Weather & Radar Pro 2024.12 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Weather & Radar - приятное в использовании и полезное в повседневности приложение, что обеспечит пользователями точной, своевременной и актуальной информацией о погоде. Они смогут не только получать данные запустив программу, но и вывести виджет на главный экран и задать ему необходимые параметры. Ну а во включённом режиме человек сможет не только смотреть прогноз (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.06.2024Разработчик: WetterOnline GmbHПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2578BC948FB08B11D2F29286287B0254157D2385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729074   (53826) от 09.06.2024
 
 Погода & Радар Pro / Weather & Radar Pro 2024.12 Lite-Mod by -PARAZIT- [Ru/Multi]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ WhatWeather - Метеостанция 1.18.6-pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Windfinder Pro: Wind & Weather 3.33.1 ROOT-Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Weatherzone: Weather Forecasts 7.3.0 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Clime: Прогноз погоды и Радар / Clime: NOAA Weather Radar Liv
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Windfinder Pro: Wind & Weather 3.30.2 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Breezy Weather - прогноз погоды 5.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Weather Underground - прогноз погоды 6.17.0 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ MX Player 1.85.1 Mod by AjeethK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Before Launcher | Go Minimal 7.5.0-1172052821 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Nova Launcher Prime 8.0.18 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Knots 360 Pro (3D) v2.8 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +529,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by cvvar00 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +555,7 @@ PicWish: AI Photo Editor v1.6.15 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +582,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +634,7 @@ BitTorrent Pro - Torrent App 8.2.7 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE846AB3196C94B80E2ADBD59BDDF1E2B62F144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730762   (53038) от 17.06.2024
-
-BIG Launcher 5.3.0 Mod by TryRoom [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53038.jpg" />
-</div>
-
-
-###  Подробнее
-
-BIG Launcher - хорошо проработанный и очень полезный лаунчер для пожилых людей, плохо видящих и их родственников, что беспокоятся о них. Проект превращает экран смартфона в рабочее пространство с только нужными элементами. При этом они могут похвастаться узнаваемыми пиктограммами и впечатляющими размерами. А значит любой сможет распознать их и выбрать в случае необходимости. (   Читать дальше...   )Тип издания: FullРелиз состоялся: 12.06.2024Разработчик: BIG LauncherПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6D18D423A70270B27F04537AB031255B5F6383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730659   (53037) от 17.06.2024
-
-Виджет Яндекса / Yandex Widget 1.15.0.794 (ARM64) Mod by dag-05 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яндекс представляет бесплатный виджет для Android, который может запускать голосом приложения и диктовать запросы для поиска в интернете. Пользоваться поисковой строкой с подсказками и быстрыми ответами. Получать актуальную информацию о погоде, пробках и курсах валют и следить за временем и зарядом батареи.Тип издания: ModРелиз состоялся: 22.10.2023Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 4.2+ (Только для ARM64)Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C91BC44982EC49EAADDA2BC5BEAC19A5693EFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730793   (53027) от 17.06.2024
-
-Pro PDF Reader v1.0.8 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro PDF Reader - это удобное и мощное приложение для чтения электронных книг, документов и файлов в формате PDF прямо на вашем телефоне. Наша читалка сочетает в себе простоту использования с богатым набором функций, делая процесс чтения легким и увлекательным. Простой и быстрый инструмент для просмотра документов, сохранёных в формате .pdf. В наличии возможность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.06.2024Разработчик: Android Tools (ru)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1092624   (938098) от 12.01.2017
+
+Darkest Dungeon (2016) [Ru/Multi] (16708) SteamRip Let'sPlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Darkest Dungeon — сложная пошаговая ролевая roguelike-игра с готической атмосферой, в которой приключения персонажей сказываются на их душевном здоровье. Вам предстоит собрать, обучить и возглавить команду героев, у каждого из которых есть свои недостатки.Тип издания: SteamRipРазработчик: Red Hook StudiosЖанр: RPG (Rogue, Action)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865BC18F8DF179A441A63389501B8D3517C7CC76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628324   (936097) от 10.03.2013
+
+Sword of the Stars: The Pit [En] (L) 2013 | COGENT
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Игра создается по мотивам серии космических стратегий Sword of the Stars. По сюжету игрокам предстоит спасти планету от ужасной эпидемии, и для этого главному герою предстоит отправиться в недра древней лаборатории пришельцев, чтобы отыскать заветное лекарство.(   Читать дальше...   )Тип издания: ЛицензияЖанр: RPG (Rogue/Action) / Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F66D7977B6F182654190BE271F584C4344467E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092797   (934699) от 14.01.2017
+
+Transistor (2014) [Ru/Multi] (1.42500) SteamRip Let'sPlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Transistor — научно-фантастическая игра в жанре Action RPG от создателей Bastion, в которой вам предстоит путешествовать по завораживающему футуристическому городу, защищая свою жизнь при помощи невероятного оружия неизвестного происхождения.Тип издания: SteamRipРазработчик: Supergiant GamesЖанр: RPG, Action, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5720BCE7BD7BF1873EFB562DB83DA0003F80ADE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365170   (931490) от 06.03.2020
 
 ARK: Survival Evolved (2017) [Ru/Multi] (306.41/dlc) Repack xatab
@@ -6,7 +84,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (306.41/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Nioh (2017) [Ru/En] (1.21.06/dlc) Repack xatab [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Torn Tales (2017) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Guild of Dungeoneering (2015) [En] (1.06) SteamRip Let'sРlay [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.6/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Titan Quest (2016) [Ru/En] (2.9mphf/dlc) Repack xatab [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.07) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Tyranny (2016) [Ru/En] (1.0.4.0048/dlc) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +448,7 @@ We Are The Dwarves (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Sword of the Necromancer (2021) [Multi] (2.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +526,7 @@ NEO Scavenger (2014) [En] (1.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Surge 2 (2019) [Ru/Multi] (1.40405.1/dlc) License GOG [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (7256917) License DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Cthulhu Saves Christmas (2019) [En] (2.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BE43847DC74525A8021294C6CEF9E163980B13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099822   (902572) от 02.02.2017
-
-The Sorceress (2017) [En] (1.0) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902572.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из сказочных королевств создания темных сил нападают на жителей. Чудовища появляются внезапно и так же внезапно исчезают.Никто до сих пор не знает кто они, кто их ведет и откуда взялась такая напасть.В борьбе с полчищами нежити и чудовищ пали лучшие рыцари королевства.Королевская армия разбита, большинство замков в руинах. Уцелевшие выживают как могут, но (   Читать дальше...   )Тип издания: LicenseРазработчик: Karabas_StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF285C9CAC645E0C442FC2C760F4D3EED2BC8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100049   (900664) от 03.02.2017
-
-The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.4.2.0.8) SteamRip Let'sPlay [Special Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900664.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls V: Skyrim Special Edition - это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все официальные дополнения к игре, вышедшие до момента релиза Special Edition.Тип издания: SteamRipРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03FA383C1346CEFAF6189F7BB712DFDD71554303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992500   (900273) от 02.03.2016
-
-Trulon: The Shadow Engine (2016) [Ru/Multi] (1.0) License FANiSO
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trulon: The shadow engine - приключенческая ролевая игра с уникальной боевой системой от компании Kyy Games, основанная на карточной механике. Сюжет переносит в мир волшебства и магии, персонажам которого предстоит сразиться с большим количеством противников и раскрыть все заговоры о таинственной болезни. Игроков ждет более шести часов беспрерывной кампании, множеством (   Читать дальше...   )Тип издания: LicenseРазработчик: Kyy GamesЖанр: Logic, RPG, IsometricЯзык озвучки: -/-Язык субтитров: Русский, Английский, Немецкий, ФинскийЯзык интерфейса: Русский, Английский, Немецкий, Финский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3451BCCA69F598308835D1553A8ADC799B43EA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

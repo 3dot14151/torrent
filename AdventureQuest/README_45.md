@@ -1,3 +1,107 @@
+###  Публикация: 1327348   (376065) от 24.09.2019
+
+Palmyra Orphanage (2019) [Ru/En/Ch] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Palmyra Orphanage — это паранормальный хоррор от первого лица, в котором только скрытность и внимание помогут тебе выжить. Выбери тот финал, который они заслуживают. Раскрой историю приюта. И будь осторожен. В отдаленном уголке постсоветской России находится приют «Пальмира». Каким-то образом детский дом смог пережить развал страны и жуткую лихорадку девяностых. (   Читать дальше...   )Тип издания: LicenseРазработчик: Steppe Hare StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1505B6048AEE6FA13041259DB066176193D73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175776   (375853) от 19.10.2017
+
+The First Tree (2017) [Ru/Multi] (1.1) License RELOADED
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The First Tree — красивый квест от третьего лица, в котором переплелись две истории: лисы, пытающейся отыскать свою семью и мальчика, решившего найти отца. Игроки играют за лису, которой предстоит интересное и трогательное приключение. Что ждёт её, - возможно, она приблизится к источнику жизни или поймёт, что такое смерть? По мере развития сюжета, история мальчика (   Читать дальше...   )Тип издания: LicenseРазработчик: David WehleЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194405E376806DAF5333854C4D0B5FDCA19FD057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069267   (375349) от 03.11.2016
+
+Little Big Adventure 2 (1997) [Ru/Multi] (1.0) License GOG
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть приключенческого экшена Little Big Adventure отправляет геймеров в путешествие по планете Твинсун: здесь отважный Твинсен должен противостоять злобным пришельцам, похищающих волшебников и детей. Игроков ждут многие часы приключений, увлекательный сюжет, захватывающие сражения с опасными противниками и знакомство с новыми персонажами.Тип издания: LicenseРазработчик: Adeline Software InternationalЖанр: Adventure, Arcade (Platform), 3D, 3rd Person, IsometricЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA36B6F796A93E677D513A683ECDC3E0D5E3A626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254227   (374495) от 13.10.2018
+
+Lucid Dream (2018) [Ru/Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Lucid Dream — история о маленькой Люси и её путешествии в мир снов, чтобы спасти свою маму. Lucid Dream — многократно номинированная на различные награды, нарисованная вручную, яркая и эмоциональная приключенческая игра в жанре point-and-click. Ваша задача — помочь Люси найти способ излечить маму, и в процессе вы посетите много невероятных миров.Тип издания: LicenseРазработчик: Dali GamesЖанр: Adventure, Indie, CasualЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB1E59D4AD12CAFED1F2AAF5F96D450F0895BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949834   (374114) от 24.10.2015
 
 Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
@@ -6,7 +110,7 @@ Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Painted Memories (2016) [En/Tr] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Long Dark (2017) [Ru/Multi] (2.02) License GOG [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dummy Life (2017) [En] (1.0.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Inner World - The Last Wind Monk (2017) [Ru/Multi] (96894D) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Virginia (2016) [Ru/Multi] (1.02/upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ MIAZMA or the Devil's Stone (2018) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Rabbit Hole (2022) [Ru/Multi] (Build 9481229) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Shattering (2020) [Ru/Multi] (1.1.9/dlc) License GOG (обновляемая
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Intruders: Hide and Seek (2019) [Multi] (1.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dreamfall Chapters: The Longest Journey (2014) [Ru/En] (5.3.1.1) Repack xatab [S
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Fahrenheit: Indigo Prophecy Remastered (2015) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ The Park (2015) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ Jack Keane / Джек Кейн (2008) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +501,7 @@ The 9th Gate (2018) [En/Ch] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ Yomawari: Midnight Shadows (2017) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ The Longest Journey Dilogy (2000) [Ru/En] Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ Reah: Face the Unknown (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ GRIM - Mystery of Wasules (2017) [En/Tur] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,112 +668,6 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:373E1D0B3AF303F42416FBA54247C65441DBE3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177858   (359987) от 26.10.2017
-
-Shiver (2017) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы будете играть роль своенравного сына, отправившегося навестить своего стареющего отца в отдаленном доме перед его выходом на пенсию. В пути вы попадаете в аварию и оказываетесь на территории заброшенного национального парка Windy Oaks. Используя свои умения и упорство, вы должны найти способ связаться с помощью и убежать, прежде чем парк вас поглотит.Тип издания: RepackРазработчик: Kowai Sugoi StudiosЖанр: Adventure (Horror, Point-and-Click), PuzzleЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF81D35C189934813B44ED90B929DB373C7891FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417104   (359719) от 19.10.2020
-
-9 Monkeys of Shaolin (2020) [Ru/Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359719.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 Monkeys of Shaolin— настоящее возрождение культового жанра beat 'em up в духе классических игр старой школы. Если в детстве вы часами просиживали за домашней консолью SEGA или Dendy, круша врагов направо и налево, то новый проект от создателей жесткой и бескомпромиссной игры REDEEMER наверняка придется вам по душе!Тип издания: LicenseРазработчик: Sobaka StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3128F9F80DB65BFD65CFC37E1699D8AA3F5610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071555   (358846) от 10.11.2016
-
-The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город охвачен ужасом. Загадочный серийный убийца оставляет после себя след из трупов, насмехаясь над беспомощностью властей. Но все эти убийства, кажется, как-то связаны с «Серебряным делом», которое двадцать лет назад унесло жизни многих политиков. Неужели неуловимый Камуи Уехара вернулся? И если да, то почему же тогда убийства прекратились двадцать лет назад?Тип издания: LicenseРазработчик: Grasshopper Manufacture Inc., AGM PlayismЖанр: Приключенческие игрыЯзык озвучки: СимплишЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4DF16A9CAC1942D594D9FC2A742DF95B73210F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577740   (356990) от 19.11.2012
-
-The Fall: Mutant City [Ru/Ge] (RePack) 2011 | R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356990.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Fall: Mutant City - это продолжение вышедшей и завоевавшей сердца многих The Fall: Last Days of Gaia.
-
-Погрузитесь в угрожающую атмосферу The Fall и вступайте в борьбу за существование в мире, которым управляют деньги и оружие. Великолепные графические эффекты, увлекательный рассказ, а также неповторимая атмосфера The Fall: Mutant City помогут полностью погрузиться в незабываемое приключение.(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: НемецкийЯзык субтитров: РусскийЯзык интерфейса: Немецкий / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D901C869D04D50DEF87CF7F79F9F459D8AB17C6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

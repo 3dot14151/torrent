@@ -1,3 +1,81 @@
+###  Публикация: 1792160   (10837) от 21.07.2025
+
+Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Представляем Mandragora - сайд-скроллер в жанре «ролевой экшн» в 2,5D со множеством элементов «метроидвании» и «soulslike». Зажигай свой колдовской фонарь и отправляйся во тьму Энтропии, чтобы порвать эту реальность в клочья. Человечество пало под натиском монстров. Теперь народу Фельдума приходится скрываться за кирпичными стенами и заборами, отводящими внимание, (   Читать дальше...   )Тип издания: RepackРазработчик: Primal Game StudioЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DEF5F784906EE317D1A1D29D6C20C4D9F5A4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807851   (10821) от 21.07.2025
+
+Cyberpunk 2077 (2020) [Ru/Multi] (2.3/dlc) Repack FitGirl [Ultimate Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D3921BF7017490C74D546C3D0FD6F1E0694422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672600   (10730) от 22.07.2025
+
+Dark Envoy (2023) [Ru/Multi] (1.7.1.73935) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Dark Envoy объединяет классическую механику RPG с боевой системой, основанной на навыках, классах и специализациях, и сочетает ее с разнообразными тактическими вариантами подхода к сражениям. Вы управляете отрядом охотников за реликвиями в повествовании о судьбе, происходящей в раздираемом конфликтами мире. Что произойдет, если объединить силы Технологии и Магии? (   Читать дальше...   )Тип издания: LicenseРазработчик: Event HorizonЖанр: Ролевая игра, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE31C42B177CC798640FF02CA71CFFE09B31176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772842   (10715) от 22.07.2025
 
 The Rangers In The South (2025) [Ru/Multi] (3.0.3) Scene Tenoke
@@ -6,7 +84,7 @@ The Rangers In The South (2025) [Ru/Multi] (3.0.3) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.4.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.9.2) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2.s.de/dlc) Repack Let'sРlay [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack Wanterlude [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Let'sРlay [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Sur
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250731/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B901121EDB0D22793D91C81D7D84D22C22CC9637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772495   (9265) от 05.08.2025
-
-The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра The Last Flame представляет собой бесконечную игру-"рогалик" с функцией автоматического ведения боя, которая строится на принципах создания уникальных билдов, реализации неповторимой стратегии и принятии верных решений. В ходе каждого игрового раунда вам предстоит создавать неповторимые билды, чтобы покорить новые высоты и перейти на новые уровни, (   Читать дальше...   )Тип издания: RepackРазработчик: HotloopЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6C69334CD5467600A42A3BAFB0E54D0FB68EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810283   (9250) от 05.08.2025
-
-Captain Bones: A Pirates Journey / Пиратское Путешествие (2021) [Ru/Multi] (1.0.3) Repack AIexandro
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Captain Bones - это приключенческий боевик действие которого происходит в открытом пиратском мире. Вы должны обладать навыками выживания, чтобы участвовать в корабельных сражениях и охоте за сокровищами со своей командой. Морское приключение, события которого разворачиваются в открытом океане и на безлюдном острове. Требуется освоить навыки выживания, чтобы смастерить (   Читать дальше...   )Тип издания: RepackРазработчик: Saygın KarahanЖанр: Экшены, Приключение, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F760A31A1F85F5A5DC9F7FA58FE427AAF8FBDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765040   (9186) от 06.08.2025
-
-Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.229/dlc) Repack Let'sРlay [Voidfarer Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhammer 40,000: Rogue Trader – это изометрическая ролевая игра, сделанная по мотивам культовой вселенной Боевого Молота. Начните свое путешествие в первой cRPG в мрачной вселенной 41-го тысячелетия. Станьте Вольным Торговцем - наследником древней династии дерзких каперов, правящих собственной торговой империей и исследующих границы Империума с благословения Бога-Императора.Тип издания: RepackРазработчик: Owlcat GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99009FA0A92CFD4B44B29534B0B394342171076D
 ```
 
 https://mybot314.ru/tekegram_catalog/

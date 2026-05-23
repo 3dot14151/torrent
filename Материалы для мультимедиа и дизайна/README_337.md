@@ -1,3 +1,349 @@
+###  Публикация: 1436348   (137069) от 31.12.2020
+
+Векторный клипарт - New Year and Christmas illustrations in vector 45 [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год и рождество
+10 AI, EPS + previewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07360CACD34C20FA13EE82C53AB24DCAB8D8354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436349   (137067) от 31.12.2020
+
+Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector 46 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год и рождество
+10 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4042554C83CD0E2EC0AE17D4D05E22E6BE5B9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436406   (137063) от 31.12.2020
+
+Растровый клипарт - Car repair shop, tire fitting stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Автосервис, шиномонтаж, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4667x7000-7000x4667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8B8C2B65612DA930DB5ED9D91BFD65C24DBDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436350   (137056) от 31.12.2020
+
+Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector 48 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год и рождество
+10 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5323359FDA5B8CCBC1B8B93EC428E2C343314E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436360   (137053) от 31.12.2020
+
+Растровый клипарт - Purebred dog stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Породистая собака, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4667x7000-7000x7000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B89A93CC613F2FC31BE63200848B41BC289DF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436443   (137050) от 31.12.2020
+
+Растровый клипарт - Pretty woman doctor stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Красивая женщина-врач, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5592x6000-6000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90A75FAA6C43709CE0436AD883A45AAC5BAB664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601356   (137047) от 31.12.2022
+
+Футажи - VideoHive - Christmas Frame with Alpha - 40619429 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новогодняя рамка с ветками хвои и украшениями. Футажи имеют прозрачный фон.Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933F7180A3552FF1D4C7B552C92192E74B850E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824700   (136972) от 15.10.2025
+
+3D print - Stalyn Quito - October 2025 Models [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бюсты героев из комиксов от студии Stalyn Quito для ваших полочек.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3207B7FA4F995ABDBC8F161BFEF618867D7229EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824809   (136941) от 15.10.2025
+
+Шрифты - Behance - Svetlin Balezdrov - SOCIUM - 49044781 - Mod By He Rez AD [OTF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт представляет собой свежий взгляд на эстетику болгарского социализма, который запоминающимся образом интерпретирует достижения Баухауза. SOCIUM следует традициям болгарского типографского дизайна, умело сочетающего особенности болгарской кириллицы и принципы геометрического построения.
+В модификации от "He Rez AD" расширена кириллица (добавлена украинская, (   Читать дальше...   )Формат: OTF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B58CA052AFF5E1CA110E7751E4C64483BF7E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824872   (136913) от 16.10.2025
+
+Шрифты - JMN - Małgorzata Budyta - Kurier [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт без засечек, созданный Малгожатой Будитой из Варшавы в 1973 году.
+Проект был дипломной работой по типографскому письму в Академии изящных искусств в Варшаве. (Хелена Новак разработала еще один шрифт, Helikon, также в качестве дипломной работы.)Формат: OTF, TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5329A5AEE20E38EB995231002E25CF538FF2885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824923   (136909) от 16.10.2025
+
+Шрифты - YouWorkForThem - Monoxide Font - T28400 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь с Monoxide — жирным шрифтом с заглавными буквами, разработанным для того, чтобы ваши творческие проекты стали ещё привлекательнее. Благодаря шести уникальным вариантам высоты этот шрифт привносит яркую индивидуальность и энергичный ритм в заголовки, плакаты и логотипы. Его чистый, но лаконичный стиль гарантирует, что каждый дизайн будет не только привлекающим (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBB7CE03F73F3B7B13220E2B32529741DAC25C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824937   (136890) от 16.10.2025
+
+Футажи - Artlist - Byzantine French Church - 6006438 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Видеоматериалы с интерьером французской церкви.Формат: MOVРазрешение файлов: 1920x1080 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72166D27E6F9D0E2B64A49656DBBBFE175ADC470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824944   (136887) от 16.10.2025
+
+Шрифты - Envato - Roger & Lavienna - Ligature Serif - U7CYWCU [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Roger & Lavienna — классический и современный шрифт с засечками, содержащий множество великолепных лигатур, которые сделают ваш дизайн, презентацию или логотип ещё более впечатляющим и выделяющимся! Этот шрифт также содержит стильные звёздочки, которые сделают ваш проект ярче и интереснее. Чтобы открыть звёздочки, нажмите A+ (цифра от 1 до 5). Этот шрифт поддерживает (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49BF2C5EC10B60AD2E2830B3D20387B9B365F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824946   (136886) от 16.10.2025
 
 3D print - CA 3D Studios - Lord Drakkon [STL, LYS]
@@ -6,7 +352,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -333,352 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D3362CF1125D37E377505335AEC48E5FEA4CCCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825413   (136754) от 17.10.2025
-
-Фоны - Creative Market - Autumn Portrait Backgrounds - 5814806 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавьте тепла и красоты осени в свои портреты с нашими осенними портретными фонами. Эти изображения высокого разрешения представляют собой разнообразные тёплые и красочные осенние пейзажи, которые идеально подойдут для придания вашим фотографиям атмосферы времени года.Формат: JPGРазрешение файлов: 4857x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A114BD89253814DCA3914B5FB05D478E4765A5F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825418   (136751) от 17.10.2025
-
-3D модели - CGTrader - 1 - 200 OLD MEDIEVAL HOUSES BUILDINGS PACK 4K GameReady 3D Model Collection - 4091234 [FBX, BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136751.jpg" />
-</div>
-
-
-###  Подробнее
-
-200 средневековых зданий в одном наборе. Они с интерьером и готовы для интеграции в игры. Первоначально создано в Blender 3.1Формат: FBX, BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524D299303B0131E76DB7DE1BDFE15BA0BC56B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825525   (136731) от 17.10.2025
-
-Шрифты - MyFonts - Puyita [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда я был в Амстердаме в 2022 году, меня завораживали тосканские шрифты, украшавшие вывески кофеен, аптек и ресторанов. «Puyita», что по-испански означает «маленький шип», – моя первая интерпретация тосканских букв. Этот акцидентный шрифт, представленный в трёх различных стилях, сочетает в себе современный и деревенский стиль, предназначенный для брендинга и типографики. (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C25E047F02041A0A4B599D91404F19FEA9A879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825535   (136730) от 17.10.2025
-
-Пресеты - Myrtle & Moss - EVOKE - Presets + Essentials Pack [XMP, LRTEMPLATE, ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мои любимые инструменты редактирования в одном месте!
-
-Нет ничего лучше, чем делиться с вами всеми моими советами, приемами и инструментами в надежде, что это оптимизирует и ваш рабочий процесс! Этот пакет основных инструментов для редактирования включает в себя все, что я использую для цветокоррекции своих изображений, и даже больше. Основой этого пакета является (   Читать дальше...   )Формат: XMP, LRTEMPLATE, ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D886F374BB78F5BFEF59887D772D9A274470921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825549   (136725) от 17.10.2025
-
-Оверлеи - Creative Market - Light Leak Overlay Collection - 5414901 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы создали 20 фоновых изображений со световыми бликами, которые можно использовать для создания эффектов старых или винтажных фильмов. Мы объединили современные стили в этом дизайне фона, чтобы больше не скрывать впечатление от старых фильмов.Формат: JPGРазрешение файлов: 5000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D91D6B3B747F7F236475A6251B0171F69CEBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436380   (136683) от 31.12.2020
-
-Растровый клипарт - Young girls in beautiful underwear stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушки в красивом нижнем белье, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4912x7360-8000x7639
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE82DDD926E4B51E9F5E5F9919C72171614B25EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436448   (136680) от 31.12.2020
-
-Растровый клипарт - Stylish beautiful women stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые девушки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3319x3808-8000x8000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F051014C59613C9C20B7B7D3D3C4E3A70973A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436359   (136679) от 31.12.2020
-
-Векторный клипарт - Potato chips brand packaging different tastes design template [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фирменная упаковка картофельных чипсов
-7 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE421137A35A1183180CA27561B1EE97036C2F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436427   (136678) от 31.12.2020
-
-Растровый клипарт - Girl with dark curly hair stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая девушка, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2573x3648-5760x3840
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB7292F6681DE4665A9DB2904D63A2CD9F284CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436450   (136676) от 31.12.2020
-
-Растровый клипарт - Wedding, bride and groom stock photos [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свадьба, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4500x3000-5616x3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC51D8807E9CB4898460EAAE2CC5B0D52D723C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436352   (136674) от 31.12.2020
-
-Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector 51 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год и рождество
-10 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6BB17197EA39BD81DD7E28F45D151A0DEFC31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436444   (136673) от 31.12.2020
-
-Растровый клипарт - Fotolia - Repair tools stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструменты для ремонта с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2025x2695-6600x4664
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48047FA751EB5C9C95274A259A67D5AC97CF9F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436351   (136672) от 31.12.2020
-
-Векторный клипарт - New Year and Christmas illustrations in vector 49 [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год и рождество
-10 AI, EPS + previewФормат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1407F813BC19A4FBA6D5431302C934D777C49569
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1484286   (1006119) от 19.07.2021
+
+Группа Сентябрь - Ва-банк (2021) [MP3|320 Kbps] <Поп, шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 - Ва-банк
+02 - Звёздное танго
+03 - Капельки дождя
+04 - Ты неземная(   Читать дальше...   )Жанр: Поп, шансонПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9BD2FCAB2E5573229F149A424B4E454958B4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485183   (1005590) от 24.07.2021
+
+VA - Хиты блатного радио (2003) 2 Альбома [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. М. Шуфутинский - Налётчик Беня
+02. Воровайки - Форточки-замочки
+03. Беломорканал - Встречай
+04. М. Круг - Воробьи(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248A3216A413738EA660308F78DD7AF18065D8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485442   (1005271) от 26.07.2021
+
+Charles Aznavour - Hit-Collection (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. She
+02. I Have Lied
+03. In Times To Be
+04. Happy Anniversary(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9E48F0021C1431A2891CDB824938D2A916E6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485896   (1005090) от 28.07.2021
+
+Мчислав и гр. Малый рынок – Вспоминая Аркадия Северного (2005) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Блондинки, брюнетки, шатеночки
+02. Фотография
+03. Девочка в платье из ситца
+04. А я один сидю на плинтуаре(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF58A12A9CDC69B846E338DB84653E603F20038B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486466   (1004733) от 31.07.2021
 
 Олег Митяев - Лучшие песни (1999) [FLAC|Lossless|tracks + .cue]<Авторская песня>
@@ -6,7 +122,7 @@
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Свеча. Памяти вора Саши Оренбургского (2007
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -332,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -367,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -472,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -605,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -640,7 +756,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -675,7 +791,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -695,146 +811,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A0EA528EBFC6AF1D71FC61339BAB70A3F0435B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604130   (996477) от 17.01.2013
-
-Марина Александрова - Grand Collection (2011) [MP3|320 кб/с]<поп, шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Возьми меня замуж (4:00)
-02. Милый мой гаишник (3:16)
-03. Любишь, не любишь (4:00)
-04. День рождения (3:22)
-05. Непутевый (3:30)
-06. Ноль без палочки (3:49)
-07. В чем причина (3:32)
-08. Опоздала (3:44)
-09. Научи, как быть любимой (3:21)
-10. Золотая клетка (3:06)(   Читать дальше...   )Жанр: поп, шансонПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7556FBD93C591FF8CDC301F6A50F59DDCFA5C663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604598   (996062) от 18.01.2013
-
-Группа Тяни-Толкай - 2 альбома (2008, 2011) [MP3|320 кб/с]<поп, шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996062.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008 - Как же долго я тебя искал  (переиздание)01. Слабада (муз. Б.Мокроусов , сл. М.Матусовский ,пер.В.Мороз)
-02. Лада (муз. В.Шаинский , сл. М.Пляцковский)
-03. Да ох уе (муз. и сл. народные)
-04. Если любишь ты (муз. Ю.Антонов , сл. Л.Дербенёв)
-05. Мы маленькие дети (муз. Е.Крылатов, сл. Ю.Энтин)
-06. Клён (муз. Ю.Акулов ,сл. Л.Шишко)
-07. Это моя жизнь (муз. и сл. П.Клышевский,Jon Bon Jovi, Richie Sambora, Jay Orpin, Max Martin,Dr.Alban)
-08. Облака (муз. В.Шаинский ,сл. С.Козлов)
-09. 22 июня (с И.Афанасьевой) (муз. Е.Петербургский, сл. народные)
-10. Помнишь…(муз. S. Cutugno, V. Pallavicini сл. М.Косова)(   Читать дальше...   )Жанр: поп, шансонПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA128C16A31E6799DD62B4BC626C2E17520ABE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607529   (994385) от 23.01.2013
-
-V.A. - Французский поцелуй - Хиты Франции (2011) [FLAC|Lossless]<Pop>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yann Tiersen - La valse d'Amelie
-02. Virginie Ledoyen - Mon amour mon ami
-03. Zaz - Je veux
-04. Catherine Deneuve - Toi jamais"
-05. Patricia Kaas - Mademoiselle chante le blues
-06. Joe Dassin - A toi
-07. Francoise Hardy - Tous les garcons et les filles
-08. Edith Piaf - La vie en rose
-09. Charles Aznavour - La boheme
-10. Jacques Brel - Ne me quitte pas(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610804   (990208) от 29.01.2013
-
-Сергей Куприк - Лебедь белый (2013) [MP3|320 кб/с]<шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лебедь белый
-02. Так-так-так
-03. Хризантемы белые
-04. Босяцкая жизнь
-05. Желтые подсолнухи
-06. Для тебя
-07. Рука тяжелая, прохладная
-08. Враг или друг
-09. Рулетка
-10. Колокола(   Читать дальше...   )Жанр: шансонПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6901D2F590ED15114CFEEFD58EC360E211B5FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1528272   (734990) от 01.02.2022
+###  Публикация: 1526343   (737812) от 26.01.2022
 
-VA - Sicilian Lounge, Vol. 1 (2015) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+Евгений Кемеровский - Над cибирской тайгой (1998) [FLAC|Lossless|image + .cue] <Chanson>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael e - For Laurent (4:37)
-02. Newton, Jana Tarasenko - The Right Time (4:09)
-03. Johannes Huppertz - Bitter Symphonie (4:35)
-04. Living Room - Your Love (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:12
+01. Над сибирской тайгой (Е. Кемеровский - Я. Трусов)
+02. Золотая пора (В. Мельников)
+03. Капли дождя (Е. Кемеровский)
+04. Метелица (Ю. Мочман - И. Кохановский)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:55:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D688B15188166CE40CB7BAC9447DCF3E945B99E
+magnet:?xt=urn:btih:6424C89E8052C49E56FC2814E1E30BEC8C6EC919
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,26 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528381   (734989) от 01.02.2022
+###  Публикация: 1526877   (737811) от 26.01.2022
 
-GoodNotes 5 v5.7.60 [Multi/Ru]
+Giant - Shifting Time (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
-Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 01.02.2022Разработчик: © 2011-2022 GoodNotes LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+GIANT - American melodic rock baнда, 21 января 2022 года выпустила свой долгожданный пятый студийный альбом Shifting Time. К основателям группы David Huff (drums) и Mike Brignardello (bass), присоединились гитарист John Roth (Winger, Starship) и вокалист Kent Hilli (Perfect Plan), еще один основатель группы Dann Huff (lead vocals and guitar) появился в песне Never (   Читать дальше...   )1.Shifting Time (1:33)
+2.Let Our Love Win (3:58)
+3.Never Die Young (3:23)
+4.Don't Say A Word (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAC098D647F2CDFD2E00E5277D87003D0CDF8EBB
+magnet:?xt=urn:btih:743B1292685D4A796377EFD24BB217CB90ACF12A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,333 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528264   (734988) от 01.02.2022
+###  Публикация: 1526872   (737810) от 26.01.2022
 
-VA - ReCovered Hits, Vol. 3 (2010) [AAC|~332 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Far So Good - Jack and Dianne (4:05)
-02. Manly Ferry - Land Downunder (3:13)
-03. Soul Glow - Le Freak (3:33)
-04. Girls Club - Lets Get Loud (3:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E45D111461B4DB4FD93378DC40233CD7B37CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528285   (734987) от 01.02.2022
-
-VA - Bar Lounge Costes, Vol. 5 (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. sarosa - Elektra Glyde (Instrumental Mix) (3:49)
-02. Digby Jones, Airglo - Mello (Original Mix) (3:30)
-03. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)
-04. Marga Sol - Talk to Me (5:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, Nu JazzПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E06BDA7DE8FEF226F7B24B5653174318C93AF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528319   (734986) от 01.02.2022
-
-PCDJ DEX 3 v3.17.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734986.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCDJ DEX 3 - профессиональное программное обеспечение для DJ на macOS, которое позволяет легко микшировать музыку, музыкальные клипы и устраивать караоке-шоу. DEX 3 дает вам полный контроль над вашими медиафайлами, предоставляя больше творческой свободы при микшировании, чем когда-либо прежде. Благодаря нашему автоматическому микшированию ударов на основе сетки ударов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2006 - 2022 DIGITAL 1 AUDIO INCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECDE077B61E85062EFCFA8414CE0A8BF77613C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528256   (734985) от 01.02.2022
-
-Simon Le Grec - 25 Years Anniversary (Unique Music) (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is It Love (Radio Mix) (4:17)
-02. About Us (Radio Mix) (4:32)
-03. Blue Planet (Radio Mix) (3:35)
-04. Feelings (Piano Mix) (5:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FFCC5847B6EAF6CC549C125A2FDA71DD38BB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528268   (734984) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 4 (2010) [AAC|~338 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DREAD EFFECT - Play That Funky Music (4:17)
-02. The Sharons - Preacher Man (2:55)
-03. Manly Ferry - Pressure Down (3:45)
-04. DREAD EFFECT - Red Red Wine (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A4647A3C1A08EFC3A5D5AAA2F46472EFDC460C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528309   (734983) от 01.02.2022
-
-Artie Shaw - 1941 - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Time The Dream's On Me [3:34]
-02. Blues In The Night [3:15]
-03. Nocturne [3:36]
-04. Rockin' Chair [3:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2C10B314A2AF4B3A7A3D1ED7F7706000792D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528298   (734982) от 01.02.2022
-
-EdgeView 3 v3.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734982.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E053826771A8E405615CACEEF42295C93BF947A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528325   (734981) от 01.02.2022
-
-xScope 4 v4.5.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734981.jpg" />
-</div>
-
-
-###  Подробнее
-
-xScope — cоздан специально для дизайнеров и разработчиков. Приложение представляет собой мощный набор из десяти конфигурируемых инструментов, которые идеально подходят для измерения, проверки и тестирования на экране графики и разнообразных макетов. Инструменты xScope можно вызывать с помощью плавающей над рабочим столом инструментальной панели, строки меню и/или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2021Разработчик: © 2022 The Iconfactory and ARTIS SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B5AC6F3E44685D2DE1CD0E94CFD531EFD84DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528310   (734980) от 01.02.2022
-
-Dato 3.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2022Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF216973E3AB3F9A19067BDEC29D4C35A74DB1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528270   (734979) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 5 (2010) [AAC|~325 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bogan Bingo - Sweet Home Alabama (4:25)
-02. The Tainted Love - Tainted Love (2:54)
-03. Sensation Ltd - Tear Drops (4:40)
-04. Sensation Ltd - That's the Way (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B8681083373F377D2F292272F3D48E47A30A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528260   (734978) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 2 (2010) [AAC|~328 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tango in the Night - Dreams (4:15)
-02. So Far So Good - Eagle Rock (4:13)
-03. JWL - Faith (2:37)
-04. Sensation Ltd - Funky Town (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DDBDA79FFAA3928181768183BA2129F51A6B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528323   (734977) от 01.02.2022
-
-VoodooPad 6 v6.0.0 [Multi]
+iBarcoder 3.12.11 U2B [Multi/Ru]
 
 >>Программы для macOS
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Если у вас очень много идей и мыслей, которые хочется где-то сохранять для будущих поколений для продуктивной и удобной с ними работы, вы наверняка давно пользуетесь программой с забавным названием VoodooPad. VoodooPad – как бы wiki, превращенная из веб-приложения в обычное приложение. В общем-то, это записная книжка, в которой можно хранить что угодно и как угодно. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2022Разработчик: 2004-2019 Primate Labs Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и Японский
+Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2022 Cristallight SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DAE2FB160800A4CFDD7E6F95116FEDCBDF4AABB
+magnet:?xt=urn:btih:6A63FA5F1E5EFDACE253C832CC23A7E1588F2284
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,26 +82,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528308   (734976) от 01.02.2022
+###  Публикация: 1526922   (737809) от 26.01.2022
 
-GoodTask 6.9.4 [Multi/Ru]
+Downie 4 v4.4.6 U2B [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
-GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 haha interactiveПоддерживаемая ОС: OS X 10.13+Язык интерфейса: Русский, Английский, Немецкий и другие
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6B3A67120693B8EAD15790D6D8B53221E464C15
+magnet:?xt=urn:btih:8DE331C0A716273F4C9E4BD151FE9BCF556148AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,28 +110,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528275   (734975) от 01.02.2022
+###  Публикация: 1526931   (737808) от 26.01.2022
 
-VA - Sexy Sax & Chill (2017) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
+VA - Sleep over to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Drifting Closer (Original Mix) (5:22)
+02. Michael E, Ashley Slater, Fabio Testa - Mind Games (Original Mix) (4:48)
+03. Leo de la Rosa, Iolanda Rodríguez - No Me Hagas Volar (5:46)
+04. Marga Sol - Deeper Love (Original MIx) (5:50)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032E2EAEB6D2993C8F9C78EA6A13C3D1F5F4EB0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526870   (737807) от 26.01.2022
+
+Exposure Software Snap Art 4 v4.1.3.392 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Snap Art 4 - этот плагин предназначен для превращения фотографий в картины и рисунки, нарисованные от руки различными стилями. Содержит большую библиотеку предварительных заготовок, которые дают возможность одним щелчком мыши создавать картины, написанные или нарисованные маслом, углем, акварелью, цветными карандашами, ручкой и чернилами, пастельными мелками, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 Exposure Software, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC248968153413DA1801DFBBD0974D37BB10F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526844   (737806) от 26.01.2022
+
+Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Circus Of Doom
+02. Wings Of Light
+03. Master Of Illusion
+04. Where Angels Fear To Fly(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18DFDBD10A00263CB09C707746B027B32BBBFBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526763   (737805) от 26.01.2022
+
+VA - Ностальгия по настоящему (вечер музыки Микаэла Таривердиева в кремле) (2021) [AAC|~288 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Delectable - Woman in Love (Extended Mix) (6:51)
-02. Guru Sax - People Can't Stop Chillin (Relax Mix) (5:59)
-03. Dial J for Jazz - The Smooth Soul of Life (Guitar del Mar Mix) (5:50)
-04. Saxlounger - Mousetrap (Sax My Brass Mix) (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Smooth JazzПродолжительность: 01:17:29
+01. Симфонический Оркестр Российского государственного Телерадиоцентра - Полет (5:20)
+02. Трио Меридиан - Ностальгия по настоящему (2:51)
+03. Тамара Гвердцители - Музыка (4:48)
+04. Сергей Никитин - Я к вам пишу (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EA569A8AF720E81095688376C50F23D4F24A1EC
+magnet:?xt=urn:btih:6D02B910BF99044DA4F42A6BFD204CFD2963A812
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,25 +223,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528414   (734974) от 01.02.2022
+###  Публикация: 1526840   (737804) от 26.01.2022
 
-Мэри Пикфорд. Амарилли с аллеи Клозес-Лайн / Amarilly of Clothes-Line Alley (1918) DVDRip
+Зал самоубийц / Sala samobojcow (2011) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Доминик - обыкновенный мальчишка. У него много знакомых, он дружит с самой красивой девочкой в школе, богатые родители, деньги на тряпки, гаджеты, развлечения, но однажды один поцелуй меняет всё. «Она» цепляет его в сети. Интригующая, опасная, хитрая. Вводит его в «Зал самоубийц», место, из которого невозможно убежать. Доминик, в ловушке собственных чувств, впутанный (   Читать дальше...   )Производство: Польша, Mediabrigade, Odra Film, Polski Instytut Sztuki Filmowej, ZRF "Kadr"Жанр: драма, мелодрама, триллерРежиссер: Ян КомасаАктеры: Якуб Гершал, Рома Гонщёровска, Агата Кулеша, Кшиштоф Печиньский, Бартош Гельнер, Данута Борсюк, Петр Новак, Филип Бобек, Кшиштоф Драч, Александра ХамкалоПеревод: любительский двухголосый (Макс Коллапс, Анна Полевская), любительский одноголосый (Василий Кошкин, с ненормативной лексикой)Субтитры: нетПродолжительность: 01:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CEF29A0A5EBB27A8DF7F5EE71D29B4B5F12924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526866   (737803) от 26.01.2022
+
+Burial - Antidawn (2022) EP [FLAC|Lossless|tracks + .cue] <Abstract, Dubstep, UK Garage, Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Neighbourhood (11:04)
+ 02. Antidawn (8:44)
+ 03. Shadow Paradise (10:21)
+ 04. New Love (7:14)(   Читать дальше...   )Жанр: Abstract, Dubstep, UK Garage, Ambient, ExperimentalПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A01D21E9B271E1A209880543831C4D991E51A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526926   (737802) от 26.01.2022
+
+Маг 2 / Neues vom Hexer (1965) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Название родной улицы героини Clothes-Line Alley можно перевести как "Аллея бельевых веревок". Говорящее название - простой район простых людей. Многодетная ирландская семья - шумная, веселая, драчливая, душевная. Как все. Мама прачка, сама Амарилли подробатывает уборщицей. "Дружит" с местным парнем. И вот судьба сталкивает её с Гордоном Филлипсом. (   Читать дальше...   )Производство: США, Mary Pickford CompanyЖанр: Драма, мелодрама, немое киноРежиссер: Маршалл НейланАктеры: Мэри Пикфорд, Уильям Скотт, Кейт Прайс, Ида Ватерман, Норман Керри, Фред Гудвинс, Маргарет Лэндис, Том Уилсон, Уэсли Бэрри, Фрэнк БаттерворфПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:06:29
+19-й фильм кинокомпании Rialto по произведениям Эдгара Уоллеса.
+На месте загадочного убийства лорда Кёртана найдена визитная карточка известного преступника Артура Милтона, по прозвищу Маг. Чтобы доказать свою непричастность к убийству, Маг отправляется в Лондон. Инспектор Уэсби, который не раз уже безуспешно пытался поймать преступника, верит в его невиновность (   Читать дальше...   )Производство: Германия (ФРГ) / Rialto Film, Rialto Film Preben-PhilipsenЖанр: Драма, КриминалРежиссер: Альфред ФорерАктеры: Хайнц Драхе, Барбара Руттинг, Бригитта Хорней, Марго Троогер, Зигфрид Шюренберг, Клаус Кински, Роберт Хоффманн, Карл Джон, Хуберт фон Майеринк, Хайнц Шпицнер, Эдди Арент, Курт ВайцманПеревод: Многоголосый профессиональный, Петербург 5-й каналСубтитры: НемецкиеПродолжительность: 01:35:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9E83603BEA57454993EF8100471427BE27FB112
+magnet:?xt=urn:btih:9144C5484282A03469EB17927029AF21AF4EC8D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,26 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528320   (734973) от 01.02.2022
+###  Публикация: 1526936   (737801) от 26.01.2022
 
-Vinegar 2.2.0 [En]
+Сола Рэйн | Красная линия (2020) [EPUB]
 
->>Архив торрентов
->>Архив 4Apple
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-YouTube5 был расширением Safari, когда Flash был еще в ходу. Он заменил проигрыватель YouTube (написанный на Flash) <video> тегом HTML .
-И теперь ситуация с проигрывателем YouTube стала настолько плохой, что нам нужно другое расширение, чтобы исправить это. Вот где на помощь приходит Vinegar. Vinegar также заменяет проигрыватель YouTube с минимальным <video> (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2022Разработчик: © 2022 Zhenyi TanПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+Он – покрытый татуировками вспыльчивый канадец, одержимый одним лишь хоккеем.
+
+Она – девушка из бедного квартала, будущее которой находится на грани разрушения.
+(   Читать дальше...   )Жанр: Современные любовные романыФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2C47180E5D42841D1E0CD6A13BF459C2E28639E
+magnet:?xt=urn:btih:B541FF9F57FB00FD0161B54ED1D1E93210604386
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,28 +334,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528279   (734972) от 01.02.2022
+###  Публикация: 1526352   (737800) от 26.01.2022
 
-TodoTodo - Tecnodelia-Tendencias 1980-1981 (2012) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
+Василий Головачев | Очень большой лес. (Книга 7). Возвращение (2021) [M4B|AAC, Антон Ческидов]
 
->>Electronic
->>Synthpop, New Wave
+>>Аудио и Видео
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Respuesta Alternativa (2:57)
-02. Mass-Media Disco Mix (3:05)
-03. Safari En Afrika (2:34)
-04. Marsella Puerto (2:46)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 00:40:03
+Оставив за спиной Гардаград и кучу связанных с ним проблем, друзья устремляются в давно запланированный поход. Впереди их ждут Проклятые земли с населяющими их чудовищами, у которых друзья вместе с
+горсткой наемников попытаются отобрать…Жанр: ФантастикаФормат: M4BПродолжительность: 08:32:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8495EEF18F253EF1EE88BBF5DEB34B97A698306
+magnet:?xt=urn:btih:4A2582E1D212881030843BFE30620DD7E0DD0D71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,26 +361,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528411   (734971) от 01.02.2022
+###  Публикация: 1526977   (737799) от 26.01.2022
 
-Art Text 4.1.2 [En]
+VA - My Best Hammond Organ (2022) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Art Text - красивое текстовое приложение под Mac OS для тех, кому часто нужно рисовать высококачественную графику: тексты заголовков, кнопки, баннеры, логотипы, иконки и тому подобное. ПО позволяет преобразовать любой текст или векторное изображение в яркую графику высочайшего качества.
-Благодаря поддержке слоев, обширной векторной библиотеке и более 700 примитивов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.02.2022Разработчик: © 2022 BeLight Software Ltd.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+01. Joey DeFrancesco - One Hundred Ways (09:10)
+02. Al Kooper,Steve Stills - Season of the Witch (11:08)
+03. Bob Belden,Billy Drummond,John Hart,Nicholas Peyton,Sam Yahel - Tom Thumb (06:41)
+04. Jimmy Smith - T'ain't No Use (06:09)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 07:21:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D24887CE3DA2DA33F2340167D89D53C23B6CABBA
+magnet:?xt=urn:btih:5F5DD3A64E29F95F419EC6F7562863E270B49BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,25 +390,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528391   (734970) от 01.02.2022
+###  Публикация: 1526902   (737798) от 26.01.2022
 
-uDock 2.5.2 [En]
+Exposure Software Eye Candy 7 v7.2.3.189 [En]
 
->>Архив торрентов
->>Архив 4Apple
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+Alien Skin Eye Candy 7 — новая версия набора из 30 фильтров и более 1500 пресетов со множеством настроек для Adobe Photoshop, которые позволят выполнить с легкостью множество дизайнерских задач, начиная от веб-интерфейсов и заканчивая впечатляющими логотипами. Плагин создает реалистичные эффекты природных явлений, предоставляя красивый детальный результат. Простой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 Exposure Software, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F08819BD11E1764AA8A812D443E83DE1014DD37D
+magnet:?xt=urn:btih:1D7DF77C3E4C327E3811BB0D5A8C952B763F0120
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,28 +416,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528380   (734969) от 01.02.2022
+###  Публикация: 1526833   (737797) от 26.01.2022
 
-Terror Universal - Make Them Bleed (2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Groove Metal, Metalcore, Nu-Metal>
+Журнал | Делаем сами №2 (2022) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_734969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Passage Of Pain (3:57)
-02. Welcome To Hell (3:42)
-03. Spines (3:18)
-04. Make Them Bleed (3:33)(   Читать дальше...   )Жанр: Groove Metal/Metalcore/Nu-MetalПродолжительность: 00:41:14
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A4FE99F1112FFEE0A43EEEAA77D20869BC78967
+magnet:?xt=urn:btih:00492BB130711D69C53B9DD18588122EDD0EC492
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,57 +442,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528254   (734968) от 01.02.2022
+###  Публикация: 1526951   (737796) от 26.01.2022
 
-The Police - Zenyatta Mondatta (1980) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <New Wave, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Don't Stand So Close To Me
-A2 Driven To Tears
-A3 When The World Is Running Down, You Make The Best Of What's Still Around
-A4 Canary In A Coalmine(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528258   (734967) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 1 (2010) [AAC|~331 Kbps] <Pop>
+Sky Soul - Message from the Sun (2022) [AAC|~335 Kbps] <Psychill, Psybient, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. JWL - 1973 (3:57)
-02. The West Coast Sound Machine - 1000 Miles (3:58)
-03. Sensation Ltd - Ain't Nobody (3:56)
-04. All I Wanna Do - All I Wanna Do (4:36)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:07
+01. Call of Nature (Original Mix) (5:52)
+02. We Are Mirrors (Original Mix) (5:26)
+03. Sky Soul, E-Mantra - Endlessness (Original Mix) (6:54)
+04. Son of the Sun (Original Mix) (7:17)(   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 00:57:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDF62DCB018FBACAD2C6836F11DAB2AADCE98CA1
+magnet:?xt=urn:btih:A95C31D0034D74A965777286298275B179EC7C62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,28 +471,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528297   (734966) от 01.02.2022
+###  Публикация: 1526796   (737795) от 26.01.2022
 
-Пионерлагерь Пыльная Радуга - Тот, кому не нужно счастье (2022) [MP3|320 Kbps] <Grunge, Alternative Rock>
+VA - Romantic Pop Songs 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - Love Story (Taylor’s Version) (3:55)
+02. Imagine Dragons - Not Today (4:21)
+03. Justin Bieber - Love Yourself (3:52)
+04. Julia Michaels - Heaven (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AE1C746A2D8A6CF14D6C3F72EA843E1801F5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526852   (737794) от 26.01.2022
+
+Magnum -  The Monster Roars (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Отходняк [00:04:32]
-02 - Паром [00:03:20]
-03 - Ветер, который дует с полей [00:03:37]
-04 - Твой-мой [00:03:23](   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:48:25
+Британская группа одна из тех, кто может похвастаться завидной стабильностью: редко какой их релиз опускается ниже заданной планки, а фанаты знают, что всегда получат свою порцию мелодичных и слегка меланхоличных эпосов. Вот и The Monster Roars открывается с классической для группы заглавного трека, в котором мягкое вступление на клавишных взрывается пафосным припевом. (   Читать дальше...   )01. The Monster Roars
+02. Remember
+03. All You Believe In
+04. I Won't Let You Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6C89A990E34AADB4B070B379AA9854CD028BDDD
+magnet:?xt=urn:btih:188411BC365FF232E946F72573D84126AF2BAB0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,25 +529,186 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528312   (734965) от 01.02.2022
+###  Публикация: 1527017   (737793) от 26.01.2022
 
-Сражайся за славу / Fight for Glory / Times of Warlords (2014) BDRip [H.264] [AVO]
+YTD Video Downloader PRO 4.16.0 [En]
 
->>Зарубежное кино
->>Азиатское кино (SD)
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Китай, Эра милитаристов (1916 - 1928). Военачальники угнетают народ. Многие школы боевых искусств пытаются бороться с тиранами, но только герой-одиночка Чжань Гуй Дадао преуспевает в этом нелегком деле. Его очередной целью становится генерал Лэй Хун, вступивший в сговор с японцами.Производство: Гонконг / My Way Film Company LimitedЖанр: Драма, боевикРежиссер: Кен Ип, Тони ТанАктеры: Луис Фань, Макс Чжан, Грэйс Вонг, Филип Кюн, Мо Мэйлинь, Алекс Лам, До Иньго, Кит Чун, Ку Фэн, Нг Юэнь-Цзюнь, Ли Хой-Сан, Филип ЛинПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:33:04
+YouTube Downloader - простая и легкая в использовании программа, которая предназначена для загрузки и последующего просмотра роликов с популярных сервисов видеообмена YouTube, Facebook, Google Video, Yahoo Video и пр. Для скачивания необходимо ввести ссылку на видео, которое вы хотите скачать и указать папку для сохранения клипа. Также YouTube Downloader позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2007-2022 GreenTree Applications SRL.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C923ECA15B7C9DDAA9E536F969D056A8CE607206
+magnet:?xt=urn:btih:64BC5066F09E493CBFBEB2A71DF3CFE9C951CE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526858   (737792) от 26.01.2022
+
+Не обмани (2021) WEBRip [H.264/720p] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В результате ДТП у Людмилы погибает умирает сын Владимир. Перед смертью он говорит ей, что у него есть внебрачный сын. Он хочет оставить всё свое имущество ему. У умирающего всегда были сложные, конфликтные отношения с матерью. Он сомневается, что она исполнит его просьбу и умоляет: «Не обмани…» Людмила начинает поиски бывшей девушки сына и своего внука, а за это (   Читать дальше...   )Производство: Россия | «Энерджи Фильм»Жанр: Мелодрама, детективРежиссер: Алексей ПраздниковАктеры: Елена Сафонова, Анатолий Лобоцкий, Алексей Варущенко, Марина Денисова, Анастасия Нагулова, Илона Гайшун, Артем Лопатинский, Олег Лопухов, Кристина Морозова, Анна БурмистроваСубтитры: ОтсутствуютПродолжительность: 00:44:11+00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F9A97D19879CC13E35AF4E46B19B4434B1AB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526905   (737791) от 26.01.2022
+
+AusLogics Disk Defrag Ultimate 4.12.0.2 RePack (& Portable) by 9649 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Ultimate - позволяет дефрагментировать файлы, недоступные во время работы операционной системы, а также оптимизировать размещение файлов на диске для максимально быстрого доступа и наиболее эффективной работы. Многочисленные возможности планирования позволяют поддерживать постоянно высокую скорость работы дисков на вашем ПК.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CED579C5E7F312DAC7EBAFC4D10728A6056A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526721   (737790) от 26.01.2022
+
+Loudness - Sunburst~我武者羅 (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Легендарная группа LOUDNESS выпустила впервые за свою долгую карьеру двойной альбом с новыми песнями под названием SUNBURST – MY WARRIOR aka SUNBURST～我武者羅.
+Этот альбом особенный для группы, так как посвящен их 40-летию.
+LOUDNESS имеет долгую и богатую историю, состоящую из множества различных составов. Участники группы были из других (   Читать дальше...   )CD - 1:
+01. Rising Sun
+02. OEOEO
+03. 大和魂(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D90DB46998407FBE081E81C3E2978E31344244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521834   (737789) от 26.01.2022
+
+В тени / Under the Shadow (2016) BDRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тегеран 80-х после революции, усугубляется конфликт с Ираком. Матери и дочери и так несладко живётся, так ещё и какое-то неведомое зло поселилось в их доме.Производство: Великобритания, Иордания, Катар, Иран / Wigwam Films, Doha Film InstituteЖанр: Ужасы, драмаРежиссер: Бабак АнвариАктеры: Наргес Рашиди, Avin Manshadi, Бобби Надери, Араш Маранди, Aram Ghasemy, Soussan Farrokhnia, Рэй Харатиан, Хамид Джавадан, Бехи Джанати Атаи, Биджан ДанешмандПеревод: Одноголосый любительский (visanti-vasaer)Субтитры: Русские, английские, испанскиеПродолжительность: 01:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C893737F6392CC5ACE86D342A587B46EB2248FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526659   (737788) от 26.01.2022
+
+За пределами двух бесконечных минут / Droste no hate de bokura / Beyond the Infinite Two Minutes (2020) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта эксцентричная научно-фантастическая комедия - захватывающий опыт, который сразу же привлекает внимание зрителя своим новым взглядом на путешествие во времени. После работы Като обнаруживает, что камера, которую он подключил к своему телевизору, отображает изображение на экране его компьютера в квартире, имеет двухминутную задержку по сравнению с камерой наблюдения (   Читать дальше...   )Производство: Япония, TollywoodЖанр: Фантастика, комедияРежиссер: Дзюнта ЯмагутиАктеры: Кадзунари Тоса, Рико Фудзитани, Гота Исида, Масаси Сува, Ёсифуми Сакаи, Харуки Накагава, Мунэнори Нагано, Такаси Сумита, Тикара Хонда, Аки АсакураПеревод: RomarylloСубтитры: Русские, английскиеПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E56B8531B34BEC08130A9FCA5E28933797AA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526481   (737787) от 26.01.2022
+
+Доктор Фостер / Doctor Foster (2015) HDRip (сезон 1, серии 1-5 из 5) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Доктор Фостер обычно ведет себя спокойно и рассудительно, но когда она подозревает, что любимый муж завел роман на стороне, то все идет наперекосяк. Теперь у женщины всего лишь одна цель - понять, что на самом деле происходит в её жизни. Однако разборки привели к худшим последствиям: семейная жизнь превращается в хаос, а близкие и пациенты уже не узнают ту самую (   Читать дальше...   )Производство: Великобритания / Drama Republic, British Broadcasting Corporation (BBC)Жанр: драмаРежиссер: Джереми Лавринг, Том Вон, Брюс ГудисонАктеры: Сюранна Джоунс, Берти Карвел, Том Тейлор, Тусита Джейасундера, Шазия Николлс, Джоди Комер, Виктория Хэмилтон, Адам Джеймс, Сара Стюарт, Нил Стьюк и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английские (отдельно)Продолжительность: ~00:50:00 серияРеклама: Присутствуют видео (2 бегущих строки), аудио вставки (2 короткие) рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9570DE04C9C15E32F7595DFED1F1CF9D26916ECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

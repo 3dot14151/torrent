@@ -1,3 +1,111 @@
+###  Публикация: 1327333   (374393) от 25.09.2019
+
+Журнал | Мир фантастики №6 (июнь 2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бессмертию мы решили посвятить центральный материал номера. Поиск эффективных методов лечения обретал причудливые, а то и монструозные формы. А кому мало реальных болезней, так ведь есть еще и фантастические.
+Бэтмен украсил обложку неспроста. Также в номере, как изменятся в будущем наши отношения с сексуальностью, истории иследования черных дыр, вернулись мастер-классы (   Читать дальше...   )Жанр: Журнал фантастикиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6747C2B86729C42B98BADB844C8366B62B6D3798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327361   (374375) от 25.09.2019
+
+Журнал | Мир фантастики №8 (август 2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Киану Ривс.
+Настольная ролевая игра по системе Cyberpunk 2020.
+Самые известные хакеры. Киберпанковская Россия.
+Что делать если вы оказались в виртуальной реальности.(   Читать дальше...   )Жанр: Журнал фантастикиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D09524138CF11DBEB35E9DE61EDD5689134181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327299   (374248) от 25.09.2019
+
+Журнал | Мир фантастики  Спецвыпуск №1 (май 2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы держите в руках первый спецвыпуск журнала "Мир фантастики". И это не просто номер журнала, а полноценная книга. Книга о книгах. Редакция "Мира фантастики" попыталась выбрать "самые-самые" фантастические книги. Те что сыграли значительную или даже ключевую роль в развитии жанра.Жанр: Журнал фантастикиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4848FA2B08129381625BA1373EAB0F41D6007F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175915   (374216) от 20.10.2017
+
+Журнал | О чём врачи вам не говорят №11 (ноябрь 2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«О чем врачи вам не говорят» - российская версия популярного журнала о комплементарной и альтернативной медицине What doctors don’t tell you, признанного лидера среди изданий такой тематики во многих странах. Журнал знакомит с последними научными открытиями в области медицины, рассказывает об обратной стороне стандартных видов терапии и предупреждает об опасности (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2774635AD969348CF35EA3E387DC1CCA1CC232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574503   (373462) от 13.11.2012
 
 Журнал | Психология и Я №10 [октябрь 2012] [PDF]
@@ -6,7 +114,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,111 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C0665DD7A0BCF4A812A59BD05EA6546565BE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722595   (363737) от 15.11.2013
-
-Журнал | Тайны ХХ века [Украина] №44 (ноябрь 2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE5DAF41354137C5675F2525EF843FD5E108B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951620   (363667) от 29.10.2015
-
-Журнал | Вооруженные силы стран мира №112 (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2284644832CDEAF2B0BC7A931F70329F98F9E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951205   (363661) от 29.10.2015
-
-Журнал | Ступени оракула №20 (сентябрь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание предлагает разнообразие точек зрения — от фантастических предположений до научных теорий, оставляя выбор за читателем. Мнения профессионалов и свидетельства очевидцев, факты, феномены, версии. Журнал, открывающий мир!Жанр: Ззотерика, МистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF87522B8A73F45A65109873446C080B55CE9EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950606   (363478) от 29.10.2015
-
-Журнал | Русский Ювелир №2-3 (7-8) (1998) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое профессионально-аналитическое издание в нашей стране, освещающее ВСЕ ВОПРОСЫ ЮВЕЛИРНОЙ ОТРАСЛИ.
-Релиз номераЖанр: Ювелирная отрасльФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DA3A84B9C3BCBB5392427C72F50DA83A27F5CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

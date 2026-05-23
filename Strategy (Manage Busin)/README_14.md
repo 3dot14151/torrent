@@ -1,3 +1,55 @@
+###  Публикация: 1744223   (46245) от 20.08.2024
+
+Train Valley World (2024) [Ru/Multi] (Build #370) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Train Valley World вам предстоит стать начинающим железнодорожным магнатом, которому предстоит строить и управлять эффективными железнодорожными сетями по всему миру. Вдохновленная классическими транспортными магнатами, игра предлагает одновременно творческую свободу и стратегическую глубину, бросая вам вызов построить процветающую империю в период пика промышленной (   Читать дальше...   )Тип издания: RepackРазработчик: FlazmЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B383D703E267A4EF178DC19EF2EB0A144DE5D4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744719   (45916) от 23.08.2024
+
+Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Train Valley World вам предстоит стать начинающим железнодорожным магнатом, которому предстоит строить и управлять эффективными железнодорожными сетями по всему миру. Вдохновленная классическими транспортными магнатами, игра предлагает одновременно творческую свободу и стратегическую глубину, бросая вам вызов построить процветающую империю в период пика промышленной (   Читать дальше...   )Тип издания: SceneРазработчик: FlazmЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A786671FE11758BB1EB48360BB20BBA16E9F2EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063798   (45730) от 25.08.2024
 
 Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1-b5421/dlc) License GOG
@@ -6,7 +58,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1-b5421/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Harvest Island (2023) [Multi] (20240512/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Paris in 2000 Years (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Patron (2021) [Ru/Multi] (1.906.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ World Turtles (2023) [Multi] (1.02) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Highrise City (2022) [Multi] (1.2.2/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.26.2) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Sweet Transit (2022) [Ru/Multi] (20240910) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Demon's Mirror (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Frostpunk 2 (2024) [Ru/Multi] (Build 15731711) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Frostpunk 2 (2024) [Ru/Multi] (5.2.1-391109/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Planetbase (2015) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42b/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Wanterlude [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Decepticon [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (1.0.96.0927.1622) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack FitGirl [Ultimate Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EBE23AD6FDE1FBB9722FD60235A8B0B8FDBC090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754781   (40598) от 12.10.2024
-
-Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack dixen18
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anno 2205 – полюбившийся игрокам симулятор городского строительства выходит в космос! В Anno 2205 вы поможете человечеству сделать очередной шаг в светлое будущее. Покорив Землю, вы построите богатые, кипящие жизнью города и огромные промышленные комплексы – но для того, чтобы по-настоящему обеспечить благополучие человечества, необходимо выйти в космос.Тип издания: RepackРазработчик: Blue ByteЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD60437CF6C56AC4164FAF75FE4FF08841AD708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681706   (40334) от 15.10.2024
-
-SteamWorld Build (2023) [Ru/Multi] (1.0.12/dlc) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40334.jpg" />
-</div>
-
-
-###  Подробнее
-
-SteamWorld Build является спин-оффом франшизы Стимворд. В ней уже были метроидвании, пошаговые тактики, карточные ролевые игры. А данный тайтл представляет собой градостроительный симулятор. От своих предшественников продукт отличается не только жанром, но и графикой. Здесь она впервые во франшизе стала трехмерной. Как и раньше, действие происходит в стимпанковском (   Читать дальше...   )Тип издания: LicenseРазработчик: Thunderful DevelopmentЖанр: Симулятор, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275EF07E7FC8F33F9B754B7ACD5150DB9FB58CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

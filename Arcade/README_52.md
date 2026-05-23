@@ -1,3 +1,29 @@
+###  Публикация: 1757031   (36123) от 26.11.2024
+
+Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бионик Таня получила задание от своего создателя, доктора Эрве, найти и спасти исследовательскую команду, пропавшую без вести в джунглях Горациевых островов, где загадочная карпасская энергия превращает местных животных и растения в агрессивных мутантов.Тип издания: RepackРазработчик: Dark Pigeon GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, Английский, Китайский (Упрощенный)Язык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAFD543CED54CDA45EBC55B0F10356702845BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762527   (36036) от 26.11.2024
 
 Beat Hazard Ultra (2010) [Multi] (1.6) License GOG
@@ -6,7 +32,7 @@ Beat Hazard Ultra (2010) [Multi] (1.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ South Park: Snow Day! (2024) [Multi] (1.0.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (1.0.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Chasm (2018) [Multi] (1.093) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Tales of Kenzera: ZAU (2024) [Multi] (1.5.45551) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack FitGirl [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Ashes of the Union (2024) [Ru/Multi] (0.3.5 Hotfix 2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Viscera (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0.1.1f/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Penny Blood: Hellbound (2024) [Multi] (1.0.00628) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF3F1B7605EF506B41EAFDD1C110124CA18D610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770514   (32341) от 01.01.2025
-
-Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная серия Snow Bros. появилась более 30 лет назад. Snow Bros. Wonderland – новая её глава, и за последние пару десятилетий многое изменилось! Прежде всего, графика больше не двухмерная – в новой игре она выполнена в великолепном изометрическом 3D. Вооружённые бесконечными ледышками, игроки могут превращать монстров в снежные комья – пиная их, можно уничтожать (   Читать дальше...   )Тип издания: SceneРазработчик: Tatsujin, Bitwave Games, ToaplanЖанр: Arcade, Jump and run, Side, 3DЯзык озвучки: Английский, Испанский, Японский, Корейский и другиеЯзык субтитров: Английский, Испанский, Японский, Корейский и другиеЯзык интерфейса: Английский, Испанский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B517DFEE37436DAA3AC88F6FDD95D22A35E27879
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1535297   (244297) от 06.03.2022
+
+VA - Everlust (Compiled by Seel) (2021) [AAC|~323 Kbps] <Deep House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Assem - Liquid Soul (5:22)
+02. Angata, Yohana - Ga'agua (8:03)
+03. Seel, Pere - Bise (8:28)
+04. Shan Nash - Sufi (6:41)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 02:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9165E0EEE33259F0BAFB561B1BABC273B53F6D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535301   (244291) от 06.03.2022
 
 VA - Chill Out Lovers, Vol. 2 (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
@@ -6,7 +35,7 @@ VA - Chill Out Lovers, Vol. 2 (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Ethno Sorcery, Vol. 2 (Compiled by Salvo Migliorini) (2020) [AAC|~328 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Viva 2021.2 (2022) [AAC|~331 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Ethno Sorcery (2019) [AAC|~321 Kbps] <Deep House, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Lounge Atmosphere, Vol. 2 (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Viva 2021.3 (2022) [AAC|~329 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -180,7 +209,7 @@ Marga Sol - I Am Everywhere (Pop Lounge Vibes) (2013) [AAC|~315 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Viva 2021.4 (2022) [AAC|~331 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Chilling in the Bar: Urban Chillout Music (2022) [AAC|~314 Kbps] <Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Fresh Vibes: Urban Chillout Music (2022) [AAC|~318 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Il Caffe Italiano Rimini (Italian Lounge Espresso Music) (2022) [AAC|~316 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Hangover Lounge Grooves, Vol. 6 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -354,7 +383,7 @@ Lyre le temps - Lady Swing (2010) [AAC|~278 Kbps] <Electro Swing, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Hangover Lounge Grooves, Vol. 4 (2013) [AAC|~312 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -412,7 +441,7 @@ Lyre le temps - Clock Master (2019) [AAC|~333 Kbps] <Electro Swing, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Hangover Lounge Grooves, Vol. 7 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - This Is Chillout Jazz, Vol. 3 (Cool Jazzy Sounds in a Lounge Mood) (2015) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Loungerie (25 Amazing Lounge Tunes), Vol. 1 (2017) [AAC|~314 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -528,7 +557,7 @@ Lyre le temps - Prohibition Swing (2016) [AAC|~185 Kbps] <Electro Swing, Hip Hop
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Hangover Lounge Grooves, Vol. 1 (2012) [AAC|~337 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Il Caffe Italiano Firenze (Italian Lounge Espresso Music) (2016) [AAC|~318 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Hangover Lounge Grooves, Vol. 2 (2012) [AAC|~314 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Chillax (20 Chill-Out Tunes), Vol. 3 (2017) [AAC|~328 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Chillax (20 Chill-Out Tunes), Vol. 4 (2018) [AAC|~317 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Loungerie (25 Amazing Lounge Tunes), Vol. 3 (2017) [AAC|~329 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Loungerie (25 Amazing Lounge Tunes), Vol. 3 (2017) [AAC|~329 Kbps] <Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC49E1F86EF58C013A76D5F9AE4BB6719087C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537913   (243791) от 18.03.2022
-
-VA - Dirty Weekend (25 Groovy House Tunes), Vol. 4 (2022) [AAC|~335 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peverell - I Love It (Loris Buono Remix) (5:18)
-02. Martin Sharp - Disco Cat (Original Mix) (8:15)
-03. Joka Chups - Space Funk (Extended Mix) (7:03)
-04. Baseek, Ermanito - Mumbasa (Original Mix) (5:50)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18468A851C15C707DE560EAFCC3B1D334CA212E
 ```
 
 https://mybot314.ru/tekegram_catalog/

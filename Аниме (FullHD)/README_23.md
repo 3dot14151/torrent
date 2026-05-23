@@ -1,3 +1,55 @@
+###  Публикация: 1130041   (716332) от 01.05.2017
+
+Ookami Shoujo to Kuro Ouji | Wolf Girl and Black Prince | Волчица и Чёрный принц [2014, TV, 12] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+У 16-летней Эрики Синохары, на ее беду, разыгралось воображение! Желая похвалиться перед новыми одноклассницами, она сделала мимоходом фото симпатичного юноши и заявила, что вот он – ее парень. А дальше вдруг оказалось, что блондин со снимка – личность в школе известная, звать его Кёя Сата, и до сего времени в романтических увлечениях красавчик замечен не был. Кто-то (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Касай Кэнъити / Kasai Kenichi / カサヰケンイチПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: русские (подключаемые); английские (вшитые, отключаемые)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A2AF4FCF0587D9117EFBA3C2C4C27022AEE0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129695   (714217) от 02.05.2017
+
+Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика заказывали? [ТВ-2] [2015, TV, 12] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В некотором царстве, странном государстве, где в культурно-историческом экстазе неведомым образом слились Европа и Япония, на неторопливой речке по-прежнему стоит милый городок с фахверковыми домами и бульварами, поросшими сакурой. Недалеко от реки притаилось кафе «Кроличья нора» - и там усталых путников ждут не только говорящий кролик и чудесный кофе, но и настоящий (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Хасимото Хироюки / Hashimoto Hiroyuki / 橋本裕之Перевод: Усатый НяЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFFFC0FA827833F9A703A65055B8EE944F0D04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401114   (713189) от 08.08.2020
 
 Girls' Frontline | Shaonu Qianxian: Renxing Xiao Juchang | Девушки на фронте [2019, Web, 24 из 24] WEBRip 1080p raw
@@ -6,7 +58,7 @@ Girls' Frontline | Shaonu Qianxian: Renxing Xiao Juchang | Девушки на �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Beatless | Без пульса | Слабый удар [2018, TV, 24 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 + 4sp] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +191,7 @@ Aku no Hana / Flowers of Evil / Цветы зла [2013, TV, 13] BDrip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +219,7 @@ Rakudai Kishi no Cavalry | Rakudai Kishi no Eiyuutan | Chivalry of a Failed Knig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +245,7 @@ Eromanga-sensei (2019) | Эроманга-сэнсэй OVA [2019, OVA, 2 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +271,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +297,7 @@ Caligula | Калигула [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +323,7 @@ Sword Art Online Alternative: Gun Gale Online | Мастера меча онла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +349,7 @@ Mirai no Mirai | Мирай из будущего [2018, Movie] BDrip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +375,7 @@ Code Geass Hangyaku no Lelouch | Code Geass - Lelouch of the Rebellion | Код 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +403,7 @@ Non Non Biyori Movie: Vacation | Деревенская глубинка: Кан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +431,7 @@ Teekyuu 3 | Теннис 3 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +459,7 @@ Teekyuu 5 | Теннис 5 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +485,7 @@ Teekyuu 6 | Теннис 6 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +511,7 @@ Teekyuu 2 | Теннис 2 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +538,7 @@ Usakame | Кролик и черепаха [2016, TV, 12 из 12 + 1 SP из 1] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +564,7 @@ Teekyuu | Теннис [2012, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +590,7 @@ Teekyuu 7 | Теннис 7 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +616,7 @@ Fukigen na Mononokean | The Morose Mononokean | Обитель мрачного 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +642,7 @@ Teekyuu 8 | Теннис 8 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +668,7 @@ Teekyuu 9 | Теннис 9 [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,60 +679,6 @@ Teekyuu 9 | Теннис 9 [2017, TV, 12 из 12] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B575FFE22F5CD5B215C7BBAEBE5F13246CF20978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894306   (706741) от 02.05.2015
-
-Project K: Missing Kings | К: Пропавшие короли [2014, Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706741.jpg" />
-</div>
-
-
-###  Подробнее
-
-После Происшествия на Школьном Острове, в котором участвовали четыре Короля, участники Серебряного клана, Куро Ятогами и Неко, всё ещё продолжают искать своего Короля. Уже почти отчаявшись найти хоть что-то, что поможет им найти своего лидера Сиро, парочка столкнулась с членами клана Хомура, которых преследовал таинственный незнакомец...
-
-Продолжение истории ТВ-сериала.Производство: студия GoHandsЖанр: приключения, мистикаРежиссер: Судзуки СингоПеревод: LeDi-MaHo TeamЯзык субтитров: РусскийПродолжительность: 73 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624B8D4BCF48A87E7F2F59D5A06885697E55F8F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876523   (706394) от 06.05.2017
-
-Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ложь [2014, TV, 22] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Косэй Арима был вундеркиндом-пианистом, с малых лет выигравшим множество состязаний. Конечно, знатоки отмечали, что по стилю малыш скорее техник, чем виртуоз, и даже дали ему кличку «метроном», но судьи не считали это недостатком. Увы, в 11 лет Арима потерял мать – единственного учителя и наставника – и перестал слышать свою игру. Боль от потери преградила ему путь (   Читать дальше...   )Жанр: романтикаРежиссер: Исигуро Кёхэй / Ishiguro Kyouhei / 石黒恭平Перевод: Nachtwandler / AleX_MytH / UkerЯзык озвучки: ЯпонскийПродолжительность: 22 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD641FF267994326037573F07C9D0F03DC2EE6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

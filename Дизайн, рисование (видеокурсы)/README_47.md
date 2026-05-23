@@ -1,3 +1,82 @@
+###  Публикация: 1415353   (378239) от 11.10.2020
+
+Hristo Velev | Thinking Particles. Часть 1 - Всестороннее введение / Thinking Particles Part 1 - A Comprehensive Introduction (2010) PCRec [En, Ru]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе HristoVelev объяснит основы ThinkingParticles и затем начнет строить прочный фундамент из теории и практических примеров программы. Потом автор покажет основной набор возможностей TP4. В процессе он создаст несколько эффектов, которые часто используются на реальной практике.
+После рассмотрения основ, Hristo покажет создания целого проекта от начала до (   Читать дальше...   )Производство: Eat 3DЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 09:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1851DDA015A1A663951A8A9900A5BF3C878D5312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415150   (378238) от 11.10.2020
+
+Joshua Kinney | Automotive Modeling in 3ds Max (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом обучающем курсе по 3dsMax мы используем метод моделирования с помощью граней, для создания автомобиля Maserati Gran Turismo. Компьютерные модели автомобилей являются главными элементами кино и коммерческих проектов. Неважно, все ли части автомобиля промелькнут перед нашими глазами в коммерческой рекламе намереваясь показать в выгодном свете превосходную разработку, (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский РусскийПродолжительность: 08:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D14A7963CF33C4C7B2B86A43F25EDE4A55F46A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415152   (378016) от 11.10.2020
+
+Tim Bergholz | Mech Tutorial Complete Edition (2017) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы когда нибудь задумывались о карьере в игровой индустрии в качестве 3D художника и вам нравятся боевые мехи? Тогда этот курс идеально вам подходит! 15 часов обучения, включающие в себя моделирование, развертку, запекание и текстурирование боевого меха по всем стандартам игровой индустрии. Вы ничего не пропустите, так как видео не ускорены ни на секунду!Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский РусскийПродолжительность: 15:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2270714D18AFFAA668E4EF2A950DA3DA7706270D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415211   (377987) от 11.10.2020
 
 Галина Ершова | Академический рисунок (2020) HDTVRip
@@ -6,7 +85,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Hai Phan | 3d Character Art for Games Volume 1-6 (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Side FX, Moeen Sayed | VEX isn't scary (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +163,7 @@ CGMA, Patrick Yeung | Character Creation for Games (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +241,7 @@ Blender Market, Josh Gambrell, Ponte Ryuurui | The Blender Bros Hard Surface Gam
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +270,7 @@ Udemy, Dmitrii Fokeev | Теория дизайна - для веб дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +298,7 @@ Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +324,7 @@ Udemy, Mrawan Hussain | Создание реалистичного автомо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +433,7 @@ Skillshare | Сделай своего первого милого 3D персо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +462,7 @@ CG Cookie | Моделирование, Текстурирование и Шей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +490,7 @@ CG Cookie | Риггинг и Анимация Сундука с сокрови�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +575,7 @@ Udemy, Imran Nuruhussen | Rendering For Jewelers With Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +602,7 @@ Cubebrush, Pierrick Picaut | Рыцарь Дракон - Полный курс �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -550,7 +629,7 @@ CG Fast Track | Процедурные шейдеры в Blender 2.90 / Procedur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,85 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7EEC80B137AABB84181AFED130F63DCD73FFAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329499   (351867) от 05.10.2019
-
-Udemy, Darrin Lile | Blender 2.8 Создание персонажа / Blender 2.8 Character Creation (2019) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс проведет вас через всё, что вам нужно знать, чтобы создать своего собственного 3D персонажа.
-В этом курсе вы будете использовать Blender 2.8 для моделирования лица персонажа с правильным Edge Flow, поэтому он будет правдоподобно анимироваться. Вы узнаете, как создавать руки и ноги, а также космический костюм и шлем персонажа. Мы будем использовать инструменты (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 16:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F6A3B8F20B6EBBF47DA6FB4E3118421244814F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256746   (351684) от 23.10.2018
-
-Lynda.com | Photoshop CC 2019 New Features (2018)  PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучающее видео о новых возможностях Photoshop CC 2019 от Lynda.com и Deke McClelland.Производство: Lynda.comЖанр: Photoshop, Обучающее видеоПеревод: ОтсутствуетПродолжительность: 01:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B261C7F81D5A82074C8E5EB8C9BB6296575C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418184   (350799) от 23.10.2020
-
-Igor Staritsin | Создание эпического мэтт-пейнт шота. Продвинутые техники с Игорем Старициным / Create an Epic Matte Painting Shot Advanced Techniques (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350799.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой курсе Игорь Старицын проведет вас через весь процесс создания эпического мэт-пэйнт шота. Он начнет с того, что нарисует несколько эскизов, объясняя при этом фундаментальные принципы искусства создания удачного окружения. Затем Игорь начинает создавать композиционный эскиз, создавая настроение. Затем используется Maya для создания базовой модели для архитектурных (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Digital ArtПродолжительность: 07:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE20CDB4CBCB3BF19FEED99376716076E9D239D
 ```
 
 https://mybot314.ru/tekegram_catalog/

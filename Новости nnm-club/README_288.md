@@ -1,3 +1,189 @@
+###  Публикация: 1745994   (45085) от 31.08.2024
+
+Прототип сверхзвукового авиалайнера Boom Supersonic выполнил второй испытательный полёт
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Демонстратор сверхзвукового самолёта XB-1 компании Boom Supersonic выполнил второй испытательный полёт, пишет ресурс New Atlas. 26 августа прототип XB-1 под управлением главного лётчика-испытателя Тристана Бранденбурга (Tristan Brandenburg) в течение 15 минут находился в воздухе над пустыней Мохаве в Калифорнии.Взлетев из аэрокосмического порта Мохаве, прототип XB-1 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745468   (44998) от 01.09.2024
+
+Ба / The G (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Таинственная пожилая женщина жаждет отомстить коррумпированному опекуну, разрушившему её жизнь.Производство: Канада / 3Buck ProductionsЖанр: Криминал, ТриллерРежиссер: Карл Раудсепп-ХирнеАктеры: Дейл Дикки, Романа Дени, Даниэль Брошу, Ричард Шеволье, Грег Эллванд, Кэтлин Фи, Джонатан Кёнсген, Рок ЛаФортьен, Anthony Jones Nestoras, Брюс РэмсейПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3931514F8FBEF0A1AF3E2B9F280A92C027DA46A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747107   (44691) от 04.09.2024
+
+1 сентябре 2000 года мир увидел телефон, который стал иконой своего времени — Nokia 3310
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1 сентября 2000 года мир увидел телефон, который стал иконой своего времени — Nokia 3310. Этот компактный и невероятно надежный аппарат не просто завоевал сердца миллионов, но и радикально изменил индустрию мобильной связи. Nokia 3310 выделялся на фоне других телефонов своим легендарным дизайном и простотой в использовании. Он стал символом прочности и долговечности, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747266   (44579) от 05.09.2024
+
+GoodbyeDPI 0.2.3rc1 Launcher 8.4 [Ru/En] (Разблокировка YouTube)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
+Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
+
+Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский и английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059AD24238DFC38FC0B8ED474EB0453CA541D06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747341   (44578) от 05.09.2024
+
+Реаниматор DVD USB "Мультитул Сисадмина" 03.09.2024 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18D00E19EA89ACE15EB758188BA6E26B9CB0FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366229   (44575) от 05.09.2024
+
+Патриот (2020) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-17 из 17)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Саня Кучин возвращается из армии в родной городок с большой мечтой сделать свой дом лучшим местом на земле. Саня — честный, деятельный парень с горячим сердцем, уверен, что у него получится исправить всех хулиганов и алкоголиков, а еще — добиться сердца любимой со школьных времен девушки.Производство: Россия / ТНТЖанр: комедияРежиссер: Николай БурлакАктеры: Антон Жижин, Алексей Базанов, Анастасия Талызина, Владимир Сычев, Алёна Савастова, Евгения Капралова, Валентина Лукащук, Василий Березин, Владимир Афанасьев, Георгий БергалПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FEB8B1C94A3270DDB63E20E480C631E5BFAF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746781   (44563) от 05.09.2024
+
+Специалисты НАСА развернули на орбите солнечный парус
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Речь идет о проекте Advanced Composite Solar Sail System (ACSSS) — то есть «усовершенствованная композитная солнечная парусная система».
+В его основе лежит кубсат типа 12U (то есть состоящий из 12 кубических секций, каждый длиной по 10 см), который был разработан компанией NanoAvionics. Самостоятельной научной задачи или практической задачи у прибора нет — ученых (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746631   (44366) от 07.09.2024
 
 Ловушка / Trap (2024) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +192,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +270,7 @@ SpaceX запустила корабль с туристами, которые �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +322,7 @@ Adobe Photoshop 2024 25.12.0.806 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +426,7 @@ Discord запускает DAVE: безопасность общения вых�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +504,7 @@ Star Wars Jedi: Survivor (2023) [Multi] (Patch 9/dlc) Scene Rune [Deluxe Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +530,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +582,7 @@ Sin Episodes: Emergence (2006) [Ru] (1.0/dlc) Repack Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +662,7 @@ SpaceX хочет запустить пять кораблей на Марс д�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,188 +673,6 @@ SpaceX хочет запустить пять кораблей на Марс д�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210947   (42483) от 25.09.2024
-
-Левиафан (2014) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автослесарь Николай Сергеев живет со своей второй женой Лилией и сыном от первого брака в маленьком северном городке на берегу моря. Нечистый на руку мэр города Шевелят пытается изъять его дом и землю для собственных нужд. После двух проигранных судов Николай обращается за помощью к своему старому другу Дмитрию, успешному столичному адвокату. Но приезд московского (   Читать дальше...   )Производство: Россия / Нон-стоп ПродакшнЖанр: драмаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Платон Каменев, Сергей Бачурский, Валерий ГришкоПеревод: Не требуется (Русский, Лицензия)Субтитры: ОтсутствуютКачество: BDRip 1080pПродолжительность: 02:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7501E915EF8726DB80E41E46FFA6DF239DEE236A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750632   (42479) от 25.09.2024
-
-Ускорение / Slingshot (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астронавты отправляются на Титан, спутник Сатурна, в рамках опасной миссии. Их цель — исследовать неизвестные регионы этого загадочного мира. В процессе экспедиции они сталкиваются не только с внешними угрозами, но и с испытаниями, связанными с сохранением своего восприятия реальности. Любая ошибка может поставить под угрозу успех всей миссии.Производство: Венгрия, Индонезия, США / Bluestone Entertainment, Filmsquad, Széchenyi FundsЖанр: Фантастика, триллерРежиссер: Микаэль ХофстрёмАктеры: Кейси Аффлек, Лоренс Фишбёрн, Эмили Бичем, Томер Капон, Дэвид Моррисси, Шарлотта Лёвгрен, Марк Эбулу, Николет Барабаш, Ágota Dunai, Nahna JamesПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5FEC2530B5A4BC7C823B39DE8F6A72C0A2C136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712711   (42377) от 26.09.2024
-
-Ookami to Koushinryou: Merchant Meets the Wise Wolf | Spice & Wolf: Merchant Meets the Wise Wolf | Волчица и пряности (2024) [2024, TV, 25 из 25] WEBRip 1080p raw+rus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странствующий торговец Крафт Лоуренс и предположить не мог, чем обернётся для него очередной визит в давно знакомую деревню, но именно тут ему навязывается в компанию необычный попутчик. Новый компаньон умеет отличить правду ото лжи, любит выпить и вкусно поесть… но у неё большой пушистый хвост, а из-под длинных волос торчат волчьи ушки! Добро пожаловать в мир торговых (   Читать дальше...   )Производство: Япония, PassioneЖанр: приключения, фэнтези, романтика, драмаРежиссер: Такахаси ТакэоПеревод: Crunchyroll (полные и надписи)Язык озвучки: Японский; Русский (AniLibria), (AniBaza), (ТО «Дубляжная»)Субтитры: Английские; Русские и другиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90EEF9F03F37EB166222F99D2328D7209D0D290B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145973   (42268) от 27.09.2024
-
-Полное собрание фильмов о рыбалке братьев Щербаковых (2005) DVDRip (серии 1-63 из 68)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия учебных фильмов о снастях и различных способах рыбалкиТелекомпания: Братья ЩербаковыЖанр: Телепередача, Документальный, СпортУчастники: Братья ЩербаковыЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 63 серии ~ 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBACDCB22F7BF752B2D17BED48A9D2FF3E2D0887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727393   (42177) от 28.09.2024
-
-Яндекс.Погода v24.9.20 Mod by vadj [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42177.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 27.09.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0437257D3F4FF31B0004EC52B3288D98F4E03A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748074   (42165) от 28.09.2024
-
-Ребел Ридж / Rebel Ridge (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший морпех вступает в схватку с коррупцией в небольшом городке, когда местные правоохранители незаконно изымают у него крупную сумму, необходимую для залога за кузена.Производство: США / Bonneville Pictures, Film ScienceЖанр: боевик, триллер, драма, криминалРежиссер: Джереми СолньеАктеры: Аарон Пьер, Дон Джонсон, Аннасофия Робб, Дэвид Денман, Эмори Коэн, Oscar Gale, Reid Williams, Стив Зиссис, Дэниэл Чунг, Дэна ЛиПеревод: Многоголосый (TVShows, HDrezka Studio, LE-Production), Двуголосый (ViruseProject), Авторский (М.Яроцкий)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, Английские (Full, SDH)Продолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6A9625DD86D8BC1691FF2B6F125CAF96BA52FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751783   (42164) от 28.09.2024
-
-Одинокие волки / Wolfs (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пути двух соперничающих решал пересекаются, когда их обоих вызывают помочь скрыть промах видного нью-йоркского чиновника. В течение одной взрывоопасной ночи им придётся отбросить свои мелкие обиды и эго, чтобы довести дело до конца.Производство: Великобритания, США / Apple Studios, Columbia Pictures Corporation, Plan B Entertainment, Smoke HouseЖанр: триллер, криминалРежиссер: Джон УоттсАктеры: Брэд Питт, Джордж Клуни, Эми Райан, Остин Абрамс, Пурна Джаганнатан, Wael Alroyly, Златко Бурич, Линда Карола, Ирина Дубова, Ричард КайндПеревод: Профессиональный многоголосый (RGB)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECF4C16D9DA5541566CDFEE5062B8B7F1BC766C
 ```
 
 https://mybot314.ru/tekegram_catalog/

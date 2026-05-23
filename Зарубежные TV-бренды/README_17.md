@@ -1,3 +1,55 @@
+###  Публикация: 999280   (864180) от 22.03.2016
+
+Как мы до этого додумались (Сезон 1, серии 1-6 из 6) / How We Got to Now (2014) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сериал "Как мы до этого додумались со Стивеном Джонсоном" раскроет историю зарождения замечательных идей, которые сделали возможной нашу современную жизнь, и познакомит с их незаслуженно забытыми авторами и неожиданными последствиями их изобретений.Телекомпания: Великобритания, США, BBC Worldwide Americas, British Broadcasting Corporation (BBC), NutopiaЖанр: ДокументальныйРежиссер: Ник СтэйсиПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: EN, вшитыеПродолжительность: 6 x ~ 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA760EFC960E630BE15FCDFDED341570B374EE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375896   (863435) от 15.04.2020
+
+Схватка / Todd Sampson's Life On The Line (2017) HDTVRip [H.264/1080p-LQ] (сезон 1, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тодд Сэмпсон использует свою веру в науку для грандиозных испытаний в серии эпических экспериментов, он доверяет свою жизнь законам физики.Производство: Великобритания, ABCЖанр: Документальный, наука, экспериментыПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6x ~00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E7D456180EEF0B3919C0AF8A735C987902701E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999478   (862538) от 23.03.2016
 
 Discovery. Гонка на вымирание / Racing Extinction (2015) BDRip
@@ -6,7 +58,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) BDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Viasat History: Тени средневековья / Medieval Dead (2013-2016) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ History Channel. Ланкастер на войне / The Lancaster at War (2009
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Discovery: Самогонщики (серии 1-6 + спецвыпуск) / Disc
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +244,7 @@ Discovery: Будущее с Джеймсом Вудсом. Как стать с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +270,7 @@ BBC: История Единицы с Терри Джонсом / The Story of 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +296,7 @@ NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +322,7 @@ Discovery: Смертельный улов / Deadliest Catch (2005) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +348,7 @@ NG: Доисторические хищники / Prehistoric Predators  (2009) 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +374,7 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ BBC: Серенгети / Serengeti II (2021) WEBRip [H.264/720p] (сезон 2,
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ BBC. Биологические часы: как они работают? / Body
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Bi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ Discovery: Смертельный улов / Deadliest Catch (2007) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ BBC: Волк / The Wildlife Specials: Wolf (1997) DVD-5
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,59 +671,6 @@ BBC: Инстинкт человека (Человеческие инстинк�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 132122   (848569) от 26.03.2014
-
-BBC: Как искусство сотворило мир / How Art Made the World (2005) DVDRip (серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый фильм ВВС предлагает Вам совершишь путешествие из глубины веков через все пять континентов, чтобы проследить эволюцию искусства человеческой цивилизации.
-Вы увидите насколько стремительным было развитие искусства на ранних стадиях становления нашей цивилизации, как с течением веков оно обретало различные течения и направления, как заняло свое место в современном (   Читать дальше...   )Производство: США, Великобритания /  British Broadcasting Corporation (BBC), KCETЖанр: Документальный, Научно-популярный, TV минисериалРежиссер: Робин Дэшвуд, Марк Хеджко, Бен МакФерсон...Перевод: ДублированныйПродолжительность: 04:15:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111391   (848518) от 05.03.2017
-
-Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима пришла. Маленькие и большие животные, независимо от готовности, должны выстоять в это суровое и жестокое время года. В то время, как одни всеми силами цепляются за жизнь, другие находят возможность пользоваться преимуществами на льду. В этой передаче вы увидите, как животные любыми способами борются за выживание в холодный период.Телекомпания: США, National Geographic ChannelsЖанр: Документальный, фаунаРежиссер: Jessica ConnellПеревод: Одноголосый закадровый, профессиональный, переведено и озвучено на студии Велес, текст читает Дмитрий СтрелковПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4930548404DF6816C8B21B39DF972F3B3ABE476C
 ```
 
 https://mybot314.ru/tekegram_catalog/

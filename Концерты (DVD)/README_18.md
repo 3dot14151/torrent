@@ -1,29 +1,3 @@
-###  Публикация: 25895   (45111) от 31.08.2024
-
-Doro - 20 Years a Warrior Soul DVD (2006)
-
->>След.
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальное юбилейное издание, оно включает в себя два DVD диска: - Первый диск отведен под два практически равных по продолжительности фильма. Первый из фильмов посвящён турне в поддержку последнего на тот момент альбома Доро - "Warrior Soul" и представляет увлекательное путешествие с командой, в котором вы побываете в различных европейских странах, посмотрите (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 05:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C74B028133F6B3D7681F2BC56BE36FB6E63D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 226570   (45083) от 31.08.2024
 
 Halford - Live In Anaheim (2010) DVD9
@@ -32,7 +6,7 @@ Halford - Live In Anaheim (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +35,7 @@ B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +90,7 @@ AC/DC (ACDC) - Plug Me In (Limited Edition) [2007, Hard Rock, 3xDVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

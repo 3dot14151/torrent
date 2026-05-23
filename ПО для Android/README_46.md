@@ -1,3 +1,84 @@
+###  Публикация: 1524121   (746248) от 14.01.2022
+
+Советские плакаты v1.3.9 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Как гости из прошлого, плакаты советских времён хранят дух великой эпохи. Когда-то они были обычными агитматериалами, сегодня же стали антиквариатом, свидетелями жизни простых советских людей.
+
+Советские плакаты — это не просто образец советской графики, это еще и индикатор жизни советского народа, своеобразная машина времени, которая перенесет вас на десятилетия (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 5 августа 2021 г.Разработчик: Macsoftex CompanyПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1E53DF5AA96F79E1DF41578710310F8E80343C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524311   (744994) от 15.01.2022
+
+Greenify v4.7.5 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Агрессивные Doze» и «Doze на Go», чтобы максимально экономно расходовать заряд батареи на Android, даже без рута! (Подробности описаны в настройках). Суть программы, как и у многих аналогов, в отключении ненужных процессов и продлении автономной работы устройства. Greenify усыпляет программы, работающие в фоновом режиме — так они не потребляют энергию, но если приложение (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 15.11.2019Разработчик: Oasis FengПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAD30D999DEE501E0DD7DE930AE490A8F6C644C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524345   (744985) от 15.01.2022
+
+Погода и Виджет - Weawow v4.7.8 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Weawow — это погодное приложение, дополненное красивыми фотографиями на тему погоды, которые сделаны фотографами по всему миру.
+Фотографии отражают текущую погоду в вашем месте: ясная, облачная, дождливая или снежная, чтобы вы могли решить, нужен ли вам зонтик или солнцезащитные очки, когда вы выходите на улицу.Тип издания: Пиратка (Full)Релиз состоялся: 14 января 2022 гРазработчик: weawow weather appПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E661D505CA8E9E1E374A62868B2DED9675858BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524326   (744962) от 15.01.2022
 
 IELTS Practice Pro v4.9.2 [En]
@@ -6,7 +87,7 @@ IELTS Practice Pro v4.9.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +194,7 @@ eReader Prestigio Premium 6.4.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +220,7 @@ Video Converter Android 2 v3.2.5 Premium [En/Rus] - видео и аудио к�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +246,7 @@ Track24.ru 1.95 (Lite Mod) [Ru/Eng]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +272,7 @@ RepliGo PDF Reader v4.2.9 - многофункциональный вьювер 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +298,7 @@ NumoTrend (NUM + KinoTrend) v2.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +324,7 @@ KidsControl / Cемейный GPS трекер v5.2.14 [Ru/Multi] (обновл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +350,7 @@ Easy Poser v1.3.20 Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +376,7 @@ USSDDualWidgetPro v1.0.31 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +402,7 @@ nzb360 - Sonarr / Radarr / SAB / Torrents and more v15.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +428,7 @@ GuitarTab - Tabs and chords v3.8.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +484,7 @@ MotoScan для BMW мотоциклов v1.83 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +510,7 @@ AlfaOBD v2.2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +536,7 @@ bimmer-tool expert v3.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +562,7 @@ TorrServe v1.1.83_4/ v1.1.76_9 (клиент+сервер) [Ru] (обновля�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +588,7 @@ KitchenTimer v4.5.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +667,7 @@ Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,87 +678,6 @@ Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E3551610F34E101F3AF9F0D76CC397384E4F8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399649   (732863) от 01.08.2020
-
-Librain v1.1.11 [Ru/Multi] - развитие памяти и внимания (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Librain - приложение, которое поможет вам повысить внимательность, развить память, мышление и интеллект. Обучение происходит в виде игры, где необходимо запомнить расположение фигур на игровом поле и затем разместить их по первоначальным позициям. Приложение усложняется тем, что фигуры могут быть нескольких типов, а так же варьирующимся размером поля и разными заданиями. (   Читать дальше...   )Тип издания: Пиратка (Mod: получен PREMIUM, удалена реклама и аналитика)Релиз состоялся: 07.02.2018Разработчик: GreenKeyCompanyПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA99139C2A39AFB2ECF9D0A9F43AD3F23602779C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437690   (732640) от 06.02.2022
-
-Mind Diary Journal / Дневник для самоанализа и саморазвития v0.9.9.3 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Личный дневник для ментального здоровья - это простое в использовании приложение для ведения журнала с подсказками и трекером настроения. Разобраться в себе - первый шаг к саморазвитию, крепкому ментальному здоровью, и личный дневник/журнал может сыграть ключевую роль в этом процессе.Тип издания: Пиратка (открыт Premium)Релиз состоялся: 03.02.2022Разработчик: BazimoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B270D0B2BAD00A18EF274228283DE4F348ACD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529907   (731744) от 08.02.2022
-
-Lanos (Daewoo/ZAZ/Chevrolet) v1.0.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение является руководством по ремонту и эксплуатации в цветных фотографиях по моделям:
-Daewoo Lanos
-Chevrolet Lanos
-ZAZ LanosТип издания: Пиратка (Pro)Релиз состоялся: 18 декабря 2021 г.Разработчик: Monolith publisherПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D680E354A02CAB6EDE077F4763FEFDC9628945F
 ```
 
 https://mybot314.ru/tekegram_catalog/

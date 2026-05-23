@@ -1,3 +1,55 @@
+###  Публикация: 1584700   (224390) от 19.10.2022
+
+Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет основан на классическом китайском романе XIV века «Троецарствие» и рассказывает о войне в регионе Канто в Японии, где бойцы, известные как «тощи», представляющие семь различных школ, сражаются за власть.Производство: Студия Arms / アームスЖанр: приключения, эттиРежиссер: Кудзё РионПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A03F1839F55EAD20516342FC13D228C5D08124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736429   (223969) от 20.12.2013
+
+Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Древнее государство Парро пало от набега коварных и воинственных монгаулов. Королевская семья уничтожена, лишь в последнюю минуту придворный маг успевает телепортировать «две жемчужины» - младших принца и принцессу Ремуса и Ринду - в безопасное место. Увы, в горячке боя промашка вышла - наследники парросского престола попали не к родственникам, а в лес Руд, пользующийся (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Вакабаяси АцусиСубтитры: •Продолжительность: 26 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD2422EBCEE140B58AA2E9BD792BEE4C43C0E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342955   (221295) от 04.12.2019
 
 Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +58,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tiger & Bunny 2 | Тигр и Кролик 2 [2022, Web, 25 эп.] WEBRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. + OVA] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Как я стала мальчиком-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +215,7 @@ The Big O | Большой О [1999, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Yuukai Anna | Anna (Kidnapper) | Анна-похитительница [2018, Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +294,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +503,7 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -477,7 +529,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -503,7 +555,7 @@ Iwa Kakeru! Sport Climbing Girls | Держись крепче! Скалолаз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -529,7 +581,7 @@ Kaguya-sama wa Kokurasetai: First Kiss wa Owaranai | Kaguya-sama: Love is War - 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -555,7 +607,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -581,7 +633,7 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -607,7 +659,7 @@ Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -618,58 +670,6 @@ Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90A9FC8307F1958018F645334844412A75D6E6BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648676   (208104) от 24.07.2023
-
-Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не признает меня мобом [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дзюнта Щираищи — обычный старшеклассник с простым желанием — провести школьные годы полноценно. Но есть одна проблема: Дзюнта настолько неприметный, что одноклассники и учителя его не замечают, словно моба в игре. Всё настолько серьезно, что люди думают, будто место Щираищи всегда пустует и ошибочно предполагают, что он просто пропускает школу. В классе даже ходит (   Читать дальше...   )Производство: студия Pine Jam / パインジャムЖанр: комедия, романтикаРежиссер: Кога КадзуомиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F785B7C959902721924FC523C7149ED483C8A0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612615   (207237) от 16.02.2023
-
-Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь слёзы я притворяюсь кошкой [2020, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная японская старшеклассница Миё живет своей обычной японской жизнью. Но когда девушка влюбляется в одноклассника, а тот не обращает на неё никакого внимания, она решает, что единственный способ добиться его расположения — стать кошечкой. В этом ей поможет волшебная маска. Вскоре также выяснится, что существует параллельный кошачий мир, а вернуться в человеческое (   Читать дальше...   )Производство: студия Studio Colorido / スタジオコロリドЖанр: приключения, романтика, фентезиРежиссер: Сато ДзюнъитиПеревод: Netflix (Всеволод Иващенко)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B6C9B0D32177A1A45BEBCE715355701ADCE1A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,185 @@
+###  Публикация: 1188380   (274105) от 02.12.2017
+
+Newblue Titler Pro Ultimate CE 6.0 build 171030 RePack by Team V.R [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+NewBlue Titler Pro - Новое решение для создания 2D- и 3D-титлов, разработанное для профессиональных видео-редакторов. NewBlue Titler Pro предназначен для улучшения и упрощения рабочего процесса. Нет больше необходимости создавать графические назания в других программах - Titler Pro дает вам быстрый доступ к сложным анимациям, профессиональным стилям напрямую в вашем (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FFD3BE814EC5E5B6AF408BF1C7F4A07A41CA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182522   (274088) от 02.12.2017
+
+Чернобыль: Зона отчуждения (2017) SATRip (сезон 2, серии 1-8 из 8 + фильм о фильме - Как сделать бомбу?)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в США, где в результате взрыва на атомной станции образовалась гигантская Зона отчуждения, заселённая бандитами - государство при этом погрузилось в хаос гражданской войны. Перед всеми, кто попадает на эту территорию, встает вопрос жизни и смерти – или вопрос борьбы за личную свободу против диктатуры насилия.Производство: Россия, СинеЛаб ПродакшнЖанр: Детективы, Фантастика, МистикаРежиссер: Андерс Банке, Павел КостомаровАктеры: Ольга Бузова, Кристина Казинская, Анвар Халилулаев, Сергей Романович, Валерия Дмитриева, Константин Давыдов, Евгений Стычкин, Юрий Скулябин...Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532D12E7B0A57E53BE05E20BDB178AA4FD172415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 890925   (274082) от 02.12.2017
+
+Книжная серия | Библиотека мировой литературы для детей [58 книг] (1976 -1992) [DJVU, PDF] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Библиотека мировой литературы для детей - издание, включающее "золотой" список произведений русской и зарубежной классики, мирового фольклора, литературные и народные сказки, стихи и прозу детских писателей. Книги иллюстрировали лучшие отечественные графики. Издания печатались на хорошей бумаге, с яркими иллюстрациями. Не случайно издательство получило (   Читать дальше...   )Жанр: Детская проза, Сказки, СтихиФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729E2A8CBD22BC04676755CA65C4050B1BAB1920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447848   (273835) от 28.11.2018
+
+Command & Conquer 4: Tiberian Twilight / Command & Conquer 4: Эпилог (2010) [Ru/En] (1.0)  Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 2062 году человечество находилось на грани вымирания. Из-за тиберия - таинственного инопланетного минерала, который заразил Землю и стал причиной кровопролитной войны между Глобальным Советом Безопасности (ГСБ) и «Братством НОД», планета практически опустела. В самый разгар кризиса Кейн, лидер «Братства НОД», сообщил ГСБ, что он разработал систему, которая позволит (   Читать дальше...   )Тип издания: RepackРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74438855CEA4544989D0DB6399986D79B8175183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 426137   (273789) от 22.12.2011
+
+Резня / Carnage (2011) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История двух родительских пар, которые знакомятся после того, как их сыновья сходятся в школьной драке. При этом каждая пара оспаривает родительские навыки другой, вместо того, чтобы разглядеть собственные проблемы.Производство: Constantin Film Produktion GmbH / SBS Productions / SPI Poland (Германия, Франция, Испания, Польша)Жанр: Драма, комедияРежиссер: Роман ПоланскиАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A8050D136C5823346F9EBFBA3C12ABC41874FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336999   (273464) от 11.11.2019
+
+⚡ «Яндекс» начал тестировать робота-курьера
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+"Яндекс" начал испытания самоуправляемого робота для перевозки небольших грузов, способного распознавать объекты и ездить по городским тротуарам. Об этом говорится в сообщении компании.Как пояснили в "Яндексе", робот, который за свое сходство с луноходом получил название "Яндекс.Ровер", представляет собой автономный аппарат высотой около (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083390   (273387) от 16.12.2016
+
+Медведев: Интернет — это не добро и не зло
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Премьер-министр РФ Дмитрий Медведев в интервью российским телеканалам заявил, что Интернетом и социальными сетями надо пользоваться в соответствии с законом и существующими ограничениями. Так глава правительства ответил на вопрос журналиста НТВ Ирады Зейналовой о цензуре в Интернете.Дмитрий Медведев: «Интернет, соцсети — это не добро и не зло, это факт нашей жизни. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337040   (273274) от 11.11.2019
 
 Остров сокровищ (1982) DVDRip [H.264] [1-3 серии из 3]
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ Nik Collection 2 By DxO 2.0.8 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +240,7 @@ Corona Renderer 4 (Hotfix 1) for 3ds Max 2013-2020 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +292,7 @@ TV Control v2.1.2 Full [Ru] - Программа телепередач на And
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_272854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +373,7 @@ Paravis Flash ver:Assay 11.2018 [UEFI | x86/x64 | RU/EN]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +402,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +509,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +535,7 @@ Windows XP Pro SP3 StableOS 1.10 FullLite 1.10 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +561,7 @@ StarChip - "космический корабль" в виде чипа, кот�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_272049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +587,7 @@ Extensis Suitcase Fusion 7 v18.2.1 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_271730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -460,7 +642,7 @@ Phase One Capture One Pro 12.0.0.291 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,195 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5FB51A6D647CAAAB105B7ABE633D5DAB0DC7403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337940   (271116) от 13.11.2019
-
-Windows 10 Enterprise 1909 18363.476 x64 Rus by OneSmiLe (13.11.2019)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru_windows_10_business_editions_version_1909_x64_dvd_675b5388
-Интегрированы последние обновления на 13.11.19.
-Удалены все модерн приложения, кроме магазина и поиска(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEF3A11B9D7F76306835A305E150A70089DE76E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338053   (271101) от 13.11.2019
-
-Windows 10 Enterprise LTSC 2019 17763.864 x64 Rus by OneSmiLe (13.11.2019)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru_windows_10_enterprise_ltsc_2019_x64_dvd_78e7853a
-Интегрированы последние обновления на 13.11.19.
-Работа с образом - DISM.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45612BA2CE1AB0E615C180982EB309DADCFBD0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337867   (271096) от 13.11.2019
-
-Джокер / Joker (2019) WEBRip [H.264/720p-LQ] [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада, BRON Studios, Creative Wealth Media Finance, DC ComicsЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Фрэнсис Конрой, Бретт Каллен, Шей Уигэм, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Авторский одноголосый - А.Важенин (BadBajo)Субтитры: Корейские хардсабыПродолжительность: 01:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C2FB29634C458A323B080B2FD0CADFC3CFDA63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 260403   (271079) от 25.12.2010
-
-Формула 1 / Formula 1 (All season 2010) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сезон 2010 года Формулы-1 — 61-й сезон Формулы-1. Технический и спортивный регламенты были и продолжают оставаться объектом спора между FIA и FOTA. Действующий чемпион среди пилотов — Дженсон Баттон присоединился к команде McLaren, а действующий обладатель кубка конструкторов — Brawn GP был приобретён концерном Daimler AG и был преобразован в заводскую команду Mercedes-Benz. (   Читать дальше...   )Телекомпания: Россия 2Жанр: СпортФормат: MKVПродолжительность: 19 выпусков по ~02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877FA45C51AB124B7C912BC8770EC5889C4B194B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188929   (271053) от 05.12.2017
-
-Глава Роскомнадзора исключил введение цензуры в интернете по образцу Китая
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_271053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава Роскомнадзора пообещал оставить интернет без цензуры
-Жителям России не надо опасаться цензуры в интернете, аналогичной той, что существует в Китае.Глава Роскомнадзора Александр Жаров заявил, что Россия не собирается перенимать подходы Китая в регулировании интернет-контента, так как отношение двух стран к этому вопросу принципиально различается. Об этом он (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101307   (270930) от 05.12.2017
-
-Resident Evil 4 / Biohazard 4 (2014) [Ru] (1.06) Repack Other s [Ultimate HD Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270930.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Resident Evil 4 специальному агенту Леону С. Кеннеди поручается спасти похищенную дочь президента США. Расследование приводит его в захолустную европейскую деревню, населенную агрессивными фанатиками таинственной секты Лос Иллюминадос, стоящей за похищением. Леону предстоит столкнуться с чудовищными мутантами и враждебными селянами, разум которых порабощен паразитами (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D76135C48DF345E724E1092C3A7D8CDE2D5179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265986   (270780) от 01.12.2018
-
-Ростех разработал чип для интернета вещей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_270780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холдинг «Росэлектроника» Госкорпорации Ростех завершил создание первой российской микросхемы для Интернета вещей (Internet of Things, IoT). Чип размером 5*5 мм предназначен для приема и передачи информации в оптимальном для Интернета вещей частотном диапазоне от 100МГц до 2,5ГГц. Это первая отечественная микросхема, которая обеспечивает цифровую связь на расстоянии (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

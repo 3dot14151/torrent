@@ -1,3 +1,89 @@
+###  Публикация: 1575355   (376915) от 09.09.2022
+
+U96 - 20.000 Meilen Unter Dem Meer (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Seven Seas (feat. Claude Oliver Rudolph)
+02. New Life
+03. Atlantis (feat. Claude Oliver Rudolph)
+04. Pressure(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B3222812DFCF0D75676A9E97BC6A4FCD2E7923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415612   (376869) от 12.10.2020
+
+Martin Goodwin - Discography 6 Releases (2013-2020) Tehnofonika, Northallsen, Kornarion [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Eclosion Pt.1 (06:55)
+ 02. Eclosion Pt.2 (12:08)
+ 03. Eclosion Pt.3 (06:37)
+ 04. Eclosion Pt.4 (08:15)(   Читать дальше...   )Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 04:50:59 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47BAF85EB491384EC2FB5E94B6C70B9D59D56F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303292   (376330) от 12.10.2020
+
+Aleja Sanchez - Discography 30 Releases (2010-2020) Northallsen Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Internal Dialogue (07:11)
+ 02. The Language Of Silence (06:18)
+ 03. Inner Voices (06:34)Тип издания: WebЖанр: Techno, Ambient, Experimental •Продолжительность: 14:27:01 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CD81AC27791EFB008D3B3B3B51B0F0242899F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069172   (376102) от 03.11.2016
 
 VA - Renaissance The Mix Collection: Art Department (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
@@ -6,7 +92,7 @@ VA - Renaissance The Mix Collection: Art Department (2016) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +121,7 @@ VA - Figments Of Duality (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +150,7 @@ Satori - Maktub (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Wor
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +179,7 @@ VA - Ethereal Techno #007 (2019) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +208,7 @@ deadmau5 - mau5ville - Level 3 (2019) [FLAC|Lossless|WEB|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +237,7 @@ Mario Hammer And The Lonely Robot - L’esprit De L’escalier Remixes (2016) [F
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +266,7 @@ An-i - 2 EP (2014-2015) Cititrax [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -208,7 +294,7 @@ VA - Steyoyoke Black Onyx Vol. 5 (2019) [FLAC|Lossless|WEB|tracks] <Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -237,7 +323,7 @@ Bronson - BRONSON Remixes N°.1 (2020) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +352,7 @@ Zenker Brothers - Cosmic Transmission (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +381,7 @@ Rodriguez Jr. - Totally Mobilee - Rodriguez Jr. Collection, Vol. 1-2 (2013-2015)
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +410,7 @@ Becky Hill - Get To Know (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +439,7 @@ Tensnake - L.A. (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Nu Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +468,7 @@ Armin van Buuren - Club Embrace (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +497,7 @@ VA - Dantze: Sunburn Compilation (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +525,7 @@ Kangding Ray - Cory Arcane (2015) [FLAC|Lossless|WEB-DL]<Techno, IDM, Experiment
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -468,7 +554,7 @@ Brickman - Collection 6 Releases (2010-2017) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,7 +583,7 @@ Dirty Vegas - Photograph (2015) D:vision Records [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +612,7 @@ Ulro - The Land Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +641,7 @@ Dino Sabatini - Discography 17 Releases (2008-2016) Prologue, Outis Music [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +670,7 @@ Camille Jones - Difficult Guys (2008) [FLAC|Lossless|tracks + .cue] <House, Elec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +699,7 @@ VA - Masvingo Phases (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +728,7 @@ Deadmau5 - Here's the Drop! (2019) [FLAC|Lossless|WEB|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -656,90 +742,6 @@ Deadmau5 - Here's the Drop! (2019) [FLAC|Lossless|WEB|tracks] <Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B0536870462055B8A9A8A85FDD1251655C22AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072371   (354675) от 12.11.2016
-
-VA - Stil Vor Talent Berlin - Kottbusser Tor (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Techno HouseПродолжительность: 03:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C74907C935B10AF61DFEEA12AFE74ACC5B6D861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256628   (354420) от 22.10.2018
-
-VA - Sudbeat Showcrates 4 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Budakid & Nordfold - Amado (Original Mix) (7:02)
-02. RPO & GMJ - Immersion (Original Mix) (6:39)
-03. James Gill - Through the Looking Glass (Original Mix) (7:28)
-04. Mauro Augugliaro - Lost in a Silver Dream (Original Mix) (9:04)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFFB50E562A9E8FDF8A43711ED2FC35595D89B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178711   (353820) от 29.10.2017
-
-VA - Anjunadeep 09 (Mixed By Jody Wisternoff & James Grant) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boerd – Void (01:26)
-02. Lycoriscoris – Flight (04:12)
-03. Gallago – Sun (Interlude Edit) (01:41)
-04. Dusky – Square Miso (Anjunadeep 09 Mix) (04:37)(   Читать дальше...   )Жанр: Deep House, Downtempo, Chill HouseПродолжительность: 05:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B50C2CF8C4B2C0DD33C943C1501786E1C39FF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

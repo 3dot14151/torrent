@@ -1,3 +1,86 @@
+###  Публикация: 1436042   (138539) от 30.12.2020
+
+Michael Pavlovich | Intro To ZBrush 4R7 Part 3 (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Майкл Павлович - художник по персонажам, его специализация - 3D концепт арт и продакшн пайплайны.
+В 2005 закончил Ринглингский колледж искусств и дизайна, получив степень бакалавра изящных искусств в комптютерной анимации.
+Начал свою карьеру в Electronic Arts в качестве художника по окружению, работал над такими проектами, как Madden NFL и NCAA Football, затем занимался (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 07:41:60
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B34C111400533B7AF81DE2F9A8C67553C9295ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436008   (138073) от 30.12.2020
+
+CGMA, Pete Zoppi | Создание персонажа для фильмов/синематиков / Character Creation for Film/Cinematics (2019) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Целью этого курса является освоение процесса создания персонажей для фильмов и игровых синематиков, включая все аспекты композиции и нарратив. Каждую неделю курса мы посвятим отдельному аспекту процесса создания модели персонажа и последовательно создадим полностью законченную модель. Мы начнем с анализа референс материалов и перейдем к базовому скульптингу. На следующем (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 23:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F0350B89F2A16A37FCE7F00B3E8683451A2414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436127   (138037) от 30.12.2020
+
+Тимур Константинов | Дизайн и анимация HUD&UI (2020)
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Курс состоит из 36 занятий, которые объединены в 4 главы, и 8 увлекательных домашних заданий. Длительность курса составляет более 26 часов (одних только видеоуроков!).
+В курсе детально рассматривается процесс создания HUD&UI-элементов с самого нуля
+до профессиональных вершин.
+Курс, по сути является квинтэссенцией 10-летнего опыта Тимура в сфере моушен-дизайна.Производство: VideoSmileЖанр: Графика, анимацияПродолжительность: 26:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B29B1278E0660E46997C71B4EFDB75AC76268D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436044   (137970) от 30.12.2020
 
 CGMA, Dylan Mellott | Weapons and Props for Games (2017) PCRec
@@ -6,7 +89,7 @@ CGMA, Dylan Mellott | Weapons and Props for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +144,7 @@ Bloop Animation, Dillon Gu | Курс по анимации в Blender 2.83 / Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +172,7 @@ Enterclass, Сергей Курбатов | Тихая река (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -118,7 +201,7 @@ CG Fast Track | Быстрый путь в Substance Painter: Основы / Sub
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -144,7 +227,7 @@ Vitaly Bulgarov | Character Design and Modeling for Next-Gen Games (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +253,7 @@ CG Fast Track | Искусство освещения в Blender 2.83 / The Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -225,7 +308,7 @@ Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -253,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -281,7 +364,7 @@ Hudozhnik Online, Полина Абдулаева | Практическая и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -308,7 +391,7 @@ ArtStation, Florian Neumann | Post Apocalyptic Knife - Game Asset Tutorial (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -337,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -366,7 +449,7 @@ Udemy, Studio Wander | Complete Guide to Unreal Engine 5 : 3D Architecture & Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -395,7 +478,7 @@ Stepik, Дмитрий Фокеев | Adobe After Effects 2023. С нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +507,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +535,7 @@ Enterclass, Илья Ибряев | Состояние неба. Пейзажи 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +561,7 @@ Bazanova Art, Ольга Базанова | Тёплые пейзажи. Тар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +590,7 @@ Bazanova Art, Ольга Базанова | Практика художника.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +618,7 @@ Gumroad, Polygonpen | Advanced Bottle Modeling and Rendering in Cinema 4D and Re
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,7 +647,7 @@ Hudozhnik Online, Ника Сабрекова | «Цветные каранда�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,7 +676,7 @@ Roman Mantra | Mantra PRO Ai. Вебинар по созданию нейроа�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -622,7 +705,7 @@ Udemy, Manas Roy | ChatGPT and Adobe Firefly AI Course: Beginner to Pro Level (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -635,85 +718,6 @@ Udemy, Manas Roy | ChatGPT and Adobe Firefly AI Course: Beginner to Pro Level (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0641E0D6A1064A114B04DDF3A03B4F6ED4837A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681766   (132265) от 04.12.2023
-
-Udemy, Build FX | Master Blender With AI Tools, Blender Addons & Unity (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132265.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы научимся работать с надстройками блендера. Нам очень хочется сделать реалистичный 3D-мох и сделать фотореалистичный рендеринг сцены природы. Mossify позволяет пользователям добавлять процедурный мох в 3D-модели внутри Blender, контролируя результаты с помощью простого набора параметров для основного рисунка шума, а также размера и плотности нитей (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B018A0D0F675D86FD10ABDD66343F9920A935F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681755   (132260) от 04.12.2023
-
-Liveclasses, Антон Мартынов | Генерация изображений в Leonardo.Ai (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Leonardo.Ai – это мощный инструмент, предоставляющий уникальные возможности для создания изображений при помощи искусственного интеллекта.
-В ходе этого класса мы исследуем разнообразные аспекты использования Leonardo.Ai, начиная с формулирования простых запросов и заканчивая созданием собственных моделей. Мы рассмотрим, как правильно настраивать параметры генерации, (   Читать дальше...   )Производство: LiveclassesЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 03:13:46Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC140C39BB5290A6545CBF1DBBCB27C3084618B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681776   (132259) от 04.12.2023
-
-Udemy, Bharat Sharma | Introduction to Sculpting in Blender for Absolute Beginners (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект посвящен изучению инструментов Blender, которые он предлагает для создания цифровых скульптур. Мы собираемся узнать о кистях, модификаторе мультиразрешения, динамической топологии, Remesh и многих других подобных инструментах. Мы собираемся изучить, как теперь можно рисовать в режиме скульптуры Blender, а также использовать данные рисования для создания (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 04:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C81C369C63988EBC8E49A7D7BE0A4E86AB9D4CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

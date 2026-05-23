@@ -1,3 +1,55 @@
+###  Публикация: 1277261   (786996) от 19.01.2019
+
+Animal Planet: Дом для рептилий. Подпольный бар для песчаных удавчиков / Scaled (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F3F67704E4E75215F03F5465E19645D4FF38FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277264   (786995) от 19.01.2019
+
+Animal Planet: Дом для рептилий. Принцесса и Питон / Scaled (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A6A7F45AC0DA332F07AF7714D9B3575053E9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277263   (786978) от 19.01.2019
 
 Animal Planet: Дом для рептилий. Семья древолазов / Scaled (2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +58,7 @@ Animal Planet: Дом для рептилий. Семья древолазов /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Animal Planet: Дом для рептилий. Невероятные бород
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Мастера оружия / Mad Dog Made (2018) HDTVRip (серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Viasat History. Рим: Первая сверхдержава / Rome: The World'
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ PBS: Истории из королевского гардероба Люси У
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Discovery: Забытая инженерия / Abandoned Engineering (2016) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ NG: Тайна гималайских мумий / Mystery of the Himalayan Mumm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Discovery. Законы акульего мира / The laws of Jaws (2018) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -500,7 +552,7 @@ NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -526,7 +578,7 @@ NGW: Дикая Шотландия / Wild Scotland (2013-2016) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -552,7 +604,7 @@ History Channel: В изоляции. Монголия / Alone. Mongolia (2018) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -604,7 +656,7 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -615,63 +667,6 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D7C6E8A7577D436E22BACE18DCCBAD23F510260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390926   (781788) от 18.06.2020
-
-History Channel: В изоляции. Один шанс на двоих / Alone (2017) HDTVRip (сезон 4, серии 01-11 из 11)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781788.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В изоляции» – это самый длительный и опасный эксперимент по выживанию человека в дикой природе. Один шанс на двоих. Семь пар.
-Экстремальное реалити-шоу «В изоляции: Один шанс на двоих» является продолжением популярного сериала «В изоляции» – самого дерзкого и продолжительного эксперимента по выживанию в дикой природе, показанного по телевидению.
-В борьбе за победу (   Читать дальше...   )Производство: США, LeftField Pictures, History ChannelЖанр: Документальный, познавательный, реалити-шоу, приключенияРежиссер: Валери ЛалeфПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FADA259D2DA0FF542A40C7BC8A086D10FC2485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201074   (781187) от 14.05.2010
-
-NG: Умные Крысы / Rat Genius  (2006) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_781187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куда бы мы не шли - они там.. Питаются тем, что мы оставили.. Мы можем даже не замечать их.. Поначалу.
-Но они строят темные царства прямо у нас под ногами. Крысы... Привыкайте к ним, потому что они не собираются уходить!
-Крысы плодятся почти на всех континентах, проникая в наши дома, вызывая ночные кошмары.
-Так почему крыса лидер по выживанию, точно отлаженная машина по завоевыванию мира?!Жанр: Документальный, научно-популярныйПеревод: Одноголосый закадровый, профессиональный
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

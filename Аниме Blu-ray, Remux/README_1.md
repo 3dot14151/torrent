@@ -1,3 +1,30 @@
+###  Публикация: 1327342   (376066) от 24.09.2019
+
+Akira | Акира [1988, Movie] Blu-Ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спустя 31 год после Третьей мировой войны и ядерной бомбардировки столицы Японии, воссоздан новый город — Нью Токио.
+Внешне все под контролем, однако, организация страны теперь напоминает профашистское государство, жесточайшим образом подавляющая попытки мятежа. В исследовательских центрах проводятся парапсихологические опыты над людьми для разработки совершенного (   Читать дальше...   )Производство: Япония, студия TMSЖанр: аниме, мультфильм, фантастика, боевик, триллер, детективРежиссер: Отомо КацухироПеревод: Киномания, Beez-one, Fiore, Malex, Animaze, THORAСубтитры: Русские (PGS), Английские (PGS)Продолжительность: 02:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAC75741610F8ACBC767CFB36F0A2CA206FA1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582635   (319521) от 29.11.2012
 
 Kumo no Mukou, Yakusoku no Basho / Beyond the Clouds, The Promised Place / За облаками [2004] Blu-ray raw+rus
@@ -6,7 +33,7 @@ Kumo no Mukou, Yakusoku no Basho / Beyond the Clouds, The Promised Place / За 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +61,7 @@ Toki wo Kakeru Shoujo / The Girl Who Leapt Through Time / Девочка, пок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +87,7 @@ Kari-gurashi no Arietti / The Secret World of Arrietty / Ариэтти из с�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +113,7 @@ No Game No Life Zero | Нет Игры - Нет Жизни: Начало [2017, 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +141,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] UHD BDRemux HEVC 10-bi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -172,7 +199,7 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -198,7 +225,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -224,7 +251,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -253,7 +280,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRe
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -281,7 +308,7 @@ Inu-Oh | Inu-Ou | Ину-о: Рождение легенды [2022, Movie] BDRem
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -307,7 +334,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2001,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -333,7 +360,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -362,7 +389,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -391,7 +418,7 @@ Darling in the FranXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -417,7 +444,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -443,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -469,7 +496,7 @@ Hotaru no Haka | Grave of the Fireflies | Могила светлячков [198
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -495,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -521,7 +548,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -547,7 +574,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] Blu-ra
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -573,7 +600,7 @@ Jormungand | Ёрмунганд [ТВ-1] [2012, TV, 12] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,7 +626,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | Konosuba: God's Blessin
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -625,7 +652,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -651,7 +678,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -662,32 +689,6 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B9069ED68D69376A5204F606D264CCD62CD285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796359   (66983) от 10.05.2025
-
-Byousoku 5 Centimeter | 5 Centimeters per Second | Пять Cантиметров в Cекунду [2007, Movie] Blu-ray 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окончание начальной школы становится для Такаки и его подруги Акари громадным разочарованием: из-за переезда родителей приходится распрощаться с планами на поступление в одну и ту же среднюю школу. Десятки километров — гигантское расстояние для ребенка и совсем небольшое — для взрослого… но умение преодолевать расстояния не всегда помогает преодолеть растущую пропасть (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаПеревод: ReanimediaОзвучка: Original 4.0Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 63 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9ECAD1091F8353F1E3C424C90C5EFF40B9A8A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

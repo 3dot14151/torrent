@@ -1,3 +1,55 @@
+###  Публикация: 1028274   (690657) от 22.06.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 03) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC0C81520E821534DA75042F88E0F468A842890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684356   (690547) от 22.06.2016
+
+Discovery. World's TOP 5. Super Trains / Пятёрка лучших. Супер поезда (2012) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Пятерка лучших" - это новый документальный цикл на канале Дискавери, в котором представлены самые мощные, самые быстрые, самые совершенные автомобили, самолеты и поезда. В каждом новом выпуске встретятся пять представителей своего класса, чтобы начать беспрецедентное состязание. В этом соревновании участвуют не только транспортные средства, но и крупнейшие (   Читать дальше...   )Производство: США, Discovery ChannelЖанр: Документальный, научно-познавательный, техникаРежиссер: Элйес ГабельПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18A05369CFC5F009DDCBC8CC6096A87030C4A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285815   (690102) от 22.06.2016
 
 BBC. Horizon: Парадокс Хокинга / The Hawking Paradox (2005) SATRip
@@ -6,7 +58,7 @@ BBC. Horizon: Парадокс Хокинга / The Hawking Paradox (2005) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +139,7 @@ NGW: Воздушное сафари. Австралия / Sky Safari. Australia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +165,7 @@ NGW: Дикая природа Китая. Царство дикой приро�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +191,7 @@ NGW: Глубоководные гиганты (Гиганты синей без
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ NGW: Фантастические существа Мадагаскара / Mada
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ BBC: Невидимые города Италии / Italy's Invisible Cities (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ Discovery. World's TOP 5. Super Planes / Пятёрка лучших. Супер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Discovery: Встреча с инопланетянами / Alien Encounters (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ NGW: Удивительные пауки / Incredible spiders (2015) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ BBC: Ядовитые укусы - смерть или спасение / Venom 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ NGW: Дикая природа Филиппин / Untamed Philippines (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ Discovery. Тело человека: Грани возможного / Human Bo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ NG. Осушить океан: глубокое погружение. Сокро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ NGW: Амазонская электрическая рыба / Amazon's electri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6014E446AE6818F2CEC0FB1796D192D3DADDB244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028637   (683909) от 25.06.2016
-
-BBC. Кошачьи тайны / Cat Watch 2014: The New Horizon Experiment (Cats uncovered) (2014) SATRip (сезон 1, серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кошки - пожалуй наиболее распространённое домашнее животное на нашей планете. Они живут во многих домах Англии, США, России и конечно же Египта, где кошка с незапамятных времен считается священным животным. Однако мы настолько привыкли к этим созданиям, что не отдаём отчёта в том, что кошки на протяжении миллионов лет эволюционировали в идеальных хищников.Телекомпания: Великобритания, BBCЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: ~ 00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB0E0B0CCC8C974323DDD51FBFAF10864DD154D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134986   (682815) от 18.05.2017
-
-Discovery: Техногеника. БТА. Телескоп-гигант (2017) HDTVRip [H.264/720p-LQ] (Сезон 2, серия 10 из 13)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без российской астрофизической обсерватории РАН в Нижнем Архызе, в Карачаево-Черкессии, сегодня уже невозможно представить себе не только отечественную, но и мировую науку. И процесс создания обсерватории не менее интересен, чем та научная деятельность, что она ведет. Чего стоит одно уникальное зеркало, на создание которого ушло более 4 лет! Идеально гладкая 15-километровая (   Читать дальше...   )Телекомпания: Discovery Channel РоссияЖанр: Документальный, История, ТелепередачаПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED009D33872C5EB73EA709A2551D2546CAC4341A
 ```
 
 https://mybot314.ru/tekegram_catalog/

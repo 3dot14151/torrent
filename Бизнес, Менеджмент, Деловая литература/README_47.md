@@ -1,3 +1,83 @@
+###  Публикация: 928706   (520197) от 18.08.2015
+
+Джефф Уокер | Запуск! Быстрый старт для вашего бизнеса (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет вам быстро создать свой бизнес. Независимо от того, есть ли у вас собственное дело или вы только собираетесь начать его, она даст вам надежный ренет ускорения.
+Задумайтесь о следующем: что, если бы вы могли осуществить выведение своего продукта на рынок подобно Apple или крупной голливудской студии? Что. если бы ваши потенциальные покупатели считали (   Читать дальше...   )Жанр: маркетингФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FFCB35E3433A0FB671A5D04D789EEBBC7579BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929252   (519343) от 19.08.2015
+
+Игорь Манн | Маркетинг на 100 %. Как стать хорошим менеджером по маркетингу (2004) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Перед вами книга российского гуру маркетинга Игоря Манна — добрая, ироничная и необычайно полезная! Автор делится с читателями своим опытом работы и дает неоценимые советы, которые необходимы каждому маркетологу: как начинающему, так и имеющему собственный богатый опыт работы в маркетинге.
+Впрочем, книгу можно рекомендовать не только маркетологам, но и предпринимателям, (   Читать дальше...   )Жанр: Маркетинг, PR, РекламаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF721684F7C41692C07948FC5BB8BA6D9D3C91DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929966   (516266) от 22.08.2015
+
+Энди Бойнтон, Билл Фишер | Виртуозные команды. Команды, которые изменили мир (2008) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эффективный менеджмент и умение руководить командами специалистов-виртуозов – обязательное условие для осуществления коренных преобразований в компании. На примере успешных команд, которым удалось совершить невозможное, авторы показывают, как талантливые люди, виртуозы, в соответствующих условиях превосходили даже самих себя. Приведенные в книге рассказы о виртуозных (   Читать дальше...   )Жанр: Управление, Подбор персоналаФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248904449182A84381F4ACB5C981BE9F672F176B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929918   (516210) от 22.08.2015
 
 Наталья Смирнова | Личные налоги: экономия. Всё о минимизации и возврате (2009) [FB2]
@@ -6,7 +86,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,90 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E6DCAFFB1655466FDA6B9DFB2395C801EAE2A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932310   (507069) от 31.08.2015
-
-Дмитрий Засухин | Юридический маркетинг. Как привлечь клиентов юристам и адвокатам (2014) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507069.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России идет бурное развитие юридического бизнеса. Все больше юристов и адвокатов сталкиваются с необходимостью профессионального привлечения клиентов. В этой книге вы найдете множество полезных идей, как разработать стратегию и тактику по привлечению клиентов в юридическую практику.
-Книга написана простым и понятным языком, с опорой на практический опыт, полученный (   Читать дальше...   )Жанр: Юриспруденция, Маркетинг, PR, РекламаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEA50EEF8496D77C44E162C85DDCE043E065758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932748   (506981) от 31.08.2015
-
-Александр Молчанов | Писатель и деньги (2015) [EPUB, RTF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга складывалась долго и трудно. Дело не в том, что методики, разработанные и проверенные людьми, которые продают пирожки, не работают при продаже сонетов.
-
-Бизнес – всегда бизнес. Дело в том, что не так-то просто объяснить эти принципы людям, которые не привыкли продавать. А еще труднее – замотивировать их. Убедить, что нет ничего плохого в том, чтобы быть (   Читать дальше...   )Жанр: О бизнесе популярно, Личностный ростФормат: EPUB, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33AF372ABBA8B9355421472BFA41B36D99FA9E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932318   (506980) от 31.08.2015
-
-Дмитрий Засухин, Анна Засухина | Как сделать юридический сайт продающим? (2014) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами – уникальное пособие, не имеющее аналогов в Интернете.
-
-Автор книги «Как сделать юридический сайт продающим» − Дмитрий Засухин, известный специалист по маркетингу и руководитель Лаборатории Юридического Маркетинга.
-(   Читать дальше...   )Жанр: Юриспруденция, Маркетинг, PR, РекламаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12828C4C1648DF262F9EEF13D345ECB78E09740E
 ```
 
 https://mybot314.ru/tekegram_catalog/

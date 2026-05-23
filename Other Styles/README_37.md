@@ -1,3 +1,206 @@
+###  Публикация: 1381318   (824693) от 08.05.2020
+
+Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Divine Healing 04:30
+2. Yoga Exercises 02:56
+3. Art of Meditation 02:56
+4. Sacred Prayers 03:05(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EC54587855C90A3F9F762B91B6DFDB815CF731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381516   (824690) от 08.05.2020
+
+Asian Zen - Peaceful Zen Lullabies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Dream Sleep Song 03:24
+2. Sleep for Mom & Dad 03:37
+3. Natural Sleep Aid 03:31
+4. Gentle Piano Lullaby	 03:08(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADA9BC3DC5366EC6786F227C5D683301D2C996D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381473   (824688) от 08.05.2020
+
+Asian Zen - Fresh Meditation Soundtrack (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Oriental Bliss 02:56
+2. Flashes of Water 03:13
+3. Relaxing Oriental Rhythms 03:36
+4. Healing Treasure 03:17(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1463754727DF014FDBB2AF7FC29EB78340FD1248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381789   (824481) от 08.05.2020
+
+Кватро - Тебе поем (2020) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Kyrie Eleison
+2. Благослови, Душе моя, Господа
+3. Богородице, Дево, Радуйся
+4. Херувимская песнь (Павел Чесноков)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE967F0A2925B97F219E0790DE355A589DBB20E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381723   (824466) от 08.05.2020
+
+Secret Garden - Nocturne The 25th Anniversary Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Nocturne (3:14)
+2. Song From A Secret Garden (3:33)
+3. Adagio (2:55)
+4. Serenade To Spring (3:15)(   Читать дальше...   )Жанр: New Age, Classical, InstrumentalПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B009C5304C4631A5D20913622AF66D686B6B9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381386   (824465) от 08.05.2020
+
+New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Deep Focus with Tibetan Bowls 03:52
+2. Better Stimulation 03:32
+3. All Day Motivation 03:31
+4. Pineal Gland Activation 03:34(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2D7DA2F5F62192B5031DF9FED7FA9CBC011048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116154   (824442) от 19.03.2017
+
+Петр  Dранга (Петр Дранга) - Перспектива (2011) Полная Версия 22 трека [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Интродукция
+02. Виртуозо
+03. Вечер
+04. Ирландский ветер(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB7B69341F2DA5D967DA888F6EBA505BBFF2909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196333   (823999) от 02.01.2018
 
 Mokadelic - Gomorra: La Serie (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental>
@@ -6,7 +209,7 @@ Mokadelic - Gomorra: La Serie (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Greg Maroney - Moving On (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Edelis - 12 альбомов, EP & Single (2008 - 2018) [MP3|320 kbps] <New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Just Spice Of Duduk (part 3) (2002) [FLAC|Lossless]<Duduk/Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Med
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -151,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -180,7 +383,7 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Alan Menken & VA - Beauty and the Beast / Красавица и чудовище
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Jim Brickman - The Ultimate Christmas Playlist (2021) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -295,7 +498,7 @@ Alan Menken & VA - Beauty and the Beast / Красавица и чудовище
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -324,7 +527,7 @@ VA - Deep Level Yoga Relaxing Sound of Nature, Oriental Massage Yoga (2017) [MP3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -353,7 +556,7 @@ VA - Acoustic Covers Playlist (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instru
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -382,7 +585,7 @@ VA - Latino 2018 [MP3|320 Kbps] <Dancehall, Flamenco, Salsa>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +614,7 @@ Me and That Man - Songs Of Love And Death (2017) [MP3|320 Kbps] <Country Rock, F
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +643,7 @@ Richard Clayderman - Tango Passion (1996) [FLAC|Lossless|image + .cue] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +672,7 @@ Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +701,7 @@ VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +730,7 @@ VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,209 +744,6 @@ VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0C65AE022A32D0C413C8E979FFB3CFF932B302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117043   (820916) от 21.03.2017
-
-Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing You (2:52)
-02. It’s Goodbye and So Long to You (3:11)
-03. Windy City (3:16)
-04. I Never Cared for You (2:46)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848C99D12D3E5B3FA66C0859A5B92553747C1753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382007   (820880) от 10.05.2020
-
-Stu Dying - Study World: Relaxing Music and Ocean Waves For Studying (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Study World 01:55
-2. Tranquil Waters 02:24
-3. Work of the Composed 02:17
-4. Informative Fantasy	 01:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A039D7334B6E6FF62C2F4E35D1BEA4962F147CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382375   (820768) от 10.05.2020
-
-Gealdýr (Gealdyr) - Sól (Sol) (2019) [FLAC|Lossless|Web-DL|tracks] <Nordic Folk, Pagan Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ginnungagap (5:13)
-02. Myrkvidr (3:55)
-03. Baldr (3:08)
-04. Kauna (7:00)(   Читать дальше...   )Производство: Arvur RecordsЖанр: Nordic Folk, Pagan Folk, Ambient FolkПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475471253D317A74553B28E838098F9669D42B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382374   (820766) от 10.05.2020
-
-Gealdýr (Gealdyr) - Valravn (2020) Soundtrack [FLAC|Lossless|Web-DL|tracks] <Nordic Folk, Pagan Folk, Ambient Folk>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valravn (3:19)
-02. Deyr Fé (2:19)
-03. The Ritual (3:09)
-04. The Seeress (3:05)(   Читать дальше...   )Производство: Arvur RecordsЖанр: Nordic Folk, Pagan Folk, Ambient FolkПродолжительность: 00:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CFA613B904EE7FCE547538BB3D6A061EBA6028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196839   (820415) от 04.01.2018
-
-ДиДюЛя - Лучшее (2010) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Один день в сентябре
-02. Посылка из Румынии
-03. Винил(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 02:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCAD7E68050C2514346AAB711CFB574B5EE14AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007215   (819657) от 16.04.2016
-
-George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk, World, Country>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament    02:23
-02. Where Are You Now    04:03
-03. Remembrance    03:50
-04. Where The Sun Rises First    05:06(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503501   (819398) от 19.10.2021
-
-24Relax - Native American Music (2021) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pacific Blue
-02. The Power of Native Spirit
-03. Native American Horses
-04. The Nomadic Ancestors(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6838D63E03AFE8E670BCBB6EB75A397313A17E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1383241   (811738) от 15.05.2020
+
+В.И.Будько, Н.Н.Наумова | Кярово Храм Покрова Божией Матери  (2004) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уникальные места Псковской области. В этих краях у Чудского озера было Ледовое побоище Александра Невского, здесь местная истребительная рота прикрывала отход наших войск в 1941 году.
+На берегу реки Чермы, среди старинных деревьев, на высоком холме, находится небольшая церковь с колокольней, выстроенная в 1789 году на средства графа и генерал-адъютанта Коновницына (   Читать дальше...   )Жанр: Исторический, религиозныйФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C136759D7CA939256CADAD4B889C341969840E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197959   (810358) от 10.01.2018
+
+Священник Виктор Кузнецов | Путями Гоголя (2014) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Решил Василий совершить путешествие по родным местам писателя Николая Васильевича Гоголя. По пути много неожиданностей и событий случается с ним. Он сравнивает большие и маленькие изменения, произошедшие на Украине за двадцать лет, прошедшие после его первого путешествия совершённого им по Малороссии.
+
+По пути читает в томике Гоголя много мудрого, раскрывающего смысл (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7EFC1368C8356EDE07E1CBF3E890EF5A3DA863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198120   (810251) от 10.01.2018
+
+Священник Виктор Кузнецов | У пяти старцев [Духовные наставления] (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В данной книге автор описывает свои встречи с великими нашими старцами-современниками, с которыми ему довелось встречаться. Старцами — схиигуменом Иеронимом (Верендякиным), протоиереем Николаем (Гурьяновым), схиархимандритом Феофаном (Даньковым), архимандритом Кириллом (Павловым), архимандритом Адрианом (Кирсановым).
+
+Интересные описания, как бесед с ними, так и (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416CB42326D5E3793F66838FDD0CCF7324532A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383461   (810116) от 16.05.2020
+
+А.М. Воронов | На берегу пустынных вод (2012) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Старая Деревня. Благовещенская церковь.
+При Петре Великом хозяином земли стал Андрей Иванович Остерман. После того, как он оказался в опале и был сослан Елизаветой Петровной, владельцем участка стал гофмейстер двора императрицы Анны Иоанновны, Петр Михайлович Бестужев-Рюмин. Позднее мыза «Каменный нос»принадлежала его сыну канцлеру, графу Алексею Петровичу. Для благоустройства (   Читать дальше...   )Жанр: Исторический,РелигиозныйФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F57F919FDACE4F902871F23E3EBBD1B217E7DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009510   (810030) от 21.04.2016
 
 Российское Библейское Общество (изд.) | Радостная Весть. Новый Завет в переводе с древнегреческого (2001-2010) [PDF, FB2]
@@ -6,7 +116,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +142,7 @@ molitvoslov (изд.) | Полный православный молитвосл
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,113 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E77C41A5536337397479085B5561CF12A1F66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120420   (803649) от 30.03.2017
-
-Бернард Лонерган | Метод в теологии (2010) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бернард Лонерган - канадский философ и теолог, иезуит, виднейший представитель трансцендентального томизма. Среди многочисленных трудов Лонергана наиболее известны и фундаментально значимы две работы: "Инсайт" (Insight, 1957) и "Метод в теологии" (Method in Theology, 1971) - книга, предлагаемая вниманию читателя и впервые переведенная на русский (   Читать дальше...   )Жанр: БогословиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D507ADA6A699CE94328C4C24288902212D6819D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119671   (803563) от 30.03.2017
-
-Д. Л. Похилевич | Современный католицизм (1960) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пытаясь спасти свое положение, империализм мобилизует все реакционные силы, не брезгуя для этого никакими средствами.
-
-Еще усерднее, чем это было после первой мировой войны, буржуазии помогают ее испытанные помощники — всевозможные социал-реформисты, социал-шовинисты, различные религиозные организации и в их числе — католическая церковь.
-(   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7232F8B258B96C33E940423D825868B791C3C041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896870   (803454) от 30.03.2017
-
-Хуго Ранер | Игнатий Лойола и историческое становление его духовности (2002) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803454.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Составлением Духовных Упражнений и основанием Общества Иисуса Игнатий Лойола направил ход церковной истории в новое русло - это признают и друзья, и враги. Книгу Духовных Упражнений св. Игнатия величают порой "судьбоносной книгой человечества", а его Ордену вменяют в заслугу внесение некоего великого вклада в культуру. Однако эти суждения остаются (   Читать дальше...   )Жанр: Историческое исследованиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BE5CE3F091FFED54B1C91B579D720C310F2010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730541   (803277) от 30.03.2017
-
-Серен Керкегор | Философские крохи, или Крупицы мудрости (2009) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задуманная как ответ гегельянству, и, в первую очередь, попыткам историко-критического прочтения Нового Завета, предпринятого Тюбингенской школой, книга Керкегора стала событием, выходящим далеко за пределы злободневных дискусий 1840-х гг. Ее центральный вопрос - историчность не Писания, а самого Пришествия - истины, чья вечность реализуется в человеческой истории (   Читать дальше...   )Жанр: ФилософияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E889035FD0254977C7B43FAE474F64C20F9E1BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

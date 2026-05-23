@@ -1,3 +1,188 @@
+###  Публикация: 1088243   (951375) от 03.01.2017
+
+Windows XP SP3 RUS VL+ Быстрая установка из ESD v1 [Ru] by yahoo00
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В раздаче загрузочный образ диска с WinPE 7 и сжатый в ESD образ системы Windows XP SP3 RUS VL. Windows XP SP3 RUS VL основан на оригинальном образе MSDN и обновлен по декабрь так как применён твик от Windows Embedded POSReady 2009 и возможно дальнейшее обновление. Инегрированы популярные драйверы SATA/SCSI/RAID и в WinPE и в Windows XP что позволяет работать с широким (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301BF359135E053A7E73E41F9CE4F194E6836D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089313   (951374) от 03.01.2017
+
+Ведьма из Блэр: Новая глава / Blair Witch (2016) BDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+После обнаружения загадочной видеозаписи у Джеймса появляется надежда найти свою пропавшую сестру. Вместе с группой друзей он решается отправиться в лес Блэк Хиллз, известный по легенде о ведьме из Блэр. Но никакая самая страшная легенда не сравнится с тем кошмаром, который ждет их в реальности.Производство: США, Lionsgate, Room 101, Snoot Entertainment, Vertigo EntertainmentЖанр: Ужасы, ТриллерРежиссер: Адам ВингардАктеры: Джеймс Аллен МакКьюн, Калли Эрнандес, Корбин Рейд, Брэндон Скотт, Уэс Робинсон, Вэлори КерриПеревод: Дублированный (iTunes)Продолжительность: 01:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4B3EC6AD480E3FFADE049C1BE9AA223B5D3F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981175   (951216) от 01.02.2016
+
+Огромный "виртуальный" телескоп сделал самый высококачественный на сегодняшний день снимок
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ученые из Института радиоастрономии Макса Планка, используя технологию дальней радиоволновой интерферометрии, объединили 15 наземных телескопов и российский космический радиотелескоп Спектр-Р в один огромный "виртуальный" радиотелескоп, диаметр которого в восемь раз превышает диаметр Земли. Все эти усилия были направлены на то, чтобы получить возможность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981642   (951004) от 01.02.2016
+
+Reg Organizer 7.30 Final + Portable [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C9416FA7BAC2BBB5A0C0D54BABCB87A1022611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981238   (950847) от 01.02.2016
+
+American Truck Simulator (2016) [Ru/Multi] (0.9.1.3s/dlc) License SKIDROW
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение легендарной серии Truck Simulator от SCS Software, на этот раз нас ждёт увлекательное путешествие по солнечным штатам Америки, где вы можете насладится прекрасными дорогами, управляя многотонным монстром! Есть люди, чьим призванием является дорога.Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Simulator, IndieЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E55F1942AAF9A7169495C4BE310FB18A352C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981845   (950833) от 01.02.2016
+
+Reg Organizer 7.30 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FA92421A3A47A4FAB8D678AC8D79CA8A804300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981375   (950821) от 01.02.2016
+
+Xelius Groupe | Трейдинг на миллион - углубленный курс по трейдингу (2014) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Подробное Описание:
+
+ОБУЧЕНИЕ ТРЕЙДИНГУ ДО РЕЗУЛЬТАТА
+ПЕРВЫЙ 1,000,000 РУБЛЕЙ ОТ 3 ДО 6 МЕСЯЦЕВ(   Читать дальше...   )Жанр: ТрейдингПродолжительность: 40:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81AD31F4FE7B2517FF027F031110DCAE52956A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 798771   (950815) от 01.02.2016
 
 Обложки для AIMP 3 - Магнитофоны v.3 [Multi/Ru]
@@ -6,7 +191,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +218,7 @@ Adobe Photoshop 2020 v21.1.0.106 (x64) Repack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +244,7 @@ Medal of Honor Warfighter: Limited Edition + 5 DLC [Ru/En] (Origin-Rip/1.0.0.3) 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -89,7 +274,7 @@ Tomb Raider [PS3] [EUR] [RUSSOUND] [4.31] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -120,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -146,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -172,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -224,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -251,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +462,7 @@ Total Commander 8.52a VIM 11 Matros portable [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -306,7 +491,7 @@ MediaChance Dynamic Auto Painter PRO 4.2.0.2 Repack by aleksbank [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -332,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -359,7 +544,7 @@ Adobe Premiere Pro CC 2015.2 9.2.0 (41) Portable by punsh [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -385,7 +570,7 @@ Dreamfall Chapters (2014) [Ru/Multi] (4.2.1.8/dlc) SteamRip Let'sРlay [Special 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +596,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd9) Repack Let'sРlay
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +648,7 @@ Tixati 2.51 + Portable [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -489,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,194 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090064   (948397) от 05.01.2017
-
-Diskeeper 16 Professional 19.0.1214.0 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diskeeper – быстрый дефрагментатор для Windows, который работает в шесть раз быстрее встроенных средств дефрагментации. Программа использует минимум системных ресурсов для поддержания максимальной производительности. Дефрагментация выполняется в фоновом режиме, не мешая работе пользователя. Интеллектуальное планирование динамически корректирует расписание процесса (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F782DA7EEF43C4238122424608B6BAFBDD70F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040088   (948391) от 05.01.2017
-
-This Is the Police (2016) [Ru/Multi] (1.0.50) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководите полицейским участком и его сотрудниками, реагируйте на вызовы, а также расследуйте преступления в городе, пылающем в хаосе. Мафиозные семьи продолжат проворачивать темные дела у вас за спиной и будут все сильнее впиваться во Фрибург своими когтями. И даже мэр ждет любой возможности насолить вам.Тип издания: RepackРазработчик: Weappy StudioЖанр: Strategy, Simulation, AdvenutureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C96ACDE47ADECA1D394426825087DEDAF96C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090059   (948387) от 05.01.2017
-
-Paragon Migrate OS to SSD 5.0 v10.1.28.154 Boot Medias [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Migrate OS to SSD поможет Вам быстро и безопасно выполнить миграцию ОС Windows на новый накопитель (жесткий диск или твердотельный SSD) даже, если его объем уступает оригиналу, благодаря встроенным функциям исключения данных. Во время миграции системы все разделы диска будут выравнены, если необходимо. В текущей версии функциональность продукта расширилась (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B158F3BC0D9B34BFEC07085206FE4C63422E754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089880   (948384) от 05.01.2017
-
-Инферно / Inferno (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некий миллиардер в порыве искреннего человеколюбия решает убить половину населения планеты. В своей уютной лаборантской он выводит особый штамм смертельного вируса, способного заразить 95 процентов людей за пару суток. Будучи не в силах упустить красоту момента, он зашифровывает точные координаты пакета с адским варевом в "Инферно" - первой части "Божественной (   Читать дальше...   )Производство: Венгрия, США, Columbia Pictures, Imagine EntertainmentЖанр: Боевик, Триллер, Драма, Криминал, Детектив, ПриключенияРежиссер: Рон ХовардАктеры: Том Хэнкс, Бен Фостер, Сидсе Бабетт Кнудсен, Фелисити Джонс, Ирфан Кхан, Омар Си, Ана Улару, Ката Сарбо, Ида Дарвиш, Вольфганг ШтегеманПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, Full), Украинский (Forced, Full), Английский (Forced, Full)Продолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23827924E9DC1CB13828FBD94A4C1BC87AAD02F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858586   (948189) от 11.01.2015
-
-ПиКей / PK (2014) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Индия / Rajkumar Hirani Films, Vinod Chopra ProductionsЖанр: Фэнтези, драма, мелодрама, комедия, детективРежиссер: Раджкумар ХираниАктеры: Аамир Кхан, Анушка Шарма, Санджай Датт, Боман Ирани, Саурабх Шукла, Сушант Сингх Раджпут, Парикшит Сахни, Амардип Джа, Рима Дебнатх, Диру ДривэдиПеревод: Любительский двухголосый (den904&DeadSno)Продолжительность: 02:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC4F1CCEB85DAFEA6A24FBB6B2C18535463D32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248873   (948171) от 11.01.2015
-
-Остров сокровищ (1988) DVDRip [2 серии из 2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедийная экранизация знаменитого романа «Остров сокровищ» о поиске клада пирата Флинта. Мультипликационный сюжет прерывается музыкальными номерами, некоторые из которых сняты а-ля чёрно-белая плёнка.
-Состоит из двух частей:
-1. Фильм первый: Карта капитана Флинта
-2. Фильм второй: Сокровища капитана ФлинтаПроизводство: СССР, КиевнаучфильмЖанр: Рисованая анимация, Детский, ПриключенияРежиссер: Давид ЧеркасскийАктеры: Ансамбль «Гротеск» (Одесский Театр «Гротеск»): Виктор Андриенко, Анатолий Дяченко, Валерий Чигляев; Владимир Чигляев, Михаил Церишенко, Александр Левит, Владимир Быстряков — композитор мультфильма, который также появляется в музыкальных видеозаставках, Виталий Васильков, С. ГригорьевПерсонажи: Джимми Гокинс — Очень, очень хороший мальчик. Вежлив, правдив, скромен, добр. Слушает маму. Каждое утро делает зарядку. Характер очень мягкий;
-Доктор Ливси — Очень хороший и веселый человек. Характер общительный. Не женат;
-Сквайр Трелони — Туп, жаден, прожорлив, ленив, трусоват, надменен. Характер отсутствует. Не женат;
-Капитан Смоллетт — Старый моряк и солдат. Говорит (   Читать дальше...   )Продолжительность: 00:47:33 + 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A77A5700EC58F6B0820D99281A00ED044F0840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982422   (947894) от 03.02.2016
-
-Adguard 6.0.183.953 RC3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard - одно из известных приложений разработчика программных продуктов компании Инсофт, предназначенное для блокирования рекламных баннеров и всплывающих окон при работе в сети Интернет. Данная утилита поддерживает фильтрацию при работе с такими браузерами, как Internet Explorer, Google Chrome, Mozilla Firefox, Safari, Opera, Maxthon, Avant Browser, Netscape Navigator, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197A10784129849AE829E128827188E99AA4225D
 ```
 
 https://mybot314.ru/tekegram_catalog/

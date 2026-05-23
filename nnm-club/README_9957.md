@@ -1,23 +1,25 @@
-###  Публикация: 1539294   (659237) от 24.03.2022
+###  Публикация: 1138835   (662426) от 31.05.2017
 
-Николай Носов | Замазка (1973) [PDF]
+Nada Jovic & Dusko Goykovic (Goykovich) Quintet - Take Me In Your Arms (1966) 2002, Cosmic Sound [APE|Lossless|image + .cue] <Vocal Jazz>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Поучительный рассказ о том, что случается, когда в детские руки попадает то, что не предназначено для игр.
-Для детей дошкольного возраста. Иллюстрации Е.Мигунова.Жанр: РассказФормат: PDF
+01. My Hearth Belong To Daddy [02:15]
+02. A Lot Of Livin' To Do [03:17]
+03. Where Can I Go Without You [02:55]
+04. Love Me Darling [02:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:24:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE5632012CF2500DCD08ACD3293066A9C527D2E0
+magnet:?xt=urn:btih:D0DDFA2828E9C17954AFFEC73EDF4B45FE8AA397
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,21 +27,136 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539306   (659235) от 24.03.2022
+###  Публикация: 1138833   (662425) от 31.05.2017
 
-Бен Миллер | День, когда я упала в сказку (2021) [FB2, EPUB, MOBI]
+Sonny Rollins - Modern Jazz Archive (1951 - 1954) 2CD, 2004, Membran Music [FLAC|Lossless|image + .cue] <Hard Bop>
 
->>нет
->>нет
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Лана обожает истории. Особенно те, которые она придумывает вместе со своим братом Харрисоном. И когда Харрисон решает, что он слишком взрослый, чтобы играть с Ланой, та чувствует себя очень одинокой, пока… не произошло кое-что волшебное! Лана обнаруживает в новом городском супермаркете портал в сказочный мир, где придётся прийти на помощь принцессе Дикой Розе и одолеть (   Читать дальше...   )Жанр: Детская литература, СказкаПеревод: Т. НестероваФормат: FB2, EPUB, MOBI
+CD1 - The Stopper:
+01. Scoops [02:15]
+02. With a Song in My Heart [03:08]
+03. Newk's Fadeaway [03:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90B45BCADA70D7B368F547A344B8504132D3818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138666   (662424) от 31.05.2017
+
+John Abercrombie - Works (1988) [FLAC|Lossless|image + .cue] <Post Bop, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Red And Orange (5:24)
+02. Night (4:57)
+03. Ralph's Piano Waltz (4:56)
+04. Backward Glance (4:32)(   Читать дальше...   )Жанр: Post Bop, FusionПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BC34FBFDA88A6B636D23ECD62DD50FA008876F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138649   (662423) от 31.05.2017
+
+Ben Webster & Harry Edison - The Quintet Studio Sessions (1958, 1962) 2006, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Better Go [09:16]
+02. How Long Has This Been Going On? [05:31]
+03. Kitty [08:01]
+04. My Romance [06:10](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E391711D1408014E90FBF8128FF8AD3339FA498D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138988   (662422) от 31.05.2017
+
+Гевонд Вардапет Оганесян | Книга Вопрошений (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена как для тех, кто еще только ищет свой путь к христианству, так и для тех, кто хочет постичь его более глубоко. Книга будет интересна и полезна так же и для всех тех, кто интересуется вероучением Армянской Апостольской Церкви.
+
+Книга на русском языке, содержит почти 600 вопросов и ответов о христианской вере и вероучении Армянской Апостольской (   Читать дальше...   )Жанр: КатехизисФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1496AB6B425E1593C3A85F8ABC09DE6D74BAA0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138753   (662421) от 31.05.2017
+
+Молитва охотника (Время псов) / The Hunter's Prayer (2017) WEB-DLRip [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о киллере-одиночке по имени Лукас, которого Марк Хатто нанимает, чтобы защитить свою дочь-подростка Эллу. Лукас спасает Эллу, когда на нее совершают покушение, а затем узнает, что его работодатель вместе с женой был убит – неизвестные застрелили их прямо в их собственном доме. Сжалившись над девушкой, Лукас решает помочь ей отыскать человека, виновного (   Читать дальше...   )Производство: США, Испания, Германия, Apollo Media, FilmEngine, Full Clip ProductionsЖанр: Боевик, ТриллерРежиссер: Джонатан МостоуАктеры: Одейя Раш, Сэм Уортингтон, Аллен Лич, Мартин Компстон, Вероника Эчеги, Эми Ландекер, Катя Бокор, Дин Джаггер III, Sameera Rock, Сэм КаллингвортПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: студия "Paradox" & Omskbird recordsСубтитры: отсутствуютПродолжительность: 01:31:23Реклама: присутствуют аудио и видео вставки рекламы
 
 ## Скачать торент
 ```bash
@@ -51,26 +168,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538856   (659234) от 24.03.2022
+###  Публикация: 1138937   (662420) от 31.05.2017
 
-Хоккей. КХЛ 2021-2022. Кубок Гагарина. 1/4 Финала. 3-й матч. ЦСКА (Москва) - Динамо (Москва) (21.03.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Д. Толанд | Избранные сочинения (1927) [PDF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-21 марта 2022, понедельник. 19:30 МСК, 1/2 финала - Запад. 3-й матч. Стадион: ВТБ Арена - имени Аркадия Чернышёва (Москва, Россия), 5 443 зрителя (47% при вместимости 11 500)
-Главный судья: Роман Гофман (Москва, Россия); Главный судья: Алексей Раводин (Москва, Россия)Телекомпания: KHL HDЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:02:55
+Джон Толанд (1670-1722) - один из крупнейших представителей английского материализма конца XVII и первой четверти XVIII века. Он принадлежал к плеяде так называемых вольнодумцев (free-thinkers), которые сыграли значительную роль в деле критики положительной религии и, в частности, христианства.
+
+В своем главном философском сочинении "Письма к Серене" (1704) (   Читать дальше...   )Жанр: История, философия, науковедениеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35070C7E7D80A8FB36A8615FB6BA7B26962FA407
+magnet:?xt=urn:btih:1C3FAC9D983810EF8A30A82C3C79E06C86FAFB45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,26 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539271   (659233) от 24.03.2022
+###  Публикация: 1138637   (662419) от 31.05.2017
 
-Хоккей. КХЛ 2021-2022. Кубок Гагарина. 1/4 Финала. 4-й матч. Динамо (Москва) - ЦСКА (Москва) (23.03.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Howlin' Wolf - Chicago Blue (1995) [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
 
->>Спорт и активный отдых
->>Хоккей
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-21 марта 2022, понедельник. 19:30 МСК, 1/2 финала - Запад. 3-й матч. Стадион: ВТБ Арена - имени Аркадия Чернышёва (Москва, Россия), 5 443 зрителя (47% при вместимости 11 500)
-Главный судья: Роман Гофман (Москва, Россия); Главный судья: Алексей Раводин (Москва, Россия)Телекомпания: KHL HDЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:19:23
+01. Streamline Woman (2:46)
+02. Ain't Superstitious (2:48)
+03. Goin' Down Slow (3:58)
+04. My Mind Is Rambling (2:49)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:28:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6249CABDBC340EA617B99BA8084BF85C080747C
+magnet:?xt=urn:btih:DD129DAC68AEEEE37A36D6367A6343DD6CECF65B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +225,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539078   (659232) от 24.03.2022
+###  Публикация: 1138922   (662418) от 31.05.2017
 
-Almach - Dream Elegy (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
+Gilberto Gil - Luar (1981) 2002, Warner Music Brasil [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, World Fusion>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Adraskan (00:01:38)
-02 - Dream Elegy (00:09:27)
-03 - Kandahar (00:09:18)
-04 - Death Is An Illusion (00:06:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:42:09
+01. Luar (A Gente Precisa Ver O Luar) (4:22)
+02. Palco (4:26)
+03. Sonho Molhado (4:30)
+04. Lente Do Amor (3:40)(   Читать дальше...   )Жанр: Brazilian Jazz, World FusionПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F541D8F7B8DA4B180AFC616A12A5A4631F1E5012
+magnet:?xt=urn:btih:89789F0EBC981BF199AA8CAD674AC2BA6514FEAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,26 +254,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539185   (659231) от 24.03.2022
+###  Публикация: 1138845   (662417) от 31.05.2017
 
-Джейн Корри | Жена моего мужа (2020) [MP3, Анастасия Дадыко]
+Геннадий Карпунин | Прощеное воскресенье (2017) [MP3]
 
->>нет
->>нет
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Выйдя замуж за талантливого художника Эда Макдональда, молодой адвокат Лили начала новую жизнь… И, кажется, ничто не сможет омрачить их счастливый брак.
-По соседству с супружеской парой живет хорошенькая девочка-итальянка Карла, за которой Лили присматривает, пока ее мать пропадает на работе. Карле всего девять, но она уже хорошо знает, что значит хранить чужие секреты… (   Читать дальше...   )Жанр: Психологический триллерПродолжительность: 15:34:23
+Геннадий Михайлович Карпунин родился в 1958 году в подмосковном городе Щербинка. Окончил МАДИ. Работал в районных газетах, был главным редактором региональной газеты «Московия», сотрудничал с московскими издательствами. Поэт, прозаик. Печатался в различных газетах и журналах. Автор более десятка книг прозы и поэтических сборников. Среди них – «Чистые пруды» (1996), (   Читать дальше...   )Жанр: ПовестьПродолжительность: 03:58:19
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:725703AC3FE88FEEA1EE15731B252378C908495C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,25 +280,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539168   (659230) от 24.03.2022
+###  Публикация: 1138882   (662416) от 31.05.2017
 
-Десять сражений Синго: Часть 2 / Shingo juban shobu dai nibu / Ten Duels of Young Shingo: Chapter 2 (1982) HDTV [MPEG2/1080i] [AVO]
+Howlin' Wolf - Who Will Be Next? (1992) Charly Blues Masterworks, Vol.30 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Начав свой путь, Аои Синго бросает вызов Ягю Мунэхару, сыну Ягю Тадзимы, сэнсэя сёгуна. Тяжело ранив Мунэхару, Синго становится заклятым врагом Тадзимы. Тот клянется его убить и отправляет за ним опытных самураем и ниндзя клана Ягю.Производство: Япония, Fuji Television NetworkЖанр: Боевик, драмаРежиссер: Косэй СайтоАктеры: Томиюки Кунихиро, Тосиро Мифунэ, Нана Окада, Рино Катасе, Томоко Саито, Сюн Оойдэ, Такэтоси НайтоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:31:19
+01. Who Will Be Next? (2:34)
+02. I Have A Little Girl (2:36)
+03. Come To Me Baby (2:25)
+04. Don't Mess With Me Baby (2:38)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF455E6FDA10CE92476E6C5A4E94CE72986C8BF9
+magnet:?xt=urn:btih:5C144443BCF2EB457497EA7CCFBA0F02E2677689
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,25 +309,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538305   (659229) от 24.03.2022
+###  Публикация: 1138808   (662415) от 31.05.2017
 
-Хоккей. КХЛ 2021-2022. Кубок Гагарина. 1/2 Финала. 2-й матч. ЦСКА (Москва) - Динамо (Москва) (19.03.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+CloudMounter 2.0.1 [Multi/Ru]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-19 марта 2022, суббота. 17:00 МСК. 1/2 финала - Запад. 2-й матч. Стадион: ЦСКА-Арена (Москва, Россия), 7 534 зрителя (59% при вместимости 12 680). Главный судья: Сергей Кулаков (Тверь, Россия); Главный судья: Максим Сидоренко (Минск, Беларусь)Телекомпания: KHL HDЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:06:28
+CloudMounter - это централизованный сервис, который позволяет монтировать облачные хранилища как локальные диски и работать с онлайн файлами так же как с локальными
+
+CloudMounter - это безопасная и надежная утилита. Все соединения происходят с помощью стандартных API облачных сервисов. Это означает, что Ваши данные не используются самой программой, за исключением (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 мая 2017Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:320F85797BEBF3FEC45D127525106ECD21C15981
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,25 +337,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903003   (659228) от 30.05.2015
+###  Публикация: 1139014   (662414) от 31.05.2017
 
-Вечерний Ургант. Сезон №7. Выпуск №68 (2015.05.29) SATRip
+Ida Sand - Meet Me Around Midnight (2007) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Pianoman  (03:37) 
+02. Bang Bang  (02:46) 
+03. Brutal Truth  (03:57) 
+04. Every Little Bit Hurts  (04:03) (   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA7F4278D0F9D9BD651A255184A00B6229FDD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138840   (662413) от 31.05.2017
+
+Газета | Дача и жизнь №6 (38) (июнь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Газета «Дача и жизнь» помогает дачнику вырастить обильный урожай, отвечает на вопросы читателей, связанные с благоустройством приусадебного участка и уходом за плодовыми и декоративными растениями. Со страниц издания опытные садоводы и огородники делятся своими полезными наработками в различных сферах дачной жизни.Жанр: Дача, огород, садФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF581220DD54B19E08AD166C6D1B2CD05A9D3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138858   (662412) от 31.05.2017
+
+Aly & Fila - Future Sound Of Egypt 498 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Aneesh Gera - Starchaser (Original Mix)
+02. Jerome Isma-Ae & Alastor - Wilde (Extended Mix)
+03. Sunlight Project - Deep Valley ( Original Mix )
+04. Jettan - Sunset (Sicarios Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A27EF419C7A6BD2FDBCB0126F6486D32E76DE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138812   (662411) от 31.05.2017
+
+Вечерний Ургант (2017.05.30) SATRip
 
 >>Документалистика и Телепередачи
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:43:22
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:06Реклама: Присутствуют вставки текстовой рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:292F76DCE50971027097F1FEAD8E36BD250B2888
+magnet:?xt=urn:btih:56066401A8D170EC0E4861F6ED9BE424A42DF69B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,28 +447,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903134   (659227) от 30.05.2015
+###  Публикация: 1138803   (662410) от 31.05.2017
 
-VA - Soul & Lounge: Best Ibiza Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+Monster Energy Nascar Cup Series-2017, Этап 12 - Charlotte (2017) HDTVRip [H.264/720p-LQ] [VO]
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Wave - Autumn Fractal [06:05]
-02. Club Camarillo - Baracoa [05:50]
-03. Gerald Peklar - Zwei Flocken Tanz [03:59]
-04. Cafe Royale - Torn Apart - Chillout Mix [03:18](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:04:15
+12 этап Monster Energy Nascar Cup Series Coca-Cola 600, Charlotte Motor Speedway (400 Laps /600 Miles).Телекомпания: FOX / TSN 1Жанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийПродолжительность: 04:29:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FCBC3C6E039F904D074A36E062D28B81B60B4FC
+magnet:?xt=urn:btih:69ABFB0E3B74FFBE81C20C8DC3C66947339E6632
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -268,26 +473,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 902709   (659226) от 30.05.2015
+###  Публикация: 1138703   (662409) от 31.05.2017
 
-Вильям Козлов | Юрка Гусь (1962) [DJVU]
+Jorn - Dukebox (2009) [FLAC|Lossless|image + .cue]<Hard Rock, Heavy Metal>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-На восток, отстукивая километры, мчится санитарный поезд. Унылый лес подступил к полотну железной дороги. Костлявые руки осин и берез ловят клочья паровозного дыма. На пригорках, уткнувшись в промозглое небо шестами, спят причесанные дождем стога.
-   Мальчишку со всех сторон обдувает холодный осенний ветер. Он забирается в рукава, холодит грудь и спину, охватывает тело (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: DJVU
+01. Man Of The Dark
+02. Starfire
+03. Young Forever (New Version)
+04. Soul Of The Wind(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:17:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14822F5BFF5D96C08BEF4FC11529EBD23C90EAA5
+magnet:?xt=urn:btih:16E11F803FB648141C6C6B6AB3BEE0C583D70FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,28 +502,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903175   (659225) от 30.05.2015
+###  Публикация: 1538557   (662408) от 21.03.2022
 
-Weather Report - I Sing The Body Electric (2014) [FLAC|Lossless]<Jazz, Jazz Fusion>
+Junior Mance Trio & Orchestra - The Soul of Hollywood & That Lovin' Feelin' (1962, 1972) 2002, Milestone [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Unknown Soldier [08:01]
-02. The Moors [04:46]
-03. Crystal [07:27]
-04. Second Sunday In August [04:14](   Читать дальше...   )Жанр: Jazz, Jazz FusionПродолжительность: 00:47:30
+01. Never On Sunday [2:48]
+02. Maria [2:51]
+03. Tara's Theme [4:00]
+04. Fanny [4:01](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:09:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66902D4946D7E38F3C1A6DD3BA694D7BEA234CDA
+magnet:?xt=urn:btih:BF2F9E67AAE8837F33C54E8EA9F2671DB2475241
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,161 +531,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903334   (659224) от 30.05.2015
+###  Публикация: 1538485   (662407) от 21.03.2022
 
-Junkware Removal Tool 6.8.5 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая и эффективная утилита, предназначенная для сканирования компьютера на наличие вредоносных элементов, таких как рекламное ПО, ненужные панели инструментов и PUPS (потенциально нежелательные программы). Программа уничтожает все их следы с диска компьютера, памяти, автозагрузки, реестра и пр.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D626F0C85661D05C580CDC0EC84C7E8E460B0FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903310   (659222) от 30.05.2015
-
-David Sanborn - Time and The River (2015) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A La Verticale
-02. Ordinary People
-03. Drift
-04. Cant Get Next To You (feat. Larry Braggs)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72753864F3D2645321FEF2D71E8CFCAEF1F0A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903025   (659221) от 30.05.2015
-
-В. Л. Мальков | Франклин Рузвельт. Проблемы внутренней политики и дипломатии: Историко-документальные очерки (1988) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осуществление правительственной деятельности, решение узловых проблем внутренней политики и дипломатии США в предвоенное десятилетие и в годы второй мировой войны тесно связаны с личностью президента Франклина Делано Рузвельта. Его роль в определении курса и общих перспектив государственной политики в 1933—1945 гг., в установлении дипломатических отношений с Советским (   Читать дальше...   )Жанр: история, политология, дипломатияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7CCCA7FF7012C0AB7BD041EC936D42F1C25104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903146   (659220) от 30.05.2015
-
-Осторожно, мошенники! Джентльмены у дачи (2015.05.26) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Телекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC069EDBF135D325274F225E2D0C0C3882F122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902783   (659219) от 30.05.2015
-
-QQ Browser 9.0.1745.400 Preview [Cn]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659219.jpg" />
-</div>
-
-
-###  Подробнее
-
-QQ Browser 9.0 версии - это современный и удобный браузер построенный, уже, на двух движках (Trident и WebKit), от крупнейшего интернет-провайдера в Китае Tencent, для использования в азиатских странах, в рамках Preview, и европейского рынка после стадии Beta.Язык интерфейса: Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981E39490A791225805A57D3952E7917DD119512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902775   (659218) от 30.05.2015
-
-F5 - OrganiK (2015) [MP3|~245 кб/с (V0)]<Alternative, Pop, Funk, Reggae, Soul, Female Jazz Vocal, Covers>
+Chas Cronk - Liberty (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Time
-02. Sun Is Up
-03. Hugs & Kisses
-04. Bam!(   Читать дальше...   )Жанр: Alternative, Pop, Funk, Reggae, Soul, Female Jazz Vocal, CoversПродолжительность: 01:13:57
+01 - Liberty (00:05:40)
+02 - Take My Hand (00:05:27)
+03 - A Splash Of Blue (2021 new version) (00:04:59)
+04 - Everybody Knows (2021 solo version) (00:04:32)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A30E5501D7466DDE49A70F233D3C7DE8FBF637D
+magnet:?xt=urn:btih:44CEDDA2C1FBC2DB6B65669B0F07485DC03C2976
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +560,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903186   (659217) от 30.05.2015
+###  Публикация: 1538509   (662406) от 21.03.2022
 
-John Petters Swing Band - Sing Sing Sing (2013) [MP3|320 кб/с]<Jazz, Retro Swing, Big Band>
+Peter Veteska & Blues Train - So Far so Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Sing Sing Sing (03:53)
-02. Special Delivery Stomp (03:21)
-03. Blues At The Honky Tonk (04:43)
-04. Seven Come Eleven (05:26)(   Читать дальше...   )Жанр: Jazz, Retro Swing, Big BandПродолжительность: 00:49:12
+01. Done with Bad Luck (4:28)
+02. I've Got the Blues This Morning (4:25)
+03. I Miss You So (5:16)
+04. My One and Only Muse (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C8CD1DEC99AE33A54288551C73F60C06B654B2A
+magnet:?xt=urn:btih:0E10E09EA13D2824331522AFE764D33F4C916D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +589,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903007   (659216) от 30.05.2015
+###  Публикация: 1538506   (662405) от 21.03.2022
 
-Armored Saint - Win Hands Down (2015) [MP3|320 кб/с]<Heavy Metal>
+Open Investigation - Open Investigation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1. Win Hands Down
-2. Mess
-3. An Exercise In Debauchery
-4. Muscle Memory(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:04
+01. Raidho (4:16)
+02. Poison Man (3:16)
+03. Left is the Blues (4:28)
+04. Scoundrel (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC1DB35B55B0876DD36336F40C25894BF17AB9BA
+magnet:?xt=urn:btih:DC5FCEE181443F3943B4FB3E558BC4B267575E13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +618,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 902944   (659215) от 30.05.2015
+###  Публикация: 1538690   (662404) от 21.03.2022
 
-Ирина Шурыгина (Ред.) | Падение Камелота (1996) [FB2]
+Desktop Stickers 1.3 [En]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В книге повествуется о Верховном короле Артуре, доблестном Ланселоте и рыцарях Круглого стола, о драматических событиях, происходящих в замке Камелот. В их жизнь постоянно вмешивается волшебная сила, порой трагически изменяя их судьбы. Сбывается предсказание чародея Мерлина: король Артур погибает от руки собственного сына.Жанр: Детская литература, Мистика, МифологияФормат: FB2
+Приложение Desktop Stickers поможет вам в выборе вашей самооценки.
+Ваши мысли являются источником ваших эмоций и настроения. Разговоры, которые вы ведете сами с собой, могут быть разрушительными или полезными. Большинству людей необходимо научиться культивировать позитивные мысли и рассеивать негативные. Разговор с самим собой может улучшить вашу производительность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2022Разработчик: © 2022 Marian RaafatПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79A8B44C4F3993ED6C6583DC0CDCB9AEFA09AEE0
+magnet:?xt=urn:btih:1893A063B4A0ABBB54AD957723ECE5B65012B3D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +645,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903194   (659214) от 30.05.2015
+###  Публикация: 1538514   (662403) от 21.03.2022
 
-Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2007) [MP3|320 кб/с]<Score>
+Charger - Warhorse (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Other Styles
->>OST
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Ikuo Kakehashi - Singanushiga (3:32)
-02. Joe Hisaishi - Prologue - When Madness Sets In (4:22)
-03. Joe Hisaishi - Just Call Me Aloysha (1:09)
-04. Joe Hisaishi - Madman On A Tree (1:17)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:10
+01. Devastator
+02. Black Motor
+03. Rolling Through The Night
+04. Summon The Demon(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:544E0A6223E1332AE5E1982EFE9EDACDD8B3D29C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,27 +674,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 902960   (659213) от 30.05.2015
+###  Публикация: 1538476   (662402) от 21.03.2022
 
-И. Г. Усачев | Джон Фостер Даллес: Политический миф и реальность (1990) [DJVU]
+Troll Teeth - Hanged, Drawn, & Quartered (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom Metal>
 
->>Научная и техническая литература
->>Историческая литература
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Книга доктора исторических наук И. Г. Усачева, чрезвычайного и полномочного посла СССР, написана в жанре политической биографии. Ее главное действующее лицо — Джон Фостер Даллес, известный американский дипломат, причастный к формированию внешней политики США в XX в.
-
-Книга написана на основе широкого круга источников, советских и зарубежных, а также личных впечатлений (   Читать дальше...   )Жанр: история, политологияФормат: DJVU
+01 - Hand Me Down (00:08:08)
+02 - Elephant in the Room (00:09:00)
+03 - Gallows on the Playground (00:04:28)
+04 - Expect Nothing Receive Nothing (00:08:38)(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 00:54:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CC7232D074B2F7FCD6E5352CFDF7AF015A63302
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,77 +703,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 902840   (659212) от 30.05.2015
+###  Публикация: 1538516   (662401) от 21.03.2022
 
-Виталий Злотников | Мы с Шерлоком Холмсом (2005) [FB2]
+Rune Robert Friis - Built for Comfort, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Шутливые пародии на темы рассказов о Шерлоке Холмсе.Жанр: Детская литератураФормат: FB2
+01. Never Comin' Down (3:39)
+02. Summertime Ghost (3:03)
+03. Cold Water (3:27)
+04. Truth Don't Rhyme (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:951771CA5CAD8C16DC93536314EDFCAF197DFB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903162   (659210) от 30.05.2015
-
-Download Master 6.4.1.1465 RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Download Master эффективно решает 3 главных проблемы, возникающих при закачке файлов из Интернет: скорость закачки, продолжение прерванных закачек и управление закачанными файлами. Основными чертами, выделяющими Download Master среди других программ, являются высочайшая эффективность работы и удобный пользовательский интерфейс. Download Master позволяет значительно (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Белорусский, Транслит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A82D87C4145622F7598546054272A00B0E9ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903148   (659209) от 30.05.2015
-
-Хроники московского быта. Наряды кремлевских жен (2015.05.27) SATRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему красивая жена Сталина делала из себя уродливую старуху, повязывая крест-накрест на груди пуховой платок, как Крупская? Чем кончилось для жены Тухачевского ее появление на приеме в Кремле в платье с глубоким декольте? Как добывала капроновые чулки Полина Жемчужина? И кто шил фирменные платья-"халаты" для Нины Кухарчук, супруги Хрущева? Сколько стоила (   Читать дальше...   )Телекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43120E4663CCA81DE7E259765A687D8C7A5B96EE
+magnet:?xt=urn:btih:D0E88BA4B808FA171CAA366418EA52D07C67D843
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1359087   (965822) от 10.02.2020
+
+Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последнем Путешествии [2017, TV, 12 ep + 12 sp] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мир будущего. Человеческая цивилизация достигла невероятного технологического прогресса и однажды построила себе гигантские многоуровневые города, в которых проживало огромное количество людей. Однако через какое-то время началась война, после которой человечество оказалось на грани вымирания.
+Спустя много лет в одном из таких городов мы встречаем Тито и Юри. Эти (   Читать дальше...   )Производство: White Fox, ЯпонияЖанр: Приключения, Фантастика, ПовседневностьРежиссер: Одзаки ТакахаруОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин.; 12 Эпизодов по 1:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B724F92F2528E5144BD5B1B59E7906669E1ABC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359052   (965821) от 10.02.2020
+
+Kill la Kill | Убей или Умри [2011, TV, 24 ep + SP] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+События происходят в школе, управляемой с помощью грубой силы президентом студенческого совета Сацуки Кирюин. Появление новой ученицы Рюко Матой, владеющей мечом в виде половинки гигантских ножниц, потрясает основы жизни школы. Рюко занята поисками таинственного убийцы её отца. Но на её пути становятся члены студенческого совета. К счастью, Рюко находит необычную (   Читать дальше...   )Производство: Trigger, ЯпонияЖанр: Приключения, Комедия, Фэнтези, ЭттиРежиссер: Имаиси ХироюкиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 25 Эпизодов по 23 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD282DBB0D930E780671627E5C0BF770EE49C35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358967   (965819) от 10.02.2020
+
+Mirai Nikki | The Future Diary | Дневник Будущего [2011, TV, 26 ep + OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Второй класс средней школы: у Юкитэру Амано вечные проблемы в общении со сверстниками, а потому, считая себя сторонним наблюдателем, он записывает всё, что видит, в дневник на мобильный.
+Терзаемый одиночеством, Амано начинает выдумывать разные вещи, как, например, воображаемого друга по имени Деус Экс Машина, который несомненно является повелителем времени и пространства. (   Читать дальше...   )Производство: Asread, ЯпонияЖанр: Триллер, Мистика, ДрамаРежиссер: Хосода НаотоОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 26 Эпизодов по 23 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF331DEC29706CCB55863C8EDF90FCF07F103473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959300   (965240) от 21.01.2016
+
+Gochuumon wa Usagi Desuka? / Кролика заказывали? [TV-2] [2015, TV, 12] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В преддверие поступления в старшую школу, новоявленная старшеклассница по имени Кокоа Хото решила начать жить самостоятельно и с чистого листа и переехала в небольшой но уютный город. Чистые улицы, доброжелательные жители, ну что может быть лучше для начала новой жизни дебюта старшеклассницы? Так думала Кокоа отправляясь на встречу со своими домовладельцами, но заплутав (   Читать дальше...   )Производство: Япония, Cinema Citrus, White FoxЖанр: Комедия, ПовседневностьРежиссер: Хасимото ХироюкиПродолжительность: 12 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBCA2BA23BBEE2DFB59100FD4220B31FC00DF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359893   (962793) от 13.02.2020
 
 Cross Ange: Tenshi to Ryuu no Rondo | Cross Ange: Rondo of Angel and Dragon | Крест Анжи. Танец Ангела с Драконом [2014, TV, 25 ep] BDRip 1080p 10-bit raw+rus
@@ -6,7 +112,7 @@ Cross Ange: Tenshi to Ryuu no Rondo | Cross Ange: Rondo of Angel and Dragon | К
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? | And You Thought There Is Never a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +165,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга Магии дл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +191,7 @@ Baccano! / Шумиха! [2007, TV, 13] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +218,7 @@ B Gata H Kei / Размер - второй, характер - извращен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +246,7 @@ Gekijouban Soushuuhen Overlord | Overlord: Fushisha no Ou & Shikkoku no Eiyuu | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +272,7 @@ Maken-ki! / Не проиграю! [2011, TV, 12 ep] BDRip 720p Hi10p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +298,7 @@ Keijo!!!!!!!! / Кэйджо!!!!!!!! [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +324,7 @@ Haiyore! Nyaruko-san W | Ползучий Хаос! Няруко-Сан [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +377,7 @@ Girls und Panzer: Kore ga Hontou no Anzio-sen Desu! | Девушки и Танк
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +403,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Та
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +429,7 @@ Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +458,7 @@ Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +484,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +510,7 @@ D.Gray-man / Грэй-мен [2006-2008, TV, 103 из 103] SDTVrip 396p raw + ru
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +536,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Последняя ведьма �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +563,7 @@ Soul Eater Not! | Пожиратель Душ! Класс НОТ! [2014, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +589,7 @@ Burn Up Excess | Burn-Up Excess | Разгон! Перебор [1998, TV] DVDRip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +615,7 @@ Black Bullet / Черная пуля [2014, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +641,7 @@ Rinne no Lagrange / Lagrange: The Flower of Rin-ne / Цветок вечност
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +667,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,112 +679,6 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C585F2E69DF9AB4B4777B3190CBA890D9A35FA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364112   (939074) от 01.03.2020
-
-Owari no Seraph | Seraph of the End: Vampire Reign | Последний Серафим [2015, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды на Земле появился таинственный вирус, и возник он будто из ниоткуда. Каждый человек, заразившийся им, умирал, если был старше тринадцати лет. В то же время в мир пришли вампиры, до сих пор скрывавшиеся во тьме, и всё человечество пало перед ними.
-В центре повествования Юичиро Хякуя — мальчик, оставшийся сиротой. С ним и другими детьми из приюта вампиры обращаются (   Читать дальше...   )Производство: Wit Studio, ЯпонияЖанр: Приключения, Мистика, Экшен, Сверхъестественное, ДрамаРежиссер: Токудо ДайсукэОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD2BBEDBA2EEADDB905D9BE4FBCA9CDA667C3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360576   (939073) от 01.03.2020
-
-Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир Из Пепла и Иллюзий [2016, TV, 12 ep + 1 sp] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему мы здесь? Зачем всё это?
-Не успел Харухиро понять, что происходит, как его окутала тьма. Почему он тут? Где он? Он до сих пор не нашёл ответы. Люди вокруг находятся в том же положении: никто не помнит ничего, кроме собственного имени. Выйдя наконец из мрака, они ступают на землю неизвестного мира, похожего на видеоигру. В целях выживания Харухиро объединяется (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Приключения, Фэнтези, ДрамаРежиссер: Накамура РёсукэОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин.; 1 Эпизод 11 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94EA4EF7AB5ABEEFFAB03E4BCA3591BC3553953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091839   (938631) от 12.01.2017
-
-Однажды в Токио / Tokyo Godfathers (2003) HDRip [H.264] [MP4|1024x552]
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под Рождество даже в далёком Токио обязательно происходят удивительные чудеса и невероятные события... Трое бездомных бродяг: алкоголик Джин, трансвестит Хану и беспризорница Миюки - находят на улице потерянную новорожденную девочку, и это необычайное происшествие полностью меняет их судьбу. Проникшись состраданием к беспомощному существу, необычные ангелы-хранители (   Читать дальше...   )Производство: Япония / MadhouseЖанр: Аниме, Мультфильм, Драма, приключения, КомедияРежиссер: Сатоси Кон, Шого ФуруяАктеры: Тору Эмори, Ая Окамото, Ёсиаки Умэгаки, Сёдзо Идзука, Сэйдзо Като, Хироя Исимару, Рюдзи Саикати, Юсаку Яра, Кёко Тэрасэ, Мамико НотоПеревод: Многоголосый закадровый - (Videoservice), Дублированный - (Sonotek)Язык субтитров: РусскийПродолжительность: 01:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74005FA969CBB1C1E8CF803C2D23A669F10A0A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364522   (935633) от 03.03.2020
-
-Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтрашнего Дня Разноцветного Мира [2018, TV, 13 ep] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935633.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где от былой магии остались лишь тлеющие угольки, в городе Нагасаки живёт семнадцатилетняя Хитоми Цукисиро. Являясь потомком семьи магов, она, впрочем, не очень-то жалует своё происхождение и силу, дарованную ей. Ведь никакая магия, даже самая могущественная, не смогла помочь, когда в юном возрасте Хитоми утратила способность к восприятию цвета, отчего со (   Читать дальше...   )Производство: P.A. Works, ЯпонияЖанр: Повседневность, Романтика, Драма, МистикаРежиссер: Синохара ТосияОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 13 Эпизодов по 24 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56B57DD5C976B619A4F1F5FA785C13D5905DCA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

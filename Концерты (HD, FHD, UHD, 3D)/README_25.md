@@ -1,3 +1,64 @@
+###  Публикация: 544671   (486411) от 09.09.2012
+
+Tarja Turunen - Act 1 (2012) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+‘Act I‘ представляет собой первый концертный диск, запечатлевшим выступления экс-вокалистки NIGHTWISH Tarja Turunen в ее роково-металлической обработке - вероятно, ее самый захватывающий выпуск когда-либо. Основное содержание было снято и записано на шоу в Росарио в Аргентинском Teatro El Crculo, проходившим 30 и 31 марта соответственно в красивом и захватывающем духе театральной постановки.
+С его тщательно продуманным tracklisting,01. If You Believe
+02. Anteroom Of Death
+03. My Little Phoenix
+04. Dark Star
+05. Naiad
+06. Falling Awake
+07. I Walk Alone
+08. Orpheus Hallucination / Orpheus In The Underworld09. Little Lies (band jam)
+10. Little LiesЖанр: Symphonic MetalПеревод: ОтсутствуетПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243869   (486075) от 30.08.2018
+
+Концерт ко дню ВМФ России на Дворцовой площади (29 июля 2018 года) WEB-DLRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представлен концерт, посвящённый дню Военно-Морского Флота России, который прошёл на Дворцовой площади 29 июля 2018 года.Производство: Телерадиокомпания «Петербург»Жанр: Музыка, КонцертыСубтитры: ОтсутствуютПродолжительность: ~03:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0DF4D967CB252FC69C508B682677DD1AC62972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244056   (485854) от 30.08.2018
 
 Александр Розенбаум в БКЗ "Октябрьский" (29.07.2018) WEB-DLRip [H.264/1080p-LQ]
@@ -6,7 +67,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +147,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +199,7 @@ Pharrell Williams - iTunes Festival London (2014) WEB-DL [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +228,7 @@ Shar Airag Rock Band - Tribute to Pink Floyd (2013) WEBRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +257,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -225,7 +286,7 @@ Queen - Live At The Rainbow '74 (2014) SD Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +315,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -283,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -309,7 +370,7 @@ Slayer - Repentless (Live At Wacken) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -338,7 +399,7 @@ Deep Purple - From the Setting Sun... in Wacken (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -367,7 +428,7 @@ David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +457,7 @@ Madonna: The MDNA Tour (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +517,7 @@ Linkin Park - Honda Civic Tour (2012) [1080i] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +543,7 @@ The Prodigy / Live World's On Fire (2011) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +569,7 @@ Dream Theater - Breaking the Fourth Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +598,7 @@ Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Cust
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +628,7 @@ Madonna - The MDNA Tour (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -625,7 +686,7 @@ Graham Bonnet Band: Live...Here Comes the Night (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -655,7 +716,7 @@ Live At Wacken Open Air 2011 (2011) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -666,64 +727,6 @@ Wacken Open Air – крупнейший в мире летний фестива
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160574   (473647) от 25.08.2017
-
-Status Quo - The Last Night Of The Electrics (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись выступления группы Status Quo в London O2 Arena 11 декабря 2016 года. История команды началась с бит-группы The Spectres, где играли Фрэнсис Росси (гитара, вокал) и Алан Ланкастер (бас), к которым в конце 1967-го присоединился Рик Парфитт. Середина 70-х стала самым успешным периодом в карьере Status Quo. Каждый из альбомов того времени присутствовал в топ-5. (   Читать дальше...   )1 Caroline
-2 The Wanderer
-3 Something Bout You Baby I Like
-4 Rain(   Читать дальше...   )Производство: Германия | EarmusicЖанр: RockПродолжительность: 01:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26D3F5E6C66556C7AD3B12261BEF00BB56C874E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939703   (472795) от 22.09.2015
-
-Metallica - Live at Rock in Rio (2015) HDTV [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metallica — американская метал-группа, образованная в 1981 году. Исполняет музыку в стиле трэш-метал и хэви-метал. Metallica оказала большое влияние на развитие метала и входит (наряду с такими группами как Slayer, Megadeth и Anthrax) в «большую четвёрку трэш-метала». Альбомы Metallica были проданы в общей сложности в количестве более 100 миллионов экземпляров по (   Читать дальше...   )1-Fuel
-2-For Whom the Bell Tolls
-3-Battery
-4-King Nothing(   Читать дальше...   )Жанр: Rock, Thrash MetalПродолжительность: 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895E5FCFFCB252407FE3C85BC463DD4AA724E0F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

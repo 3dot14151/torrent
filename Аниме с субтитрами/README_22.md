@@ -1,3 +1,108 @@
+###  Публикация: 280718   (950176) от 10.01.2011
+
+Kyoushoku Soukou Guyver / Guyver: The Bioboosted Armor / Гайвер [ТВ] [2005, TV, 26 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: приключения, фантастикаРежиссер: Акияма КацухитоСубтитры: РусскийПродолжительность: (26 эп.), 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1C877844823C8F3476A585BD4833F30DA7D973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362768   (948218) от 24.02.2020
+
+Cop Craft | Мастерство копа [2019, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+15 лет назад над Тихим океаном открылись гиперпространственные врата, ведущие в мир фей и демонов Лето Семани. Сан-Тереза — город, в котором обитают эмигранты из обоих миров, насчитывает свыше двух миллионов жителей. В нём сосуществуют представители разных наций, культур, социальных слоёв. Это новейший «город мечты». Но есть у него и тёмная сторона: наркотики, проституция, (   Читать дальше...   )Производство: студия Millepensee / ミルパンセЖанр: приключенияРежиссер: Итагаки СинПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC878A7870D0489F100661BBA184D6C2A7E455DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362779   (948038) от 24.02.2020
+
+Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - проблема для отаку [2018, TV, 11 эп. + OVA] BDRip 1080 HEVC 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У Наруми Момосэ есть страшная тайна: она – отаку, и в придачу поклонница яоя! Когда ее секрет стал известен на предыдущей работе, Наруми пришлось уволиться, и в первый день в новой компании она торжественно клянется, что убьет каждого, кто ее выдаст.
+Cначала ничто не предвещало беды, но не прошло и нескольких часов, как Наруми встретила в офисе Хиротаку Нифудзи, (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: комедия, романтика, повседневностьРежиссер: Хирайкэ ЁсимасаПеревод: laci и Бригадир ЮрийЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 11 эп. + OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2DDEA3BDBF12C05722B490A1E78D379D06C835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362776   (948029) от 24.02.2020
+
+Kimi to, Nami ni Noretara | Ride Your Wave | Оседлать волну с тобой [2019, Movie] BDRip 1080 HEVC 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Поступив в университет, Хинако переезжает в прибрежный городок. Она очень любит сёрфинг и на волнах чувствует себя уверенно, однако неопределённость будущего всё ещё беспокоит её. Когда разбушевавшийся пожар сеет хаос в городке, Хинако знакомится с молодым пожарным Минато. Пока они занимаются сёрфингом и проводят много времени вместе, девушка начинает чувствовать, (   Читать дальше...   )Производство: студия Science Saru / サイエンスSaruЖанр: романтика, драмаРежиссер: Юаса МасаакиПеревод: 1) laci; 2) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AEE20E2750FD6FFFE2CF9158B83009D33CCC73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362778   (948022) от 24.02.2020
 
 Promare | Промар [2019, Movie + 2 SP] BDRip 1080p raw
@@ -6,7 +111,7 @@ Promare | Промар [2019, Movie + 2 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +138,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | DanMachi II | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +164,7 @@ Ginga Ojou-sama Densetsu Yuna: Kanashimi no Siren / Ginga Ojou-sama Densetsu Yun
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +191,7 @@ Himitsu: Top Secret / Himitsu: The Revelation / Химитсу [2008, TV, 26ep.]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +217,7 @@ Yurumates / Бездельники [2009-2012, OVA1, OVA2, TV1, TV2; 13 x 2 + 1 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +243,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +271,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +297,7 @@ Teekyuu 8 / Теннис - 8 сезон [2016, TV, 12 из 12] WEB-DLRip 720p 10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +323,7 @@ Fate/Grand Order -First Order- | Судьба: Великий Приказ — �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +349,7 @@ Bikini Warriors OVA / Воительницы в бикини OVA [2016, OVA, 2 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +376,7 @@ Flip Flappers [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +402,7 @@ Lance N' Masques / Копьё и маски [2015, TV, 12] HDTVRip Hi10p 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +428,7 @@ Chain Chronicle: Short Animation / Цепные хроники - коротко�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +455,7 @@ Mayoi Neko Overrun! / Stray Cats Overrun! / Нашествие бродячих 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +481,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +507,7 @@ Gekijouban Gintama: Shinyaku Benizakura Hen / Gintama: Benizakura Arc [2010] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +535,7 @@ Soukyuu no Fafner: Dead Aggressor - Exodus | Небесный Фафнир: Ис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +563,7 @@ Kagaku na Yatsura OVA / Эти чокнутые учёные OVA [2013, OVA, 1] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +590,7 @@ Orange: Mirai | Орендж: Будущее [2016, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,7 +618,7 @@ Toshokan Sensou / Library War / Библиотечная война [2008, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -539,7 +644,7 @@ Gakuen Utopia Manabi Straight! / Непоседливая Манаби! [2007, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -569,7 +674,7 @@ Sora no Otoshimono: Forte / Утраченное небесами: Стойко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_938161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,115 +689,6 @@ Sora no Otoshimono: Forte / Утраченное небесами: Стойко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11F9692D3001EF8B9FFC5B09622A0AC085430BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628605   (936476) от 10.03.2013
-
-No.6 / Шестая зона [2011, TV, 11] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936476.jpg" />
-</div>
-
-
-###  Подробнее
-
-После очередной мировой войны на Земле осталось лишь шесть зон, пригодных для проживания. Шестая зона – город-утопия, сохранивший достижения цивилизации. Им правит элита человечества и внутри царит жесткая иерархия, но даже последняя обслуга живет лучше, чем изгои за городской стеной, в трущобах Западного квартала. Впрочем, хозяевам жизни трущобы нужны – это не только пугало для недовольных, но и источник запретных удовольствий, а также рабов для экспериментов. Разумеется, 12-летний гений Сион ничего этого не знал до той дождливой ночи, когда в его дом забрался такой же мальчик, только преступник и беглец…
-
-Человеческое участие дорого обошлось герою – его вычеркнули из «резерва элиты» и вместе с матерью выселили из престижного района. Сион вырос, стал простым рабочим, но все равно задавал лишние вопросы, и когда первым обнаружил погибшего от неизвестной болезни, труп тут же повесили на него. Пропал бы парень, да его спас какой-то лихой боец – конечно же, старый знакомый по имени Нэдзуми! Теперь после дерзкого (   Читать дальше...   )Жанр: триллер, фантастика, сёнен-айРежиссер: Нагасаки Кэндзи / Nagasaki Kenji / 長崎健司Продолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8F1CC64D083CE679F2C4BCE0EDA9E96C891452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364057   (936395) от 03.03.2020
-
-Orange | Орендж [2016, TV, 13] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной, на втором году старшей школы, Нахо Такамия получила письмо. Вот только отправитель был какой-то странный — судя по всему, она сама. Сначала девочка подумала, что это чья-то шутка, и не восприняла его всерьёз. Но после оказалось, что оно и впрямь пришло от неё самой — только двадцатишестилетней. Нахо из будущего просила себя-старшеклассницу помочь одному человеку. (   Читать дальше...   )Производство: TMS EntertainmentЖанр: романтика, драма, повседневностьРежиссер: Хамасаки ХиросиПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213A18B3378093C4D0E5463829BA2355D2150D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629023   (934379) от 11.03.2013
-
-Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Дети волка Аме и Юки [2012, MV] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темой фильма является отношения между родителями и детьми. История аниме Ookami Kodomo no Ame to Yuki начинается, когда 19-летняя студентка колледжа по имени Хана влюбляется как в сказке в "Человека-волка". После счастливой свадьбы , Хана дает жизнь двум маленьким детям - старшая сестра по имени Юки (снег) и младший брат по имени Амэ (дождь).
-
-Семья спокойно (   Читать дальше...   )Производство: Studio ChizuЖанр: Антропоморфизм, сверхъестественное, драма.Режиссер: Хосода МаморуПеревод: TannerЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 01:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072748C872B6FC3EC104BDA8416648EC2DB9BD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753878   (934300) от 06.02.2014
-
-Ushio to Tora / Ushio and Tora / Усио и Тора [1992, OVA, 10 ep.+Omake] DVDRip Hi10p raw +eng
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934300.jpg" />
-</div>
-
-
-###  Подробнее
-
-История закручивается вокруг приключений и сражений Усио Аоцуки вместе с тигрообразным невидимым ёкаем Торой.
-Семья Усио живёт в японском храме Синто, где 500 лет назад предок Усио сражался с Торой и приковал его "Звериным Копьём". Оно способно увеличить физические способности владельца, даруя ему способность уничтожать демонов. Но в то же время, копьё (   Читать дальше...   )Жанр: приключения, комедия, мистикаРежиссер: Юяма Кунихико / Yuyama KunihikoПродолжительность: ТВ (10 эп.), 28 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07313844D2D76CEB19BF43B81D78C16FAE63D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1509244   (761425) от 05.01.2022
+
+Йеллоустоун / Yellowstone (2021) WEBRip [H.264/720p-LQ] (сезон 4, серии 1-10 из 10) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Йеллоустоун – первый в мире национальный парк, одно из самых посещаемых мест в США. Но здесь, на границе цивилизации, происходит много такого, чего не видят туристы, что не освещается средствами массовой информации. Семья Даттон, главой которой является Джон Даттон, владеет огромным ранчо, сопредельным с территорией парка. На их землю претендует и сам парк, и индейская (   Читать дальше...   )Производство: США, Linson EntertainmentЖанр: Драма, вестернРежиссер: Тейлор Шеридан, Стефен Т. Кэй, Джон ДалАктеры: Кевин Костнер, Люк Граймс, Келли Райлли, Уэс Бентли, Коул Хаузер, Келси Эсбиль, Брекен Мэрилл, Джефферсон Уайт, Джил Бирмингем, Форри Дж. СмитПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийСубтитры: отсутствуетПродолжительность: ~00:47:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC377D5B77D1EDA779B27EB86B81AE627B38AFFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515324   (759911) от 06.01.2022
+
+Пришельцы из прошлого / Beforeigners (2021) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-6 из 6) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В современном мире начинают появляться пришельцы из прошлого. Гости прибывают из каменного века, эпохи викингов и позднего XIX века. Они не знают, как здесь оказались, и не представляют, как вернуться назад. Спустя несколько лет сосуществования викинг Альфхильдр поступает на службу в полицию и вместе с местным детективом должна найти убийцу других пришельцев и попутно (   Читать дальше...   )Производство: Норвегия / Rubicon TV ASЖанр: Фантастика, драма, детективРежиссер: Йенс ЛиенАктеры: Криста Косонен, Николай Клеве Брок, Стиг Р. Амдам, Ragnhild Gudbrandsen, Надер Хадеми, Lavrans Haga, Карре Хаген Сиднесс, Ylva Bjørkaas Thedin, Ингунн Беате Ёйен, Madeleine Malling BreenПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:47:00Реклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2ACD3BE40F86CFC6A47485DCBD8445D50F5995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515325   (759780) от 06.01.2022
 
 Пришельцы из прошлого / Beforeigners (2021) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-6 из 6) LakeFilms [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A29C820A7D04407BA9496FEB56EFF4709A79A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280987   (749695) от 09.02.2019
-
-Патрик Мелроуз / Patrick Melrose (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-5 из 5) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патрик Мелроуз — плейбой, аристократ и алкоголик. Несмотря на деньги, жизнь Патрика сложно назвать легкой и безмятежной. Все детство ему пришлось терпеть жестокое отношение отца, пока мать предпочитала не вмешиваться. Подросший Патрик находит в себе силы пробраться в высший свет, но вместе с этим начинается его путь к саморазрушению.Производство: Великобритания, СШАЖанр: драмаРежиссер: Эдвард БергерАктеры: Бенедикт Камбербэтч, Дженнифер Джейсон Ли, Хьюго Уивинг, Себастьян Мальц, Джессика Рэйн, Прасанна Пуванараджа, Пип Торренс, Анна Маделей, Индира Варма, Гари Бидл и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: английскиеПродолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D45B41A4415E9C14B8443E605D154B526E9958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280991   (749601) от 09.02.2019
-
-Человек в высоком замке / The Man in the High Castle (2018) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-10 из 10) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германия и Япония выиграли Вторую мировую. Америка разделена пополам между победителями, но, разумеется, спустя много лет после поражения (действие разворачивается в 1962-м) сознательные американцы организуют глубоко засекреченное подполье. Занимаются повстанцы в основном распространением странной кинохроники, на которой показана победа в войне союзнических войск. (   Читать дальше...   )Производство: США / Amazon Studios, Electric Shepherd Productions, Headline PicturesЖанр: фантастика, триллер, драмаРежиссер: Дэниэл Персивал, Карин Кусама, Брэд АндерсонАктеры: Алекса Давалос, Руперт Эванс, Люк Клеинтенк, DJ Куоллс, Джоэль де ла Фуэнте, Кэри-Хироюки Тагава, Руфус Сьюэлл, Ли Шортен, Чела Хорсдэл, Арнольд Чун и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английские, английские (SDH)Продолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E73F9E44F7E391A0B249EFB01ACE4DCBB0CBFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

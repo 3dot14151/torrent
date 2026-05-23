@@ -1,3 +1,67 @@
+###  Публикация: 1170251   (400666) от 30.09.2017
+
+Leni Stern - Words (1995) [FLAC|Lossless|tracks + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1 Grace 5:15
+2 Ndola Longue 4:52
+3 Swayambu 6:10
+4 Halfmoon 5:30(   Читать дальше...   )Жанр: FusionПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4C84B8D6DC08B06ED81C8EDFC4DCCE872A85F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565612   (399999) от 26.10.2012
+
+V.A. - Vintage Lounge (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Nu Jazz, Lo-Fi>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:18:50
+
+01. Aloe Blacc - Femme Fatale
+02. Jamie Cullum - Devil May Care
+03. Anne Ducros - Sitting On The Dock Of The Bay
+04. Ben Sidran - Knockin On Heavens Door
+05. Norah Jones & Joel Harrison - I Walk The Line
+06. Trinah - Lets Stay Together
+07. Slackwax - On The Road Again(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Lo-FiПродолжительность: 02:37:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170239   (399821) от 01.10.2017
 
 Lin Halliday - Airegin (2000) Delmark [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
@@ -6,7 +70,7 @@ Lin Halliday - Airegin (2000) Delmark [FLAC|Lossless|image + .cue] <Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +99,7 @@ Maria Emig Trio - Introducing (2016) Gateway Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +128,7 @@ Johnny Hodges & Wild Bill Davis - Joe's Blues (1965) 2007, Lone Hill Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +157,7 @@ Buddy Rich & Maynard Ferguson - Two Big Bands Play Selections From West Side Sto
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +186,7 @@ Steve Marcus - Smile (1993) Red Baron [FLAC|Lossless|image + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +215,7 @@ Sam Levine - Smooth Sax Romance (2011) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +241,7 @@ The Gary Burton Quartet - Duster (1967) 2014, Sony Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +270,7 @@ Courtney Pine - Journey to the Urge Within (1986) [APE|Lossless]<Post-Bop, Saxop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +305,7 @@ Cpt Kirk - Starship Cadillac (2010) [APE|Lossless]<Jazz-Rock, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +340,7 @@ Woody Herman - Blowin' Up a Storm (1958) 1994, Drive Archive [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +369,7 @@ Jackie McLean - Jackie's Bag (1959, 1960) 2010, Analogue Productions [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -334,7 +398,7 @@ Hank Mobley - A Caddy for Daddy (1965) 2009, Analogue Productions [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -363,7 +427,7 @@ Nicki Parrott - Dear Blossom (2017) Arbor Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -392,7 +456,7 @@ Cordovan - Highway 10 Blues (2006) [FLAC|Lossless]<Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +491,7 @@ Charles Sullivan - Re-Entry (1976) 2010, Whynot [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +520,7 @@ Miroslav Vitous - Infinite Search (1969) 1998, EastWest [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +549,7 @@ John Handy - Mosaic Select 35 (1965 - 1968) 3CD, 2009, Mosaic Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +578,7 @@ Erik Soderlind - Twist For Jimmy Smith (2009) Prophone Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +607,7 @@ Bria Skonberg - With A Twist (2017) Sony Music/Okeh [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +636,7 @@ Chris Barber's Jazz Band - he Original Copenhagen Concert, Odd Fellow Palæet, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,7 +665,7 @@ Ruby Braff - Ruby Braff Goes “Girl Crazy” (1958) 2009, Wounded Bird Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -630,7 +694,7 @@ EABS - Repetitions (Letters To Krzysztof Komeda) (2017) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -659,7 +723,7 @@ Art Blakey - The Prime Source (1954 - 1956) 4CD, 2007, Proper Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -688,7 +752,7 @@ Terry Gibbs - Plays Jewish Melodies In Jazztime (1963) 2002, Verve [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -702,70 +766,6 @@ Terry Gibbs - Plays Jewish Melodies In Jazztime (1963) 2002, Verve [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D6E6D3E027C68800193CCC618A824FDD9C5AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172171   (394097) от 07.10.2017
-
-VA - Disney Adventures in Bossa Nova (2009) Disney [FLAC|Lossless|tracks + .cue] <Bossa Nova, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Valle - Cruela Cruel [02:55]
-02. Joice - Hi-Ho [01:27]
-03. Quarteto Em Cy & MPB4 - Somente o Necessario [02:23]
-04. Bana Lobo - Aqui No Mar [04:17](   Читать дальше...   )Жанр: Bossa Nova, Brazilian JazzПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CB55FEC0298603CC6946B16736C35B279B6783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568747   (393685) от 01.11.2012
-
-Diana Krall - Glad Rag Doll (Deluxe Edition) (2012) [FLAC|Lossless]<Jazz / Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Just Couldn't Say Goodbye (3:07)
-02. There Ain't No Sweet Man That's Worth The Salt Of My Tears (4:30)
-03. Just Like A Butterfly That's Caught In The Rain (3:43)
-04. You Know - I Know Ev'rything's Made For Love (3:47)
-05. Glad Rag Doll (4:34)
-06. I'm A Little Mixed Up (4:37)
-07. Prairie Lullaby (4:22)
-08. Here Lies Love (5:09)
-09. I Used To Love You But It's All Over Now (2:50)
-10. Let It Rain (5:44)(   Читать дальше...   )Жанр: Jazz / VocalПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

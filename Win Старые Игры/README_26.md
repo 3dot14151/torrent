@@ -1,3 +1,29 @@
+###  Публикация: 492086   (246580) от 04.05.2012
+
+Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в фэнтезийном мире, ваш герой – принц, правитель государства под названием Алония, задачей которого является победа над страшным злодеем Гримнотом, наславшим на его земли Тёмную Чуму, истребляющую жителей, для чего нужно собрать пять Сфер (к сожалению, сюжет в игре нельзя назвать действительно проработанным). Одним словом, перед нами очередной пример чудовищно недооценённой по неизвестным причинам ролевой игры, которая наверняка способна доставить любому поклоннику старых ролевых игр много-много радости.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833098   (246169) от 31.10.2025
 
 Castle Strike (2004) [Ru] (1.2) Repack Necros
@@ -6,7 +32,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +58,7 @@ MechCommander Gold (1998) [Ru/En] (2.1.0.3/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +84,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +136,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +396,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Traffic Giant (2001) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +604,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Waxworks (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Company of Heroes (2006) [Ru] (1.0) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Company of Heroes (2006) [Ru] (1.0) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9046736EE59AA7F218454902333AAE2C307B4EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424236   (221509) от 20.11.2020
-
-Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая классическая adventure с видом от первого лица по мотивам серии книг писателя Терри Брукса, переводившихся и на русский язык. Несмотря на наличие в игре боевой и ролевой составляющей, они не очень значительны, поэтому игру можно, хоть и с некоторой натяжкой, отнести именно к приключенческим играм. Для начала необходимо сказать несколько слов о мире, в котором (   Читать дальше...   )Тип издания: UnofficialРазработчик: Legend EntertainmentЖанр: Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5374389394CDAE3BB7AADB61D98279CD649D49
 ```
 
 https://mybot314.ru/tekegram_catalog/

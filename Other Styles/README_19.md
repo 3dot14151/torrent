@@ -1,3 +1,212 @@
+###  Публикация: 982412   (948096) от 03.02.2016
+
+Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Thirst For Life
+02. Rapture
+03. Drive
+04. What You Get(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F66A738FCF5DB704087FFDA4E1E0FCCA06BDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361079   (947936) от 24.02.2020
+
+Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. DOOMSDAY PREPPER (04:47)
+02. CLOCKMAKER (03:49)
+03. A MAN WALKS INTO AN INTRINSIC FIELD (01:34)
+04. SPLICE OF LIFE (00:36)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3914F96E75C539F96E19A4459DB1A7A76478B1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 750508   (947932) от 29.01.2014
+
+David Arnold & Michael Price - Sherlock - Original Television Soundtrack Music From Series Three (2014) [MP3|256 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. How It Was Done (2:44)
+02. God Rest His Soul (1:44)
+03. Floating Dust (3:29)
+04. #Sherlocklives (2:49)
+05. Back to Work (2:57)
+06. Vanishing Underground (2:29)
+07. John is Quite a Guy (4:06)
+08. Lazarus (3:36)
+09. Lestrade - The Movie (3:07)
+10. To Battle (4:02)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F443EEFF5A103835358536EBCFEB2777A101CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090154   (947508) от 06.01.2017
+
+Louis Landon - Soul Healing Piano Music (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 -  Conscious Love [00:05:04]
+02 -  Healing Words [00:04:41]
+03 -  No More Fear [00:04:42]
+04 -  Clear Direction [00:04:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B774F8D5B94205B77C80231DC640CD5CC4B160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982085   (947004) от 04.02.2016
+
+Leo Kottke - Standing In My Shoes (1997) [MP3|320 кб/с] <Folk, World, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Standing In My Shoes 03:59
+02. World Turning 04:00
+03. Dead End 04:17
+04. Vaseline Machine Gun 03:11(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D273CB9D789E840B3ABE8A0003D4484191150FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090555   (945975) от 07.01.2017
+
+Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Consciousness Shift (feat. Sika) [00:08:08]
+02. First Light (feat. Sika) [00:09:51]
+03. Forest Spirit (feat. Sika) [00:11:48]
+04. Pure (feat. Sika) [00:10:27](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8451A35F0F0A27028EF98A1F2C35146A0D9E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090517   (945857) от 07.01.2017
+
+Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Молитва Владимира (feat. Малый симфонический оркестр "Симфониетта") (02:47)
+02. Испытание водой (feat. Малый симфонический оркестр "Симфониетта") (02:07)
+03. Штурм Полоцка (01:26)
+04. Плач (Вокализ) (03:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D189D4751A240A181954F9DEC06B61470EB49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089783   (945798) от 07.01.2017
 
 Лихолесье - Туман перехода (2016) [MP3|320 Kbps] <Folk>
@@ -6,7 +215,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +273,7 @@ VA - 60 Minutes Relaxing Music (Non Stop Mix) (2016) [MP3|320 кб/с] <Relaxati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +302,7 @@ Justin E. Bell - The Outer Worlds (Original Soundtrack) (2019) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +331,7 @@ Tom Holkenborg aka Junkie XL - Deadpool (Original Motion Picture Soundtrack) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +360,7 @@ Arcade Messiah - II (2015) [MP3|320 кб/с]<Instrumental Post-Metal, Progressiv
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +389,7 @@ Arcade Messiah - III (2016) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progre
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +418,7 @@ Arcade Messiah - Arcade Messiah (2014) [FLAC|tracks|WEB-DL]<Instrumental Post-Me
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +447,7 @@ Arcade Messiah - III (2016) [MP3|320 кб/с]<Instrumental Post-Metal, Progressi
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +476,7 @@ Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +504,7 @@ John Adorney - Beckoning (1998) [APE|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +533,7 @@ Simon and Garfunkel - Greatest Hits (1972) [FLAC|Lossless|tracks + .cue] <Folk R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +562,7 @@ Ruaidhri - Celtic Goddess (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +591,7 @@ Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +620,7 @@ Secret Garden - Live at Kilden: 20th Anniversary Concert (2016) [FLAC|Lossless|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +649,7 @@ VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -469,7 +678,7 @@ VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [FLAC|Lossle
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -498,7 +707,7 @@ Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +736,7 @@ Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,210 +750,6 @@ Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4361CBCC654E87534AA1AD381FE2A81504556B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363466   (942325) от 28.02.2020
-
-Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942325.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:38| 01. Enter The Ride
-|03:17| 02. Neon Gray
-|03:31| 03. Time Capsule
-|01:42| 04. Reverse Part(   Читать дальше...   )Жанр: Soundtrack, Score, ElectronicПродолжительность: 01:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C754EA5C94D8A374ECB07A4C655ABD3A0F79802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363531   (942318) от 28.02.2020
-
-Группа Терёха - По следу солнца (2020) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942318.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. По следу солнца
-3. Порушка – Параня
-4. Колечко(   Читать дальше...   )Жанр: FolkПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550CED02A67C54DC93C7B20ADD8994A52548DD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983662   (941771) от 07.02.2016
-
-Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juice Newton - Angel of the Morning (04:13)
-02. Junkie XL - Maximum Effort (02:08)
-03. Junkie XL - Small Disruption (01:13)
-04. Salt-N-Pepa - Shoop (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA873D8DFB92F99667F6B461A0694E56BDE26FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983667   (941596) от 07.02.2016
-
-Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juice Newton - Angel of the Morning (04:13)
-02. Junkie XL - Maximum Effort (02:08)
-03. Junkie XL - Small Disruption (01:13)
-04. Salt-N-Pepa - Shoop (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBE5587CEEB0E72B0CA9DF3286AE8CC00A1C172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091709   (941516) от 10.01.2017
-
-R. Carlos Nakai & Will Clipman - Awakening The Fire (2013) [FLAC|Lossless|tracks + .cue] <New Age, Flute>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oasis
-02. Kindling the Essence
-03. Endless Journey
-04. First Morning(   Читать дальше...   )Жанр: New Age, FluteПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9595991F6F46694EDDCFFE4B5A1A4EF0D96215E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091423   (941438) от 10.01.2017
-
-George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и Замерзшее королевство  (2016) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title
-02. The Asylum
-03. Dark Journeys
-04. The Journal(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A54048F14D194ED368C54169C08D0B7DDD075A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250185   (941155) от 16.01.2015
-
-Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Listening, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2006 - Spring Of Life
-2007 - Winter Story
-2012 - Autumn JourneyЖанр: New Age, Easy Listening, PianoПродолжительность: 02:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43D3AE12D4267637AC30272C3E67BEF616B5C98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1243250   (493537) от 26.08.2018
+
+А.П. Кашкаров, А.Л. Бутов | Радиолюбителям: схемы для дома (2008) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приведено описание устройств различного назначения (звуковые и световые сигнализаторы, терморегуляторы, охранные устройства и др.), выполненных на недорогих элементах и доступных начинающим радиолюбителям для повторения. Рассмотренные конструкции могут быть изготовлены самостоятельно и будут полезны в дома, на даче, в автомобиле. Отдельные узлы, описанные в книге, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F85A12AF3456FF24BA086F0D16ECCD258A4F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382679   (492869) от 01.09.2011
+
+А.А. Савельев | Современные кровли. Устройство и монтаж [2010] [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Описание изготовления кровель опирается на инструкции ведущих производителей кровельных систем. Узлы и конструкции различных кровель во многом (но не во всем) взаимозаменяемые. Трубные разделки, карнизные и коньковые узлы, ендовы и фронтонные свесы, описанные в одной кровельной системе, с некоторыми доработками могут быть применены в другой. Теплоизоляция и вентиляция мансардных крыш применяются для всех видов кровельных покрытий.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158851   (489801) от 17.08.2017
+
+Андрей Кашкаров | Персональные видеорегистраторы для личной безопасности (2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первыми (2014 год) персональными видеорегистраторами (нательными камерами) оснащали полицейских, медиков бригад скорой помощи, спасателей, охотников лесного ведомства и других госслужащих.
+Сегодня это уже массовый продукт, который способен помочь широкому кругу лиц, включая даже охотников, а также владельцев оружия.
+В книге представлено масштабное описание современных (   Читать дальше...   )Жанр: Радиоэлектроника, СправочникиФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFC72934B4EF7A5344793EDBF1D06BE08DFB663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159252   (486027) от 19.08.2017
+
+А.А. Коннов, А.Е. Пескин (сост.) | Микросхемы для современных импортных телевизоров - 4 (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данный выпуск продолжает серию справочников «Энциклопедия ремонта» и является четвертой книгой, посвященной микросхемам для современных зарубежных телевизоров. Приводятся структурные схемы, назначения выводов и цоколевки более трехсот популярных микросхем, нашедших применение в цветных телевизорах производства стран Европы и Азии.
+В книге приведены микросхемы следующих (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E620DE15EB8B6297C665C002DACC7FC04FA9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159245   (485555) от 19.08.2017
 
 А. А. Бирюков | Умные устройства безопасности на микроконтроллерах Atmel (+files) (2017) [DJVU]
@@ -6,7 +113,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,113 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD722771132FA8BD9A39444006109E7DC7F3BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325525   (411766) от 15.09.2019
-
-Кэтлин Шамие | Основы электроники для чайников [3-е издание] (2018) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдете сотни схем и фотографий, в также подробнейшие рекомендации по проведению опытов, которые покажут вам, как работают те или иные электронные компоненты.
-В ней приведены советы по выбору и использованию важнейших инструментов, а также описание увлекательных электронных устройств, каждое из которых можно реализовать буквально за 30 минут (или (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE743C4AEE45FDE1B84F775B787E4EB9E094BA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325673   (409779) от 16.09.2019
-
-А.В. Лопаткин | Проектирование печатных плат в Altium Designer (2016) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409779.jpg" />
-</div>
-
-
-###  Подробнее
-
-На примере несложного устройства рассмотрены практические приемы проектирования печатных плат в системе Altium Designer. Очень подробно с применением пошаговых инструкций описывается весь цикл проектирования печатной платы – от ввода схемы до верификации проекта и выпуска рабочей документации.
-Рассматриваются инструменты автоматической и интерактивной трассировки, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515AE495E3D06CD6E746C6E043B5525D0E3DFC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168509   (408649) от 24.09.2017
-
-С.И. Макаренко | Информационное противоборство и радиоэлектронная борьба в сетецентрических войнах начала XXI века (2017) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография является результатом работы автора по обобщению исследований в областях радиоэлектронной борьбы и информационного противоборства в условиях произошедшей в начале XXI века информационно-технической революции и внедрения в практику войск концепции сетецентрических войн.
-В монографии проведен анализ основ концепции сетецентрической войны, выявлены фундаментальные (   Читать дальше...   )Жанр: Радиоэлектронная борьбаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E47CD9A289EEFD4430ED97B90B16582A213852E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169557   (402235) от 28.09.2017
-
-Мухаммад Х. Рашид (ред.) | Справочник по силовой электронике (2017) [PDF][En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Power Electronics Handbook, четвертое издание, объединяет более чем 100-летний опыт работы в специализированных областях энергетики, предлагая полностью переработанное и обновленное руководство для специалистов по силовой электронике. Разработанный для обеспечения наилучших технических и наиболее коммерчески доступных решений, этот справочник берет на себя любые (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5F79347D70DBC69E1EDB88CEBE07ADD2773845
 ```
 
 https://mybot314.ru/tekegram_catalog/

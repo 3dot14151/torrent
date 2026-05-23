@@ -1,3 +1,29 @@
+###  Публикация: 1349050   (139261) от 30.12.2019
+
+DethKarz (1998) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Игра 1998 года, созданная для любителей быстрой и опасной езды. Dethkarz переносит игроков в мир футуристических гонок на реактивных автомобилях. Вы управляете спортивным автомобилем, который спроектирован так, чтобы не только победить в заезде, но и уничтожить всех соперников, оказавшихся у вас на пути. Ведь здесь, в отличие от привычных гонок, игроки могут устанавливать (   Читать дальше...   )Тип издания: LicenseРазработчик: Beam SoftwareЖанр: Экшн, Симулятор, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A77CB951DE0DEB7381E140F4BD14B6CFD513F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342023   (138484) от 30.12.2019
 
 City Car Driving (2016) [Ru/En] (1.5.9.1.27346) Repack xatab
@@ -6,7 +32,7 @@ City Car Driving (2016) [Ru/En] (1.5.9.1.27346) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.33.2.12s/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Antigraviator (2018) [Ru/Multi] (1.31) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Pure Collector's Edition / Pure Коллекционное издание [Ru/En
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +242,7 @@ FUEL [Ru/En] (L) 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -248,7 +274,7 @@ World Racing 2 (2022) [Multi] (1.5.3-20231108) License GOG [Champion Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +300,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +326,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +352,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack Decepticon [Collector's Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +378,7 @@ Need for Speed: Most Wanted (2005) [Ru/Multi] (1.3) Repack Decepticon [Black Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +404,7 @@ Need for Speed: Underground (2003) [Ru/En] (1.4.0) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +430,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +456,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +482,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +508,7 @@ Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +534,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +560,7 @@ LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +586,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +612,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +638,7 @@ Need for Speed: The Run (2011) [Ru/En] (1.1.0.0/dlc) Repack Decepticon [Limited 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -638,7 +664,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -649,32 +675,6 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFEE6827D4C0B7A2B20B21C84826B4DAF69F12A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686377   (126720) от 22.12.2023
-
-Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack Decepticon [Limited Edition]
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed Hot Pursuit - это ваш пропуск в новый открытый мир за руль самых быстрых и прекрасных автомобилей на свете. Созданная отмеченной многочисленными наградами студией Criterion, разработчиком игр серии Burnout, Hot Pursuit дает начало новому поколению жанра автогонок. Вам предстоит испытать на себе ошеломительные скорости, задержания и побеги, сражаясь (   Читать дальше...   )Тип издания: RepackРазработчик: Criterion StudiosЖанр: Racing, SimulatorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C4CEB4778A8D511FF6F48D1868F37CFD44450A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1849867   (1053917) от 25.01.2026
+
+Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack Pioneer [Pilgrim Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В Cult of the Lamb игрок окажется в роли одержимого ягненка, спасенного от гибели жутким незнакомцем. Чтобы отплатить долг спасителю, вам придется найти ему верных последователей. Заложите основы собственного культа в землях лжепророков и совершайте вылазки в разнообразные таинственные регионы, создайте преданное сообщество лесных почитателей и несите свое Слово, (   Читать дальше...   )Тип издания: RepackРазработчик: Massive MonsterЖанр: Экшны, Приключение, МенеджментЯзык субтитров: Русский, Английский Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478EE7C5764589FA459AEBE818C07483DEC122A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849864   (1053915) от 25.01.2026
 
 Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack FitGirl [The One Who Waits Bundle]
@@ -6,7 +32,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack FitGirl [The One Who 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.980/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) Repack FitGirl [Black Razor Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Thrae (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.2.2/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Machick 2 (2025) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Halls of Torment (2023) [Ru/Multi] (2025-12-04/dlc) Repack FitGirl [Tormented Su
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Under Night In-Birth II (2) Sys:Celes (2024) [Multi] (1.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Toy Tanks (2022) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Legend of Kay Anniversary (2015) [Multi] (1.0.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +318,7 @@ R-Type Final 2 (2021) [Multi] (2.0.4/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +344,7 @@ SHINOBI: Art of Vengeance (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Port Swit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Megabonk (2025) [Ru/Multi] (1.0.19) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +396,7 @@ PixelJunk Eden 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Angeline Era (2025) [Multi] (43.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Star Fire: Eternal Cycle (2025) [Ru/Multi] (1.25.271) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Repack FitGirl [Digital 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Scene voices38 [Digital 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Escape from Lavender Island (2023) [En] (1.2c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Speedball 2 HD (2013) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) License GOG [Black Razor Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Dragon Ball FighterZ (2018) [Ru/Multi] (1.42/dlc) Repack FitGirl [Legendary Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Welcome to Basingstoke (2018) [En] (109) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Basingstoke – приключенческий экшен-рогалик с эл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF59D83BE400B8BBB38C3DEA2F8C4F6CE5916BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843446   (1049414) от 20.12.2025
-
-LEGO Voyagers (2025) [Ru/Multi] (build 19911812) Repack seleZen
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели LEGO Builder's Journey представляют новые кооперативные приключения для двоих об игре и дружбе. Двое друзей решают спасти брошенный космический корабль и пускаются в приключения, какие им и не снились. В своем путешествии они поймут, насколько важны крепкие отношения. LEGO Voyagers предлагает задуматься над тем, как строить дружбу, делиться мечтами и уважать (   Читать дальше...   )Тип издания: RepackРазработчик: Light Brick StudioЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Испанский (Латинская Америка) и другиеЯзык интерфейса: Русский, Английский, Испанский (Латинская Америка) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511AD289D49326D5471531B19CF088B58E784627
 ```
 
 https://mybot314.ru/tekegram_catalog/

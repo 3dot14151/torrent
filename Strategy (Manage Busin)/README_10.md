@@ -1,3 +1,55 @@
+###  Публикация: 1223602   (144997) от 26.12.2018
+
+Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack xatab
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Transport Fever - это железнодорожная экономическая стратегия. Игроки начинают в 1850 и строят процветающую транспортную компанию. Будучи новоиспеченным магнатом, игрок возводит станции, аэропорты, доки и зарабатывает деньги, соединяя области, которым нужно транспортное сообщение.Тип издания: RepackРазработчик: Urban GamesЖанр: Strategy (Manage, Busin, Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D7E3068BA4405527A97315DD3E506EFC3D91E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272603   (141816) от 28.12.2018
+
+Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Постройте новый дом для человечества в колонии Эйвен. Откройте для себя Эйвен Прайм - чужую планету, где есть пустыни, тундра и джунгли, расположенную на расстоянии многих световых лет от Земли. Колония Эйвен ставит вас во главе первого поселения людей, находящегося за пределами Солнечной системы, где вам предстоит построить маленькие колонии в обширные крупные города, (   Читать дальше...   )Тип издания: LicenseРазработчик: Mothership Entertainment LLCЖанр: Strategy (Sci-fi), Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE558665AD414F209AA91EB4EF8E15C31865A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678975   (141277) от 23.11.2023
 
 Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.0) Repack dixen18
@@ -6,7 +58,7 @@ Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Pro Basketball Manager 2024 (2023) [Ru/Multi] (1.22-20112023) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ SGS We The People (2023) [Ru/Multi] (23.10.18) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ SGS Battle For: Madrid (2023) [Ru/Multi] (23.11.29) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Against the Storm (2022) [Ru/Multi] (1.0.1r) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Oriental Dynasty - Silk Road defense war (2023) [Ru/Multi] (2.6.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +319,7 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +345,7 @@ Minecraft Legends (2023) [Ru/Multi] (1.18.14350) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +371,7 @@ The Universim (2018) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +397,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +423,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.3/dlc) Scene Tenoke [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +449,7 @@ Rise to Ruins (2019) [En] (2d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +475,7 @@ Combat Mission: Final Blitzkrieg (2024) [Multi] (2.11/dlc) Repack FitGirl [Compl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +501,7 @@ The Hero We Need (2024) [En] (0.8.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Intra (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +553,7 @@ Arcade Tycoon: Simulation Game (2021) [Ru/Multi] (2.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +579,7 @@ SimLife (RePack) [En] 1992 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +606,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +633,7 @@ Pole Position 2012 [Multi5-] (L) 2012 | FairLight
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +662,7 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -621,62 +673,6 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43254B7B40A4BBDB63D3AF919061FFD61E0F711E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482324   (88313) от 13.04.2012
-
-Dungeon Keeper 2 {1.7} (RePack) [Ru/En] 1999 | Sash HD
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это действительно очень приятно – быть плохим, так сказать, “понарошку”, когда гадость кому-нибудь сделать можно, а за это ничего не будет. Именно поэтому серия DK и пользуется такой сумасшедшей популярностью: максимум, что вам может грозить за преступления против человечности и “монстрячности”, совершенные в игре, это перезагрузка. В Dungeon Keeper 2 вам доверяется роль могучего Колдуна, который явно страдает манией величия. Вместо того, чтобы мирно сидеть в своем погребе и мучить своих подопечных, Колдун стремится завоевать все новые и новые земли. Насколько он преуспеет в своем начинании, зависит от вас, ибо он – это вы! Игра делится на миссии. У каждой миссии есть конкретное задание: как правило, надо найти и уничтожить того или иного Колдуна, а также выполнить несколько второстепенных квестов. В игре превалирует взгляд на место событий “сверху-сбоку”, хотя камеру можно перемещать почти как угодно. Так же существует режим игры “от первого лица”: вселившись в одного из ваших монстров, вы получаете возможность (   Читать дальше...   )Тип издания: RePackЖанр: StrategyЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EA0C57A3ABEC4FDB3B6DF058B3C0A1B6779B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479293   (87080) от 07.04.2012
-
-Tropico 4: Modern Times [Ru/1.5] (Р) 2012
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tropico 4
-В бурно изменяющемся мире, где от империй остаются лишь тени их былого величия, а новые игроки поигрывают мускулами, где-то посреди океана житейских невзгод затерялся крохотный островок невезения. Превратите нищую банановую республику в процветающий морской курорт, сделайте своих граждан счастливыми, расстреляйте тех, кто с вами не согласен, и не забудьте о собственном счете в оффшорном банке
-
-Modern Times4
-Аддон градостроительного и политического симулятора Tropico 4, в котором Эль Президенте предстоит достраивать коммунизм на райском острове в наше время интернета и айфонов. Разработчики предлагают пройти новую кампанию из 12 миссий, 10 новых зданий в числе которых есть космодром и оффисные здания, а так же 10 президентских указов, демократичных и не очень, позволяющих решить различные социальные проблемы граждан Эль Тропико.Тип издания: ПираткаРазработчик: Haemimont GamesЖанр: Strategy (Manage/Busin. ,/ Real-time) / 3DЯзык озвучки: Русский \ DLC: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBF1D723B1AD15C3A69CFD0A08EE7A150D77F81
 ```
 
 https://mybot314.ru/tekegram_catalog/

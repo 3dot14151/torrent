@@ -1,3 +1,81 @@
+###  Публикация: 1799077   (17051) от 25.05.2025
+
+Fable Anniversary (2014) [Ru/En] (1.0.8767.0/dlc) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Fable Anniversary - это ремейк одной из самых продаваемых ролевых игр, выпущенных на оригинальном Xbox. Этот проект заставил игроков поверить в то, что каждое их действие будет влиять на последующий геймплей. А мир Альбиона настолько сильно полюбился игрокам, что Fable разрослась до масштабов целой франшизы, история которой продолжается вот уже почти 10 лет. Fable (   Читать дальше...   )Тип издания: RepackРазработчик: Lionhead StudiosЖанр: Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1D1F0B9A6E946EE39B25F9A361763F97791DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799001   (17041) от 25.05.2025
+
+Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Удар метеорита положил конец цивилизации, какой мы ее знаем. Человечество оказалось на грани вымирания. Однако после многих лет неопределенности, внезапных изменений климата, экстремальных температур и других катастроф условия, кажется, улучшаются настолько, что можно исследовать и заново заселить эту постапокалиптическую Землю.Тип издания: RepackРазработчик: Angry Bulls StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5748A060A6CE55DFD3B48168125A05B7143036FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799051   (17020) от 25.05.2025
+
+Dragon Quest III (3) HD-2D Remake (2024) [Multi] (1.2.0.0 Build 18186891/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+DRAGON QUEST III HD-2D Remake - это потрясающая реинкарнация популярного шедевра, с которого началась история The Erdrick Trilogy. Много лет назад великий герой Ортега (Ortega), простившись с женой и сыном, отправился в путешествие, чтобы победить злого архидемона Барамоса (Baramos). Увы, Ортега не достиг своей цели. Барамос по-прежнему угрожает всему живому. Когда (   Читать дальше...   )Тип издания: SceneРазработчик: Square Enix, ARTDINKЖанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E794B080930CB823F7D7EF1EDDECAA6FA3BC6FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601342   (16928) от 26.05.2025
 
 Fabled Lands (2022) [En] (2.1.4/dlc) License GOG
@@ -6,7 +84,7 @@ Fabled Lands (2022) [En] (2.1.4/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.1.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0C) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.11a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Fuga: Melodies of Steel 3 (2025) [Multi] (Build 29182614) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Artifact Seeker Resurrection (2024) [Ru/Multi] (1.4.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene T
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Wayfinder (2023) [Ru/Multi] (211130/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31971/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Archons (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Archons - это Roguelite, Survivor-игра, в которой вы управ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0BAA443D6BB82A5156A3A33633D165BEC32A0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626578   (15419) от 07.06.2025
-
-Shardpunk: Verminfall (2023) [Multi] (1.1.9.0/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shardpunk: Verminfall - изометрическая игра, геймплей которой представляет собой смесь XCOM и Darkest Dungeon. Сеттинг выполнен в стимпанк стилистике. В Капитолии Империи, в котором происходят действие, началась эпидемия чумы и улицы заполонили крысы. Вы берете под управление выжившего, пытающегося сбежать из города. На вашем пути повстречаются выжившие, которых (   Читать дальше...   )Тип издания: LicenseРазработчик: Clockwork PileЖанр: Ролевая игра, Пошаговая, ФантаcтикаЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357F21369E8671885063C7889F0A5931E1B9479B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801026   (15394) от 07.06.2025
-
-Yog-Sothoth’s Yard (2023) [Multi] (1.0) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yog-Sothoth's Yard - это ролевой симулятор строительства в готическом сеттинге, где мистическое и макабрическое сходятся воедино, чтобы создать уникальный игровой опыт. Как наследник заброшенного особняка в стране, где сосуществуют драконы, эльфы и люди, вы должны ориентироваться во тьме, которая вас окружает. Ваша миссия: построить гостиничную империю, которая будет (   Читать дальше...   )Тип издания: LicenseРазработчик: Bone NailЖанр: Ролевые игры, СимуляторыЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7152A8520D54A466085A6592610E1015E2F4469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801004   (15383) от 07.06.2025
-
-Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Scene Rune [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lies Of P была вдохновлена знаменитой историей о Пиноккио, но демонстрирует более жестокую и мрачную версию сказки. Чтобы стать человеком недостаточно доброты и любви, ведь людская сущность обладает и кровожадными чертами, где каждый готов бороться за власть или место под солнцем любыми способами. Многое предстоит построить на лжи, главное не запутаться в ней, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: NEOWIZЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EED785EEF35C7A80D0AF0061E8BF02CC20E19F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

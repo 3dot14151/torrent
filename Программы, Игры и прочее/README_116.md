@@ -1,3 +1,81 @@
+###  Публикация: 1434363   (150407) от 24.12.2020
+
+Pascal's Wager v0.2.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Pascal's Wager - это мрачная и стильная экшн RPG на мобильные устройства, обладающая великолепной графикой нового поколения. Действие игры разворачивается в тёмном мире, в котором в результате природного катаклизма солнце опустилось на дно океана. Лишённый света континент внезапно оказался покрыт чёрным туманом. Местные жители сходят с ума, и никто не знает почему. (   Читать дальше...   )Тип издания: Premium+Релиз состоялся: v0.2.1Разработчик: Giant GlobalПоддерживаемая ОС: Android 5.0+Жанр: RPG, ЭкшнЯзык интерфейса: Русский, Английский, Испанский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5046D816EEC65B3452452A79020077207D173029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677508   (150369) от 18.11.2023
+
+Moon+ Reader Pro v8.6 (build 806000) Mod by Balatan, derrin,  Lucky Las [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 16.11.2023Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CD222CA8170DB27841190A6EFECD757931C0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446497   (150367) от 22.12.2021
+
+Мой Словарь PRO: учи слова v7.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Хотите быстро выучить английский или любой другой язык? Поможет уникальная программа-полиглот для запоминания английских слов (и не только английских). Приложение будет незаменимым помощником при подготовке к TOEFL, IELTS, ESP, FCE, PET, TOEIC, оно поможет пополнять словарный запас, записывая и тренируя новые слова.Тип издания: Пиратка (Paid)Релиз состоялся: 17 декабря 2021 гРазработчик: Kataykin: apps for education & lifestyleПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34873923386E5856B8931C1B0884BE38C340AB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434399   (150352) от 24.12.2020
 
 MudRunner Mobile v1.3.0.8633 [Ru/En]
@@ -6,7 +84,7 @@ MudRunner Mobile v1.3.0.8633 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Stellio - Music Player v6.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +215,7 @@ PAC-MAN 256: вечный лабиринт v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Space Marshals 3 + Mod Menu v1.3.8 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Listen Audiobook Player v5.2.2 (979) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Street Racing Grand Tour v0.12.3756 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +345,7 @@ State of Survival v1.9.90 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +371,7 @@ Webcams v2.0.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Next: тренировки дома v0.0.77 Mod by sserratty [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +423,7 @@ Garmin: City Navigator Philippines NT 2015.40 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +449,7 @@ Garmin: Bulgaria OFRM Geotrade - 2015 Q4 [Bg]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +475,7 @@ Garmin: City Navigator Thailand NT 2015.20 (Dual+Thai) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +501,7 @@ Shift Work Calendar (FlexR Pro) v7.12.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +556,7 @@ Shamdo v1.3.1216 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +582,7 @@ ExoMiner - Idle Miner Adventure v0.7.8 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +609,7 @@ Shadow Hunter : Lost World - Epic Hack and Slash v0.20.8.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +635,7 @@ Age of Civilizations II 1.01584_ELA [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +661,7 @@ Flight Simulator 2d v1.3.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,86 +672,6 @@ Flight Simulator 2d - realistic sandbox simulation - довольно неста
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA225BD137E9470751AB1EDAB901BF0EA611F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435074   (145278) от 27.12.2020
-
-Day R Premium v1.677 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Day R Survival – интересная игра в которой вам предлагают вернуться в то время когда СССР еще существует. Но жизнь на земле изменилась. Война всегда была беспощадной. В 1985 году СССР потерпело поражение от неизвестного врага. Буквально вся страна превратилась в радиоактивную пустыню за несколько дней и теперь ужасные чудовища, которые подверглись мутации от колоссальной (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25 декабря 2020 г.Разработчик: tltGamesПоддерживаемая ОС: Android 4.0+Жанр: СтратегииЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC507992DBAF3F85E9CE501C62D8A593275AA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678449   (145248) от 21.11.2023
-
-Aimp v4.05.1382 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145248.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP - это легковесный мобильный аудиоплеер построенный на основе плейлистов для ОС Android.
-
-Программа может некорректно работать на устройствах под управлением оболочки MIUI.Тип издания: FreeРелиз состоялся: 13.11.2023Разработчик: AIMP DevTeamПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BFC93C1D65E3C5E00280582F93A5DA465BFC77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520139   (145184) от 26.12.2021
-
-Топливомер: Расход топлива v3.6.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Топливомер поможет вести учет заправок и рассчитает средний расход топлива (газ, бензин, ДТ, электро).Тип издания: Пиратка (Pro)Релиз состоялся: 21 декабря 2021 г.Разработчик: Artem KrutПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5C5F41D128946E9D71A80D043052021AF322A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 591292   (136516) от 19.12.2012
+
+Журнал | Юность №11 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юность - ежемесячный литературно-художественный и общественный иллюстрированный журнал. Издается с 1955 года. Первый редактор В. Катаев, с февраля 1962 — Б. Полевой. Журнал адресован главным образом молодёжи, что определяет в значительной мере его тематику. Среди авторов "Ю." — А. Твардовский, К. Симонов, О. Берггольц, Ю. Нагибин, И. Друцэ, Б. Ахмадулина, В. Быков, Б. Васильев, В. Титов, Б. Слуцкий, В. Аксенов, А. Битов, А. Вознесенский, А. Рекемчук, Е. Евтушенко, С. Антонов, Р. Рождественский, А. Рыбаков, Ф. Искандер и другие.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF37B0455221954323DDB8DFFA547181D12256E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591438   (136511) от 19.12.2012
+
+Журнал | Skin Deep Tattoo №219 (UK) [январь 2013] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Skin Deep Tattoo Magazine - международное обозрение для тех, кто любит татуировки. Модные тенденции, стили и направления в развитии нательной живописи. Обзоры лучших рисунков. Инструменты для работы. Skin Deep прочно утвердился в качестве лучшего и самого продаваемого журнала о тату в Великобритании.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B5427AFAA71BBFDCA10D2FC0F76F17B2C63056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591902   (136268) от 20.12.2012
+
+Журнал | Туризм и отдых №49 [декабрь 2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рассказы о популярных туристических направлениях, полезные рекомендации, интересные обзоры, фоторепортажи. Своеобразное зеркало, отражающее состояние дел в российской туристической индустрии, настоящий навигатор в мире туристических услуг и бизнеса.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C7B692D35E7A759C287C1936F4627CB33400F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591849   (136218) от 20.12.2012
+
+Журнал | 100 битв, которые изменили мир №99 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия «100 битв, которые изменили мир» предлагает вам описание самых значительных сражений в мировой истории. В каждом выпуске журнала вы найдете рассказ об одной из самых известных битв, включая ярчайшее описание самого сражения, а также мнения экспертов о противоборствующих сторонах. В каждом номере - воспроизведение сражения; очерки о полководцах; детальное описание хода битвы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80A38B825C989367A060C793E5DB0629CA2F09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592442   (135957) от 21.12.2012
 
 Журнал | Log Home Living №02 [февраль 2013] [PDF] [En]
@@ -6,7 +110,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A32E8E6531B1A6AE0B0909D9E20A65403AE9CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680912   (133537) от 01.12.2023
-
-Журнал | Бизнес журнал №8 (55) (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133537.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бизнес журнал» - деловое издание, рассчитанное на управляющих и собственников фирм, частных предпринимателей и топ-менеджеров. На его страницах бизнесмены могут свободно обмениваться опытом друг с другом, задавать самые каверзные вопросы и популяризировать собственные деловые и управленческие практики, повышать эффективность своих финансовых и маркетинговых инструментов (   Читать дальше...   )Жанр: БизнесИздательство: ООО "РЕГИОНАЛЬНЫЕ НОВОСТИ"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EC4A5F33D8E890A94E5179E81F55715EDCB4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680913   (133522) от 01.12.2023
-
-Журнал | Бизнес журнал №9 (56) (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133522.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бизнес журнал» - деловое издание, рассчитанное на управляющих и собственников фирм, частных предпринимателей и топ-менеджеров. На его страницах бизнесмены могут свободно обмениваться опытом друг с другом, задавать самые каверзные вопросы и популяризировать собственные деловые и управленческие практики, повышать эффективность своих финансовых и маркетинговых инструментов (   Читать дальше...   )Жанр: БизнесИздательство: ООО "РЕГИОНАЛЬНЫЕ НОВОСТИ"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF280E06CB2501C741CFFF044E877C1AC324DE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680915   (133504) от 01.12.2023
-
-Журнал | Бизнес журнал №10 (57) (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133504.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бизнес журнал» - деловое издание, рассчитанное на управляющих и собственников фирм, частных предпринимателей и топ-менеджеров. На его страницах бизнесмены могут свободно обмениваться опытом друг с другом, задавать самые каверзные вопросы и популяризировать собственные деловые и управленческие практики, повышать эффективность своих финансовых и маркетинговых инструментов (   Читать дальше...   )Жанр: БизнесИздательство: ООО "РЕГИОНАЛЬНЫЕ НОВОСТИ"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EC1E022B67F76A3D078159DFE7FBA3B08225DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680919   (133465) от 01.12.2023
-
-Журнал | Военно-исторический журнал №12 (декабрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133465.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631DC7460546F751CDAE6A0360C2F1FF0C3C52AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

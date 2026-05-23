@@ -1,3 +1,107 @@
+###  Публикация: 1525885   (128997) от 22.01.2022
+
+Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ужасные происшествия в Kimagure Temptation показывают сцену с убийством четверых людей в многоквартирном доме. Жильцы напуганы и желают разобраться в произошедшей ситуации, чтобы быть спокойными. На месте смерти были обнаружены густые миазмы, исходящие изнутри здания, а у погибших отсутствуют органы и разрезаны животы. Жители вызывают на помощь полицию, которая не (   Читать дальше...   )Тип издания: LicenseРазработчик: Silky's Plus WasabiЖанр: Приключение, Визуальные новеллы, ДрамаЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E0108B3C3C4D3436F2A4E7F67C95A1E9E521EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922210   (128891) от 15.10.2025
+
+Anna's Quest (2015) [Ru/Multi] (1.3.4792) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Anna’s Quest - это чудесная игра с нарисованной от руки графикой, темной историей и склонностью к самоиронии. Ведьмы, призраки, тролли, проклятые принцессы... Такая разношерстная кампания персонажей – привычное дело для далеких земель, где обитает храбрая девочка по имени Анна. Живет она в мирном лесу со своим дедушкой, но однажды таинственная хворь подкашивает старика.Тип издания: LicenseРазработчик: Krams DesignЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5139D33A798859CDC47B3E4AD15DDAEB2F1E9715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824600   (128811) от 15.10.2025
+
+Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к Кроку в 3D-платформенном приключении, чтобы спасти Гоббосов от злого колдуна Барона Данте и его прислужников Дантини! Бегайте, прыгайте, карабкайтесь, плавайте и крутитесь хвостом через яркие миры в этой с любовью ремастированной версии...Тип издания: RepackРазработчик: Titanium Studios, Big Boat InteractiveЖанр: Экшены, Приключенческие игрыЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82B739A5AE0FF458D4BFDBD1749A1D98C89245C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 107674   (127013) от 20.12.2023
+
+Journey to the Center of the Earth / Путешествие к центру Земли (2003) [Ru] (1.0) License
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодая журналистка Ариана и в страшном сне не могла представить, что в ходе съемок исландских пейзажей камнепад уничтожит ее вертолет вместе с пилотом. Мало того, чудом уцелев, она проваливается под землю! В нескольких сотнях метров от поверхности кипит совсем другая жизнь. Ариану окружают странные ландшафты, давно вымершие животные и загадочные обитатели центра (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Adventure, Point&ClickЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6017FF2A9B41FE23DB312B6AE57C3A61999492DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674197   (126995) от 20.12.2023
 
 This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
@@ -6,7 +110,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Peaks of Yore (2023) [En] (1.3.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Ghost Trick: Phantom Detective (2023) [Ru/Multi] (11038113/dlc) Repack Deceptico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Bluey: The Videogame (2023) [Multi] (0.20.4) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Submachine: Legacy (2023) [En] (20231015) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Fort Solis (2023) [Ru/Multi] (20231228) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Night is Grey (2024) [En] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Amatsutsumi (2022) [En] (1.02/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ About a Boy (2023) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Ditzy Demons Are in Love With Me / Boku to Koi Suru Ponkotsu Akuma (2018) [M
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD0DA566F331020893B32A814A2478456643E6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691155   (123460) от 11.01.2024
-
-Aquarium (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аква – миловидная горничная, хранящая секрет своего хозяина. Оказывается, он потерял часть воспоминаний, и теперь пытается понять почему. Аква постарается ему помочь. Все это будет развиваться на фоне милой любовной истории двух людей, состоящих в разных социальных слоях.Тип издания: SceneРазработчик: ENTERGRAM,INC.Жанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D913B314EDB15E0E8B7C34A32A36B992DD8B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691365   (123337) от 12.01.2024
-
-Shining Song Starnova (2018) [En] (1.00) License GOG [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shining Song Starnova повествует о попытках девушек-айдолов добиться успеха в шоу-бизнесе. При этом все девушки уже успели разочароваться в индустрии из-за необходимости идти по головам ради достижения целей. Всего здесь есть 7 молодых женщин: Shimazaki Sasami, Hashimoto Mika, Watanube Julie, Kashiwagi Aki, Yamamoto Maria, Akimoto Nemu, Tanabe Natsuki. Помимо имён (   Читать дальше...   )Тип издания: LicenseРазработчик: Love in SpaceЖанр: Simulation, Visual Novel, ManagerialЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC529F2E68A1D1F02BCDB4FFCDC10323E74A3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691843   (123234) от 13.01.2024
-
-THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123234.jpg" />
-</div>
-
-
-###  Подробнее
-
-«The Descent» — психологический хоррор от первого лица, действие которого происходит в конце 19 века в угледобывающем городке Роквелл Майн. Погрузитесь в изнурительную атмосферу шахтерской среды и тревоги в глубоких коварных шахтах. На шахте Роквелл произошло множество несчастных случаев, исчезновений и необъяснимых смертей, что озадачило власти. Несмотря на бесчисленные (   Читать дальше...   )Тип издания: RepackРазработчик: Celeritas GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6310172414A82BBA0595B4D7043401B6DF12BE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691761   (123232) от 13.01.2024
-
-Supernormal (2024) [En] (1.3.3) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический хоррор с давящей атмосферой, где вам предстоит с головой окунуться в мрачные тайны и испытать неподдельный ужас от происходящего. Казалось бы, что может скрывать в себе обычная на первый взгляд квартира, но переступив порог детектив Уайетт ощущает мистическое присутствие. Вам предстоит узнать связано ли это с его текущим делом о пропажи дочери Сакамото (   Читать дальше...   )Тип издания: SceneРазработчик: Hitori de ProductionsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8250FFA679D1A2809E95483B2DC9E97426F38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

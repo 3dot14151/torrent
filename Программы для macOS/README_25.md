@@ -1,3 +1,31 @@
+###  Публикация: 864436   (918252) от 30.01.2015
+
+FileMaker Pro 13.0v5 + FileMaker Server 13.0v5 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+FileMaker Pro 13 — это последняя версия ведущей удобной СУБД.
+FileMaker Pro облегчает создание индивидуальных решений для управления бизнес-информацией на iPad iPhone, Mac и веб-платформах, а также в Windows.
+Миллионы людей во всем мире используют FileMaker Pro для оптимизации управления контактами, отслеживания запасов, организации проектов и др. Компонент FileMaker (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 2015Разработчик: FileMaker, Inc.Поддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: английский, французский, итальянский, немецкий и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E203D446A8E3C52868A6570E686A73F367A0542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096866   (917051) от 25.01.2017
 
 Infographics for MS PowerPoint - Template Bundle 1.0 [Multi/Ru]
@@ -6,7 +34,7 @@ Infographics for MS PowerPoint - Template Bundle 1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +60,7 @@ Substance Alchemist 2.1.0 Tiramisu [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +86,7 @@ A Better Finder Anttributes 6.04 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +113,7 @@ Membrane Pro - Cover image maker 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +142,7 @@ LensFlare Studio 5.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +171,7 @@ Superstring 2 Pro - Lyric video maker 2.8.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -172,7 +200,7 @@ FileMaker Pro 19 v19.3.2.206 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -199,7 +227,7 @@ Affinity Photo 1.8.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -225,7 +253,7 @@ Ringer - Ringtone Maker 2.1 Beta [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -252,7 +280,7 @@ Folder Color - Design Custom Folder Icons 3.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -281,7 +309,7 @@ Boxshot Ultimate 4.12 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -308,7 +336,7 @@ WidsMob FilmPack 2.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -334,7 +362,7 @@ StuffIt Deluxe 16.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -360,7 +388,7 @@ Wing Pro 8 v8.0.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -386,7 +414,7 @@ Athentech Perfectly Clear Complete (St and Plug-in for Lr) 3 v3.10.0.1766 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -414,7 +442,7 @@ RizomUV 2019.1.14 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +469,7 @@ Disk Diet - Clean your drive 5.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +498,7 @@ Wolfram Mathematica 12.1.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -496,7 +524,7 @@ Infographics Lab for PowerPoint - Templates Bundle 1.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -522,7 +550,7 @@ PicConvert 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -548,7 +576,7 @@ Disk Keeper Pro v1.4.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -577,7 +605,7 @@ Pixellu SmartAlbums 2 v2.1.13 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -603,7 +631,7 @@ Disk Drill Media Recovery 4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -630,7 +658,7 @@ Movavi Screen Recorder 21.5.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -656,7 +684,7 @@ iStatistica 3.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -670,32 +698,6 @@ iStatistica - простой, удобный и легко настраивае�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD8ADBA3DA096C19E9E4046EA2CCAEE598D9F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991140   (907488) от 27.02.2016
-
-IntelliJ IDEA Ultimate Edition 15.0.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907488.jpg" />
-</div>
-
-
-###  Подробнее
-
-IntelliJ IDEA - интеллектуальная интегрированная среда разработки Java, сосредоточенная на производительности разработчика, которая обеспечивает устойчивую комбинацию расширенных инструментальных средств. Сильный редактор в программе, который распознает Java, HTML/XHTML, XML/XSL, CSS, Ruby и JavaScript, поддерживает структуры подобно Rails и GWT, обеспечивая вас (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 февраля 2016Разработчик: JetBrainsПоддерживаемая ОС: Mac OS X 10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7969BCDF09DEE0C352AAB0EF95D17B3045E50BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

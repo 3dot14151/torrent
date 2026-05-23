@@ -1,3 +1,29 @@
+###  Публикация: 1226239   (656446) от 19.05.2018
+
+Fernbus Simulator (2016) [Ru/En] (1.14.12800/dlc) Repack xatab
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Fernbus Coach Simulator - первый симулятор, позволяющий присоединиться к популярным междугородним перевозкам. Благодаря сотрудничеству с компанией FlixBus, Fernbus Coach simulator передает мир пассажирских перевозок по немецким автобанам и мелким дорогах в мельчайших подробностях.Тип издания: RepackРазработчик: TML-StudiosЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABF4874C63ED97F82CD8999A4F90F31A12EA428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142323   (644261) от 13.06.2017
 
 ABZU (2016) [Ru/Multi] (1.1) License STEAMPUNKS
@@ -6,7 +32,7 @@ ABZU (2016) [Ru/Multi] (1.1) License STEAMPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ ABZU (2016) [Ru/Multi] (1.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Windstorm / Ostwind - Ari's Arrival (2019) [Multi] (1.1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.2.0/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Soviet Monsters: Ekranoplans (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.5.20/dlc) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Flower (2019) [Ru/Multi] (1.44) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ ABZU / ABZÛ (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.5/dlc) Repack Other s [Gold
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Train Sim World: CSX Heavy Haul (2017) [Ru/Multi] (1.4) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Farm Expert 2016 (2015) [En] (2.18) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Car Detailing Simulator (2022) [Ru/Multi] (1.000.27/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Construction Machines Simulator 2016 (2015) [Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +372,7 @@ Holy Potatoes! A Spy Story?! (2018) [Ru/En] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +398,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.4.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +424,7 @@ Armageddon Riders (RePack) [Ru] 2009 | R.G. Games Warrior
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +450,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +476,7 @@ Dead in Vinland (2018) [En/Ge/Fr] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +502,7 @@ Railway Empire (2018) [Ru/Multi] (1.4.0.20902/dlc) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +528,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +554,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.6.0/dlc) Repack R.G. Механ
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +580,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.4.1/dlc) License PLAZA [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +606,7 @@ Farm Expert 2016 (2015) [Ru] (2.18) Repack xGhost
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +632,7 @@ Cold Waters (2017) [En] (1.15c) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +658,7 @@ Dead In Vinland (2018) [Ru/Multi] (1.4/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,32 +669,6 @@ DEAD IN VINLAND — это игра с элементами выживания �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A469DD4C6700D8C9552BCC7951E72E7763BA5828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300038   (594300) от 04.05.2019
-
-Dead In Vinland (2018) [Ru/Multi] (1.4/dlc) Repack Other s
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594300.jpg" />
-</div>
-
-
-###  Подробнее
-
-DEAD IN VINLAND — это игра с элементами выживания и управления поселением, с щепоткой РПГ и приключений о семье викингов, пытающихся сделать всё, чтобы выжить на странном острове. Изгнанному на далекую и неизведанную землю, Вам предстоит направлять Эйрика и его семью в их стремлении выжить. Управляйте их физическим и душевным здоровьем, исследуйте остров, организуйте (   Читать дальше...   )Тип издания: RepackРазработчик: CCCPЖанр: Adventure, Survival, Management, RPGЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7172AB92CC73AB91F4BB51793CD1F1B581FD0DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

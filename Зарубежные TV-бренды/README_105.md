@@ -1,3 +1,55 @@
+###  Публикация: 1266033   (226088) от 11.12.2018
+
+Брэд Мельцер: расшифровка / Brad Meltzer: Decoded (2011) HDTVRip (2 сезон: 11 серий из 13) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Известный писатель Брэд Мельцер рассматривает древние и современные вещи, которые передают нам секретные послания, закодированные в кодах и символах.Производство: США, A&E Television NetworksЖанр: Документальный, история, расследованиеПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 11 x ~ 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822C68F67036EADE32736AA7A0D75F42D9A01D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261230   (226054) от 11.12.2018
+
+Шон Бин при Ватерлоо / Sean Bean on Waterloo (2015) HDTVRip (2 серии из 2)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Голливудский актер Шон Бин рассказывает историю сражения при Ватерлоо, одной из самых значимых битв истории. Рассказ Шона вдохновлен его собственным опытом игры наполеоновского солдата Ричарда Шарпа в телевизионных фильмах на основе бестселлеров Бернарда Корнуэлла. В фильме он опирается на свидетельские показания солдат, которые сражались при Ватерлоо, чтобы рассказать (   Читать дальше...   )Производство: Великобритания, History ChannelЖанр: Документальный, война, история, исследованиеРежиссер: Патрик МакГрэйдиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 2 x ~ 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46384DE2FC0AEAC69679C702594109C5ECF17793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424750   (224964) от 18.11.2020
 
 NG: Злоключения за границей / Banged up Abroad (2020) IPTV [H.264/1080p-LQ] (сезон 13, серии 1-10 из 10)
@@ -6,7 +58,7 @@ NG: Злоключения за границей / Banged up Abroad (2020) IPTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +111,7 @@ NGW: Медвежья школа / Bearhood (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +137,7 @@ NGW: Самые странные в мире: ползучие целители 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +163,7 @@ NGW: Дикие места Африки. Рожденные выживать / A
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +190,7 @@ BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезон�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +268,7 @@ BBC: Горизонт. Как построить машину времени / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +372,7 @@ BBC: Биологические часы - как они работают? / Bod
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +398,7 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +450,7 @@ NGW. Странная природа: сумасброды / Stranger than Natur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +476,7 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +502,7 @@ NG: Осушить океан: Подводные лодки-убийцы / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +528,7 @@ NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -504,7 +556,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +582,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -582,7 +634,7 @@ NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -608,7 +660,7 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -619,58 +671,6 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0BEA54B8F29EA0253F04909F7185B8ADB62D7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341609   (219451) от 05.12.2019
-
-Затерянные города с Альбертом Лином / Lost Cities with Albert Lin (2019) HDTV [H.264/1080i-LQ] (серии 6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя проникающий в землю радар, LiDar и 3D-сканирование, Альберт Лин будет работать с археологами, чтобы обнаружить и воссоздать неизведанные миры, все еще скрытые под землей.Производство: США, Arrow Media, Blakeway Productions, National Geographic ChannelЖанр: Документальный, история, исследованияРежиссер: Ренни БарлеттПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FD5BBF706E85A9A2B037E334C38F0D804CAC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269665   (219167) от 15.12.2018
-
-NG: Суперсооружения. Корейская Супермагистраль / MegaStructures. Korean Superlink (2011) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219167.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Южной Корее до сих пор не было подводных туннелей, а теперь там реализуется проект строительства одного из самых глубоководных туннелей в мире.Производство: США,  Indigo Films, Screaming Flea Productions, National GeographicЖанр: Документальный, научно-популярныйРежиссер: Марийке де ШепперПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE0C6F7F74F61E27923123E7B9B559362AB1BB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

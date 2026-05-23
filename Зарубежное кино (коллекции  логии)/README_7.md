@@ -1,3 +1,55 @@
+###  Публикация: 411164   (744250) от 20.04.2015
+
+Шерлок Холмс: Полная коллекция / Sherlock Holmes: The Complete Collection (1939-1946) [1080p] BDRemux
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Холмс нанят Роландом Карстэрсом, чтобы предотвратить воровство Звезды Родезии, огромного алмаза, принадлежащего матери Карстэрса, Леди Маргарет. Догадываясь, что алмаз будет украден в поезде по пути от Лондона до Эдинбурга, Холмс ловко подменяет алмаз Леди Маргарет, в то время как заходил в ее купе. Вскоре после этого, Роланд был убит, а поддельный алмаз украден...Профессор Мориарти разработал план кражи драгоценности короны из Лондонского Тауэра, чтобы вовлечь в игру Холмса, он убеждает флейтиста-гаучо убить девочку.Жанр: ДетективРежиссер: Рой Уильям Нилл / Roy William NeillАктеры: Бейзил Рэтбоун, Найджел Брюс, Ида Лупино, Джордж Зукко, Алан Маршал, Терри Килбёрн, Генри Стивенсон, Артур Хол, Мэй Битти, Питер УиллзВ ролях: Бейзил Рэтбоун, Найджел Брюс, Алан Маубрэй, Дэннис Хоуи, Рени Годфри, Фредерик Уорлок, Мэри Форбс, Skelton Knaggs, Билли Беван, Джеффри СтилПеревод: Профессиональный (многоголосый, закадровый) DVD-ClassicФормат: BDAVПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781960   (742176) от 06.05.2014
+
+Бум [дилогия] /La boum [dilogy] (1980,1982) BDRip [H.264/720p-LQ]  [Hi10P]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории жизни и любви очаровательной Вик (Софи Марсо чудесно расцвела и получила премию "Сезар" как актриса-надежда). После событий, происшедших в «Буме», прошло два года. Вик из угловатого подростка превратилась в хорошенькую девушку. Вик уже 15 лет, у неё появился маленький братишка и она переживает, что у неё нет постоянного парня, о чем (   Читать дальше...   )Производство: ФранцияЖанр: Комедия, МелодрамаРежиссер: Клод ПинотоАктеры: Софи Марсо, Клод Брассёр, Брижит Фоссе, Дениз Грей, Александр Стерлинг, Шила О`Коннор, Александра Гонен, Пьер Коссо, Ламбер Вилсон, Жан-Филипп Леонард, Жан Левре, Клаудио Морэн, Даниель РуссоПеревод: Профессиональный (дублированный), Профессиональный (многоголосый, закадровый)x3, Профессиональный (двухголосый, закадровый)Язык субтитров: нетФормат: MKVПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA6597DAF85AB5AA2FF9CBED7E212F179A3C4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 784582   (739386) от 09.05.2014
 
 Дензел Вашингтон / Denzel Washington (1974 - 2013) HDTVRip, DVDRip, HDRip, BDRip [фильмография]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_712809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +510,7 @@ Kingsman / Kingsman (2014-2021) BDRip [H.264/720p] [Трилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +562,7 @@ Kingsman: Трилогия / Kingsman: Trilogy (2014-2021) BDRip [H.264] [AVO]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:677857655E1756411824493F539F1EBE233CD97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029413   (679885) от 27.06.2016
-
-Титаны - Дилогия: Битва Титанов / Clash of the Titans (2010), Гнев Титанов / Wrath of the Titans (2012) [H.264/1080p-LQ]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя десятилетие после героической победы над чудовищным Кракеном Персей пытается жить спокойной жизнью деревенского рыбака и отца-одиночки. В то же время между титанами и богами начинается борьба за власть. Олимпийцы, утратившие былую преданность людей, теряют контроль над тюрьмой, в которой заключены титаны и их глава Кронос. Сила титанов растет, в то время как (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джонатан ЛибесманАктеры: Сэм Уортингтон, Лиам Нисон, Рэйф Файнс, Эдгар Рамирез, Тоби Кеббелл, Розамунд Пайк, Билл Найи, Дэнни Хьюстон, Джон Белл, Лили ДжеймсПеревод: ДублированныйЯзык субтитров: Русский (BD, Е. Воронин), английский (полные, SDH)Продолжительность: 01:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A826832F3DDEF2A36F5060CE7488FE2B06D102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214621   (676934) от 29.06.2010
-
-Полицейский из Беверли Хиллз: Трилогия / Beverly Hills Cop: Trilogy (1984 / 1987 / 1994) 3*DVD-9
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676934.jpg" />
-</div>
-
-
-###  Подробнее
-
-После перерыва в семь лет полицейский из Детройта Аксель Фоули (Эдди Мерфи) снова вынужден побывать у своих друзей в Беверли-Хиллз. Его приводят туда поиски убийцы любимого шефа. В результате парк аттракционов «Мир чудес», где бандиты в жутком подполье печатали фальшивые доллары, стал ареной боевых действий. Наш герой отомстил убийцам, прославился и познакомился (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, комедия, криминалРежиссер: Джон ЛэндисПеревод: Профессиональный многоголосый (Киномания) / Авторский одноголосый (Гаврилов)Субтитры: Русские, АнглийскиеПродолжительность: 01:44:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

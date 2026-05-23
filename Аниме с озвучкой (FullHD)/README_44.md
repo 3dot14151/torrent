@@ -1,3 +1,84 @@
+###  Публикация: 1788869   (14357) от 17.06.2025
+
+Непонятый мастер ателье | Ателье Мейстер | Kanchigai no Atelier Meister | The Unaware Atelier Meister [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодого авантюриста, парнишу по имени Курт, выгоняют из отряда Героя, ведь выясняется, что в бою-то он особо ничего и не умеет.
+Теперь Курту ничего не остаётся, кроме как брать сомнительные задания, вроде ремонта стен и добычи минералов, но как раз именно тут и раскрывается его настоящий потенциал! А всё дело в том, что небоевые навыки паренька, вроде готовки, строительства, (   Читать дальше...   )Производство: Япония / Студия EMT SquaredЖанр: Приключения, фэнтезиРежиссер: Исии ХисасиЯзык озвучки: Русский (VF-Studio), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3269C2FCBDD4C84799D3B79ACE267D0C0A9D2F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790624   (14162) от 19.06.2025
+
+Начало после конца [ТВ-1] | Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? | The Beginning After the End [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Король Грей, могущественный правитель, обладал всем, что только можно пожелать: силой, богатством и властью. В мире, где военное мастерство ценилось превыше всего, он был бесспорным лидером. Однако за вершиной могущества скрывалась пустота. Одиночество стало неотъемлемой частью его существования, лишив короля цели и воли к жизни.
+Но судьба предоставила ему второй (   Читать дальше...   )Производство: Япония / Студия Studio A-CATЖанр: Приключения, фэнтезиРежиссер: Мотонага КэйтароЯзык озвучки: Русский (AniLibria.TOP); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A10E5988CBDA884B98675949B1EF0F48575669A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789384   (14058) от 20.06.2025
+
+Соседнему королевству продали святую | Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru | The Too-Perfect Saint [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вообразите себе семью, в которой святость передаётся по наследству, подобно семейному рецепту приготовления пирога. Именно в такой семье жила Филия — потомок династии святых, самая совершенная из всех, кого когда-либо знала страна. Её судьба была достойна её величия: она должна была выйти замуж за Джулиуса, второго принца.
+Однако жизнь полна неожиданностей, и этот (   Читать дальше...   )Производство: Япония / Студия TroycaЖанр: Романтика, фэнтезиРежиссер: Ватанабэ СюЯзык озвучки: Русский (AniLibria.TOP); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2F9D632859AC2BFDAB0BFE5E6EB73DD6854D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803155   (13881) от 21.06.2025
 
 Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сестрой [2024, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +87,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +140,7 @@ Isshun de Chiryou Shiteita no ni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Y
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +193,7 @@ Ore wa Seikan Kokka no Akutoku Ryoushu! | Я злoй лoрд мeжгaлaктич
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +219,7 @@ Katainaka no Ossan, Kensei ni Naru | From Old Country Bumpkin to Master Swordsma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +297,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +323,7 @@ Chotto dake Ai ga Omoi Dark Elf ga Isekai kara Oikakete Kita | Yandere Dark Elf 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +429,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +455,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +508,7 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +534,7 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +587,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +641,7 @@ Sentai Dai Shikkaku 2 | Go! Go! Loser Ranger! 2 | Боевой отряд «По
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +669,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,86 +680,6 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F1B14081B6DDA95A11469030CFB2C88C415330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806556   (11634) от 13.07.2025
-
-Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Миссия «Разведка» [2025, Movie] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-рекап первого сезона и овы.
-Уже несколько десятилетий Японию терроризируют громадные монстры, которые получили название кайдзю. Они появляются из ниоткуда и не только пожирают людей, но и разрушают целые города. Однако за прошедшие годы наука и техника продвинулись далеко вперёд. Для защиты граждан были созданы элитные войска, которые денно и нощно рискуют (   Читать дальше...   )Производство: студия Production I.G / プロダクション・アイジーЖанр: приключения, фантастикаРежиссер: Мия СигэюкиЯзык озвучки: Русский дублированный (Crunchyroll (Bravo Records Georgia)Субтитры: Русские надписи, русские (софтсаб), Multi-10Продолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF03B1752B2B58B263F5EF58801F76D011927E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804675   (11323) от 16.07.2025
-
-Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой, но уже известный каллиграф Сэйсю Ханда впал в грех гордыни – и ударил старого мастера, прилюдно заявившего, что в его внешне красивых иероглифах не хватает души. Так Ханда-сан стал изгоем в мире высокого искусства, а строгий отец отослал его на пустынный остров в Восточно-Китайском море, чтобы тишина и свежий морской воздух прочистили непутевому сыну мозги (   Читать дальше...   )Производство: Kinema CitrusЖанр: комедия, повседневностьРежиссер: Татибана МасакиОзвучка: OriginalЯзык озвучки: Японский и РусскийПродолжительность: 12 эп. по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40670BDD86FD45FF8C144CF998F0EA7E0E359AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807264   (11098) от 18.07.2025
-
-Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант общежития богинь [2021, TV, 10 из 10 эп.] BDRip 1080p HEVC 10-bit raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нагумо Коуши оказывается бездомным, без гроша в кармане и без родственников, которые могли бы позаботиться о нем. Когда он валялся на улице, его подбирает девушка по имени Минерва, и предлагает стать комендантом общежития, полного проблемных студенток женского университета.
-Окруженный своеобразными и трудными разновозрастными особами женского пола, Коуши начинает (   Читать дальше...   )Производство: asreadЖанр: кoмедия, повседневность, эттиРежиссер: Накасигэ СюнсукэПеревод: AniLibriaОзвучка: Original (Commentary) (ep. 01, ep. 10)Язык озвучки: Японский, Английский и РусскийСубтитры: Английские (Полные и Надписи) и Русские (Полные и Надписи)Продолжительность: 10 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B8FD9F58520C743BE0664555E066D437C113A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

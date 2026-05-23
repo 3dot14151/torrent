@@ -1,3 +1,112 @@
+###  Публикация: 1064618   (418459) от 23.10.2016
+
+The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Режиссер российско-американского фильма «Хардкор» Илья Найшуллер снял клип для канадского певца The Weeknd.
+Россиянин Илья Найшуллер прославился вирусными музыкальными видео своей группы Biting Elbows, а в 2016 году под опекой Тимура Бекмамбетова дебютировал в Голливуде фильмом «Хардкор» — боевиком, снятым целиком от первого лица. В «False Alarm» использован ровно (   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB40BEE5A24996B93492349ED4DDCFD9C653D73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456061   (416154) от 09.10.2012
+
+Любэ, Корни, In2Natiоn - Просто Любовь (2012) HDTVRip [720p] [hand made 60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Официальный соундтрек к фильму "Август. Восьмого"Жанр: Фолк-рокРежиссер: Д.Киселев   (С) 2012 ООО Продюсерский центр И.МатвиенкоАктеры: Любэ, Корни, In2Natiоn (Интонация) и актёры фильма "Август. Восьмого"Перевод: ОтсутствуетПродолжительность: 03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8936C61D714FECAF1738F6D44820B6EF5BBA65B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412526   (413464) от 01.10.2020
+
+Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <Instrumental Moden Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Премьерный 29.09.2020 релиз видеоклипа от виртуозов Instrumental Moden Metal "Nuclear Power Trio"
+В ролик инсталлирован аудиотрек данного релиза 24-Bit / 48.0 kHzПроизводство: Metal Blade Records / The Orchard MusicЖанр: Instrumental Moden MetalАктеры: Nuclear Power TrioПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3981A5FA6156711A3FC93FA838895643BB82A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947680   (411098) от 20.10.2015
+
+VA - Осенний марафон № 198 / Видеоклипы (Лучшая Дискотека  Россыпью) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. AOA - Oh Boy (Official Video) (00:04:25)
+02. Bielfield - Frequency (Official Video) (00:03:21)
+03. Corina Smith - La Difícil (Official Video) (00:03:16)
+04. Danielle Bradbery - Friend Zone (Official Video) (00:02:59)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Soul, DubstepПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559270   (409693) от 12.10.2012
 
 Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
@@ -6,7 +115,7 @@ Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +194,7 @@ Masami Okui - V-mode ~10th Anniversary~ Disc 2 (2003) DVDRip [H.264] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +260,7 @@ Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +286,7 @@ Dreamshow - Animals (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -203,7 +312,7 @@ Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -229,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -255,7 +364,7 @@ DJMask - Hymn Of Angel (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -281,7 +390,7 @@ Poshout feat Ange - Beside (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +416,7 @@ Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,7 +442,7 @@ Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -359,7 +468,7 @@ Dancer Tryout - Mz Berry (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +494,7 @@ Die Antwoord - Fatty Boom Boom (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +520,7 @@ Stockholm Syndrome - Pretty Girl (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +546,7 @@ Tristeria - Epoka (clip) [H.264 720p](2013) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +575,7 @@ Ace Of Base - Greatest Hits (2008) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +656,7 @@ Aerosmith - What Could Have Been Love (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,7 +682,7 @@ Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,122 +699,6 @@ Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1AC63A4D02180BEEBE84CBCF0E51907ECBC332C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170815   (398388) от 02.10.2017
-
-Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (диск 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник клипов я собирал когда то для девушки которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему, найдет в нем частицу себя. Это 1я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-001 Bryan Adams - Please Forgive Me
-002 Mr. Big - Wild world
-003 Рондо - Я буду помнить(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AC8BCE70AAB15F9F3C5C50C061BD1FF7D7CB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171120   (396550) от 04.10.2017
-
-Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (диск 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я долго работал над этим сборником клипов. Перепахал много гектар видеоматериала и выбрал лучшее что есть в мировом рэпе. Исключил попадание сюда однообразной речетативной пурги, которой навалом в рэпе и хип-хопе. Это 1я часть сборника. Смотрите, слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-001 50 Cent - In Da Club
-002 Down Low -  Potion
-003 Dino MC47 - Гражданин Р(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 03:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A09C366959208CBC3D1D40AF5B249BEC74A8526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715908   (395617) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 1] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck Berry - Memphis
-02. Brian Pool & The Tremeloes - Do you love me
-03. Gerry & The Pacemakers - I like it
-04. The Searchers - Sugar & spice(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Beat, Rock'n'Roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BB12A08FD9E3336D5ACF950F3F21B433B93727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715926   (395610) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 2] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petula Clark - Downtown
-02. Bill Meadley & Bobby Hatfield - You've lost that lovin' feelin'
-03. Them - Baby please don't go
-04. Sonny & Cher - I got you baby(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Pop, rock, rock'n'roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2EDC8D233B97FBE06EB7A8CB1FCAB1CF08B62F
 ```
 
 https://mybot314.ru/tekegram_catalog/

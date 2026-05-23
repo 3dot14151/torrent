@@ -1,3 +1,525 @@
+###  Публикация: 1362120   (951070) от 22.02.2020
+
+Бродячий Цирк - Не время спать (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Никому
+2. Этой зимой
+3. Гетто
+4. Сегодня остаюсь(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD5EEDC6103B6860148025EB2096C7341D2BAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362122   (951052) от 22.02.2020
+
+Мамины усы - Wonderful Life (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Wonderful Life
+2. Сны алексея
+3. Песенка милиционера
+4. Бабушка умерла 3(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4FE27D373436F44FC59A31E2A7F399860E922E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362117   (951032) от 22.02.2020
+
+KUZMIN Absolute Band - Полный Близнец (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Полный БлизнецЖанр: RockПродолжительность: 00:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF9F4E435C6E4895793793DDEC1FE19637AC1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089900   (948650) от 05.01.2017
+
+Би-2 - Cover Story. Volume 1 (2016) [MP3|~283-320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Предновогодним подарком поклонникам Би-2 в 2016 году стал новый интернет-релиз «Cover Story. Volume 1» - сборник каверов, которые в разные годы были записаны участниками группы на песни других артистов. Это 15 музыкальных историй разных лет, которые в 2016-м были связаны в одну — Cover Story!01. Трава у дома (Земляне cover)
+02. Остров feat. Пикник (cover)
+03. Бумажный змей feat. А. Севидов (А. Пугачёва cover)
+04. Привет тебе (Центр cover)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450DB21122E711921209B24BD5EE705DAE7E5212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 281483   (947381) от 12.01.2011
+
+Моральный кодекс - Избранные песни: Новая коллекция (2010) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 -Жанр: RockПродолжительность: 01:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCB7F4B0150A23E83F648BC7296E69EE2FA1DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090753   (946067) от 07.01.2017
+
+TruckDrivers - Делай, что должен, и будь, что будет (2016) [MP3|320 Kbps] <Punk-Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Кончилась Музыка (03:20)
+02. Дом Милый Дом (03:39)
+03. Велик (02:16)
+04. В Этих Местах (02:44)(   Читать дальше...   )Жанр: Punk-Rock, SkaПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189169C05C732711BFD162F60F69CADE55ED500F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 173347   (945958) от 10.02.2010
+
+Янка Дягилева - Дискография (1988-1991) [MP3|320 kbps] <Рок, Фолк Рок, Пост Панк>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок, Фолк Рок, Пост ПанкПродолжительность: 12:38:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090797   (945606) от 07.01.2017
+
+Кукрыниксы - Артист (2016) Limited Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот релиз петербургских рок-лириков посвящается всем Артистам – людям особенной судьбы, противоречивого внутреннего мира и зачастую – непростой дороги. Здесь нашли отражение самые трудные вопросы, самые глубокие переживания и почти философское погружение в суть творческой личности. Музыкальные полотна, выполненные в классических тонах мрачного романтизма, присущего (   Читать дальше...   )01. Артист
+02. Шторм
+03. Вера
+04. Надежда(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B643B854447CF3F20437C1A8BEEA06367FB3B213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363601   (942607) от 28.02.2020
+
+Stay Away - Дисклеймер, Часть 1 (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Всё что хотел
+2. Каменные сердца
+3. Актёр
+4. Бесконечный ноль(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C279C5F62B976FEF1EC0245FCF3E3003894268B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 282976   (941519) от 16.01.2011
+
+Ленинград - Нет, и ещё раз нет [Неофициальный релиз] (2011) [MP3|128-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Нет, и еще раз нет
+02. Сладкий сон
+03. Горький сон
+04. Огонь и лед (club-version)
+05. И больше никого
+06. Такая крутая
+07. Новые клубы (club-version)
+08. Прощай, п**дабол
+09. Химкинский лес
+10. Последняя осень(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E36B05EB3F6536CB73A02B6521F4D8E46B7F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 282929   (941303) от 16.01.2011
+
+Сектор Газа - Лучшие Песни (2010) [MP3|320 kbps]<Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Демобилизация
+02. Туман
+03. Взял вину на себя
+04. Колхозный
+05. Я устал
+06. Вечером на лавочке
+07. Пора домой
+08. Нажми на газ
+09. Ночь перед Рождеством
+10. Сельский кайф(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EFAE6DA9184EF7FD64FFDBB8801A6F2CB71902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626832   (941224) от 07.03.2013
+
+Андрей Сапунов - Звон (1993) [MP3|320 кб/с]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РокПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5056AB3716EDB0CDD44B53EF5576739F823E63C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626992   (941065) от 07.03.2013
+
+Фёдор Чистяков - Правило Игры (2013) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Видеомонтаж (06:30)
+02. День рождения умершего (09:20)
+03. Колёсико (05:28)
+04. Искусство (06:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835CB73245AA23813E311455AC18688BD7DE8391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984235   (939816) от 08.02.2016
+
+Оргия Праведников - Для тех, кто видит сны Vol.2 (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Flores de Muertos
+02. Вдаль, по синей воде
+03. Звёздной тропой
+04. Чёрная земля(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF753BC47343E0CD7F17239F8644C3BD3706384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092696   (938862) от 12.01.2017
+
+Хартыга и Андрей Бардин - Фуга для степи с органом (2016) [MP3|320 Kbps] <Ethno Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Тулаа-Шынаа
+2. Дагларым
+3. Чугуруктер
+4. Кынгыргай-Кон(   Читать дальше...   )Жанр: Ethno Rock, FolkПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0813670377401C8C0A5521759E9C8DFFE7E0F969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364120   (937964) от 02.03.2020
+
+Архипанк - Антиутопия (2020) [MP3|320 Kbps] <Nu-Metal, Hardcore-Punk, Female Extreme Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Киберпанк [00:03:21]
+02. Комбикорм [00:02:38]
+03. Фарш, марш [00:03:25]
+04. Стержень [00:03:24](   Читать дальше...   )Жанр: Nu-Metal, Hardcore-Punk, Female Extreme VocalПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C01AA157B19EB80BD726720586FB90A4F7CD4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985024   (936458) от 10.02.2016
+
+Ночные Снайперы - Выживут только влюбленные (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. шагай
+02. наотмашь
+03. этонемне
+04. помолчим(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58342673D4907F5575B3B9773E63544855ABA5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364415   (936412) от 03.03.2020
+
+Skrin - Синтетика (2020) [MP3|320 Kbps] <Modern Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 Посмотри назад [00:04:00]
+02  Исповедь [00:03:39]
+03 Два шага [00:04:16]
+04 Теряя себя [00:04:40](   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4533F22AC839CBFC4DBCA914EFE5A99338A5350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985508   (935529) от 11.02.2016
 
 Оксидерика - Вечное противостояние (2016) [MP3|320 кб/с] <Sympho Power Metal>
@@ -6,7 +528,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +557,7 @@ Sellout - Я остаюсь (2020) [MP3|320 Kbps] <Punk Rock, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +586,7 @@ VA - Король И Шут. Трибьют (2014) [MP3|192 кб/с] <Punk, Alte
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -119,7 +641,7 @@ Ocean Of Sin - Escape From Heaven/Return To Hell (2016) [MP3|320 Kbps] <Melodic 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -148,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -177,7 +699,7 @@ VA - Охота 92 (2020) [MP3|320 Kbps] <Rock, Indie Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,540 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD27861B3D9550855D3E2CBA88DFA3FCDC5204DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629400   (931931) от 13.03.2013
-
-NТерапия - Время и Смерть (2013) [MP3|320 кб/с]<Depressive Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здесь и Сейчас
-02. Продолжение Следует
-03. Время и Смерть
-04. Все Для Тебя
-05. Эрекция
-06. По Весне...
-07. Настоящее
-08. Печальная Звезда
-09. Рокстарз
-10. Как Это Странно...(   Читать дальше...   )Жанр: Depressive Alternative MetalПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE10AC875763796E50D76F819DB543DA5C50E7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365198   (931803) от 06.03.2020
-
-VA - Прощай, оружие, ч.1: Замкнутый круг (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Владислава Рукавишникова - Когда он ещё верил в мир
-2. Алексей Караковский и Происшествие - Майор Савельев
-3. Выбыл - Хотели
-4. Хроноп - В руках дурака(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC709C6D25E3B9D10B8C24C511BD2C0C8F8C6143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094131   (930593) от 17.01.2017
-
-Аркона - Возрождение (2016) Reissue [MP3|320 Kbps] <Pagan, folk metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Коляда
-02 - Масленица
-03 - К дому Сварога
-04 - Чёрные вороны(   Читать дальше...   )Жанр: Pagan, folk metalПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F41544C7B4EE84B5709D1D2DB44041781A5BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365681   (928939) от 08.03.2020
-
-Василий К. - Найти человека (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928939.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Можешь не бриться
-2. Самое лучшее
-3. Найти человека
-4. Держава(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4EE6A6FA31010D60024F492B0C1F81448E2501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863142   (927573) от 25.01.2015
-
-Ease Of Disgust - 6 Releases (2009-2014) [MP3|320 кб/с]<Deathcore, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927573.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - The Shell (EP)
-2010 - Constructed (Single)
-2010 - Chaos
-2011 - Exceeding The Verge (EP)(   Читать дальше...   )Жанр: Deathcore, Death MetalПродолжительность: 02:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D32497EC9F2E8A21C8BD7752BF4A5DD03383FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365621   (927391) от 09.03.2020
-
-Дом Гнева - Дом Гнева (2020) [MP3|320 Kbps] <Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Поле [00:03:41]
-02 - Побудь со мной [00:04:05]
-03 - Нерождённая [00:03:03]
-04 - Если я [00:03:55](   Читать дальше...   )Жанр: FolkПродолжительность: 00:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38034D12AA0FCB8F00073663F1D86D5CC4513EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365918   (927268) от 09.03.2020
-
-VA - Из Нави В Явь (Compilation) (2011-2014) [MP3|~190 Kbps (V2)] <Pagan Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Далiна - Бескрайние просторы Матери-Земли (BLR) [00:03:18]
-02 - Omut - ... (BLR) [00:05:10]
-03 - Веремій - Гуляйполе (UKR) [00:03:19]
-04 - Бастион - Моя Земля (RUS) [00:05:25](   Читать дальше...   )Жанр: Pagan Folk MetalПродолжительность: 3 CD, 08:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F551891903BE0AF96CAF4FA6A1D7B1DAD1F5BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365920   (927263) от 09.03.2020
-
-VA - Славянский Хардкор (Compilation) (2013-2017) [MP3|320 Kbps] <Hardcore, Metalcore, Beatdown, Hatecore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Камаедзiца - Беларуская Песня [00:07:00]
-02. Вервь - Расход [00:04:07]
-03. CG Bros. - Роктолераст [00:02:51]
-04. Grimfire - За Спиной [00:03:05](   Читать дальше...   )Жанр: Hardcore, Metalcore, Beatdown, HatecoreПродолжительность: 3 CD, 03:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F1ABBDAC5DF2AC2B1C27ED7168A0AFE826CB7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871610   (925916) от 17.02.2016
-
-Ругер - Путь 4 (2015) [MP3|320 кб/с]<Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ярость (03:47)
-02. Часть 1: Свет (04:32)
-03. Часть 2: Тьма (05:46)
-04. Выход (03:46)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0DA3501FEA5BAAE38165025F422F9CA26903FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366024   (925846) от 10.03.2020
-
-Stay Away - Дисклеймер. Часть 2 (2019) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925846.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рип
-2. На карусели
-3. Фэйворит шкура
-4. Майнер с порнохаб(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C059B1D376D10B129FB74598106071E4652BFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366022   (925832) от 10.03.2020
-
-Sergey Golovin - Satellite (2019) [MP3|320 kbps] <Progressive Metal, Djent, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loader (1:30)
-02. Renegade (5:15)
-03. Horizon Runner (5:04)
-04. Satellite (5:15)(   Читать дальше...   )Жанр: Progressive Metal, Djent, Instrumental RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267CDF03B3830BC95FA5F8449FF307423EF1D691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366142   (925644) от 10.03.2020
-
-VA - Tribute to Смута - 15 (2020) [MP3|320 Kbps] <Viking Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ethnor - В путь (Смута Cover) [00:05:54]
-02 Mjød - Вслед За Марой (Смута Cover) [00:03:33]
-03 Изморозь - Встать, как Один! (Смута Cover) [00:03:26]
-04 Moon Far Away - Солнце Красное (Смута Cover) [00:04:44](   Читать дальше...   )Жанр: Viking Metal, Folk MetalПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3BEDF21EC630B789B5FA2AC2578941F7DDD9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366176   (925603) от 10.03.2020
-
-Louna - Live Show Re:Public Minsk Belarus (2020) [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925603.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro 2019 (Live)
-2. Мы — это LOUNA (Live)
-3. Бойцовский клуб (Live)
-4. Огня (Live)(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E138828973355ED91A00B491810B6BC12ED5661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178610   (924714) от 25.02.2010
-
-Оргия Праведников - Для тех, кто видит сны Vol.1 (2010) [MP3|320 кб/с]<Rock/Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924714.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гимн
-2. Школа мудрости
-3. The catcher in the rye
-4. Белое на белом
-5. Путь во льдах
-6. Дорога Ворона
-7. По тонкому льду
-8. Огонь и Я (Phoenix)
-9. Скименъ (Крепка яко смерть любы)
-10. Вперед и вверх! (Для тех, кто видит сны)Жанр: Rock/AlternativeПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987529   (924228) от 18.02.2016
-
-Группа "Санкт-Петербург" - 4 альбома (1989-2003) [MP3|192-224 кб/с] <Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 год - альбом "Русские"
-1991 год - альбом "Шаг навстречу"
-1996 год - альбом "Очарована, околдована"
-2003 год - альбом "Неизданное" (2CD)Жанр: Rock, BalladПродолжительность: 04:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E1AB013FBD866257979CA45B25CFAE0063237D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365987   (924015) от 11.03.2020
-
-ВеданЪ КолодЪ - 7 Альбомов (2005-2020) 7CDr [MP3|192-320 Kbps] <Slavanian Folk, Ethno>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924015.jpg" />
-</div>
-
-
-###  Подробнее
-
-2005-Племена
-2007-Танец Леших
-2008-Волчья Тропа
-2010-У Кривой ДорогиЖанр: Slavanian Folk, EthnoПродолжительность: 05:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37CB35B605042D16838618563AAB25ABAF7D943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489771   (924005) от 17.08.2021
-
-Dругой Ветер - Feat., которого нет (2021) EP [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Номерки
-2. Соблюдай режим
-3. Чёрный флаг
-4. Ангелы с грязными лицамиЖанр: Punk RockПродолжительность: 00:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF568C4ABA8890F20F4FA63725809F80474D0BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489742   (923899) от 17.08.2021
-
-VA - Предатели ваших идей (2021) Трибьют Бригадный Подряд [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ШИШЪ - Гитары
-2. Dёргать! - Детская
-3. Действуй! - Питер рок-н-ролл
-4. Начало! - Марш неудачников(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB012BC34FCC8BE003248330F320E5855FEEEF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

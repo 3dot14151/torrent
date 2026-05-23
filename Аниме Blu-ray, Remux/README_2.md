@@ -1,3 +1,29 @@
+###  Публикация: 1796359   (66983) от 10.05.2025
+
+Byousoku 5 Centimeter | 5 Centimeters per Second | Пять Cантиметров в Cекунду [2007, Movie] Blu-ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Окончание начальной школы становится для Такаки и его подруги Акари громадным разочарованием: из-за переезда родителей приходится распрощаться с планами на поступление в одну и ту же среднюю школу. Десятки километров — гигантское расстояние для ребенка и совсем небольшое — для взрослого… но умение преодолевать расстояния не всегда помогает преодолеть растущую пропасть (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаПеревод: ReanimediaОзвучка: Original 4.0Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 63 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9ECAD1091F8353F1E3C424C90C5EFF40B9A8A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797533   (66787) от 17.05.2025
 
 Karigurashi no Arrietty | The Secret World of Arrietty | Добывайка Арриэтти | Ариэтти из страны лилипутов | Арриетти из страны лилипутов [2010, Movie] BDRemux 1080p raw+eng+rus
@@ -6,7 +32,7 @@ Karigurashi no Arrietty | The Secret World of Arrietty | Добывайка Ар
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +87,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] Blu-ray 1080p 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +113,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +139,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +165,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +191,7 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +217,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +243,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +269,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +295,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +321,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +347,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +373,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +399,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +425,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +451,7 @@ Nagi no Asukara | Nagi-Asu: A Lull in the Sea | Безоблачное завт�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +477,7 @@ Jibaku Shounen Hanako-kun | Toilet-bound Hanako-kun | Туалетный мал�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -478,7 +504,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -505,7 +531,7 @@ Grand Blue | Grand Blue Dreaming | Необъятный Океан [2018, TV, 12
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -532,7 +558,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnation
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -558,7 +584,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -584,7 +610,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -610,7 +636,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [2019, Movie] BDRemux 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -636,7 +662,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -647,32 +673,6 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44015C1C7380D44EB2628CD261F4AF7612FE3F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795278   (19346) от 04.05.2025
-
-Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Evergarden the Movie | Виолетта Эвергарден [2020, Movie] BDRemux 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Её работа — писать письма. Её имя — Виолетта Эвергарден. Прошло несколько лет, с тех пор как закончилась война, которая нанесла многим глубокие раны. Мир постепенно обретает покой, люди возвращаются к привычной жизни. Виолетта пытается научиться жить без самого важного для нее человека и не обращать внимания на свои чувства. Но однажды она получает письмо, и в её (   Читать дальше...   )Производство: Kyoto AnimationЖанр: приключенияРежиссер: Исидатэ ТайтиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 140 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B8A1D7B4F0B78A91889969D6A946057028B9C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

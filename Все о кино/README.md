@@ -1,31 +1,4 @@
 https://t.me/izofen
-###  Публикация: 1869269   (1068438) от 
-
-Цветок на броне. Как блондинка ростом полтора метра стала Героем Союза
-
->>След.
->>Все о кино
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068438.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 апреля 2026 года в широкий прокат вышел фильм о Герое СССР Лидии Литвяк, над которым его создатели работали 7 лет. Снималась картина, в том числе на народные деньги.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851560   (1055211) от 04.02.2026
 
 Уточнены сроки премьеры сериала "Гарри Поттер"
@@ -34,7 +7,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +33,7 @@ Top 250 IMDb со ссылками на наши релизы
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_301521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -89,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_125208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -142,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

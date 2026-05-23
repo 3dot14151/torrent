@@ -1,3 +1,112 @@
+###  Публикация: 770600   (637650) от 11.07.2016
+
+Motörhead Videography / Motorhead Видеография (29 клипов) (1980-2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Rock Out
+02 - God Save The Queen (2000)
+03 - Get Back In Line (2010)
+04 - I Ain't No Nice Guy (1992)(   Читать дальше...   )Сборник из 29 видеоклипов. Скачано из сети.
+Некоторые видео пришлось вытягивать или восстанавливать...
+Использовались программы - Corel , AVS, SolveigЖанр: Heavy metal, hard rock, speed metal, rock and rollПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC160063C88CD43182A6EE9F30B6DADAE79FE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682118   (632610) от 22.07.2013
+
+Ocean Drive feat. Aylar - Some People (2010) [720p]HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ocean Drive feat. Aylar - Some People (Official Video)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAFC35D0EC3AF11301D3565D12A316F78C84681A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349658   (631623) от 12.06.2011
+
+Вера Брежнева - Реальная жизнь (2011) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F600608930F8E4DFBC5FBAE0FA695E2D596062E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682064   (631038) от 23.07.2013
+
+Ferry Corsten - Radio Crash (2008) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ferry Corsten 'Radio Crash' [405 Recordings]Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64A42731DA03EA53FFBED1ED6E1A6FE0A80E1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682085   (630903) от 23.07.2013
 
 Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
@@ -6,7 +115,7 @@ Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +141,7 @@ Chicane vs Natasha Bedingfield - Bruised Water (2009) [720p]HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +167,7 @@ ATB - Humanity (Airplay Mix) (2005)   [H.264]HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +193,7 @@ ATB - Let You Go (Reworked) (2005) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +219,7 @@ Dannii Minogue - Who Do You Love Now (feat Riva) (2001) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +245,7 @@ Kylie Minogue - The One (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +271,7 @@ Kylie Minogue - In My Arms (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +297,7 @@ Kylie Minogue - Can't Get You Out Of My Head (2001) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +409,7 @@ Chicane - Saltwater (2000) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +435,7 @@ David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +461,7 @@ David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +516,7 @@ TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +542,7 @@ Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +568,7 @@ William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +620,7 @@ Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,110 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8796FB1C3C372D6F6C5ACB566BD106877B3B36F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682105   (624359) от 26.07.2013
-
-Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swedish House Mafia - Miami 2 Ibiza ft. Tinie TempahЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E3F729D37ED0005C33A5BD00D5C0CDF7879D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682117   (624088) от 26.07.2013
-
-Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin Van Buuren Ft. Sharon Den Adel HD - In And Out Of LoveЖанр: DanceПеревод: ОтсутствуетПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3505C2DD6D60DC7787EE61FCB9D2D8BB5E5A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522632   (620979) от 14.07.2012
-
-Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РокПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BA7D32490D6353D3AB02066D62C0D26C9C3039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522370   (620697) от 14.07.2012
-
-Сборник Советской Эстрады №4 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E454A2DE7084B9497018EBB461C112C9443A31
 ```
 
 https://mybot314.ru/tekegram_catalog/

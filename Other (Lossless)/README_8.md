@@ -1,3 +1,32 @@
+###  Публикация: 1811395   (16231) от 09.08.2025
+
+VA - The Orient Collective: Sacred Earth (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+01. Kindrid Souls - Furaha (6:11)
+02. Tibetania - Daybreak (6:51)
+03. Martin Valencia - Jungle Dream (6:33)
+04. Ale Rauen - Nae (6:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C66095697C8D2964585101D5F2D31BCC26E709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811433   (16169) от 09.08.2025
 
 VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -6,7 +35,7 @@ VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Secret Garden - Secret Summer (2025) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1356120   (751296) от 12.07.2020
+
+Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в программу «Первопроходец»! В нашем веселом и ярком приключении для одного или двух игроков вы играете за нового работника корпорации «Родной Космос», которая с гордостью называет себя четвертой лучшей межзвездной компанией. Вас выбросили на неизведанной планете почти без оборудования, и теперь ваша задача – определить, подходит ли планета для заселения (   Читать дальше...   )Тип издания: RepackРазработчик: Typhoon StudiosЖанр: Adventure, Action, RPG, 1st Person, 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADED8F362C264694CC344DD2FB6359AE52ED7898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216823   (747474) от 01.04.2018
+
+Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новая адвенчура от авторов Myst и Riven. Obduction представляет собой классическую приключенческую игра с видом от первого лица на движке Unreal Engine 4. Нам предстоит путешествовать по удивительным, ярким локациям практически в полном одиночестве. Важным нововведением станет то, что история будет рассказываться через игровой процесс, а не с помощью видеороликов.Тип издания: RepackРазработчик: Cyan Inc.Жанр: Adventure, 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC88347500E2219974392DA1D392997B9F217F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158060   (747260) от 01.04.2018
+
+Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.1.703) License CODEX [Book 1-3]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Англия, XII век. Несмотря на войну и ужасную нищету, в маленьком городке начинается строительство собора с целью дать людям безопасность и средства к существованию. В борьбе и невзгодах драматически переплетаются жизни и судьбы. Монах Филип становится приором маленького Кингсбриджского монастыря. В это же время где-то в лесу живет мальчик по имени Джек со своей матерью-отшельницей. (   Читать дальше...   )Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, CasualЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119AEFC47615AC9FA7D7CE57D80EE6C7EC8DB393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162488   (745770) от 02.04.2018
+
+Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История Брюса Уэна продолжается в новой главе от Telltale Games. В этот раз ему предстоит защитить Готэм от Загадочника, который вернулся в город и совершает ужасные преступления. Джокер также не останется в стороне, ведь у него всегда припрятан козырь в рукаве.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED1E411C00BFB0484DC6C88CC6FD246E0452F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363998   (745063) от 16.07.2020
 
 Beautiful Desolation (2020) [Ru/Multi] (1.0.5.0) Repack xatab
@@ -6,7 +110,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.5.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Shadows on the Vatican Act I: Greed (2014) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Shadows on the Vatican Act II: Wrath (2015) [Ru/Multi] (1.0 u2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Bear With Me (2016) [Ru/Multi] (1.1.0) Repack alivedeath
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Late Shift (2017) [Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Paws and Soul (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.7) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Whispering Willows (2014) [Ru/Multi] (1.6.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Creaks (2020) [Ru/Multi] (1.0) License GOG [Collector's Edition] (обновля
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Life is Strange: Remastered Collection (2022) [Ru/Multi] (2.0.392.645158/dlc) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Tiny Knight (2016) [En] (1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Detective Gallo (2018) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ STEINS;GATE ELITE (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +656,7 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,112 +667,6 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:613F41DDAABA8DF7B07E9B19FD7A9942AC87AD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022256   (729235) от 01.06.2016
-
-Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) R.G. Catalyst [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729235.jpg" />
-</div>
-
-
-###  Подробнее
-
-С вами связывается Хоуп, девушка из странной тоталитарной страны. Взломав комплексную систему наблюдения, вы помогаете Хоуп пробраться сквозь паутину опасности и обмана, используя камеры слежения и самые современные гаджеты.
-
-Republique разработана ветеранами игровой индустрии (в свое время ее авторы работали над Metal Gear Solid 4, Halo 4, F.E.A.R., SOCOM) на современном (   Читать дальше...   )Тип издания: RepackРазработчик: CamouflajЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADFDEF7FC9EAE446F7CE7CE7EEDF711625E2883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022252   (728014) от 02.06.2016
-
-Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод (2015) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этой серии происходит в Исландии. Знаменитый корабль "Heerlijkheid" является главной достопримечательностью местной ярмарки. С корабля исчез капитан, и корабль стал жутким местом. Отправился ли капитан Магнус на поиски сокровища или исчез среди ночи? Станьте неустрашимой Нэнси Дрю и держите курс на море Тьмы!Тип издания: UnofficialРазработчик: Her InteractiveЖанр: Квест, Логическая, Я ищуЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC4834FF203313837B1ED38B6FF44E31B6FB0D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128878   (725742) от 26.04.2017
-
-Don't Starve Together (2016) [En] (214437) License PLAZA
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Don't Starve Together является самостоятельным дополнением к инди проекту Don't Starve, предлагая совместное выживание в мрачном и не совсем дружественном к игрокам мире. Объединить усилия можно как с другом, так и выбрав случайного товарища в сети. Геймплей никак не навязывает совместные действия – можно как работать сообща, так и заниматься своими делами на общей (   Читать дальше...   )Тип издания: LicenseРазработчик: Klei EntertainmentЖанр: Action, Add-on (Standalone), 3D, IsometricЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2255EF6527D03792231ED3D2A85261C59151FFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128824   (725740) от 26.04.2017
-
-What Remains of Edith Finch (2017) [Ru] (1.0) Repack xatab
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725740.jpg" />
-</div>
-
-
-###  Подробнее
-
-What Remains of Edith Finch – сборник странных рассказов об одной семье из штата Вашингтон. Эдит Финч пытается понять, почему осталась единственной представительницей своего рода. Исследуя огромный фамильный особняк, вы словно познакомитесь с каждым ее родственником и переживете тот день, который стал последним для очередного члена семейства Финч, – от далекого прошлого (   Читать дальше...   )Тип издания: RepackРазработчик: Giant Sparrow, SCE Santa Monica StudioЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C71216C8118D1FF6BE96ED1D48657C62C98947
 ```
 
 https://mybot314.ru/tekegram_catalog/

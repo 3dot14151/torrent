@@ -1,3 +1,107 @@
+###  Публикация: 1837935   (257910) от 19.11.2025
+
+Проекты - VideoHive - Energy Logo Reveal - 60734395 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Energy Logo Reveal — это динамичный и эффектный шаблон для After Effects, созданный автором PixelTruck. Этот проект идеально подходит для создания энергичных интро, игровых заставок, презентаций в стиле киберпанк или футуристических логотипов. Анимация сочетает в себе элементы электричества, глитча и цифровых искажений, что делает появление вашего логотипа мощным (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA61B50F0D4E7D7A770ECF23460A6C5B97377ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837999   (257837) от 20.11.2025
+
+Проекты - VideoHive - Blob Tracking Effects - 60746984 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Добавьте в свои видео уникальную динамику с помощью эффекта Blob Tracking. Этот проект позволяет создавать трендовые анимации жидких форм и абстрактных элементов, которые следуют за объектами в кадре. Идеально подходит для креативных промо, музыкальных клипов, fashion-видео и современного моушн-дизайна.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815FB57D98CA74874E05E25C3AF943E7B27D403D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838002   (257833) от 20.11.2025
+
+Проекты - VideoHive - Sports Team Intro - 60648396 [AEP]
+
+>>Проекты
+>>Спортивные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Sports Team Intro — это энергичный и динамичный шаблон для After Effects, созданный специально для презентации спортивных команд, представления игроков и создания ярких заставок перед матчами. Проект отличается модульной структурой, позволяющей легко адаптировать его под любое количество участников.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A729F846E15CC91B192BCA9D7513A6E889113E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838017   (257819) от 20.11.2025
+
+Проекты - VideoHive - Dynamic Typography Opener - 60720965 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Typography Opener — это энергичный, ритмичный и стильный шаблон для After Effects. Проект идеально подходит для создания захватывающих интро, промо-роликов, рекламы в социальных сетях (Instagram Reels, TikTok, YouTube Shorts) или динамичных презентаций бренда. Он использует популярный стиль "Stomp" и кинетическую типографику, чтобы удерживать внимание (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0F2987B15C9D31257794D94440305E7F8D29B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838018   (257816) от 20.11.2025
 
 Проекты - VideoHive - Christmas Photos Gallery - 60731261 [AEP]
@@ -6,7 +110,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -142,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -170,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -196,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -224,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -276,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -302,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -328,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -380,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -575,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11D8F2BEC66A3929F560A389CB9007D76EA34247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837529   (257526) от 17.11.2025
-
-Проекты - VideoHive - Black & White Bold Titles - Modern Text Typography Animation - 60751599 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор, созданный исключительно в чёрно-белых тонах, производит яркое визуальное впечатление — никаких цветов, никаких отвлекающих элементов. Только жирный текст, чёткое движение и элегантная монохромная эстетика.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F287FAF0ACD28038D26DB2748DED573FED8A92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837530   (257523) от 17.11.2025
-
-Проекты - VideoHive - Carousel | Universal Slide | 2026 - 60746824 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию великолепные и универсальные карусельные слайды с карточками!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:958BEA2A5FA80241FE2893F61619F1F1CB443D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837536   (257516) от 17.11.2025
-
-Проекты - VideoHive - Luxury Trailer - 60411636 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luxury Trailer — потрясающий шаблон в разрешении 4K для After Effects. Создайте впечатляющую кинематографическую драматическую последовательность титров с эффектом блеска текста, струящимися частицами, мерцающими бликами и впечатляющей анимацией текста.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2B54DD014533E256608368E9FC13D76A861ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837537   (257513) от 17.11.2025
-
-Проекты - VideoHive - Feel The Game - Sport Intro - 60610635 [AEP]
-
->>Проекты
->>Спортивные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энергичное спортивное вступление для футбольных, баскетбольных и многоспортивных мероприятий. Этот проект с полутоновыми текстурами постеров, динамической типографикой и анимированными названиями игроков идеально подходит для футбольных открытий, презентаций команд, раскрытия состава и показа лучших моментов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C98551F020052DA7019A5C094647BB57F75A72
 ```
 
 https://mybot314.ru/tekegram_catalog/

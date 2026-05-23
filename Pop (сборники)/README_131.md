@@ -1,32 +1,3 @@
-###  Публикация: 1813284   (6952) от 19.08.2025
-
-Reyvi - Favorites Collection (2025) [MP3|320 Kbps] <Euro-Disco, New Italo Disco Style>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You Broke Me
-02 - Don’t Let Go
-03 - Midnight Calls
-04 - Ton Absence(   Читать дальше...   )Жанр: Euro-Disco, New Italo Disco StyleПродолжительность: 00:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD68A43E6BC1D9FEE3B159A072F2C77C5C75F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764679   (5225) от 30.08.2025
 
 Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
@@ -35,7 +6,7 @@ Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +35,7 @@ Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +64,7 @@ Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +93,7 @@ Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +122,7 @@ Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +151,7 @@ Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +180,7 @@ Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +209,7 @@ Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +238,7 @@ Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +267,7 @@ Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +296,7 @@ Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +325,7 @@ Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +354,7 @@ Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +412,7 @@ Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Elect
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +441,7 @@ Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +470,7 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +528,7 @@ Reyvi - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

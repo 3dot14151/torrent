@@ -1,3 +1,81 @@
+###  Публикация: 890953   (592197) от 05.07.2015
+
+Super Backup Pro: SMS&Contacts 1.8.07.03 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Super Backup Pro: SMS&Contac - это программа для быстрого создания резервных копий ваших контактов, сообщений и лога звонков. Сохранение контактов/сообщений/звонков на карту памяти. Восстановление контактов/сообщений/звонков с карты памяти. Удаление сохраненных копий с карты памяти.Тип издания: ПираткаРелиз состоялся: 27 июля 2015 г.Разработчик: MobileIdea StudioПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B3DE88B93A7998AE8527E6790A3EEEDEBD75F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907348   (592181) от 05.07.2015
+
+ZenMate Security & Privacy VPN 2.3.0 [En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ZenMate предоставляет вам услуги виртуальной частной сети, с помощью которой вы сможете серфить в интернете по специальному защищенному зашифрованному каналу, обеспечивающему вам анонимность и безопасность. К тому же, адрес вашего расположения может быть замаскирован под жителя US, UK, Germany, Switzerland или Hong Kong. Это поможет вам при необходимости достучаться (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28 июня 2015 г.Разработчик: ZenGuard GmbHПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B594491BC0492CA9C2678D96ED44D0BD46C276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915630   (591849) от 06.07.2015
+
+The Weather Channel 5.6.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Weather Channel предоставляет вам самую важную и точную информацию о погоде в любом месте, в любое время. Weather Channel поможет вам учесть все: наша технология прогнозов погоды предоставляет все необходимые инструменты, чтобы составить планы на ближайший день, неделю или даже на ближайший час.Тип издания: FreeРелиз состоялся: 15 июня 2015 г.Разработчик: The Weather ChannelПоддерживаемая ОС: Android: 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3DFF729210204912F18BD1567A2FB510406126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550709   (591561) от 12.05.2022
 
 Открытки на каждый день и GIF v1.9 [Ru] (обновляемая)
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Randomer / Генератор случайных чисел 1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ tinyCam Monitor PRO v15.3.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ BubbleUPnP v3.6.6.1 Pro [Ru] - for DLNA / Chromecast / Smart TV
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +243,7 @@ Aqua Map Marine - Boating GPS v20.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +269,7 @@ Voice Reader - читает вслух 7.2.15 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +295,7 @@ Cool Reader 3.1.2-69 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +321,7 @@ anipet Aquarium Lve Wallpaper v2.5 [En] - Морской аквариум на �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +347,7 @@ Quick PDF Scanner + OCR Pro 9.0.1433 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +375,7 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By AlexaLiza) v1.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +401,7 @@ Puffin Browser Pro 9.7.1.51314 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +427,7 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By Anik555) v1.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +453,7 @@ GoArt – Art NFT Creator v3.0.17.37 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +481,7 @@ XSCANPET / Инвентарь и штрих-коды и Excel v4.70 <Ru/Multi>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +508,7 @@ Torrent Stream Controller v1.5.22 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +561,7 @@ Zoner Mobile Security v1.9.1 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +613,7 @@ BitTorrent Pro 6.8.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +639,7 @@ Photo Recovery v1.63 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +665,7 @@ WiFi Premium 4.120.02 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,84 +676,6 @@ WiFi Premium 4.120.02 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AED49722A33A337DA394127AA2A68B15754C192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552484   (586599) от 21.05.2022
-
-GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просматривайте gpx, kml, kmz, loc файлы, а так же используйте дополнительные функции. Узнайте, почему у нас одно из самых высоко оцененных приложений для векторных офлайн карт. GPX Viewer PRO это GPS позиционирование, GPS просмотр треков, редактор, анализ, запись, трекер, простой навигационный инструмент для ваших путешествий и активного отдыха.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 10 мая 2022 г.Разработчик: Vectura Games OÜПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2E4C1727BE40D55173A553BDF956A17799A1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552398   (585622) от 22.05.2022
-
-1Gallery: Фотогалерея и безопасность (ШИФРОВАНИЕ) 1.0.6-16.170522 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585622.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Gallery - идеальное альтернативное приложение галереи, созданное для управления Вашими фотографиями. Кроме того, оно может защитить Ваши фото и видео с помощью функции скрытия и шифрования.Тип издания: Premium (Unlocked)Релиз состоялся: 20.05.2022Разработчик: todayweather.coПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED7AFA49B47E6F0FD8AF944B0EE6DA565F16B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040227   (585108) от 06.08.2016
-
-ABBYY TextGrabber + Translator 1.13.1.209 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585108.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY ТехtGrаbber — это очень интересная программа от известного разработчика. Своеобразный карманный файнридер, многофункциональный сканер-переводчик! Распознавание производится прямо на мобильном устройстве! TextGrabber позволит мгновенно оцифровать и перенести любой печатный текст в ваш смартфон – достаточно лишь сфотографировать интересующий вас текст или его (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 02.08.2016Разработчик: ABBYYПоддерживаемая ОС: android 4.0.3+Язык интерфейса: русский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E689B208537C30F2B9655AD8AD803593E1D48E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1074361   (337326) от 19.11.2016
+
+В поисках Дори / Finding Dory (2016) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дори — синяя доброжелательная рыбка-хирург, страдающая провалами в памяти. Она упорно стремится избавиться от своего недуга и найти свою семью.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Эндрю Стэнтон, Энгус МакЛэйнАктеры: Эллен ДеДженерес, Альберт Брукс, Эд О’Нил, Кэйтлин Олсон, Хайден Роуленс, Тай Буррелл, Дайан Китон, Юджин Леви, Слоун Мюррэй, Идрис ЭльбаПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0C9755EEAF0C75E602342BE9634CA14A1F131D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840144   (336827) от 11.11.2014
+
+Самолеты: Огонь и вода / Planes: Fire and Rescue (2014) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Самолетик Дасти — который стал уже легендой воздушных гонок вскоре узнает, что его двигатель сильно повреждён, и он никогда не может больше участвовать в скоростных воздушных гонках. Дасти ищет себе новое занятие и знакомится с мужественной пожарно-спасательной командой, которой руководит ветеран авиации вертолёт по имени Ренждер. Узнав насколько тяжела и опасна (   Читать дальше...   )Жанр: Мультфильм, комедия, приключения, семейный, полнометражныйРежиссер: Роберт ГаннавейАктеры: Дейн Кук, Эд Харрис, Джули Боуэн, Кертис Армстронг, Джон Майкл Хиггинс, Хэл Холбрук, Уэс Стьюди, Брэд Гэррет, Тери Хэтчер, Стейси КичПеревод: Профессиональный (полное дублирование)Субтитры: Русские (полные + форс.), английские (Full + SDH + SDH-Colored)Продолжительность: 01:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE778DAFE09869991A247F6A227AF0CDEF927FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330826   (336263) от 12.10.2019
+
+Король Лев / The Lion King (2019) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История об отважном львенке по имени Симба. Знакомые с детства герои взрослеют, влюбляются, познают себя и окружающий мир, совершают ошибки и делают правильный выбор.Производство: США / Walt Disney Pictures, Fairview EntertainmentЖанр: Мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Джон ФавроПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH), английскиеПродолжительность: 01:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840FF4AFA32B6D94406F7616D5627BE0353FD274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330280   (336250) от 12.10.2019
 
 Винни Пух: Весенние денёчки с малышом Ру / Winnie the Pooh: Springtime with Roo (2004) BDRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6CE2618705DFD656072718E42F5B6AAE4C11EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956817   (329113) от 15.11.2015
-
-Космическая Скратастрофа / Cosmic Scrat-tastrophe (2015) WEBRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329113.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Скарт — любитель орехов, превзошел сам себя. Пытаясь спрятать свою находку, он активирует космическую тарелку, замерзшую во льдах, и отправляется в космос…Производство: Blue Sky StudiosЖанр: Короткометражный, Комедия, МультфильмРежиссер: Майк ТёрмайерПерсонажи: Крис УэджПеревод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 00:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DB186DCFA5D67D37B7CFD85AE5C79FBD849E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956664   (329112) от 15.11.2015
-
-Миньоны / Minions (2015) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миньоны живут на планете гораздо дольше нас. У них одна навязчивая идея — служить самой Гадкой личности из имеющихся в наличии. Динозавры, фараоны, Дракула, Наполеон — все они оказались недолговечны. И тогда миньоны рванули в Нью-Йорк. Их ждут деньги, власть, роковая суперзлодейка Скарлет Оверкилл и, конечно же, вкуснейшая «банана»! Во всяком случае, так им кажется.Производство: США / Illumination EntertainmentЖанр: мультфильм, комедия, семейныйРежиссер: Кайл Балда, Пьер КоффанАктеры: Сандра Буллок, Джон Хэмм, Майкл Китон, Эллисон Дженни, Стив Куган, Дженнифер Сондерс, Джеффри Раш, Стив Карелл, Пьер Соффин, Кэти МиксонПеревод: Профессиональный (полное дублирование) (Лицензия BD CEE)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C686C3C436BB7E28309C74756E13C9234F79C2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956660   (329010) от 15.11.2015
-
-Миньоны / Minions (2015) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миньоны живут на планете гораздо дольше нас. У них одна навязчивая идея — служить самой Гадкой личности из имеющихся в наличии. Динозавры, фараоны, Дракула, Наполеон — все они оказались недолговечны. И тогда миньоны рванули в Нью-Йорк. Их ждут деньги, власть, роковая суперзлодейка Скарлет Оверкилл и, конечно же, вкуснейшая «банана»! Во всяком случае, так им кажется.Производство: США / Illumination EntertainmentЖанр: мультфильм, комедия, семейныйРежиссер: Кайл Балда, Пьер КоффанАктеры: Сандра Буллок, Джон Хэмм, Майкл Китон, Эллисон Дженни, Стив Куган, Дженнифер Сондерс, Джеффри Раш, Стив Карелл, Пьер Соффин, Кэти МиксонПеревод: Профессиональный (полное дублирование) (Лицензия BD CEE)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062215AB205847495B397BDC5AF766A1C8003E2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

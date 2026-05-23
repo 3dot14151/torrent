@@ -1,3 +1,108 @@
+###  Публикация: 1126307   (604201) от 05.07.2017
+
+Ani ni Tsukeru Kusuri wa Nai! / Нет лекарства для моего брата! [2017, TV, 12 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о девушке Миао которая часто бьет своего тупого старшего брата Фэн.Производство: Япония, Fanworks / ファンワークスЖанр: комедия, повседневностьРежиссер: РарэкоПеревод: Наталия Ишова, YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (12 эп.), 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0987844153F00063B4804BFE3582B6C42A2797A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546877   (603958) от 26.04.2022
+
+Bakumatsu Kikansetsu Irohanihoheto | Intrigue in the Bakumatsu: Irohanihoheto | Борьба за власть времён бакумацу - никто не вечен [2006, ONA, 26 из 26] BDRip 720p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в эпоху Реставрации Мэйдзи непосредственно предшествующей падению сегуната Токугава, в январе 1868 года, ровно через три месяца после убийства легендарного самурая и предпринимателя Ремы Сакамото, и накануне начала Войны Года Дракона, гражданской войны, в которой решилась судьба реставрации императорского правления. Главный герой сериала - молодой (   Читать дальше...   )Производство: SunriseЖанр: Приключения, история, мистика, драмаРежиссер: Такахаси РёсукэСубтитры: РусскиеПродолжительность: 26 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769665125663FCF2152A5C459D5C4D524382F744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547207   (603428) от 27.04.2022
+
+Junod | Жюно [2010, Movie] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Марсель Жюно - швейцарский врач, который служил в Красном Кресте в ходе всей Второй мировой войны, но он известен прежде всего в Японии организацией поставки 15 тонн медикаментов в Хиросиму после бомбежки.
+В 60-минутном фильме две школьницы, Мии и Юко, посещают Хиросиму, переместившись во времени назад ко Второй мировой войне. Девушки видят не только усилия Жюно (   Читать дальше...   )Производство: студия Studio Hibari / スタジオ雲雀Жанр: драмаРежиссер: Кимура СинъитироПеревод: Orphan; Poccu9iЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 64 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A414C56D4FC429710DEE3297EBAA092921B609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148965   (602440) от 09.07.2017
+
+Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью: Суд Маюри [2015, MV, 1] BDrip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что духам из другого мира, понадобится не вселенское уничтожение, а всего лишь тепло молодого юноши. Да, бывает и такое. Наш главный герой Ицука Шидо проснулся как-то с утра, а уже в обед он был заклеймен любовником духов из другого мира. Хотя, *любовник* это слишком высокое слово. Он просто стал ходить с ними на свидания, тем самым сдерживая (   Читать дальше...   )Жанр: приключенияПеревод: Alvakarp / Angara / ArarararagiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 75 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80732374B41CB604BDBDF75138924EF1E2D1DD6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547800   (602432) от 29.04.2022
 
 Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяси и её горничная-дракон [ТВ-2] [2021, TV, 12 + SP] BDRip 720p raw
@@ -6,7 +111,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Tsuki ga Kirei / Прекрасна, как луна [2017, TV, 12 эп. + 1 OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Tsugumomo / Цугумомо [2017, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +190,7 @@ Yowamushi Pedal: New Generation / Трусливый Велосипедист: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +216,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +242,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +268,7 @@ Youkoso Japari Park | Welcome to Japari Park | Добро пожаловать �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +296,7 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatte Iru | Beautiful Bones: Sakurako`
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +322,7 @@ Natsuyuki Rendezvous / Рандеву под летним снегом (2012, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +349,7 @@ Alice to Zouroku | Алиса и Дзоуроку [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +375,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +401,7 @@ Saredo Tsumibito wa Ryuu to Odoru: Dances with the Dragons | И всё же, г�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +427,7 @@ Tsurune: Kazemai Koukou Kyuudou Bu | Звук тетивы [2018, TV, 13+SP] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +453,7 @@ Etotama | Etotama: Eto Tamashii | Этотама [2015, TV, 12 + 6sp] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +479,7 @@ Ore no Nounai Sentakushi ga, Gakuen Love Comedy wo Zenryoku de Jama Shiteiru / N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +505,7 @@ Hoozuki no Reitetsu 3 / Хладнокровный Ходзуки [ТВ-3] [2018
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +531,7 @@ Hoozuki no Reitetsu OAD / Хладнокровный Ходзуки OVA [2014, O
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +557,7 @@ Cutie Honey Universe | Вселенная Милашки Хани [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +583,7 @@ Gyakuten Sekai no Denchi Shoujo | Rumble Garanndoll | Батарейка из о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +609,7 @@ Gun x Sword / Огнём и мечом [2005, TV, 26 эп.] BDRip 1080p Raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +637,7 @@ Caligula | Калигула [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +663,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,110 +674,6 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFEB79EF4A9E29FFFC26C9E7BAECD1939DAA86F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885477   (597298) от 02.07.2015
-
-High School DxD BorN | High School DxD Third | High School DxD 3rd Season | Демоны старшей школы [ТВ-3] [2015, TV, 12 эп.] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Иссэй Хёдо счастлив – дом стал дворцом, отныне в его гареме вся женская часть клуба оккультизма академии Куо во главе с очаровательной Риас Гремори, принцессой подземного мира. Но мудрый учитель, он же глава падших ангелов Азазель, объяснил юному демону, что этого мало – надо изучать своих девушек, отслеживать их поведение, решать возникшие проблемы. (   Читать дальше...   )Производство: TNKЖанр: фентези, гарем, приключения, мистика, комедия, эччиРежиссер: Янагисава ТэцуяПеревод: Buka 63 (timecraft)Язык субтитров: РусскийФормат: mkvПродолжительность: 12 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985BAEB279C4859288E97793E41A601EC6102334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232784   (596345) от 26.06.2018
-
-Blend S | Садистская смесь [2017, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о своеобразном мэйд-кафе, где обслуживающему персоналу предписаны определённые роли (вроде «цундере» или «младшей сестрёнки»), которые они должны отыгрывать, будучи с клиентами. Вот и новой сотруднице кафе на неполный рабочий день Маике достаётся роль — правда, не совсем обычная: по заданию начальства она должна отыгрывать… суперсадистку! Теперь (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: комедия, повседневностьРежиссер: Масуяма РёдзиПеревод: AniPlay; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6F8678D44D981BFB6A6621D12F90FABC4F77AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172958   (596144) от 26.06.2018
-
-Love Live! Sunshine!! (2017) | Живая любовь! [ТВ-4] [2017, TV, 13 эп.] WEB-DL 720p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скучали по школьным идолам? Всех поклонников музыкальных аниме ждёт отличная новость, они возвращаются на наши экраны! Действие происходит в городке Нумазу, что в префектуре Шизуока. Общительная и никогда не сдающаяся Чика Таками учится в девичьей академии Уранохощи и является поклонницей всем нам известной школьной идол-группы "Мьюз”. Она любит слушать их песни (   Читать дальше...   )Жанр: повседневность, музыкальныйРежиссер: Сакай Кадзуо / Sakai Kazuo / 酒井和男Перевод: anipaladin / KittorЯзык озвучки: ЯпонскийПродолжительность: 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B2F3E39BB777B70749CF2008CDA1E3A6EDB6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300024   (594590) от 04.05.2019
-
-Hakaima Sadamitsu / Sadamitsu the Destroyer / Разрушитель Садамицу [2001, TV, 10 эп.] DVDRip 480p Raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Землю наводнила инопланетная раса - рукейтаи, киборг посланный на землю искоренить враждебных инопланетян в результате схватки получает критические повреждения. В результате чего, миссия по избавлению земли от захватчиков продолжает выполнять местный глава банды по имени Садамицу. Также миссией Садамицу становится предотвращение появления главного противника - Хищника. (   Читать дальше...   )Производство: Studio DEENЖанр: приключения, фантастика, мехаРежиссер: Охата КойтиСубтитры: РусскиеПродолжительность: 10 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFFC6B41EDD0ACE8854DC6E8EDED0177527D45D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1134239   (690768) от 14.05.2017
+
+Гуляй, Вася! (2016) BDRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бедный Митя влип по полной: случайно сделал предложение, а отец девушки, как будто только этого и ждал — тут же назначил дату свадьбы. Все бы ничего, да только Митя… уже женат! Он возвращается в свой город, чтобы экстренно развестись. Но Василиса (или просто Вася), с которой они давно не живут, — циничная стерва, и за развод придется побороться. Простейший способ (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Роман КаримовАктеры: Ефим Петрунин, Любовь Аксенова, Роман Курцын, Софья Райзман, Борис Дергачев, Сергей Аброскин, Светлана Степанковская, Вера Панфилова, Наталья Тетенова, Давид ПетросянПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE73532710BB4CD2D7FD3188A99F940D1633C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288976   (689924) от 14.03.2019
+
+Кризис среднего возраста (2016) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Герой преодолевает личный конфликт и кризис отношений на фоне окружающего его абсурдаПроизводство: РоссияЖанр: Короткометражный, драма, комедияРежиссер: Алексей НаумовАктеры: Евгений Венедиктов, Светлана Рубан, Александра Власова, Алексей Шило, Олег Соколов, Игорь Яшанин, Алена Вербицкая, Гела ГубаевСубтитры: ОтсутствуютПродолжительность: 00:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A7EA5286C3CDFD5925F0336EE07F5C6E30BD83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289040   (689920) от 14.03.2019
+
+Гоголь. Страшная месть (2018) BDRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Две сотни лет назад малороссийские хутора разоряла шайка нехристей-ляхов во главе с могущественным колдуном. С тех пор рыщет в окрестностях Диканьки неизвестный Чёрный Всадник, ловит молодых девушек и жестоко расправляется с ними, будто мстит за что. И следующей его жертвой может стать Лиза. Чтобы спасти возлюбленную, писарь Николай Гоголь должен разбить злые чары (   Читать дальше...   )Производство: Россия, Продюсерская компания «Среда»Жанр: Детектив, Приключения, ТриллерРежиссер: Егор БарановАктеры: Александр Петров, Олег Меньшиков, Евгений Стычкин, Артем Сучков, Таисия Вилкова, Юлия Франц, Ян Цапник, Евгений Сытый, Сергей Бадюк, Артем ТкаченкоПеревод: Не требуется (BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD757205E2FFE205A88778160149F7D1E220132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288930   (689802) от 14.03.2019
+
+Гоголь. Страшная месть (2018) BDRemux [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Две сотни лет назад малороссийские хутора разоряла шайка нехристей-ляхов во главе с могущественным колдуном. С тех пор рыщет в окрестностях Диканьки неизвестный Чёрный Всадник, ловит молодых девушек и жестоко расправляется с ними, будто мстит за что. И следующей его жертвой может стать Лиза. Чтобы спасти возлюбленную, писарь Николай Гоголь должен разбить злые чары (   Читать дальше...   )Производство: Россия, Продюсерская компания «Среда»Жанр: Детектив, Приключения, ТриллерРежиссер: Егор БарановАктеры: Александр Петров, Олег Меньшиков, Евгений Стычкин, Артем Сучков, Таисия Вилкова, Юлия Франц, Ян Цапник, Евгений Сытый, Сергей Бадюк, Артем ТкаченкоПеревод: Не требуется (русский) (Лицензия Blu-Ray RUS)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1381471CC6B8C0C800C171952AD0EE67E09DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288878   (689786) от 14.03.2019
 
 Отрыв (2018) WEB-DLRip [H.264]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Donkey hot (2017) WEBRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5759B9E9143A1B6E2AE9F47A70CAE8FE4FCA9C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334752   (684911) от 11.05.2011
-
-Поп (2010) [720p] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_684911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псковская православная миссия — одна из наименее изученных страниц истории Великой Отечественной войны. С августа 1941 по февраль 1944 года священники-миссионеры из Прибалтики возрождали церковную жизнь на оккупированных немцами территориях северо-запада России. После занятия этих областей советскими войсками участники Псковской миссии были высланы в лагеря.Жанр: драма, военныйАктеры: Сергей Маковецкий, Нина Усатова, Лиза Арзамасова, Кирилл Плетнёв, Юрий Цурило, Анатолий Лобоцкий, Виктория Романенко, Степан Морозов, Геннадий Гарбук, Александр ДоронинПеревод: оригиналПродолжительность: 02:08:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222480   (684814) от 29.04.2018
-
-Я и Уда. Искупление (2017) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет представляет из себя историю молодого скульптора Лео и его жены, которую он теряет в автомобильной катастрофе. Лео ведет затворнический образ жизни. Его непрекращающиеся мысли порождают блуждающий по его дому и жизни призрак Лизы, рвущийся из него самого. Тоскующему от невыносимой потери и одинокому Лео ничего другого не остается, и он решает воссоздать образ (   Читать дальше...   )Производство: РоссияЖанр: Драма, триллерРежиссер: Дмитрий Стрижевский, Олег ЧервонякАктеры: Иннесса Мигунова, Артур Мусин, Лолита Игнисова, Никита БелимовСубтитры: ОтсутствуютПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99D45F7A89CDEF1212A9EBB641BA920E4A18DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222424   (684558) от 29.04.2018
-
-Близкие (2017) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684558.jpg" />
-</div>
-
-
-###  Подробнее
-
-История одной семьи, проживающей на окраине Москвы. Члены семьи погрязли в семейных ссорах, живут в дискомфорте, в давящей атмосфере и обрушивают свои негативные эмоции друг на друга, забыв о любви, забыв, кем они приходятся друг другу, забыв о сострадании и Боге. Одна большая трагедия заставит их очнуться, измениться и испытать катарсис, но будет уже поздно.Производство: Россия / OvalGrid, ВЕГА ФильмЖанр: ДрамаРежиссер: Ксения ЗуеваАктеры: Елена Чекмазова, Андрей Стоянов, Надежда Иванова, Данил Можаев, Лариса Морозова, Данил Стеклов, Алиса Глинка, Наталья Павленкова, Наталия Меньшова, Геннадий ВырыпаевПеревод: Не требуется (Язык русский)Субтитры: ОтсутствуютПродолжительность: 01:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241F8136479088934DF9D71045334F2B2762A047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222430   (684451) от 29.04.2018
-
-Последний шанс (2017) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Борисов, в прошлом офицер спецназа, после увольнения живет тихой жизнью в Подмосковье. Однажды вечером к нему в дом приходит девушка и пытается завести знакомство. Через несколько минут на дом Андрея нападают неизвестные и пытаются убить его. Андрею удаётся отбиться от нападавших. Он решает взять девушку с собой, чтобы узнать, связана ли она с убийцами, и (   Читать дальше...   )Производство: Россия / Berg SoundЖанр: БоевикРежиссер: Михаил ПогосовАктеры: Дмитрий Клепацкий, Наталья Губина, Александр Носик, Игорь Жижикин, Мария Малиновская, Петар Зекавица, Василий Шлыков, Игорь Трошин, Марианна ВасильеваПеревод: Не требуется (Язык русский)Субтитры: ОтсутствуютПродолжительность: 01:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADCA8A96D58ECC16EC22D0840F041672E4D451B
 ```
 
 https://mybot314.ru/tekegram_catalog/

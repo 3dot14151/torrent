@@ -1,3 +1,56 @@
+###  Публикация: 468964   (82547) от 16.03.2012
+
+Другой Мир: Трилогия / Underworld: Trilogy (2003/2006/2009) [H.264/720p-LQ] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История, прослеживающая происхождение вековой кровной мести, между аристократическими вампирами, известными как Торговцы смертью и их рабами. Молодой ликан по имени Люциан — мощный лидер, который сплачивает оборотней, чтобы выступить против Виктора, жестокого короля вампиров, который поработил их. К Люциану присоединяется Соня, и помогает ему в его борьбе против (   Читать дальше...   )Жанр: фэнтези, боевик, триллер, приключенияРежиссер: Патрик ТатопулосАктеры: Майкл Шин Билл Найи Рона Митра Стивен Макинтош Кевин Гревье Дэвид Эстон Джеральдин Брофи Лейтон Кардно Алекс Кэрролл Элизабет ХоторнПеревод: Профессиональный (дублированный)Продолжительность: 01:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61B77C39154640C88FEAB0FBC3D1055239D8862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467772   (82335) от 15.03.2012
+
+Коллекция: Элизабет Тейлор / Retro the Collection: Elizabeth Taylor  (1944-1952) 3*DVD5 + DVD9
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бедный родственник богатого промышленника, Джордж (Клифт) по настоянию матери едет к нему с намерением заработать деньги. Но, едва начав работать на фабрике, нарушает одно из основных ее правил: начинает встречаться с девушкой, работающей вместе с ним. Элис забеременела, а Джордж неожиданно теряет к ней интерес, потому что знакомится с красавицей Анджелой. Элис угрожает (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Джордж СтивенсАктеры: Элизабет Тейлор, Монтгомери Клифт, Шелли Уинтерс, Энн Ревер, Фред Кларк, Рэймонд Берр, Херберт Хэйс, Джон Шеперд, Фрида Инескорт, Кэтрин Гивни, Уолтер Сэнд, Тед де Корсия, Джон Риджли (I), Пол Фрис, Киф Брасселл, Гертруда Астор, Лулу Мэй Борман, Кен Кристи, Майк Донован, Ральф Данн, Франклин Фарнум, Аль Фергюсон (I), Бесс Флауэрс, Кэтлин Фримэн (I), Арт Гилмор, Лиза (   Читать дальше...   )Продолжительность: 01:57:00
+Перевод: Профессиональный (двухголосый, закадровый)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D77AE73B2C92CAD96516831DF88CAD1C95B647F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466938   (81726) от 12.03.2012
 
 Астерикс и Обеликс. Трилогия / Astérix & Obélix. Trilogy (1999 - 2008) BDRip
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57CD93F0317535B6E5B3F9FC787BB110C36E01D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233268   (56825) от 12.05.2024
-
-Проклятие Аннабель / Annabelle (2014/2017) BDRip [H.264/1080p] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через несколько лет после трагической гибели маленькой дочери кукольник и его жена приглашают в свой дом монахиню и нескольких девочек из приюта, вскоре становящихся мишенью для одержимого создания кукольника — Аннабель.Производство: США / Warner Bros., New Line Cinema, RatPac-Dune Entertainment, Atomic MonsterЖанр: Ужасы, Триллер, ДетективРежиссер: Дэвид Ф. СандбергАктеры: Энтони ЛаПалья, Самара Ли, Миранда Отто, Брэд Гринквист, Лулу Уилсон, Талита Бейтман, Стефани Сигман, Марк Брэмхолл, Грэйс Фултон, Филиппа КултхардПеревод: Дублированный (BD EUR)Субтитры: Русские, английскиеПродолжительность: 01:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C071B8FB1CF63EB89F9435BB3F28DE5961021E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173439   (56611) от 14.05.2024
-
-Посланники / The Messengers (2007-2009) BDRip [H.264/1080p-LQ] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть: Семья Соломон оставляет свою размеренную жизнь в Чикаго ради того, чтобы пожить на уединенной ферме в Северной Дакоте. Среди усыпанных подсолнухами идиллических полей, шестнадцатилетняя Джесс очень скоро понимает, каким кошмаром может обернуться уединение. Сразу после переезда, Джесс и ее трехлетний брат Бен видят зловещих призраков, которых никто кроме (   Читать дальше...   )Производство: США / Screen Gems, Ghost House Pictures, Columbia Pictures, Stage 6 FilmsЖанр: УжасыРежиссер: Дэнни Пан, Оксид Пан, Мартин БарнвитцАктеры: Кристен Стюарт, Дилан МакДермотт, Пенелопа Энн Миллер, Джон Корбетт, Ивэн Тернер, Теодор Тернер, Уильям Б. Дэвис, Брент Бриско, Дастин Миллиган, Джоделль Ферланд, Майкл Дэйнджерфилд, Татьяна Маслани, Ширли МакКуин, Анна Хэган, Блейн Харт, Грэхэм Белл, Кейтлин МакМиллан, Питер Скаулар, Роберт Бенц, Норман Ридус, Хэзер Стивенс, Клер Холт, Ричард Риле, Дарси Фоуэрс, (   Читать дальше...   )Перевод: Дублированный, МногоголосыйСубтитры: Русские, английскиеПродолжительность: 01:30:26, 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FACF44955CDE53252EEC5C78EC7778F4E53F42
 ```
 
 https://mybot314.ru/tekegram_catalog/

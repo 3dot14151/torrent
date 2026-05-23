@@ -1,3 +1,81 @@
+###  Публикация: 1744212   (46156) от 21.08.2024
+
+Головоломка 2 / Inside Out 2 (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Головной отдел мозга Райли внезапно подвергается капитальному ремонту в тот момент, когда необходимо освободить место для чего-то совершенно неожиданного: новых эмоций. Радость, Печаль, Гнев, Страх и Брезгливость, которые уже давно успешно руководят эмоциональными процессами, не знают, что и чувствовать, когда появляется некая… Тревожность. И похоже, не только она.Производство: США / Pixar Animation Studios, Walt Disney Studios Motion PicturesЖанр: мультфильм, комедия, семейный, фэнтезиРежиссер: Келси МаннАктеры: Эми Полер, Майя Хоук, Кенсингтон Таллман, Лиза Лапира, Тони Хейл, Льюис Блэк, Филлис Смит, Айо Эдебири, Лилимар, Грэйс ЛуПеревод: Дублированный (MovieDalen, LeDoyen)Язык озвучки: русский, английский, украинскийСубтитры: русские (forced, full), английские (SDH), украинские (forced, full)Продолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAE71DE9B761AAC323AE7707190F2DAFA68A148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744314   (46130) от 21.08.2024
+
+Головоломка 2 / Inside Out 2 (2024) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Головной отдел мозга Райли внезапно подвергается капитальному ремонту в тот момент, когда необходимо освободить место для чего-то совершенно неожиданного: новых эмоций. Радость, Печаль, Гнев, Страх и Брезгливость, которые уже давно успешно руководят эмоциональными процессами, не знают, что и чувствовать, когда появляется некая… Тревожность. И похоже, не только она.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, комедия, семейный, фэнтезиРежиссер: Келси МаннАктеры: Эми Полер, Филлис Смит, Льюис Блэк, Тони Хейл, Лиза Лапира, Майя Хоук, Айо Эдебири, Адель Экзаркопулос, Пол Уолтер Хаузер, Кенсингтон ТаллманПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, Казахский, Грузинский, Латышский, Литовский, Эстонский, Румынский, АнглийскийСубтитры: Русские (Forced, Full), латышские (Forced, Full), литовские (Forced, Full), эстонские (Forced, Full), румынские, английские (Full, SDH)Продолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AB680C60287D94D305F6ABEDA5515E401B52C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744299   (46117) от 21.08.2024
+
+Феи: Загадка пиратского острова / The Pirate Fairy (2014) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История о Зарине, смышленой и амбициозной фее, собирающей пыльцу растений. Все начинается с того, что она похищает волшебную пыльцу фей…Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, детский, приключенияРежиссер: Пегги ХолмсАктеры: Кристина Хендрикс, Мэй Уитман, Том Хиддлстон, Памела Адлон, Анджела Бэртис, Меган Хилти, Люси Лью, Рэйвен, Джим Каммингс, Кевин Майкл РичардсонПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7450F34883FDE419D91795EE01700EF41C86EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744297   (46114) от 21.08.2024
 
 Самолеты / Planes (2013) BDRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44919025AC6E0F342DE1ECA60A6760FE8E202D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747846   (44342) от 07.09.2024
-
-Побег из лабиринта времени / Boonie Bears: Time Twist (2024) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Озорные братья-медведи Бриар и Брамбл в опасности. И помочь им может только лесоруб Вик. Он отправляется в фантастическое путешествие во времени и пространстве, и на этом пути ему предстоит столкнуться со множеством испытаний, удивительных тайн и странных существ. Но ничто не остановит Вика, ведь его цель - спасти лучших друзей.Производство: Китай / Fantawild Animation, Sina StudiosЖанр: мультфильм, приключения, фантастикаРежиссер: Линь ХуэйдаАктеры: Тань Сяо, Чжан Бинцзюнь, Чжан Вэй, Чжан МинПеревод: дублированный (Tone Town)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E248654BC77E4C99BC5C154804B68E3E974A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239391   (44264) от 08.09.2024
-
-Дом-монстр / Monster House (2006) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три приятеля ДиДжей, Чёдер и Дженни обнаруживают, что соседний дом — самое настоящее чудовище. Никто из взрослых им не верит: мало ли, что выдумают дети. Поэтому когда начинаются неприятности, друзьям приходится самим противостоять этому монстру.Производство: США, Канада / Columbia Pictures, Relativity Media, ImageMoversЖанр: мультфильм, фэнтези, комедия, детектив, семейныйРежиссер: Гил КинанАктеры: Райан Ньюман, Стив Бушеми, Митчел Муссо, Кэтрин О’Хара, Фред Уиллард, Сэм Лернер, Вуди Шульц, Йен МакКоннел, Мэгги Джилленхол, Джейсон ЛиПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748042   (44243) от 08.09.2024
-
-Судзумэ, закрывающая двери / Suzume no tojimari (2022) BDRip [AV1/2160p-LQ] [4K, HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44243.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Судзумэ живёт в тихом городке на острове Кюсю. Однажды по дороге в школу она встречает молодого путешественника, который спрашивает, где в окрестностях находятся развалины. Любопытство берёт верх, и девушка решает посмотреть, что же там такого интересного — пробирается на местную заброшку, находит там загадочную дверь, открывает её и вытаскивает из земли (   Читать дальше...   )Производство: Япония, Aniplex, CoMix Wave Films, East Japan Marketing & Communications Inc., KadokawaЖанр: аниме, мультфильм, фэнтези, приключения, мелодрамаРежиссер: Макото СинкайАктеры: Нанока Хара, Хокуто Мацумура, Ан Яманэ, Эри Фукацу, Рюносукэ Камики, Котонэ Ханасэ, Саири Ито, Сёта Сомэтани, Акари Миура, Косиро МацумотоПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, ЯпонскийСубтитры: русские (full, forced), английскиеПродолжительность: 02:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59976ACAAC864201DA400AA9F75264A6B38A2BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

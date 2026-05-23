@@ -1,3 +1,108 @@
+###  Публикация: 1674595   (160842) от 06.11.2023
+
+Я.А. Угай (ред.) | Практикум по химии и технологии полупроводников (1978) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В книге дано описание лабораторных работ по химии и технологии полупроводников.
+Пособие предназначено для изучения основных методов физико-химических исследования конденсированных систем (ДТА, тензометрические методы, построение P-T-x диаграмм, методы микроструктурного анализа и микротвердости), различных методов синтеза, кристаллизационной очистки и выращивания (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A844AE8CE7F6C5FF1D33F515AC726860D01B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674596   (160807) от 06.11.2023
+
+Г.А. Спыну | Роботы с искусственным интеллектом (1989) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены роботы с элементами исскуственного интеллекта, которые за короткий срок (15 - 20 лет) прошли путь от персонажей научно-фантастических повестей и кибернетических игрушек к реальным устройствам сегодняшнего дня.Жанр: РобототехникаИздательство: ТэхникаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88DB029744BCF55003907FFDE21C1C919AC24E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674827   (160606) от 07.11.2023
+
+Ю.Л. Ильин | Тепловозы серий  ТЭЗ и ТЭ7 (2009) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Тепловозы ТЭЗ были самой многочисленной серией дизельных локомотивов на железных дорогах СССР. Они сыграли решающую роль в переходе железных дорог страны с паровой на тепловозную тягу. Само их появление предопределило дальнейшее развитие отечественного тепловозостроения. Указанные причины дают достаточно оснований для того, чтобы посвятить этой серии, а также пассажирскому (   Читать дальше...   )Жанр: история техникиИздательство: ИД "Ноосфера СПб"Формат: PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE96C279ED448B3F06A62FA19B9E398C0082D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674825   (160602) от 07.11.2023
+
+Ю.Л. Ильин, С.В. Критский | Тепловозы М62 (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Локомотивы серии М62 получили широкое распространение на железных дорогах Северного полушария: от Кубы до Кореи, включая Восточную Европу и республики бывшего СССР. Их эксплуатация началась еще в 1964 г. и продолжается по настоящее время. Вместе с тем история появления машин этой серии, а также их эксплуатация на просторах бывшего СССР освещены еще явно недостаточно. (   Читать дальше...   )Жанр: история техникиЯзык: Русский, АнглийскийИздательство: ИД "Ноосфера СПб"Формат: PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C08428FD2169C705EBF3D54D46B01543D70F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674826   (160554) от 07.11.2023
 
 Ю.Л. Ильин, М.О. Ластовка | Тепловозы серий ТЭП70 и ТЭП75 (2010) [PDF]
@@ -6,7 +111,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +217,7 @@ Windell Oskay, Eric Schlaepfer / Уинделл Оскей, Эрик Шлепф�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -275,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -433,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -514,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -577,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58153493497BDFD6BE85669E078F0FA5D948A750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970181   (141247) от 30.12.2015
-
-В.А. Горохов (сост.) | Справочнк сельского ремонтника (1975) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141247.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике описаны технология, приспособления и оборудование для слесарных и сварочных работ, даны основные материалы о процессах разборки, мойки, дефектовки и сборки, термической и химико-термической обработки, склеивании узлов и агрегатов сельскохозяйственных машин, изложена прогрессивная технология восстановления деталей.Жанр: СправочникФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CC1C10C4CE26382FFD61CEBDBCB0C8D34C24ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435794   (140452) от 29.12.2020
-
-Джон Бейктал | Конструируем роботов на Arduino. Первые шаги (2020, 3-е изд.) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это практическое руководство для тех, кто делает первые шаги в робототехнике на платформе Arduino. С этой книгой вы разберетесь в основах электроники, научитесь программировать в среде Arduino IDE, работать с печатными платами Arduino, инструментами, соблюдать правила безопасности и многому другому. Вы также сможете выполнить разнообразные проекты и оценить невероятный (   Читать дальше...   )Жанр: Радиоэлектроника, Хобби, Техническая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B07E3F07DF007D0025576394D506C3273531F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273126   (138959) от 30.12.2018
-
-Д.И. Оташехов | Дизель-генераторная установка. Диагностика. Ремонт. Техобслуживание (2018) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138959.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге постарался собрать те необходимые познания для работы в области обслуживания дизель-генераторных установок. Чтобы поднять свой уровень профессионализма всем инженерам, механикам и студентам, которые хотели бы в будущем работать в этой сфере, будет интересна данная книга. Хочу выразить благодарность производителям FGWILSON, CATERPILLAR, SDMO, PERKINS, CUMMINS, (   Читать дальше...   )Жанр: Энергетика, Справочники, РуководстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD123454100FACFBA8B7A4C3717C7121B74C7BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349363   (138125) от 31.12.2019
-
-С.В. Покровский (ред.) | Система управления и диагностики электровоза ЭП10 (2009) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даны основные понятия в области асинхронного тягового электропривода и принципы построения силовых цепей магистральных электровозов с асинхронными тяговыми двигателями. Рассмотрены силовые цепи и цепи собственных нужд, а также основы конструкций тяговых преобразователей и преобразователя собственных нужд электровоза ЭП10. Представлены структура и основы функционирования (   Читать дальше...   )Жанр: техническое руководствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA25C281F136DAD4F15AA8F9D0441FC9307BE5E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

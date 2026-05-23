@@ -1,3 +1,108 @@
+###  Публикация: 1275714   (771585) от 25.01.2019
+
+Весьма современная Милли / Thoroughly Modern Millie (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В середине бурных 1920-х прибывшая в большой город девушка Милли сталкивается со всеми «прелестями» современного общества…Производство: США / Ross Hunter Productions, Universal PicturesЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Джордж Рой ХиллАктеры: Джули Эндрюс, Джеймс Фокс, Мэри Тайлер Мур, Кэрол Чэннинг, Джон Гэвин, Джек Су, Пэт Морита, Филип Ан, Энтони Декстер, Кавада Хамфри , Лизабет Хаш, Херби Фэй, Майкл Сент-Клэр, Беатриса Лилли, Паула ДеллПеревод: Двухголосый закадровый (НТВ+)Субтитры: Русские (полные, на песни), английскиеПродолжительность: 02:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3FD3F29423661F2933062E25DEC87D37A689A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431542   (771083) от 13.05.2016
+
+Картуш / Cartouche (1962) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Завоевав любовь прекрасной цыганки Венеры парижский разбойник 18-го века Доминик взял себе кличку «Картуш» и стал настоящим французским Робин Гудом. Одинаково владея шпагой и языком, Картуш во главе организованной им банды «весельчаков» потрошит кошельки аристократов и раздает добычу беднякам, каждый раз ловко оставляя в дураках своего заклятого врага — начальника (   Читать дальше...   )Производство: Италия, Франция / Filmsonor S.A., Les Films Ariane, Mondex FilmsЖанр: Боевик, Драма, Комедия, ПриключенияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Клаудия Кардинале, Джесс Хан, Марсель Далио, Жан Рошфор, Филипп Лемэр, Ноэль Роквер, Одиль Версуа, Жак Шарон, Люсьен РэмбурПеревод: Дублированный (Советский дубляж)Продолжительность: 01:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50237BBCB445B41225E0398C78A7CBA69A6A420F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014427   (770942) от 13.05.2016
+
+Граф Монте-Кристо / Le Comte De Monte Cristo (1954) DVDRip [H.264] [2 серии из 2]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Постановка известного французского режиссёра Робера Верне, в которой заняты звёзды европейского кино, является одной из самых ярких экранизаций популярного романа А. Дюма.
+Перед Эдмоном Дантесом открывалась радужная перспектива – карьера капитана торгового судна и женитьба на любимой - красавице Мерседес. Но ревность Альбера Морсера, донос завистников, роковое стечение (   Читать дальше...   )Производство: Франция, Италия (Cineroma, Fono Roma, La Socit des Films Sirius,Les Productions Jacques Roitfeld, Lux Film)Жанр: Драма, ПриключенияРежиссер: Робер ВернэАктеры: Жан Маре, Лия Аманда, Даниэль Ивернель, Фолько Люлли, Луи Сенье, Клод Жениа, Жан Темерсон, Франс Асслен, Жюльен Берто, Люсьен Блондо и др.Перевод: Дублированный, многоголосыйПродолжительность: 01:33:25 + 01:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5755AA938CAC7A9A70217C323E6B6454E4466403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015095   (770234) от 14.05.2016
+
+День ярости / A Day of Fury (1956) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Во время охоты за преступником стрелок по имени Джегеди спасает жизнь маршалу. Когда стрелок появляется в городе, маршал вынужден выбирать между интересами испуганных горожан и своим долгом перед стрелком. Ситуация осложняется до предела, когда выясняется, что невеста маршала и Джегеди когда-то были в отношениях. Джегеди объявляют дьяволом, искушающим горожан, и (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Хэрмон ДжонсАктеры: Дэйл Робертсон, Мара Кордей, Джок Махони, Карл Бентон Рейд, Жан Мерлин, Джон Денер, Ди Кэрролл, Шила Бромли, Джеймс БеллПеревод: Одноголосый закадровый (erogg)Язык субтитров: РусскийПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E776952E45E404CFEB9E03D2163990A5A1CA19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014944   (770223) от 14.05.2016
 
 Пуля для негодяя / Bullet for a Badman (1964) DVDRip [H.264] [АVO]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,111 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25D397DD478A5EE63294E7D0C2450C620F0DAB0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213786   (763929) от 22.03.2018
-
-С завязанными глазами / Blindfold (1966) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Бартоломью Сноу — известный психиатр, однажды лечивший некоего Артура Винченти, видного ученого, работающего на правительство. Люди назвавшиеся секретными агентами предлагают Сноу продолжить лечение Винченти на засекреченном объекте, куда его регулярно возят с завязанными глазами. Однако вскоре к доктору обращается таинственная незнакомка, уверяющая что она (   Читать дальше...   )Производство: США / Universal PicturesЖанр: Триллер, Мелодрама, Комедия, Криминал, ДетективРежиссер: Филип ДаннАктеры: Рок Хадсон, Клаудия Кардинале, Джек Уорден, Гай Стокуэлл, Брэд Декстер, Энн Сеймур, Алехандро Рей, Хари Родс, Вито Скотти, Анджела КларкПеревод: Одноголосый закадровый (О. Воротилин)Субтитры: Русские, английскиеПродолжительность: 01:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A1DF44EAE2743BA4DAAE7D75A89510ED25A3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521818   (763449) от 04.01.2022
-
-Землетрясение / Earthquake (1974) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная сюжетная линия -  сложные взаимоотношения в семье инженера-строителя Стюарта Граффа. Он собирается расстаться со своей супругой Реми и уйти к любовнице Денис Маршалл. Также рассказывается о жизни многих других жителей Лос-Анджелеса, богатых и бедных, любящих и ненавидящих. Тем временем, учёные предсказывают, что в ближайшее время город может пережить сильнейшее (   Читать дальше...   )Производство: США, The Filmakers Group, Universal PicturesЖанр: драма, триллер, фильм-катастрофаРежиссер: Марк Робсон / Mark RobsonАктеры: Чарлтон Хестон, Ава Гарднер, Джордж Кеннеди, Лорн Грин, Женевьев Бюжо, Ричард Раундтри, Марджо Гортнер, Бэрри Салливан, Ллойд Нолан, Виктория ПринсипалПеревод: профессиональный двухголосый (НТВ)Субтитры: русские, английскиеПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF6D403B332E43E7B5D6FC3E7BC3045F12B229A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276927   (763426) от 01.02.2019
-
-Желтая гора / The Yellow Mountain (1954) WEB-DLRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пит Менло владеет некоторыми золотыми приисками в Неваде, где к нему присоединяется его старый друг Энди Мартин. Другой владелец шахты Бэннон хочет объединить интересы, чтобы они могли создать монополию, но Менло отказывается. Пит интересуется «Невадой» Рэй, дочерью владельца шахты Фифти-фифти «Джекпот» Рэй, но ей нравится только Энди. Отвергнутый Пит объединяет (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: Драма, ВестернРежиссер: Джесси ХиббсАктеры: Лекс Баркер, Мала Пауэрс, Говард Дафф, Уильям Демарест, Джон МакИнтайр, Лео Гордон, Дейтон Ламмис, Хэл К. Доусон, Уильям Фоусет, Джеймс ПарнеллПеревод: Авторский (Ю.Сербин)Субтитры: АнглийскиеПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2DE20378BF156474FA4B4DA53DA710D1EC7F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215174   (763217) от 04.01.2022
-
-Сад Наслаждений / The Pleasure Garden (1925) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пэтси, танцовщица из театра под названием «Сад наслаждений», устраивает на работу в труппу свою приятельницу Джил. Джил помолвлена с Хью, который работает в колониях.
-Пэтси выходит замуж за Леветта, коллегу Хью, и, проведя медовый месяц на озере Комо, Леветт тоже отплывает в те края. Джил, которая весело проводит время в Лондоне, пользуясь успехом у мужчин, откладывает (   Читать дальше...   )Производство: Великобритания, Германия, Bavaria Film, Gainsborough Pictures, Münchner Lichtspielkunst AG (Emelka)Жанр: Триллер, драма, мелодрамаРежиссер: Альфред ХичкокАктеры: Вирджиния Валли, Кармелита Джерати, Майлз Мандер, Джон Стюарт, Фердинанд Мартини, Флоренс Хелминджер, Георг Г. Шнель, Карл Фалькенберг, Лоуис БродиПеревод: Немой с интертитрамиСубтитры: Английские интертитры (русские субтитры под спойлером в релизе)Продолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F00B4064A34E71119F392460A12C3D1AE7BE58
 ```
 
 https://mybot314.ru/tekegram_catalog/

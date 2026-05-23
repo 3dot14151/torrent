@@ -1,3 +1,81 @@
+###  Публикация: 1082009   (279903) от 11.12.2016
+
+Тайная жизнь домашних животных / The Secret Life of Pets (2016) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что делают домашние животные пока хозяева пропадают на работе? С тоской смотрят в окно? Смиренно дремлют на коврике у двери? Как бы не так. Они ведут свою тайную жизнь.Производство: Япония, США / Dentsu, Fuji Television Network Inc., Universal PicturesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Ярроу Чейни, Крис РеноПерсонажи: Луис С.К., Эрик Стоунстрит, Кевин Харт, Дженни Слейт, Элли Кемпер, Альберт Брукс, Лэйк Белл, Дэна Карви, Хэннибал Бёресс, Бобби МойнаханПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2171E5A33131805F66C314EFDEA8F817F72211D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081935   (279899) от 11.12.2016
+
+Тайная жизнь домашних животных / The Secret Life of Pets (2016) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что делают домашние животные пока хозяева пропадают на работе? С тоской смотрят в окно? Смиренно дремлют на коврике у двери? Как бы не так. Они ведут свою тайную жизнь.Производство: Япония, США / Dentsu, Fuji Television Network Inc., Universal PicturesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Ярроу Чейни, Крис РеноПерсонажи: Луис С.К., Эрик Стоунстрит, Кевин Харт, Дженни Слейт, Элли Кемпер, Альберт Брукс, Лэйк Белл, Дэна Карви, Хэннибал Бёресс, Бобби МойнаханПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A3C60FF89734372BBE095CB85F68ED849B3E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081914   (279810) от 11.12.2016
+
+Тайная жизнь домашних животных / The Secret Life of Pets (2016) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что делают домашние животные пока хозяева пропадают на работе? С тоской смотрят в окно? Смиренно дремлют на коврике у двери? Как бы не так. Они ведут свою тайную жизнь.Производство: Япония, США / Dentsu, Fuji Television Network Inc., Universal PicturesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Ярроу Чейни, Крис РеноПерсонажи: Луис С.К., Эрик Стоунстрит, Кевин Харт, Дженни Слейт, Элли Кемпер, Альберт Брукс, Лэйк Белл, Дэна Карви, Хэннибал Бёресс, Бобби МойнаханПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66111002DAE33047D70114537F51350597B67EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264712   (278922) от 24.11.2018
 
 Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +244,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.265/1080p-LQ
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +426,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) UHD BDRemux [H.265/21
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60705DB4AE8ED1F91A6F516086AAFD3B76AA4D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190741   (266679) от 10.12.2017
-
-Гадкий я / Despicable Me (2010) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться.Производство: США, Франция / Illumination EntertainmentЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Пьер Коффан, Крис РеноПерсонажи: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер СоффинПеревод: Дублированный (Лицензия BD EUR), Профессиональный (двухголосый, закадровый) (Кубик в кубе), Авторский (одноголосый, закадровый) (А. Гаврилов, Ю. Сербин)Субтитры: Русские (Full-length, Forced), Украинские (Full-length), АнглийскиеПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C467232F132322C921D666538DB0A7623E2E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190745   (266529) от 10.12.2017
-
-Маленький вампир / The Little Vampire 3D (2017) WEB-DL [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о маленьком вампире Рудольфе — тринадцатилетнем мальчике, чью семью преследует злостный охотник на вампиров. Однажды Рудольф встречает обычного мальчика, Тони, своего сверстника. Тони без ума от старинных замков и страшных историй про вампиров, поэтому он не раздумывая предлагает Рудольфу свою помощь. Теперь эту парочку ждут весёлые и невероятные приключения (   Читать дальше...   )Производство: Нидерланды, Германия, Дания, Великобритания, Ambient Entertainment GmbHЖанр: Мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Рихард Клаус, Карстен КилерихПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203DCA7C0D8454EBC47F39BAF98DD391684580FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190945   (265619) от 11.12.2017
-
-Гадкий я 3 / Despicable Me 3 (2017) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грядет третье пришествие. Многодетный суперагент, роковая красотка и бессмертные миньоны на подходе. Готовьтесь. Они будут править миром.Производство: США / Illumination EntertainmentЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Кайл Балда, Пьер Коффан, Эрик ГуильонПерсонажи: Стив Карелл, Кристен Уиг, Трей Паркер, Миранда Косгров, Дэна Гайер, Пьер Коффан, Стив Кугэн, Джули Эндрюс, Дженни СлейтПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Форс.+Полные), Английские (Full+SDH+SDH Colored)Продолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92ADE6D3CCF260695416DC6657D36C066028C439
 ```
 
 https://mybot314.ru/tekegram_catalog/

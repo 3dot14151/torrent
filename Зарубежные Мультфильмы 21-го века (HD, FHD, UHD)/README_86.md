@@ -1,3 +1,81 @@
+###  Публикация: 1079845   (294003) от 04.12.2016
+
+Невероятный Блинки Билл / Blinky Bill the Movie (2015) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Блинки Билл - очаровательный и озорной медвежонок-коала, который никого не боится и никогда не сдается. Вместе с друзьями - веселой ящерицей и добрыми страусами Эму - ему надо преодолеть миллион опасностей в диких джунглях, чтобы найти пропавшего отца. Новые герои, яркий красочный мир экзотического континента и настоящее большое приключение!Производство: Австралия, СШАЖанр: Приключения, семейныйРежиссер: Дин Тейлор, Ноэль Клири, Алекс СтадерманнПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53227DB9B35C1F3B51B5876A9FAC0CCB664A034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079838   (293892) от 04.12.2016
+
+Невероятный Блинки Билл / Blinky Bill the Movie (2015) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Блинки Билл - очаровательный и озорной медвежонок-коала, который никого не боится и никогда не сдается. Вместе с друзьями - веселой ящерицей и добрыми страусами Эму - ему надо преодолеть миллион опасностей в диких джунглях, чтобы найти пропавшего отца. Новые герои, яркий красочный мир экзотического континента и настоящее большое приключение!Производство: Австралия, СШАЖанр: Приключения, семейныйРежиссер: Дин Тейлор, Ноэль Клири, Алекс СтадерманнПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406F9578F03CED714EEB299343EBF02A2E11C6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079747   (293758) от 04.12.2016
+
+Песочник / Piper (2016) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Стая представителей бекасовых охотится за едой у побережья, бросаясь клевать на песок, когда волна уходит, а когда наступает, они убегают. Одна маленькая представительца семейства бекасовых так воодушевлена своей мамой, что решается присоединиться к стае, но ей не удалось вовремя отступить, поэтому она полностью промокла от волны. Происшествие оставляет её запуганной (   Читать дальше...   )Производство: США | Disney, Pixar Animation StudiosЖанр: Короткометражный анимационный фильмРежиссер: Алан БариллароПеревод: не требуется (немая анимация)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 00:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AC51C158EE756880A46EAFE6CA24173C8788F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 847631   (293704) от 06.12.2014
 
 Герой цветного города / The Hero of Color City (2014) BDRip [720p] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/720p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Winx Club: Волшебное приключение / Winx Club: Magic Adventur
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813E58ECB260C46566BD086280DBC5514068C97C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080728   (285568) от 08.12.2016
-
-Аисты / Storks (2016) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аисты приносят детей… или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.
-Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: США, RatPac-Dune Entertainment, Stoller Global Solutions, Warner Animation Group, Warner Bros. Animation, Warner Bros.Жанр: Мультфильм, Фентези, Комедия, Приключения, СемейныйРежиссер: Николас Столлер, Даг СвитлэндПерсонажи: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив ГликманПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, iTunes), Русский (iTunes), Английский (SDH)Формат: BDAVПродолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF9B7686C13EDDBDFF9C83E5FE54EEA47EA6975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 734133   (285148) от 13.12.2013
-
-Спасти Санту / Saving Santa (2013) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эльф Бернард — очень мил, весел, и… слегка несерьёзен. Но ему придется измениться, ведь у него впереди потрясающее и очень опасное приключение! Кто-то собирается похитить Санту и его волшебные сани, в которых можно перемещаться в разные эпохи. А без Санты Новый год никогда не наступит! Бернарду придётся переместиться во времени, сразиться со злодеем, остановить его (   Читать дальше...   )Производство: Великобритания / Gateway Films, Prana Animation Studios, Prana StudiosЖанр: Mультфильм, Мьюзикл, Комедия, СемейныйРежиссер: Леон Джусен, Аарон СилманПеревод: Дублированный (Лицензия)Продолжительность: 01:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C8DED8F6660334C4ECFD0A6D478E1DA8AF2636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 734111   (285066) от 13.12.2013
-
-Спасти Санту / Saving Santa (2013) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эльф Бернард — очень мил, весел, и… слегка несерьёзен. Но ему придется измениться, ведь у него впереди потрясающее и очень опасное приключение! Кто-то собирается похитить Санту и его волшебные сани, в которых можно перемещаться в разные эпохи. А без Санты Новый год никогда не наступит! Бернарду придётся переместиться во времени, сразиться со злодеем, остановить его (   Читать дальше...   )Производство: Великобритания / Gateway Films, Prana Animation Studios, Prana StudiosЖанр: Mультфильм, Мьюзикл, Комедия, СемейныйРежиссер: Леон Джусен, Аарон СилманПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, НемецкийПродолжительность: 01:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE426CB09683ED15D362AAD1F740AE3661896E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

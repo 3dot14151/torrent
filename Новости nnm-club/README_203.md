@@ -1,3 +1,185 @@
+###  Публикация: 956095   (330762) от 13.11.2015
+
+Lost Planet 3 (2013) [Ru/En] (1.0.10246/dlc) Repack R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фантастического экшена Lost Planet раскрывает новые ужасающие подробности о пресловутой планете E.D.N. III и истории ее колонизации людьми. Экстрим, опасности и острые ощущения? В три раза больше, чем раньше! Главный герой Lost Planet 3 - пилот Джим, покинувший Землю, чтобы выполнить весьма непростой и рискованный, но очень выгодный контракт с корпорацией (   Читать дальше...   )Тип издания: RepackРазработчик: Spark UnlimitedЖанр: Action (Shooter) / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822174ED3EFFD19036C166D1ABB190A89D27BB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950704   (330759) от 13.11.2015
+
+Чума / Девяностые (2015) HDTVRip (сезон 1, серии 1-24 из 24)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Чума» – фильм о нас и о «девяностых». Рушится эпоха, на смену ей приходит другая. Мужчины – любят деньги, женщины – любят тех, у кого они есть! Героям фильма нужно вписаться в обстоятельства новой жизни, но далеко не у всех это получается. Жизнь людей происходит на разных полюсах криминальной эпохи: взлет олигархов и обнищание народа. Эта жизнь раздаёт дивиденды (   Читать дальше...   )Телекомпания: Россия / Студия «КонтАкт продакшн» по заказу АО«Телекомпания НТВ»Жанр: драмаРежиссер: Алексей Козлов, Александр УстюговАктеры: Сергей Жарков, Александр Устюгов, Юрий Беляев, Борис Щербаков, Екатерина Климова, Сергей Селин, Андрей Горбачёв, Светлана Смирнова-Марцинкевич, Наталья Ткаченко, Никита Рогов и др.Продолжительность: ~00::45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F360BFD5A01A50F693ECC9A9CD65757D351FF5AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955668   (330757) от 13.11.2015
+
+ACDSee Ultimate 9.1 Build 580 RePack by D!akov [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ACDSee Ultimate 9 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями и (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6A2A5E595526D8CD7E34DF0C26E504DE401435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 7355   (330677) от 15.11.2014
+
+Розенкранц и Гильденстерн мертвы/Rosencrantz and Guildenstern are Dead (1990) DVDrip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Производство: Великобритания, СШАЖанр: Драма, комедияРежиссер: Том СтоппардАктеры: Гари Олдман, Тим Рот, Ричард Дрейфусс, Ливио Бадурина, Томислав Маретич, Маре Млачник, Младен Васари, Зелько Вукмирича, Бранко ЗаврсанПеревод: Профессиональный, одноголосый, закадровыйСубтитры: ОтсутствуютПродолжительность: 01:53:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260639   (330503) от 20.11.2010
+
+F.E.A.R. 2: Project Origin - Дополненное издание [Ru] (P) 2010 | trexmernii
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный и атмосферный шутер FEAR 2 возвращается – в совершенно новом облике! В состав дополненного издания, кроме полной версии игры, вошли все официальные обновления и дополнения. Особенным сюрпризом станет совершенно новая одиночная кампания, в которой вам будет суждено вновь столкнуться с ужасным Пакстоном Феттелем, легендарным злодеем из первой части игры. Поклонники онлайновых боев смогут устроить сражения на новых картах – и с новыми режимами многопользовательской игры. К тому же, теперь игра не требует жесткой привязки к Интернету. Внушающая ужас девочка Альма стала еще ближе, а любимый шутер – еще доступнее !Тип издания: ПираткаРазработчик: Monolith ProductionsЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C7568233300B5CB336DAF97C436EF77A4C63E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580225   (330457) от 01.10.2022
+
+За пивом! / The Greatest Beer Run Ever (2022) WEB-DLRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1967 год. Чтобы морально поддержать воюющих во Вьетнаме друзей, Чики Донохью решает самолично угостить их американским пивом. Поездка, начавшаяся как спонтанная авантюра, в корне меняет его взгляды на жизнь и войну.Производство: США / Living Films, Skydance ProductionsЖанр: комедия, военный, драма, историяРежиссер: Питер ФарреллиАктеры: Зак Эфрон, Рассел Кроу, Билл Мюррей, Кайл Аллен, Джейк Пикинг, Уилл Ропп, Арчи Рено, Christopher Reed Brown, Джо Адлер, MacGregor ArneyПеревод: Дублированный (Iyuno-SDI Group / AppleTV+)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced. Full, SDH), Украинские, Английские (Full, SDH)Продолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78D4F96C01EC3EE734E0C6FD555BCB6ECBFE995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464948   (330456) от 01.10.2022
+
+Torque Pro OBD2 v1.12.100 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программа предназначена для получения и отображения диагностической информации о работе двигателя через интерфейс OBD-II. Для подключения нужен OBD-II адаптер. В описании программ рекомендуется покупать: www.plxkiwi.com , www.scantool.net , www.obdkey.com или купить адаптер на e-bay. Собственно программа умеет получать всю информацию по интерфейсу OBD2. Имеется 15 (   Читать дальше...   )Тип издания: ProРелиз состоялся: 21.09.2022Разработчик: Ian HawkinsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014BB6125FA4DF562116B8F0B135A6A0618D61B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956345   (330154) от 14.11.2015
 
 Ученые нашли призрачную "умирающую" радиогалактику чрезвычайно редкого типа
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +267,7 @@ JetBrains PyCharm Professional 5.0.1 Build #PC-143.595 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +293,7 @@ Microsoft Office 2013-2016 C2R Install 4.9 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +319,7 @@ Corona Renderer 1.3 for 3ds Max 2011-2016 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +345,7 @@ ArtMoney Pro 7.44.1 Portable by KloneB@DGuY [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +371,7 @@ Tomb Raider: Underworld [Ru] (RePack) 2008 | R.G. Spieler
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_329580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +423,7 @@ Scrivener 1.9.0.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +449,7 @@ DAEMON Tools Ultra 4.0.1.0425 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +501,7 @@ Parallels Desktop for Mac Business Edition 11.1.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +607,7 @@ Alcohol 120% 2.0.3.8314 Final RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -489,189 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581016   (327790) от 04.10.2022
-
-Выпущена новая Linux 6.0
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Линус Торвальдс выпустил стабильную версию ядра Linux версии 6.0-rc7. Он оценил версию 6.0 как «один из самых крупных релизов по количеству коммитов за последнее время», во многом благодаря включению «всего 15 тысяч коммитов без слияния».Новая версия содержит следующие нововведения:— Обнаружение сбоев процессора — функция для администраторов большого количества компьютеров (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957211   (327285) от 17.11.2015
-
-Интервью Виталия Кличко Deutsche Welle (16.11.2015) HDTVRip [720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интервью новоизбранного мэра Киева Виталия Кличко немецкой телерадиокомпании Deutsche Welle.Телекомпания: Deutsche WelleЖанр: ДокументальныйПродолжительность: 00:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E39FC931A53A0C722251DF9D249735E10D0E785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956666   (327170) от 17.11.2015
-
-Windows 10 PE x86x64 13.11.15 by Xemom1 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минимальные сборки, которые можно использовать не только как LivePE, но и вместо boot.wim в дистрибутивах. Для этого необходимо переименовать 86.wim либо 64.wim - в boot.wim, и заменить с помощью UltraIso в дистрибутиве. На рабочий стол выведен ярлык "Setup-W7_W10", который запускает установку Windows (для стандартных дистрибутивов). В случаи нестандартного, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA7619DDA77E780F53760CC0C742E9F19617C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831104   (326089) от 20.11.2014
-
-Кухня (2014) WEB-DLRip (Сезон 4, серии 1-20 из 20)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326089.jpg" />
-</div>
-
-
-###  Подробнее
-
-За три сезона сериала Кухня ресторан "Claude Monet" и его команда пережили потоп, пожар, стрельбу, нашествие полтергейстов, облавы госинспекторов, визит президента и переезд в Париж. Здесь билась посуда и разбивались сердца, изобретались шедевры кулинарии и проливалась кровь. Самые крутые повара столицы крушили конкурентов, справлялись с загулами шефа и (   Читать дальше...   )Производство: "YBW Group", "СТС", РоссияЖанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Дмитрий Назаров, Дмитрий Нагиев, Елена Подкаминская, Марина Могилевская, Марк Богатырев, Виктор Хориняк, Ольга Кузьмина, Екатерина Кузнецова, Жанныл Асанбекова, Елена Чернявская, Алексей Колган, Сергей Лавыгин, Сергей Епишев, Михаил Тарабукин, Никита Тарасов, Юлия Такшина, Виктория Лукина, Виталий Щанников, Сергей Беляев, Роман Индык, Евгения Храповицкая, Серафима (   Читать дальше...   )Продолжительность: ~ 00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB438C4E34F78E831D5FE58CB423AC3F0BBA3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581709   (326026) от 06.10.2022
-
-LEX LIVE 10 2022 v.22.10.5 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326026.jpg" />
-</div>
-
-
-###  Подробнее
-
-LEX LIVE 10 2022 - портативная операционная система для работы, развлечений, интернета, ремонта компьютеров, которая загружается с USB устройства в оперативную память вашего ПК. Таким образом данная система может работать даже если у вас нерабочий винчестер или он вовсе отсутствует.
-Состав программ смотрите на скриншотах.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F3FEEE55B497D8E02B056649F9BDB1369913A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581559   (326024) от 06.10.2022
-
-F-Secure Freedome VPN 2.55.431.0 RePack by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326024.jpg" />
-</div>
-
-
-###  Подробнее
-
-F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BF2B6C67A56CC538734D767D2DEB8A1637FF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415254   (325563) от 26.11.2011
-
-Андрей и Мария Круз | Исход [2011] [MP3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывает так, что, когда привычная жизнь рушится, неожиданно появляется не только новый выход из ситуации, но за этим выходом – целый новый мир. И в нем человек может найти новый смысл своей жизни, новых друзей и даже любовь, хотя за все это ему придется драться, против новых врагов и против старых. Так и случилось в жизни Андрея Ярцева, казалось бы состоявшегося и (   Читать дальше...   )Жанр: боевая фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BCFEBC7CE6708DE9C45341BBDF0737A8B45E40
 ```
 
 https://mybot314.ru/tekegram_catalog/

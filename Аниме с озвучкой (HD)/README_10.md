@@ -1,3 +1,29 @@
+###  Публикация: 1256656   (353564) от 22.10.2018
+
+Grand Blue / Grand Blue Dreaming / Бескрайняя синева [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юный и полный сил Йори Китахара только лишь начинает свой первый год обучения в университете, в красивом приморском городе Изу, берег которого омывают большие океанские волны. Здесь почти всегда светят обжигающие лучи сияющего солнца, дует свежий морской бриз. Атмосфера города располагает к отдыху, разнообразным приключениям и приятному времяпровождению. Но парень (   Читать дальше...   )Жанр: повседневность, комедияРежиссер: Такамацу СиндзиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AD56DB7E987E6F299E7B9B69AD4FBFCC96F7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178811   (352708) от 29.10.2017
 
 Kizumonogatari | Истории ран [2016-2017, Movie, 3 из 3] BDrip 720p 10-bit rus
@@ -6,7 +32,7 @@ Kizumonogatari | Истории ран [2016-2017, Movie, 3 из 3] BDrip 720p 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Owari no Seraph / Seraph of the End: Vampire Reign / Последний Сера
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Tokyo Ghoul A / Токийский гуль [ТВ-2] [2014, TV, 12 ep] BDRip Hi1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +164,7 @@ Blade and Soul / Blade & Soul / Клинок и Душа [2014, TV, 13 ep + 7 SP
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +190,7 @@ Ikkitousen: Xtreme Xecutor / Школьные войны (сезон четве�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +216,7 @@ Summer Time Rendering | Summer Time Rendering | Летнее время [2022, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +243,7 @@ Mahou Sensou / Magical Warfare / Магическая война [2014, TV, 12 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +269,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki / Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +296,7 @@ Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +322,7 @@ Gangsta. / Гангстеры. [2015, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +348,7 @@ Tamayomi | Тамаёми [2020, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +374,7 @@ Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +400,7 @@ One Piece / Ван-Пис [1999, TV, 741-948] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +426,7 @@ Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +452,7 @@ Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +480,7 @@ Meitantei Conan | Detective Conan | Детектив Конан. Фильмы и
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +506,7 @@ Triage X / Искусственный отбор [2015, TV, 10 ep] BDRip Hi10p 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +533,7 @@ Tears to Tiara / Слёзы Тиары / Расколотая Тиара [2009, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +561,7 @@ Dragon Ball Super | Драгон Болл Супер [2015, TV, 46 из 131 эп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +587,7 @@ Sunohara-sou no Kanrinin-san / Госпожа заведующая общежи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +615,7 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +641,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,7 +667,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,32 +679,6 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D2C9DD07935F5BB89345C01B17642ACFFF2A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263758   (283844) от 21.11.2018
-
-Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёные обнаружили субстанцию, которая способна напрямую взаимодействовать с человеческим мозгом. Оказалось, что эта субстанция, названная «экзотическая материя» с древних времён оказывала влияние на прогресс человечества. Вскоре после открытия началась борьба среди могущественных наций и гигантских корпораций. Организации по всему миру стали тайно пытаться использовать (   Читать дальше...   )Производство: Япония / CraftarЖанр: Детектив, фантастикаРежиссер: Сакураги Юхэй (Yūhei Sakuragi)Язык озвучки: Русский (Xelenum, одноголосный)Субтитры: ОтсутствуютПродолжительность: 11 эпизодов, 25 мин./серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E396EABDB35870299C85178723C510EF8B03751D
 ```
 
 https://mybot314.ru/tekegram_catalog/

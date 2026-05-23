@@ -1,3 +1,83 @@
+###  Публикация: 1499517   (335946) от 27.09.2022
+
+Jujutsu Kaisen | Магическая битва [2020, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юдзи Итадори — сильный юноша, который ведёт заурядную жизнь старшеклассника. Однажды, чтобы спасти друзей от нападения проклятий, он съедает палец Двуликого призрака, который становится частью его души. С этого момента он делит с ним своё тело. Под присмотром Сатору Годзё, одного из сильнейших магов, Итадори поступает в магический техникум, где учат сражаться с проклятиями. (   Читать дальше...   )Производство: Студия MAPPAЖанр: приключения, фэнтезиРежиссер: Пак Сон ХуЯзык озвучки: Японский и русскийСубтитры: ASS, Встроенные, Полные+надписи |Продолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44784ABF33BC6FB0A64F9C94ACB9CCCC1088A188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258597   (335874) от 30.10.2018
+
+Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower Blooms | Укрась прощальное утро цветами обещания [2018, Movie] BDRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Красавица Макия — из рода бессмертных. На протяжении веков многие армии пытались захватить её народ, чтобы завладеть секретом вечной жизни. И вот теперь, когда город разрушен, девушка прячется в лесу. Здесь она встречает потерявшего родителей маленького мальчика Эриала и начинает о нём заботиться.
+
+Проходят годы, мальчик превращается в прекрасного юношу, и у беглецов (   Читать дальше...   )Производство: ЯпонияЖанр: приключения, фэнтези, драма, мелодрама, про любовьРежиссер: Мари ОкадаЯзык озвучки: Русский (Reanimedia)Субтитры: ЯпонскиеПродолжительность: 01:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964CB88E3A64A6D2FDEC0C0E45176E27B4369DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420057   (333651) от 31.10.2020
+
+Покемон 22: Мьюту наносит ответный удар – Эволюция | Pokemon: Mewtwo Strikes Back - Evolution [2019, Movie] BDRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — покемон Мьюту, созданный в секретной лаборатории для уничтожения человечества. Узнав об этой миссии, он восстаёт против своих создателей.Производство: Япония / Oriental Light and MagicЖанр: аниме, мультфильм, приключения, фэнтезиРежиссер: Мото Сакакибара, Тэцуо Ядзима, Кунихико ЮямаПеревод: Дублированный (SDI Media по заказу Netflix)Субтитры: отсутствуютПродолжительность: 01:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F10880BD370415B9BE3A5602678C40DB7F1A5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563805   (331519) от 30.09.2022
 
 Повелитель тьмы на подработке! [ТВ-2] | Сатана на подработке! [ТВ-2] | Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +86,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +216,7 @@ Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +242,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +269,7 @@ Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +296,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +322,7 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +348,7 @@ Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +374,7 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +400,7 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +426,7 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +452,7 @@ Ranma 1/2 | Ranma Nibun no Ichi | Ранма 1/2 [1989, TV, 161 из 161] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +478,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт девочек-волшебни
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +504,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +531,7 @@ Bounen no Xamdou | Xam'd: Lost Memories | КсамД: Позабывший не�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +559,7 @@ Gyakusatsu Kikan | Орган геноцида | Genocidal Organ [2017, Movie + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -505,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -531,7 +611,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [TV-1] [2017, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -558,7 +638,7 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -584,7 +664,7 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -599,88 +679,6 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3F3B63D3BDC93B28F898D7D5DDD5381628BFEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605471   (255491) от 05.04.2023
-
-Плод эволюции [ТВ-2] | Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2: Before I Knew It, My Life Had It Made [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения невероятно красивого, обаятельного и сильного Сэйечи Хираги и его возлюбленной принцессы-гориллы в другом мире продолжаются, и как в любом порядочном исекае его ждут новые свершения, новые горизонты силы, новые враги и, конечно же, новые кандидатки в гарем. Скоро ему предстоит столкнуться со своими одноклассниками, которые тоже не сидели на месте. Но (   Читать дальше...   )Производство: Япония / Студия HotlineЖанр: Приключения, фэнтезиРежиссер: Окумура ЁсиакиЯзык озвучки: Русский многоголосый, закадровый, Японский
-- Cleo-chan, Crowley, Nuts (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19EED7AF237AF5A6C318E95791B4CC12E1625A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606531   (255462) от 06.04.2023
-
-Коплю 80 тысяч золотых | Rougo ni Sonaete Isekai de 8-manmai no Kinka o Tamemasu | Saving 80,000 Gold in Another World for My Retirement [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемнадцатилетняя девушка Мицуха Ямано, потерявшая свою семью из-за несчастного случая, однажды случайно падает со скалы и перемещается в другой мир, похожий на средневековую Европу. После тяжелого сражения с волком она узнает о том, что может в любой момент вернуться на Землю. Мицуха решает воспользоваться этой возможностью. Теперь её цель — накопить 80 000 золотых (   Читать дальше...   )Производство: Япония / Студия Felix FilmЖанр: Комедия, фэнтезиРежиссер: Тамада ХиросиЯзык озвучки: Русский многоголосый, закадровый (AniDub), (AniMaunt), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9097CAFD4012ABC7CB7B455915CCD1B97FB5E673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536853   (250244) от 13.03.2022
-
-Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8] WEBRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонусы к эксклюзивным ограниченным изданиям 12, 13, 14, 15, 16, 24, 25, и 26 томов манги.
-
-1 серия «Дневник Ильзе: Воспоминания члена разведотряда».
-Ханджи во время очередной операции за стенами находит странный дневник, озаглавленный как «Дневник Ильзе». В книге подробно описан последний поход Ильзе за стены от её же имени. Найденные записи ставят ещё больше вопросов (   Читать дальше...   )Производство: Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Тэцуро АракиЯзык озвучки: Японский и русскийСубтитры: Русские, АнглийскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B698085E43381FD3EEB053AB5D9A3A8A9A8EB2BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

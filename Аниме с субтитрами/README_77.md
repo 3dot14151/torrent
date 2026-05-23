@@ -1,3 +1,109 @@
+###  Публикация: 1234270   (410647) от 04.10.2018
+
+Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кентаро Тачибана — тренер бадминтонной команды старшей школы «Китакомачи». Команда переживает не лучшие времена: острая нехватка личного состава не позволяет даже подать заявку на участие в турнире, и это тяжким грузом ложится на плечи тренера. Но однажды он видит, как ученица по имени Аяно Ханесаки ловко взбирается на дерево во дворе, демонстрируя выдающиеся моторные (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: спорт, повседневность, драмаРежиссер: Эдзаки СинпэйПеревод: Crunchyroll; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBCDE6BB4330DD86D1C304E3839A7C87957AFCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235987   (410640) от 04.10.2018
+
+Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Столица Японской Империи, 1930 год. Странная группа людей с чехлами от музыкальных инструментов появляется на Токийском вокзале. Они — «егери», что сражаются с вампирами. Среди них молодой человек, излучающий необычную ауру и безмятежность. Его зовут Юлий, и он волк-оборотень, родную деревню которого истребили вампиры. Теперь он вместе с егерями участвует в смертельном (   Читать дальше...   )Производство: студия P.A. Works / ピーエーワークスЖанр: приключенияРежиссер: Андо МасахироПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024C489C043F3F9F4C952F8AFD33C6D005C11F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236159   (408955) от 05.10.2018
+
+Planet With | Планета Уит [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Соя Курой ничего не помнит о своём прошлом и ведёт тихую мирную жизнь. Но однажды его город атакует гигантская машина, известная как «Оружие Небулы». Вместе с кошкоподобным Сэнсэем и готической лолитой Гинко протагонист оказывается втянут в бой и в конце концов становится врагом семерых героев, старающихся защитить город.Производство: Студия J.C. StaffЖанр: приключенияРежиссер: Судзуки ЁхэйПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904215515B31C9F28066A7E4F5F6B82987652962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325826   (408697) от 17.09.2019
+
+Hulaing Babies | Flying Babies | Летающие крошки [2019, TV, 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в курортном городке Иваки. Ученицы средней школы Судзу и Фуми взяли, да и основали кружок танцоров хула… Вот только запал быстро пропал, и теперь девчонки лишь безмятежно коротают деньки. Но вот однажды к ним перевелась Мона, ученица по обмену из Финляндии, и всё как закрутилось!
+
+Девочка, пережившая землетрясение. Девочка, переехавшая (   Читать дальше...   )Производство: Япония, GainaЖанр: повседневность, комедияПеревод: Arashi-sama & Nika_Elrik (YakuSub Studio)Язык озвучки: ЯпонскийСубтитры: ass, внешние, русскиеПродолжительность: 12 эпизодов по ~5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA2C792DBA85B3F2A5754120CB4AA1670450259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325898   (408694) от 17.09.2019
 
 Circlet Princess | Диадема принцессы [2019, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +112,7 @@ Circlet Princess | Диадема принцессы [2019, TV, 12 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | К звер
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +191,7 @@ Bartender | Бармен [2006, TV, 11 из 11] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ Koi to Producer: Evol x Love | Mr Love: Queen's Choice | Продюсер и л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ Shokugeki no Souma: Gou no Sara | Food Wars! The Fifth Plate | Кулинарн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ Gibiate | Джибиэйт [2020, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +322,7 @@ Fugou Keiji Balance: Unlimited | The Millionaire Detective - Balance: Unlimited 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +348,7 @@ Ahiru no Sora | Команда мечты [2019, TV, 50 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +374,7 @@ Angolmois: Genkou Kassenki | Анголмуа [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +400,7 @@ Kakuriyo no Yadomeshi | Повар небесной гостиницы [ТВ-1] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +426,7 @@ Akkun to Kanojo | Аккун и его девушка [2018, TV, 25] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +452,7 @@ Nobunaga no Shinobi / Ниндзя Нобунаги [2016, TV, 78 + SP] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +478,7 @@ Bang Dream! 2nd Season | Ура мечте! (ТВ-2) [2019, TV, 13 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +504,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +530,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +556,7 @@ Nayuta | Наюта [1986, OVA] LDRip 460p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +582,7 @@ Uchuu no Kishi Tekkaman | Space Knight Tekkaman | Tekkaman: The Space Knight | �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +608,7 @@ Sei Juushi Bismarck | Saber Rider and the Star Sheriffs | Звёздный му�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +634,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki | Ты единственная, �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +660,7 @@ Kyoukai no Rinne-3 / Риннэ: Меж двух миров-3 [2017, TV, 25 из
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,115 +671,6 @@ Kyoukai no Rinne-3 / Риннэ: Меж двух миров-3 [2017, TV, 25 из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:180AB6B89949ADF1083726BA612F6D8BBEDDBF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148940   (403868) от 26.09.2017
-
-Isekai Shokudou | Restaurant to Another World | Кафе из другого мира [2017, ТВ, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем зауряднее и обычнее выглядит местечко, тем больше у него шансов оказаться на самом деле пристанищем всего таинственного и мистического. Так получилось и с Кошачьей кафешкой. Это заведение вот уже пятьдесят лет радует своих посетителей вкусной и недорогой едой. Сюда заходит и стар, и млад, ведь помимо западной кухни здесь можно встретить японские блюда и лакомства (   Читать дальше...   )Жанр: комедия, фэнтезиРежиссер: Дзимбо Масато / Jinbo Masato / 神保昌登Язык озвучки: японскийПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAE02B4218572FF7400A9E1E5A1B64F35C9F46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025343   (403808) от 26.09.2017
-
-Ajin OVA | Полулюди OVA [2016, OVA, 3] DVDRip 576p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403808.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире «Адзина» семнадцать лет назад появился первый бессмертный – где-то в Африке посреди очередного конфликта. С тех пор такие вот неведомые неубиваемые «формы жизни» начали возникать то здесь, то там, и их стали называть адзинами (или полулюдьми). К моменту начала действия их существует по крайней мере сорок шесть. Сорок седьмым становится японский школьник Кей (   Читать дальше...   )Жанр: приключения, сэйнэнРежиссер: Сэсита Хироюки / Seshita Hiroyuki /Продолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B7CDA9AAE40848E71A8B7DF8BC93B795A3CF02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523484   (402739) от 23.10.2012
-
-Kyoukai Senjou no Horizon II / Horizon in the Middle of Nowhere II / Горизонт на границе пустоты 2 [2012, TV, 13 серий] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402739.jpg" />
-</div>
-
-
-###  Подробнее
-
-После великой войны люди покинули родную планету и переселились в иной, совершенный «небесный мир». Вскоре он рухнул, а провидцы открыли, что человечество должно вернуться домой и пережить заново 10 тысяч лет истории – только тогда оно заслужит прощение и вернет дорогу к звездам. На Земле «возвращенцы» нашли лишь один уголок, пригодный для жизни (конечно же, Японию!), населенный немногими оставшимися аборигенами. Не желая тесниться, «продвинутые» создали параллельное измерение и начали грандиозный проект воссоздания мировой истории. Увы, на уровне XVII века Новой эры кто-то совершил ошибку, карманный мир схлопнулся, а его обитатели оказались на старой доброй Земле.
-Уже не церемонясь, «новые земляне» прогнали местных жителей, чья наука, похожая на магию, не могла соперничать с мощью пришельцев. Теперь изгои живут на огромных летающих кораблях и копят силы, чтобы разобраться с «хозяевами жизни» и вернуть родину. Единственный путь к этому – не тотальная война, а участие в возобновившейся исторической реконструкции (   Читать дальше...   )Жанр: приключения, комедия, фантастика, мехаРежиссер: Оно МанабуПродолжительность: TV, 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75216BC5ACA5464EBF1EF15E07EBA25958604AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685044   (402261) от 20.10.2013
-
-Fate/Kaleid Liner Prisma Illya / Судьба: Девочка-волшебница Илия [2013, TV, 10 эп.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ассоциация Магов отправила двух магов - Тосаку Рин и Лувию Эдельфельт - собирать Классовые Карты, которые содержат силу Слуг времён Войны за Святой Грааль. В помощь им выделили два могущественных магических жезла. Рин получила Магический Рубин, а Лувия - Магический Сапфир.
-
-Однако, из-за того, что девушки на дух друг друга не переносят, жезлы разорвали с ними контракт. Вскоре, Рубин нашёл себе нового хозяина. Им стала ничего не подозревающая школьница - Ильсиявель фон Айнцберн. И не смотря на все её протесты сделал из неё новую девочку-волшебницу. Теперь её зовут - Призма Илия. И её цель - собрать все карты.
-
-Сериал - махо-сёдзё спин-офф Fate/stay night, действие которого происходит в альтернативной основному франчайзу вселенной.Жанр: приключения, пародия, махо-сёдзёРежиссер: Онума СинПродолжительность: 10 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68795462011E6165ADB41FD23E7007A06E81EBD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

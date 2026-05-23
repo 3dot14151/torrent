@@ -1,3 +1,84 @@
+###  Публикация: 1717232   (59225) от 19.04.2024
+
+Giti VPN 11.0 Mod by Nnn [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Giti VPN с удобным интерфейсом и возможностью подключения в одно касание.
+Giti VPN, безопасная платформа, дает вам настоящую свободу в Интернете и конфиденциальность пользователей.
+
+Из локаций только USA.Тип издания: ModРазработчик: SASAAPPSПоддерживаемая ОС: Android 6.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717242   (59219) от 19.04.2024
+
+Malloc Privacy & Security VPN 2024.02.140 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Загрузите Malloc VPN: Privacy & Security, чтобы наслаждаться приватной и безопасной онлайн-активностью. Защитите себя от шпионских программ!Тип издания: PremiumРазработчик: Malloc PrivacyПоддерживаемая ОС: Android 9.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C79D5CBBAB030AF1A9BB6045DC32EB415A5F570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717386   (59179) от 19.04.2024
+
+tTorrent Pro  1.8.8 Paid by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+tTorrent - удобный, функциональный и из-за прочих свойств весьма востребованный торрент-клиент, что помогает пользователям легко и без каких-либо проблем загружать нужные им файлы. При этом можно будет не только скачивать, но и выгружать. Создавая и оформляя раздачи не сталкиваясь с неудобствами из управления. Ну а разнообразные настройки помогут подобрать оптимальный (   Читать дальше...   )Тип издания: PaidПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F4BC9ED9DB6AB295DC6578280F35761D41F2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684591   (59138) от 20.04.2024
 
 PDF Extra PDF Editor & Scanner v10.13.2479 Mod by Balatan [Ru/Multi]
@@ -6,7 +87,7 @@ PDF Extra PDF Editor & Scanner v10.13.2479 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +139,7 @@ TuneIn Radio v33.9 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +167,7 @@ WPS Office + PDF v18.8.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +193,7 @@ Square Home Launcher 3.0.12 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +219,7 @@ AIDA64 2.01 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +245,7 @@ Grab Photos From Videos / Фото из видео v11.1.9 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +271,7 @@ Easy Notes 1.2.33.0409 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +297,7 @@ App Manager 3.1.6 [Ru/Multi] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +325,7 @@ MiXplorer Silver 6.64.3-Silver Mod by Zilllot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +377,7 @@ Word Learn Languages v5.8 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +403,7 @@ Patephone / Патефон v10.11.17 Mod by vl80k747 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +429,7 @@ Carista OBD2 v8.4 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +455,7 @@ FBReader Premium v3.6.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +481,7 @@ Enhance it v4.1.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +533,7 @@ vpnify - Безлимитный VPN 2.1.9 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +559,7 @@ vpnify - Безлимитный VPN 2.1.9 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +585,7 @@ Listen Audiobook Player v5.2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +638,7 @@ ToonMe v0.7.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +664,7 @@ Malwarebytes Mobile Security 5.7.0+297 Mod by slavahm [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,90 +675,6 @@ Malwarebytes Mobile Security – это антивирусное приложе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F191F29940D89B8F543905535A09BF6254F1C89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720142   (57861) от 02.05.2024
-
-Malwarebytes Mobile Security 5.7.0+297 Mod by Balatan [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes Mobile Security – это антивирусное приложение для мобильных устройств, которое может полностью удалить даже самые передовые вредоносные программы. Продукты Malwarebytes доказали свою эффективность в защите компьютеров путем полного удаления всех видов вредоносных программ, включая вирусы, трояны, шпионское ПО, рекламное ПО и руткиты. Когда дело доходит (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.04.2024Разработчик: MalwarebytesПоддерживаемая ОС: Android 9.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D3AD582B0DA6D18D8BB48AFA1A853F3323C062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720481   (57792) от 03.05.2024
-
-VPN Servers for OpenVPN 46 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57792.jpg" />
-</div>
-
-
-###  Подробнее
-
-400 открытых VPN-серверов.
-Для этого приложения требуется приложение «OpenVPN для Android» для подключения к серверам (другие клиенты OpenVPN также могут работать).
-
-Все перечисленные серверы размещены добровольцами проекта VPN Gate Университета Цукуба, Япония. Они не так надежны, как платные VPN-сервисы, но они действительно бесплатны и доступны по всему миру.(   Читать дальше...   )Тип издания: FreeРазработчик: DSchmidtПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0140672F3CCD41D113530F21F772251429AB26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720354   (57756) от 03.05.2024
-
-Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57756.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Spotify можно бесплатно слушать миллионы треков. Здесь ты найдешь любимые песни и новую музыку со всего мира.
-• Слушай любимых исполнителей.
-• Находи новую музыку, видеоролики и подкасты.
-• Включай плейлисты, подобранные специально для тебя.(   Читать дальше...   )Тип издания: ModРелиз состоялся: 02.05.2024Разработчик: SpotifyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79F83B8E0872D003A5BEA633FCF0EA72D426B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

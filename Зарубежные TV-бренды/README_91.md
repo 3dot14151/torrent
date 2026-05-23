@@ -1,3 +1,55 @@
+###  Публикация: 1070799   (363793) от 08.11.2016
+
+Discovery. Как работают машины / Machines: How They Work (2016) HDTVRip (1-10 серий из 10)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Описание сериала, собственно, заложено в его названии. Многие видели подобные программы - "Как это устроено?", "Как это работает?", из этой передачи вы узнаете о работе самых разных по устройству и назначению машин.Телекомпания: Канада, Discovery ChannelЖанр: документальный, техникаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEECFA1DFB9E398B0DAC67E3F9AEE728BD942610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255599   (363621) от 18.10.2018
+
+Animal Planet: Неизведанный Индокитай / Wildest Indochina (2014) HDTV [H.264/1080i-LQ] (сезон 1, эпизоды 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Природа Индокитая хранит в себе удивительные сокровища животного мира. Здесь буйно процветают все формы жизни. Секрет такого разнообразия животных заключается в жарком влажном климате и огромном количестве различных сред обитания. Большинство животных и растений в ходе эволюции прекрасно адаптировались к ландшафту Индокитая и его муссонному климату, а также приобрели (   Читать дальше...   )Производство: США, Великобритания, Канада, Off The Fence, Blue Ant Media Productions Inc., Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс ХеммингПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 5 x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD51AE5D061F3CBDAEED818B388F16F8CEC5734D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255454   (363614) от 18.10.2018
 
 NG: Земля: Биография Планеты / Earth: Making of a Planet (2011) HDTV [H.264/1080i-LQ]
@@ -6,7 +58,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Animal Planet. Древо жизни / Africa's Trees of Life (2015) HDTV [H.264
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Animal Planet. Другой Китай с Найджелом Марвеном / 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Animal Planet: В дебрях Индии / Wildest India (2011) HDTV [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Animal Planet. Смертельные острова / Deadly Islands (2014) HDT
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Animal Planet: Планета мутантов (Жизненная сила) / M
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Animal Planet: Неизведанные острова / Wildest Islands (2012-2
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ Discovery. Жизнь и смерть на Эвересте / To Live or Die on 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ NG. Нотр Дам: гонка против ада / Notre-Dame. Race Against t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Animal Planet. Гангстеры дикой природы / Gangland Killers (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Discovery. Неделя космоса / Space Week (2018) HDTVRip 720p [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ NG: Международный аэропорт Дубай. Серия 10 / Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ Discovery: Американские Изобретатели / Invent It Rich (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D0A74A8C49F78AF2ACB3D7C77B9211FD6F0A6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417483   (357551) от 20.10.2020
-
-NG: Подъем "Коста Конкордии" / The Raising the Costa Concordia (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это эксклюзивная история о том, как проводились работы по подъёму и эвакуации круизного лайнера "Коста Конкордия", потерпевшего кораблекрушение около итальянского острова Джильо 13 января 2012 года.Производство: Великобритания / Windfall FilmsЖанр: ДокументальныйРежиссер: Colin CampbellПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F0DB8EDE3E731C4B5035E89846F3B838B0EEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417336   (357547) от 20.10.2020
-
-NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari. Snake Killers (2001) DVDRemux
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно, медоед - самое сильное плотоядное существо в нашем мире. Его традиционная добыча - птицы, пчелы, скорпионы, ящерицы и змеи, но подчас жертвами его смертоносных когтей и мощных челюстей становятся дикобразы, трубкозубы, антилопы и даже буйволы. Однако, при всей своей свирепости, медоед питает ненасытную страсть к меду. Перед Вами захватывающий фильм Дэвида (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Дэвид Хьюз, Кэрол ХьюзПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBDB0625706BD63A308788FEBEF30E70E460551
 ```
 
 https://mybot314.ru/tekegram_catalog/

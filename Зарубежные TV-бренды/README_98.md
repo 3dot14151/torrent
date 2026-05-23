@@ -1,3 +1,55 @@
+###  Публикация: 1334596   (294518) от 29.10.2019
+
+Деррен Браун: Чудеса / Derren Brown: Miracle (2016) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Автобиографический фильм расскажет историю знаменитого иллюзиониста и интеллектуала. В своем кругу его давно считают королем человеческих манипуляций. Его взгляд пробирает насквозь. Кажется, что он может пробраться в самые закутки души, туда, куда вход посторонним запрещен, но его это не останавливает. Люди в его руках всего лишь марионетки, которыми он управляет (   Читать дальше...   )Производство: США, Vaudeville Productions, NetflixЖанр: ДокументальныйРежиссер: Джулия Ноулз, Джон Л. СпенсерПеревод: Многоголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C907C99669B5680AC40AC35BD7BB102549FD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334826   (292681) от 30.10.2019
+
+Восстание дронов / Rise of the Drones (2013) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дроны, эти летающие роботы, всё быстрее и масштабнее заменяют пилотируемые самолеты. Они революционно преобразуют военные действия, позволяя нам видеть и уничтожать цели через полмира. Они сделали фантастику реальностью. Результат тесного сотрудничества учёных, программистов и пилотов открывает нам инновации, которые ведут нас в будущее, а сами дроны становятся всё (   Читать дальше...   )Производство: США, Pangloss Films, A NOVA ProductionЖанр: Документальный, военный, авиацияРежиссер: Питер ЙостПеревод: Двуголосый закадровый, профессиональный (Селена Интернешнл)Субтитры: АнглийскиеПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04582972D24AB35AC7488D561500DFF37D622EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962572   (292642) от 05.12.2015
 
 NG: Дикий Йеллоустоун: Волчица /  Wild Yellowstone: She Wolf (2013) HDTVRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@ NG: Дикий Йеллоустоун: Волчица /  Wild Yellowstone: She W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC: Horizon. Эпоха больших данных / Horizon. Age of Big Data 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ NG: Международный аэропорт Дубай. Серия 6 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ NG: Международный аэропорт Дубай. Серия 7 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ NG: Возмездие / Avenging Evil (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ NG: Международный аэропорт Дубай. Серия 1 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ NG: Международный аэропорт Дубай. Серия 9 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ NG: Международный аэропорт Дубай. Серия 8 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ NGW: TerraMater. Дикая природа Уганды / Wild Uganda (2018) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ Discovery. Священная сталь / Sacred Steel Bikes (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ Discovery: Невидимые миры. Вода / Invisible Worlds. Water (2010
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ BBC. Российская империя: Династия Романовых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ BBC: Забытые британские рабовладельцы / Britain's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ Discovery Channel Россия. Техногеника. Русский колл�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ BBC: Частная жизнь шедевров. "Свобода на барри
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ BBC. Великая битва Александра Македонского / A
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ NG. Ледяная дорога: Кошмар на дороге! / Ice Road Resc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +659,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,59 +671,6 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B887F69188B84D24332E0D58166FC4E79292A9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187489   (280117) от 28.11.2017
-
-Человек или робот? / Au Coeur des Robots (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роботы стали частью нашей повседневности. Произошла настоящая революция, и теперь придётся решать, какую роль отвести машинам, похожим на нас внешне. Роль наших коллег? Друзей? Любимых? Появится ли у каждого из нас собственный робот-двойник? Получат ли роботы лицензию на убийство? А может быть, мы наблюдаем зарождение новой формы жизни? В роботизированном мире эволюция (   Читать дальше...   )Производство: Франция, Arte France, G.E.I.E & Légitime défenseЖанр: Документальный, научно-познавательныйРежиссер: Бруно Виктор-ПюжебеПеревод: Двуголосый закадровый, профессиональный (Кондор)Субтитры: отсутствуютПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E6302297B59D927EED71B7F94D550A48C0EE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181224   (280115) от 28.11.2017
-
-Секретная война с наркотиками (История наркотиков) / Secret War on Drugs (2017) HDTVRip [H.264/720p-LQ] (4 серии из 4)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280115.jpg" />
-</div>
-
-
-###  Подробнее
-
-За последние 50 лет борьба с наркотиками стоила США триллион долларов. Сейчас, когда тюрьмы страны переполнены, а героиновая зависимость приобретает масштаб эпидемии, канал History подготовил сериал, посвященный этой проблеме.
-В каждой серии рассказывается о том, как Америка борется с наркотиками, и как эта борьба влияет на культурную, общественную и политическую (   Читать дальше...   )Телекомпания: США, History, Talos FilmsЖанр: Документальный, спецслужбы, исследованиеПеревод: ДублированныйПродолжительность: 4 х ~ 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3B6E574493D9AB2160A274FE88968A8CE0C7AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

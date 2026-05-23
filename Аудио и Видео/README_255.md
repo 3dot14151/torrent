@@ -1,3 +1,32 @@
+###  Публикация: 1430446   (173893) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 9 (2016) [AAC|~323 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Soundset City - Floating Away (Dream Lounge Mix) (5:02)
+02. Marie Therese - Endless Time (4:28)
+03. Artenovum - Siberian Skys (Wide Sphere Cut) (4:43)
+04. Pascheba - Satori (4:11)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0602DD2E7503D76CB1C67E65DA0EA2F2AF15CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430419   (173868) от 10.12.2020
 
 VA - The Forest Chill Lounge, Vol. 11 (2017) [AAC|~313 Kbps] <Chillout, Lounge, Downtempo>
@@ -6,7 +35,7 @@ VA - The Forest Chill Lounge, Vol. 11 (2017) [AAC|~313 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - The Forest Chill Lounge, Vol. 15 (2019) [AAC|~314 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - The Forest Chill Lounge, Vol. 8 (2016) [AAC|~323 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - The Forest Chill Lounge, Vol. 13 (2018) [AAC|~311 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - The Forest Chill Lounge, Vol. 14 (2019) [AAC|~309 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - The Forest Chill Lounge, Vol. 6 (2015) [AAC|~305 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - The Forest Chill Lounge, Vol. 4 (2014) [AAC|~315 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - The Forest Chill Lounge, Vol. 5 (2014) [AAC|~318 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - The Forest Chill Lounge, Vol. 10 (2017) [AAC|~314 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - The Forest Chill Lounge, Vol. 2 (2012) [AAC|~313 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -354,7 +383,7 @@ Astral Projection - In the Mix (2000) [AAC|329-362 kbps] <Goa Trance, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - The Forest Chill Lounge, Vol. 1 (2012) [AAC|~315 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - A Tribe Called Kotori 1 (2018) [AAC|~330 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - A Tribe Called Kotori 2 (2018) [AAC|~333 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - syncmusic - Essentials, Vol. 2 (2017) [AAC|~337 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - syncmusic - Essentials, Vol. 3 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - A Tribe Called Kotori 3 (2019) [AAC|~328 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - syncmusic - Essentials, Vol. 1 (2013) [AAC|~335 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [AAC|~339 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +644,7 @@ David Knopfler - Shooting for the Moon (2021) [AAC|~306 Kbps] <Rock, Folk>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,7 +673,7 @@ Deep Purple - Turning to Crime (2021) [AAC|~328 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -699,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10706D41A228937E656906DCE6D23DAEA985ECEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430726   (169970) от 11.12.2020
-
-Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [AAC|~330 Kbps] <Chanson; Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я вам мозги не пудрю (2:45)
-02. Штрафные батальоны (2:59)
-03. Жил я с матерью и батей (1:16)
-04. Их восемь, нас двое (2:43)(   Читать дальше...   )Жанр: Chanson; PopПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3C0567480367C8A68CC849EC3984E5D9F226A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

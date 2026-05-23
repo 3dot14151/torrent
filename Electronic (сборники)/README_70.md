@@ -1,3 +1,148 @@
+###  Публикация: 1522159   (760360) от 06.01.2022
+
+VA - Beatport Electro House: Sound Pack #391 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 391-й музыкальный релиз от Beatport в стиле Electro House вошло большое число прекрасных замыслов, которые в лучшем виде добрались до слушателя. Композиции, составляющие танцевальный сборник, занимательны и чрезвычайно легки для слуха. Каждый на релизе отыщет ту самую запоминающуюся мелодию что будет крутиться в голове творя отличное настроение.001. Croatia Squad - Drop That Skirt
+002. Gabriel Pinheiro - Different Now
+003. Ronnie Spiteri - Demons
+004. Alban Berisha - Mirage(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640AE275E15B154E450F21EE2006C9A2B9297C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522171   (760358) от 06.01.2022
+
+VA - The Techno Streaming Sound (Vol.1) (2021) [MP3|320 Kbps] <Techno, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Непредсказуемый музыкальный стиль! Все композиции сборника электронной музыки "The Techno Streaming Sound" характеризуются синтезом коротких и длительных периодов, неожиданным замедлением и ускорением ритма. Еще занятнее посмотреть танцы исполняемые под музыку этого стиля, это ритм и энергетика переданная языком движений. Такие выступления запоминаются (   Читать дальше...   )001. Donato Dozzy - Wooden Dolls Don't Cry
+002. Gonzalo Md - Valkyr Uv
+003. Astronomical Telegram - Ahora Ii
+004. Psyko Punkz - Embody Love(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 10:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADC9F4DE4399EF00B7997CA2407A36C9FA4F2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522157   (760352) от 06.01.2022
+
+VA - Beatport Tech House: Sound Pack #390 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Такая музыка не "пишется на коленке", чтобы получить приемлемый результат авторам этого направления электроники приходится приложить усилия своего творческого потенциала. Чего только стоит запись вокала, сведение и живой аккомпанемент, без кропотливой работы в студии не обойтись, что однозначно вызывает уважение001. Lilly Noise - The Bike Day
+002. Makloud - King
+003. Murley Rune - Dub Substation
+004. Lappo DJ - Afterhall(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 07:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784D4A13EF909A35608652FBE7FF6021D79E309E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522167   (760348) от 06.01.2022
+
+VA - NYE Trance December Set (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Транс - это мелодии чувств, от прослушивания которых испытываешь удовольствие. Немногим удаётся понять и осознать данный стиль музыки, но однозначно повезло тем, кто способен проникнуться чудесными мелодиями и звуками, которые приносит с собой транс музыка.001. Alvaro Santis - Silent Punch
+002. Dan Thompson - Atlas (Radio Edit)
+003. Paul Todd - La Graciosa
+004. Corrado Baggieri - Exciderunt(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9ED2689FE02D4ADF8F0D035650D90DAE8FFDB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522163   (760245) от 06.01.2022
+
+VA - DC Radio: EDM Artist Of The Month (2021) [MP3|320 Kbps] <EDM, Dance, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прожигаем новогодние праздники по полной программе под звуки лучшей и свежей танцевальной музыки. Делаем звук громче, веселимся до утра, наслаждаемся позитивной музыкой, дарим друг другу улыбки и летим на встречу своей мечте!001. The Pet Detectives - Molehill
+002. Perfect Pitch - Outa Space!
+003. Schizoofr3nik - Find Me
+004. David Enguix - Espace Project(   Читать дальше...   )Жанр: EDM, Dance, Club HouseПродолжительность: 26:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261D202BF478B31ADFD3BD30654CC1F04D075707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215198   (759981) от 25.03.2018
 
 VA - Race Around Hits Music (2018) [MP3|320 Kbps] <Electro, Twerk, Progressive, Other>
@@ -6,7 +151,7 @@ VA - Race Around Hits Music (2018) [MP3|320 Kbps] <Electro, Twerk, Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Pump The Beat (2018) [MP3|320 Kbps] <Electro Bass, DnB, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - 200 Самых Злых Треков Весны (Sound Clinic - Bass Editio
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Record Super Chart #529 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Pure Deep Sexy (2016) [MP3|320 кб/с] <Deep House, Chill House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Existence (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Luxury Bossa Lounge (2018) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Музыка для Авто from Najim Hassas 3 (2011) [MP3|320 kbps]<Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +389,7 @@ VA - Summer Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +418,7 @@ VA - Wine Lounge, Vol. 3 (25 Bar Lounge Tunes) (2016) [MP3|320 кб/с] <Downtem
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +447,7 @@ VA - Pictures Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +476,7 @@ VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +505,7 @@ VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +534,7 @@ VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +563,7 @@ VA - Club Dance Switch Miracles (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +592,7 @@ VA - Interference -  Hardstyle Techno Mix (2016) [MP3|320 кб/с] <Hardstyle, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +621,7 @@ VA - Звездный летний клубный драйв (2016) [MP3|253-320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +650,7 @@ VA - Ibiza Summer (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +679,7 @@ VA - Cosmic Machine - The Sequel (2016) [MP3|320 кб/с] <Electronic, Experimen
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +708,7 @@ VA - Beatport Disco House: Electro Sound Pack #125 (2020) [MP3|320 Kbps] <Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +737,7 @@ VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,151 +751,6 @@ VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAAB96AD80FBB721DD61034C6D01E54CDECB5A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522857   (754939) от 09.01.2022
-
-VA - E-Dance Tech House: Club Trendy Session (2022) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый трек в этом плейлисте имеет нечто особенное. Эти записи пробуждают очень много прекрасных чувств и воспоминаний, и я надеюсь, что то же самое произойдёт и с Вами.001. Eserex - Tricks & Sticks
-002. Danil Gurov & Broska - Hotta
-003. Paul Parsons - Dog Days
-004. Defunkt Hau5 - Poison(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 09:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C4868747CCE7B1CE57D50482CA7AFA6DB4582A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215871   (754853) от 28.03.2018
-
-VA - The Seven Sense (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Florito - Konja Tokyo De
-002. Sean Hayman - So Beautiful (Skyscraper Cut)
-003. Blue Side - Final Word
-004. Dreamscape - Nautica (Ambient Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4F43AEE4E381A76F9202E62F302970152C88B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522859   (754516) от 09.01.2022
-
-VA - Dreaming Techno: Electronic Mi (2022) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечта — это личное создание новых образов! Это продукт воображения, направленный на будущее, притом желаемое будущее и как правило, под соответствующую музыку. Музыку, которая стимулирует человека приложить усилия к осуществлению задуманного.001. Invector & Radianze - Erase Me
-002. Christian Smith - Atmosphere
-003. Herb Cabral - The Refugee
-004. Cravo - Forte2014(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 10:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C29DC2A5CF722C3A76F3C93DD367313AC0EC9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522868   (754515) от 09.01.2022
-
-VA - Beatport Techno Electronic: Sound Pack #393 (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техно музыка охватывает обширную аудиторию молодых людей и какое-то время было довольно модным течением. Но любое модное направление поздно или рано сменяется другим, и техно со временем все дальше и дальше уходило в андеграунд. Возможно, причина была в том, что эту музыку практически невозможно слушать дома — она предназначена для клубов, вечеринок и танцев.001. Udubb - Abstract
-002. Makaja Gonzales - In The Heat Of The Night
-003. Milo Spykers - Belgian Bass
-004. Davide Abbrescia - Ayrya(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 09:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4B973A68F79CCED4A58703303067B0E6E7B60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018691   (754098) от 21.05.2016
-
-VA - Trance Maniacs Party - Melody Of Heartbeat #164 (2016) [MP3|320 кб/с] <Trance, Vocal Trance,  Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer Ft. Ange - Imagination (Adam Navel's Massive Air Remix) 7:27
-02. Shahead feat. Juliet Lyons - Outside Of Time (Mobil Remix) 6:16
-03. Mike Van Fabio & Sarah Shields - A Light That Never Dies (Original Mix) 5:23
-04. Tenishia - Love Survives (Big Room Mix) 5:25(   Читать дальше...   )Жанр: Trance, Vocal Trance,  Uplifting TranceПродолжительность: 01:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6758CF1D3704B25F0FBFBF3AFAC3DBCCE388540B
 ```
 
 https://mybot314.ru/tekegram_catalog/

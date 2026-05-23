@@ -1,3 +1,206 @@
+###  Публикация: 837756   (736334) от 29.01.2022
+
+Fausto Papetti - Magic Sax (2012) 2CD [MP3|320 кб/с]<Instrumental, Saxophone, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. London Fever (4:10)
+2. Medley - Samba Pa Ti (3:59)
+3. Brivido Felino (3:56)(   Читать дальше...   )Жанр: Instrumental, Saxophone, Easy ListeningПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527858   (735838) от 30.01.2022
+
+Anais Mitchell (Anaïs Mitchell) - Anais Mitchell (Anaïs Mitchell) (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Brooklyn Bridge (4:19)
+ 02. Bright Star (3:11)
+ 03. Revenant (3:30)
+ 04. On Your Way (Felix Song) (2:54)(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9835910F7B21D765902FD1AF28F2DB8BAAB751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398776   (735125) от 27.07.2020
+
+Нейромонах Феофан - Акустика (2020) [MP3|320 Kbps] <Folk, Acoustic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Под Драм Легко (Акустическая Версия)
+2. Пойдём Со Мной (Акустическая Версия)
+3. Сияние (Акустическая Версия)
+4. Камыш (Акустическая Версия)(   Читать дальше...   )Жанр: Folk, AcousticПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F281B0BA47E620E6A39AD43EBD9E5684567F3743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527882   (734956) от 01.02.2022
+
+Anais Mitchell (Anaïs Mitchell) - Xoa (2014) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Any Way the Wind Blows (2:30)
+ 02. Out of Pawn (4:13)
+ 03. Your Fonder Heart (3:21)
+ 04. Why We Build the Wall (3:35)(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E765ED9AEF941460BAAA88069FA884F486B719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399240   (733870) от 30.07.2020
+
+VA - Waykey (2007) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ethnic, Folk, New AgeПродолжительность: 01:08:41Трэклист: 01. Efrain Mamani - Dream Catcher
+02. Efrain Mamani - Spirit Voices
+03. D.R. - Valle Del Alto
+04. Sixto Ayvar - Wairapa Muspuni(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F734439DE8C2C7648D7B9D74685A2D2AD3AAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399237   (733837) от 30.07.2020
+
+Игорь Крутой - ...без слов... (2000) [FLAC|Lossless|tracks + .cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Песнь о друге
+02. Эвридика - дэнс
+03. Нежность
+04. Коктейль Джаз(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82BE752FD5ACD02E18FDD6E65FD379774FFFAB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529236   (733164) от 05.02.2022
+
+Willie Nelson - The Willie Nelson Family (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven And Hell
+02. Kneel At The Feet Of Jesus
+03. Laying My Burdens Down
+04. Family Bible(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAAA1516C62C0E7C78C04146FAA8BA8D8EE8816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 180350   (732824) от 01.08.2020
 
 VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
@@ -6,7 +209,7 @@ VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Deep Forest - Evo-Devo (2016) [MP3|320 кб/с] <New-Age, World-Music, Electroni
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, F
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ The Sleep Principle - Dreams of Luna (Music for Sleeping) (2016) [MP3|320 кб/�
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [FLAC|Lossless|image + .
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Absolute Country (1995) [APE|Lossless|image + .cue] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su 
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +557,7 @@ Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +583,7 @@ Geoffrey Downes - Evolutio (1994) [MP3|320 кб/с] <Instrumental, Electronic, S
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +612,7 @@ VA - Are You Lonesome Tonight. 23 Romantic Instrumentals (unknown year) Unoffici
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +641,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [MP3
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +670,7 @@ Pekka Tiilikainen & Beatmakers - Rautalanka Collection (2006) [MP3|320 кб/с] 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +699,7 @@ Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [MP3|320 кб/с] <Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +728,7 @@ Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,209 +742,6 @@ Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7079C78F6527448F6F00FC8C5ACFA852FC8BFE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127723   (730358) от 22.04.2017
-
-Дидюля & Chris Wonderful - Аквамарин (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Свадебное путешествие
-2. Страна дураков
-3. Белый месяц
-4. Посох шамана(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FC5E40E806650361036B41874E60F4C3BECC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283973   (730045) от 20.02.2019
-
-DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <Folk-rock, Gypsy Punk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Shot (05:22)
-02. Let Me Sleep (04:39)
-03. Lose You In the Crowd (04:41)
-04. Love Letters (04:25)(   Читать дальше...   )Жанр: Folk-rock, Gypsy PunkПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F96A47E36880F951A7002E0116062B0941EE433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128003   (730039) от 23.04.2017
-
-VA - India Experience (Vol. 1) (2015) [MP3|320 Kbps] <Downtempo, Lounge, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brass - Indian Landscape
-02. Brass - Delhi Nights
-03. Brass - Sun After Rain
-04. Brass - Calcutta Groove(   Читать дальше...   )Жанр: Downtempo, Lounge, New Age, WorldПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4BC0CF84AA8FCF50A03AE073C3C4AC4772B875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283905   (730015) от 20.02.2019
-
-VA - Не грози Южному Централу, попивая сок у себя в квартале / Don't Be A Menace To South Central While Drinking Your Juice In The Hood (1996) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730015.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winter Warz (Cappadonna)
-2. Renee (Lost Boyz)
-3. Funky Sounds (Lil Bud & Tizone)
-4. Give It Up (Jodeci)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5269F424AB3102D1CC116336A735EA2852B46330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283977   (730012) от 20.02.2019
-
-Justin Hurwitz - First Man (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-15 (01:22)
-02. Good Engineer (01:06)
-03. Karen (00:45)
-04. Armstrong Cabin (01:15)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA6DB8B431A93668F59587663A63D3C2DCB81A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128070   (729976) от 23.04.2017
-
-Richard Osborn - Endless (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Folk, World, & Country>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Monastery Garden (3:51)
-02. Streets of Laredo, a Pastorale (4:34)
-03. Still I Will Be Merry (6:22)
-04. Breton Fisherman's Prayer (4:33)(   Читать дальше...   )Жанр: Acoustic, Folk, World, & CountryПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FAC1E711428E12C7E745252C9CA65168A6CCE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284285   (729940) от 20.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  6 (1990) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of The Bumble Bee / Hungarian Dance No. 5 / Light Cavalry  Carmen
-02. Blue Moon
-03. Holy Halls
-04. Here, There and Everywhere/  Hey Jude(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4D8426B7E070F35220178B64DC2BC192D23CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

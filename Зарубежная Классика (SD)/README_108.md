@@ -1,3 +1,107 @@
+###  Публикация: 1620137   (199348) от 25.04.2023
+
+Наш человек в Гаване / Our Man in Havana (1959) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Куба времён Батисты. Скромный продавец пылесосов Уормолд неожиданно становится резидентом английской разведки. Чтобы как-то оправдать денежное вознаграждение, он начинает выдумывать агентов, якобы им завербованных. К удивлению Уормолда, его фальшивые донесения воспринимаются всерьёз — не только начальством, но и врагами.Производство: Великобритания / Kingsmead Productions, Columbia Pictures CorporationЖанр: триллер, драма, комедия, криминалРежиссер: Кэрол РидАктеры: Алек Гиннесс, Берл Айвз, Морин О’Хара, Эрни Ковач, Ноэл Кауард, Ральф Ричардсон, Джо Морроу, Грегуар Аслан, Пол Роджерс, Рэймонд ХантлиПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667DCFF903D1FFBA22A0937FABAA5C9372AAF25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620286   (199250) от 26.04.2023
+
+Домой с холма / Home from the Hill (1960) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Богатый и властный Уэйд, любитель женщин, женат на Ханне. Их сын Терон, воспитываемый женой в полной зависимости от матери, взрослеет и начинает догадываться о шокирующих вещах про своих родителей. Уэйд всё время ходит «по лезвию ножа» и происходит трагедия, которая ставит под сомнение существование семьи....Производство: США / Sol C. Siegel ProductionsЖанр: драма, мелодрамаРежиссер: Винсент МиннеллиАктеры: Роберт Митчем, Элинор Паркер, Джордж Пеппард, Джордж Хэмилтон, Эверет Слоун, Луана Паттен, Энн Сеймур, Констанс Форд, Кен Ренард, Рэй ТилПеревод: Многоголосый профессиональный, СВ-Дубль по заказу ГТРК "Культура"Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 02:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FFAD405C95EA5D8286AB547AF2BFF4F37E2B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624026   (199245) от 28.04.2023
+
+Пулеметчик Келли / Machine-Gun Kelly (1958) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Грабитель банков по кличке Пулеметчик Келли становится врагом общества №1, благодаря действиям одной честолюбивой дамы, которая умело манипулирует влюбленным в нее гангстером.Производство: США / El Monte ProductionsЖанр: фильм-нуар, боевик, криминал, биографияРежиссер: Роджер КорманАктеры: Чарльз Бронсон, Сюзан Кэбот, Мори Амстердам, Ричард Девон, Джек Ламберт, Фрэнк ДеКова, Конни Гилкрайст, Уолли Кампо, Барбура Моррис, Лори МартинПеревод: Многоголосый профессиональный (5 канал, Санкт-Петербург)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0EA9530AFACB3CE4B78E4D2735FAC6AB7211EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625474   (198928) от 05.05.2023
+
+Кандидат / The Candidate (1972) WEB-DLRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Юристу Биллу МакКею поступает предложение от представителей Демократической партии США участвовать в избирательной кампании, чтобы получить место в сенате. Он соглашается, но вскоре понимает, что не он задает правила игры.Производство: США / Redford-Ritchie Productions, Wildwood EnterprisesЖанр: драма, комедияРежиссер: Майкл РитчиАктеры: Роберт Редфорд, Питер Бойл, Мелвин Дуглас, Дон Портер, Аллен Гарфилд, Карен Карлсон, Куинн К. Редекер, Морган Аптон, Майкл Лернер, Кеннет ТобиПеревод: 2 x Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB1D84F5BDF7F9C59CD7885EF88D7001F5B9078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624685   (198923) от 03.05.2023
 
 Последняя гонка / The Last Run (1971) WEB-DLRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D8BFFEB723FD9FCA668D3576A746886E3D6C506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654890   (193820) от 24.08.2023
-
-Пляжный зонт / L'ombrellone (1965) WEB-DLRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые приключения нескольких супружеских пар средних лет, приехавших отдыхать на средиземноморское побережье Италии. Пусть наши герои уже не молоды, но в амурных похождениях они дадут фору любому юнцу!Производство: Италия, Франция, Испания / Altura Films S.L., Les Films du Siècle, Ultra FilmЖанр: комедияРежиссер: Дино РизиАктеры: Энрико Мария Салерно, Сандра Мило, Даниэла Бьянки, Трини Алонсо, Аличия Бранде, Хосе Кальво, Педро Родригез Де Кеведо, Лелио Луттацци, Раффаель Пизу, Леопольдо Триесте, Вероника Венделл, Жан Сорель, Хельга ЛинеПеревод: Одноголосый любительский, А. ГерусовЯзык озвучки: Русский, итальянскийСубтитры: Русские (forced), итальянские, английскиеПродолжительность: 01:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E24287CE5042FBA8B53F9779B625BA174F7EFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657162   (193012) от 02.09.2023
-
-Двухполосное шоссе / Two-Lane Blacktop (1971) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193012.jpg" />
-</div>
-
-
-###  Подробнее
-
-По рассказу Уилла Корри... Водитель и Механик путешествуют по стране на своей форсированной Шеви 55, попутно зарабатывая деньги на драгрейсингах... К ним подсаживается девушка-хиппи, тоже бродяга... Потом они встречают водителя Джи-Ти-О (GTO) и, после недолгих разговоров, решают вступить в гонку по стране, победителю которой достанется автомобиль проигравшего... (   Читать дальше...   )Производство: США, Michael Laughlin Enterprises, Universal PicturesЖанр: драмаРежиссер: Монте ХеллманАктеры: Джеймс Тейлор, Уоррен Оутс, Лори Бёрд, Дэннис Уилсон, Дэвид Дрэйк, Ричард Рут, Руди Вёрлицер, Жаклин Хеллман, Билл Келлер, Гарри Дин СтэнтонПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английские SDHКачество: BDRipПродолжительность: 01:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158ABFA67152ED1A723A2DB326B4D78855F4BF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587593   (192660) от 31.10.2022
-
-Леди в поезде / Lady on a Train (1945) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на рассказе Лесли Чартерис и рассказывает о Ники, любительнице книжных детективов, которая из окна поезда становится свидетельницей убийства в соседнем здании. После того как она сообщает об убийстве в полицию, которая быстро отвергает её версию, Ники обращается к популярному автору детективов с просьбой помочь ей раскрыть преступление...Производство: США, Universal PicturesЖанр: нуар, мелодрама, комедия, криминал, детектив, триллерРежиссер: Чарльз ДэвидАктеры: Дина Дурбин, Ральф Беллами, Дэвид Брюс, Джордж Кулурис, Аллен Дженкинс, Дэн Дьюриа, Эдвард Эверетт Хортон,Жаклин деВит, Патриша Морисон, Элизабет ПаттерсонПеревод: профессиональный многоголосый (Инфофильм)Субтитры: английские SDHПродолжительность: 01:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D6025EF07F4D9D646D60F284A157BB59573FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551566   (192491) от 31.10.2022
-
-История любви / Love story (1970) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноимённому бестселлеру Эриха Сигала (1970). Молодой человек, студент престижного колледжа из очень богатой семьи, полюбил студентку из семьи очень скромного достатка. Они поженились, пережили и неприятные моменты, и счастливые, но вдруг молодая жена смертельно заболевает... Фильм считается одним из самых романтичных по версии Американского института (   Читать дальше...   )Производство: США, Love Story Company, Paramount PicturesЖанр: драма, мелодрамаРежиссер: Артур ХиллерАктеры: Эли МакГроу, Райан О`Нил, Джон Марли, Рэй Милланд, Рассел Найп, Кэтрин Бальфур, Сидни Уолкер, Роберт Модика, Уолкер Дэниелс, Томми Ли ДжонсПеревод: дублированный (Netflix), авторский (Сергей Кузнецов)Субтитры: русские (надписи и полные), английскиеПродолжительность: 01:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1026DF004F749B92E85E284993B5E4053952A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

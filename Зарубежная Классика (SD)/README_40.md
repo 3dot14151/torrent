@@ -1,3 +1,109 @@
+###  Публикация: 1214607   (750934) от 30.03.2018
+
+Прекрасная лгунья / Die schоne Lugnerin (1959) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в Вене в 1815 году, когда там заседал Венский конгресс. Юная красавица Фанни Эмметсридер, родом из простой семьи, зарабатывает на жизнь изготовлением дамских корсетов. Она влюблена в Мартина, который выдаёт себя за камердинера князя Меттерниха. На самом деле Мартин — граф, которому по положению не следовало бы вступать в связь с простолюдинкой. (   Читать дальше...   )Производство: Германия (ФРГ), Франция / Real-Film GmbH, Regina-FilmЖанр: КомедияРежиссер: Аксель фон АмбессерАктеры: Роми Шнайдер, Жан-Клод Паскаль, Поль Гер, Жаклин Марбо, Хельмут Лонер, Шарль Ренье, Ганс Мозер, Симона Пари, Вера Вальмонт, Йозеф МейнрадПеревод: Одноголосый закадровый (SATKUR)Субтитры: ОтсутствуютПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F514A69EB8FE040857A0A764404E35AE0E4699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318039   (750492) от 13.04.2011
+
+Каждое утро я умираю / Each Dawn I Die / Killer Meets Killer (1939) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Заключенный в тюрьму за убийство после написания статьи о коррупции, репортер Фрэнк Росс уверен, что сможет доказать свою невиновность и выйти на свободу. Но не так работает система тюрьмы РОКИ ПОИНТ. Охрана жестока, работа на мельнице жутко нескончаема, а силы с которыми Росс боролся на свободе намерены надолго удержать его за решеткой. Вера Фрэнка поколебалась (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: Нуар, триллер, драма, криминал, гангстерскийРежиссер: Уильям КилиАктеры: Джеймс Кэгни, Джордж Рафт, Джейн Брайан, Джордж Бэнкрофт, Макс Розенблум, Стэнли Риджес, Алан Бакстер, Виктор Джори, Джон Рэй, Эдвард ПолиПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85562AB1D4217A1A0E7C2413A700007EBB6F87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018154   (749966) от 23.05.2016
+
+Клоуны / I clowns (1970) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм о цирке, где царит атмосфера игры и казни, праздника и бойни, изящества и безумия и — КЛОУНЫ! Могущественный Белый Клоун и Рыжий — воплощение покорности. В картине клоуны делают все, что им хочется: ломают, поджигают, катаются по полу, а зритель лишь восхищается и аплодирует... Музыку к этому замечательному фильму написал - Нино Рота.Производство: Италия, Франция, Германия (ФРГ)Жанр: КомедияРежиссер: Федерико ФеллиниАктеры: Федерико Феллини, Риккардо Билли, Тино Скотти, Фанфулла, Данте Маджо, Галлиано Сбарра, Нино Терцо, Джакомо Фурия, Карло Риццо, Джиджи Редер, Альваро Витали, Анита Экберг, Пьер Этекс, Анни Фрателлини, Чарли Ривель, Анна Лина Алберти, Этторе Бевилакуа, Ширли Корригэн ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F90D0AFC49F6F666BE62980B85219299792CA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018088   (749752) от 23.05.2016
+
+Сумасшедшие на стадионе / Les fous du stade (1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая комедия, которая входит в список ста самых популярных во Франции картин за всю историю кино.
+В маленьком французском городке должны состояться спортивные соревнования. Весь город украшен флагами и транспарантами, но тут появляются они, и все в очередной раз становится с ног на голову.
+Парни собираются принять участие в состязаниях, чтобы доказать, что (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Клод ЗидиАктеры: Жерар Филипелли, Жан-Ги Фешнер, Жерар Ринальди, Поль Пребуа, Мартин Келли, Жерар Кроук, Жак Сейлер ...Перевод: Дублированный, профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440780559E1F33C7B78B37268C27CE23D757CB37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516666   (749676) от 12.01.2022
 
 Ким / Kim (1950) DVDRip [H.264]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B4279F545261EE76A13494E6DA8175952CC8CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 47515   (743804) от 17.07.2020
-
-Пункт назначения - луна / Destination Moon (1950) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743804.jpg" />
-</div>
-
-
-###  Подробнее
-
-После многолетних научных стараний, группа ученых из США решает, что пришла пора осваивать просторы космоса, и отправляет корабль на Луну. Освободившись от Земной атмосферы, астронавты сталкиваются с угрозой полного отказа оборудования и всеми радостями отсутствия гравитации. Однако главное открытие ожидает их впереди. По прибытии на Луну, команда с ужасом понимает, (   Читать дальше...   )Жанр: фантастикаРежиссер: Ирвинг Пичел / Irving PichelВ ролях: Джон Арчер, Уорнер Андерсон, Том Пауэрс, Дик Уэссон, Эрин ОБрайн-Мур, Грэйс Стэффорд, Франклин Фэрнум, Эверетт Гласс, Кеннер Дж. Кемп, Нокс МэннингПеревод: Профессиональный (многоголосый закадровый)Субтитры: нетПродолжительность: 01:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE51E87D139E8B69FB1FFCED19E6E064886A799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280533   (743403) от 13.02.2019
-
-Вестерн Юнион / Western Union (1941) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743403.jpg" />
-</div>
-
-
-###  Подробнее
-
-События этой картины рассказывают о строительстве телеграфной линии «Вестерн Юнион» от Омахи, штат Небраска, до Солт-Лейк Сити, штат Юта. Рэндолф Скотт сыграл преступника, пытающегося исправиться и зарабатывать на хлеб честным путем…Производство: США / 20th Century Fox Film CorporationЖанр: Вестерн, ИсторияРежиссер: Фриц ЛангАктеры: Роберт Янг, Рэндольф Скотт, Дин Джэггер, Вирджиния Гилмор, Джон Кэрредин, Слим Саммервилл, Чилл Уиллс, Бартон МакЛэйн, Расселл Хикс, Виктор КилианПеревод: Двухголосый  закадровый (СВ-Дубль)Субтитры: Русские (Forced, Full), английскиеПродолжительность: 01:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8AAF0B1FBD19993879A3678BA1AFD543BDF6449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018484   (743335) от 27.05.2016
-
-Горячие миллионы / Hot Millions (1968) DVDRip [H.264] [АVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маркус, отсидев срок за растрату, выходит из тюрьмы. Познакомившись с талантливым программистом Цезарем Смитом, он убеждает его исполнить мечту всей жизни Цезаря — отправиться на охоту за бабочками в бассейн Амазонки. Используя резюме Цезаря, Маркус устраивается на работу в крупную корпорацию и затевает сложную и длинную аферу под самым носом у начальства. Попутно (   Читать дальше...   )Производство: Великобритания, США / Metro-Goldwyn-Mayer (MGM)Жанр: Комедия, КриминалРежиссер: Эрик ТилльАктеры: Питер Устинов, Мэгги Смит, Карл Молден, Боб Ньюхарт, Роберт Морли, Сесар Ромеро, Льюис Александр, Линда Барон, Дэвид БедардПеревод: Авторский (В.Рутилов)Субтитры: ОтсутствуютПродолжительность: 01:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880D13763548EF016D827436A73E1C585CF0A9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216345   (743113) от 04.04.2018
-
-Замороженный / Hibernatus (1969) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбер де Тартас, богатый промышленник, живет счастливо со своей женой Эдме и сыном. Но внезапно странное событие потрясает их жизнь: на полюсе найден замороженный дедушка его жены, пролежавший в ледяной глыбе 65 лет. Его выводят из состояния зимней спячки, а чтобы не травмировать дедушкину психику, пытаются инсценировать вокруг него жизнь начала XX века. Но в их планы (   Читать дальше...   )Производство: Франция, Италия / Gaumont International, Rizzoli Film S.p.a.Жанр: Фантастика, КомедияРежиссер: Эдуар МолинароАктеры: Луи де Фюнес, Микаэль Лонсдаль, Клоди Жансак, Бернар Алан, Анник Алан, Оливье Де Фюнес, Эльетт Демэ, Мартина Келли, Жак Легра, Паскаль МаззоттиПеревод: Дублированный, многоголосый закадровый, двуголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CE1DFBAAABFA32337A9D7576D2F28674D89643
 ```
 
 https://mybot314.ru/tekegram_catalog/

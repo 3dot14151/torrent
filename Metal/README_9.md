@@ -1,3 +1,33 @@
+###  Публикация: 602501   (997606) от 13.01.2013
+
+Ni - Ni [EP] (2012) [MP3|320 кб/с]<Mathcore / Math Rock / Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 - Non
+02 - El Gringo
+03 - Grand Barbier
+04 - Marquage Culotte
+05 - Carl LewisЖанр: Mathcore / Math Rock / ExperimentalПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514A9142DB812CF19C9D259365F6BE407483C44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603572   (996764) от 16.01.2013
 
 My Bitter Half - No More Idols (2013) [MP3|320 кб/с]<Deathcore>
@@ -6,7 +36,7 @@ My Bitter Half - No More Idols (2013) [MP3|320 кб/с]<Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -41,7 +71,7 @@ Fen - Dustwalker (2012) [MP3|320 kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -74,7 +104,7 @@ Dreams After Death - 2 альбома (2011-2012) Дискография [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -105,7 +135,7 @@ Stained Blood - One Last Warning (2013) [MP3|320 kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +169,7 @@ Newsted - Metal (2013) EP [MP3|320 kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +198,7 @@ Mutiny Within - Mutiny Within 2: Synchronicity (2013) [MP3|320 kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -203,7 +233,7 @@ Zaraza - 2 альбома + Demo (1994 - 2003) Дискография [MP3|320 �
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -235,7 +265,7 @@ Angellore - 2 EP (2008-2009) [MP3|128 кб/с]<Atmospheric Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -261,7 +291,7 @@ Fall Of Mankind - Frolic Among Remnants (2012) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +326,7 @@ Proven Decadence - Equilibrium Meltdown (EP) (2012) [MP3|320 кб/с]<Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -330,7 +360,7 @@ Jorn - Symphonic (2013) [MP3|320 кб/с]<Symphonic, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -365,7 +395,7 @@ Sons Of Aeon - Sons Of Aeon (2013) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +430,7 @@ Infant Annihilator - The Palpable Leprosy of Pollution (2012) [MP3|320 кб/с]<
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +465,7 @@ Stratovarius - Unbreakable (2013) EP [MP3|320 кб/с]<Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -464,7 +494,7 @@ Emergency Gate - You (2013) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +529,7 @@ Helloween - Straight Out Of Hell (Japanese Limited Edition) (2013) [MP3|320 kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +564,7 @@ Apocalyptica & Sabaton - Angels Calling (2020) Single [MP3|320 Kbps] <Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +590,7 @@ VA - HIM. Сайд проекты, трибьюты, каверы (1997 - 2011) 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -596,7 +626,7 @@ Enthrallment - People from the Lands of Vit (2012) [MP3|320 кб/с]<Brutal Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -631,7 +661,7 @@ Dreamshade - The Gift Of Life (2013) [MP3|320 кб/с]<Melodic Death Metal/Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -666,7 +696,7 @@ SYN:DROM - Iconoclasm (2013) [MP3|320 кб/с]<Technical Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -701,7 +731,7 @@ Ancient Knights - Camelot (2019) [MP3|320 Kbps] <Epic Heavy Metal, Power Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -730,7 +760,7 @@ The Black Dahlia Murder - 5 альбомов + 2 EP (2001-2011) [MP3|192-320 kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -765,7 +795,7 @@ Mechina - Progenitor (2016) [MP3|320 кб/с]<Industrial, Symphonic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -794,7 +824,7 @@ Jorn - Heavy Rock Radio II - Executing the Classics (2020) Deluxe Edition [MP3|3
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -808,35 +838,6 @@ Jorn - Heavy Rock Radio II - Executing the Classics (2020) Deluxe Edition [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:072FD79E9A80A40B15241C1E0CC7BD1F5A505310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354760   (987031) от 23.01.2020
-
-Temperance - Viridian (2020) [MP3|320 Kbps] <Melodic Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission Impossible
-02. I Am the Fire
-03. Start Another Round
-04. My Demons Can't Sleep(   Читать дальше...   )Жанр: Melodic Modern MetalПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2432F86DDC09B78633F72C51D5D2966D3F1C5F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

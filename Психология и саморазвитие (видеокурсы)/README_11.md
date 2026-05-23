@@ -1,3 +1,31 @@
+###  Публикация: 1519136   (149315) от 23.12.2021
+
+Владимир Спирид | Как развивается «профессиональное» мышление (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Как развивается «профессиональное» мышление: чем эксперты (специалисты в сфере решения задач и проблем) отличаются от новичков 
+
+Одним из самых интересных, но необязательных направлений развития мышления выступает его «профессионализация», т.е. развитие способностей решать задачи и проблемы в какой-то конкретной предметной области: управление, наука, политика, шахматы (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D4BDD526ABE062A8068536ACCB0CB2BB2FF4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347948   (145560) от 26.12.2019
 
 Садхгуру (Джагги Васудев) | Онлайн-программа «Внутренняя инженерия» (2015) DVDRip [H.264] [RU/EN]
@@ -6,7 +34,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +60,7 @@ Udemy, Sandor Kiss и др. |  Полный Курс Личностного Ра
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +121,7 @@ World of Psychology, Наталья Приймаченко | Тайм-менед
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -179,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -207,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -235,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -264,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +379,7 @@ Liveclasses, Виталий Новиков | Как работать с возр
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +408,7 @@ Liveclasses, Виталий Новиков | Как мыслят наши кли
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +436,7 @@ Proprofiling, Алексей Филатов, Илья Анищенко | Как 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -436,7 +464,7 @@ Proprofiling, Алексей Филатов | Ты - детектор лжи. К
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -465,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -494,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -523,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -572,35 +600,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687325   (125622) от 26.12.2023
-
-Оксана Авдеева | Курс Нейроколор. Нейрографика с Оксаной Авдеевой (2022) HDRip [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат курса - 3 урока в записи. Для прохождения курса «НейроКолор» необходимы знания курса «Пользователь»
-
-Самый частый вопрос от людей, рисующих Нейрографику: «А что значит тот или иной цвет?».
-(   Читать дальше...   )Жанр: Саморазвитие, Психология, НейрографикаЯзык озвучки: РусскийПродолжительность: 11:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932FBE7CEE6D5D58906CFE81FB19FCA7353A3683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689369   (124802) от 01.01.2024
 
 Оксана Авдеева | Марафон Погружение в цвет. Нейрографика с Оксаной Авдеевой (2021) HDRip [RU]
@@ -609,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -638,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -667,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -688,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691587   (123189) от 13.01.2024
-
-Школа Коммуникации TK Education, Тина Канделаки | Курс Дизайнер общения. Тариф Базовый (2021) HDRip [AD][RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «Дизайнер Общения» в отличии от многих других, создан при непосредственном участии Тины Канделаки, которая является и профессионалом-практиком (ведущая и продюсер на ТВ, спикер конференций) и одной из самых влиятельных женщин России (по версии РИА Новости). Тина неоднократно повторяет, что многого добилась именно благодаря голосу, речи и умению договариваться (   Читать дальше...   )Производство: Школа Коммуникации TK EducationЖанр: Межличностные коммуникации, Психология общения, Личностный ростЯзык озвучки: РусскийПродолжительность: 19:34:56Реклама: Сторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9700EEC1C52D867B86E2D86E5A0B90A34D3C0204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697300   (119067) от 06.02.2024
 
 Школа речевого имиджа и дизайн голоса, Седа Каспарова | Голос может 9.0 (2023) WEB-DL [AD] [RU]
@@ -722,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -736,6 +709,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA682402812A4A1AB8B4D76EA4E95728ACE8B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700284   (117255) от 16.02.2024
+
+Елена Реунова, Марина Тушевская | Марафон «Предназначение, деньги и истинные желания. Раскрой свой потенциал» (2023) HDRip [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мы соединили в этом марафоне все самые важные в жизни запросы.
+- Почему любимое дело не приносит мне хороший доход?
+- Я много работаю, но денег так и нет. Почему нет желаемой суммы?
+- Какие мои истинные желания?(   Читать дальше...   )Жанр: психология, саморазвитиеЯзык озвучки: РусскийПродолжительность: 13:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61A8BCA96BF055C15EDA1D7DA1399631962E116
 ```
 
 https://mybot314.ru/tekegram_catalog/

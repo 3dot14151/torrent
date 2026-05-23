@@ -1,3 +1,32 @@
+###  Публикация: 1516143   (167004) от 10.12.2021
+
+VA - Armada Music 2022 (2021) [AAC|~322 Kbps] <House, Deep House, Dance, Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker, Helsloot - Because You Move Me (3:16)
+02. Kidnap, Leo Stannard - Moments (Ben Böhmer & Nils Hoffmann Remix) (4:10)
+03. Loud Luxury, Thutmose - Red Handed (2:51)
+04. Armin van Buuren, Davina Michelle - Hold On (3:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, TranceПродолжительность: 03:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFF709DF50FFDE2379BD08EC030D2A8EC1342DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516299   (166991) от 10.12.2021
 
 VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
@@ -6,7 +35,7 @@ VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Alicia Keys - KEYS (2021) [AAC|~298 Kbps] <Soul, R&B, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -169,7 +198,7 @@ VA - Mystical Frequencies (2021) [AAC|~328 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -198,7 +227,7 @@ VA - Chill Out Perfection, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -227,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -253,7 +282,7 @@ VA - Nature Lovers (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -282,7 +311,7 @@ VA - Chill out Mood, Vol. 3 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -311,7 +340,7 @@ VA - Chill out Mood, Vol. 4 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -340,7 +369,7 @@ VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -369,7 +398,7 @@ VA - Nu Cool Covers 2: Pop Classics ReStyled (2018) [AAC|~323 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +453,7 @@ VA - Winter Lounge 2021 (2021) [AAC|~330 Kbps] <Lo-Fi, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +482,7 @@ Ely Bruna, Papik - In Sweet Harmony (2021) [AAC|~303 Kbps] <Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +511,7 @@ VA - Nu Cool Covers 4: Pop Classics ReStyled (2021) [AAC|~315 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -511,7 +540,7 @@ VA - Erotica, Vol. 3 (2018) [AAC|~325 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,7 +569,7 @@ VA - Nu Cool Covers 3: Pop Classics ReStyled (2020) [AAC|~328 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,7 +598,7 @@ VA - Erotica, Vol. 2 (2016) [AAC|~331 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -598,7 +627,7 @@ VA - Erotica, Vol. 4 (2018) [AAC|~313 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -627,7 +656,7 @@ VA - Erotica, Vol. 1 (2014) [AAC|~326 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -656,7 +685,7 @@ VA - Erotica, Vol. 5 (2020) [AAC|~314 Kbps] <Electronic, Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -685,7 +714,7 @@ VA - Nu Cool Covers 1: Pop Classics ReStyled (2017) [AAC|~337 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -699,35 +728,6 @@ VA - Nu Cool Covers 1: Pop Classics ReStyled (2017) [AAC|~337 Kbps] <Lounge, Nu 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654B099412190DD094D918AB0CBEC8293CD179AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516766   (165289) от 12.12.2021
-
-VA - Erotica, Vol. 6 (2021) [AAC|~322 Kbps] <Electronic, Chill Out, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patiotic - Remembering You (Original Mix) (4:04)
-02. Marga Sol - Soulheaven (Original Mix) (5:50)
-03. Gary B, Ken Fan - Volar (4:54)
-04. Weathertunes - Follow Your Heart (4:21)(   Читать дальше...   )Жанр: Electronic, Chill Out, LoungeПродолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90F0A24C6F87826356B5C7B7573E00B04A28E60
 ```
 
 https://mybot314.ru/tekegram_catalog/

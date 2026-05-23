@@ -1,3 +1,347 @@
+###  Публикация: 1803425   (65877) от 22.06.2025
+
+Текстуры - TexturesStore - Envato - 30 Knitted Background Textures - 8RFFUJA [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Набор из 30 вязаных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AD9E66A85D16FD822305A032F83F4BEB0B7EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803240   (65874) от 22.06.2025
+
+Текстуры - Zeppelin_Graphics - Envato - 50 Paper Textures Set - 78GBAZ [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Набор текстур разнообразной бумаги различных цветов.Формат: JPGРазрешение файлов: 4500 x 3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B7F65D7F8D2B71FBC4A58ACB39D0501C771B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803229   (65869) от 22.06.2025
+
+Шрифты - Sentavio - Creative Market - Neoverse Sans - 196299429 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Футуристическое семейство с 30 шрифтами и 1 вариативной версией для максимальной универсальности, c полной расширенной поддержкой латиницы, кириллицы и новогреческого языков, точным кернингом.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617AEC98F7683F200CB1E40C5A7612CA83C7C835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803242   (65864) от 22.06.2025
+
+Растровый клипарт - cherrydesign - Creative Fabrica - Watercolor Sea Animals Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с морскими животными.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC480B10BCD1F5E674F0E7B8D6060898C9F70B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803241   (65861) от 22.06.2025
+
+Растровый клипарт - cherrydesign - Creative Fabrica - Ocean Sea Shell Sublimation Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с морскими раковинами для сублимации.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011116A38F0A79A23A2358D0564271422C9B7808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803233   (65852) от 22.06.2025
+
+Текстуры - TexturesStore - Envato - 30 Felt Textures - EQFMT36 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+30 разноцветных войлочных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38377C83A984B7FEE8B26B10322F0E76E30346D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803236   (65851) от 22.06.2025
+
+Текстуры - CCpreset - Envato - 30 Sand Texture HQ - 9A8WMXX [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Набор песчаных текстур с высоким разрешением.Формат: JPGРазрешение файлов: 6720 x 4480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35F26F57B8DA87EF748982B04405B3CBF9C8B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803231   (65850) от 22.06.2025
+
+Текстуры - sagesmask - Envato - Gold Glitter Textures - R74HZSY [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Золотые блестящие текстуры.Формат: JPGРазрешение файлов: 3000 x 2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BC9B43141A31D8330F6815D3636AA65D17C976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803818   (65789) от 25.06.2025
+
+Шаблон администратора - UI8 - MainStream - Live Streaming Game Premium UI KIts App [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+MainStream - наборы пользовательского интерфейса с минималистичным дизайном для мобильной потоковой игры с более чем 50 экранами.
+
+Оснащен группировкой и наименованием для каждой группы, чтобы вам было легче ее редактировать и иметь легкую тему.
+(   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47BCF5FE46743C0E5D812D79D9B7FC0A41CEDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803872   (65781) от 25.06.2025
+
+Шрифты - Catherine Shulyak - Behance - BELARUS FONT (LATIN + CYRILLIC) - Mod By He Rez AD - 152294059 [OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.
+Добавлена от "He Rez AD" кириллица молдавская, украинская; им же улучшено отображение надстрочных элементов и добавлены файлы форматов WOFF, WOFF2.Формат: OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BEB0402C74B51285EC597EBAA6BC417E4815FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803824   (65779) от 25.06.2025
+
+Шаблон администратора - UI8 - ModoUI - Design System 2.0 [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Modo UI — это интерактивная система дизайна, разработанная для оптимизации рабочего процесса занятых дизайнеров. Созданная в Figma, она предлагает полный набор функций для повышения эффективности и гибкости в процессе проектирования.Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0B44A6D0BB6BDED07BEDFB9FA43778AF258992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803816   (65777) от 25.06.2025
+
+Растровый клипарт - AdobeStock - American Indian Chiefs 28 Illustrations [PNG, AI, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрации "Вожди индейцев" из Adobe Stock.
+
+6 AI | 10 PNG | 12 JPEGФормат: PNG, AI, JPGРазрешение файлов: 2048x2048 - 7928x5968
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B11003DC71C1778E30CECAAD23F1A6FDF91F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804323   (65709) от 28.06.2025
+
+Звуковые библиотеки - Just Sound Effects - Melee Weapons [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Хотите поднять свои средневековые батальные сцены на новый уровень? Не ищите дальше, чем MELEE WEAPONS , библиотека звуковых эффектов, которая передает дух ближнего боя. Вы получаете предварительно разработанное оружие, такое как мечи, топоры,  тупое оружие и щиты, а также огромный арсенал записей, которые служат исходным материалом. Чтобы сделать рабочий процесс (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BCF56D43CD99C1F3E9687CD9A35861B84C0987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804320   (65707) от 28.06.2025
 
 Расширение - Mt. Mograph - Boombox v.27 [WAV]
@@ -6,7 +350,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -331,350 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E9E3E91A79ED41B141860A93F5869FE3D488AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804761   (65588) от 01.07.2025
-
-Шрифты - Pasha Marin - Behance - ZOOCAGE - Mod By He Rez AD - 107349461 [TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Материал раздаётся с официальной документацией.
-В данной модификации корректировано отображение надстрочных элементов, так же добавлен файл формата WOFF.Формат: TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D9B66A07B0FE56F2DBC303C9D795F9FB748278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804773   (65569) от 01.07.2025
-
-Растровый клипарт - Envato - Skate and Destroy - 70+ Punk Stickers Vol. 2 - XDKPN4X [EPS, SVG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайте волю грубому отношению и скейт-панковскому бунту с этим огромным набором наклеек Skate and Destroy . В этой коллекции, содержащей более 70 нарисованных вручную графических изображений, собрана сырая энергия DIY из андеграундных скейт-журналов 80-х–90-х годов, хардкор-панк-листовок и гаражной культуры. Каждая наклейка отличается смелыми контурами, высокой контрастностью (   Читать дальше...   )Формат: EPS, SVG, PNGРазрешение файлов: 488x494 - 6343x3920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F0F01593A74F4C71D2EABDF848A63693116634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804741   (65566) от 01.07.2025
-
-Растровый клипарт - Envato - Skate and Destroy - 75+ Punk Stickers Vol. 1 - EVLSX42 [EPS, SVG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайте волю грубому отношению и скейт-панковскому бунту с этим огромным набором наклеек Skate and Destroy . Наполненная более чем 75 нарисованными от руки графическими изображениями, эта коллекция передает сырую энергию DIY андеграундных скейт-журналов 80-х–90-х годов, хардкор-панк-листовок и гаражной культуры. Каждая наклейка создана с четкими контурами, высокой (   Читать дальше...   )Формат: EPS, SVG, PNGРазрешение файлов: 568x1034 - 6942x2406
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF2FB92846D4E9D75E4C8719BF06DBAA3D951E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805253   (65475) от 05.07.2025
-
-Шаблоны - Creative Market - Cookies Box Packaging Mockup Set - 6985417 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый набор макетов для коробки с печеньем с 5 сценами, фонами 4k и модными дизайнами упаковки. Этот набор макетов включает в себя в общей сложности 5 макетов упаковки, которые можно использовать для печенья, бисквитов, сладостей, конфет и других дизайнов упаковки для брендинга продуктов питания.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6710D04E963D3E615FA7ACC9CF6BAE78A1CDAFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806204   (65399) от 11.07.2025
-
-Шрифты - MyFonts - Victualia X [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство шрифтов Victualia X разработано Дэниелом Вибергом и опубликовано компанией Dawnland . Victualia X содержит 1 начертание.
-
-Victualia — простой, нарисованный от руки (Wacom, Illustrator) шрифт кистью. Для некоторых удвоенных букв были созданы «лигатуры», чтобы усилить иллюзию рукописного текста. (TT, tt, ff, oo, OO, mm, MM, ll и LL — требуется версия шрифта (   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E82497B7F4D565D8216F6AE67F07EF38FBE30BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806494   (65363) от 13.07.2025
-
-Шрифты - MyFonts - Servus Slab [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65363.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: "Это семейство очень важно для меня. Я начал работать над ним сразу после рождения моего первого сына. Я решил назвать шрифт «Servus», что на моей родине означает «Привет». Вся идея семейства символизирует развитие ребёнка. Всё начинается с тонких и узких начертаний – как у новорождённого – а затем постепенно переходит в чёрные и широкие. Как вы можете (   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949B5975928D77DC2FEA805C645C7880E1DA0708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806480   (65358) от 13.07.2025
-
-Шрифты - Authentype - Gothema - A Modern Geometric Sans [OTF, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современное семейство геометрических шрифтов с кириллицей, без засечек. Идеален для получения впечатляющих результатов как в цифровой, так и в печатной форме.
-Материал раздаётся с официальной документацией.Формат: OTF, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806932   (65314) от 15.07.2025
-
-Шаблоны - Creatsy - Stationery Scene with Classic Tape-Bound Notebook Mockup - 1107548501 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сцена из канцелярских товаров с классическим макетом блокнота.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EBC62627FF72316F4CECAF5CFCF6E316F7E034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807625   (65255) от 19.07.2025
-
-Пресеты - Eldamar Studio - 5000+ Professional LUTs Bundle [CUBE, XMP, LRTEMPLATE, ICC, LOOK, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоело добавлять одни и те же эффекты к фотографиям снова и снова? Было бы здорово добавить уникальные эффекты к своим фотографиям и заставить всех гадать, как вы это сделали! Мы представляем самую разнообразную коллекцию LUT-файлов 2025 года для настоящих профессионалов. Всего несколько кликов — и вы сможете добавить потрясающие эффекты к своим фотографиям! Это (   Читать дальше...   )Формат: CUBE, XMP, LRTEMPLATE, ICC, LOOK, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908F65CCE82CE2A95243303FE3EB114F5F841CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807591   (65217) от 19.07.2025
-
-Пресеты (LUTs) - Etsy - D-Cinelike Winter Lut - Drone Cinematic Lut - 1114847269 [CUBE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот LUT предназначен для профиля D-Cinelike. Для получения хорошего результата необходима правильная экспозиция и правильно подобранный баланс белого. LUT работает с большинством программ, поддерживающих LUT-куб: Adobe Premiere Pro, Final Cut Pro, DaVinci Resolve, Adobe After Effects и т.д.Формат: CUBE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C92105560535450B8351FB50207156A4BC76C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807629   (65216) от 19.07.2025
-
-Шрифты - Behance - Shalom Guevara - GarciaMarquez - Font - 118013041 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.
-Материал раздаётся с официальной документацией.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F20C5A2B10254EFE96B7A6CF02E600CD8405E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807429   (65202) от 19.07.2025
-
-Шаблоны - Creative Market - Galaxy S24 Mockup - 159305452 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот макет сэкономит ваше время и придаст вашей презентации великолепный вид. Его легко заменить своими дизайнами с помощью смарт-объектов: дважды щелкните смарт-слой, скопируйте и вставьте изображение, сохраните — и готово!Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9042DFBA130B6139014BCB2BB5532E66DA1E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807624   (65173) от 19.07.2025
-
-Звуковые библиотеки - Splice - Blastwave FX Lasers [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лазерные звуки можно использовать по-разному, все ограничивается только вашим воображением.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACE9BEA66EA7C42606E235B6D5A23B0BEDC42DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

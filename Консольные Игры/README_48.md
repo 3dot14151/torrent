@@ -1,29 +1,3 @@
-###  Публикация: 957030   (328140) от 16.11.2015
-
-Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru] | R.G. X360CLUB
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет прошло после инцидента в Раккун-Сити, и президент Соединенных Штатов решает открыть правду о произошедшем в надежде приостановить биотеррористическую активность. Все это время Президенту помогает его друг Леон С. Кеннеди, но во время одной из встреч они оказываются под атакой.Тип издания: UnofficialРазработчик: CapcomЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2A001AA0D063880CE2053310BB4A7F9F834329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842460   (327086) от 19.11.2014
 
 Far Cry 4 [Region Free] [Eng] [LT+3.0] (XGD3 / 16537) (2014) [XBox360]
@@ -32,7 +6,7 @@ Far Cry 4 [Region Free] [Eng] [LT+3.0] (XGD3 / 16537) (2014) [XBox360]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +33,7 @@ Bionic Commando (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +59,7 @@ Kororinpa [WII] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +85,7 @@ Game of Thrones: A Telltale Games Series - Episodes 1-6 (2014) [Xbox360] [Region
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +111,7 @@ Minecraft Story Mode: A Telltale Games Series - Episodes 1 & Season Pass (2015) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +137,7 @@ Unit 13 (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +164,7 @@ Surf's Up / Лови волну! (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +190,7 @@ Disney Tangled [Wii] [NTSC2PAL] [Multi 3] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +218,7 @@ Cuphead (2019) [Switch] [USA] 8.1.0 [NSP] [License / 1.2.4] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +246,7 @@ Monster Hunter Tri [Wii] [NTSC] [ENG/ESP] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +272,7 @@ Unreal Tournament 3 (2007) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +298,7 @@ Tales From The Borderlands: Episodes 1-5 (2014) [PS3] [USA] 3.55 [Cobra ODE / E3
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +324,7 @@ TrueAncestor Backup Retailer 2.30 (2017) [PS3] [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +352,7 @@ HITMAN 3 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.13 / DLC] [Deluxe Edition]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +378,7 @@ BDSM: Big Drunk Satanic Massacre (2019) [Switch] [USA] 8.1.0 [NSP] [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +405,7 @@ Pikmin 3 Deluxe (2020) [Switch] [USA] 10.2.0  [NSZ] [License] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +433,7 @@ Rodea the Sky Soldier (Tenkuu no Kishi Rodea) (2015) [Wii] [PAL] [Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +459,7 @@ Rodea the Sky Soldier (Tenkuu no Kishi Rodea) (2015) [Wii] [NTSC-U] [Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +485,7 @@ LEGO The Lord of the Rings (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +511,7 @@ TEKKEN 7 (2017) [PS4] [EUR] 5.05 [HEN] [License / 5.01 / DLC] [Ru/Multi] [Ultima
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +537,7 @@ Resident Evil / Biohazard HD REMASTER (2014) [PS3] [JPN] 4.65 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +563,7 @@ Samba de Amigo [Wii] [PAL] [Eng/De] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +589,7 @@ Lego Indiana Jones: The Original Adventures [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,7 +615,7 @@ Dead Rising [xbox 360] [pal] [eng] (2006)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +645,7 @@ Killzone: Shadow Fall / Killzone: В плену сумрака (2013) [PS4] [EUR
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -682,6 +656,32 @@ Killzone: Shadow Fall / Killzone: В плену сумрака (2013) [PS4] [EUR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:005FC9305264BB2AFA99E3CB5F1320C2004945AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582742   (317104) от 30.11.2012
+
+Warhammer Battle March [xbox 360] [Region Free] [rus] (2008)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Впервые на Xbox360 вышла культовая фэнтези-стратегия. Масштабу сражений позавидует кинотрилогия «Властелин колец» и фильм «Хроники Нарнии» – под вашим личным командованием тысячи самых необычных солдат, включая темных эльфов-садистов, кровожадных вампиров, гигантских крыс-мутантов, поклоняющихся богам Хаоса варваров и, конечно же, орков и гоблинов. В мире Warhammer аркебузы и мортиры сосуществуют с магией – все стороны вечного конфликта между Порядком и Хаосом активно используют технологию и волшебство. Игра основана на культовой вселенной, созданной богами настольных игр из Games Workshop. Этот мрачный, детально проработанный фэнтезийный мир имеет миллионы поклонников. Следуя захватывающему сюжету игры, вы становитесь полководцем и получаете полную власть над своим войском – вы определяете не только его состав и стратегию, но и внешний вид, боевую униформу и раскраску ваших солдат. За вас сражаются могучие герои, которые становятся сильнее в сражениях и получают новые способности. Ваши богатыри могут посреди (   Читать дальше...   )Жанр: RTSЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A73476B8BEA6ECA9AB7C79040ED748F3B79377A
 ```
 
 https://mybot314.ru/tekegram_catalog/

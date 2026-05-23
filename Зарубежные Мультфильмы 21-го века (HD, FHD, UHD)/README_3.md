@@ -1,3 +1,107 @@
+###  Публикация: 1845752   (1050901) от 03.01.2026
+
+Феи: Потерянное сокровище / Tinker Bell and the Lost Treasure (2009) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений феи мастерицы Динь-Динь и ее друзей. Необходимо омолодить Дерево Фейской Пыльцы. Выбирают фею Динь – лучшего из мастеров, она должна изготовить Скипетр, важнейшая часть которого - Лунный Камень. В ходе работы над Скипетром Лунный Камень был разрушен. Динь-Динь очень хочет исправить ошибку. Она отправляется на север Нетляндии в поисках Волшебного (   Читать дальше...   )Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Клэй ХоллАктеры: Мэй Уитман, Джесси МакКартни, Джейн Хоррокс, Люси Лью, Рэйвен, Кристин Ченоуэт, Анджела Бэртис, Роб Полсен, Джефф Беннетт, Грэй ГриффинПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77161C1CE7FDE433090E73445890B83317C9227B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845754   (1050900) от 03.01.2026
+
+Феи: Волшебное спасение / Tinker Bell and the Great Fairy Rescue (2010) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Однажды Фея Динь-Динь встретила Лизи, маленькую девочку с твердой верой в волшебство. У Динь-Динь возникает привязанность к любопытной девочке, которой так нужен друг. Ради нее она идет на огромный риск, подвергая опасности свою жизнь и будущее всей страны Фей.Производство: США, Индия, Канада / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Брэдли РэймондАктеры: Мэй Уитман, Лорен Мот, Майкл Шин, Памела Адлон, Люси Лью, Рэйвен, Кристин Ченоуэт, Анджела Бэртис, Роб Полсен, Джефф БеннеттПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722AB1D672E8902B62C64356585D20FA446E20C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845756   (1050899) от 03.01.2026
+
+Феи: Тайна зимнего леса / Secret of the Wings (2012) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Динь-Динь и ее подруги всегда боялись пересекать границу с Зимним лесом, ведь существует поверье, что там очень опасно. В один прекрасный день Динь-Динь, сгорая от любопытства, подходит вплотную к лесу, и ее крылья неожиданно начинают блестеть и переливаться. Завороженная Динь, желая узнать тайну волшебных крыльев, кутается в теплое пальто и отправляется в глубь (   Читать дальше...   )Производство: США, Индия, Великобритания / Walt Disney Pictures, Prana Studios, Disneytoon StudiosЖанр: мультфильм, фэнтези, семейныйРежиссер: Бобс Гэннауэй, Пегги ХолмсПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B39F9E538C79AE7CFDE0C9DDAC24A3AD25EA144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845758   (1050898) от 03.01.2026
+
+Феи: Загадка пиратского острова / The Pirate Fairy (2014) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+История о Зарине, смышленой и амбициозной фее, собирающей пыльцу растений. Все начинается с того, что она похищает волшебную пыльцу фей…Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, детский, приключенияРежиссер: Пегги ХолмсАктеры: Кристина Хендрикс, Мэй Уитман, Том Хиддлстон, Памела Адлон, Анджела Бэртис, Меган Хилти, Люси Лью, Рэйвен, Джим Каммингс, Кевин Майкл РичардсонПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA01CD0D13BE8363405C8C6231634ABADD1D884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845759   (1050897) от 03.01.2026
 
 Феи: Легенда о чудовище / Tinker Bell and the Legend of the NeverBeast (2014) WEB-DL [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,32 +523,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840499   (1047431) от 05.12.2025
-
-Побег из будущего / Boonie Bears: Future Reborn (2025) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Озорные братья-медведи Бриар и Брамбл перенесутся в далекое будущее — в мир, где человечество оказалось на грани исчезновения. И, кажется, в этом замешан их старый приятель Вик. Отважным братьям и их друзьям предстоит раскрыть правду, предотвратить катастрофу и найти путь домой.Производство: Китай / Fantawild AnimationЖанр: мультфильм, фантастика, приключенияРежиссер: Линь ЮнчанАктеры: Чжан Вэй, Чжан Бинцзюнь, Тань Сяо, Лю СыциПеревод: Дублированный (Acoustic Alchemy)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7B6919394BE5F9C38F91A201CD25ECAD924AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839957   (1046964) от 02.12.2025
 
 Стич-Хэд. Хранитель монстров / Stitch Head (2025) WEB-DL [H.264/1080p]
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:099DE254ADD5F82BFD7F1D7552E0FEF63CD0ECC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603882   (1045545) от 11.01.2023
-
-Кот в сапогах 2: Последнее желание / Puss in Boots: The Last Wish (2022) WEB-DL [H.264/1080p] [UKR, EN / EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кот в сапогах потратил восемь из девяти отпущенных ему жизней и теперь отправляется в новое приключение, чтобы отыскать мифическое Последнее желание и восстановить свои жизни.Производство: США, Япония / DreamWorks Animation, Pacific Data Images (PDI)Жанр: мультфильм, комедия, приключенияРежиссер: Джоэль Кроуфорд, Хануэль МеркадоПеревод: дублированный (Line)Язык озвучки: украинский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10C185A616BD52DB09EF879E0C3FB02FAE276B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603739   (1045242) от 14.01.2023
-
-Кот в сапогах 2: Последнее желание / Gato con botas: El ultimo deseo / Puss in Boots: The Last Wish (2022) WEB-DL [H.265/1080p] [MVO]
-
->>След.
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кот в сапогах потратил восемь из девяти отпущенных ему жизней и теперь отправляется в новое приключение, чтобы отыскать мифическое Последнее желание и восстановить свои жизни.Производство: США, Япония / Dentsu, DreamWorks Animation, Pacific Data Images (PDI)Жанр: мультфильм, комедия, приключенияРежиссер: Джоэль Кроуфорд, Хануэль МеркадоАктеры: Антонио Бандерас, Сальма Хайек, Харви Гильен, Флоренс Пью, Джон Малэйни, Вагнер Моура, Рэй Уинстон, Самсон Каё, Оливия Колман, Давайн Джой РэндольфПеревод: Профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (full, SDH), Украинские, Английские (full, SDH)Продолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF7B69153D1CE58057DE8C7ED2B1ADBFE37F498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232627   (1043492) от 31.01.2023
-
-Я свинья / Pig Me (2010) HDTVRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрая и красочная короткометражная зарисовка, которая выделяется ярким, запоминающимся сюжетом. Мелодичная, успокаивающая музыка, с грамотно подобранной палитрой исполнения мультфильма, оставит приятное впечатление от просмотра у любого зрителя!Жанр: Компьютерная анимация, КомедияРежиссер: Mette Tange, Israel Hernanadez, Ditte Gade, Marie-Louise Hojer Jensen, Rebecca Bang SorensenПеревод: Без слов / НемойПродолжительность: 00:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C342AA1B9BF59F9FA88BD1A9D072E4AA2687E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

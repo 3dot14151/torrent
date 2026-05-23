@@ -1,3 +1,82 @@
+###  Публикация: 1840214   (1047170) от 03.12.2025
+
+Начни бегать v5.16 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Удобный помощник для желающих начать тренироваться посредством бега и спортивной ходьбы. Подборка готовых планов упражнений. Возможность создания собственного плана занятий. Статистика тренировок.
+Начать бегать? Легко! Не думай о дистанции, темпе, скорости. Все это потом. Слушай инструкции и беги так, как тебе комфортно. Не фокусируйся на технике бега. Самое важное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.12.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB755627D2D35BCBD432B39279DBA5246F1F691A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840220   (1047169) от 03.12.2025
+
+Карта Метро v3.2.12 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Приложение построит для Вас маршрут в метро и сэкономит Ваше время. Схема метро будет полезна как туристам, которые только в первый раз спускаются в метро и боятся заблудиться, так и местным жителям, чтобы оптимально рассчитать время на поездку в метро. С помощью приложения Вы сможете построить оптимальный маршрут в метро от одной станции до другой с расчетом времени (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.12.2025Разработчик: Involta appПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5FE00A68F11E407563F19330141B31C19A1F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840217   (1047168) от 03.12.2025
+
+Коммуналочка v2.5.18 Mod by Alex.Strannik [Ru/En/Pl/Ua]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Программа позволяет вести статистику за показаниями счетчиков воды, электроэнергии, газа и любыми другими коммунальными расходами, отслеживать и анализировать динамику расходов по счётчикам.Тип издания: ProРелиз состоялся: 02.12.2025Разработчик: Artem KrutПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Польский, Украинский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C674AB5F28298B311FBBFEF98360A63EA972B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839682   (1046852) от 30.11.2025
 
 SD Card Test Pro v2.6 Mod by Balatan [Ru/Multi]
@@ -6,7 +85,7 @@ SD Card Test Pro v2.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +112,7 @@ GPS АнтиРадар v51.2(G) Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +165,7 @@ Grok - ИИ ассистент v1.0.81-release.04 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +191,7 @@ Vanced Tube v5.5.80.178 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +217,7 @@ LazyMedia Deluxe v3.417 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +243,7 @@ Photo Editor v12.2 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +269,7 @@ Photo Editor v12.2 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +321,7 @@ Listen Audiobook Player v5.3.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +347,7 @@ VivaVideo Video Editor v9.32.2 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +373,7 @@ Channel - AI Videos and Chat v1.6.1.3174 Mod by kljovyj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +399,7 @@ Cozy Timer - Sleep timer v4.0.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +425,7 @@ PhotoRoom v4.1.0 Mod by CXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +451,7 @@ Copy Text On Screen v5.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +503,7 @@ MobileSheets Music Viewer v3.6.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +529,7 @@ SUXOV v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +581,7 @@ Bob The Robber 4 v1.44 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +607,7 @@ War of Kings: Эпическая Стратегия PvP v69 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +633,7 @@ FarmVille 2 v16.6.6412 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +659,7 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -592,84 +671,6 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8DF387BEB753D2C64870BB9DB99B803607FCAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436587   (1043020) от 01.01.2021
-
-Покорение башен v22.00.54G [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покорение башен - одна из лучших TD-стратегий, в которой сражения происходят стенка на стенку. По сюжету житель деревеньки случайно наткнулся на портал в другой мир, из которого потом повалила враждебная нечисть.Тип издания: Пиратка (Мод - много денег!Релиз состоялся: 28 декабря 2020 г.Разработчик: Titan Mobile LLCПоддерживаемая ОС: Android 4.1 и вышеЖанр: СтратегияЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E0CC66E9A7F09939F7E472C8B64578D32D775C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436591   (1043017) от 01.01.2021
-
-StrikeBox: Sandbox & Shooter v1.4.6 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043017.jpg" />
-</div>
-
-
-###  Подробнее
-
-StrikeBox: Sandbox & Shooter - шутер с симпатичной трехмерной графикой, динамичными перестрелками и большим оружейным арсеналом, в котором друг другу будут противостоять две команды.Тип издания: Пиратка (Мод - много денег)Релиз состоялся: 28 декабря 2020 г.Разработчик: ChaloAppsПоддерживаемая ОС: Android 4.4 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591E6DE4E85F6E6900AC96738CAC2C562D10C295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436605   (1043006) от 01.01.2021
-
-Учимся читать по слогам и буквам v3.0 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учимся читать по слогам и буквам - новая бесплатная игра для детей на русском языке. Учим буквы и слоги. Алфавит и азбука для малышей. Буква к букве.Тип издания: Пиратка (Мод: Без рекламы)Релиз состоялся: 23 августа 2020 г.Разработчик: Mama papaПоддерживаемая ОС: Android 4.4 и вышеЖанр: ОбучениеЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE05E971B02934F87C328BC76C95D9927F6B98B
 ```
 
 https://mybot314.ru/tekegram_catalog/

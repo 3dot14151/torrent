@@ -1,3 +1,109 @@
+###  Публикация: 1188953   (271918) от 04.12.2017
+
+Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы – управляющий дома, который… ШПИОНИТ за жильцами! Вы ставите жучки, обыскиваете квартиры, прослушиваете телефоны. Вы собираете компромат и строчите доносы. Или… Возможно, у вас есть другой выбор? В этом мрачном тоталитарном будущем жизни людей принадлежат Государству. Репрессивные законы и тотальная слежка пришли на смену свободе, равенству и братству.Тип издания: RepackРазработчик: Warm Lamp GamesЖанр: Adventure, Indie, StrategyЯзык озвучки: Английский, Испанский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6030C117F1AC3AA245DF17F9A637B139ABE73944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337814   (271175) от 13.11.2019
+
+Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Одинокая придорожная закусочная в центре пустыне. Местные говорят, что она потеряла все свои цвета. Вы были отправлены для расследования. Discolored - это странный и сюрреалистичный пазл-приключение, место разворачивается в одной изолированной локации. Ваша задача: вернуть цвета в этот когда-то трепещущий цветами мир. Что заставило цвета пропасть? Как их вернуть? (   Читать дальше...   )Тип издания: RepackРазработчик: Jason GodbeyЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639482EE246858FCDC686B4F9BDED432C51EA805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274856   (271152) от 25.12.2010
+
+Jekyll and Hyde / Джекил и Хайд [Ru] (RePack) 2010 | Martin
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На исходе XIX века жители Лондона испытали настоящее потрясение. Загадочная болезнь вихрем пронеслась по трущобам британской столицы. Доктор Джекил уверен, что инфекцию распространили участники зловещего культа. В поисках разгадки ужасного заговора он готов рискнуть жизнью и спуститься под землей, в бесконечный лабиринт древних катакомб и коллекторов. На первый взгляд обычный врач – легкая добыча для фанатичных преступников, но сектантам неведомо, что под личиной добродушного ученого скрывается неудержимая и свирепая натура мистера Хайда!Тип издания: РепакЖанр: Adventure / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B28F99DF5340F86BCAFC64423E0E8383CE4DE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274683   (271073) от 25.12.2010
+
+Silent Hill: Shattered Memories [En] (Р) 2009
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сайлент Хилл…Город, название которого стало синонимом слов «страх» и «ужас». Город, открывающий беспощадную правду о людях, в нем оказавшихся. Город, где оживают худшие кошмары, и для каждого они свои. Но сколь бы дурной ни была его слава, сколько бы леденящих кровь событий ни происходило на его улицах, он все равно манит к себе своих жертв, словно пламя свечи — мотыльков. И он притягивает вас.
+В Silent Hill: Shattered Memories вы — Гарри Мэйсон. Вы очнулись после автомобильной аварии и не обнаружили рядом с собой своей дочери Шерил. Все верно, она в Сайлент Хилл, и чтобы найти ее, вам придется познать обе стороны проклятого города — явную, относительно спокойную, и оборотную, где вырываются наружу самые потаенные страхи. Следуя по заснеженным улицам, не забывайте оглядываться, ибо опасность может подстерегать повсюду.
+Однако вам предстоит найти не только дочь. В Сайлент Хилл не попадают просто так, а значит, какая-то тайна связана с самим Гарри Мэйсоном. Вы узнаете о себе много нового и своими поступками сможете (   Читать дальше...   )Тип издания: Пиратка "Неофициальный"Жанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189257   (270951) от 05.12.2017
 
 Black Mirror (2017) [Ru/Multi] (1.0.0.1005) Repack OneTwo
@@ -6,7 +112,7 @@ Black Mirror (2017) [Ru/Multi] (1.0.0.1005) Repack OneTwo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Sally Face (2016) [Ru/Multi] (1.4.13/dlc) License PLAZA [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Some Distant Memory (2019) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +190,7 @@ Neverhood (1996) [Ru] (1.0/dlc) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +242,7 @@ The Council - Complete Season (2018) [Ru/En] (0.9.5.6336) Repack xatab [Episode 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +268,7 @@ Frosty Nights (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +294,7 @@ Frosty Nights (2017) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +320,7 @@ What Remains of Edith Finch (2017) [Ru/Multi] (1.0.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +346,7 @@ Event[0] (2016) [En] (169221) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +372,7 @@ Sherlock Holmes versus Jack the Ripper / Шерлок Холмс против Д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +398,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -318,7 +424,7 @@ Treasure Hunter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -344,7 +450,7 @@ Sherlock Holmes: The Awakened / Шерлок Холмс и секрет Ктул
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -370,7 +476,7 @@ The Council - Complete Season (2018) [Ru/Multi] (0.9.5.6336) License PLAZA [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -396,7 +502,7 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -422,7 +528,7 @@ Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. За�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -448,7 +554,7 @@ Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -474,7 +580,7 @@ Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Л�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_264053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +606,7 @@ Tacoma (2017) [Ru/Multi] (121417) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -526,7 +632,7 @@ Heavy Rain (2019) [Ru/Multi] (build 362) License CPY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -552,7 +658,7 @@ Asterix & Obelix XXL 3 - The Crystal Menhir (2019) [Ru/Multi] (1.15) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -563,110 +669,6 @@ Asterix & Obelix XXL 3 - The Crystal Menhir продолжает приключ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B7FDBA4825BE5A005CF268BE81635979D8E3C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340859   (263181) от 25.11.2019
-
-The Lift (2018) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс - хамоватый подросток и разгильдяй. Нехватка денег вынуждает его разносить пиццу. Во время доставки очередного заказа Макс ссорится с матерью. Квартира, куда нужно доставить заказ находится на 13 этаже.Тип издания: RepackРазработчик: Bulls BrosЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341083   (262781) от 26.11.2019
-
-Heavy Rain (2019) [Ru/Multi] (1.0/build 362) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в напряженный психологический триллер, где ваш выбор и действия могут привести к драматическим последствиям... и определите, кто останется в живых, а кто умрет. Мастер Оригами терроризирует город, который получил такое прозвище из-за своей жуткой визитной карточки — манеры оставлять на месте преступления сложенные из бумаги фигурки, не оставляет полиции (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure, Interactive, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE50354949DE0BD8CB8C9FE21D9B6524129357B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193330   (262198) от 20.12.2017
-
-Mind: Path to Thalamus (2015) [Ru/Multi] (1.1) License PLAZA [Enhanced Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mind: Path to Thalamus – головоломка с видом от первого лица, действия которой развиваются в фантастическом сюрреалистическом мире. Для продвижения уровнями нужно буквально подчинять своей воле окружающую среду. Все это возможно благодаря тому, что протагонист путешествует по миру, созданному им самим в своем разуме, а локации во многом зависят от текущего эмоционального (   Читать дальше...   )Тип издания: LicenseРазработчик: Carlos Coronado, Dani Navarro, Luka NietoЖанр: Logic (Puzzle), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F2920DC68F62C428CE227B1259DEC4DDE48A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187535   (262154) от 20.12.2017
-
-Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотландия, 1926 год. После известия о самоубийстве отца Дэвид Гордон впервые приезжает в родовое поместье. Мрачные тайны этого места свели с ума немало Гордонов, и следующей жертвой может стать он сам. С самого детства Дэвида терзают кошмары и видения. Он живет в страхе, что ему суждено повторить судьбу отца и пойти дорогой, ведущей к безумию и смерти. Действительно (   Читать дальше...   )Тип издания: LicenseРазработчик: KING ArtЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FA14B1E7E7518451D0C6DC32F5395EC77F6AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

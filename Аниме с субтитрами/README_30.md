@@ -1,3 +1,108 @@
+###  Публикация: 766835   (868881) от 15.03.2014
+
+Bakuman. 3 / Бакуман [ТВ-3] [2012, TV, 25] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Моритака Масиро и Акито Такаги, верные друзья и соавторы, не зря работали, как проклятые, совершенствуясь на ходу, сражаясь в конкурсах и создавая собственный стиль. Ребята, фактически вчерашние школьники, уверенно застолбили место в крупных журналах, их последняя манга «Компания лучших проказников» набрала темп и получает неплохие отзывы. Первая часть пути пройдена (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Касай Кэнъити / Kasai Kenichi / カサヰケンイチПродолжительность: 25 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6F4B4CC002342987069EC40680D015CB985BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332334   (868614) от 12.04.2020
+
+Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | Okaa-san Online | Tы же любишь мамочку и её двойную атаку по нескольким целям? [2019, TV, 12 эп. + OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Масато Осуки — обычный старшеклассник, которого вдруг отправляют в игровой мир… вместе с его мамой! И за время путешествия ему предстоит наладить с ней отношения. Но это не так просто, как может показаться: Масато сейчас в том самом возрасте, когда дети стесняются дружить с родителями. Только вот… сможет ли Масато, даже в игре не обладающий выдающимися способностями, (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ивасаки ЁсиакиПеревод: SovetRomantica (TV), Wakanim (OVA)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE88512BA5DAE69B52588F2C0B65B5671CF8B5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998925   (868225) от 20.03.2016
+
+Moetan / Моэтан [2007, TV, 11 + 3SP] BDRip 1080p x265 raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Забавная пародия на сериалы о девочках-волшебницах, с большим количеством отсылок на популярные сериалы (Shakugan no Shana, Sailor Moon, Jigoku Shoujo и т.д.).
+Трансляция шестой серии на ТВ была отменена вследствие чрезмерной степени эротизма - эта серия вышла позднее в качестве DVD-спешлела. Вместо отменённого эпизода транслировался так называемый эпизод 5.5, состоявший (   Читать дальше...   )Производство: ACTAS, Inc.Жанр: комедия, магия, махо-сёдзё, эттиРежиссер: Кавагути КэйитироЯзык субтитров: Русский (отключаемый), Английский (отключаемый), Китайский (отключаемый)Продолжительность: 11 серий по 25 минут + 3 спецвыпуска
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBAA4E0B70B43D6F65D644D6615894F515733FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496265   (867883) от 20.09.2021
+
+Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma | Ми-ми-ми-мишка [ТВ-1] [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+15-летняя затворница Юна коротает время в VRMMORPG под названием World Fantasy Online. Но однажды при входе в игру её каким-то образом забрасывает в паралельный мир, как две капли воды похожий на мир игры. Поскольку Юна и так была достаточно опытным игроком, а к тому же теперь получила практически читерский «Комплект медвежонка», она легко осваивается в ставшей реальностью (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: приключения, комедия, фэнтезиРежиссер: Нобута ЮПеревод: AniLibria.TVЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC60730F09C34F4B1291FFCFCA2E54ACAFE32B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998779   (867806) от 20.03.2016
 
 Girls Bravo / Браво, девушки! [2004, TV, 11 + 13 + SP] DVDRip 480p raw
@@ -6,7 +111,7 @@ Girls Bravo / Браво, девушки! [2004, TV, 11 + 13 + SP] DVDRip 480p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +140,7 @@ Okusama wa Joshikosei / Wife is a High School Girl / Жена-школьница
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +167,7 @@ Hachimitsu to Clover | Honey and Clover | Мед и клевер (первый �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +195,7 @@ Shisha no Teikoku | The Empire of Corpses | Империя мертвых [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +221,7 @@ Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +249,7 @@ Uchuu Patrol Luluco | Space Patrol Luluco | Космопатрульная Лу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +275,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +301,7 @@ Www.Working!! | Www.Wagnaria!! [2016, TV, 12 эп.] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +327,7 @@ ViVid Strike! | Решающий Удар [2016, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +353,7 @@ Udon no Kuni no Kiniro Kemari | Udon no Kuni no Kin`iro Kemari | Poco's Udon Wor
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +379,7 @@ Yuuri!!! on Ice | Yuri!!! on Ice | Юрий на льду [2016, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +405,7 @@ Hatsukoi Monster / First Love Monster / Монстр первой любви [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +431,7 @@ Long Riders! | Марафонцы [2016, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +457,7 @@ Gate Keepers | Gatekeepers | Хранители врат [2000, TV, 24 эп.] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +483,7 @@ Medaka Box: Abnormal | Medaka Box 2 | Ящик предложений Мэдак
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +511,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Путешес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +537,7 @@ Bang Dream! 3rd Season | Ура мечте! (ТВ-3) [2020, TV, 13 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +589,7 @@ Punch Line | Punchline | Вся суть в трусах | Изюминка [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +615,7 @@ Prince of Stride: Alternative / Принц страйда: Альтернати�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +642,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +668,7 @@ Infinite Dendrogram / Бесконечная Дендрограм [2020, TV, 13]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,110 +679,6 @@ Infinite Dendrogram / Бесконечная Дендрограм [2020, TV, 13]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEC835389206D1AECF0B9590F4CEBD8ED674B809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390136   (859288) от 25.09.2021
-
-Strike the Blood IV | Удар крови [OVA-4] [2020, OVA, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акацуки Коджо был не в лучшей кондиции, когда его окликнула особа, разыскивающая четвертого чистокровного, и он не сразу понял, что речь идет о нем. Девушка сообщает ему, что она находится на острове Онрай. Это была единственная зона для демонов Японии. Касагуя Шизури присматривала за чистокровным. Ему придется вовлечься в работу, но его старались удерживать в стороне (   Читать дальше...   )Производство: студия ConnectЖанр: приключения, эччиРежиссер: Ямамото ХидэёПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E478397EED10003AFD5E36FFF2AFA983FE0D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481551   (859241) от 25.09.2021
-
-Bokutachi no Remake / Remake Our Life! / Ремейк нашей жизни [2021, TV, 12 + OVA] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — бывший сотрудник компании, занимающейся разработкой видеоигр. Компания, в которой он трудился, закрылась из-за долгов, а на выход созданной при его участии игры покупатели не обратили внимание. Неудачи заставляют 28-летнего героя задуматься о жизни и разочароваться в собственных решениях, принятых когда-то. Но вскоре после этого безработный разработчик (   Читать дальше...   )Жанр: приключения, комедия, романтика, драма.Режиссер: Кобаяси ТомокиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 1-ая серия 50 мин, 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B81B5BCE8099767CF001402182C24E49FE1C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440976   (859237) от 25.09.2021
-
-Jaku-chara Tomozaki-kun / Bottom-tier Character Tomozaki / Низкоуровневый персонаж Томодзаки [2021, TV, 12+2 OVA] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фумия Томодзаки считает себя «низшим уровнем», в жизни у него нет никаких выдающихся качеств, кроме одного: он является лучшим игроком в Atafami во всей Японии. Однажды второй в рейтинге игрок предлагает встретиться. Томодзаки испытывает потрясение, выяснив, что этот игрок — не кто иной, как его одноклассница, имеющая в реальной жизни «уровень Бога», умная и красивая (   Читать дальше...   )Жанр: комедия, романтика.Режиссер: Янаги СинсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин (TV), 2 серии по 15 мин (OVA).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF98F182E45B242CFF86B820D0B5E3A7BC74E9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482762   (859236) от 25.09.2021
-
-Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Чёрной компании" [2021, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киндзи — обычный современный бездельник, для которого рабочая этика или трудолюбие — пустые слова. Но однажды всё меняется: он обнаруживает себя в фэнтезийном мире, но не таком, где героя-попаданца ждут с распростёртыми объятиями. Вместо этого он оказывается под пятой злобной горнодобывающей компании, и ему предстоит на собственной шкуре уяснять значение словосочетания (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключенияРежиссер: Минато МирайПеревод: 1) Funimation; 2) Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: 1) Английские; 2) РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C8915B778E04168AEA23DC6CB5B24708C64444
 ```
 
 https://mybot314.ru/tekegram_catalog/

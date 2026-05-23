@@ -1,3 +1,110 @@
+###  Публикация: 581954   (319593) от 29.11.2012
+
+Четверо против кардинала / Les charlots en folie: A nous quatre Cardinal! (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательных приключений мушкетёров, демонстрирующих собственный взгляд режиссёра Андре Юнебеля на наследие Александра Дюма. Всю работу за непутёвых мушкетёров здесь вынуждены проделать их слуги, которых и сыграли «Шарло». Герои вступают в схватку со всемогущим Ришелье и, преодолевая всевозможные препятствия, всё-таки умудряются не только вернуть королеве её подвески, но и посрамить самого кардинала.Жанр: Комедия, ПриключенияРежиссер: Андре ЮнебельПродюсер: Бернар АртигАктеры: Жерар Ринальди, Жерар Филипелли, Жан Саррю, Жан-Ги Фечнер, Жан Вальмонт,  Джозефин Чаплин, Иван Танги, Жиб Гроссак, Жорж Мансар, Бернард Хэллер, Даниэль Секкальди, Катрин Журдан, Карин Петерсен, Жак СейлерПеревод: Дублированный (киностудия имени М. Горького)Продолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E1BB576868AC466467B57FDABD595AFA3DB139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421308   (319545) от 04.11.2020
+
+Осьминожка / Octopussy (1983) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+При таинственных обстоятельствах погибает коллега Джеймса Бонда агент 009. Чтобы разобраться в этом преступлении Бонду предстоит прокатиться в Индию, где он встречается с роковой женщиной, умопомрачительной красоткой по прозвищу Осьминожка.
+Активно пользуясь своими глубочайшими знаниями женской психологии, агент 007 выходит на след абсолютно безумного и столь же (   Читать дальше...   )Производство: Великобритания / United Artists, Eon Productions, DanjaqЖанр: боевик, триллер, приключенияРежиссер: Джон ГленАктеры: Роджер Мур, Мод Эдамс, Луи Журдан, Кристина Уэйборн, Кабир Беди, Стивен Беркофф, Дэвид Мейер, Тони Мейер, Десмонд Ллевелин, Роберт БраунПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E702316498A24B95D1E9A45D7F42D5F29054CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421311   (319537) от 04.11.2020
+
+Искры из глаз / The Living Daylights (1987) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Непрекращающееся ни на секунду действие переносит нас со скалы Гибралтара в концертный зал в Чехословакии, потом в славный город Танжер, оттуда – в зону боевых действий в Афганистане.
+Бывший сотрудник КГБ, двойной агент, продажный советский генерал. Контрабандист и предатель снабжает оружием Афганского наркобарона и террориста.Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Джон ГленАктеры: Тимоти Далтон, Мэриам д’Або, Ерун Краббе, Джо Дон Бейкер, Джон Рис-Дэвис, Арт Малик, Андреас Виснивски, Томас Уитли, Десмонд Ллевелин, Роберт БраунПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D259E108828A0900EF855A9981D94A9656EE2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421312   (319536) от 04.11.2020
+
+Лицензия на убийство / Licence To Kill (1989) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Не успев как следует насладиться прелестями семейной жизни, молодожён, агент ЦРУ и старый друг Джеймса Бонда Феликс на собственной шкуре познаёт жестокость колумбийской наркомафии. Его красавицу-жену убивают, а его самого кидают на съедение акулам.
+Агента 007 не устраивает такое отношение к его друзьям и он, нарушив все инструкции и приказы, но не забыв прихватить (   Читать дальше...   )Производство: Великобритания, Мексика, США / Danjaq, Eon Productions, United ArtistsЖанр: боевик, триллер, приключенияРежиссер: Джон ГленАктеры: Тимоти Далтон, Кэри Лоуэлл, Роберт Дави, Талиса Сото, Десмонд Ллевелин, Энтони Цербе, Фрэнк МакРей, Дэвид Хедисон, Роберт Браун, Кэролин БлиссПеревод: ДублированныйСубтитры: русские, английские (отдельными файлами)Продолжительность: 02:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303086D11D7196F9B52203785C95C1EDC7C7EE0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421310   (319533) от 04.11.2020
 
 Вид на убийство / A View to a Kill (1985) BDRip
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,111 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0711EF1FAC7F61BEC944F8CB5C29B3F57794A59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842710   (313000) от 27.11.2014
-
-Бегущий по лезвию / Blade Runner (1982) BDRip [H.264] [International Theatrical Cut]
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отставной детектив Рик Декард вновь восстановлен в полиции Лос-Анджелеса для поиска возглавляемой Роем Батти группы киборгов, совершившей побег из космической колонии на Землю.
-В полиции считают, что киборги пытаются встретиться с Эндолом Тайреллом, руководителем корпорации, ставящей эксперименты над кибернетическим интеллектом. Рик Декард получает задание выяснить (   Читать дальше...   )Жанр: Фантастика, КиберпанкРежиссер: Ридли СкоттАктеры: Харрисон Форд, Рутгер Хауэр, Шон Янг, Эдвард Джеймс Олмос, М. Эммет Уолш, Дэрил Ханна, Уильям Сэндерсон, Брайон Джеймс, Джо Тёркел, Джоанна КэссидиПеревод: ДублированныйПродолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A680576012D9D170E1A5C2239A5021FBD7A6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417002   (312947) от 07.11.2020
-
-В один воскресный день / One Sunday Afternoon (1948) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дантист Бифф Граймс во всех своих жизненных проблемах обвиняет своего друга детства Хьюго Барнстеда. Девушка его мечты, Вирджиния Браш, вышла замуж за Хьюго, разбив тем самым сердце Биффа. Из-за недобросовестности Хьюго Граймс угодил в тюрьму. А теперь Бифф в очередной раз вынужден перенести свою стоматологическую практику в другой район, потому что новости о том, (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Мюзикл, МелодрамаРежиссер: Рауль УолшАктеры: Дэннис Морган, Дженис Пейдж, Дон ДеФор, Дороти Мэлоун, Бен Блу, Оскар О’Ши, Алан Хейл мл., Дороти Хэк, Мэрион Морган, Лэйн АрлинПеревод: Одноголосый любительский, rtysСубтитры: Русские (полные и только на песни, перевод - Северный)Продолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2500B4DA342C55D5E26494476ADB1ED02111DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760426   (312729) от 07.11.2020
-
-Леди Годива / Lady Godiva (1911) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм Джеймса Стюарта Блэктона «Леди Годива» – первое экранное воплощение легенды о прекрасной и самоотверженной супруге графа Ковентри, которая, дабы облегчить жителям города налоговое бремя, согласилась проехать через весь город на коне в костюме Евы. Литературной основой сценария стала поэма знаменитого Альфреда ТеннисонаПроизводство: США, VitagraphЖанр: Драма, короткометражный, немое киноРежиссер: Дж. Стюарт БлэктонАктеры: Джулия Свейн Гордон, Роберт Гэллард, Кейт Прайс, Гарри Уорд, Стэнли Данн, Хэл Уилсон, Альфред Холлингсворт, Клара Кимболл Янг, Джеймс ЯнгЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C486190E52BCFF54CD079AFB69D658D3E87A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537762   (312139) от 02.12.2012
-
-Как украсть миллион / How to Steal a Million (1966) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Николь, парижский антиквар Шарль Бонне купается в деньгах и славе. Картина Сезанна из его коллекции только что ушла с аукциона по неслыханной цене, музей "Клебер Лафайет" выставляет принадлежащую ему статуэтку Венеры работы Челлини как главный экспонат открывающейся выставки. Венера бесценна, но музейные правила требуют застраховать ее, приглашены (   Читать дальше...   )Производство: США / World Wide ProductionsЖанр: Мелодрама, Комедия, КриминалРежиссер: Уильям УайлерАктеры: Одри Хепберн, Питер О’Тул, Илай Уоллак, Хью Гриффит, Шарль Буайе, Фернан Гравей, Марсель Далио, Жак Марен, Мусташ, Роже ТревильПеревод: Cоветский дубляж, Профессиональный DVO с КлюквинымПродолжительность: 01:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F05CE734C75CC7D7491E023B7B73F0E78E2699
 ```
 
 https://mybot314.ru/tekegram_catalog/

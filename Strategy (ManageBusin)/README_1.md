@@ -1,3 +1,58 @@
+###  Публикация: 620938   (963680) от 19.02.2013
+
+Cities XL Platinum 2013 [En] (L) 2013 | COGENT
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Стройте города, формируйте мир.
+Cities XL Platinum позволяет проектировать, строить и связать города всех форм и размеров по всей планете Cities XL!
+Постройте более впечатляющих городов, чем когда-либо прежде! Cities XL Platinum предлагает огромное разнообразие более 1000 зданий и сооружений (в том числе 50 новых структур), которые вы можете свободно размещать на более чем 60 гигантских картах, предлагающих разнообразный рельеф и невероятный уровень детализации.
+Возьмите на себя роль виртуального мэра и найдите решения проблем, с которыми сталкиваются современные планировщики города, как нехватка энергии и общественного транспорта. Дайте ответ на растущие потребности своих граждан и найдите идеальный баланс между различными услугами, такими как жилье, отдых и занятость. Специализация вашего города позволит вам создать торговую сеть с соединить ее с другими городами, чтобы обеспечить крупномасштабный финансовый успех с более сложной сетью городов.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F315B9DFFDBA8028E38B84453C7C7DB2C5499AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089087   (953284) от 02.01.2017
+
+Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это игра, которая охватывает всю историю железных дорог, с самого начала и по сей день. Игрок выбирает карту (сценарий) и берет на себя роль начальника железнодорожной компании. Игрок пытается получить прибыль для инвесторов и проходит различные задания, при этом мешая соперникам.Тип издания: LicenseРазработчик: G.O.D., Pop Top SoftwareЖанр: Strategy (Manage, Busin., Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089035   (953277) от 02.01.2017
 
 Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.05) License GOG
@@ -6,7 +61,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +87,7 @@ Sid Meier's Railroads! (2006) [Multi] (1.100) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +113,7 @@ Impire + 2 DLC [Ru] (Repack/1.0.1.2) 2012 | Fenixx
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +139,7 @@ Kingdom: New Lands (2016) [Ru/Multi] (1.2.1) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +165,7 @@ Prison Architect (2015) [Ru/Multi] (1.0/dlc) SteamRip Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +191,7 @@ Tropico 5 (2014) [Ru/En] (1.10/dlc) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +217,7 @@ Tropico 5 (2014) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst [Complete Collection
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +243,7 @@ Cities XL Platinum [En/Multi7] (L) 2013 | PROPHET
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +272,7 @@ Impire [Ru/En] (Repack/1.0.1.1) 2013 | R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +298,7 @@ Wonderburg / Вандербур (2009) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +324,7 @@ Hell Architect (2021) [Ru/Multi] (1.0.2) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +350,7 @@ Caesar (1993) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +376,7 @@ Caesar 2 (1995) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +402,7 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +428,7 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +454,7 @@ As Far As The Eye (2020) [Ru/Multi] (1.0.5c2) License GOG [Supporter Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +480,7 @@ Fallout Shelter (2016) [Ru/Multi] (1.10) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +506,7 @@ Dice Legacy (2021) [Ru/Multi] (7195733) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +532,7 @@ Holy Potatoes! A Weapon Shop?! (2015) [En/Jp] (1.0.8.9828/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +558,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +584,7 @@ Age Of Gladiators (2016) [En] (1.006.2) Repack ALiAS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +610,7 @@ Weedcraft Inc (2019) [Ru/Multi] (1.3.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +636,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +662,7 @@ Punch Club (2016) [Ru/Multi] (1.31/dlc) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,58 +673,6 @@ Punch Club (2016) [Ru/Multi] (1.31/dlc) Repack Other s [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82633A2A6B681CD2742851BB9A02F3B83C7D9D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000629   (856959) от 26.03.2016
-
-Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная особенность Train Fever — встроенная в транспортную стратегию автономная градостроительная игра, которая неподвластна нам. Но не расстраивайтесь — вместо нас ей управляет кремниевый мэр. Небольшие деревни, фермы, поселки, районные центры и мегаполисы находятся во власти искусственного интеллекта. Населяют этот мир различные персонажи. Как это водится, они (   Читать дальше...   )Тип издания: LicenseРазработчик: Urban GamesЖанр: Simulation, Strategy, Economy, TrainsЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870C4497F7A3DDC2A5DBD04EE741F6F6AEB36CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001520   (853517) от 28.03.2016
-
-Punch Club (2016) [Ru/Multi] (1.1/dlc) Repack ARMENIAC [Deluxe Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853517.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве ты стал свидетелем кровавого убийства своего отца и был разлучен с братом. Ты пообещал умирающему отцу, что сможешь постоять за себя! Теперь тебе придется усиленно тренироваться, есть стейки и прокладывать своими кулаками себе путь на вершину бойцовской карьеры. Ну и конечно, найти убийцу отца и отомстить.Тип издания: RepackРазработчик: Lazy Bear GamesЖанр: Strategy (Manage, Busin.), Arcade (Fighting)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF19B5FD50278A0A51E78F62117692BD4ADA439E
 ```
 
 https://mybot314.ru/tekegram_catalog/

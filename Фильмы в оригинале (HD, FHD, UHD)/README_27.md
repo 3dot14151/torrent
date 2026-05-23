@@ -1,3 +1,82 @@
+###  Публикация: 1226739   (653496) от 22.05.2018
+
+Аннигиляция / Annihilation  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На Землю прилетает маленький метеорит и становится причиной больших перемен. Он врезается в одиноко стоящий маяк, что загадочным образом меняет территорию вокруг.
+Профессор биологии Лина уже год страдает от потери мужа-военного. Кейн отправился на очередное секретное задание, но так и не вернулся — жив ли, погиб — женщина не знает, пока однажды дезориентированный (   Читать дальше...   )Производство: Великобритания, США / DNA Films, Paramount Pictures, Scott Rudin Productions, Skydance MediaЖанр: ужасы, фантастика, фэнтези, триллерРежиссер: Алекс ГарлендАктеры: Натали Портман, Бенедикт Вонг, Соноя Мидзуно, Дэвид Гяси, Оскар Айзек, Джон Шваб, Дженнифер Джейсон Ли, Джина Родригез, Тува Новотны, Тесса Томпсон, Сэмми Хейман, Джош ДэнфордПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DA0D3B8B43286791B02F12BE43E9CDC9532401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140803   (651973) от 09.06.2017
+
+Уилсон / Wilson (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уилсон — одинокий, невротичный и до забавного честный человек среднего возраста, он не любит людей, но обожает собак. Он воссоединяется со своей бывшей женой и получает невероятный заряд счастья, когда узнает, что у него есть дочь-подросток, которую он никогда не встречал. В своем уникально возмутительном и слегка вывернутом наизнанку путём, Уилсон устанавливает, (   Читать дальше...   )Производство: США, Ad Hominem EnterprisesЖанр: Комедия, ДрамаРежиссер: Крэйг ДжонсонАктеры: Вуди Харрельсон, Сэнди Оян, Шон Браун, Джеймс Роберт Миллер, Бретт Гельман, Мэри Линн Райскаб, Джуди Грир, Туссен Моррисон, Эндрю Хоутри, Ричард Оомс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58E46257564D38E56A28DF72BD703208D6218DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226972   (651657) от 23.05.2018
+
+Жажда смерти / Death Wish (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пол Керси — хирург, привыкший вытаскивать людей с того света после криминальных разборок. Но после того, как его жена и дочь становятся жертвами уличной банды, а полиция бездействует, он берет карающий меч правосудия в свои руки. Видео изобретательных убийств преступников покоряют интернет-топы, а среди жителей города расходятся слухи о неуловимом народном мстителе, (   Читать дальше...   )Производство: США, Cave 76, Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Криминал, Драма, ТриллерРежиссер: Элай РотАктеры: Брюс Уиллис, Винсент Д’Онофрио, Элизабет Шу, Камила Морроне, Дин Норрис, Бо Напп, Кимберли Элиз, Лен Кариу, Джек Кеси, Ронни Джин Блевинс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF12D87B9EAF8B6CEA9072C4621876755477B041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540261   (649964) от 31.03.2022
 
 Падение Луны / Moonfall (2022) WEB-DL [H.264/1080p-LQ] [EN / RU, UKR, EN Sub]
@@ -6,7 +85,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,86 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A876C7C2B1714F56BAC7C4DF22E168DC4FBACE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907260   (639307) от 11.06.2015
-
-Адмирал / Michiel de Ruyter / Admiral  (2015) BDRip [H.264/1080p] [Du / EN, Du Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михил Рюйтер был одним из самых главных новаторов в боевой технике. Он стал героем голландского флота.
-В то время как Голландию, находившуюся на грани гражданской войны, атаковали со всех сторон, лишь один человек пытался бороться за интересы страны - Михаил Рюйтер. Но в глазах власть имущих его успехи делали его слишком популярным, и Рюйтера отправили на смертельно (   Читать дальше...   )Производство: Нидерланды, Farmhouse Film & TV, Ciné Cri De Coeur, AVROTROSЖанр: боевик, биография, историяРежиссер: Роэль РейнАктеры: Франк Ламерс,  Барри Атсма,  Рёланд Фернхут, Эгберт Ян Вебер, Тиго Гернандт, Дерек де Линт, Хайо Брюинс, Жуль Кройсет,  Виктор ЛёвПеревод: ОтсутствуетЯзык озвучки: ГолландскийЯзык субтитров: английский, голландскийПродолжительность: 02:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4B51BD92D6300ADEF71251254A781A9EE06AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907177   (639176) от 11.06.2015
-
-Крепись! / Get Hard  (2015) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатый менеджер инвестиционного банка осуждён за преступление, которого он не совершал, и готовится к тюрьме. А помогает ему в этом парень, который моет его машину.Производство: США, Gary Sanchez Productions, Warner Bros.Жанр: комедияРежиссер: Этан КоэнАктеры: Уилл Феррелл, Кевин Харт, Крэйг Т. Нельсон, Элисон Бри, Эдвина Финдли, Ариана Нил, Эрик Чаварриа, Ти-Ай, Пол Бен-Виктор, Джон Майер, Джон Эйз, Нито ЛариозаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31E66542C22C709DACBA3FCDA6BF3FB664D6068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142824   (639075) от 16.06.2017
-
-Oats: Volume 1 (2018) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южноафриканский режиссер и сценарист Нил Бломкамп, известный по сайфай-фильмам «Район № 9», «Элизиум: Рай на Земле» и «Робот по имени Чаппи», объединил свои усилия с компанией Oats Studios для создания серии экспериментальных короткометражек.
-Кинематографист выпустил короткометражку под названием Volume 1, в котором можно увидеть Сигурни Уивер и Дакоту Фаннинг. В (   Читать дальше...   )Производство: США, Oats StudiosЖанр: Короткометражка, Ужасы, Боевик, ФантастикаРежиссер: Нил БломкампАктеры: Дакота Фаннинг, Сигурни Уивер, Карли Поуп, Хосе Пабло Кантильо, Алек Гиллис, Юджин Хумбанйива ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74002B30BFBBECA96E5758194D9806FD17A6530D
 ```
 
 https://mybot314.ru/tekegram_catalog/

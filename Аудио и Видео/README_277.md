@@ -1,3 +1,32 @@
+###  Публикация: 1525117   (129975) от 19.01.2022
+
+VA - Guitar Chillout Lounge 1 (2007) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Stone - Planet X (Dark Underground Mix) (4:39)
+02. Cabal, Maestro - Clifton Bay (Original Mix) (5:24)
+03. 4tunes, Debora Vilchez - Oir Es Aprender (Original Mix) (5:53)
+04. La Tienda - Papua-St.Tropez (Original Mix) (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F69CF96A9051BFF834D4261BE002A10ADBE8E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525051   (129946) от 19.01.2022
 
 Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
@@ -6,7 +35,7 @@ Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Du
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Ambiental Journey: Chillout Your Mind (2022) [AAC|~343 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Lofi Evening (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Lo-Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Reggaeton World, Vol. 5 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +209,7 @@ Guenter Haas - Famous People (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - My Electronic Kitchen, Vol. 3 (2017) [AAC|~324 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Stil vor Talent 300, Pt. 1 (2021) [AAC|~326 Kbps] <Melodic House, Progressi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - My Electronic Kitchen, Vol. 1 (2016) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - My Electronic Kitchen, Vol. 2 (2017) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +586,7 @@ Guenter Haas - Tales of a Broken Planet (2013) [AAC|~319 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Africa Gets Physical, Vol. 2 (2019) [AAC|~331 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +670,7 @@ VA - Africa Gets Physical, Vol. 1 (2017) [AAC|~335 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -670,7 +699,7 @@ VA - Africa Gets Physical, Vol. 3 (2020) [AAC|~331 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -699,7 +728,7 @@ VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -713,35 +742,6 @@ VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89D054A817DB6BDF2C0EF063B6C11CE00C28EE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525790   (129177) от 21.01.2022
-
-VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulful House, Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cookie Monsterz, Michelle Weeks, Qubiko - Spread Love (Unreleased Qubiko Dub) (6:41)
-02. Mata Jones - Esa Y Aqui (Unreleased Original Mix) (6:38)
-03. Dennis Ferrer, K.T. Brooks, Philip Z - How Do I Let Go (Unreleased Philip Z Dub) (6:31)
-04. Dino MFU, Alxndra Good, David Morales - Not True (Unreleased David Morales Reprise) (6:21)(   Читать дальше...   )Жанр: Deep House, Soulful House, Tech HouseПродолжительность: 03:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D24260F18DDA2C518C201F68508AF6624314B36
 ```
 
 https://mybot314.ru/tekegram_catalog/

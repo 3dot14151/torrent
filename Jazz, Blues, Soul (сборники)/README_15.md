@@ -1,90 +1,3 @@
-###  Публикация: 1159856   (479828) от 22.08.2017
-
-VA - Jazz Chill: Romantic Female Vocals (2017) [MP3|320 Kbps] <Vocal Jazz, Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Norah Jones - It's A Wonderful Time For Love  3:54
-002.  Nina Simone - Blue Prelude  3:20
-003.  Ella Fitzgerald - A Man And A Woman  3:18
-004.  Basia - The Sweetest Illusion  5:00(   Читать дальше...   )Жанр: Vocal Jazz, Smooth JazzПродолжительность: 08:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C5BA753A7C3528AD1F47A3777023E8A160B048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159978   (478109) от 23.08.2017
-
-VA - Mellow Mods Instrumental Jazz Music (2017) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478109.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Derek Ryan Edwards - On the Coast
-002. Instrumental Jazz Musique d'Ambiance - Datente corporelle
-003. Jazz douce musique d'ambiance - Sexy dame
-004. La Musique de Jazz de Datente - Moments magique(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 10:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48A85AFAF78B34ED1DD63228E9E27213D088D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058174   (470821) от 30.09.2016
-
-VA - Soft Jazz Best Background Music: Exam Study Music to Help Increase Concentration (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz for Study Music Academy - Soft Jazz: Best Background Music
-02. Easy Study Music Academy - Concentration and Brain Power
-03. Exam Study Piano Music Guys - Improve Human Memory
-04. Jazz Relax Academy - Positive Motivating Energy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05E3FC2B5EC03361334DB82757EE5BB4243C85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245655   (469780) от 07.09.2018
 
 VA - Smooth Jazz: Lyric Theatre (2018) [MP3|320 Kbps] <Smooth Jazz>
@@ -93,7 +6,7 @@ VA - Smooth Jazz: Lyric Theatre (2018) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +35,7 @@ VA - Vocal Jazz Lady (2016) [MP3|320 Kbps] <Vocal Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +64,7 @@ VA - Romantic Jazz Lounge: Wonderful Moments (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +93,7 @@ VA - Autumn Blues 77 Songs (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +122,7 @@ VA - Rainbow Blues (2018) [MP3|320 Kbps] <Blues, Jazz, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +151,7 @@ VA - American Rock Blues Ballad (2017) [MP3|320 Kbps] <Rock Blues, Country>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +180,7 @@ VA - Blues Collection 12 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +209,7 @@ VA - Slow Blues - My soul cries out (2020) 3CD [MP3|320 Kbps] <Blues, Instrument
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +238,7 @@ VA - 50 Sax Jazz Classics (2015) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +267,7 @@ VA - Carefree Lounge (Laidback Chillout Music) (2015) [MP3|320 кб/с]<Jazz, Lo
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +296,7 @@ VA - 100 Soul Jazz (2016) [MP3|320 Kbps] <Jazz, Soul, Vocal Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +325,7 @@ VA - Classic Rock'N'Roll 3CD (2016) [MP3|320 Kbps] <Blues, Rock, Pop>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +354,7 @@ VA - When Evening Falls (2019) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +383,7 @@ Barry White - Good Songs (2015) [MP3|320 кб/с]<Blues, Jazz, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +412,7 @@ VA - Autumn Country Blues (2016) [MP3|320 Kbps] <Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +441,7 @@ VA - Debutants of Blues (Дымка) (2016) [MP3|320 Kbps] <Blues Rock, Blues, A
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +470,7 @@ Joanna Connor - The very best of (1989-2011) [MP3|320 Kbps] <Blues, Blues-rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +496,7 @@ VA - Event Jazz Music (2019) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +525,7 @@ Chris Rea - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,7 +554,7 @@ VA - New Electro Swing: Jazz Review (2019) [MP3|320 Kbps] <Jazz, Swing Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -670,7 +583,7 @@ VA - Nu Jazz City Vol.1 (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -699,7 +612,7 @@ Seal - 25 Best Songs (2012) [MP3|218 - 250 кб/с]<Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -728,7 +641,7 @@ VA - Saxophone Collection (45CD) (1985-2010) [MP3|320 кб/с]<Jazz, Soul, Instu
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -739,6 +652,93 @@ VA - Saxophone Collection (45CD) (1985-2010) [MP3|320 кб/с]<Jazz, Soul, Instu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73FC221E9E7E4B7F140C12696B22B8E75AAC491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067293   (408238) от 28.10.2016
+
+VA - Journey. Relaxing Instrumental Piano Bar and Smooth Jazz Music (2016) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Jazz Music Ambient - Journey
+02. Jazz Piano Bar Academy - Smile Again
+03. Piano Jazz Calming Music Academy - What a Wonderful World
+04. Good Morning Jazz Academy - Shimmer of Mystery(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29695D6AE7AC68CAD186B6BAC30CD350E7F90689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712805   (403216) от 19.10.2013
+
+Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. No ordinary love 1992
+02. Smooth operator 1984
+03. Your love is king 1984
+04. Hang on to your love 1984(   Читать дальше...   )Жанр: SoulПродолжительность: 01:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12C26695E2E8E8396CFD691A4E6E04E39E7BE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712966   (403176) от 19.10.2013
+
+Chris Rea - 25 Best Songs (2012) [MP3|197 - 270 кб/с]<Blues-Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Hell (Part 2) 1989
+02. King Of The Beach 2000
+03. Auberge 1991
+04. Josephine 1985(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4872F3B02622077633653BDBE207E63263E14497
 ```
 
 https://mybot314.ru/tekegram_catalog/

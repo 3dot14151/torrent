@@ -1,3 +1,107 @@
+###  Публикация: 325302   (62389) от 20.03.2024
+
+Лихорадка субботнего вечера / Saturday Night Fever (1977) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Простой рабочий парень, живущий в Бруклине, вкалывает всю неделю с утра до вечера как проклятый, живет как заведенный, подчиняясь сложившимся ритуалам поведения и общения — и все ради того, чтобы в субботу, как обычно, отправиться на свою любимую дискотеку со своей любимой девушкой и танцевать там до потери сознания. Танцевать, забыв о каких бы то ни было ритуалах (   Читать дальше...   )Жанр: драма, мелодрама, музыкаРежиссер: Джон БэдэмПеревод: Профессиональный: двухголосый закадровый,  одноголосый закадровый (Михалёв)Субтитры: английскиеФормат: AVIПродолжительность: 01:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0238727ABF225931B0DAE0CF391CD34A242D5942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703126   (62335) от 20.03.2024
+
+Последний отпуск / Last Holiday (1950) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда одинокий, недооцененный продавец сельскохозяйственного оборудования обнаруживает, что жить ему осталось всего несколько недель, он снимает свои сбережения для последнего отпуска на "шикарном" курорте.Производство: Великобритания / Watergate FilmsЖанр: драма, мелодрамаРежиссер: Генри КассАктеры: Алек Гиннесс, Беатрис Кэмпбелл, Кэй Уолш, Грегуар Аслан, Джин Колин, Мюриэль Джордж, Брайан Уорт, Эсма Кэннон, Бернард Ли, Сидни ДжеймсПеревод: Авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D6948F2BC2275F08DBEF73D1DB84255D1055CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705952   (62139) от 22.03.2024
+
+Огни большого города / City Lights (1931) BDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Маленький Бродяга встречает красивую слепую девушку, торгующую цветами на улице, которая по ошибке принимает его за богатого герцога. Узнав о том, что операция может вернуть ей зрение, маленький Бродяга пускается на поиски денег.Производство: США / Charles Chaplin ProductionsЖанр: комедия, мелодрама, драмаРежиссер: Чарльз ЧаплинАктеры: Вирджиния Черрилл, Гарри Майерс, Аль Эрнест Гарсиа, Хэнк Манн, Чарльз Чаплин, Джонни Эбер, Джек Александр, Т.С. Александр, Виктор Александр, Альберт ОстинПеревод: Двуголосый профессиональный (СВ-Дубль)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E697CF4F9D49171B1A7AE57A6E61E3CF85529E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704701   (61720) от 26.03.2024
+
+Рио Браво / Rio Bravo (1959) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа Б. Х. Маккэмпбелла "Рио Браво"... Шериф маленького городка Рио Браво Джон Ченс арестовывает убийцу. Брат арестованного, известный бандит, собирает самых отчаянных головорезов со всей округи для его освобождения. Город наводнён преступниками, но Ченс принимает вызов. На помощь к шерифу приходят лишь пьяница, хромой старик и молодой быстрый (   Читать дальше...   )Производство: США / Armada ProductionsЖанр: драма, вестернРежиссер: Ховард ХоуксАктеры: Джон Уэйн, Дин Мартин, Рики Нельсон, Энджи Дикинсон, Уолтер Бреннан, Уорд Бонд, Джон Расселл, Педро Гонсалес-Гонсалес, Эстелита Родригес, Клод Экинс, Малкольм Аттербери, Гарри Кэри мл., Шеб ВулиПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626E2450FBB3260BF8E64327D26ACC6E4F668206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 4729   (61673) от 27.03.2024
 
 Пианист / The Pianist (2002) BDRip [MVO]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EF12E813108905D5E162676D1D81A178DB9A080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722296   (55870) от 21.05.2024
-
-Человек из Рио / L'Homme de Rio (1963) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Похищена бесценная индейская статуэтка, а вместе с ней и дочь хозяина сокровища — красавица Аньес. Жених девушки Адриан отправляется в погоню за похитителями. Он не представляет, какие испытания его ждут впереди.Производство: Франция, Италия / Dear Film Produzione, Les Films Ariane, Les Productions Artistes AssociésЖанр: боевик, мелодрама, комедия, приключенияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Франсуаза Дорлеак, Жан Сервэ, Роже Дюма, Даниэль Чеккальди, Милтон Рибейро, Убираси Де Оливейра, Сабу ду Бразил, Адольфо Чели, Симона РенанПеревод: Дублированный (К.ст. Горького)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2560EEB42E2B168F055640BEFFCBBDE0E2E23DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 393572   (55753) от 22.05.2024
-
-Риллингтон Плейс, дом 10 / 10 Rillington Place (1971) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон. 1944 год. Ночью, во время бомбежки, женщина проникает в полуразвалившийся дом. Там она встречает Джона Кристи, пятидесятилетнего дружинника. Он хочет помочь женщине избавиться от кашля, надевая кислородную маску. Но та неожиданно начинает задыхаться. Тогда Кристи бросается на женщину, насилует и душит. После этого он зарывает труп у себя в саду, где уже находятся (   Читать дальше...   )Жанр: Драма, Триллер, ДетективРежиссер: Ричард ФлайшерАктеры: Ричард Аттенборо, Джуди Гисон, Джон Хёрт, Пэт Хейвуд, Изобель Блэк, Мисс Райли, Филлис МакМэйхон, Рэй Баррон, Дуглас Блэкуелл, Джимми Гарднер, Эдвард ЭвансПеревод: Одноголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98EDB8127BDA062F42257B93B6D99C1ACF35DA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723382   (55570) от 24.05.2024
-
-Зуд седьмого года / The Seven Year Itch (1955) BDRip  [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книгоиздатель Ричард Шерман женат уже семь лет. Его жена и сын в очередной раз уезжают за город на каникулы. Недолго длится одиночество Ричарда, неожиданно на его балкон падает огромный горшок с томатами, и виной этому соседка с верхнего этажа — белокурая модель.
-Ричард предлагает красотке зайти к нему в гости и что-нибудь выпить. Шикарная блондинка в глубоком декольте (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Charles K. Feldman GroupЖанр: мелодрама, комедияРежиссер: Билли УайлдерАктеры: Мэрилин Монро, Том Юэлл, Эвелин Кийес, Сонни Тафтс, Роберт Штраусс, Оскар Хомолка, Маргарит Чэпман, Виктор Мур, Долорес Роздейл, Дональд МакБрайд и другиеПеревод: Дублированный, многоголосый  профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44F7AD6B698F09991A65B7399BBECC0F1C3BB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723693   (55516) от 24.05.2024
-
-Лили / Lili (1953) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная картина о судьбе доверчивой девушки Лили, волею случая попавшей в цирк. Там она научится по другому смотреть на жизнь, встретит новых друзей и найдёт свою любовь.Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: мюзикл, драма, мелодрамаРежиссер: Чарльз УолтерсАктеры: Лесли Карон, Мел Феррер, Жан-Пьер Омон, Жа Жа Габор, Курт Казнар, Аманда Блейк, Алекс Джерри, Ральф Думке, Вилтон Графф, Джордж БакстерПеревод: Многоголосый профессиональный (Рен-ТВ)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2574F2CE55B2BE033A60E6C0A9BAD4E126B9DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

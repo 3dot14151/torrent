@@ -1,3 +1,155 @@
+###  Публикация: 1032905   (642000) от 09.07.2016
+
+VA - Deep and Sexy: 20 Deep House and Funky House Music Tunes Vol.7 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Romeo Hillfinger - Comfortable Deep Lounge - Original Mix
+02. Tony Queen - You Have a Problem - Aston Romeo Remix
+03. Ron Tylor - A New Version - Original Mix
+04. Yves Taylor - Incomparable Breeze - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E81A5DB5BBD90D71B60FA78F16A978A85EF9766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032835   (641796) от 09.07.2016
+
+VA - Endless Dream (2016) [MP3|320 Kbps] <LoFi, Chillout, Lounge >
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Jako Diaz - Youth (Alex Hook Remix)
+002. Weathertunes - Happy Birthday (feat. Wawa)
+003. Jan Blomqvist Feat. Elena Pitoulis - More
+004. Steven Solveig - Laid Back Moves(   Читать дальше...   )Жанр: LoFi, Chillout, LoungeПродолжительность: 10:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A727F6CF6CA1153CF90477175E239EEE49F6FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906773   (641697) от 10.06.2015
+
+VA - КаZантип Z005 Euro Trance (2005) Z-GAMES [MP3|192-320 кб/с]<Euro Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001 R-TEM - VOICELESS ''ГИМН - КАZАНТИП-Z005''
+002 LIVE MIX
+003 LIVE MIX
+004 LIVE MIX(   Читать дальше...   )Жанр: Euro TranceПродолжительность: 06:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD84B042A235B4562B862A277A0960A51C5C8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518486   (641534) от 04.07.2012
+
+VA - In Da Club: Euphoric Trance Volume 1 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. 2nd Phase - Lesson Learned (Garry Heaney Remix)
+002. Alex M.O.R.P.H. & Protoculture - Waking Up The Stars (Original Mix)
+003. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
+004. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Fabio XB Rework)
+005. Betsie Larkin & Sied Van Riel - The Offering (Save The Robot Remix)
+006. Cathy Burton & Omnia - Hearts Connected (Original Mix)
+007. Dennis Sheperd & Talla 2XLC - Two Worlds (Original Mix)Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED7CAE66147D211AE7258C896EEDC975FF7AB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518853   (641529) от 04.07.2012
+
+VA - Whisper of Consciousness Volume 22 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)
+002. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix)
+003. Temple One feat. Hannah Ray - Autumn Leaves (Estiva Remix)
+004. Simon Patterson & Greg Downey feat. Bo Bruce - Come To Me
+005. Roger Shah feat. Inger Hansen - Dance With Me
+006. Vincent De Jager feat. Emma Lock - Dive (Original Mix)
+007. Physical Phase feat. Loreen Chimenti - Donne Moi Ton Corps (Vincent Licata Remix)
+008. Vada - Fire In The Sky (Stoneface & Terminal Remix)Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAE60D961CEA527E1A1709C4A9A2F8E6C0F129A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906932   (641461) от 10.06.2015
 
 Space - Лучшие хиты (2014) [MP3|320 кб/с]<Electronic>
@@ -6,7 +158,7 @@ Space - Лучшие хиты (2014) [MP3|320 кб/с]<Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +187,7 @@ VA - Kiss FM - Top-40 (03.07.2012) [MP3|320 кб/с]<Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +222,7 @@ VA - Connection Through Sound (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -99,7 +251,7 @@ VA - Music Fop A Bright Dream (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +280,7 @@ VA - Color Club Life (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +309,7 @@ VA - Terror Hippie - Terror Trip (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +338,7 @@ Noetik - Shen Sessions (2018) [MP3|320 Kbps] <Trip-hop, Bass, Jungle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +367,7 @@ VA - Deep House Superstyle (2018) [MP3|256-320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +396,7 @@ VA - Trance Urban Party: Euphoric Mix (2022) [MP3|320 Kbps] <Trance, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +425,7 @@ VA - Trance Maniacs Party - Trancefer Wave #104 (2012) [MP3|320 кб/с]<Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -308,7 +460,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #89 (2012) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -343,7 +495,7 @@ VA - Kiss FM - Dance 10 (04.07.2012) [MP3|320 кб/с]<Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +530,7 @@ VA - Bassline In My Brain (2018) [MP3|320 Kbps] <Drum And Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +559,7 @@ VA - Best Of Vocal And Uplifting Trance (2018) [MP3|320 Kbps] <Vocal, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +588,7 @@ VA - Ben City House (2019) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +617,7 @@ VA - Record Super Chart 580 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +646,7 @@ VA - Cyber Monday (Vol.01) (2022) [MP3|320 Kbps] <Electronic, Synthwave, Synthsp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +675,7 @@ VA - Hot Synthpop Romantic Mix (2022) [MP3|320 Kbps] <Synthpop, Pop, Dance, Lyri
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +704,7 @@ VA - Deep House Collection Vol.198 (2019) [MP3|320 Kbps] <House, Deep House, Pro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +733,7 @@ VA - Strandhouse Rugensommer (2016) [MP3|320 Kbps] <Funky, Deep House, Tech>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +762,7 @@ VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,158 +776,6 @@ VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E24FC112AABF245595176F0A83D94CBB04D713A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907627   (638205) от 12.06.2015
-
-VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long J. - Metal Life [03:49]
-02. Long J. - African Night [05:11]
-03. Mangaroka - Roundrop [03:58]
-04. Marlon - Airy Dawn [04:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3063A0330F2C8A2F42A18CFD8863A809228C4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907567   (637874) от 12.06.2015
-
-VA - Promo DJ Top 100 Remixes Summer (2015) [MP3|128-320 кб/с]<House, Progressive Trance, Electro Progressive, Chillout, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R3hab, NERVO, Ummet Ozcan - Revolution (Johnny Beast Remix)
-02. ZHU - Faded (Feel Vocal Remix)Жанр: House, Progressive Trance, Electro Progressive, Chillout, DubstepПродолжительность: 08:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D2DC6215956A23FFC8FB959322A196D1E772CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033655   (637779) от 11.07.2016
-
-VA - Hits of My Soul Vol. 05 (2016) [MP3|320 кб/с]<Electronic, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник красивой и качественной электронной музыки, разных жанров.
-Его должен услышать каждый кто хочет насладится красотой, нежностью, и атмосферностью.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественною музыку.01. Travis Scott - Antidote (Cosmastly Remix) (04:00)
-02. Kygo ft. Maty Noyes - Stay (04:00)
-03. A Hero Theme - MK2 (Remake) (02:45)
-04. Sebastian Weikum ft. Junostar - Chordplay (Original Mix) (07:46)(   Читать дальше...   )Жанр: Chillout, Dance, Deep House, Dubstep, Electronic, House, Progressive House, Pop, Soundtrack, TrapПродолжительность: 03:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FAC84CA082E74A73617834C83636A3094502F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143091   (637575) от 17.06.2017
-
-VA - Uplifting And Vocal Trance Party (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ana Criado - Still There's You (A.R.D.I. Remix)
-002. Arsen Gold - Alien Abduction (Original Mix)
-003. Susana - Only Summer Knows (Original Mix)
-004. Tydi Ft. Christina Novelli - Fire & Load(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 10:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1310E16221074A3868F43E895846935BE0299790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519353   (637501) от 06.07.2012
-
-VA - Sexy Trance #41 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matisse & Sadko - Amulet [07:06]
- 02. Miikka Leinonen pres. Cinereal - Another Day (Original Mix) [06:24]
- 03. Marcus Maison & Will Dragen - Another Dimension (Original) [06:45]
- 04. Lange vs. Gareth Emery - Another You Another Me (Rafael Frost Remix) [07:26]
- 05. M.I.K.E. - Back In Time (Orjan Nilsen Refix) [07:44]
- 06. Mark Eteson - Blackboard (Original Mix) [06:09]
- 07. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi remix) [06:29]
- 08. Michael Jay Parker - Canberra [08:23]
- 09. Marcel Woods - Champagne Dreams (W&W Remix) [05:57]
- 10. Liquid Soul - Devotion (Protoculture Remix) [08:06](   Читать дальше...   )Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C50D122C56C1740FB6AA84949224B42EC41214F
 ```
 
 https://mybot314.ru/tekegram_catalog/

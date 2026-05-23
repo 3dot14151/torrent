@@ -1,3 +1,81 @@
+###  Публикация: 1747846   (44342) от 07.09.2024
+
+Побег из лабиринта времени / Boonie Bears: Time Twist (2024) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Озорные братья-медведи Бриар и Брамбл в опасности. И помочь им может только лесоруб Вик. Он отправляется в фантастическое путешествие во времени и пространстве, и на этом пути ему предстоит столкнуться со множеством испытаний, удивительных тайн и странных существ. Но ничто не остановит Вика, ведь его цель - спасти лучших друзей.Производство: Китай / Fantawild Animation, Sina StudiosЖанр: мультфильм, приключения, фантастикаРежиссер: Линь ХуэйдаАктеры: Тань Сяо, Чжан Бинцзюнь, Чжан Вэй, Чжан МинПеревод: дублированный (Tone Town)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E248654BC77E4C99BC5C154804B68E3E974A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239391   (44264) от 08.09.2024
+
+Дом-монстр / Monster House (2006) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Три приятеля ДиДжей, Чёдер и Дженни обнаруживают, что соседний дом — самое настоящее чудовище. Никто из взрослых им не верит: мало ли, что выдумают дети. Поэтому когда начинаются неприятности, друзьям приходится самим противостоять этому монстру.Производство: США, Канада / Columbia Pictures, Relativity Media, ImageMoversЖанр: мультфильм, фэнтези, комедия, детектив, семейныйРежиссер: Гил КинанАктеры: Райан Ньюман, Стив Бушеми, Митчел Муссо, Кэтрин О’Хара, Фред Уиллард, Сэм Лернер, Вуди Шульц, Йен МакКоннел, Мэгги Джилленхол, Джейсон ЛиПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748042   (44243) от 08.09.2024
+
+Судзумэ, закрывающая двери / Suzume no tojimari (2022) BDRip [AV1/2160p-LQ] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+16-летняя Судзумэ живёт в тихом городке на острове Кюсю. Однажды по дороге в школу она встречает молодого путешественника, который спрашивает, где в окрестностях находятся развалины. Любопытство берёт верх, и девушка решает посмотреть, что же там такого интересного — пробирается на местную заброшку, находит там загадочную дверь, открывает её и вытаскивает из земли (   Читать дальше...   )Производство: Япония, Aniplex, CoMix Wave Films, East Japan Marketing & Communications Inc., KadokawaЖанр: аниме, мультфильм, фэнтези, приключения, мелодрамаРежиссер: Макото СинкайАктеры: Нанока Хара, Хокуто Мацумура, Ан Яманэ, Эри Фукацу, Рюносукэ Камики, Котонэ Ханасэ, Саири Ито, Сёта Сомэтани, Акари Миура, Косиро МацумотоПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, ЯпонскийСубтитры: русские (full, forced), английскиеПродолжительность: 02:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59976ACAAC864201DA400AA9F75264A6B38A2BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748104   (44199) от 08.09.2024
 
 Дом-монстр / Monster House (2006) BDRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EBF1064E0C4581F8E07B0E642B79F295F9BFBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750071   (43179) от 18.09.2024
-
-Джимми Нейтрон: Мальчик-гений / Jimmy Neutron: Boy Genius (2001) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы решили совершить массированный налет на мирный и благополучный Ретровилль! В то время, как Джимми развлекался в луна-парке со своими друзьями, инопланетяне обрушились с небес, похитив при этом родителей всех детишек!
-
-Жизнь без строгих пап и мам, поначалу казавшаяся раем, стала совершенно невыносимой и тоскливой. Отважный Джимми Нейтрон решает спасти любимых (   Читать дальше...   )Производство: США, Австралия / DNA Productions Inc., Nickelodeon Animation Studios, Nickelodeon Movies, O Entertainment, Paramount PicturesЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Джон А. ДэвисАктеры: Деби Дерриберри, Меган Кавана, Марк ДеКарло, Джеффри Гарсиа, Боб Гоен, Мэри Харт, Кэролин Лоуренс, Андреа Мартин, Кэнди Мило, Роб ПолсенПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E163A0C10660A7822CBDA6AD4D4343493BBA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750379   (43070) от 19.09.2024
-
-Сирокко из страны ветров / Sirocco et le royaume des courants d'air / Sirocco and the Kingdom of the Winds (2023) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кармен и ее младшая сестра Жюльетта проводят день в гостях у соседки, детской писательницы, чьи захватывающие истории посвящены обитателям фантастического Королевства Ветров. Пока хозяйка отдыхает, девочки обнаруживают ожившую фигурку, которая открывает им портал в сказочную страну.Производство: Франция, Бельгия / Sacrebleu Productions, Take Five, Ciel de Paris ProductionЖанр: мультфильм, фэнтези, приключенияРежиссер: Бенуа ШьёАктеры: Пьер Лонье, Лоис Шарпентье, Марин Бертье, Лоран Морто, Эрик Де Старке, Дэвид Дос Сантос, Жеральдин Асслен, Tallula Dinsmoore, Селия, Элия Сен-ПьерПеревод: Дублированный (Студийная банда)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC67EA92A9C82537E8A3864C381F68E1323BAA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750442   (42990) от 20.09.2024
-
-200% Волк / 200% Wolf (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пудель Фредди Люпин мечтает стать волком. Волки смеются над ним, полагая, что пудель не может совершать героические поступки и помогать людям, как они. Однажды Фредди загадал желание, но напутал с ним, и на Землю прилетел озорной лунный дух. Тот рассказал, что Земля и Луна должны скоро столкнуться, но Фредди может помочь предупредить катастрофу. Собрав друзей-собак, (   Читать дальше...   )Производство: Австралия, Германия, Испания, Мексика, США / 200 Wolf La Pelicula AIE, 20th Century StudiosЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Алекс СтадерманнАктеры: Илай Суинделлс, Элизабет Наббен, Дженнифер Сондерс, Sarah Georgina, Питер МакАллум, Самара Уивинг, Janice Petersen, Heather Mitchell, Michael Bourchier, Алекс СтадерманнПеревод: Профессиональный многоголосый (RGB)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E8784A6B3AC3BCF8DE48E5A5D91E636927DA9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

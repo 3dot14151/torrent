@@ -1,3 +1,178 @@
+###  Публикация: 575992   (366309) от 16.11.2012
+
+Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0162E116B62BE3E0CB4CFE25737F42C7737EA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575574   (365576) от 16.11.2012
+
+JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E807D639FB6BCC86C805AE8083F6CC555963D947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950476   (365328) от 28.10.2015
+
+Майя Кристалинская - Золотая коллекция Ретро (2006) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В релизе представлены 25 песен в исполнении Майи Кристалинской с различных концертов и телевизионных передач, охватывающих практически весь творческий путь Великой эстрадной певицы, с середины 60-х по 1985 год.
+Записи предоставлены Гостелерадиофондом.
+Черно-белые кадры концертов раскрашены методом цветного компьютерного тонирования.01. Таёжный вальс (автор музыки Э. Колмановский, автор слов Л. Ошанин)
+02. Всё равно (автор музыки Э. Колмановский, автор слов Л. Ошанин)
+03. Полынь (автор музыки А. Пахмутова, автор слов Р. Рождественский)
+04. Неужели мне одной (автор музыки Г. Портнов, автор слов Ю. Принцев)(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2405033789B3B972E1A1D31BB10992E808C41828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575958   (365146) от 16.11.2012
+
+Coldplay - Live 2012 (2012) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+• Coldplay Live 2012 is the band’s first concert film/live album for nine years. It documents their acclaimed Mylo Xyloto world tour, which has been seen by more than three million people since it began in June 2011. The film was directed by Paul Dugdale, previously responsible for Adele’s Live at the Royal Albert Hall and The Prodigy’s Worlds On Fire concert films. Coldplay Live 2012 includes footage from Coldplay’s shows at Paris’s Stade de France, Montreal’s Bell Centre and the band’s triumphant Pyramid Stage headline performance at Glastonbury 2011.
+«Coldplay Live 2012» — это первый фильм группы за 9 лет, представляющий их новый альбом. Это запись мирового концертного тура «Mylo Xyloto», который с 2011 года собрал более трех миллионов зрителей.01. Mylo Xyloto
+02. Hurts Like Heaven
+03. In My Place
+04. Major Minus
+05. Yellow
+06. Violet Hill
+07. God Put A Smile Upon Your Face
+08. Princess Of China (with Rihanna)
+09. Up In Flames
+10. Viva La Vida(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257986   (365093) от 29.09.2019
+
+Юнона и Авось (1983) DVB [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Два парусных корабля «Юнона» и «Авось» под российским флагом прибывают в Калифорнию, где капитан брига «Авось» полюбил местную красавицу с гасиенды, чем вызвал ревность и ненависть влюбленного в нее соперника.Производство: СССР / Гостелерадио СССРЖанр: Мюзикл, Драма, Мелодрама, МузыкаРежиссер: Марк ЗахаровАктеры: Николай Караченцов, Елена Шанина, Александр Абдулов, Павел Смеян, Владимир Белоусов, Александр Садо, Радий Овчинников, Владимир Кузнецов, Сергей Греков, Ирина АлфёроваСубтитры: отсутствуютПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE05B3F2EFDD6DFFBB534222BCABFEB7AAB1A006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950814   (365072) от 28.10.2015
+
+VA - Осенний марафон № 200 / Видеоклипы (Презент Хитовой Двухсоточки) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Осенние (27.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
+Представляю юбилейный, двухсотый сборник популярной музыки для хорошего настроения.01. 5 Seconds of Summer - Hey Everybody! (Official Video) (00:04:03)
+02. Alex Sparrow - She's Crazy But She's Mine (ПРЕМЬЕРА!) (00:04:18)
+03. Armin van Buuren ft. Cimo Fränkel - Strong Ones (Official Video) (00:03:29)
+04. BT and Senadee ft. Dragon and Jontron - Lifeline (Official Video) (00:03:58)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494605E8979914BC467E07C9408CC893DC2343E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950661   (365066) от 28.10.2015
 
 Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
@@ -6,7 +181,7 @@ Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +207,7 @@ Yanni Live! The Concert Event (2006) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -88,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -123,7 +298,7 @@ Rammstein - 100 Jahre Rammstein, Arena Berlin (1996) VHSRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -152,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -179,7 +354,7 @@ Masami Okui - GIGS 2006 evolution (2007) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -210,7 +385,7 @@ Mike Oldfield - Tubular Bells III Live (1998) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -239,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -265,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +524,7 @@ The best of Zero project (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +553,7 @@ Epica - Abyss of Time - Countdown to Singularity (2020) WEB-DL [VP9/2160p-LQ] <S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -433,7 +608,7 @@ Slipknot - Rock am Ring (2009) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +663,7 @@ Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +689,7 @@ Usher - Numb (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +715,7 @@ Usher - Dive (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -551,162 +726,6 @@ Usher - Dive (2012) [H.264/1080p] HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:056E18E5D7089609560D09C6B404AFB0A72A2696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577860   (358546) от 19.11.2012
-
-Гайтана - My everything (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA2682DA467BC9AA2725630D3D2C313D7E801DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577502   (358544) от 19.11.2012
-
-Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4459BA3506CE17F6F6AA113080EFD5E2A8A65C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577507   (358366) от 19.11.2012
-
-Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254813806A3B1877851BD23F68D52FCCDBE3EE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577689   (358356) от 19.11.2012
-
-Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R'N'B
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476216F79F2C2E8CBEC31896C820B6F8FEC6060F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577878   (358348) от 19.11.2012
-
-Прохор Шаляпин - Дубинушка (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4667F177E2A8E840975A4743FC6412E9AB7CD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577883   (358345) от 19.11.2012
-
-Юлия Войс - Ненавижу любя (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488EEF6FFAAC2B7B534612798A87F9553DD400BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

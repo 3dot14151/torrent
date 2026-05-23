@@ -1,3 +1,107 @@
+###  Публикация: 1285841   (714437) от 01.03.2019
+
+Русское краткое. Выпуск 2 (2018) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Русское краткое. Выпуск 2» — это пять необычных коротких историй от российских режиссеров. Хоррор о мистической школе «Пустите детей», эротический триллер «Серёжка», черная комедия «Грибы и рыбы» про лесную прогулку двух приятелей, остроумная киноновелла «Чё» о спонтанной поездке в Санкт-Петербург и постновогодняя история о поиске пропавшего парня по имени Костик.Производство: Россия, Кинокомпания "Пионер"Жанр: Драма, Комедия, УжасыРежиссер: Александр Домогаров мл., Ирина Вилкова, Ира Волкова, ...Актеры: Татьяна Кузнецова, Александр Ильин, Энтони Бэшоу, Ирина Вилкова, Алексей Ильин, Даниил Воробьев, Лукерья Ильяшенко, Сергей Кемпо, Павел Трубинер, Елена Нестерова ...Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71613FCF505C1D38071E8D32D8E4FEA56C8AB387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130483   (714230) от 02.05.2017
+
+Счастливый маршрут (2013) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Женя, простая и на редкость добрая девушка, живет в общежитии и работает водителем троллейбуса. Главное в жизни для нее — помогать людям. Она подменяет коллег на работе, бесплатно селит у себя бывшую учительницу и отдает едва знакомой девочке своё единственное платье. Подружки за глаза подшучивают над бессребреницей и уверены, что ей ничего в жизни не светит.Производство: Россия / Кинокомпания "Русское"Жанр: МелодрамаРежиссер: Виктория ДержицкаяАктеры: Глафира Тарханова, Кирилл Жандаров, Ольга Сташкевич, Елизавета Пащенко, Петр Баранчеев, Ольга Стрелецкая, Анна Шерлинг, Юлия Полынская, Максим Сапрыкин и др.Субтитры: ОтсутствуютПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587338FF5CD0988F1117EEB122DCB89AEC28C315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130586   (714229) от 02.05.2017
+
+Ожерелье (2013) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Марина, красивая и талантливая профессорская дочь, влачит жалкое существование. После смерти отца она все силы кинула на то, чтобы помочь своему женатому возлюбленному Юрию продвинуться по службе. А став деканом, Юрий, во избежание сплетен, оставил Марину на должности лаборантки.Производство: Россия / Кинокомпания "Русское"Жанр: МелодрамаРежиссер: Александр ХванАктеры: Мария Куликова, Екатерина Андреева, Мария Болонкина, Ольга Филиппова, Кирилл Гребенщиков, Андрей Биланов, Сергей Мухин, Юлия Васильева, Григорий Рыжиков, Галина Шмакова и др.Субтитры: ОтсутствуютПродолжительность: 01:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08532E4C090184C5D2CEBBFCC6072E41C38CB9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130448   (714220) от 02.05.2017
+
+Майский дождь (2012) HDTVRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В жизни Ольги происходит то самое событие, которого все девушки ждут годами: Марк делает ей предложение! Все происходит, как положено: розы, шампанское, назначение точной даты свадьбы, планы о путешествии, будущих детях… Но вдруг романтику момента нарушают удары в стену: недавно переехавший сосед устроил очередную вечеринку. «Сколько это может продолжаться?» — сетуют (   Читать дальше...   )Производство: ООО "Про100 Фильм"Жанр: МелодрамаРежиссер: Иван СидоровАктеры: Артем Ткаченко, Ирина Таранник, Равшана Куркова, Данила Дунаев, Антон Васильев, Владимир Фекленко, Светлана Колпакова, Игорь Филиппов, Александра Волкова, Евгений Рябов и др.Продолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2A42FCCC11E9C13EF553902BCFE5B6FA061212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557333   (714120) от 02.05.2017
 
 Мужчина для молодой женщины (1996) DVDRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_710639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_707750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7658C63FA22428A9FC39029285BFB3D8DDB11D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533188   (706566) от 23.02.2022
-
-Эластико: Двенадцатый игрок (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Провинциальный вундеркинд от футбола Матвей уже год как перебрался из Улан-Удэ в Москву и играет в столичном клубе, где, правда, преимущественно отсиживается на скамейке запасных. Пробиваться в первый состав ему помогает начинающий, но нахрапистый агент Алина. Незадолго до важного матча, Матвею звонят из родного города и сообщают неутешительные новости, связанные (   Читать дальше...   )Производство: Россия, World & Media, «Кинокомпания братьев Андреасян»Жанр: драма, спортРежиссер: Дмитрий ВласкинАктеры: Дмитрий Власкин, Анна Бегунова, Ирина Антоненко, Никита Волков, Владимир Гарцунов, Павел Стонт, Евгений ШириковПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA8AA3EDD1DC2AF6517B24E5D536F0F74CFDF9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792721   (705821) от 04.06.2014
-
-Кухня в Париже (2014) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модный столичный ресторан «Клод Моне» процветает. Именно здесь, в родном заведении Вика и Максим хотят отпраздновать долгожданную свадьбу. Но планы меняются, когда в ресторане назначают переговоры Президентов России и Франции! Команда ресторана терпит фиаско и вынуждена отправиться в «изгнание» — в Париж. Там Шеф с Максом сталкиваются с опасными конкурентами: Шеф (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Дмитрий Назаров, Марк Богатырев, Елена Подкаминская, Дмитрий Нагиев, Олег Табаков, Венсан Перес, Михаил Тарабукин, Сергей Лавыгин, Никита Тарасов, Виктор ХоринякПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A175A25C4F29914453F4CF28BD9B27FEF5F7C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220233   (705785) от 18.04.2018
-
-Огни притона (2011) BDRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Одессе в 1958 году. Главная героиня — мама Люба — хозяйка маленького борделя. В её подчинении — две «девочки», Зинка-Гитлер и Зигота. Они живут душа в душу. В маму Любу влюблен сын прокурора Аркаша, а она любит Адама, юродивого и поэта…Производство: Россия, Ин МоушнЖанр: ДрамаРежиссер: Александр ГордонАктеры: Оксана Фандера, Алексей Левинский, Ада Роговцева, Анна Слю, Катерина Шпица, Кристиан Жереги, Богдан Ступка, Евгений Цыганов, Михаил Голубович, Анжела ЧобануПродолжительность: 01:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E506431F9F05D8A8C217C143EDE0F646C0B59A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401938   (705298) от 12.08.2020
-
-Тесные врата (2009) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой - успешный бизнесмен, в искупление своих прошлых грехов решает круто изменить свою жизнь, чем вызывает недовольство и непонимание друзей и близких. Спровоцированные этим решением судьбоносные события не заставляют себя долго ждать…Производство: Россия / Tata StudioЖанр: ДрамаРежиссер: Сергей ТкачевАктеры: Владислав Сыч, Ольга Сутулова, Дмитрий Шевченко, Анатолий Горячев, Наталия Ткачева, Мария Шалаева, Павел Трубинер, Сергей Щепачев, Вероника ТкачеваСубтитры: ОтсутствуютПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1AD981327F9DE9F7B6E6B5BE78000133D83968
 ```
 
 https://mybot314.ru/tekegram_catalog/

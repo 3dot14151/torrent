@@ -1,3 +1,55 @@
+###  Публикация: 1637384   (240036) от 03.06.2023
+
+Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём перерождении в меч [ТВ-1] [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Попаданцам вечно не везёт. Как в прошлой жизни, в которой они, как правило, погибли жестокой глупой смертью, так и в нынешней, где они часто оказываются не в самом выгодном положении. Главному герою этой истории не повезло вдвойне: мало того, что коньки отбросил, вместе с коньками он лишился ног, рук, головы и вообще тела, так как переродился в меч! Да ещё с корабля (   Читать дальше...   )Производство: студия C2CЖанр: приключения, фэнтезиРежиссер: Исихира СиндзиПеревод: AniLibria (оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE454CF7088919FD685ADA125CEF4A972CA381AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628044   (239260) от 21.04.2023
+
+Romantic Killer | Романтический убийца [2022, Web, 12 эп.] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Андзу Хощино — типичная негероиня, её не интересуют мода или отношения, а вот видеоигры, шоколад и кошки интересуют. Однажды Андзу встречает загадочное существо по имени Лили, которое отправляет её в мир, наполненный горячими парнями. Теперь она участница проекта «Волшебный мир», цель которого — остановить сокращение населения. Андзу с порога заявляет, что такая (   Читать дальше...   )Производство: Студия Domerica / ドメリカЖанр: комедия, романтикаРежиссер: Итикава КадзуяПеревод: официальный (Netflix)Язык озвучки: Японский + ФранцузскийСубтитры: Русские; ФранцузскиеПродолжительность: 12 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC587ECF5A3C1ED8BADBF82A94D29F277B4E205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501364   (238895) от 27.04.2022
 
 Kobayashi-san Chi no Maidragon S + Mini Dragon | Miss Kobayashi's Dragon Maid S | Кобаяси и её горничная-дракон [ТВ-2 + Юбилейные серии] [2021, TV, 13 эп. + 21 SP] BDRip 1080p raw
@@ -6,7 +58,7 @@ Kobayashi-san Chi no Maidragon S + Mini Dragon | Miss Kobayashi's Dragon Maid S 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Shenmue the Animation | Шэнму [2022, TV, 13 из 13] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -166,7 +218,7 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -193,7 +245,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +271,7 @@ Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +297,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +325,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +353,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -327,7 +379,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -353,7 +405,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единств�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -381,7 +433,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Для ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -409,7 +461,7 @@ Mahou Tsukai no Yome: Nishi no Shounen to Seiran no Kishi | Невеста ча�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -435,7 +487,7 @@ Koukyoushihen: Eureka Seven - Hi-Evolution | Эврика Семь: Высока
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -463,7 +515,7 @@ Healer Girl | Девушка-целитель [2022, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -489,7 +541,7 @@ Muteking the Dancing Hero | Герой-танцор Мутэкинг [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -515,7 +567,7 @@ Deji Meets Girl | Девушка встречает дэдзи [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -541,7 +593,7 @@ Lupin Sansei vs. Meitantei Conan The Movie | Lupin III vs. Detective Conan The M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -567,7 +619,7 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [2022, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -593,7 +645,7 @@ Shakugan no Shana II / Жгучий взор Шаны [ТВ-2] [2007, TV, 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -619,7 +671,7 @@ Shakugan no Shana III Final / Жгучий взор Шаны III Финал [TV3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -630,58 +682,6 @@ Shakugan no Shana III Final / Жгучий взор Шаны III Финал [TV3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D31ADB46C864A5143A189937AB6338AD3DB1030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584700   (224390) от 19.10.2022
-
-Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет основан на классическом китайском романе XIV века «Троецарствие» и рассказывает о войне в регионе Канто в Японии, где бойцы, известные как «тощи», представляющие семь различных школ, сражаются за власть.Производство: Студия Arms / アームスЖанр: приключения, эттиРежиссер: Кудзё РионПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A03F1839F55EAD20516342FC13D228C5D08124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736429   (223969) от 20.12.2013
-
-Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древнее государство Парро пало от набега коварных и воинственных монгаулов. Королевская семья уничтожена, лишь в последнюю минуту придворный маг успевает телепортировать «две жемчужины» - младших принца и принцессу Ремуса и Ринду - в безопасное место. Увы, в горячке боя промашка вышла - наследники парросского престола попали не к родственникам, а в лес Руд, пользующийся (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Вакабаяси АцусиСубтитры: •Продолжительность: 26 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD2422EBCEE140B58AA2E9BD792BEE4C43C0E30
 ```
 
 https://mybot314.ru/tekegram_catalog/

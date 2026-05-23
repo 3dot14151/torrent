@@ -1,3 +1,81 @@
+###  Публикация: 1091669   (612452) от 30.06.2017
+
+Grim Dawn (2016) [Ru/Multi] (1.0.1.1/dlc) SteamRip Let'sPlay
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Grim Dawn — духовный наследник Titan Quest, который создается усилиями молодой студии Crate Entertainment основанной выходцами из Iron Lore Entertainment. Игра представляет из себя экшен/RPG выполненной в фэнтезийной стилистике. Действие сюжета Grim Dawn разворачивается в империи Каирн, ставшей полем битвы двух потусторонних сил.Тип издания: SteamRipРазработчик: Crate EntertainmentЖанр: RPG, Rogue, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DD866353FF3C9467E356E29C9A893AF8C07CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230753   (612060) от 14.06.2018
+
+Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.30/1.10/1.2/1.00/1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сейчас перед вами – фактически даже не игра, а программа-конструктор для создания собственных (!) ролевых игр во вселенной Forgotten Realms на базе движка РПГ серии GoldBox фирмы SSI. Программа содержит один предустановленный сценарий – Heirs to Scull Crag, - а также широчайшие возможности для создания не просто собственных приключений, но и целых миров. Все создаваемые (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroMagicЖанр: Ролевая игра, Экшн, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC95089AA3EB55A9B0866BD301DB84130E5D913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526438   (609157) от 22.04.2022
+
+Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В игре Medieval Dynasty вам предстоит примерить на себя роль юноши, который сбежал от войны и хочет взять жизнь в свои руки. Изначально вы одиноки, неопытны и бедны, однако вам предстоит многому научиться, возглавить других и основать процветающую династию, которая будет процветать многие века. Охотьтесь и защищайтесь от хищников, собирайте ресурсы и изготавливайте (   Читать дальше...   )Тип издания: RepackРазработчик: Render CubeЖанр: Adventure, RPG, Simulator, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77206C31D7E4BA42A3B33727759CEB46D5C57EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525114   (608955) от 20.07.2012
 
 Bastion [Ru/En] (RePack/1.0r21) 2011 l Audioslave
@@ -6,7 +84,7 @@ Bastion [Ru/En] (RePack/1.0r21) 2011 l Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Bastion [Ru/En/Multi6] (RePack/1.0r21) 2011 l R.G.Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Xanadu Next (2016) [En] (24.11.2016) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Bastion [Ru] (RePack/1.0r21) 2011 l Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Shadowrun: Dragonfall (2015) [Ru/Multi] (2.09) Repack xGhost [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Sudeki (2005) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Bard's Tale (2004) [Ru/Multi] (2.7.2.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Grimshade (2019) [Ru/En] (1.1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ For The King (2018) [Ru/Multi] (1.0.10.9949) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Serpent Rogue (2022) [Ru/Multi] (0.0.160) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) Repack Other s [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Witches, Heroes and Magic (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Waylanders (2022) [Ru/Multi] (1.10) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) License PLAZA [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ SUPER DRAGON BALL HEROES WORLD MISSION (2019) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (1.0.2) License FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Fallout of Nevada (2015) [Ru] (1.0/upd2) Repack ak97nsk
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Immortal: Unchained (2018) [Ru/Multi] (1.15/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Goliath (2016) [Ru/Multi] (1.0.6-GLU/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Goliath (2016) [Ru/Multi] (1.0.6-GLU/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474FE26930D3ED00541F1A36F5B11AE6EDF101D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040783   (585120) от 06.08.2016
-
-Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик Коробо, как и любой ребенок его возраста, любит играть и обладает живым и богатым воображением. В один прекрасный день он пускается в небольшую погоню за стаей крыс, которых он обнаружил в своей комнате. Неожиданно он находит корону, надев ее, он стремительно переносится в волшебную страну и становится, судя по головному убору, полноправным ее правителем. (   Читать дальше...   )Тип издания: LicenseРазработчик: Marvelous, Inc.Жанр: RTS, Fantasy, RPGЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3868FE66790D5238335916647139D330DA7BF90A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040828   (585091) от 06.08.2016
-
-Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик Коробо, как и любой ребенок его возраста, любит играть и обладает живым и богатым воображением. В один прекрасный день он пускается в небольшую погоню за стаей крыс, которых он обнаружил в своей комнате. Неожиданно он находит корону, надев ее, он стремительно переносится в волшебную страну и становится, судя по головному убору, полноправным ее правителем. (   Читать дальше...   )Тип издания: RepackРазработчик: Marvelous, Inc.Жанр: RTS, Fantasy, RPGЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B120082DC8273A73E48C34EC9D787ED5EA65BB3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184750   (584945) от 11.05.2019
-
-Titan Quest (2016) [Ru/Multi] (2.1/dlc) License PLAZA [Anniversary Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Titan Quest - Anniversary Edition, мифический набор, из которого так и рвётся наружу отполированный до блеска эпоc оригинальной экшен/RPG и дополнения The Immortal Throne. В эпоху древних богов, полководцев и царей страна, охваченная бедствием, молила о герое... То есть, о вас!Тип издания: LicenseРазработчик: THQ Nordic, Iron Lore EntertainmentЖанр: RPG (Rogue, Action), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CA7CDB6B0FB79A3AE73DCC05A75B0579F1D7D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

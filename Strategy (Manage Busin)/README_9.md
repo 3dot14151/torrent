@@ -1,3 +1,55 @@
+###  Публикация: 1641678   (195567) от 16.07.2023
+
+Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Пиксельный симулятор по строительству базы, сочетающем в себе исследования, крафтинг и сражения с инопланетными созданиями. Героиня только что высадилась на неизведанной планете и теперь ей предстоит подготовить ее для дальнейшего заселения. Для этого придется собрать ресурсы, построить фабрики и наладить производственные линии, создав идеальные условия для проживания.Тип издания: LicenseРазработчик: BEHEMUTTЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Китайский и другиеЯзык интерфейса: Русский, Английский, Французский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E914D9F0A02519F08C944AC6F6198E9C0A1BF966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650231   (194991) от 31.07.2023
+
+SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+SimCity Enhanced выполнена в двумерной графике, обзор города происходит «сверху». Суть игрового процесса сводится к созданию города, развитию жилых и промышленных зон, строительству инфраструктуры и сбору налогов для дальнейшего развития города. В игре, как и в реальном мире, важно повышать уровень жизни населения и поддерживать баланс между разными секторами, в (   Читать дальше...   )Тип издания: RepackРазработчик: Maxis SoftwareЖанр: Strategy, Tycoon, Manager, City simЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F8D9C8E9CEC0E5D6D3B160E8E2CDE8B14D59C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650290   (194929) от 31.07.2023
 
 SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
@@ -6,7 +58,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +84,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ One More Island (2022) [Multi] (1.8.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Cantata (2023) [En] (1.01/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ InfraSpace (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Anno 1701 (2007) [Ru] (1.0) License Новый Диск
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +240,7 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Airport CEO (2021) [Ru/Multi] (1.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ This Is the President (2021) [Ru/En] (1.0c) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Citizens: On Mars (2023) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Oxygen (2023) [Ru/Multi] (1.027) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Moviehouse - The Film Studio Tycoon (2023) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Frozen Cortex (2015) [En] (2.0.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Transport giant / Транспортный олигарх + Новый конт�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Coral Island (2023) [Multi] (1.0/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32F6551C4766D4352C140FC90C4C8BD4B32D8E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223602   (144997) от 26.12.2018
-
-Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack xatab
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transport Fever - это железнодорожная экономическая стратегия. Игроки начинают в 1850 и строят процветающую транспортную компанию. Будучи новоиспеченным магнатом, игрок возводит станции, аэропорты, доки и зарабатывает деньги, соединяя области, которым нужно транспортное сообщение.Тип издания: RepackРазработчик: Urban GamesЖанр: Strategy (Manage, Busin, Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D7E3068BA4405527A97315DD3E506EFC3D91E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272603   (141816) от 28.12.2018
-
-Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постройте новый дом для человечества в колонии Эйвен. Откройте для себя Эйвен Прайм - чужую планету, где есть пустыни, тундра и джунгли, расположенную на расстоянии многих световых лет от Земли. Колония Эйвен ставит вас во главе первого поселения людей, находящегося за пределами Солнечной системы, где вам предстоит построить маленькие колонии в обширные крупные города, (   Читать дальше...   )Тип издания: LicenseРазработчик: Mothership Entertainment LLCЖанр: Strategy (Sci-fi), Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE558665AD414F209AA91EB4EF8E15C31865A4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

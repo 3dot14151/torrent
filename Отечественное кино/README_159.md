@@ -1,3 +1,111 @@
+###  Публикация: 952958   (350557) от 03.11.2015
+
+Простая девчонка (2015) HDTVRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Алена Шелестова живет и работает в большом городе. Несмотря на то, что Алена еще очень молода, она занята серьезным делом – пишет кандидатскую по истории стекольного производства, а заодно организует выставку старинных изделий из стекла.
+Однажды, когда Алена едет в родной город навестить отца, она случайно знакомится с Кириллом – типичным представителем «золотой (   Читать дальше...   )Производство: Россия, ООО "Тесей продакшн"Жанр: МелодрамаРежиссер: Максим БриусАктеры: Анастасия Стежко, Станислав Эрдлей, Борис Хвошнянский, Александр Абрамович, Светлана Никифорова, Галина Чернобаева, Инна Коляда, Виктор Васильев (II), Ольга Сизова, Светлана Клименко, Константин Задворный и др.Продолжительность: 01:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BACF00D9ADA4ABA82B528E007D6E852B9CBEFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724468   (350107) от 20.11.2013
+
+Черная рада / Чорна рада (2002) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Основные события фильма разворачиваются в тяжелые для Украины
+исторические времена. После смерти гетмана войска Запорожского Богдана
+Хмельницкого, обостряется борьба за гетманскую власть между его бывшим
+писарем Иваном Брюховецким и преемником сына Богдана Хмельницкого(   Читать дальше...   )Производство: Украина, Киностудия им. А. ДовженкоЖанр: Драма, историческийРежиссер: Николай Засеев-РуденкоАктеры: Алексей Петренко, Богдан Ступка, Александр Бондаренко, Сергей Романюк, Константин Шафоренко, Богдан Бенюк,    Руслана Писанка, Радмила Щеголева, Николай Боклан, Оксана Ковалева, Виктор Степанов, Виталий Розстальний, Валерий    Шевченко, Михаил Поплавский, Николай Шутько, Александр Быструшкин, Оксана Русин, Николай Засеев-Руденко, Ирина    Мельник, Раиса НедашковскаяПеревод: Многоголосый закадровыйПродолжительность: 02:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D22483372C9ABB91EB0DD4A39C65D031ADDB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579250   (349963) от 22.11.2012
+
+Ключ от спальни (2003) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие этой весьма фривольной комедии происходит в столице Российской империи, Санкт–Петербурге, в начале XX столетия. Прекрасное, предгрозовое время, которое позже назовут "Серебряным веком". Пленительные женщины, сногосшибательные наряды, новые идеи, новые стили, новые жанры, а тут еще новое чудо — синематограф. Именно в манере, напоминающей немое кино, (   Читать дальше...   )Жанр: КомедияРежиссер: Эльдар РязановАктеры: Сергей Маковецкий, Евгения Крюкова, Николай Фоменко, Сергей Безруков, Наталья ЩукинаПродолжительность: 02:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2222F6C33B17F904F4AEAC008CB46CE53AC3522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579080   (349781) от 22.11.2012
+
+Жить (2012) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Человек умеет чувствовать, страдать, любить. Он умеет принять свою судьбу, даже когда та отнимает самое ценное — близких. Отнимает вместе со смыслом жизни и с желанием жить. Отнимает вместе со всем миром. Но герои фильма не готовы мириться со своими потерями. Они бросают судьбе вызов, объявляют ей войну и доходят в ней до человеческого предела. И идут дальше, по-своему (   Читать дальше...   )Производство: Фонд кино / Кинокомпания КоктебельЖанр: ДрамаРежиссер: Василий СигаревАктеры: Яна Троянова, Алексей Филимонов, Ольга Лапшина, Евгений Сытый, Анна Уколова, Марина Гаврилова, Саша Гаврилова, Дмитрий Куличков, Яна Сексте, Ирма АрендтПеревод: Не требуетсяСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:58:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577351   (349779) от 22.11.2012
 
 8 первых свиданий (2012) [1080p] BDRip
@@ -6,7 +114,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_349779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56CB6F0903DFDFA4180605D0CE4058B018185F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243248   (347036) от 25.10.2018
-
-Решение о ликвидации (2018) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Особое задание спецгруппы ФСБ — ликвидация одержимого террориста Шамиля Базгаева. Охота продолжается уже долго, но жестокий лидер боевиков раз за разом ускользает. Однако, когда Базгаеву удается заполучить мощное оружие для осуществления своего самого страшного теракта, у оперативников больше нет права на ошибку. Для этих спецов преодоление себя, смертельный риск (   Читать дальше...   )Производство: Россия, МосфильмЖанр: Военный, боевик, драмаРежиссер: Александр АравинАктеры: Игорь Петренко, Алексей Вертков, Аюб Цингиев, Алексей Шевченков, Дмитрий Парастаев, Иван Шахназаров, Дагун Омаев, Сослан Фидаров, Кирилл Краснов, Шамиль АлхановПеревод: Не требуется (Русский Лицензия)Субтитры: Русские (вшитые) на чеченскую речьПродолжительность: 01:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F9C7E33B5C267CB56D4C18E49E00A307A87481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179694   (346674) от 01.11.2017
-
-Переворот (2014) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346674.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о молодом человеке, который перевернул свою жизнь, благодаря своим желаниям..Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Артур ПсакинАктеры: Андрей Жильников, Андрей Полищук, Надежда Иванко, Евгений Чауш, Ксения Непомнящая, Ирина Ивинская, Дмитрий Чупраков, Дмитрий Зварыкин, Светлана Кленина, Константин ЩербоПродолжительность: 00:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E67FE70A117C755209BAB7AB91EA17C0F08619C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705943   (346140) от 25.10.2020
-
-В тумане (2012) BDRip [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие исторической драмы происходит в 1942 году в оккупированной немцами Белоруссии. Путевого обходчика Сущеню ложно обвиняют в сотрудничестве с оккупантами. Два партизана приезжают на хутор к Сущене, чтобы совершить расправу. В надежде доказать свою невиновность Сущеня пытается сделать моральный выбор в аморальных обстоятельствах.Производство: Россия, Германия, Нидерланды, Латвия, Беларусь / Беларусьфильм, Lemming Film, Rija Films, ZDF/ArteЖанр: драма, военный, историяРежиссер: Сергей ЛозницаАктеры: Владимир Свирский, Владислав Абашин, Сергей Колесов, Никита Перемотов, Юлия Пересильд, Кирилл Петров, Дмитрий Колосов, Степан Богданов, Влад Иванов, Игорь ХрипуновСубтитры: английскиеПродолжительность: 02:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40BABD422E4528291D0C6C2FFE7F25E8928673F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330048   (345107) от 08.10.2019
-
-В Кейптаунском порту… (2019) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моряк, Пахан и Салажонок. Они встретились лишь однажды летом 1945 года на Дальнем Востоке с оружием в руках и с серьезными намерениями. Все закончилось перестрелкой, и каждый из участников уверен, что убил двух других. Однако судьба подарила всем им долгую насыщенную событиями жизнь. Пройдет более полувека, и в один из дней в разных точках Земли произойдут события, (   Читать дальше...   )Производство: Россия / Renovatio EntertainmentЖанр: ДрамаРежиссер: Александр ВелединскийАктеры: Евгений Ткачук, Владимир Стеклов, Александр Робак, Юрий Кузнецов, Сергей Сосновский, Светлана Хомич, Ангелина Притуманова, Анфиса Черных, Виталий Кищенко, Юрий ВаксманПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A7F68DB5F1391554F9870CF9EB60BE012408BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

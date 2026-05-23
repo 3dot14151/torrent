@@ -1,3 +1,61 @@
+###  Публикация: 1119843   (806080) от 29.03.2017
+
+Sonny Stitt - Stitt Goes Latin (1963) Remaster, 2011, Roost [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Are You Listening [03:37]
+ 02.Amigos [04:43]
+ 03.My Little Red Suede Shoes [04:11]
+ 04.Ritmo Bobo [06:12](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8BDF9CEB3A4986820425DD61D257D689885C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119848   (806076) от 29.03.2017
+
+Chet Baker - Baby Breeze (1965) 2002, Universal [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Baby Breeze [03:09]
+ 02.Born To Be Blue [04:06]
+ 03.This Is The Thing [04:56]
+ 04.I Wish You Love [03:13](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Vocal JazzПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE8755352FDBF5B76A8EE2FB9D5E91970F8840F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119823   (806061) от 29.03.2017
 
 John Pizzarelli with The George Shearing Quintet - The Rare Delight of You (2002) Telarc [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -6,7 +64,7 @@ John Pizzarelli with The George Shearing Quintet - The Rare Delight of You (2002
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Sadao Watanabe - Go Straight Ahead 'n Make A Left (1997) Verve Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Dado Moroni & Tom Harrell - Humanity (2007) Abeat Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Joe Henderson - Quiet Now: Lovesome Things (1999) Verve [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Moacir Santos - Carnival of the Spirits (1975) Remaster, 2012, EMI Music[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Jan Lundgren Trio - Svenska landskap (2003) Sittel Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Miles Davis - Miles in St. Louis 1963 (1981) Soulard Intertainment Co. [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Pure... Jazz (2010) Box Set, 4 CD [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +293,7 @@ Reuben Wilson - Got to Get Your Own (1975) 2008, Dusty Groove America[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -264,7 +322,7 @@ Jazz Crusaders featuring Wayne Henderson - Kick The Jazz (2008) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +351,7 @@ Gregory Fine (Григорий Файн) Trio - Happy Bluesday (1999) Boheme Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Blue Note Blend (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +409,7 @@ Julian Cannonball Adderley and Strings (1955) 1988, Emarcy [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +438,7 @@ Sadao Watanabe - Minha Saudade (2001) Universal [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +467,7 @@ Cannonball Adderley - Alto Giant (1969) 1996, Nippon Crown [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +496,7 @@ Jeremy Steig - Jigsaw (1992) Triloka Records [FLAC|Lossless|image + .cue] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +525,7 @@ John Hicks - Is That So? (1990) Remaster, 2015, Solid Records[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +554,7 @@ Art Farmer - In Europe (1970) Remaster, 2006, Enja[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +583,7 @@ Art Farmer & Benny Golson - Meet the Jazztet (1960) Remaster, 2002, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +612,7 @@ Billy Cobham - Magic (1977) Reissue 2004 [APE|Lossless|image + .cue] <Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +641,7 @@ Sidney Bechet - The Fabulous Sidney Bechet (1951, 1953) 1999, Blue Note [APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +670,7 @@ Bettye Lavette - Worthy (2015) [FLAC|Lossless|tracks + .cue] <Soul, Blues, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,7 +699,7 @@ Charles Fambrough - The Proper Angle (1991) CTI [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -670,7 +728,7 @@ Bennie Moten's Kansas City Orchestra - 1929 - 1930 (1991) Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -684,64 +742,6 @@ Bennie Moten's Kansas City Orchestra - 1929 - 1930 (1991) Classics [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AF2FD1B35ACA6173EBA6DBDE2BCCF54FA1403C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384641   (801830) от 21.05.2020
-
-The Horace Parlan Trio - No Blues 1975 (1992) SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Blues [6:14]
-02. My Foolish Heart [4:58]
-03. Have You Met Miss Jones? [5:08]
-04. A Theme for Ahmad [5:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FC187EDE1E9D8995EE3CAF33C858DE57A5512B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505921   (801820) от 29.10.2021
-
-Konrad Paszkudzki Trio - Isn't Romantic: Richard Rodgers Song Book (2017) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything I've Got [4:30]
-02. Glad To Be Unhappy [4:39]
-03. I Could Write A Book [7:08]
-04. Isn't It Romantic [3:39](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB580B655A6B44F60ED23DEFE98F860EA92E4904
 ```
 
 https://mybot314.ru/tekegram_catalog/

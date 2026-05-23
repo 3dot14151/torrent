@@ -1,3 +1,83 @@
+###  Публикация: 998938   (868403) от 20.03.2016
+
+Десмонд Сьюард | Монахи войны. История военно-монашеских орденов от возникновения до XVIII века (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга британского историка Десмонда Сьюарда посвящена истории военно-монашеских объединений: орденам тамплиеров и госпитальеров, сражавшимся с неверными в Палестине; Тевтонскому ордену и его столкновениям с пруссами и славянскими народами; испанским и португальским орденам Сантьяго, Калатравы и Алькантары и их участию в Реконкисте; а также малоизвестным братствам, (   Читать дальше...   )Жанр: История, этнографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B587F2ED437BDDDD71218A1D85F0F400E58EE1F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998851   (868324) от 20.03.2016
+
+С. Н. Белоусов и др. (сост.) | История Украины. Краткий курс (1948) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В основу всей работы над Кратким курсом истории Украины было положено историческое постановление ЦК КП(б)У от 29 августа 1947 г. „О политических ошибках и неудовлетворительной работе Института истории Украины Академии наук УССР“.
+
+Большую помощь составителям оказали своими ценными замечаниями и указаниями Институт истории Академии наук СССР, а также кафедры истории (   Читать дальше...   )Жанр: История, политология, экономика, культурология, педагогикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FF9E0EED37B0BAD2DAEEC5CF9F90B23AAA42C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107566   (868234) от 22.02.2017
+
+Л.Д. Троцкий | Война и революция. Крушение второго Интернационала и подготовка третьего [В двух томах] (1922) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга окажет, может быть, некоторое содействие стоящей перед нашей молодёжью задаче изучения вчерашнего дня. Атор этой книги имел во время войны преимущество - весьма условное преимущество эмигранта - в качестве наблюдателя и отчасти приматриваться к внутренней жизни нескольких европейских и северо-американской социалистических партий. Здесь собраны работы, (   Читать дальше...   )Жанр: история, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED7E971EA773D1976733AFB6E7B37CA72BA7B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107580   (868229) от 22.02.2017
 
 Л.Д. Троцкий | Перманентная революция (1930) [DJVU]
@@ -6,7 +86,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9267D80AAFE69851F998F50C8BDCABA4B606A5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109539   (858788) от 27.02.2017
-
-Александр Пыльцын | Офицерский штрафбат. Искупление (2017) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858788.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Эта книга – не очередное (уже седьмое по счету) переиздание бестселлера "Правда о штрафбатах", разошедшегося рекордными тиражами. Автор не просто дополнил свои мемуары новыми материалами, но увеличил их объем наполовину и радикально переработал. Фактически у Вас в руках новая книга. Это – самый честный рассказ о боевом пути первого из штрафбатов (   Читать дальше...   )Жанр: Воспоминания, дневники, запискиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CACE1CAE87389CC78D2B11A6F42AB7CD52CEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875001   (857763) от 06.03.2015
-
-М.И. Пыляев | Старая Москва. Из былой жизни Первопрестольной столицы (1891) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857763.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны устные рассказы современников и многочисленные сведения  о Москве, которые были собраны автором из различных разрозненных русских и иностранных источников. Прекрасно скомпанованные,  они рисуют быт и нравы первопрестольной столицы со времен правления Екатерины II до начала XIX столетия. Все написано с душой, ростым и понятным языком, очень красочно (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687C885E6ACA9695C21E2480B03D4B3D79D85420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376923   (856661) от 19.04.2020
-
-Томас Мартин | Древняя Греция. От доисторических времен до эпохи эллинизма (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Томаса Мартина – попытка по-новому взглянуть на историю Древней Греции, вдохновленная многочисленными вопросами студентов и читателей. В центре внимания – архаическая и классическая эпохи, когда возникла и сформировалась демократия, невиданный доселе режим власти; когда греки расселились по всему Средиземноморью и, освоив достижения народов Ближнего Востока, (   Читать дальше...   )Жанр: История Древнего мираПеревод: Петр ДейниченкоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02099E3FAE6D856A3F2E84520FF251E18EF6E5E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

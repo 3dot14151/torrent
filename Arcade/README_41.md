@@ -1,3 +1,31 @@
+###  Публикация: 587979   (138605) от 18.12.2012
+
+Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вихри враждебные веют над ними — в новой игре из легендарной серии юморных походовых стратегий. Передовая 3D-графика делает любимых червячков еще очаровательнее, чем прежде. А еще смертоноснее их делает классический 2D-геймплей, обогащенный на сей раз поистине революционными возможностями. Безжалостные червячки-убийцы отныне способны перемещать предметы, обладающие всеми физическими свойствами, и даже высвобождать природную стихию, буквально смывая противника с уровня бурным потоком. Но самое главное — их индивидуальность. Бесшабашные кольчатые вояки наконец выучились по специальностям и теперь объединяются в отряды с оглядкой на личные качества. И — конечно, несомненно, разумеется — они раздобыли новое оружие!
+
+Червяки всех стран, вооружайтесь! Присоединяйтесь к великой кольчатой армии! Весь мир в труху! Во имя веселья!(   Читать дальше...   )Тип издания: RePackРазработчик: Team17 DigitalЖанр: Strategy / 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2CFE7A87F6938540630C167C1DCBC6B4A7B068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272504   (138479) от 30.12.2018
 
 Shank (2010) [Ru] (1.3) Repack R.G. Revenants
@@ -6,7 +34,7 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +60,7 @@ The King of Fighters XIV (2017) [En/Ja] (1.25) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +86,7 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +112,7 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +138,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +164,7 @@ Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +190,7 @@ Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +218,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +244,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +270,7 @@ Braid [Ru/En] (RePack/1.0.1.5) 2008 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +296,7 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru/En] (RePack)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +326,7 @@ Klonoa Phantasy Reverie Series (2022) [Multi] (1.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +352,7 @@ River Tails: Stronger Together (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +378,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +404,7 @@ Strayed Lights (2023) [Ru/Multi] (Build 11697504) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +430,7 @@ Eternal Dread 3 (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +456,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +482,7 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +508,7 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +534,7 @@ Livestream 2: Escape from Togaezuka Happy Place (2023) [Multi] (1.01) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +560,7 @@ Unstoppable (2024) [Ru/Multi] (1.0) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +586,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (20231218/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +612,7 @@ Apex Heroines (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +638,7 @@ Tekken 8 (2024) [Ru/Multi] (1.01.03/dlc) Repack DjDI [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -636,7 +664,7 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -647,32 +675,6 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52E70ACB81B57D09511B2BE83BFADA0C0F0A1FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654315   (120556) от 28.01.2024
-
-Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аркада Bomb Rush Cyberfunk отправляет игрока в путешествие в альтернативное будущее, в разделенный на сферы влияния город, принадлежащий граффити-бандам. Необходимо исполнить роль героя, задача которого состоит в том, чтобы бросить вызов отдельным фракциям и по частям захватить весь мегаполис.Тип издания: LicenseРазработчик: Team ReptileЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

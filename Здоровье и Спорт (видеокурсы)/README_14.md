@@ -1,58 +1,3 @@
-###  Публикация: 1801140   (15230) от 08.06.2025
-
-Школа шахмат Матвея Гальченко, Матвей Гальченко | Дебют Берда (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы давно играете в шахматы и устали от изучения теории и сюрпризов от соперника? А может быть, недавно пришли в игру и хотите сразу освоить убойное начало? Этот курс для вас: он поможет вам всегда удивлять соперника, получать комфортные позиции в дебюте и побеждать!Производство: Школа шахмат Матвея ГальченкоЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 05:25:25Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF7BD1315AC78D2D7A3AE2E943B27AD015BC69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803311   (13786) от 22.06.2025
-
-Maxim School, Максим Куксов | Контргамбит Альбина за чёрных (против d4) (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Против хода d4 - не так много дебютов, где чёрные могут получить динамичную игру - без "засушивания" позиции и одним из них является контргамбит Альбина!
-Матовые атаки на фланге - ценой центральной пешки!
-Легкая фигурная игра - много "запасных" ходов
-Психология шахмат "дискомфорт позиции соперника"Производство: Maxim SchoolЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 04:58:06Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A8CB5E287A0156442EA3CFC0821253177A181B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803317   (13784) от 22.06.2025
 
 Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) WEB-DL [AD] [RU]
@@ -61,7 +6,7 @@ Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) W
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +32,7 @@ Chessable, Can Kabadayi | The Chess Elevator: Climb to 1200 and Beyond (2024) WE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -248,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

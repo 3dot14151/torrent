@@ -1,3 +1,107 @@
+###  Публикация: 1504268   (811540) от 23.10.2021
+
+Бывшая (2021) BDRip [H.264/1080p-LQ] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о том, как соцсети и мессенджеры меняют жизнь современного человека. Прошло несколько лет с тех пор, как 16-летний подросток опубликовал в общем чате фото своей девушки в надежде похвалиться перед друзьями. Теперь у него счастливая взрослая жизнь: работа, друзья, невеста Катя, которая вот-вот станет его женой. Но интернет заставляет вспомнить подростковую (   Читать дальше...   )Производство: Россия / KARO-ProductionЖанр: Ужасы, триллерРежиссер: Евгений ПузыревскийАктеры: Вера Кинчева, Константин Белошапка, Сергей Двойников, Екатерина Шумакова, Жанна Данилова, Елена Морозова, Владимир Селезнев, Павел Голубев, Анна Осипова, Вероника СкурихинаПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12388B343B950569F278A3B8D7989701D022567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197963   (811452) от 09.01.2018
+
+Каникулы в Таиланде (2014) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Один летит в теплый Таиланд. Другой — на заснеженное байкальское побережье. Оба решают провести отдых на трезвую голову. Но по дороге в аэропорт они случайно перепутали телефоны. Ни о чем не подозревая, каждый общается от лица своего друга, находясь в разных концах света. Всевозможные хитросплетения, неожиданности, внезапная любовь и конечно много юмора.Производство: РоссияЖанр: Комедия, мелодрамаРежиссер: Юрий БотоевАктеры: Андрей Чирков, Андрей Петушинов, Ольга Морева-Кошкарева, Равиля Мифтахова, Михаил Смолин, Владимир Петушкеев, Виталий Ханхалаев, Сергей Помазан, Екатерина Стрелкова-Алексеева, Ольга ДугароваСубтитры: ОтсутствуютПродолжительность: 01:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4739DA897C14580FB1D009B90A60B91D51BA0D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118878   (811226) от 26.03.2017
+
+Любовь для бедных (2012) HDTVRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отец Маруси умирает на операционном столе, и с этого момента ее жизнь кардинально меняется. В поисках работы девушка знакомится с Алексеем и его двоюродным братом Костей. Оба молодых человека неравнодушны к Марусе — теперь ей предстоит сделать нелегкий выбор. Она еще не знает, что Костя — тот самый врач, который неудачно прооперировал ее отца. Однако виновен ли на (   Читать дальше...   )Производство: Кинокомпания "Студия Паламеда"Жанр: МелодрамаРежиссер: Вадим АраповАктеры: Ольга Иванова, Сергей Загребнев, Татьяна Лютаева, Анатолий Котенёв, Святослав Астрамович, Людмила Баталова, Валерий Кащеев, Светлана Никифорова, Елена Родак-Шкуратова, Полина Булахова, Фёдор Гриб, Инна Дубок, Дмитрий Есеневич, Сергей Журавель и др.Продолжительность: 01:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F6022E354132BC89461E8464871C5E42D0C166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009220   (811174) от 20.04.2016
+
+СуперБобровы (2015) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вместо десерта на ужин семейство Бобровых получило… метеорит. Настоящий, большой, из космоса. Благодаря ему Бобровы вдруг приобретают немыслимые сверхспособности. Дед становится бессмертным, а отец теперь может телепортироваться. Сын начинает понимать собачий язык, а его сёстры получают суперсилу, возможность летать и быть невидимой. Единственное ограничение — способности (   Читать дальше...   )Производство: Россия / Yellow, Black & WhiteЖанр: Комедия, СемейныйРежиссер: Дмитрий ДьяченкоАктеры: Павел Деревянко, Оксана Акиньшина, Роман Мадянов, Ирина Пегова, Владимир Толоконников, Даниил Вахрушев, Софья Мицкевич, Михаил Шамигулов, Елизавета Кононова, Виталий КищенкоПеревод: Не требуется (русский) iTunesПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF499FB8A183E57572B216ED2D2D1D9FE60A1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 656930   (811116) от 17.05.2013
 
 Сомнамбула (2012) DVD9
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B21477C8618FF524B73CF073FAB54A7ED2B5DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119489   (807221) от 28.03.2017
-
-Соучастники (2015) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ольга возвращается из командировки на день раньше и застает своего мужа Эдуарда в постели с учительницей их сына Жанной. После скандала Ольга выбегает из дома и натыкается во дворе на тело учительницы. Причины смерти Жанны неизвестны, но Эдуард уверен в одном: их семье не нужна огласка. Ведь он высокопоставленный чиновник мэрии, а их сын Арсений дружит с дочкой Жанны. (   Читать дальше...   )Производство: Россия / Кинокомпания "Русское"Жанр: Криминал, МелодрамаРежиссер: Роман ПросвирнинАктеры: Карина Разумовская, Дмитрий Миллер, Сергей Мухин, Елена Чернявская, Константин Соловьёв, Андрей Селиванов, Артём Фадеев, Евгения Каверау, Лариса Домаскина, Артём Банников, Елена КожейкинаПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABD01C6DD124EF6109C4D7C36FE101F7D055D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119496   (807108) от 28.03.2017
-
-Соучастники (2015) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ольга возвращается из командировки на день раньше и застает своего мужа Эдуарда в постели с учительницей их сына Жанной. После скандала Ольга выбегает из дома и натыкается во дворе на тело учительницы. Причины смерти Жанны неизвестны, но Эдуард уверен в одном: их семье не нужна огласка. Ведь он высокопоставленный чиновник мэрии, а их сын Арсений дружит с дочкой Жанны. (   Читать дальше...   )Производство: Россия / Кинокомпания "Русское"Жанр: Криминал, МелодрамаРежиссер: Роман ПросвирнинАктеры: Карина Разумовская, Дмитрий Миллер, Сергей Мухин, Елена Чернявская, Константин Соловьёв, Андрей Селиванов, Артём Фадеев и др.Продолжительность: 01:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA275D0F2B4A271D3C7E95BDFADD072F3175C73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119531   (806962) от 28.03.2017
-
-Соучастники (2015) WEB-DLRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ольга возвращается из командировки на день раньше и застает своего мужа Эдуарда в постели с любовницей. После скандала Ольга выбегает из дома и натыкается во дворе на труп.Производство: Россия / Кинокомпания "Русское"Жанр: Криминал, МелодрамаРежиссер: Роман ПросвирнинАктеры: Карина Разумовская, Дмитрий Миллер, Сергей Мухин, Елена Чернявская, Константин Соловьёв, Андрей Селиванов, Артём Фадеев и др.Продолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A66F106D4738B4BD971509DDE83A8B0EFE244C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119381   (806721) от 28.03.2017
-
-Любовь прет-а-порте (2017) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — знойный римский ловелас, избалованный сынок богатого папочки. Она — красавица, одинокая москвичка, которая всю жизнь ждала того, единственного. Он всю жизнь флиртовал, играл, блефовал. Она трудилась, презирая ложь и компромиссы. Одна короткая встреча в Риме запутала их жизни в яркий клубок надежд, обломов и страсти. Он стал для неё тем, кого она готова была (   Читать дальше...   )Производство: Россия, ОДА-ФильмЖанр: КомедияРежиссер: Макс НардариАктеры: Ольга Погодина, Андреа Прети, Лариса Удовиченко, Джанкарло Джаннини, Паоло Контичини, Нино Фрассика, Владислав Лисовец, Михаил Химичев, Пьетро Де Силва, Тоска Д’АквиноПеревод: Не требуется (Русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23EF5B1FDFD2A62B53065B5F3EF04CA0DE2687F
 ```
 
 https://mybot314.ru/tekegram_catalog/

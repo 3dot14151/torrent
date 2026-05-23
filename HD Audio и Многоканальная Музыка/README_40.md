@@ -1,3 +1,90 @@
+###  Публикация: 719412   (371657) от 11.11.2013
+
+Inside The Music: New Age (2001) [DTS 5.1|44.1/16|wav+.cue|DVD-Audio] <new age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. "Here Comes The Night" - 3rd Force 06:22
+2. "Bandalero" - Neal Schon 04:53
+3. "Cielo Sin Nubes" - Lara & Reyes 03:55
+4. "Blue Universe" - Craig Chaquico 05:15(   Читать дальше...   )Жанр: new ageПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378118D83235952AF405E6735CB603643CB21189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719362   (371489) от 11.11.2013
+
+Blackfield - Blackfield IV (2004) [DTS 5.1|44.1/16|.wav+.cue (DVD-Audio)] <art rock, pop rock, progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Pills
+2. Springtime
+3. X-Ray (featuring Vincent Cavanagh - Anathema)
+4. Sense of Insanity(   Читать дальше...   )Жанр: Art rock, pop rockПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153A677E00E5CB92318C5E7C0D8BB68AE8131FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415819   (371435) от 14.10.2020
+
+Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 Мисс Мелодия = Miss Melodia
+A2 Следи За Своими Шагами = Follow Your Steps
+A3 Время Должно Измениться = Time Must Be Changed
+B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176194   (371361) от 21.10.2017
 
 The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <rock, psychedelic rock, blues rock>
@@ -6,7 +93,7 @@ The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Modern Talking - The 1-st Album (1985) [FLAC 2.0 24/96|Lossless|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +238,7 @@ The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +296,7 @@ Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +331,7 @@ Giorgio & Martin Koppehele - Lichtmond 3: Days Of Eternity (2014) [DTS-ES Discre
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +360,7 @@ Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +389,7 @@ Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +418,7 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +447,7 @@ Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +476,7 @@ The Beatles - Abbey Road (1969) UMG, 2019 [FLAC 5.1|48/24|Lossless|tracks + .cue
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +505,7 @@ The Alan Parsons Project - I Robot (1977) Reissue /1982, Arista Records/ [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +534,7 @@ Emigrate (Rammstein, Richard Kruspe) - Studio Albums (4 releases) (2007 - 2021) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +563,7 @@ Placido Domingo - Placido Domingo And Friends (2000) [FLAC 2.0|48/24|image+.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +592,7 @@ Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +621,7 @@ Three Dog Night - Coming Down Your Way (1975) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +650,7 @@ The Music Of San Marco/Soloist Di Zagreb - Vivaldi - The Four Seasons/Concerto G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +679,7 @@ Various Artists - Le Silence (2003) [DTS 4.0|44.1/16|image +.cue|SACD] <electron
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -650,7 +737,7 @@ Paul Mauriat - El Bimbo & Toccata (2019) 1975-73 [DTS 4.0 CD-DA|44.1/16|image+.c
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -664,96 +751,6 @@ El Bimbo (1975)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54185DDD9E953C0BE5782265D3B7F192F40F86C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723949   (355313) от 18.11.2013
-
-Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Are You Sincere  2:00
-2. It's Midnight  3:20
-3. My Boy  2:55
-4. Girl Of Mine 3:40
-5. Take Good Care Of Her  2:50
-6. I'll Never Fall In Love Again  3:40
-Сторона 2
-1. Your Love's Been A Long Time Coming  2:50
-2. Spanish Eyes  2:23(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA570B4A405ABB69A5FE4F54E2857DEE7564F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952780   (353034) от 02.11.2015
-
-Roger Waters – Amused To Death (1992, 2015 Remaster) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <rock, progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353034.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    The Ballad of Bill Hubbard    04:20
-2.    What God Wants, Part I    06:00
-3.    Perfect Sense, Part I    04:15
-4.    Perfect Sense, Part II    02:51(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F260DEAD20908F84B3601378340A23FB75B32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072526   (351827) от 13.11.2016
-
-Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Христос  суперзвезда 2LP (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic RockПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

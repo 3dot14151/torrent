@@ -1,3 +1,82 @@
+###  Публикация: 1607886   (203444) от 28.01.2023
+
+Вкус мести (2021) WEBRip [H.264] (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа Евгении и Антона Грановских "Лицо в тёмной воде".
+Популярная певица и актриса Анна Долецкая едва не погибает в подстроенной автокатастрофе во время гастролей. Все вокруг думают, что она мертва. Однако волею судьбы женщина оказывается на хуторе местной знахарки, которая ставит ее на ноги. Анна понимает, что за покушением стоит ее муж-продюсер (   Читать дальше...   )Производство: Украина | "Stаr Media"Жанр: детектив, мелодрама, экранизацияРежиссер: Дмитрий ЛактионовАктеры: Екатерина Климова, Кирилл Сафонов, Евгений Миллер, Яков Кучеревский, Янина Мелехова, Андрей Аверков, Ольга Гришина, Анна Иванова, Максим Самчик, Елена ХохлаткинаЯзык озвучки: РусскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E308E20FAA2A8F00323E7AAC0790772AC9484C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875523   (203087) от 05.02.2023
+
+Сваты (2010) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+На этот раз бабушки и дедушки отправятся в Крым. Но они туда поедут не столько отдыхать, сколько опекать свою любимую внучку Женечку, которую родители отправили в детский лагерь «Артек». Сваты так и не научились жить без внучки, но они и не научились жить друг с другом!Производство: "Студия Квартал-95", Телеканал "Интер", УкраинаЖанр: семейная комедияРежиссер: Андрей ЯковлевАктеры: Людмила Артемьева, Фёдор Добронравов, Татьяна Кравченко, Анатолий Васильев, София Стеценко, Николай Добрынин, Маргарита ШубинаПродолжительность: ~ 00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3565471A207C36F9B6B42B75419A2C00CCA397E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616443   (201972) от 02.03.2023
+
+Родная мачеха / Мать-и-мачеха (2021) WEBRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ложное обвинение в организации убийства, предательство близких, вынужденное бегство и страшная авария. Другая женщина отчаялась бы и утратила всякую надежду, но Мария не сдается. Спустя несколько лет она возвращается в родной город с твердым намерением доказать свою невиновность и вернуть семью, которую потеряла. Для этого ей приходится стать мачехой родным сыну (   Читать дальше...   )Производство: Украина / "IVORY FILMS"Жанр: мелодрамаРежиссер: Сергей КрутинАктеры: Ольга Арнтгольц, Ирина Таранник, Иван Оганесян, Александр Никитин, Виталий Кудрявцев, Александр Наумов, Елена Коренева, Зоряна Марченко, Елена Дудич, Максим РадугинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5658003A994D9B16DB9D955CA6C6F3D0B49118B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617137   (201692) от 05.03.2023
 
 При загадочных обстоятельствах (2009) WEBRip [H.264] (сезон 1, серии 1-8 из 8)
@@ -6,7 +85,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24CB81A63B6FFA75461A8E1FC99D1B16256DE5AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596328   (170280) от 09.12.2022
-
-В поисках ангела (2020) HDTVRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперативный сотрудник районного отделения МВД капитан Сергей Одинец и детский психолог Оксана Полисевич расследуют исчезновения и гибель подростков, потрясшие небольшой провинциальный город. Нити расследования приводят Одинца и Оксану в детский дом, закрытые двери которого скрывают много тайн и драматичных историй воспитанников, лишенных любви и беззаботного детства.Производство: Беларусь | БеларусьфильмЖанр: детектив, триллерРежиссер: Игорь ЧетвериковАктеры: Кристина Корбут, Артем Бородич, Валерия Мельник, Константин Михаленко, Олег Ткачев, Василь Бойдак, Арсений Гордиенко, Зоя Антонова, Мария Бондарева, Александр Тарасов, Александр Ильин, Лариса Маршалова, Сергей Юревич, Доротея Лисовская, Игорь ШугалеевПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80E581BDF2AC1A1DC4EA7797AC0B6076A290A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452815   (168047) от 08.12.2021
-
-Незакрытая мишень (2021) WEB-DLRip [H.264] (сезон 1, серии 1-24 из 24)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортсменка, лидер украинской сборной по биатлону Катя Горенко – на пороге великих событий. Девушка готовится к чемпионату мира по биатлону и имеет все шансы стать олимпийской чемпионкой. Но все планы рушатся, когда имя девушки оказывается замешанным в допинговом скандале. На фоне этого вылезают скелеты из шкафа героини – история 10-летней давности, которая переворачивает (   Читать дальше...   )Производство: Украина | «Saga Pictures»Жанр: Мелодрама, детектив, криминалРежиссер: Сергей БорчуковАктеры: Олеся Мацкевич, Артем Алексеев, Валерия Ходос, Михаил Кришталь, Екатерина Григоренко, Артур Логай, Артем Позняк, Сергей Деньга, Ольга Голдыс, Дмитрий СарансковЯзык озвучки: РусскийПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B19C136A6E1941990FDC2FA74A497B55E15309A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345033   (167957) от 13.12.2019
-
-Наследники / Спадкоємці (2019) WEBRip (сезон 1, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167957.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета – семейство главы «куриной империи» Николая Орлова. Грандиозное празднование юбилея Орлова, на которое друг его юности Владимир Сухов приехал с дочерью Соней, заканчивается «сюрпризом» – попыткой убийства именинника. Под подозрение попадают все члены огромной семьи Орловых, искусно прячущие за фасадом благополучия взаимную неприязнь и желание получить (   Читать дальше...   )Производство: Украина / Компания "Mamas Film Production"Жанр: криминал, мелодрамаРежиссер: Дмитрий МатовАктеры: Эдуард Флёров, Наталья Доля, Анастасия Иванова, Сергей Дзялик, Владислав Никитюк, Слава Красовская, Валентин Томусяк, Екатерина Варченко, Андрей Аверков, Светлана Зельбет и др.Язык озвучки: русскийПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3883353DC2796067379BBF5C0051D35B4E1A0516
 ```
 
 https://mybot314.ru/tekegram_catalog/

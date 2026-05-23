@@ -1,3 +1,32 @@
+###  Публикация: 1541249   (232849) от 03.04.2022
+
+VA - Across the Ocean (Lounge Collection), Vol. 1 (2020) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Five Seasons - Oblivion (Original Mix) (4:47)
+02. Coolinar - Radiomator (Original Mix) (4:28)
+03. Nana Wang - Love Will Tear Us Apart (Original Mix) (4:54)
+04. Eros Kristyani, Oskar Boldre, Mario Arcari - India House (Original Mix) (5:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321801B9714435C3D7C553D6EF301EB78226038C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541235   (232678) от 03.04.2022
 
 VA - Heights of Lounge (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
@@ -6,7 +35,7 @@ VA - Heights of Lounge (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Alice Francis - St. James Ballroom (2014) [AAC|~310 Kbps] <Neo Charleston>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 4 (2020) [AAC|~333 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Lakeside Chill Sounds - Spring (2022) [AAC|~312 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 3 (2021) [AAC|~317 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dream Widow, Foo Fighters - Dream Widow (2022) [AAC|~331 Kbps] <Thrash Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Electro Swing Elite Compilation 2016 (2016) [AAC|~309 Kbps] <Electro, Swing
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 2 (2020) [AAC|~320 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +267,7 @@ Alice Francis - Electric Shock (2017) [AAC|~282 Kbps] <Neo Charleston>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Vanlife Moods, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - After Work Chillout, Vol. 2 (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 4 (2021) [AAC|~317 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Deep-House Carnival, Vol. 2 (2022) [AAC|~316 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - After Work Chillout, Vol. 1 (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Ritmo Sinfonico (2020) [AAC|~285 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 4 (2017) [AAC|~326 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 3 (2017) [AAC|~333 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -555,7 +584,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 2 (2017) [AAC|~318 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -610,7 +639,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 1 (2017) [AAC|~332 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -639,7 +668,7 @@ VA - Chillout Adventures, Pt. 6 (2021) [AAC|~336 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -668,7 +697,7 @@ VA - Chillout Adventures, Pt. 5 (2021) [AAC|~334 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -697,7 +726,7 @@ VA - Chillout Adventures, Pt. 3 (Compiled by Lydia) (2021) [AAC|~327 Kbps] <Ambi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -711,35 +740,6 @@ VA - Chillout Adventures, Pt. 3 (Compiled by Lydia) (2021) [AAC|~327 Kbps] <Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029D90CB77D32D2835403B1C113AF9EDAA433CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512804   (229471) от 26.11.2021
-
-VA - Chillout Adventures, Pt. 4 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Sufi's Life - Arselu Tel Quess (8:45)
-1.02. Astral Waves, Zymosis, Tentura - Magic Species (Remix) (7:46)
-1.03. Merlin, Tebra - Budjenje (5:31)
-1.04. Cosmic Dust - Sadogashima (5:54)(   Читать дальше...   )Жанр: Ambient, Chill Out, Downtempo, TranceПродолжительность: 02:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795616356D81F8742F8C3DF14EFF71B9DDC365C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

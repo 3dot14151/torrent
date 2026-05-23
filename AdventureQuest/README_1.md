@@ -1,3 +1,107 @@
+###  Публикация: 1854405   (1057464) от 17.02.2026
+
+Disney Villains Cursed Cafe (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Disney Villains Cursed Café - это визуальная новелла с элементами алхимии, в которой игроки управляют кафе в современном мире, помогая культовым диснеевским злодеям воплотить их мечты через волшебные эликсиры. Игроки создают напитки, влияющие на судьбы персонажей - от гольфа для Гастона до театра для Крюка. Disney Villains Cursed Cafe предлагает уютный, стильный (   Читать дальше...   )Тип издания: RepackРазработчик: Bloom Digital MediaЖанр: Казуальные игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6FBCDCBB59074B5DBED75D289AF8BC276D3902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853910   (1057011) от 15.02.2026
+
+Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ступайте в окутанные легендами земли, где охотница Ро отправляется в путь, чтобы вернуть своего сына из мертвых. Погрузитесь в глубины мира духов, расколотого на четыре части и 13 отдельных регионов. Сражайтесь с более чем 30 типами врагов и используйте потенциал более 160 карт, создавая уникальные архетипы и множество мощных комбинаций. Вас ждет мрачное путешествие (   Читать дальше...   )Тип издания: LicenseРазработчик: The Outer ZoneЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73E8C166B120105E3B67946826C3A48FD57077D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853856   (1057001) от 15.02.2026
+
+Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (20251218) Scene Rune [Enhanced]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Senua's Saga: Hellblade 2 - продолжение ролевого экшена про кельтскую воительницу Сенуа. События сиквела переносят в Исландию, а история напрямую продолжает предыдущую часть. Основная идея игры состоит в том, чтобы показать свое видение шаманизма нордических земель. Игра опирается на кельтскую и скандинавкую мифологии. В центре истории героиня предыдущей части - (   Читать дальше...   )Тип издания: SceneРазработчик: Ninja TheoryЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6F4E9C9C17A2C2C95AD99CCC0F11C9A68DC311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851814   (1055421) от 04.02.2026
+
+Super Drift Blade (2025) [Multi] (1.0.3.1) Repack Necros
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Super Drift Blade - это инди-экшен с элементами RPG и рогалика, выполненный в 2D-стиле с рисованной, красочной графикой. Большинство ваших средств действия были отобраны у вас. В каждой реинкарнации двигайте мышью, чтобы убивать монстров, взламывать головоломки, заблокированные знаниями, и исследовать скрытые пути! Пройдите дальше за ограниченное время и откройте (   Читать дальше...   )Тип издания: RepackРазработчик: LiujiajunЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, Японский, КитайскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8B3474CE88865F01C1153982DA799395522D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851678   (1055275) от 03.02.2026
 
 Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack HardwareMining [Digital Deluxe Edition]
@@ -6,7 +110,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack HardwareMining [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Agatha Christie - Death on the Nile (2025) [Multi] (1.3.0_20251017-215031) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Bye Sweet Carole (2025) [Multi] (1.0.11) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ DYSTHANASIA (2025) [Multi] (1.0.8.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Five Nights In Saransk / Пять ночей в Саранске (2025) [Ru/En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (5738-A) Repack Let'sРlay 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (Build 18042732/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Book of Outcasts (2025) [Ru/Multi] (Build 21576001/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Caravan SandWitch (2024) [Ru/Multi] (1.13.72.2/dlc) Repack Other s [Digital Coll
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Horses (2025) [Multi] (1.0.16497) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Emerald Valley (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Keeper (2025) [Ru/Multi] (1218000) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Not an Aim Trainer (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Not an Aim Trainer не укладывается в рамки одного жа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6496D62F0A690EE4E0B53B85C9EF4734D9E4E66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847129   (1051976) от 10.01.2026
-
-Island Notes (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051976.jpg" />
-</div>
-
-
-###  Подробнее
-
-После крушения яхты вы и ваши гости оказались в ловушке на таинственном острове. Выживать в одиночку или сплотиться для общего спасения? Игра сочетает романтику, выживание, строительство, фермерство, рыбалку, приручение питомцев и другие элементы, предлагая уникальное приключение.Тип издания: RepackРазработчик: KangBaoGameЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Немецкий, Корейский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E182FFF696CC78320EF5ED2A922EFBA1DA98C403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847211   (1051935) от 11.01.2026
-
-Flushed (2025) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открой двери, усомнись в реальности. Ты просыпаешься в заброшенной психиатрической больнице. Как ты сюда попал? Ты не знаешь. Но одно ясно: тебе нужно выбраться отсюда. Первый ключ лежит рядом - найти его просто, но настоящее испытание только начинается. Переступив порог, ты оказываешься перед тёмным и зловещим жилым домом. Flushed - это игра от первого лица в жанре (   Читать дальше...   )Тип издания: RepackРазработчик: Mehmet kılınçЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F17C4FC00B2F05B7A4BC212FBECE8727D0047B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847212   (1051934) от 11.01.2026
-
-Chiral (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051934.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Chiral, научно-фантастической психологической игре-головоломке ужасов/комедии от первого лица, вы возьмете на себя роль бестелесного мозга в банке, в паре с цифровым компаньоном ИИ. Вместе вы пройдете лабиринт головоломок с зеркалами, лазерами и гравитацией, которые бросят вызов вашему пространственному мышлению.Тип издания: RepackРазработчик: The Lonely Game DevЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F637B1C977A80F16AEBE45B6EFFEAD3B5FA2A563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846799   (1051624) от 09.01.2026
-
-Onirism (2025) [Ru/Multi] (Build 21313783) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Кэрол в волшебном приключении, чтобы найти ее потерянную плюшевую игрушку Банбана. Используйте причудливые гаджеты и дикое оружие, отправляясь в захватывающее путешествие по фантастическим мирам, где вы будете сражаться с хитрыми и яркими противниками в захватывающих, напряженных боях!Тип издания: RepackРазработчик: Crimson TalesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505587FF95F4ABA3A6ECB835D8C5270FBEA88BDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

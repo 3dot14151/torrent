@@ -1,3 +1,55 @@
+###  Публикация: 1821958   (91153) от 04.10.2025
+
+Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Final Thing? | Могу попросить ещё кое-что? [2025, TV, 1 из 13 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В детстве леди Скарлет часто ввязывалась в драки, предпочитая словесной перепалке кулаки. Она считала, что поступает правильно и приносит благо обществу, наказывая обидчиков, но подобное поведение порицалось в высшем обществе, поэтому старший брат постоянно отчитывал сестру за нелепые выходки. Но в итоге увещевания близких и помолвка со вторым принцем королевства (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: приключения, фэнтезиРежиссер: Сакамото КадзуяПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E54C459A3E99C281791B03908A08184F95ADDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821382   (52138) от 02.10.2025
+
+Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | Повар небесной гостиницы [ТВ-2] [2025, TV, 1 из 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Студентка колледжа по имени Аой унаследовала от своего покойного деда способность видеть духов. Аой гордится своим кулинарным мастерством, и однажды она кормит духов капп, когда внезапно появляется бог и хозяин «Тэндзинья» (Небесной гостиницы) и забирает Аой. Он говорит, что из-за долгов деда она должна стать его невестой. Аой не нравится эта идея, и она заявляет, (   Читать дальше...   )Производство: Gonzo, MakariaЖанр: фэнтезиРежиссер: Ёсидзаки ДзёПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1376E29AF087AE39D4EAE19B49497D28AAC29AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821167   (41000) от 01.10.2025
 
 Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные дни Яно [2025, TV, 1 из ? эп.] WEBRip 720p raw
@@ -6,7 +58,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Tu Bian Yingxiong X | To Be Hero X | Быть героем Икс [2025, WEB, 24
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | К�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +217,7 @@ Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С ны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +243,7 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +269,7 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Muchuu sa, Kimi ni. | Captivated, by You | Других таких нет [2025,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Hikaru ga Shinda Natsu | The Summer Hikaru Died | Лето, когда умер 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +503,7 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +529,7 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +557,7 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +583,7 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +609,7 @@ Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +635,7 @@ Kaoru Hana wa Rin to Saku | The Fragrant Flower Blooms with Dignity | Благо
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -622,58 +674,6 @@ Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9861B750DF33C696543F3022B5EB75C4E969F698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805200   (1542) от 22.09.2025
-
-Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Момо Аясэ верит в духов и призраков, но считает, что НЛО и пришельцы — полнейшая чушь и выдумки. Однажды она заводит дружбу с парнем из школы по прозвищу Окарун (настоящее его имя вслух лучше не произносить), который уверен в прямо противоположном. Чтобы доказать друг другу, что оппонент неправ, оба отправляются в знаковые для противных лагерей места: Момо — в точку, (   Читать дальше...   )Производство: Студия Science Saru / サイエンスSaruЖанр: Экшен, приключения, комедияРежиссер: Ямасиро ФугаПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC15C3CD06D88A596134D179C789A84C7AEDD60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805557   (1532) от 22.09.2025
-
-Jigoku Sensei Nube (2025) | Hell Teacher | Адский учитель Нубэ [ТВ-2, часть 1] [2025, TV, 12 из 13 эп.] WEBRip 1080p raw
-
->>След.
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нубэ — очень добрый и слегка неуклюжий школьный учитель, который искренне заботится о своих учениках. Но у него есть секрет: под его левой перчаткой, которую он никогда не снимает, скрывается монструозная рука, а сам он обладает способностью ощущать присутствие призраков и злых духов. А так как всякие потусторонние существа из мифов и городских легенд постоянно посягают (   Читать дальше...   )Производство: студия Studio Kai / スタジオKAIЖанр: приключения, мистикаРежиссер: Ойси ЯсуюкиПеревод: Amediateka(Серии 1-7), AniLibria(Серии 8-12)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AA76B553F3C43509F1A91FD5BD3D4A0E24A1EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

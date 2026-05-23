@@ -1,3 +1,83 @@
+###  Публикация: 856471   (872409) от 19.02.2017
+
+Magisto Video Editor & Maker 4.13.15782 [Ru] - Редактор видео со спецэффектами
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Поможет превратить повседневные моменты жизни в незабываемые мини-фильмы со спецэффектами и музыкой всего за один клик. Начните делиться лучшими моментами своей жизни…установите Magisto прямо сейчас
+Magisto удивит красивыми фильмами, которые эта программа автоматически создаст из фото и видеофайлов. По умолчанию все новые фильмы будут только в вашем личном использовании, (   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 19.02.17Разработчик: MagistoПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C31D18ADD177ED6D854F68DF3238D0FB8CEB2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374685   (872334) от 10.04.2020
+
+Chromatix (Black and White Photo Colorizer) v1.3.98 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Chromatix - это мощное мобильное приложение, которое позволяет быстро и автоматически раскрашивать черно-белые фотографии, чтобы превратить их в красивые цветные изображения! Взгляните на скриншоты в этом списке приложений для некоторых примеров до и после.Тип издания: Пиратка / Mod (получен Premium)Релиз состоялся: 25.11.2018Разработчик: Christopher ChangchienПоддерживаемая ОС: AndroidЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87B51C2B50F199272B0F390CC24764156964229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088136   (868474) от 12.04.2020
+
+Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выполнять повседневные задачи стало проще, чем когда-либо. Планируете ли вы отпуск, хотите ли поделиться списком покупок с партнером или управляете одновременно несколькими проектами, — вам поможет Wunderlist, в котором вы можете планировать выполнение, как личных, так и профессиональных задач.
+Помогает миллионам людей во всем мире записать свои идеи, задачи и достопримечательности. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 12.04.2020Разработчик: 6 Wunderkinder GmbHПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D545BAA0B74AD35A856F9742510F2FB8349E3E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 758144   (867409) от 20.03.2016
 
 Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и считывания штрих-кодов
@@ -6,7 +86,7 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +113,7 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +194,7 @@ FolderSync Pro v3.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +247,7 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +274,7 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +301,7 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +328,7 @@ RAR v6.10 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +383,7 @@ Bass Guitar Tutor Pro ver.Feels (134) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +409,7 @@ Root Essentials Premium 2.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +435,7 @@ Manual FX Camera 1.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +540,7 @@ Photo Editor by Aviary Premium 4.5.5 [Rus] - Фоторедактор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +566,7 @@ VOCHI v2.28.1 [Ru/Multi] - видеоредактор, эффекты и фил�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +618,7 @@ PicsArt - Photo Studio v18.1.1 Mod by Alexey070315 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +644,7 @@ GPS to SMS v3.4.15 [Ru/Multi] - отправка GPS-координат по С�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24C8A3BA3CA05EF98DB0BBC3A8659E36A4D8B3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110190   (855312) от 01.03.2017
-
-HTC Camera 8.50.876780 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Функции автоматической съемки, широкий набор элементов ручного управления и творческие режимы камеры делают HTC 'Камера' идеальным и универсальным средством для фотографирования 'на ходу'. С помощью элементов управления — от параметров ISO до баланса белого — вы всегда сможете создать нужное восприятие для ваших фотографий и видеозаписей. Можно даже добавить и попробовать (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 01.03.17Разработчик: HTC CorporationПоддерживаемая ОС: Android. 6.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691F2A8295F48E3F09FF70A44F3ABD4D6ECE0CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250434   (853055) от 21.04.2020
-
-Как завязать галстук v4.0.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее руководство по завязыванию галстука! Как завязать галстук пошагово - более 25 узлов в одном приложении! 10'000'000 человек по всему миру уже успешно им пользуются. Скачайте приложение и вам не придется постоянно лазить в интернет и тратить свое время и деньги, чтобы найти правильную и понятную инструкцию, как красиво завязать галстук. Легко и понятно: просто (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 26.12.2017Разработчик: ArtfonicaПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E096C3C443DD487D26BDDEC26A913DB75FB8AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352604   (851496) от 22.04.2020
-
-SanDisk Memory Zone 4.1.16 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет отслеживать состояние внутреннего хранилища устройства и SD-карты.Тип издания: AdFreeРелиз состоялся: 22.04.2020Разработчик: Western Digital Corporation or its affiliates.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B526B932307893FB266B33F81CE071F1835F28A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

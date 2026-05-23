@@ -1,3 +1,89 @@
+###  Публикация: 1054881   (491782) от 20.09.2016
+
+Spy Video Recorder Camera / Шпионская видео камера v3.0.0 Pro [Ru/Мульти]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шпионская видео камера — незаменимая программа, когда надо вывести на чистую воду очередного чиновника или блюстителя порядка, требующего взятку. На самом деле спектр применения этого приложения широк ровно настолько, насколько широка фантазия пользователя. Интерфейс программы состоит из единственного окна с доступом ко всем настройкам: переключение передней и задней (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 05.02.2015Разработчик: form follows function appsПоддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D720815F75DAD647ED7138E9B1484A07D55986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544840   (486555) от 09.09.2012
+
+[Книга] (Android 1.6+) Омар Хайям - Рубаи
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это жемчужина восточной поэзии. В ней глубокие философские мысли облачены в невесомую вуаль утонченного слога.
+О поэзии Омара Хайяма замечательно сказал С.Я.Маршак:
+
+Четыре строчки источают яд,
+Когда живет в них злая эпиграмма,
+Но раны сердца лечат "Рубайат" -
+Четверостишья старого Хайяма.
+
+Для удобства чтения в книгах реализовано листание страниц как в бумажных изданиях. С помощью простого меню каждый читатель может настроить отображение книги под характеристики своего устройства.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319085   (486326) от 10.08.2019
+
+Карты для iGo 2019.Q2 HERE (NQ, NavTeq) Европа [25.07.2019]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+iGO R3 Here (NavTeq) Европа 2019.Q2 (.fbl, .fda, fds, .fjw, .fjv (Russia), .fpa, .fsp, .ftr, .hnr, .poi, .3dl, .3dc, .ph, .dem, .spc)Релиз состоялся: 29.04.2019Разработчик: HEREПоддерживаемая ОС: iGO8/Primo/MyWay/Amigo (Android, WinCE, WM)Язык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99D1BAB8E9D1F44578208DDE31D960D094918C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565918   (486286) от 27.07.2022
 
 Скороговорки «Ехалгрека» – Russian Tongue Twisters v1.3.8 [Ru]
@@ -6,7 +92,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +120,7 @@ ViperFX For Android (V4A) - Большой сборник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +146,7 @@ Smart YouTube TV v6.17.720 Stable [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +172,7 @@ Mi Control Center v3.7.9 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +198,7 @@ Bookmark Folder 5.1.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +227,7 @@ Head Model Studio 1.1.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +253,7 @@ Electronic Component Pinouts v16.80 PCBWAY [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +357,7 @@ VPN Max by Aeronliru v100.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +383,7 @@ ZArchiver Pro 1.0.4 Mod by 5Mod Team [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +409,7 @@ Monetal v3.1.6 [Ru/En] - Удобный менеджер финансов
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +461,7 @@ Your Calendar Widget 1.56.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +487,7 @@ Oxford Learner's Bookshelf - Карманная библиотека Оксфо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +513,7 @@ Flightradar24 v8.18.7 Gold [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +541,7 @@ Clash of Clans 7.200.12 + Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +567,7 @@ Measure Map Pro 8.0.6_79 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +593,7 @@ Agro Measure Map Pro 8.0.6_67 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +619,7 @@ Wallpaper Changer Premium 4.9.3 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +645,7 @@ AudioRelay Pro: стриминг аудио 0.24.9 + Сервера для Windo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,84 +682,6 @@ iGO R3 Here (NavTeq) Европа 2018.Q2 (.fbl, .fda, .fjw, .fjv (Russia), .fpa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D96640D597DE825B553E4A1E67FBA642963A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567754   (470196) от 04.08.2022
-
-Lesser AudioSwitch 2.7.2 Mod by KirIif' [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lesser AudioSwitch - это практическое приложение, которое предлагает пользователям Android возможность изменять аудиовыход для переключения между наушниками, динамиками или любым другим выходом, включая USB и Bluetooth. В то же время вы также можете изменить микрофон или полностью отключить динамики на большинстве устройств. Еще одна особенность этого приложения (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.11.2021Разработчик: RoughyПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский, Немецкий, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90F36B3DBBDEF59B9401BDFF2084120FC925423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567787   (470077) от 04.08.2022
-
-9GAG: Funny GIF, Meme & Video 6.130.51 (26588) Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470077.jpg" />
-</div>
-
-
-###  Подробнее
-
-9GAG: Funny Gifs, Pics, Memes & Videos for IGTV - крутой развлекательный проект, что предоставляет пользователям доступ к огромному миру наполненному разнообразнейшим увеселительным контентом. Гифки, мемы, картинки, видеоролики, рассказы и всё прочее, что с лёгкостью повышает настроение и может заставить рассмеяться. При этом вся механика больше напоминает соцсеть (   Читать дальше...   )Тип издания: Pro+Релиз состоялся: 17.07.2022Разработчик: 9gagПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985FA921102DAFCBC7496CF3558833BDDF8B12D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567808   (470076) от 04.08.2022
-
-Lesser AudioSwitch 2.7.2 Mod by KirIif' [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lesser AudioSwitch - это практическое приложение, которое предлагает пользователям Android возможность изменять аудиовыход для переключения между наушниками, динамиками или любым другим выходом, включая USB и Bluetooth. В то же время вы также можете изменить микрофон или полностью отключить динамики на большинстве устройств. Еще одна особенность этого приложения (   Читать дальше...   )Тип издания: Premium (Mod)Релиз состоялся: 11.11.2021Разработчик: RoughyПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8DB1DF979BECD9601EC072CE1A1B47B99B031F
 ```
 
 https://mybot314.ru/tekegram_catalog/

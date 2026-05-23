@@ -6,7 +6,7 @@ The Godfather: Blackhand Edition [Wii] [PAL] [ENG] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +32,7 @@ SaGa Frontier 2 (2000) [PS3] [USA] 4.85 [HEN / CFW] [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +58,7 @@ Angry Birds Star Wars (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +86,7 @@ ZombiU (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tales of Berseria (2016) [PS3] [ASIA] 4.80 [Cobra ODE / E3 ODE PRO ISO] [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +140,7 @@ Cel Damage HD (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +166,7 @@ Maplestory 3DS: The Girl of Destiny (2014) [3DS] [JPN] [CIA] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +192,7 @@ Hyperdimension Neptunia Re;Birth1 / Hyperdimension Neptunia Re Birth 1  (2014) [
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +220,7 @@ The Legend of Zelda: Ocarina of Time 3D (2011) [3DS] [EUR] [Gateway] [Unofficial
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Legend of Zelda: Ocarina of Time 3D (2011) [3DS] [EUR] [CIA] [Unofficial] [R
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +274,7 @@ Bigfoot - King of Crush [Wii] [NTSC] [Multi 3] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +302,7 @@ Beyond the Labyrinth (2012) [3DS] [JPN] [Gateway] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +328,7 @@ Dragon Quest Monsters: Terry's Wonderland 3D (2012) [3DS] [JPN] [Gateway] [Unoff
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +354,7 @@ Maplestory 3DS: The Girl of Destiny (2014) [3DS] [JPN] [Gateway] [Unofficial] [E
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +380,7 @@ Dragon Quest Monsters: Terry's Wonderland 3D (2012) [3DS] [JPN] [CIA] [Unofficia
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +406,7 @@ Beyond the Labyrinth (2012) [3DS] [JPN] [CIA] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +432,7 @@ The Legend of Zelda: A Link Beetween Worlds (2013) [3DS] [EUR] [CIA] [Unofficial
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Legend of Zelda: A Link Beetween Worlds (2013) [3DS] [EUR] [Gateway] [Unoffi
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +484,7 @@ Star Wars Pinball (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +510,7 @@ Kane & Lynch 2: Dog Days (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +536,7 @@ DANCE! It's your Stage [Wii] [PAL] [English] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +563,7 @@ Luftrausers  (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +589,7 @@ Initial D: Extreme Stage (2008) [PS3] [ASIA] 2.30 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +615,7 @@ F.E.A.R. 3 (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -641,7 +641,7 @@ We Love Golf [Wii] [NTSC] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 

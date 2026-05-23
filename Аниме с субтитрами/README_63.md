@@ -1,3 +1,109 @@
+###  Публикация: 811436   (576338) от 11.08.2014
+
+Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ-2] [2014, TV, 11] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юго Хатикэн не зря поступил в сельскохозяйственную школу Эдзо! Из городского недотепы он начал потихоньку превращаться в надежного парня, упорного в учебе, не бегающего от работы, а при случае готового и погарцевать на лихом коне. Деревенские ребята с сурового острова Хоккайдо, не так давно бывшего японским Диким Западом, приняли новичка и доверили ему пост вице-президента (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Дэай Котоми / Deai Kotomi / 出合小都美Продолжительность: 11 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF48EC2A6C704129946EE046B8D128AC61BF0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150903   (575920) от 17.07.2017
+
+New Game! OVA | Новая игра! OVA [2017, OVA, 1] DVDRip 576p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бонусный эпизод про горнолыжный курорт и горячие источники под открытым небом.Жанр: повседневность, комедияРежиссер: Фудзивара Ёсиюки / Fujiwara Yoshiyuki / 藤原佳幸Продолжительность: 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40049079947DACEC1BFE557B8004C21ABAE6EC3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001266   (575838) от 14.08.2016
+
+Hantsu x Trash / Охотник и корзина / Трэш и Угар [2015, OAD, 2] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бонус к эксклюзивному ограниченному изданию восьмого тома манги.
+
+R-18 !Производство: Hoods EntertainmentЖанр: комедия, эттиРежиссер: Сайто ХисасиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7368929F26C5298A42198B49E2C275D51E604EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551797   (575457) от 31.05.2022
+
+Shin Ikkitousen | Новые школьные войны: Истинная сила тысячи [2022, TV, 3 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет основан на классическом китайском романе XIV века «Троецарствие» и рассказывает о войне в регионе Канто в Японии, где бойцы, известные как «тощи», представляющие семь различных школ, сражаются за власть.Производство: Студия Arms / アームスЖанр: приключенияРежиссер: Кудзё РионПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 3 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5268CEFF326A24B92D170017FBA7A7B0F3E7A5CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221396   (574409) от 03.07.2018
 
 Butlers: Chitose Momotose Monogatari | Butlers x Battlers | Дворецкие: История тысячи столетий [2018, TV, 12] WEBRip 720p raw
@@ -6,7 +112,7 @@ Butlers: Chitose Momotose Monogatari | Butlers x Battlers | Дворецкие: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Shirokuma Cafe | Polar Bear Cafe | Кафе «У Белого Медведя» [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Fumikiri Jikan | Crossing Time | Ожидание на железнодорож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [ТВ-1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ Dorei-ku The Animation | Doreiku the Animation | Я и 23 раба [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +242,7 @@ Bubble | Пузырь [2022, ONA] WebRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +268,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +294,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +320,7 @@ Ginga Tetsudou no Yoru / Night on the Galactic Railroad / Ночь на Гала
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +348,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword Oratoria |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +374,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka Gaiden: Sword Oratoria |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +400,7 @@ Guilty Crown / Корона греха [2011, TV, 22] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +426,7 @@ Rokuhoudou Yotsuiro Biyori | Чайная «Рокуходо» [2018, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +452,7 @@ Last Period: Owarinaki Rasen no Monogatari | Last Period: The Journey to the End
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +478,7 @@ Piano no Mori (2018) | Рояль в лесу [ТВ] [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +504,7 @@ Hisone to Masotan | Dragon Pilot: Hisone and Masotan | Хисонэ и Масо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +530,7 @@ Basquash! | Баскваш! [2009,TV, 26] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +556,7 @@ Next A-Class [2012, ONA] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +583,7 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +609,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +635,7 @@ Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +661,7 @@ Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,111 +672,6 @@ Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1FD10E258B3BD995C7274984637822A6A06771A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304361   (564993) от 25.05.2019
-
-Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Rascal Does Not Dream of Bunny Girl Senpai | Эта глупая свинья не понимает мечту девочки-зайки! [2018, TV, 13 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет полон слухов о «синдроме юности», что проявляется у подростков с неустойчивой психикой. Старшекласснику Сакуте он знаком не понаслышке, ведь ему одна за другой встречаются девушки, страдающие этим загадочным синдромом. Так, однажды в библиотеке он натыкается на девушку в вызывающем костюме кролика, однако, к его удивлению, никто вокруг не обращает на неё (   Читать дальше...   )Производство: студия CloverWorksЖанр: комедия, романтикаРежиссер: Масуй СойтиПеревод: 1) Wakanim; 2) SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7D8F77E73F9EC53499FC560AFFB4F2FD0B4731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529658   (564517) от 01.08.2012
-
-Plastic Little: The Adventures of Captain Tita / Пластиковая малышка [1994, OAV] DVDrip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее. Планета, климат и природа которой не позволяет использовать металлические изделия – все делается из пластика.
-16-летняя Элиза Альтмодиш – дочь ученого, придумавшего новое, военное применение электромагнитных полей. Ее отец убит агентами правительства, а сама она вынуждена бежать и скрываться. Элизу спасает экипаж охотничьего судна "Тятя-мару" (корабль (   Читать дальше...   )Жанр: комедия, приключения, фантастика, эттиРежиссер: Ёсимото Киндзи / Yoshimoto KinjiПеревод: RAnKOЯзык озвучки: German & FrenchЯзык субтитров: Русский, Английский, НемецикйПродолжительность: (1 эп.), 48 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304582   (563588) от 26.05.2019
-
-H2O: Footprints in the Sand | H2O: Следы на песке [2008, TV, 12 эп.] DVDrip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563588.jpg" />
-</div>
-
-
-###  Подробнее
-
-У 14-летнего Такумы Хиросэ трагическая нелепость унесла мать, и мальчик ослеп от горя. Отец отправляет его к своему брату, в деревню, где лежат корни их рода, думая, что свежий воздух и спокойная сельская жизнь исцелят душевные раны сына. Но уже по дороге в новую школу Такума сталкивается с веселой и непосредственной Отохой, которая представляется не иначе как «духом (   Читать дальше...   )Производство: студия ZEXCS / ゼクシズЖанр: драма, романтика, комедия, мистикаРежиссер: Татибана ХидэкиПеревод: Utgarda Loki, Hollow, Saturos, OazisЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A023CF32D9CF2D420194E966E7D0CA6F4C7AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044885   (563246) от 21.08.2016
-
-Shirogane no Ishi: Argevollen | Аргеволлен: Серебряная мощь [2014, TV, 24] BDrip 1080p HEVC Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две державы – королевство Арандас и Ингельмийская Федерация - борются за власть. Увы, стратеги королевства проглядели образование мощной ударной группировки, и полки федерации прорвали якобы несокрушимые пограничные укрепления. 8-й отдельный отряд тяжелых роботов Арандаса отходил к главным силам, но молодой и горячий пилот Токимунэ Сусуму нарушил приказ, ввязавшись (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Оцуки Ацуси / Ootsuki Atsushi / 大槻敦史Продолжительность: 24 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D722FA0F0673556B1D89C2562381195EAF08AE59
 ```
 
 https://mybot314.ru/tekegram_catalog/

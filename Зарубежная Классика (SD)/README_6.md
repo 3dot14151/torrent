@@ -1,3 +1,108 @@
+###  Публикация: 1444831   (1028172) от 03.03.2021
+
+Голубой Ангел / Der Blaue Engel / The Blue Angel (1930) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Профессор Иммануил Рат работает преподавателем в средней школе, его ученики в свободное от учебы время посещают ночной портовый кабачок «Голубой Ангел», где танцует и поет обворожительная Лола Лола. Ее откровенные фото из кабаре школяры разглядывают на уроках и тем самым мешают учебному процессу. Рат решает посетить ночной клуб, чтобы положить конец всей этой непристойности, (   Читать дальше...   )Производство: Германия, Universum Film A.G.Жанр: Драма, музыкаРежиссер: Йозеф фон ШтернбергАктеры: Эмиль Яннингс, Марлен Дитрих, Курт Геррон, Роза Валетти, Ганс Альберс, Рейнхольд Бернт, Эдуард фон Винтерштайн, Ганс Рот, Рольф Мюллер, Роланд ВарноПеревод: Многоголосый профессиональный (New Dream Media / Film Prestige)Субтитры: Русские - отдельным файломПродолжительность: 01:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D129855915883B36A6356A043A82C629535A2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444838   (1028028) от 04.03.2021
+
+Милый сэр / Indiscreet (1958) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Анна Кальман - известная театральная актриса, добившаяся всего в театре, но ещё не нашедшая счастья в личной жизни. Сестра знакомит её с Филипом Адамсом - он импозантен, обеспечен и много путешествует. Они нравятся друг другу, роман бурно развивается, хотя он женат и развод невозможен из-за неизлечимой болезни жены.
+Все идёт чудесно, пока Филипу не предлагают повышение (   Читать дальше...   )Производство: Великобритания / Grandon Productions Ltd., Warner Bros.Жанр: Мелодрама, КомедияРежиссер: Стэнли ДоненАктеры: Кэри Грант, Ингрид Бергман, Сесил Паркер, Филлис Кэлверт, Дэвид Кософф, Мегс Дженкинс, Майкл Энтони, Мартин Бодди, Полин Чемберлен, Дайан КлерПеревод: Многоголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BE3835A04F2D0E11A1A723D97D08412ACD8146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445326   (1027868) от 05.03.2021
+
+Ответный удар / Backlash (1956) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Отец Джима Слейтера, которого Джим никогда не знал, погибает в стычке с апачами в долине Хила. Джим ищет единственного выжившего человека, который якобы отправился за помощью, но бесследно исчез. Вместе с ним исчезло и золото, найденное отцом Джима и его товарищами в долине Хила...Производство: США / Universal International Pictures (UI or U-I)Жанр: Мелодрама, Детектив, ВестернРежиссер: Джон СтёрджесАктеры: Ричард Уидмарк, Донна Рид, Уильям Кэмпбелл, Джон МакИнтайр, Бартон МакЛэйн, Гарри Морган, Роберт Дж. Уилки, Джек Ламберт, Рой Робертс, Эдвард ПлаттПеревод: Авторский, Алексей БагичевСубтитры: ОтсутствуютПродолжительность: 01:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB91321078BC8CB686223652271589BD809CF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445981   (1027037) от 10.03.2021
+
+Тропа Аллилуйя / The Hallelujah Trail (1965) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В Денвер направляется поезд с виски для шахтеров. Но добраться до цели непросто: Лига трезвости, кавалерия США и местные индейцы одновременно пытаются взять под контроль ценный груз.Производство: США / Kappa, The Mirisch CorporationЖанр: Комедия, ВестернРежиссер: Джон СтёрджесАктеры: Берт Ланкастер, Ли Ремик, Джим Хаттон, Памела Тиффин, Дональд Плезенс, Брайан Кит, Мартин Ландау, Джон Андерсон, Том Штерн, Роберт Дж. УилкиПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2325A229F51EC7DE23156C8AFA70E83791321486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445979   (1027019) от 10.03.2021
 
 Тридцать три несчастья / The Notorious Landlady (1962) BDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,112 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:285A0D3DA3BCC078FD91458C7EDADA6D815863F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451064   (1022420) от 06.04.2021
-
-Дама с камелиями / Camille (1984) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022420.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Александра Дюма-сына.
-История любви парижской куртизанки Маргариты Готье и молодого аристократа Армана Дюваля. Сюжет романа во многом близок к реальной истории его автора и модной парижской куртизанки, известной в Париже как «дама с камелиями»Производство: Великобритания, США / Hallmark Hall of Fame ProductionsЖанр: Драма, МелодрамаРежиссер: Десмонд ДэвисАктеры: Грета Скакки, Колин Фёрт, Джон Гилгуд, Билли Уайтлоу, Патрик Райкарт, Денхолм Эллиот, Бен Кингсли, Лила Кэй, Роналд Пикап, Рейчел КемпсонПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBF34AE0C0A80F2466D3A6FF21CE28AB79092CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452315   (1022046) от 08.04.2021
-
-Стрелок из Спрингфилда / Springfield Rifle (1952) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022046.jpg" />
-</div>
-
-
-###  Подробнее
-
-США, 1864 год. Союзная армия нуждается в лошадях, чтобы начать наступление против Юга. Офицеры в Форте Хедли в Колорадо, во главе с подполковником Хадсоном, не могут выполнить задачу по перегону лошадей из форта, окруженного горами, на равнину.
-Несмотря на все предосторожности и секретные тропы, по которым следуют Союзные конники, неизвестные налетчики, сочувствующие (   Читать дальше...   )Производство: США / Warner Bros. Pictures.Жанр: Вестерн, ВоенныйРежиссер: Андре Де ТотАктеры: Гэри Купер, Филлис Такстер, Дэвид Брайан, Пол Келли, Филип Кэри, Лон Чейни мл., Джеймс Милликэн, Гуинн «Биг бой» Уильямс, Алан Хейл мл., Мартин МилнерПеревод: Многоголосый профессиональный, "Светла"Субтитры: Английские (Full, SDH)Продолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360157B2CAA9DD53FB11EC1C923BD0B9759931AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452401   (1021914) от 09.04.2021
-
-Даже по-аргентински / Down Argentine Way (1940) WEB-DLRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой отпрыск богатого аргентинского конезаводчика Риккардо приезжает в Нью-Йорк, чтобы продать некоторых призовых лошадей из конюшни своего отца. Отец Дон Диего Кинтана, в виде напутствия, дал жесткое указание не продавать лошадей семье Кроуфорд, чей представитель его когда-то обманул. И надо же было такому случиться, что Риккардо знакомится и влюбляется как раз (   Читать дальше...   )Производство: США, 20th Century Fox Film CorporationЖанр: Мюзикл, драма, мелодрама, комедияРежиссер: Ирвинг КаммингсАктеры: Дон Амичи, Бетти Грэйбл, Кармен Миранда, Шарлотта Гринвуд, Дж. Кэролл Нейш, Генри Стивенсон, Кэй Элдридж, Леонид Кински, Крис-Пин Мартин, Роберт КонуэйПеревод: Многоголосый профессиональный (Светла)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF18F0CDC7EE13832D1E3BE7899BD67E41000E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452593   (1021711) от 10.04.2021
-
-Копи царя Соломона / King Solomon's Mine (1950) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Занимательные приключения белого охотника, ведущего отряд через Африку в поисках пропавшего мужа леди. Он пропал, когда отправился на поиски легендарных алмазных копей царя Соломона. Великолепные съемки в живописных уголках черного континента, много действия - удовольствие для всех и сейчас. Поставлен фильм по мотивам романа Хенри Райдера Хаггарда...Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Мелодрама, ПриключенияРежиссер: Комптон Беннетт, Эндрю МартонАктеры: Дебора Керр, Стюарт Грейнджер, Ричард Карлсон, Хуго Хаас, Лоуелл Гилмор, Кимурси, Сириаке, Секарьонго, Базига, Мунто АнампиоПеревод: Многоголосый профессиональныйСубтитры: ФранцузскиеПродолжительность: 01:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E678EACBD0298F2090867D452B5845590A1077C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,111 +1,3 @@
-###  Публикация: 843161   (150989) от 24.12.2020
-
-Кеннет Грэм | Ветер в ивах (1999) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои смешной, а иногда грустной сказки, так полюбившейся и маленьким, и взрослым читателям, - звери, наделенные трогательными и подчас смешными человеческими качествами. Множество захватывающих приключений ожидают любознательного Крота, деликатного Рэта, мудрого Барсука и легкомысленного Тоуда в истории, сочиненной когда-то Кеннетом Грэмом для своего маленького (   Читать дальше...   )Жанр: СказкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722E36DD0AF0B7F76745C40310932939356BEC6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815209   (150767) от 24.12.2020
-
-Астрид Линдгрен | Пеппи Длинныйчулок (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разве может маленькая девочка пронести на руках лошадь?! Представьте, что может!
- И эту девочку зовут Пеппи Длинныйчулок. Её придумала замечательная шведская писательница Астрид Линдгрен.
- Никого на свете нет сильнее Пеппи, она способна уложить на лопатки даже самого прославленного силача. Но не только этим знаменита Пеппи. Ещё она самая весёлая, самая непредсказуемая, (   Читать дальше...   )Жанр: СказкиПеревод: Лилиана ЛунгинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FD543BEA9CC63B4AF57D22AC0CDF4DA5EE1B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271375   (150402) от 23.12.2018
-
-Зинаида Канониди | Каштаны (1964) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для детей младшего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD10FD0D7D7EB57D5384241E0ACD44C59E99980D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271373   (150381) от 23.12.2018
-
-Михаил Колесников, Мария Колесникова | Перстень вьюги (1984) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мария Колесникова и Михаил Колесников широко известны читателям у нас и за рубежом как авторы многих книг о прославленном советском разведчике Рихарде Зорге и его соратниках, о героях гражданской и Великой Отечественной войн, о советских ученых и инженерах, а также о современном рабочем классе.
-
-Новая повесть «Перстень вьюги» возвращает нас к дням беспримерной защиты (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C4B521AC85D836FAD082D7B8952D6B0F76C084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086682   (150354) от 25.12.2016
 
 Константин Паустовский | Артельные мужички (1974) [DJVU]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -407,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -433,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -459,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -511,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -537,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -668,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -679,6 +571,113 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88994E8E5656F088CB1E6E05C79666B5D19575B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435015   (148466) от 26.12.2020
+
+Юлия Евграфова | Щенок Питер и Несгрызаемая Кость (2016) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Захватывающие приключения отважного щенка Питера, потерявшего своих хозяев!
+Маленького Питера ждут весёлые приключения и суровые испытания, но когда рядом верные друзья – дворняжки Филя и Ласка, которые всегда поделятся косточкой, защитят от роя пчёл и банды помоечных псов, – то можно преодолеть все невзгоды.
+Сможет ли Питер – Самый Лучший На Свете – найти волшебную (   Читать дальше...   )Жанр: Детская литература/Сказки народов мираФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8568111EF3C30843E0E0C6A06F5C820286AE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271777   (148454) от 24.12.2018
+
+Г.П. Коршунов (ред.) | Герои мифов и легенд Беларуси (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этой энциклопедии собраны герои мифов и легенд Беларуси. Из неё ты узнаешь много интересного о мифических существах родной страны. Они добрые и иногда любят пакостить людям ради развлечения. С давних времён белорусы обращались к ним за помощью у себя в доме, в поле и в лесу.
+Куда пропадают вещи в квартире? Почему нельзя кричать и ругаться, когда моешься в бане? (   Читать дальше...   )Жанр: Энциклопедии для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDA31A5822AC2AD5FB615643A9F7F1AF1A940C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434987   (148451) от 26.12.2020
+
+Зана Фрайон | Дом монстров. Тот, кто летит по пятам. Книга 4 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Наступил второй год обучения! Джаспер и его друзья знают – их ждут новые приключения. И те не заставляют себя ждать: в школу прилетает целый рой кошмарных монстров-жуков! И всё бы ничего (учителя в «Доме монстров» встречаются и пострашнее), но вот только Джасперу ни в коем случае нельзя охотиться на этих тварей. И всё потому, что Джаспер – заговорённый (он и сам (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Екатерина ПетроваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459EE3A39B2BC535102A66CFF9A113D1D900819C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434970   (148446) от 26.12.2020
+
+Зана Фрайон | Дом монстров. Тот, кто ждёт в глубине. Книга 3 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В школе «Дом монстров» время экзаменов! Джаспер и его друзья справились с первым испытанием (точнее, провалили его чуть менее позорно, чем остальные), и теперь их ждёт главное: настоящая охота! На настоящего дикого монстра в настоящем лесном озере. Ах да, этот монстр любит по вечерам нападать на купающихся… И Джаспер пока ещё не решил, что хуже: провалить экзамен (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Екатерина ПетроваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E42CC1D9ECC022A76B3D7EB43E62327DD6A51D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

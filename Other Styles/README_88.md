@@ -1,3 +1,206 @@
+###  Публикация: 1300182   (593697) от 05.05.2019
+
+Joy Williams - Front Porch (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Canary
+02. Front Porch
+03. When Does A Heart Move On
+04. All I Need(   Читать дальше...   )Жанр: Folk, Country, AmericanaПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233364   (593296) от 29.06.2018
+
+Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lossless|WEB-DL|tracks] <Balcan Folk Rock, Gypsy Jazz, Folk Punk, Ska>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Scared of Dental Drills (3:28)
+02. Tarentella (3:40)
+03. Mila Gora (4:16)
+04. Comandante (2:40)(   Читать дальше...   )Жанр: Balcan Folk Rock, Gypsy Jazz, Folk Punk, SkaПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808D5613F1AD22FD480FCF6D97CB1E44D36D332B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300707   (592774) от 07.05.2019
+
+Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Mewtwo Awakes (01:19)
+02. Catching A Cubone (02:05)
+03. Bad News (01:17)
+04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECF53F865F012399DE549A3C298E5F751902E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300705   (592772) от 07.05.2019
+
+Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Mewtwo Awakes (01:19)
+02. Catching A Cubone (02:05)
+03. Bad News (01:17)
+04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F4036E52366E3583C93BBFB022DFD4DCB2B284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549169   (592637) от 09.05.2022
+
+Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Adi Shakti (Live)
+02. Om Poornam (Live)
+03. Loving Awareness (Live)
+04. Sitaram Radeshyam (Live)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFAF70C77645553366D609ABB4B05A29260065B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915388   (592385) от 05.07.2015
+
+Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native American, World, Ethnic Fusion>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Of The Drum (5:31)
+02. Land Of Dreams (5:48)
+03. Awakening (4:23)
+04. Earth Dance (4:42)(   Читать дальше...   )Жанр: Native American, World, Ethnic Fusion, FolkПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15B4183D249E6C8220F50AF50A08DCC58351986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550203   (592153) от 11.05.2022
+
+Spiritu (986) - Spiritu (986) (2000) Legacy Recordings, 2021 Remastered [FLAC|Lossless|WEB-DL|tracks] <Folk, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Noche de Luna Llena (Remasterizado) (4:30)
+02. La Sombra del Lobo (Remasterizado) (4:20)
+03. Luar 'Luz de Luna' (Remasterizado) (4:35)
+04. Ataque de Panico (Remasterizado) (3:25)(   Читать дальше...   )Жанр: Electronic, Folk, New AgeПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21F90E561167B0B278C29E8637C1B4C3CFF80A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550837   (591192) от 13.05.2022
 
 Giovanni Marradi - Feelings (1997) [FLAC|Lossless|image + .cue] <Piano, Instrumental, New Age>
@@ -6,7 +209,7 @@ Giovanni Marradi - Feelings (1997) [FLAC|Lossless|image + .cue] <Piano, Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Indios de America - Indios de America (2004) [MP3|160 кб/с]<Native american, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Valentina Babor - Piano Princess (2015) [MP3|320 кб/с]<Instrumental, Classica
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Evgeny Grinko - Orange Marmalade (2021) [MP3|320 Kbps] <Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Valeriy Dolgin - Erektogitara (2013) [MP3|320 Kbps] <Guitar, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tra
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Giovanni Marradi - Italian Love Songs (2006) [FLAC|Lossless|WEB-DL|tracks] <Pian
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Giovanni Marradi - The Best of Giovannii, Vol. 3 (2008) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Allegro Milano - Crocodile Rock - Allegro Milano plays Elton John (1992) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +528,7 @@ Allegro Milano - Plays The Hits Of Tina Turner In DDD (1993) [FLAC|Lossless|imag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +557,7 @@ Amaru Tribe - Between Two Worlds (2022) [MP3|320 Kbps] <Folktronica, World, Folk
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +586,7 @@ Giovanni Marradi - The Best of Giovanni (2008) [FLAC|Lossless|WEB-DL|tracks] <Pi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +615,7 @@ Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +644,7 @@ Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +673,7 @@ Kenio Fuke - Piano e Natureza, Vol. 1-5 (2005-2018) KF Music [FLAC|Lossless|WEB-
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +702,7 @@ David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Re
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Henry Jackman - Ralph Breaks the Internet / Ральф против интерн
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,224 +745,6 @@ Henry Jackman - Ralph Breaks the Internet / Ральф против интерн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C87F3F26C3DBFFD9A44F21C25464B7CBC0B1A814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301244   (586252) от 10.05.2019
-
-Allegro Milano - Allegro Milano Spielt Die Schönsten Weihnachtslieder (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weisse Weihnachten (3:25)
-02. Leise Rieselt Der Schnee (3:12)
-03. Alle Jahre Wieder (3:30)
-04. Morgen Kommt Der Weihnachtsmann (3:05)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDD4636421D921A1386DE514B2F06807E46703D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301238   (586251) от 10.05.2019
-
-Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bridge Over Troubled Water (4:52)
-02. I Am A Rock (3:19)
-03. El Condor Pasa (3:18)
-04. Cecilia (2:44)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14130395253D20C3ED7E41C05AE1BFF4B991311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357947   (586141) от 02.07.2011
-
-Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586141.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gate Of The Shimmering Cave
-2. Song Of The Creek
-3. Dancing Over Pools
-4. Celtic Mist
-5. When The Sun Loves Trees
-6. Silence Of The Eclipse
-7. Stream Garden
-8. Purple Waves
-9. Malibu Trail
-10. Beach Park(   Читать дальше...   )Жанр: RelaxПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE57AD6B2E1DC86A789984355B5BF0EDE139EE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918553   (585859) от 16.07.2015
-
-Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, World, Ethno, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Native Soul (4:27)
-02. Iron Buffalo, Tracks of Steel (4:58)
-03. Everything is a Circle (7:06)
-04. Sacred Ground (4:19)(   Читать дальше...   )Жанр: Native American, New Age, World, Ethno, FolkПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0759E9671B259BCD86479CB8DE04C94740FCD079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357450   (585771) от 02.07.2011
-
-OST Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (ITunes Deluxe Exclusive + Gamestop Exclusive) (2011) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Linkin Park - Iridescent (03:59)
-02 Paramore - Monster (03:20)
-03 My Chemical Romance - The Only Hope for Me Is You (04:32)
-04 Taking Back Sunday - Faith (When I Let You Down) (03:09)
-05 Staind - The Bottom (04:21)
-06 Art of Dying - Get Thru This (02:43)
-07 Goo Goo Dolls - All That You Are (03:12)
-08 Theory of a Deadman - Head Above Water (03:32)
-09 Black Veil Brides - Set the World On Fire (03:40)
-10 Skillet - Awake and Alive (Rock Radio Mix) (03:29)(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E411B4BBE6E7F5515EF97792280D3175A4C0057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357621   (585764) от 02.07.2011
-
-Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9996BABADECEFD4780210A0CC7D44B79141C1093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357682   (585759) от 02.07.2011
-
-Трансформеры 3: Тёмная сторона Луны / Transformers 3: Dark of the moon (by Steve Jablonsky) (2011) [MP3|320 kbps]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark side of the moon (03:49)
-02. Sentinel Prime (03:16)
-03. Lost signal (04:08)
-04. In time you'll see (03:16)
-05. Impress me (03:00)
-06. We were gods once (04:22)
-07. Battle (03:40)
-08. There is no plan (03:36)
-09. We all work for the Decepticons (01:51)
-10. The fight will be your own (04:41)(   Читать дальше...   )2011Жанр: ScoreПродолжительность: 00: 59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAEBCCDEA2A0107A940B2A0A8BF81B838845259
 ```
 
 https://mybot314.ru/tekegram_catalog/

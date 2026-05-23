@@ -1,3 +1,81 @@
+###  Публикация: 1800592   (15700) от 04.06.2025
+
+inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack Other s [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+inZOI - игра в жанре симулятора жизни, в которой игроки примеряют на себя роль создателей, формируя мир согласно своему видению и наблюдая за разнообразными историями, которые разворачиваются в нем. С помощью иммерсивного интерфейса мы стремимся показать игрокам, что жизнь стоит ценить, как великий дар, как путешествие, где каждый шаг имеет значение.Тип издания: RepackРазработчик: inZOI StudioЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A023C264D66EF87C63DB1F07BA35FE040B34B7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757292   (15280) от 08.06.2025
+
+Lethal Company (2023) [Ru/En] (72) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Lethal Company - захватывающая кооперативный хоррор, который погружает в жуткие глубины заброшенных лун в неустанной погоне за пригодным для спасения металлоломом. В черных просторах космоса игроков ждет зверинец из небесных тел, инопланетных форм жизни и незаменимых инструментов, которые нужно найти и использовать. Своеобразный подход к геймплею гарантирует бесконечную (   Читать дальше...   )Тип издания: RepackРазработчик: ZeekerssЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1783BEF1FFE4DE7C94DAC23DEBEDFB74CAFEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801119   (15271) от 08.06.2025
+
+Synchro (2025) [Ru/En] (0.1.6 Beta) Repack Let'sРlay [Playtest]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Synchro - пошаговая RPG о борьбе со зловещей корпорацией, ставящей бесчеловечные эксперименты над людьми. Вы - молодой лидер сопротивления, чьи родители погибли от рук жадных технократов. Собирайте команду из обычных людей, в которых дремлют истинные герои. Исследуйте мрачные закоулки мрачного мегаполиса и сражайтесь с андроидами, мафией и жуткими мутантами по правилам (   Читать дальше...   )Тип издания: RepackРазработчик: KomisoftЖанр: Инди, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C19844E1BE0304A20F5646B4F2F24445939DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800992   (15242) от 08.06.2025
 
 QBoard (2025) [En] (0.9.9.3) License
@@ -6,7 +84,7 @@ QBoard (2025) [En] (0.9.9.3) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Hellish Quart (2021) [Multi] (0.4391) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Morbid Metal (2025) [En] (10619) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Astro Colony (2022) [Ru/Multi] (1.7.43) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ An Amazing Wizard (2025) [Ru/Multi] (0.5.195) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ STONKS-9800: Stock Market Simulator (2023) [Multi] (0.6.2.19) License GOG [Early
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Lightyear Frontier (2024) [Ru/Multi] (0.5.1593) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Xenonauts 2 (2023) [Ru/Multi] (5.38.1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Banquet for Fools (2024) [En] (3.02) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Timberborn (2021) [Ru/Multi] (0.7.10.2-5762fd5-gw) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Spell Brigade (2024) [Ru/Multi] (0.11.0.4764) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Heart of the Machine (2025) [Multi] (0.660.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Dreadful River (2023) [En] (0.9.1.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ White Knuckle (2025) [En] (b0.43j) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Motor Town: Behind The Wheel (2021) [Ru/Multi] (0.7.14 b865) Repack Pioneer [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.37ea) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Palworld (2024) [Ru/Multi] (0.6.2.76269) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Blacksmith Master (2025) [Ru/Multi] (0.8.147) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Necesse (2019) [Ru/Multi] (0.33.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Below the Stone (2023) [En] (Alpha 0.9.1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Die in the Dungeon (2025) [Ru/Multi] (112.0f3) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Death Must Die (2023) [En] (0.8.5) Repack Necros1404 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Death Must Die - это RPG-рогалик, в которой вы играет�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1799F52C6141F60B588A5DA1494C46C4EAC75613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791001   (10348) от 26.07.2025
-
-Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.5.1.13033) Repack Other s [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Into the Dead: Our Darkest Days представляет собой сайд-скроллер, посвященный выживанию в убежищах. Вам предстоит возглавить и вывести в безопасное место группу людей, уцелевших посреди зомби-апокалипсиса. Изготавливайте оружие, собирайте ресурсы, поддерживайте баланс потребностей вашей группы и постарайтесь, чтобы все выжили и спаслись!Тип издания: RepackРазработчик: PikPokЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0662443BAF9747E784FDD911ED6B5740F675AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758682   (9917) от 30.07.2025
-
-No Rest for the Wicked (2024) [Ru/Multi] (23939) Repack Wanterlude [Early Access]
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идет 841 год, король Гарольд мертв. Пока весть о его кончине разносится по всему королевству, корона переходит к его высокомерному, не нюхавшему пороха сыну Магнусу. Хуже того, вернулся Мор - окаянная чума, о которой никто не слышал вот уже тысячу лет. Проклятое поветрие расползается по земле, разлагая все и всех, кого коснется. Матригаль Селина, безжалостная и амбициозная (   Читать дальше...   )Тип издания: RepackРазработчик: Moon Studios GmbHЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD2EA99AEA3F21AC89A1F515C8929AFF9E3EF2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769621   (9907) от 30.07.2025
-
-My Garage (2021) [Ru/Multi] (0.836) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9907.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Garage – игровой проект, разработанный в жанре симулятора, где мы исполним роль автомеханика и постараемся достичь успеха в любимом деле. В распоряжении тебе даётся небольшой гараж со всеми необходимыми деталями, который ты постепенно сумеешь совершенствовать по своему усмотрению. Берись за достаточно сложные работы, модифицируя разбитые, покрытые коррозией, послеаварийные (   Читать дальше...   )Тип издания: RepackРазработчик: Viking Game StudioЖанр: Инди, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Португальский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Португальский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F604A1A60C28CBBBC7B4666D559871CCF45D4A8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

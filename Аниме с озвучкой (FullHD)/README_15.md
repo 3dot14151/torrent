@@ -1,3 +1,83 @@
+###  Публикация: 1400997   (712597) от 08.08.2020
+
+Добро пожаловать в ад, Ирума | Mairimashita! Iruma-kun | Welcome to Demon School! Iruma-kun [2019, TV, 23 из 23] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Судзуки Ируму продали демону безответственные родители. Но к его собственному удивлению, он не только стал жить с демоном, который принял его как своего нового внука, но и был зачислен в школу в демоническом мире, где его новый дедушка работает директором. Так началась необычная школьная жизнь Ирумы среди потустороннего, где он сталкивается со своим истинным Я, принимает (   Читать дальше...   )Производство: Студия BN Pictures / バンダイナムコピクチャーズЖанр: комедия, романтикаРежиссер: Мориваки МакотоЯзык озвучки: Русский закадровый (AniLibria.TV), Английский дублированный (Crunchyroll)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 23 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F8A481DA5A2711C35430D0EEBFC06AE1509477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131741   (706225) от 06.05.2017
+
+Coluboccoro / Колубоккоро [2007, Movie] BDRip 1080р raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В лучших традициях Хаяо Миядзаки: рисовка, персонажи, сюжет—смотреть всем обязательно!
+Научно-фантастическая фантазия о 14-летней героине, принцессе Сузу, потомка выдающегося шамана, который спас людей от катастрофы в прошлом. Сузу отправляется в путешествие вместе с духом природы Колубоккоро, чтобы восстановить мир и природу в разрушенной деревне.
+©www.animespirit.ruПроизводство: Kenji StudioЖанр: фэнтези, приключения, фантастикаРежиссер: Итосо Кэндзи (Itoso Kenji)Язык озвучки: Русский (Anidub)Продолжительность: 29 мин. 1 сек.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731B16B9E813F8724B483C8A34EC4EF4D347C2AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533943   (700885) от 26.02.2022
+
+Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | Добро пожаловать в класс превосходства [ТВ-1] [2017, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Киётака Аянокодзи только что поступил в Токийскую центральную углублённую старшую школу, которая славится тем, что 100% выпускников поступают в университет или находят работу. Правда, ему не повезло попасть в класс Д, куда направляют всех проблемных учеников. К удивлению поступивших оказалось, что каждый месяц школа начисляет ученикам баллы общей стоимостью на 100 (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: драма, повседневностьРежиссер: Киси СэйдзиЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B8E12B3F71930A0B0D9F19297AA945CC9D92B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132740   (698579) от 10.05.2017
 
 Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDRip 1080р raw+rus
@@ -6,7 +86,7 @@ Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +140,7 @@ Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying | Мой сэмпай �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +220,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +246,7 @@ Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из шк
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +273,7 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +325,7 @@ Bakuretsu Tenshi / Burst Angel / Ангелы Смерти [2004, TV, 24 + 1 э�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +351,7 @@ Eiga K-On! / K-ON! The Movie / Кэйон! [2011, MV] BDRip Hi10p 1080p Raw+Eng+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +377,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных до�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +404,7 @@ Shikioriori / Flavors of Youth / Вкусы Молодости [2018, MV] WEB-DL
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +433,7 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +459,7 @@ Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +487,7 @@ Ookami to Koushinryou | Spice and Wolf | Волчица и пряности [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +513,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. +1 OVA] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +539,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +565,7 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +591,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +644,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 1080p Hi10p ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +671,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,87 +682,6 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD4C7CDE270B7D2AD3158D08AC9F72BC1052371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301096   (585914) от 10.05.2019
-
-Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней партой [2012, TV, 13 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585914.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Сидзуку Мидзутани любит учиться и думать о своем будущем. Больше ей ничего не нужно, потому девушка и в старшей школе выстраивает образ «ботанички», в общении с остальными ограничиваясь простой вежливостью. Только, как на грех, учительница попросила героиню отнести конспекты загадочному парню Хару Ёсиде, который должен сидеть с Мидзутани рядом, но до сих (   Читать дальше...   )Производство: Япония,Жанр: комедия, романтика, повседневностьРежиссер: Кабураги ХироПеревод: русские субтитры (только надписи, полные)Язык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A257B724CC6B479EC2B3A94E5F04B7D5E6F9203C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302518   (579961) от 16.05.2019
-
-No Game No Life: Zero | Нет игры - нет жизни: Начало [2018, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история происходит за шесть тысяч лет до того, как Сора и Сиро появились в истории Дисборда.
-Война уничтожила землю, разрывая небеса, разрушая звёзды и даже угрожая уничтожить всё человечество. Среди хаоса и разрушения молодой человек по имени Рику ведёт человечество к завтрашнему дню по велению своего сердца. В один прекрасный день, в руинах города эльфов, он (   Читать дальше...   )Производство: Япония, Madhouse StudiosЖанр: приключения, фэнтези, драмаРежиссер: Исидзука АцукоЯзык озвучки: Японский, РусскийСубтитры: Перевод1: ASS, Встроенные | RusПродолжительность: 106 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361DBDA13E69161252A0AA2043D484DDA85672A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300100   (575541) от 19.05.2019
-
-Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивительный мир Эль-Хазард OVA-1 [1995, OVA, 7 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575541.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом, в параллельном мире «Эль Хазард» обитала высокоразвитая цивилизация, войны которой затрагивали даже соседние миры. В итоге эта цивилизация уничтожила сама себя. Однако, после неё сохранилось множество артефактов и в частности, орбитальное орудие «Око Бога». Коренное население Эль Хазарда — люди и разумные жуки, багромы, с ужасом вспоминают древние войны (   Читать дальше...   )Производство: Япония,Жанр: приключения, комедия, романтика, фэнтезиРежиссер: Хаяси ХирокиПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 7 эп. по 29 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302C33E061B532D7108F2B9413E0A1364236A405
 ```
 
 https://mybot314.ru/tekegram_catalog/

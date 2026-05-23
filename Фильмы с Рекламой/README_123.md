@@ -1,3 +1,29 @@
+###  Публикация: 1806003   (12034) от 09.07.2025
+
+Багровая отмель / Страх в глубине / Fear Below (2025) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Команда профессиональных водолазов в Австралии 1940-х годов получает задание найти затонувшую в реке машину. Но их работу срывает смертоносная тупорылая акула, охотящаяся в мутных водах. Когда водолазы узнают, что работают на безжалостных преступников, пытающихся вернуть украденные золотые слитки, становится ясно: грабители банков ничуть не менее опасны, чем то, (   Читать дальше...   )Производство: Австралия / Bronte Pictures, Two Tone Pictures, Odin's Eye EntertainmentЖанр: триллер, ужасы, криминалРежиссер: Мэттью ХолмсАктеры: Гермиона Корфилд, Джейк Райан, Джош МакКонвилл, Джейкоб Джуниор Найинггул, Артур Энджел, Макс Джонсон, Клэйтон Уотсон, Кевин Ди, Уилл Флетчер, Сэм Парсонсон и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:01Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666CCB2FD4C28E622A8F1C5D474C4A4ABF5164A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806184   (11851) от 11.07.2025
 
 Первобытные / The Primevals (2023) WEBRip [DVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

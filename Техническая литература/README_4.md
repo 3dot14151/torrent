@@ -1,3 +1,109 @@
+###  Публикация: 288294   (921356) от 29.01.2011
+
+И.П.Шелестов | Радиолюбителям: полезные схемы (книги 1-6) [1998-2005] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Для любителей-конструкторов радиоэлектронной техники, занимающихся самостоятельным техническим творчеством, приведены практические схемы различных устройств, которые могут быть полезны дома. Все они выполнены на доступных элементах и легко могут быть изготовлены самостоятельно. Кроме подробного описания принципа работы и методики настройки, к большинству схем дается топология печатной платы в масштабе 1:1, что облегчит их изготовление.
+ При этом не потребуется применять дорогостоящее оборудование и сложные промышленные технологии.
+ Эта серия книг будет интересна всем, кто увлекается радиоэлектроникой.Жанр: РадиоэлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC0C99CE168662B0DA9B6AE276A60D9929D5335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288923   (919627) от 30.01.2011
+
+А. Ф. Зюзин | Монтаж, эксплуатация и ремонт электрооборудования промышленных предприятий и установок [1986] [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В учебнике рассмотрены монтаж, эксплуатация и ремонт электрооборудования промышленных предприятий и электроустановок, внутренних электрических сетей, кабельных и воздушных линий электропередачи напряжением до 110кВ, распределительных устройств и трансформаторных подстанций, защитного заземления, электродвигателей и аппаратов управления, контроля, защиты, наладки и испытания электрооборудования.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A7F38B24204D23C41B563CEE9E9895B9D141C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096525   (911935) от 28.01.2017
+
+Ю.С. Краснов | Системы вентиляции и кондиционирования: рекомендации по проектированию для производственных и общественных зданий (2006) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Справочное пособие построено на самой современной методологической и нормативной базе и предназначено для специапистов, занимающихся широким кругом вопросов по проектированию систем вентиляции и кондиционирования воздуха, а также для студентов специальных вузов. Приведены сведения о внутреннем микроклимате и наружных метеорологических условиях, теплотехническом расчете (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5D5E2788A9744803B8000D4DE21EE56B083D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096724   (911917) от 28.01.2017
+
+С.М. Афонин | Создание акустических систем в домашних условиях (+CD) (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Все, что вам потребуется для создания акустической системы, - это компьютер, некоторое программное обеспечение и вера в успех. Обо всем остальном рассказывается в этой книге. Даже если вы не намерены что-либо разрабатывать, эта книга все равно будет вам полезна. Вы узнаете принципы построения акустических систем, что позволит не ошибиться при покупке. Если у вас (   Читать дальше...   )Жанр: Компьютерная литература, электроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7486E2C05CFBFC88AF0071992AB22E7F03880DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990184   (911364) от 25.02.2016
 
 М.Л. Маилян (ред.) | Справочник современного инженера жилищно-коммунального хозяйства (2009) [PDF]
@@ -6,7 +112,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +400,7 @@ Siemens | Каталог КИП Siemens [9 книг] (2016) [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C653AD6C8E79A8CEA67AEB3B5AD157B6CDAF48F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000999   (855252) от 27.03.2016
-
-Сид Катцен | PIC-микроконтроллеры. Полное руководство (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга представляет собой исчерпывающее руководство по микроконтроллерам семейства PIC компании Microchip, являющегося промышленным стандартом в области встраиваемых цифровых устройств. В книге подробно описывается архитектура и система команд 8-битных микроконтроллеров PIC, на конкретных примерах изучается работа их периферийных модулей.
-В первой части излагаются (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE66861F8EB476569033346D1D497119C0FDB710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110370   (848276) от 05.03.2017
-
-И.Е. Петрунин (ред.) | Краткий справочник паяльщика (1991) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848276.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике приведены физико-механические свойства паяемых материалов, припои, флюсы и газовые среды. Описаны оборудование, процессы подготовки поверхностей к пайке и обработки их после пайки. Изложена технология пайки металлических материалов, металлов с неметаллическими материалами; рассмотрены дефекты и контроль качества паяных изделий. Освещены вопросы охраны (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D15722B5A22014064FCFE02FCC03D36845C2F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002853   (845191) от 02.04.2016
-
-И.П. Суздалев | Электрические и магнитные переходы в нанокластерах и наноструктурах (2012) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая монография посвящена электрическим и магнитным переходам и нанокластерах, наноструктурах, наноматериалах и наноустройствах. Рассматриваются существующие модели коллективизированных и локализованных электронов, а также механизмы переходов металл—изолятор и магнетик—парамагнетик.Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F81491923C9413CBC14090B57AA5EE5E23C3641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112189   (843112) от 08.03.2017
-
-В.А. Головнин и др. | Физические основы, методы исследования и практическое применение пьезоматериалов (2016) [PDF, JPG]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развитие технологий создания пьезоактивных материалов и их широкое внедрение в электронику требует своевременной научно-информационной и учебно-методической поддержки. Представляемая монография ставит целью рассмотрение как общих вопросов физики пьезо- и сегнетоактивных материалов, так и узконаправленных тем, посвященных специфике получения и практического применения (   Читать дальше...   )Жанр: МатериаловедениеФормат: PDF, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CA2E064EB461931DBA80A8135F14AC14478DEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

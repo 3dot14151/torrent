@@ -1,3 +1,110 @@
+###  Публикация: 1854088   (1060458) от 11.03.2026
+
+ILLIT - Сборник клипов (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+ILLIT — женская группа состоящая из 5 участниц. В 2023 году по средствам телевизионного шоу «RU Next?» (на ютьюбе есть выпуски) выходившее с 30 июня по 1 сентября 2023года был сформирован состав группы. 22 участницы соревновались за право дебютировать в составе женской группы под эгидой Belift Lab. В финальном эпизоде ​​был объявлен состав из 6 участниц (   Читать дальше...   )01 Aim High (2024)
+02 Magnetic (2024)
+03 ILLIT - Lucky Girl Syndrome (2024)
+04 ILLIT - Lucky Girl Syndrome [60fps] (2024)(   Читать дальше...   )Производство: Южная КореяЖанр: KpopПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0640AE49E42B41C7DE97D5A1C47F231373639231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858452   (1060441) от 11.03.2026
+
+Girls' Generation - FOREVER 1 (2022) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32405E89C36F7E11B201F7746057CD5F2D4028B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855437   (1058361) от 25.02.2026
+
+Горькие усы-БЕЗФИЛЬТРОВ (2025) WEBRip  [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+#БЕЗФИЛЬТРОВ –  это дневник прошлого, ставшего настоящим. Это аудиоспектакль-путешествие в сегодняшнее завтра недействительной действительности, где главный герой Айзек проживает свою личную трагедию в контексте всеобщего разрушения. Каждый переломный момент его пути — это отдельная песня. Его история — это поиск правды и справедливости в бесконечных лабиринтах неравенства (   Читать дальше...   )Жанр: аудиоспектакльПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94AD3AA5582559C3C99417874B112328E5BEE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844167   (1049897) от 24.12.2025
+
+Baby DONT Cry - I DONT Care (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A34154F371D573146A3C00D396EB7183CD2B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844155   (1049896) от 24.12.2025
 
 Alice - Dance On (2022) WEBRip [H.265/2160p] [60fps]
@@ -6,7 +113,7 @@ Alice - Dance On (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -89,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -144,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -171,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -228,7 +335,7 @@ Dessar - Вопрос (2023) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -254,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -283,7 +390,7 @@ Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -312,7 +419,7 @@ Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -338,7 +445,7 @@ Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -365,7 +472,7 @@ VA «20 Years Of Nuclear Blast» 2007 2DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -391,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -420,7 +527,7 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -446,7 +553,7 @@ Dua Lipa - We're Good (2021) WEB-DL [1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -473,7 +580,7 @@ Little Big Family - 40 Music Videos (2013-2021) WEB-DLRip [H.264/V9/1080p/2160p-
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +609,7 @@ The Beatles: Мне следовало быть осторожнее / I Should 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +664,7 @@ The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +691,7 @@ The Beatles: Не приставай / Don’t Bother Me (A Hard Day's Night) (1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -596,114 +703,6 @@ The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5C10CCC142EA105668B16E37BE629A6B32E96BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463899   (1019615) от 23.04.2021
-
-The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014) BDRip [H.264/1080p] [hand made colored]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Битлы спасаются бегством от не в меру ретивых поклонников.
-Клип из фильма A Hard Day's Night полностью колоризован - каждый кадр в отдельности.Производство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD1CC91DE69390B45E857CE8F1F8BFC90B1FB44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456105   (1016145) от 14.05.2021
-
-Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - CALIBAN - Intoleranz (2021) 1080p PCMЖанр: MetalcoreПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808DAAF371264F084CCD51EB443815E4C0204440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468167   (1016143) от 14.05.2021
-
-Алексей Глухов (Леша закон) - Твой Куратор из ФСБ (2018) WEB-DL [H.264, 1080p-LQ] <Alternative>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Глухов - Твой Куратор из ФСБ
-01 - Здравствуй (Леша закон)
-02 - Я анархист (Волков)
-03 - Пуля дура (Летов)Жанр: AlternativeПродолжительность: 00:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6553F8B99AD8968ED1DEA32872D6511BF386E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452999   (1016139) от 14.05.2021
-
-Восьмая Марта - Лётчик (2001) WEBRip [H.264/480p] <Punk>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AlternativeПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33573A96896EBAF8994B08FFA3D2D528D5CB7661
 ```
 
 https://mybot314.ru/tekegram_catalog/

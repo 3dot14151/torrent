@@ -1,3 +1,110 @@
+###  Публикация: 1843594   (1049480) от 21.12.2025
+
+Надежда Салтанова | Убийство в Византии [3 книги] (2022-2025) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жаркий Константинополь. Древняя аптека, запахи трав, глиняные сосуды с отварами. Хозяйку аптеки, почтенную вдову Нину Кориарис, вызывают в гавань, где найдено тело отравленного отрока под городской стеной. Аптекаршу обвиняют в продаже яда. Чтобы защитить себя и сохранить аптеку Нина ввязывается в расследование. Ей теперь тоже грозит опасность. Таинственные отравления (   Читать дальше...   )Жанр: Детектив, История, ПриключенияИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C1918C577F590A08211253FA5B202EAF6C12BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843596   (1049476) от 21.12.2025
+
+Якоб Гримм, Вильгельм Гримм | Жуткие сказки братьев Гримм (2023) [PDF, FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Нам кажется, что мы знаем все сказки вдоль и поперек и уже не можем испытать от них новые эмоции. Но так ли это на самом деле? Так ли добра Белоснежка, как о ней рассказывали прежде? Заберет ли незнакомец душу героя или спасет ее? И проснется ли Спящая красавица? Для этой книги мы отобрали десять известных сказок, написанных братьями Гримм. Эти истории – грубые, (   Читать дальше...   )Жанр: Сказки, ТриллерИздательство: АСТФормат: PDF, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF38CEE4E9FEF10316BB8E02F44DF90D470D237C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843336   (1049199) от 20.12.2025
+
+Александр Тамоников | Спецназ Берии. Герои секретной войны [32 книги] (2019-2025) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Боевые романы о событиях времен Великой Отечественной войны. Главные действующие лица – бесстрашные офицеры спецподразделения, подчиняющегося лично Л.П. Берии. Поиск внутренних врагов, разоблачение заговоров, секретные операции по поимке фашистских агентов. Явки, тайны, пароли, предатели и герои, отвага и трусость – все в узнаваемых декорациях того времени.Жанр: Боевик, военное, спецслужбыИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F8B91B31C61D59351D9AABDD517AD8BCFC3747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843015   (1049140) от 19.12.2025
+
+Константин Образцов | Усадьба Сфинкса (2025) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение культовых бестселлеров «Красные цепи» и «Молот ведьм».
+Новое дело Алины и Гронского.
+  От автора, который переиграл правила жанра и превратил триллер в высокое искусство.
+  Пять жертв каждые пять лет.(   Читать дальше...   )Жанр: триллер, мистикаИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02884283E9B820EFEDA9AD1C4DDA0E976134C69F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842344   (1048610) от 15.12.2025
 
 Татьяна Устинова, Павел Астахов | Дела судебные [19 книг] (2010-2026) [FB2]
@@ -6,7 +113,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -569,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,114 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A2E07C62D82998726F1733B4654D7DD2737B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437526   (1042018) от 05.01.2021
-
-Ричард Мэдли | Сегодня ты особенно прекрасна (2021) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042018.jpg" />
-</div>
-
-
-###  Подробнее
-
-1962 год. Время, когда в тропическом раю Флориды вышел на охоту маньяк-убийца. Снова и снова он совершает свои кровавые деяния – и бесследно исчезает, оставляя за собой искалеченные трупы юных девушек.
-Полиция бессильна остановить безжалостного монстра.
-И тогда вызов ему бросает женщина, – молодая англичанка Стелла Эрнолд, занимающаяся пока еще новым и непривычным (   Читать дальше...   )Жанр: Современные детективы, ТриллерыПеревод: Татьяна ОсинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06992AD89611514D4A2C841C0A501CE59B3A0233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611401   (1041382) от 11.02.2023
-
-Мария Воронова | Вечный шах (2022) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судья Ирина Полякова - 12.
-Судье Ирине Поляковой поручают простое, но громкое дело: известный общественный деятель Смульский по неосторожности убил преследовавшую его поклонницу. Он пытался спасти девушку, а когда это не удалось, явился с повинной. Судья склонна назначить самое мягкое наказание, ведь девушка запугивала семью Смульского, подсылала к его жене и дочери (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADE66AE2EDF7213C800053FCC2967007E07BD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611630   (1041098) от 12.02.2023
-
-Мария Воронова | Без подводных камней (2021) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судья Ирина Полякова - 10.
-Судье Ирине Поляковой наконец поручают простое дело – бывшая жена известного драматурга Ветрова в состоянии аффекта убила его нынешнюю супругу, молодую актрису Веронику Павлову. Психиатрическая экспертиза признала женщину невменяемой, суду нужно всего лишь направить ее на принудительное лечение. Сомнений нет – улики красноречивы, а родственники (   Читать дальше...   )Жанр: Детективы, Остросюжетные любовные романыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2975ACD6D240FE84307E63177546F233E65F787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611664   (1041097) от 12.02.2023
-
-Лиза Лосева | Правый берег Егора Лисицы (2022) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало НЭПа. На пути из Таганрога сгорел и почти полностью затонул пассажирский пароход. Егор Лисица – сотрудник новой советской милиции – в качестве судебного врача занят опознанием тел погибших. Однако среди них не удается найти тело чиновника из Стройтреста и его жены. Их имена есть в списке пассажиров, но ни среди мертвых, ни среди живых нет их самих. Чуть позже (   Читать дальше...   )Жанр: Исторический детектив, Шпионский детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8BD8CDC23EA3CFDFD1FB6720448A6E20C6D595
 ```
 
 https://mybot314.ru/tekegram_catalog/

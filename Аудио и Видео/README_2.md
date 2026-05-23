@@ -1,3 +1,29 @@
+###  Публикация: 1472296   (1014282) от 25.05.2021
+
+Токийский декаданс / Topazu / Tokyo Decadence (1992) BDRip [576p] iPad [MVO]
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Молодая проститутка Ай по прозвищу Топаз после встречи с музыкантом-садомазохистом Сато, считавшим её «единственной надеждой нашей гнилой Японии», проходит по кругам современного ада. Она вынуждена удовлетворять потребности закомплексованных и жестоких японских бизнесменов и бандитов, с неизбывной тоской вспоминая о своём уже канувшем в небытие «учителе».Производство: Япония / Cinemabrain, Japan Video Distribution (JVD) Co. Ltd., Melsat Inc.Жанр: Драма, эротикаРежиссер: Рю МуракамиАктеры: Михо Никайдо, Саёко Амано, Тэнмэй Кано, Масахико Симада, Яёи Кусама, Тиэ Сэма, Магаясу Исихара, Хироси Миками, Нами Носаки, Кан МикамиПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDE34ECE78E1CB16D940307ADB8FEA2773591B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472791   (1014154) от 26.05.2021
 
 Поцелуй навылет / Kiss Kiss Bang Bang (2005) WEB-DL [1080p] [Open Matte] ATV
@@ -6,7 +32,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +169,7 @@ Curses - Next Wave Acid Punx (2021) [AAC|~328 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -172,7 +198,7 @@ VA - Jangrua Vol. I (2020) [AAC|~310 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -201,7 +227,7 @@ Scatman John - Scatman's World (1995) [AAC|~329 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -230,7 +256,7 @@ Fancy - Get Your Kicks (1985) [AAC|~369 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -259,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -288,7 +314,7 @@ Fancy - Contact (1986) [AAC|~359 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -317,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +372,7 @@ Ottawan - Ottawan (1980) [AAC|~351 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +401,7 @@ Garbage - No Gods No Masters (2021) [AAC|~321 Kbps] <Rock, Alternative>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +430,7 @@ Muse - Origin of Symmetry (XX Anniversary RemiXX) (2021) [AAC|~347 Kbps] <Altern
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +459,7 @@ Ottawan - Ottawan 2 (1981) [AAC|~341 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +517,7 @@ Maroon 5 - JORDI (Deluxe) (2021) [AAC|~319 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -520,7 +546,7 @@ Alicia Keys - Songs in A minor (20th Anniversary Edition) (2021) [AAC|~331 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -549,7 +575,7 @@ Yello - Yello 40 Years (2021) [AAC|~337 Kbps] <Synthpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,7 +633,7 @@ Lumen - Без консервантов. Live (2021) [AAC|~347 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -636,7 +662,7 @@ VA - Navigator Records 15 (2021) [AAC|~339 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -665,7 +691,7 @@ Lindemann - Live in Moscow (2021) [AAC|~352 Kbps] <Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -694,7 +720,7 @@ Lady Gaga - BORN THIS WAY THE TENTH ANNIVERSARY (2021) [AAC|~332 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -708,35 +734,6 @@ Lady Gaga - BORN THIS WAY THE TENTH ANNIVERSARY (2021) [AAC|~332 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACCB6117D71D889849E47624136299DE7A679046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480332   (1007298) от 10.07.2021
-
-Ляпис Трубецкой - Ты кинула (1998) [AAC|~347 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ау (3:54)
-02. Ранетое сердце (Абы чо) (5:46)
-03. Ты кинула (3:57)
-04. Пастушок (4:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3694AE3672F8E7D37CD6EFEEBCD8D739CEFF98AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

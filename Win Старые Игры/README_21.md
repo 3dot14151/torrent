@@ -1,3 +1,29 @@
+###  Публикация: 1070865   (364030) от 08.11.2016
+
+Realms of Chaos (1995) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Красивая и незаслуженно обойдённая вниманием платформенная аркада с уровнем исполнения, который нечасто встретишь. Вкратце сюжет таков: мир Мистерии разделён, всё очень плохо и становится ещё хуже – владения людей подверглись нападению жестокой расы чужаков (конечно же, неизвестно откуда). И тут очень вовремя появляются наши герои – брат и сестра...Тип издания: LicenseРазработчик: Apogee SoftwareЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C30B283CFFF45623108F56331E1863AD3C0EA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 836523   (363389) от 31.10.2014
 
 Pool of Radiance: Ruins of Myth Drannor (2001) [Ru/En] (1.4.3) Repack R.G. Catalyst
@@ -6,7 +32,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru/En] (1.4.3) Repack R.G. Catal
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Crime Cities (2000) [En/Pl] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +164,7 @@ Reah: Face the Unknown (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +190,7 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +216,7 @@ eXoDOS Collection (2019) [En] (4.0) Repack eXo
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +242,7 @@ Far Cry - Ёкарный Бабай (2019) [Ru/En] (1.0) Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +268,7 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +294,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +320,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +346,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +372,7 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +398,7 @@ Final DOOM (1994) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +424,7 @@ DOOM II (1994) [En] (1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +450,7 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +476,7 @@ Independence War 2: Edge of Chaos (2001) [En] (F14.6) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +502,7 @@ Etherlords / Демиурги (2001) [Ru/En] (1.07/1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +528,7 @@ Legacy of Kain: Soul Reaver 2 (2001) [Multi] (1.02) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +554,7 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +580,7 @@ Evolva / Evolva. Риск заражения (2000) [En] (1.2.944) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +606,7 @@ PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) L
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +632,7 @@ Fallout 2 [Ru] (L) 1998
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +658,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,32 +669,6 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315554E0BA995EE95BAEEA90DDFA4C02FEB551A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582555   (320247) от 10.10.2022
-
-Supreme Ruler 2020 (2008) [Multi] (2.0.0.1/dlc) License GOG [Gold Edition]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Supreme Ruler 2020. Курс доллара обвалился за одну ночь, и это событие эхом отозвалось во всем мире. Из-за экономического кризиса обстановка в мире накалилась до предела. Начался распад мировой экономики. Повсюду разгораются военные конфликты, и воцаряется анархия. Миру нужен новый лидер.Тип издания: LicenseРазработчик: Battlegoat StudiosЖанр: Стратегия, В реальном времени, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F00163D2A5161B763538758FBB434CFF9550093
 ```
 
 https://mybot314.ru/tekegram_catalog/

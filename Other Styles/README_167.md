@@ -1,3 +1,205 @@
+###  Публикация: 1713117   (111824) от 07.04.2024
+
+VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|Lossless|tracks + .cue] <Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Song Huei Liou & Ya Ging Ging - Om Mani Padme Hum
+02. Song Huei Liou & Ya Ging Ging - Mantra of Avalokiteshvara
+03. Sheng Horng - Om Mani Padme Hum (Alternate Version)Жанр: MantrasПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD6BA2636B70AB129504B454E268CD206E8B4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715788   (111484) от 13.04.2024
+
+Kitaro - Warme-Cosmic Love (1985) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga 3:38
+02. Sunset 5:14
+03. Linden 3:17
+04. Theme Of Silk Road 4:56(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9063C5E57EFCD1A6E398F8A38691186580CFDD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717433   (111205) от 20.04.2024
+
+Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <Saxophone, Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Dynamite [03:20]
+02. Sacrifice [03:38]
+03. Memories [03:38]
+04. Circles [04:54](   Читать дальше...   )Жанр: Saxophone, Easy Listening, InstrumentalПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A384097BCEAE7DD1615530201BD3D1D2D1A5F19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720488   (110325) от 03.05.2024
+
+VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Juantxo Munoz & Robric & Tibetania - Desert Moon (Original Mix) (6:42)
+02. DJ Arte & Alsur & Tibetania feat. DJ Mell - Eunoia (Original Mix) (5:07)
+03. Juantxo Munoz & Robric & Tibetania - Oman (Original Mix) (6:22)
+04. Indiano & Tibetania - White Love (Original Mix) (7:18)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD09ABE447896D9B65E5D806A2DA0214451CD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720612   (109889) от 09.05.2024
+
+El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Водил меня Серёга на капище Сварога [00:03:03]
+02. Я как Дичеслав (Из былины) [00:02:21]
+03. Про короля [00:02:14]
+04. Ярость топора [00:04:02]Жанр: Folk RockПродолжительность: 2 CD, 00:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B0C900CF92DC58C92668DC371AFE5652EE9D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720924   (109797) от 10.05.2024
+
+Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Woledto [02:03]
+02. Ganeni [02:57]
+03. Callin' U (Tamally Maak) [01:57]
+04. Al Sham [02:46](   Читать дальше...   )Жанр: World, Arabic, R&BПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C61B4F7B790846A18C1DBE245093B3737E48D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722754   (109604) от 14.05.2024
+
+Mark Ashley - Instrumentals Vol. 2 (2024) [MP3|320 Kbps] <Instrumental Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. You Are the One (Karaoke Version) (3:36)
+02. Like an Angel (Instrumental) (3:16)
+03. The Fans of Modern Talking (Karaoke Version) (3:23)
+04. Hot Like Fire (Instrumental Extended Remix) (7:21)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9942F2D9C91A584A05F6BCDF6B2C378D82C02815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722755   (109601) от 14.05.2024
 
 Mark Ashley - Instrumentals Vol. 3 (2024) [MP3|320 Kbps] <Instrumental Pop>
@@ -6,7 +208,7 @@ Mark Ashley - Instrumentals Vol. 3 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +237,7 @@ Asian Meditation - Meditationsmusik (2007) [WavPack|Lossless|image + .cue] <Rela
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -63,7 +265,7 @@ Combichrist - No Redemption (Official DMC Devil May Cry Soundtrack) (2013) [FLAC
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -92,7 +294,7 @@ Baran Yildiz - Bridging Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -121,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -147,7 +349,7 @@ VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -176,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -202,7 +404,7 @@ VA - The Orient Collective: Red Carpet (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -231,7 +433,7 @@ Werner Ahrens - Horst Bosing - Crystal Spheres (2006) [WavPack|Lossless|image + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -260,7 +462,7 @@ Stefano Maggio & Alessandro Giordani - Miss Erotica (2017) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -289,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +607,7 @@ Hans Peter Neuber - Licht-Meditation (2007) [WavPack|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +636,7 @@ Levantis - Music For Mother & Baby (Музыка для мамы и малыша
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -463,7 +665,7 @@ Orville Peck - Stampede (2024) [FLAC|Lossless|image + .cue] <Folk, World, Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -492,7 +694,7 @@ VA - Nocturna (1979) 2LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -521,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,209 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CA851E11600BC2929A060CB5C2ED8BBA929AA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743773   (105350) от 18.08.2024
-
-Татьяна Чубарова - Если бы я... (2011) [WavPack|Lossless|image + .cue] <Stage, Folk, Pop, Chanson>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если бы я
- 02. Миг без тебя
- 03. А дождик идёт
- 04. Хочу к тебе(   Читать дальше...   )Жанр: Stage, Folk, Pop, ChansonПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7BD04E1C99DF8D184AB44F8213DEC1088F7B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743774   (105349) от 18.08.2024
-
-Татьяна Чубарова - Я подарю (2013) [WavPack|Lossless|image + .cue] <Stage, Folk, Pop, Chanson>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я подарю
- 02. Небо и алмазы
- 03. Осень
- 04. Не пройдена любовь(   Читать дальше...   )Жанр: Stage, Folk, Pop, ChansonПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D104D4265EFA26440B4C10BF45DBD19D4161E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744994   (105166) от 24.08.2024
-
-VA - The Orient Collective: Alchemy (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eugenio Sanchez Moreno, Tibetania - Healing Winds (7:08)
-02. P1lgr1ms, Tibetania - Breath of Desert (6:48)
-03. Aralez, Tibetania - Shaman Tamb (5:54)
-04. Indiano, Tibetania - Vata (8:19)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60791D80D87E6DA83264BB71A1CE502C1C01D3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744354   (105070) от 26.08.2024
-
-VA - Golden Sound Of Panflute (2007) 3CD [WavPack|Lossless|image + .cue] <Romantic, Schlager, Easy Listening>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ion Vanescu & Orchestra–Lonely Shephard
- 02. Ion Vanescu & Orchestra–Ananjeuz, Mon Amore
- 03. Ion Vanescu & Orchestra–Barcarole
- 04. Ion Vanescu & Orchestra–Fur Elise(   Читать дальше...   )Жанр: Romantic, Schlager, Easy ListeningПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC97BAA79CB8A449AC79F67DC835EB74BB1DC0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746075   (104839) от 02.09.2024
-
-Вишнёвый сад - Из деревни в город. Из города в деревню (2024) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Варенье вишнёвое [00:03:18]
-02 - Родня моя, родня [00:03:43]
-03 - Не гляди ты, берёзка, игриво в окно [00:03:42]
-04 - А мы из Рощи, мы попроще [00:03:12](   Читать дальше...   )Жанр: FolkПродолжительность: 00:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C458B78F841D847019834360D7A2055BB8C7BBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747207   (104775) от 04.09.2024
-
-VA - Music for Yoga & Meditation (Soft, Soothing Instrumentals) (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike L Scott - For Better Times (2:43)
-02. Jaywalker6 - Your Melody (3:59)
-03. Rushana - Vøringsfossen (2:46)
-04. Guido Zitti - Risvegli (3:22)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391DC54F19F4405835BF310AD7B6A311BFE85D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753599   (103827) от 05.10.2024
-
-The Orient Collective - Gateway to Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.Pantelidis - That Night in Mumbai (4:22)
-02. Juliano Gomez - Osiris (6:48)
-03. Indiano - Vata (8:19)
-04. Fernando - Corazon Seco (5:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794A19C98577E09CB836FF3965CFF78D028CE836
 ```
 
 https://mybot314.ru/tekegram_catalog/

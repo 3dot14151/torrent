@@ -1,3 +1,109 @@
+###  Публикация: 1073443   (619296) от 26.06.2017
+
+Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Началась война. Во время авианалета 16-летний Ноа со своей младшей сестрой Рени укрылись в бункере. Здесь они нашли не только спасение от бомб, но и мир-перекресток между жизнью и смертью: Безмолвный мир. Сестра Ноа заблудилась, и мальчику пришлось отправиться на ее поиски в этой небезопасной, как оказалось, идиллии.Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, 3DЯзык озвучки: Английский, немецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F2C388537D9840EDF0AA17E8CCD8FD97A187FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101837   (617583) от 27.06.2017
+
+Virginia (2016) [Ru/Multi] (1.02a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Virginia - триллер от первого лица про маленький городок со скелетом в шкафу. В роли начинающего агента ФБР Анны Тарвер вы попытаетесь разыскать пропавшего мальчика. Вместе с опытным агентом Марией Гальперин вы отправитесь в городок Кингдом в округе Бёрджесс, Вирджиния, где бесследно пропал мальчик. Скоро Анна столкнется с конфликтом интересов, выяснит мотивы участников (   Читать дальше...   )Тип издания: LicenseРазработчик: Variable StateЖанр: Adventure, 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43DE0596AE274865BA511F5279DB16773AF9270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036865   (616872) от 22.07.2016
+
+Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дезире – это поэтичный черно-белый классический квест. Когда учительница спрашивает Дезире, почему он не нарисовал солнце, как все другие ученики, мальчик непринужденно отвечает: «В моей голове всегда ночь.» Дезире от рождения не различает цвета, так что он станет вашим гидом в мир черного и белого.Тип издания: RepackРазработчик: Sylvain SecciaЖанр: AdventureЯзык озвучки: ФранцузскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D196DAB4B43037AC584D76EA1784A0D35CA873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036931   (616798) от 22.07.2016
+
+Bohemian Killing (2016) [En/Pl] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bohemian Killing — это стимпанк-драма от студии Moonwalls, рассказывающая историю человека по имени Альфред Итон, обвиняемого в жестоком убийстве. Действие происходит в Париже 19-го века, полном расизма и напряжения.
+
+В игре присутствует два временных периода. Первый - настоящее время, зал суда, где представляются улики, доказывающие вину Итона, которому приходится (   Читать дальше...   )Тип издания: RepackРазработчик: The MoonwallsЖанр: Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D455FCE3D705F4322E7A7F8AB7AD73F43BF386C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211938   (615996) от 18.04.2022
 
 Firewatch (2016) [Ru/Multi] (1.1.2) License GOG
@@ -6,7 +112,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ No70 Eye of Basir (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ No70: Eye of Basir (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +242,7 @@ Golem (2018) [Ru/Multi] (1.0.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +268,7 @@ Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +294,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +320,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (1.0.0.1) SteamRip Let'sPla
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +346,7 @@ The Way (2016) [Ru/Multi] (1.07b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +372,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +398,7 @@ Please (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +424,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#456) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +450,7 @@ Tales from the Borderlands (2014) [En] (1.0.0.1) License CODEX [Episode 1-3: Zer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +476,7 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +502,7 @@ Lucius II: The Prophecy (2015) [Ru/En] (1.0.150601.b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +528,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) License RELOADED [Episodes 1-7
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +555,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.301136/dlc) SteamRip Let'sPlay [Gold 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +581,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +607,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +659,7 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +670,6 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:453FA3EB7ED253C549CADDF62463570EB92B74D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000761   (602799) от 08.07.2017
-
-Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Might and Delight приглашает вас переступить порог сказочного мира Shelter. Представляем Paws! Тьма сгущается упруго, лес сбивает вас с пути, но гораздо легче с другом.. к дому вместе добрести... Paws – это история о том, как двое симпатичных и необычных героев пробиваются к дому через всевозможные трудности и опасности, которые таит в себе дикая природа. Игра сочетает (   Читать дальше...   )Тип издания: LicenseРазработчик: Might and DelightЖанр: AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11968B67DC16BE407EDC09C54FD6823A7134F2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213622   (602695) от 22.06.2018
-
-Tunnels of Despair (2018) [Ru/Multi] (1.06) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tunnels of Despair представляет из себя атмосферную игру с элементами выживания и хоррора, в которой Вам предстоит исследовать заброшенные подземелья метро, чтобы найти выход и спастись. Вас отправили проверить состояние давно заброшенного тоннеля метро. Поначалу это казалось обычной работой, но во время осмотра старые своды тоннеля не выдержали и обвалились. Вам (   Читать дальше...   )Тип издания: LicenseРазработчик: BearFighterDevЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, Английский, Немецкий, КитайскийЯзык интерфейса: Русский, Английский, Немецкий, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E911D97F249CEC73C79160CACD889F41017E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547709   (602267) от 29.04.2022
-
-The Stanley Parable (2022) [Ru/Multi] (1.04) Repack Other s [Ultra Deluxe]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602267.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Stanley Parable: Ultra Deluxe — это игра-исследование от первого лица. Это расширенное переосмысление инди-игры The Stanley Parable, которая вышла в 2013 г., стала хитом и получила множество наград. Когда простой офисный сотрудник по имени Стэнли понимает, что все его коллеги таинственным образом исчезли, он отправляется на поиски ответов. Вы сыграете за Стэнли (   Читать дальше...   )Тип издания: RepackРазработчик: Crows Crows CrowsЖанр: Adventure, Exploration, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88C68834C8AC56E266350BF47045AD775A259F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298121   (602103) от 26.04.2019
-
-SIMULACRA (2017) [En] (1.0.48) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реалистичный симулятор, где вы будете использовать интерфейс мобильного телефона, чтобы разгадать тайны исчезновения девушки. В этом триллере вы находите телефон, который принадлежал девушке по имени Анна. Просматривая этот телефон вы находите видео-обращения с криками о помощи. Когда вы приступаете исследовать интерфейс телефона, он начинает вести себя очень странно, (   Читать дальше...   )Тип издания: LicenseРазработчик: Kaigan Games OÜЖанр: Приключение, Симулятор, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFFA361B9F9E6BFBD7DB907FC1D2775DE9996BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

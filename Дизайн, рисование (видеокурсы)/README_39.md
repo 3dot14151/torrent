@@ -1,3 +1,84 @@
+###  Публикация: 915582   (591710) от 06.07.2015
+
+Роман Стеблянский | Уроки Adobe InDesign CS5. Верстка печатных и электронных изданий. (2011) PCRec [H.264]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Курс включает в себя 12 уроков и рассматриваются как теоретические, так и практические вопросы макетирования и верстки с использованием программы Adobe InDesign CS5. Слушатели выполняют различные задания – от воспроизведения готовых макетов до самостоятельной разработки новых макетов публикаций. Рассматриваются особенности взаимодействия Adobe InDesign с графическими (   Читать дальше...   )Производство: СпециалистЖанр: Обучающее, графика, видеокурсыПродолжительность: 33:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF69C38C6E891A32DCA2571E044E69C77A1D61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550773   (591500) от 12.05.2022
+
+Виктория Чёрная | Курс по моушн-дизайну IN MOTION: анимация с нуля. Тариф "Умею анимировать" (2022) PCRec [RU] [AD]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кому подойдёт курс?
+начинающим дизайнерам
+дизайнерам без навыка анимирования
+смм-специалистам, таргетологам и сторисмейкерам(   Читать дальше...   )Производство: chernayastudioЖанр: моушн, дизайнЯзык озвучки: РусскийПродолжительность: 14:00:00Реклама: присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C79C159F28B0E2EF2E30E54A50A4E2DB6676702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550657   (591498) от 12.05.2022
+
+3D Concept Artist, Pablo Munoz Gomez | The Extra Mile (2021) PCRec [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс представляет и проводит Pablo Munoz Gomez, автор покажет и расскажет Всё, что он знает о скульптинге, текстурировании, освещении, рендере и композитинге. Наша цель проста и однозначна: выйти на новый профессиональный уровень, как 3D художнику. После успешного прохождения вы будете владеть всеми средствами и методами для создания удивительного и уникального (   Читать дальше...   )Производство: 3D Concept ArtistЖанр: Обучающий курсЯзык озвучки: Русский, АнглийскийПродолжительность: 66:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3E76BAA7E38E538F93882DF034EC5AC24EE6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551257   (590054) от 15.05.2022
 
 FlippedNormals, Morten Jaeger | Stylized Character Sculpting in Zbrush - Majora & Skull Kid (2021) PCRec [EN]
@@ -6,7 +87,7 @@ FlippedNormals, Morten Jaeger | Stylized Character Sculpting in Zbrush - Majora 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +114,7 @@ AnimSquad, Zach Parrish & Brent Homman | Master Class: Disney's Zach Parrish & B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +140,7 @@ Animsquad, Zach Parrish | Master Class: Animating a Cartoony Shot (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +166,7 @@ The Gnomon Workshop, Taylor Whitsett | Character Rigging in Maya for Game Produc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +248,7 @@ Pluralsight, Delano Athias | Rigging Tank Treads in Maya (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +274,7 @@ Udemy, Nabil Kechiche | Unreal Engine Game Environment design MasterClass Part 1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +300,7 @@ Digital Tutors | Введение в ZBrush 4R5/ Introduction to ZBrush 4R5 (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +327,7 @@ Lynda | 3ds Max 2015 Базовый тренинг/ 3ds Max 2015 Essential Train
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +353,7 @@ Profileschool | Adobe Photoshop. Допечатная подготовка из�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +379,7 @@ CGcircuit, Andy Van Straten | Skinning with nCloth Part II (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +405,7 @@ CG Elves, Camille Kleinman | Hoods & Hats Workshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +432,7 @@ XYZ School, Дмитрий Клюшкин | Concept art with Dmitry Klyushkin (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +459,7 @@ CG Cookie, Tim Von Rueden | Piero - Animated Character Concept (Concept Art Cour
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +485,7 @@ Profileschool | Photoshop - Curves. Работа с кривыми (2013) [PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +511,7 @@ World Of Level Design | UE4 How To Create Custom Decals (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +537,7 @@ Figma.center, Владимир Чернышов | Дизайн генерато�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +563,7 @@ Marco Bucci | 3D Techniques with Digital Painting (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +617,7 @@ Corey Barker | Planet Photoshop by Corey Barker [2008-2011] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +645,7 @@ Unreal Sensei | The Unreal Masterclass (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +671,7 @@ Fxphd, Nick Nimble | Houdini Ocean Effects (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,90 +683,6 @@ Fxphd, Nick Nimble | Houdini Ocean Effects (2014) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC04784F72204A7AF6E020DC8AE7ABAD9E384367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043421   (571872) от 16.08.2016
-
-Нетология | UX Дизайнер (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая онлайн-программа в СНГ, на которой Вы создадите продукт от стратегии до интерактивного прототипа.
-
-Курс «UX Designer» — ориентирован на то, чтобы всего за 3 недели сформировать навыки и мышление дизайнера способного проектировать серьезные веб-сайты и приложения.Жанр: видеокурс, вебинары, интенсивный практикумПродолжительность: 46:06:53 | 10:10:37 (бонусы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AB1EB9E9B6E7B056CCA2E69DA92B22A929FA20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517269   (569910) от 03.06.2022
-
-CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapters 1-10] (2022) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь создавать 3D-скульптуры, которыми вы можете гордиться.
-Этот курс научит вас всем важным основам скульптинга в Blender и тому, как создавать потрясающие 3D-скульптуры с нуля, используя только бесплатные инструменты. Никаких знаний в области скульптинга не требуется. Мы обучим вас основам с помощью простых упражнений, а затем шаг за шагом направим вас в более (   Читать дальше...   )Производство: CG BoostЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 22:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9CAADDA9CC113E3568F9AF161DA9CE77596CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304161   (566852) от 24.05.2019
-
-Gumroad.com | Sci-Fi Weapon Process (2017) PCRec [H.264/720p-LQ] [RU/EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание Sci-Fi оружия с Michael Pavlovich
-
-В этих уроках (42 видео) автор продемонстрирует полный процесс создания Sci-Fi оружия, начиная от использования примитивов и до текстурирования законченного игрового ассета в программе Substance Painter, используя ряд новых возможностей ZBrush 4R8.
-Необходимое программное обеспечение:  ZBrush 4R8, Substance Painter, Autodesk (   Читать дальше...   )Производство: Gumroad.comЖанр: 3D графикаПеревод: Дублированный (Pushkin)Язык озвучки: Русский, АнглийскийПродолжительность: 03:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA69FC3505E62BEBF6EE7A95F00CCEDB23A1BB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

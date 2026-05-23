@@ -1,3 +1,107 @@
+###  Публикация: 1018702   (753198) от 21.05.2016
+
+Gakkou Gurashi! / School-Live! / Школьная жизнь! [2015, TV, 12] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о трех школьницах живущих в школе и состоящих в клубе Школьной жизни. Школа эта находится в полуразрушенном состоянии и населена преимущественно агрессивными зомби. В схожем состоянии находится и прилегающий город. Однако, одна из героинь, Юки Такэя не замечает окружающей действительности. Ей мерещится что школа все еще цела и наполнена самыми обычными (   Читать дальше...   )Производство: Япония, Lerche / ラルケЖанр: приключения, комедия, повседневность, ужасыРежиссер: Андо МасаомиСубтитры: Надписи, отключаемые (Вшитые) | RusПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23786B4E08539BA65FD6B33ADEC31B4013137AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019050   (751171) от 22.05.2016
+
+Saijaku Muhai no Bahamut / Undefeated Bahamut Chronicle / Хроники непобедимого Бахамута [2016, TV, 12] HDTV 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Люкс — бывший принц Империи Аркадия. Пять лет назад его династия была свергнута, почти все члены королевской семьи истреблены. Люкс вынужден перебиваться случайными заработками, пока судьба при весьма пикантных обстоятельствах не сводит его с принцессой нынешнего королевства, возникшего после падения Аркадии. Принцесса Лизешарт Атисмата вызывает Люкса на дуэль. В (   Читать дальше...   )Производство: Япония, Lerche / ラルケЖанр: приключения, фэнтези, эттиРежиссер: Андо МасаомиПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3971161D253A0ED25046DA235742FDE228BEB4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859811   (751046) от 16.04.2015
+
+Junketsu no Maria / Maria the Virgin Witch / Непорочная Мария [2015, TV, 12 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главной героиней является молодая, но очень могущественная ведьма по имени Мария, которая живёт во Франции периода Столетней войны (1337–1453). Мария ненавидит насилие и готова на многое, лишь бы защитить обитателей своей деревни и предотвратить кровопролитие. Например, она вполне может наколдовать гигантского дракона или послать фамильяра-суккуба к генералам враждующих армий. Вот только деревенские от такой «помощи» далеко не в восторге. А заигрывания с фамильярами – суккубом Артемидой и инкубом Приапом – и (   Читать дальше...   )Жанр: комедия, приключения, фэнтезиРежиссер: Танигути ГороФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38130CDDCBEA12AB31C8CE346D19E62309D2E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281464   (751028) от 08.02.2019
+
+Тайная жизнь пингвинов | Penguin Highway [2018, Movie] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Любознательный четвероклассник Аояма ведет дневник, куда записывает все свои открытия и эксперименты. Однажды в его родном городе вдали от морского побережья необъяснимым образом появляются пингвины. А на окраине города возникает некая неземная океаническая сфера. Мальчик берется разгадать этот удивительный феномен, который оказывается связан не только с его жизнью, (   Читать дальше...   )Производство: Япония, Studio Colorido Co.Жанр: Аниме, Мультфильм, Фентези, ПриключениеРежиссер: Исида ХироясуПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A2A6DB56034A6CA03FC6C020DC78B9E249F5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 883256   (749127) от 17.04.2015
 
 Omoide no Marnie / When Marnie Was There / Воспоминания о Марни [2014, MV] BDRip 720p Raw+Rus x2
@@ -6,7 +110,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +138,7 @@ Strike the Blood: Kieta Seisou Hen | Удар Крови: Потерянное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_748023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Моя
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Tokyo Ravens / Токийские вороны [2013, TV, 24 эп. + SP] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +269,7 @@ Coppelion / Коппелион [2013, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +349,7 @@ Shingeki no Kyojin / Attack on Titan / Атака титанов / Вторже�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +427,7 @@ Nakitai Watashi wa Neko wo Kaburu | Сквозь Слёзы я Притворя�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +453,7 @@ Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Naruto Shippuuden / Наруто Ураганные Хроники [2007, 1-302 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +583,7 @@ Sola | Sky | Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +663,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot | Fate/Grand Order -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,113 +674,6 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot | Fate/Grand Order -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:001F72D70E7925DAB07EF8029585FABA8A06BA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978760   (730206) от 31.05.2016
-
-Dimension W / Измерение W [2016, TV, 12 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730206.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем мечта Николы Теслы о беспроводной передаче электричества осуществилась. Провода и батареи остались в прошлом, а люди начали получать электричество из так называемых «катушек». Однако со временем некоторые люди стали модифицировать свои «катушки» и использовать их как оружие.
-Кёма Мабучи — «охотник», который в обмен на эти незаконные «катушки» получает деньги (   Читать дальше...   )Жанр: приключения, фантастика, драмаРежиссер: Камэй КантаСубтитры: ASS, Встроенные, Полные | Надписи «LeDi-MaHo Team»Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B364C3E8D9DF2CF88079CA1A53D0FA949C54FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128097   (728086) от 24.04.2017
-
-Tales of Zestiria: The X / Сказания Зестирии [2016, TV, 13 эп.] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гринвуд - один из немногих континентов, на котором живут люди. Но и тут не обошлось без конфликтов. Из-за вражды, Гринвуд был поделен на две части, а люди жившие на нем, стали врагами и воевали друг с другом. Ненависть, злоба, вражда породили не только войну, но и чудовищ, которых прозвали Хайома. Они стали нападать на поселения и уничтожать людей и никто, не мог (   Читать дальше...   )Производство: Жанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоЯзык озвучки: Русский (Ban)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECCD9C5864EE3785E4E87A7B33A892513F177CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667658   (727896) от 12.06.2013
-
-Argento Soma / Аргенто Сома [2000, TV, 26 эп.] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727896.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2054 году человечество было втянуто в войну с бесчисленными пришельцами, которые внезапно атаковали Землю.
-В 2059 году, когда Земля всё еще пыталась освободиться от захватчиков, доктор Ногучи и его ассистенты Маки Агата и Такуто Кениширо ведут исследование, которое помогло бы человечеству узнать больше об инопланетных врагах. Суть эксперимента заключается в том, (   Читать дальше...   )Жанр: приключения, драма, фантастика, мехаРежиссер: Катаяма КадзуёсиЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4FC3F6D797EEEE264CF16089F57B99BC157585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525295   (727285) от 12.02.2022
-
-Tokyo Ghoul:Re | Токийский гуль: Перерождение [ТВ-3] [2018, TV, 24 из 24] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два года прошло с тех пор, как CCG (служба по борьбе с гулями) накрыла кафе «Антэйку». Хотя атмосфера в Токио существенно изменилась, из-за возросшего влияния организации CCG гули продолжают создавать проблемы. Они становятся более осторожными, в частности — террористическая организация «Древо Аогири», которая позиционирует CCG как угрозу их существованию.
-Особая (   Читать дальше...   )Производство: Studio PierrotЖанр: приключения, мистикаРежиссер: Ватанабэ ОдахироЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF453698E0F5D1119EEBD9638E720F829D760B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

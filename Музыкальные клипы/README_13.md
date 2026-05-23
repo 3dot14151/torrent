@@ -1,3 +1,111 @@
+###  Публикация: 1379560   (838986) от 29.04.2020
+
+Вика Старикова - Сборник кавер-версий (2017-2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Виктория Старикова — юная певица, которая обрела первую популярность на шоу «Минута славы». Несмотря на жёсткую критику со стороны жюри, Вика сумела завоевать своих первых поклонников не только в среди детской, но и среди более взрослой аудитории.
+В родном Нижнем Тагиле, Вика была удостоена престижной премией на церемонии «Человек года» в номинации «Дети, прославившие (   Читать дальше...   )01. А зори здесь тихие
+02. Ангел и я 2
+03. Ангел и я
+04. Богемская рапсодия(   Читать дальше...   )Жанр: CoversАктеры: Виктория СтариковаПродолжительность: 00:02:17-00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DA8558A4E8D1460284F8DB31673FBC68624E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501173   (837993) от 08.10.2021
+
+Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - Sleeping Sun (2005 Version)Жанр: Symphonic MetalПродолжительность: 00:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E02563E607AEC4026088E841D23D44DF0C4BF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501186   (837870) от 08.10.2021
+
+Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - The Islander (2008)Жанр: Symphonic MetalПродолжительность: 00:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54802080155FBA17881C74A78ED68E54AF2B047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501365   (836561) от 09.10.2021
+
+Crematory - Greed (2004) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Crematory — готик-метал группа из Германии, образованная в 1991 году. Группа стала узнаваемой в середине 1990-х, выступая в турне на разогреве таких команд как My Dying Bride, Tiamat и Atrocity. Группа начала с традиционного стиля дэт-метал, затем взяла направления индастриал и готик-метал в записях поздних альбомов.CREMATORY - Greed (2004)Жанр: Industrial, Gothic MetalПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B08516AD0C43CE36590D05E30290C1DABE1399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501294   (836559) от 09.10.2021
 
 Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
@@ -6,7 +114,7 @@ Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +140,7 @@ Wax Audio (видеография) (2004-2007) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +195,7 @@ Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -175,7 +283,7 @@ Chris Isaak - Best of Chris Isaak (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -201,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -257,7 +365,7 @@ Behemoth - Lucifer (Director's Cut) (2011) [H.264/720p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -283,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -312,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -338,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -367,7 +475,7 @@ Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -393,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,7 +527,7 @@ The Beatles 1962-1970 (2015) BDRip [H.264/720p] [handmade AI colored]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -446,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -562,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +697,7 @@ Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,119 +711,6 @@ Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BFEBC4B4A8525102F62EED27DB2241D693D402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210810   (778460) от 04.03.2018
-
-Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 5) [hand made реставрация]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778460.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-201 Van halen - Poundcake
-202 Winger - Seventeen
-203 Ugly Kid Joe - I'm Alright(   Читать дальше...   )Жанр: Rock, MetalФормат: MKVПродолжительность: 03:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2980DE9A09A2F44AD85A4928EC8BC2F44F1527A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012953   (777212) от 05.05.2016
-
-Everest of Rock - 1 (1980) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто то считает , что в семидесятые Рок превратился в лавку экзотических товаров с витриной во всю стену , что Рок стал коммерческой музыкой, произошел полный отход от духовных корней рока, рожденного и созданного для бунта . А кто то возразит ; как раз в семидесятых Рок достиг таких высот , преодолеть которые оказалось не под силу следующим поколениям ( уж слишком (   Читать дальше...   )01 Black Sabbath - N.I.B. (1970)
-02 Deep Purple - Black Night (1970)
-03 Deep Purple - Child in time (1970)
-04 Free - All right now (1970)(   Читать дальше...   )Жанр: Rock, Classic RockФормат: MatroskaПродолжительность: 02:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84A24860B1B24E1DD58123E551D2245A0F675E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012675   (777139) от 05.05.2016
-
-Wax Audio - Mashopolos (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличные аудиомиксы из композиций разных рок- и поп-групп (Led Zeppelin vs. Black Sabbath, Metallica vs. AC/DC, Metallica vs. Michael Jackson, Bee Gees vs. Pink Floyd и т.д.). Это не разные исполнители, а парень его зовут Артём он из Сидней (Австралия) делает ремиксы на известные всем треки, начал Wax Audio в 2003 г. в рамках антивоенного движения, выпуская явно (   Читать дальше...   )01. MASHOPOLOS - The Movie [01:48]
-02. Lady Judas (Lady Gaga vs Judas Priest ) [04:13]
-03. Maiden Goes To Bollywood (Iron Maiden vs Dhoom 2) [04:07]
-04. Master Of Doin' It (Metallica + Herbie Hancock) [04:40](   Читать дальше...   )Жанр: Mix, Rock, Pop, Metall, Glam RockПродолжительность: 01:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C846256536A949984F1C58CDBBD54334272B528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211501   (777078) от 08.03.2018
-
-Ленинград / Не Париж  (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Ленинград» выпустила клип на новую песню «Не Париж». В восьмиминутном ролике, больше похожем на фильм (у него даже есть полноценные финальные титры), рассказывается история ижевской семьи: домохозяйка Юля втайне от своего мужа облачается в костюм супергероини и борется с преступностью.Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389220E935F42ED35E4A40DE4BA4B4F1AA837713
 ```
 
 https://mybot314.ru/tekegram_catalog/

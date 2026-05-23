@@ -1,3 +1,89 @@
+###  Публикация: 1244170   (484207) от 31.08.2018
+
+VA - Markus Schulz & Jordan Suckley - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Calvin Harris & Sam Smith - Promises (Pink Panda Remix / Coldharbour Retouch)
+02. Markus Schulz featuring Sebu (Capital Cities) - Upon My Shoulders (Markus Schulz Festival Mix)
+03. Addictive Glance - Pay No Mind (Harry Square Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7159D27A53589B67288EC198BDBF358A54BFA331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244173   (484204) от 31.08.2018
+
+VA - Ori Uplift &  Lockstone – Uplifting Only 290 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila – Rebirth (Ahmed Romel Extended Remix)
+02. FAN FAVORITE 288: Arman Bas & Melodic Culture – De Profundis (The Sixth Sense Remix)
+03. Sandro Mireno & Aleksey Gunichev – InspirationЖанр: Trance,Uplifting TranceПродолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1C8519E63CEAD9651F1496570A690DC12E4D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245680   (470087) от 07.09.2018
+
+VA - Ori Uplift - Uplifting Only 291 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Jeïtam Oshéen ft. Seref Dalyanoglu - Magoa (Intro Mix)
+02.Paul Van Dyk & Giuseppe Ottaviani ft. Sue McLaren - Miracle (OnAir Mix)
+03.Christopher Corrigan - Different Thoughts
+04.Jonas Steur ft. Jennifer Rene - Fall To Pieces (Daniel Skyver Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B68518752A4B869D48830CA10FAB7EE283BAB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161337   (467591) от 28.08.2017
 
 VA - Ori Uplift & Chris Blaylock - Uplifting Only 237 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -6,7 +92,7 @@ VA - Ori Uplift & Chris Blaylock - Uplifting Only 237 (2017) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +121,7 @@ Daniel Skyver - Live @ Anomaly 3.0, Tunnel Club Birmingham, United Kingdom 2019-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +150,7 @@ KAAZE - Live @ Bali, Indonesia (2022-07-20) [MP3|320 Kbps] <Big Room>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +179,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Luminosity 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +208,7 @@ Vintage Culture - BBC Radio 1 Essential Mix (Hï Ibiza, Spain) (2022-07-30) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +237,7 @@ Swedish House Mafia - BBC Radio 1 Essential Mix (Ushuaia Beach Club Ibiza, Spain
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +266,7 @@ VA - Aly & Fila - Future Sound Of Egypt 511 (2017) [MP3|320 Kbps] <Trance, Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +295,7 @@ Jorn van Deynhoven - Live @ Dance For Love Festival, MTW Club Offenbach, Germany
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +324,7 @@ Neptune Project - Live @ Chateau De Woo Atlanta, United States 2019-08-10 [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +353,7 @@ VA - Adrenalin Sessions pres. Wrecked, Egg London, United Kingdom 2019-08-03 [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +382,7 @@ VA - Ori Uplift & Luis A. Moreno - Uplifting Only 292 (2018) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +410,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2018) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +468,7 @@ VA - Armin van Buuren - A State Of Trance ASOT 881 (2018) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +497,7 @@ Sevenn - Sevenn Hours 001-008 (2022) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +526,7 @@ Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +555,7 @@ Craig Connelly - Live @ Pepsi Max Arena, Creamfields UK, United Kingdom 2019-08-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +584,7 @@ Roman Messer - Live @ Mentos Fresh Connector, Alfa Future People Russia 2019-08-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -524,7 +610,7 @@ VA - Markus Schulz & Astrosphere - Global DJ Broadcast (2018) [MP3|320 Kbps] <Tr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +639,7 @@ VA - Aly & Fila - Future Sound Of Egypt 512 (2017) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +668,7 @@ VA - Armin van Buuren - A State Of Trance Episode 982 (2020) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +697,7 @@ VA - Aly & Fila - Future Sound Of Egypt 513 (Beyond The Lights Album Special) (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -640,7 +726,7 @@ VA - Armin van Buuren & Rodg - A State of Trance ASOT 983 (2020) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -654,93 +740,6 @@ VA - Armin van Buuren & Rodg - A State of Trance ASOT 983 (2020) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF426073F34F5FE52A0E3181EA44006FB716A231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250507   (424763) от 28.09.2018
-
-VA - Markus Schulz & Omnia - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. B.B.E. - Seven Days and One Week (Yotto Remix)
-02. Daniel Wanrooy - Euphoria
-03. Vigel vs. Cosmo & Skoro - Drums(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF2E7D555859C33804C3FE16D7D8F22402889E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065646   (418930) от 23.10.2016
-
-ATB - Live @ Amsterdam Dance Event (2016) [MP3|256 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Gonzalez - Ethereal
-02. ATB vs. Rapha Di Sands - Ecstasy Manatial (ATB Mashup)
-03. Beat Service & Ana Criado - So Much Of Me Is You
-04. Johan Vilborg - Pieces(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D07CEEA1BB2EDB7FFA8082CA9F7FFF9C65EB279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251354   (417855) от 01.10.2018
-
-VA - Ori Uplift & W!SS - Uplifting Only 294 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DreamLife & Laucco - Dancing Water
-02. Attens feat Martina Kay - If You Find a Way (Playme Bangin' Dub - Ori Uplift Edit Deep Wide Remaster)
-03. Sandro Mireno & Aleksey Gunichev - Inspiration
-04. PRE-RELEASE PICK: Hoyaa - Waters Above (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512EB1D6D94B139FF0D760ED3E857BEAD0A8938A
 ```
 
 https://mybot314.ru/tekegram_catalog/

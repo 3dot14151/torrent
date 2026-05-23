@@ -1,26 +1,225 @@
-###  Публикация: 600796   (998671) от 09.01.2013
+###  Публикация: 1488855   (1001458) от 13.08.2021
 
-[Wallpapers] A selection of panoramic wallpapers (09.01.13)
+Burn - Ice Age (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Global Warning (0:45)
+02. Irontown (4:25)
+03. Jealousy (5:00)
+04. Hate (4:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488981   (1001457) от 13.08.2021
+
+Начинающий авиатор / L’Apprenti aviateur (1910) DVDRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ну, вот есть такие люди - горит в них страсть к полетам, хотят они летать аки птицы небесные. Готовы на все пойти ради этого. Вот и наш энергичный французик пробует разные способы полетов.Производство: Франция, GaumontЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: НеизвестныПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488934   (1001456) от 13.08.2021
+
+Dopefist - Nice Dreams (2019) Gated [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Breaks>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Intimidated You Colourful Sound (02:41)
+ 02. Nice Dreams (04:07)
+ 03. Sea Salt (04:18)
+ 04. Naramata (04:04)(   Читать дальше...   )Жанр: Electro, IDM, Acid, BreaksПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF4C70841539EF491C13F9A40ABF304A3844BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488613   (1001455) от 13.08.2021
+
+VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Grace - Intromotion (1:35)
+02. La Estación Del Mar - Un Bano En El Lago (4:45)
+03. Slow World - Deep Inside (Original Mix) (5:21)
+04. Der Waldläufer - Yanaras Light (Original Mix) (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A905B4800A84C0B281FC2921D9ABB72E698396B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488760   (1001454) от 13.08.2021
+
+Mick Paul - Parallel Lives (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Your Days (06:14)
+02. Light Of Silence (04:55)
+03. No Horizon (04:03)
+04. Parallel Lives (05:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488968   (1001453) от 13.08.2021
+
+Aeon Cub - Vacant King (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. The Vacant Lot (02:52)
+ 02. Scrap Sailing (02:14)
+ 03. Character Creation (00:31)
+ 04. Body For Barter (00:37)(   Читать дальше...   )Жанр: IDM, Glitch, AbstractПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2255D408F08BC7F4828D0326C67FF6BFCA79C70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488879   (1001452) от 13.08.2021
+
+VA - City Marathon: Music For Running (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Riddler - Riddle Me This
+002. Killshot & The Straikerz - Here We Go Again
+003. Bicipay feat Yumi - Dance All Day
+004. Hypnose - You & Me(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, ElectroПродолжительность: 09:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A45BCAA09B58FD134D457F432AC407741645125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488938   (1001451) от 13.08.2021
+
+Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC|Lossless|WEB-DL|tracks] <Tribal, Dark Ambient>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] A selection of panoramic wallpapers (09.01.13)
-Название: A selection of panoramic wallpapers (09.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 2560х1024
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+01. Entelodon (03:58)
+ 02. Sivatherium (06:36)
+ 03. Deinotherium (06:10)
+ 04. Paraceratherium (06:03)(   Читать дальше...   )Жанр: Tribal, Dark AmbientПродолжительность: 00:56:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F9242B121E9BEB76FC2C3344D8F12693B644422
+magnet:?xt=urn:btih:5754E7D514FC1B057A09556FF1C4361E5C4F020A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,25 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600593   (998670) от 09.01.2013
+###  Публикация: 1488935   (1001450) от 13.08.2021
 
-Sexy Girls Pack Wallpapers (06.01.13) [Wallpapers 16+]
+VA - EDM Crazy Night Music Party (2021) [MP3|320 Kbps] <EDM, Pop Dance, Dance House>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+001. Felix Harrer, Jay Frog - Your Lies
+002. Gigi D'agostino - The Love Do Do
+003. Tiesto & Becky Hill - Nothing Really Matters
+004. Allan Mcluhan - Acid Theory(   Читать дальше...   )Жанр: EDM, Pop Dance, Dance HouseПродолжительность: 09:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9430EE16B0170C1245E5CC5679AEBDAAEE6456D
+magnet:?xt=urn:btih:113F68D05B43EA09B174E585857BF55B94EC2C04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +256,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600598   (998669) от 09.01.2013
+###  Публикация: 1489002   (1001449) от 13.08.2021
 
-Interior Wallpapers (06.01.13) [Wallpapers]
+Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BDRip 1080p 10-bit raw
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В средней школе команда питчера Ёми Такэды не смогла далеко продвинуться в чемпионате по бейсболу, так как у кэтчера не получалось поймать коронную «волшебную подачу» Ёми. Девочка решила бросить бейсбол и поступила в старшую школу Синкосигая, где даже не было собственной команды. Но оказалось, что в этой школе учится Тамаки Ямадзаки — подруга детства Ёми, вместе (   Читать дальше...   )Производство: Студия Studio A-CATЖанр: повседневность, спортРежиссер: Фукусима ТосинориПеревод: официальный (Wakanim)
+(дехардсабЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:937EDCDDDAF5FD42CA98A62A59E5DB9F01A83983
+magnet:?xt=urn:btih:04EDAC7A31EE11EFB0DBBEE54FBB2C80A14A31EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,25 +283,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600611   (998668) от 09.01.2013
+###  Публикация: 1488424   (1001448) от 13.08.2021
 
-Nature Wallpapers (08.01.13) [Wallpapers]
+Sweetmouth Featuring Brian Kennedy - Goodbye To Songtown (1991) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+A1 Dangerous
+A2 Home To Heartache
+A3 I Know Why The Willow Weeps
+A4 Forgiveness(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,25 +312,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600591   (998666) от 09.01.2013
+###  Публикация: 1488881   (1001447) от 13.08.2021
 
-Nature Wallpapers (06.01.13) [Wallpapers]
+Наталья Лапина - В твоей постели (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. В твоей постели (4:14)
+ 02. Сигаретка (4:58)
+ 03. Под небом пьяным (3:33)
+ 04. В Питере дождь (4:41)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:00:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:098CA631399BDA429BF9BE678E1100752B95AD72
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,29 +341,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600936   (998665) от 09.01.2013
+###  Публикация: 1488734   (1001446) от 13.08.2021
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 6
+Семейка Грин в городе / Big City Greens (2018) WEBRip [H.264/1080p-LQ] (Сезон 1, Серии 1-30 из 30)
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 6
-Название: New 2013 Nature Wallpaper Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Жизнь неугомонного школьника Крикета Грина неожиданно меняется, когда его семья решает переехать из деревни в мегаполис к бабуле Элис. В Большом городе Крикету, его старшей сестре Тилли и их отцу Биллу предстоит попасть не в одну забавную переделку, пережить множество захватывающих приключений и, конечно, найти новых друзей.Производство: США, Корея Южная, Walt Disney Television AnimationЖанр: Комедия, Минисериал, ПриключенияРежиссер: Крис Хотон, Моника Рэй, Мэтт Брэли, Тиффани Форд, Шэйн Хотон , Наташа КлайнАктеры: Александр Матвеев, Анастасия Жаркова, Александр Хорлин, Антон СавенковПеревод: Дублированный (Кириллица)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:22:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F98EE288A6B655A4DA79DBB24264BDA45A1CC633
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,25 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600603   (998664) от 09.01.2013
+###  Публикация: 1488809   (1001445) от 13.08.2021
 
-Best HD Wallpapers Pack (07.01.13) [Wallpapers]
+VA - Extreme Cardio Dance Songs for Fitness & Workout (2021) [MP3|320 Kbps] <House, Dance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. DJ Hush - Ring the Alarm (Fitness Version 128 Bpm) (04:00)
+02. Axel Force - Get Ready (Fitness Version 128 Bpm) (04:00)
+03. DJ Kee - Get Your Hands Up (Fitness Version 128 Bpm) (03:45)
+04. DJ Hush - Go Hard (Fitness Version 128 Bpm) (04:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E853388EF245600583430477062A05CF7C1A013
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,133 +396,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600606   (998662) от 09.01.2013
+###  Публикация: 1488982   (1001444) от 13.08.2021
 
-Sexy Girls Wallpapers (07.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E8959DAF9EF6CC7F2B98B694027D8F5ECCF10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600789   (998660) от 09.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 16
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998660.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 16
-Название: New 2013 Wallpaper Pack 16
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47687D3C358A6A74A73F5A967B8768641F8DF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600588   (998657) от 09.01.2013
-
-Computer Desktop Wallpapers Collection (06.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93F50ABFB0A52936AD6C2C3001B7BB24AF7DD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600602   (998656) от 09.01.2013
-
-Computer Desktop Wallpapers Collection (07.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EDA1B3F48D931CCD31E904C0B23B4346B390F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600698   (998654) от 09.01.2013
-
-SynWrite Editor 4.6 build 600 [Multi/Русский]
+CoolUtils Total PDF Converter 6.1.0.278 RePack (& portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-SynWrite Editor - мощнейший текстовый редактор для программистов и обычных пользователей. SynWrite - редактор исходного кода, поддерживает возможность разработки программ более чем на 70 языках. В том числе Java, C++, JavaScript, Pascal, Perl, HTML, XML, PHP, SQL и других. SynWrite обладает TDI-интерфейсом, а значит позволяет открыть сразу несколько файлов в отдельных вкладках. Помимо этого в SynWrite имеется целый ряд вспомогательных инструментов, облегчающих написание кода.Название программы: SynWrite EditorЯзык интерфейса: Multi/Русский
+Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D8E5D633132036E33E87A035C14D961D7E348FD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,29 +422,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600798   (998653) от 09.01.2013
+###  Публикация: 1488861   (1001443) от 13.08.2021
 
-[Wallpapers] New 2013 Wallpaper Pack 18
+Microsoft Edge 92.0.902.73 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Wallpaper Pack 18
-Название: New 2013 Wallpaper Pack 18
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65D7580A2B33E63FDE3E3DBF3A08542B04EB55C3
+magnet:?xt=urn:btih:7D8F99841E67947FDE90A215679FFBA69B48D241
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -352,229 +448,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600612   (998652) от 09.01.2013
+###  Публикация: 1488937   (1001442) от 13.08.2021
 
-Sexy Girls Pack Wallpapers (08.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A61515CB1A3223AFE5D86150C3AB0DC8AD74DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600774   (998651) от 09.01.2013
-
-Рисованная графика - Artworks by alicexz
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора под ником alicexz.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BDF31E41E30400678219544DEF77A2825C7337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600010   (998648) от 09.01.2013
-
-Triosphere - The Road Less Travelled (2010) Japan Edition [WavPack|Lossless]<Power/Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignition (Intro) [01:57]
-02. Driven [04:35]
-03. Human Condition [04:33]
-04. Death Of Jane Doe [04:43]
-05. Marionette [05:30]
-06. The Road Lesstravelled [05:24]
-07. The Anger And The Silent Remorse [06:23]
-08. Watcher [04:46]
-09. Twenty One [04:47]
-10. Worlds Apart [06:23](   Читать дальше...   )Жанр: Power/Progressive MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600794   (998647) от 09.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998647.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 17
-Название: New 2013 Wallpaper Pack 17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EBB66934DECBA1D9D3ECFE0DE2082BB3324CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600823   (998646) от 09.01.2013
-
-Фотография - Beautiful Girls Part 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативная коллекция фоторабот, с прелестными, соблазнительными девушками.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A954794864CDC5AA4042351C3BE8FB9BECB232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600627   (998645) от 09.01.2013
-
-Фотография - Фотограф Silja Magg
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Silja Magg
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877D167F0414B1E6047052E8D2E1B75FBCFF6686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600608   (998644) от 09.01.2013
-
-Computer Desktop Wallpapers Collection (08.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79302EA2B511D19704EE1F20ECEFB40D14065C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600726   (998633) от 09.01.2013
-
-VA - Дискотека 2013 Dance Club Vol. 99 (2013) [MP3|320 кб/с]<Dance, Club, Pop>
+VA - Music News vol.122 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-1. Morandi - Everytime (Radio Edit) (4:00)
-2. DAS feat. Лера Туманова (Электра) - Чувствовать Пульс (3:31)
-3. Michael Mind Project feat. Birk Storm - Give Me Love (3:49)
-4. DJ Smash feat. Radio Killer - Save Me Tonight (3:37)
-5. Nelly - Hey Porsche (3:30)
-6. Niku feat. Sardi & DeeJay Iljano - One More Time (Radio Edit) (New Version) (3:41)
-7. Don Omar - Pa Que El Party Se Active (3:03)
-8. Bass Ace feat. DJ Skazka - Начнем Сначала (3:55)
-9. Skrillex - The Reason (4:16)
-10. Timbaland feat. Lil Wanye, Missy Elliott &amp; T-Pain - The Party Anthem (3:57)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 02:38:37
+001. Любятинка & Рома Штайн - Набери (03:11)
+ 002. Adam Maniac & Jaral - Пьяный Без Вина (02:26)
+ 003. AJ Tracey & T-Pain - Summertime Shootout (03:39)
+ 004. Akcent & Midi Culture - Kylie (Remix) (02:36)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:36:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADAFBD83DC28BC95BD41FD1BC0B312231906D247
+magnet:?xt=urn:btih:5D8C50078A1CCAA8C83A2D811C275CDA366A2A22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,156 +477,243 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600895   (998630) от 09.01.2013
+###  Публикация: 1488840   (1001441) от 13.08.2021
 
-Various Artists - The Art Of Electro Swing (2012) [FLAC|Lossless]<Future Jazz, Swing>
+uJAM - Virtual Drummer BRUTE 2.1.1 VSTi, AAX (x64) [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Tape Five feat. Yuliet Topaz - Madame Coquette
- 02. Artie Shaw - Prosschai (Minimatic remix)
- 03. Samp Brothers - Jazz di Mezzaluna (radio version)
- 04. Club des Belugas - It don't mean a Thing
- 05. Andrew Sisters - Rum & Coca Cola (Jojo Effect Remix)
- 06. anna.luca - Desperately Trying (Swing version)
- 07. Jojo Effect feat. Iain Mackenzie - The Swing Ding Song
- 08. Fred Astaire - Puttin on the Ritz (Club des Belugas Remix)
- 09. Bajka - The Hunting (Maxim Illion remix)
- 10. Brenda Boykin - Hard Swing Travellin' Man(   Читать дальше...   )Жанр: Future Jazz, SwingПродолжительность: 01:00:18
+Для стилей рок, гранж, панк и кроссовер.
+Современные тяжелые музыкальные жанры, основанные на очень специфическом стиле игры на барабанах: громкие, дикие, резкие и пронизывающие микс. И звуки барабанов, и игра основаны на эстетике, изобретенной около двух десятилетий назад. Virtual Drummer BRUTE предлагает основные звуки и стили от Grunge до NuMetal.
+В двух словах: (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4073D38B8CBAE8F7C161EE7BF2DCB35D73A8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488980   (1001440) от 13.08.2021
+
+AlterPDF Pro 5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+AlterPDF Pro - программа может стать лёгким программным решением для всех ваших потребностей в работе с PDF файлами. PDF файлы известны своей универсальностью, они заменили большинству пользователей изображения, текстовые файлы и прочие другие форматы, в них отпала необходимость. Проблема PDF заключается в том, что для работы с этими документами нужен специализированный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB828DCF21ABEBBDFE8FED3998EB351EB1A5D9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488996   (1001439) от 13.08.2021
+
+Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный мастер-класс от разработчика мирового лидера в сфере CG - компании SideFX.
+
+Таблицы стилей материалов, новый инструмент Houdini 15, обеспечивают мощный и гибкий новый способ присвоения материалов в Mantra. Этот мастер-класс подробно объясняет то, как использовать таблицы стилей для описания внешнего вида объектов, геометрии, упакованных примитивов и толпы. (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A085BE9AD4F5DEAB1B962306AD8D23ED51E79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488868   (1001438) от 13.08.2021
+
+VA - Beatport Tech House: Sound Pack #330 (2021) [MP3|320 Kbps] <Tech House, Electro, Minimal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Barreto - Active Body
+002. Thomas Will - Pounding
+003. Jay Tripwire - Requires Sacrifice
+004. Alejandro Mnml - Low Frequency(   Читать дальше...   )Жанр: Tech House, Electro, Minimal HouseПродолжительность: 11:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEA3DCB607F3801E6C93EFD8E5771781B3B4193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488710   (1001437) от 13.08.2021
+
+BBC. Тигры: Охота на браконьеров / Tigers: Hunting the Traffickers (The Natural World s38e6) (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Экс-морпех идет по следу вооруженных браконьеров, торгующих тиграми. Остросюжетный документальный триллерПроизводство: Великобритания, Grain Media, British Broadcasting Corporation (BBC)Жанр: Документальный, природа, фаунаРежиссер: Лаура УорнерПеревод: Двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B136C8512C9777107E1D239F4C3F42EAC4F8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488997   (1001436) от 13.08.2021
+
+Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В Houdini 15 был представлен новый способ работы с циклами в VOP и SOP-нодах, именно о нем и будет рассказано в этом мастер-классе. Благодаря новым конструкциям выполнения цикла, те эффекты, для создания которых был необходим значительный объем технических знаний, теперь можно получить меньшими усилиями с помощью нод Foreach SOP.Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C35FC025F21FBFC02F06506CFF7C66B4AB07703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489010   (1001435) от 13.08.2021
+
+Calibre 5.25.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9701BCBDB7DA02E5BE067F04529C488250AF4BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488987   (1001434) от 13.08.2021
+
+GPU Caps Viewer 1.52.0.0 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7724B4B39FA56599515D1953D19E1F7685005E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488741   (1001433) от 13.08.2021
+
+Dash Berlin - The New Daylight (The Remixes) Part 1-2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance, Tech Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Till The Sky Falls Down (Andrew Rayel Remix) (3:53)
+02. Man On The Run (feat. Cerf, Mitiska & Jaren) (WHITENO1SE Remix) (3:39)
+03. Waiting (feat. Emma Hewitt) (W&W Remix) (4:26)
+04. Till The Sky Falls Down (DJ Isaac Remix) (2:34)(   Читать дальше...   )Жанр: Progressive House, Progressive Trance, Tech Trance |Продолжительность: 00:56:24
 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600478   (998629) от 09.01.2013
-
-VA - Золотой шансон. Жиганский 2 (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воровайки – Как трудно ждать
-02. Денис Мафик – Шито-крыто
-03. Александр Звинцов – Старая цыганка
-04. Ори! Зона! – Привет, Одесса!
-05. Сергей Наговицын – Потерянный край
-06. Виктор Крестник – Поезд
-07. Геннадий Жаров – Ушаночка
-08. Волк – Фомочка, отмычечка
-09. Олег Лифановский – Песня преступного мира
-10. Денис Мафик – Часы(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D481727203169CB62ABD17E988C36C7CCFCD59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600807   (998628) от 09.01.2013
-
-Рисованная графика - Artworks by Nithin Рао Kumblekar
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Nithin Рао Kumblekar.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21097436F8EB5ED54852E8F03E034AE771437F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600771   (998626) от 09.01.2013
-
-Фотография - Photos from Peter Edqvist
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Peter Edqvist.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7F928F65C6E5A97F5126FAF4053EEA3CE92703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599322   (998622) от 09.01.2013
-
-VA - Авто Ритм. Убойный музон в авто (2011) [MP3|256-320 кб/с]<Pop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk Sugar vs. Vaya Con Dios - Hey Nah Neh Nah 7th Heaven Edit (2:39)
- 02. Dash Berlin feat. Emma Hewitt - Disarm Yourself (3:03)
- 03. alisa logina Dj Anton Liss - zazhigajj ogni Radio Edit (3:06)
- 04. Club Madness - Hey Baby Drop It to The Floor OMG Remix Edit (3:18)
- 05. Sean Paul - Got 2 Luv U ft. Alexis Jordan (3:26)
- 06. Hi-Fi Feat. 3Xl Pro - vremja ne vlastno (3:27)
- 07. The Lonely Island ft.Snoop Dogg - Turtle neck chain (3:27)
- 08. shtar - sinijj led (3:31)
- 09. Tiesto vs. Diplo feat. Busta Rhymes - CMon Catch Em By Surprise (3:31)
- 10. Sandro Escobar Feat Katrin Queen Vs Stereo Palma - otdalas (3:38)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 03:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C741BA68BDBBAF3E948BCD1012B2B0A20C06F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

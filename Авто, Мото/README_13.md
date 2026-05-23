@@ -1,3 +1,162 @@
+###  Публикация: 1419442   (339992) от 28.10.2020
+
+Дрэг-рейсинг. Чемпионат NHRA 2020. Этап 10 / NHRA Drag Racing Championship 2020. Event 10 - Mopar Express Lane NHRA SpringNationals Presented By Pennzoil, Houston Raceway Park (25.10.2020) WEB-DL [ ...
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра. Реже проводятся заезды на (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути дрэг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260444315479AECC9F872701CDF9A5C80C10C8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420468   (332546) от 01.11.2020
+
+Серия Кубков NASCAR 2020. Плей-офф. 34-й Этап. Техас. Гонка / NASCAR Cup Series 2020. Playoffs. Round 34. AAA Texas 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
+25-28 октября 2020 года. Форт-Уэрт (штат Техас, США).
+34-й Этап. Техас (AAA Texas 500)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A14841DA7592DFE60CFA143E5BE0465648564E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580483   (330807) от 01.10.2022
+
+MotoGP. Этап 17. Гран-при Таиланда. Квалификация (01.10.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1 октября 2022, суббота. 11:05 МСК. Этап 17, Бурирам. Гран-при Таиланда. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C64F161D54B9C9D99346ED008F302B762F13DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580730   (329828) от 02.10.2022
+
+MotoGP. Этап 17. Гран-при Таиланда. Гонка (02.10.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2 октября 2022, воскресенье. 11:55 МСК. Этап 17, Бурирам. Гран-при Таиланда. Гонка (25 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E640F1F0E5B51B7FADC5188AFCF7AFED3CDA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421106   (322103) от 03.11.2020
+
+Бразильская автоспортивная серия гоночных грузовиков. Сезон 2020. Этап 1. Каскавел. Гонка 1-2 / Copa Truck-2020 (ex- Formula Truck). Cascavel/PR (27-28.06.2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Copa Truck — бразильская автоспортивная серия гоночных грузовиков, до 2017 года она называлась Formula Truck.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 1:16:33 + 1:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5817FF803AB538AAEE64A879B827186FD6AE6827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421612   (317647) от 05.11.2020
+
+Дрэг-рейсинг. Чемпионат NHRA 2020. Этап 11 / NHRA Drag Racing Championship 2020. Event 11 - Dodge NHRA Finals presented by Pennzoil, Las Vegas Motor Speedway (01.11.2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра. Реже проводятся заезды на (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути дрэг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CCCE21A88C63BFDF22CDEBC73A6F2AF58E45746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422241   (313400) от 07.11.2020
 
 Спидвей. Кубок Наций 2020. Люблин (Польша). Финал (2020) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +165,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +275,7 @@ MotoGP. Этап 12. Гран-При Европы. Гонка. (08.11.2020) WEBR
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -172,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -201,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -253,7 +412,7 @@ MotoGP. Этап 17/19. Гран-При Австралии. Гонка. (27.10.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -281,7 +440,7 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Гонка (16.11
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -307,7 +466,7 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -333,7 +492,7 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Спринт (15.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -359,7 +518,7 @@ MotoGP. Этап 03. Гран-при США. Спринт (15.04.2023) WEBRip [H
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -385,7 +544,7 @@ MotoGP. Этап 03. Гран-при США. Гонка (16.04.2023) WEBRip [H.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -411,7 +570,7 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Гонка (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -437,7 +596,7 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -463,7 +622,7 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Спринт 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -489,7 +648,7 @@ MotoGP. Этап 04. Гран-при Испании. Квалификация (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -515,7 +674,7 @@ MotoGP. Этап 04. Гран-при Испании. Спринт (29.04.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -526,162 +685,6 @@ MotoGP. Этап 04. Гран-при Испании. Спринт (29.04.2023) W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB18C9C71385E421C6DE0FAD6C8DD16430489189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623537   (245882) от 02.04.2023
-
-MotoGP. Этап 02. Гран-при Аргентины. Спринт (01.04.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 апреля 2023, суббота. 21:00 МСК. Этап 1, Термас де Рио Ондо. Гран-при Аргентины. Спринт (12 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E71B4AA716CDFA049A0BCD7663C1CC14FE47BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630443   (245656) от 30.04.2023
-
-MotoGP. Этап 04. Гран-при Испании. Гонка (30.04.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245656.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 апреля 2023, воскресенье. 15:50 МСК. Этап 4 Херес. Гран-при Испании. Гонка (25 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2795B68DB9B25F1A6A4198DE1F29E527413F7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633119   (243590) от 13.05.2023
-
-MotoGP. Этап 05. Гран-при Франции. Квалификация (13.05.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243590.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 мая 2023, суббота. 11:50 МСК. Этап 5 Ле-Ман. Гран-при Франции. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E4DB317D92B61E694464984C7DCFD3AE010BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633166   (243544) от 13.05.2023
-
-MotoGP. Этап 05. Гран-при Франции. Спринт (13.05.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243544.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 мая 2023, суббота. 16:00 МСК. Этап 5 Ле-Ман. Гран-при Франции. Спринт (13 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4135285147BAABB066053E0A0FE3B15972CCD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456280   (243387) от 21.03.2021
-
-Австралийский чемпионат суперкаров. Этап 2. Сэндаун Суперспринт, Гонка 1-3 / Repco Supercars Championship. Penrite Oil Sandown SuperSprint, Race 1-3 (20-21.03.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2021 года — Этап 2.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:31:46 + 01:23:07 + 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC4C022D8A4E068134D3F1D5798815E73875FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541493   (242649) от 03.04.2022
-
-MotoGP. Этап 03. Гран-при Аргентины. Квалификация (02.04.2022) WEBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242649.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 апреля 2022, суббота. 23:05 МСК. Этап 3, Термас де Рио Ондо, Аргентина. Гран-при Аргентины. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A33B24286322848C53C119D0235D278F260A13
 ```
 
 https://mybot314.ru/tekegram_catalog/

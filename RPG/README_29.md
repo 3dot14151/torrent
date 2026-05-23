@@ -1,3 +1,81 @@
+###  Публикация: 1062007   (443468) от 12.10.2016
+
+Avernum: Escape From the Pit (2012) [Ru/En] (1.0.1S) SteamRip Let'sPlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Avernum: Escape From the Pit от Spiderweb Software – это своеобразное «признание в любви» тем временам, когда RPG-игры не попадались на каждом шагу, когда игры были вообще чем-то большим, чем интерактивное кино, и когда продукты типа Baldur’s Gate и Fallout были на вершине славы. Avernum – это захватывающая, эпическая и увлекательная игра, сделанная в лучших традициях (   Читать дальше...   )Тип издания: SteamRipРазработчик: SpiderWebSoftWareЖанр: RPG, Isometric, IndieЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FD656B3C6BD1C7412F07DB6546B1DF784D3768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248237   (441300) от 20.09.2018
+
+The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-100601) License CODEX
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Встречайте The Bard's Tale IV: Barrows Deep — продолжение одной из самых известных классических игр в жанре RPG. Проявляйте креативность, осваивая разнообразные тактики боя, решайте головоломки, ищите сокровища, получайте различные бонусы и наслаждайтесь игрой.Тип издания: LicenseРазработчик: inXile EntertainmentЖанр: RPG, 1st and 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4BFB17201C31476BBF11E2A703E473762DC067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410273   (437555) от 20.09.2020
+
+The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Готовы ли вы погрузиться в тактическую RPG, полную очарования, юмора и безумных персонажей ?! Они неуклюжи, неопытны и дерзки, но ... им придется вытерпеть компанию друг друга, чтобы получить сокровища подземелья. Однако быстро возникает чувство дежавю ... Управляйте этой командой невероятных героев в приключении, полном юмора и хаоса! Вселенная Naheulbeuk - оригинальное (   Читать дальше...   )Тип издания: RepackРазработчик: Artefacts StudioЖанр: Adventure, Strategy (Turn-Based), RPG, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9062B2663A90B2024B97EBC5CFF9A98130275116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 245253   (434109) от 13.10.2010
 
 Arcania: Gothic 4 / Готика 4: Аркания [Multi5-] (L) 2010 | RELOADED
@@ -6,7 +84,7 @@ Arcania: Gothic 4 / Готика 4: Аркания [Multi5-] (L) 2010 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -36,7 +114,7 @@ Hades (2020) [Ru/En] (1.36032) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +140,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +166,7 @@ Realms of Arkania: Blade of Destiny (2013) [En/Ge] (1.36/dlc) License PROPHET [C
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +192,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +218,7 @@ Desktop Dungeons (2013) [En] (1.56/dlc) Repack R.G. Механики [Enhanced E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +244,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +270,7 @@ Wasteland 2 (2014) [Ru/En] (1.0 u6/dlc) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +296,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +322,7 @@ Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +348,7 @@ OCTOPATH TRAVELER (2019) [Multi] (1.0) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +374,7 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +400,7 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +426,7 @@ Tower of Time (2018) [Ru/Multi] (1.2.4.2476) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +452,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) License PLAZA [Fleet Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +478,7 @@ King's Bounty II (2021) [Ru/Multi] (1.7/dlc) License GOG [Duke's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +504,7 @@ Darkwood (2017) [Ru/En] (1.1 Hotfix 4) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +530,7 @@ Noelle Does Her Best (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +556,7 @@ Dragon Age - Anthology / Эпоха Дракона - Антология (2009-20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +582,7 @@ Pine (2019) [Ru/Multi] (Patch 13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +608,7 @@ Shadows: Heretic Kingdoms (2014) [Ru/En/De] (1.0.0.8172) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +634,7 @@ Wasteland 2: Director's Cut (2014) [Ru/En] (1.0/upd1) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +660,7 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,84 +671,6 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF59F86C5BF4757526E3EA1930F5EC378E9A8D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948355   (412908) от 19.10.2015
-
-Wasteland 2: Director's Cut (2015) [Ru/Multi] (1.0/u1) Repack R.G. Games
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wasteland 2 - постапокалиптическая ролевая игра продолжающая историю первой части созданной еще в далеком 1988-м году. Данная игра разрабатывается на движке Unity с сохранением изометрического вида и самого игрового процесса. Действия игры развиваются около 4-х рейнджеров, которые спаслись после катастрофы и теперь пытаются выжить по среди пустыниТип издания: Переупакованная лицензияРазработчик: inXile EntertainmentЖанр: RPG / 3D / IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, Польский, ИтальянскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Польский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6E9876A1FE767258AC3EC456469367CC357486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139593   (412814) от 03.10.2018
-
-Rezrog (2017) [Ru/En] (1.1.0) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Резрог погрузился в хаос. Злые колдуны и жуткие монстры спустились в темные глубины земли и собирают там могущественные кристаллы. Возглавьте команду героев, которая преодолеет все препятствия и вернет мир в Резрог.Тип издания: LicenseРазработчик: SoaphogЖанр: Role-playing, Adventure, FantasyЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA77C5802BBB3985B47A6ABABFC37EB02856157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413103   (411012) от 02.10.2020
-
-Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (обновляемая)
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте Kingdoms of Amalur: Re-Reckoning! Возвращение ролевой игры от писателя Р. Э. Сальваторе, сценариста Тодда Макфарлейна («Спаун») и дизайнера Кена Ролстона (Elder Scrolls IV: Oblivion). Вас ждут обновленная графика, улучшенный игровой процесс и огромный мир! Узнайте тайны Амалура: исследуйте оживленный Ратир, бескрайние просторы Далентарта и мрачные подземелья (   Читать дальше...   )Тип издания: RepackРазработчик: KAIKO, Big Huge GamesЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74E8897D294F138AFAD9B3D86988699EFED15E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

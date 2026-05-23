@@ -1,3 +1,30 @@
+###  Публикация: 1147614   (607420) от 03.07.2017
+
+NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.264/1080i-LQ] (Сезон 42, эпизод 13)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что делает нас людьми и откуда мы взялись? После появления теории эволюции Дарвина, ученые пытались определить как выглядели первые существа, покинувшие мир обезьян и вступившие в мир человека. За последние 50 лет новые находки археологов помогли заполнить часть пробелов в истории эволюции человека.
+Но кости наших предков попадаются крайне редко, позволяя лишь мельком (   Читать дальше...   )Производство: США, National Geographic Studios, NOVA/WGBH BostonЖанр: Документальный, научно-популярныйРежиссер: Грэхэм ТаунслиПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E363A146497223259F646F5AA5916C97B7256D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525636   (607337) от 21.07.2012
 
 NG: Растения - монстры ( Секс, наркотики и растения) / Plants - Monsters (Sex, Drugs and Plants) (2009) HDTVRip [H.264/720p]
@@ -6,7 +33,7 @@ NG: Растения - монстры ( Секс, наркотики и раст
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +59,7 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +85,7 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +111,7 @@ NGW: Невероятная Африка. Закума / Extraordinary Africa. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +138,7 @@ NGW: Невероятная Африка. Разноцветный контин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +165,7 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +191,7 @@ NG: Амазония: наизловещий ритуал / Search for the Amazo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +217,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +244,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +270,7 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +297,7 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +323,7 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +349,7 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +375,7 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +401,7 @@ NG: Прекрасная Америка: Величественный Север
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +427,7 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +453,7 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +479,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +506,7 @@ NGW: Гризли Аляски бросают вызов. Короли остр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +558,7 @@ NGW: В поисках таинственного зверя / Search for the Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +610,7 @@ NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +636,7 @@ NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -635,7 +662,7 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,32 +673,6 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:393EA29E20538C180412CA8DB3844ABE666339D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233445   (592877) от 30.06.2018
-
-NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i-LQ] (Сезоны 3;4, эпизоды 1-10) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасно ориентирующиеся в городе, полном змей, змееловы Саймон и Сьюзи колесят по его улицам в поисках одних из самых смертельно опасных в мире змей, чтобы, найдя их порой в самых неожиданных местах, вернуть их опять в дикую природу.Производство: Южная Африка, США, Earth Touch, National Geographic Channel International, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Бенджамин ХьюиттПеревод: Двуголосый закадровый, профессиональный (Велес, текст читали: Виктория Слуцкая, Дмитрий Стрелков)Субтитры: отсутствуютПродолжительность: серии х~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7399D3A465CA4CFD409DA8A2FC1547C2F7EE4AF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

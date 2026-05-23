@@ -1,3 +1,352 @@
+###  Публикация: 1248707   (439626) от 21.09.2018
+
+Растровый клипарт - Dreamstime - Autumn flowers bouquet of yellow [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Осенние букеты с Dreamstime, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3675x3264-6144x4113
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABD471D83424F1DB80B3AE8A517E76E4B9F4F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248704   (439481) от 21.09.2018
+
+Растровый клипарт - Dreamstime - Woman girl in the autumn forest yellow leaf [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Девушки в осеннем лесу с Dreamstime, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4217x2832-7360x4912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D04774896EEFCD4669E6C2ADB5D4DA738D5290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248711   (439475) от 21.09.2018
+
+Растровый клипарт - Dreamstime - Autumn grass field landscape ear of yellow leaf [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Полевые пейзажи с Dreamstime, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4231x2835-6016x4016
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20752A7708DFB36A25938F76113D74B6BF97C708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248708   (439158) от 21.09.2018
+
+Футажи - Rampant Design Tools - Studio Smoke [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Studio Smoke - это огромный пакет содержащий в себе большой диапазон реальных эффектов дыма и тумана. С помощь которого Вы сможете быстро и легко добавить в ваш любой видео контект.Формат: MOVРазрешение файлов: 4K (4096×2160)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A8863BD741780592BAAAE3564A036FE76DECB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062772   (439123) от 14.10.2016
+
+Шрифты - Alien lines [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фантастический абстрактный шрифт.
+Количество: 2 шт.
+Разработчик: неизвестен.
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C862AD32D860B55D82E98F2FD3C0101D520E135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062632   (438989) от 14.10.2016
+
+Экшены - GraphicRiver - Ink Art Photoshop Action - 17622038 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ink Art - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D9D7F8049C93A98278F8B8B43AB023480C615C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062894   (438987) от 14.10.2016
+
+Экшены - CreativeMarket - Bahar Effect Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bahar Effect - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3E020706608FEC95F9F47500B1DCCD8688CFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062647   (438978) от 14.10.2016
+
+Экшены - GraphicRiver - Charcoal Art - Realistic Charcoal Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Charcoal Art - Realistic Charcoal - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CA58BB85317CC2F6721986FF676FB56E976E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062559   (438701) от 14.10.2016
+
+Футажи - VideoHive - Elegant Transitions - 5954048 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+8 изящных переходов для вашего творчества.Формат: MOVРазрешение файлов: 1920×1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2A954A94D0A4F51E07B172272FA57FF3058DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552903   (437768) от 30.09.2012
+
+Шрифты - Газеты - Правда и Известия [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шрифты - газеты Правда и Известия
+Шрифт - Правда (Real Truth) кириллица
+Шрифт - PRAVDA (Truth)латинские
+Все буквы - заглавные.
+Шрифт - Известия (IZVESTIA) кириллица
+Все буквы заглавные.
+Цифр нет!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C1C688BB0FB51C5B8E841F836EC22AA4E34ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944868   (437716) от 08.10.2015
+
+Растровый клипарт - Герои мультфильма - Ну погоди! [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Растровый клипарт с героями мультфильма "Ну погоди!"
+1 PSD файл с 5 слоямиФормат: PSDРазрешение файлов: 2017x2425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2443F98B0F950EBF87062A34D9C43FDEAC1674E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410361   (437574) от 20.09.2020
+
+Скрипты - ArtStation – Stylized Texture Generator for Substance Painter [SBSAR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Генератор стилизованных текстур для Substance Painter. Создавайте потрясающие стилизованные текстуры в кратчайшие сроки! Помимо создания текстур, вы также можете создавать сложные маски с помощью этого генератора и различных интересных вещей.Формат: SBSAR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2FC9140C08E6BA838D279DB1F3A81B6EDC701C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944791   (437563) от 08.10.2015
+
+Шаблоны - Перекидной календарь на 2016год - Времена года [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Перекидной календарь с рамками для фото на 2016 год.
+Автор: FotcaФормат: PNGРазрешение файлов: 3543x5315 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8109E61D69BEA048A5DCF456336678DB9AE6D3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323343   (437353) от 03.09.2019
 
 3D модели - CGStudio - Plymouth Roadrunner NASCAR Richard Petty 1971 - 829507 [MAX, 3DS, C4D, OBJ, FBX, LWO]
@@ -6,7 +355,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +674,7 @@ Digital Juice - Editor's Toolkit Pro Singles 240: Layer Lining (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -336,386 +685,6 @@ Digital Juice - Editor's Toolkit Pro Singles 240: Layer Lining (High Impact Tool
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:691EAA5E4CA773438787F4EE517AE87BF80E33D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554210   (436136) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)Название: Digital Juice Motion Design Elements 013: Line Items 2
-Официальный сайт: Digital Juice
-Homepage: (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 013: Line Items - это второй сборник из библиотеки анимированных элементов Line Items, такой же полезный и гибкий как его предшественник - Volume 7. Содержит 60 линейно-ориентированного элементов с альфа-каналом. Будь это рябь из красной ленты или прозрачные стеклянные трубки, скручивание золотого металлического стержня или строки из акробатики блестящих кубиков, содержание этого сборника поможет вам замечательно акцентировать логотипы или подчеркнуть важность текста или графики. Простые, инновационные и визуально разнообразные элементы библиотеки Line Items делают работу над современными видео-проектами проще, чем когда-либо.
------------------------
-Motion Design Elements (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8583814B2598FC1C52F7E2E0DF699E46B806181A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553598   (436127) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)Название: Digital Juice Motion Design Elements 001: Revealers
-Официальный сайт: Digital Juice
-Homepage: (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 30 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 001: Revealers - это сборник, состоящий из анимированных элементов дизайна, которые помогут творчески, со вспышкой, щегольством и изощренностью, выделить линейный текст или логотипы на экране, тем самым привлекая к ним глаза зрителя. Сборник содержит 100 анимированных элементов в MOV-формате с альфа-каналом, с видео-разрешением от 1080x1080 до 1920x1080.
------------------------
-Motion Design Elements 001: Revealers - Revealing the Expanding Universe. What if we put that MDE on top of the logo, instead of behind it? Of course it would obscure the logo, which defeats the entire purpose of even having a logo on the screen in the first place. But what if we animated the MDE to fade (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F01E3A101B4AEE4B7F3AE139FF4F202F1CA4320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553609   (436035) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 14: Revealers 2 (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 14: Revealers 2 (Full ISO)Название: Digital Juice Motion Design Elements 014: Revealers 2
-Официальный сайт: Digital Juice
-Homepage: www.digitaljuice.com/products/products.asp?pid=248 (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 30 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 014: Revealers 2 - коллекция включает 60 анимированных элементов, которые помогут со вспышкой, щегольством и изощренностью выделить линейный текст или логотипы на экране, тем самым привлекая к ним глаза зрителя. Это светящиеся полосы, пружины, металлические кубики и диски, различные частицы мигающие с проблесковым эффектом, огонь, последовательность сердечек, звезд и полос, каракули пылающего света... Вы обязательно найдёте кое-что в Revealers 2!
-------------------------
-Motion Design Elements 014: Revealers 2 - These 60 animated designs let you bring linear text and logos onto the screen with flare, panache and sophistication. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429E1164C7D1C1C508A1FE329121FDCFAF4516FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553582   (436027) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 20: Revealers 3 (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 20: Revealers 3 (Full ISO)Название: Digital Juice Motion Design Elements 020: Revealers 3
-Официальный сайт: Digital Juice
-Homepage: www.digitaljuice.com/products/products.asp?pid=257 (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 30 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 020: Revealers 3 - третий сборник высококачественных анимированных Revealers - ещё больше возможностей для редактирования. Коллекция, как обычно, содержит большое разнообразие стилей, от блестящего трехмерного металла до сверкающих, пузырящихся частиц. Каждый элемент из этого нового сборника предназначен для одной цели - обеспечить уникальный захватывающий способ показать линейный текст и эмблемы, привлекая глаза зрителя в любом проекте. Сборник содержит 60 анимированных элементов в MOV-формате с альфа-каналом, с видео-разрешением от 1080x1080 до 1920x1080.
------------------------------------------
-Motion Design Elements 020: (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB7E4A03F060909511C6A24D3F9DA5E52F36C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554216   (436022) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 16: Global Intentions 1 (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 16: Global Intentions 1 (Full ISO)Название: Digital Juice: Motion Design Elements 016: Global Intentions 1
-Официальный сайт: Digital Juice
-Homepage: (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
-Расширение (тип) файлов: .iso (.mov)Global Intentions - Это долгожданный выпуск , над которым очень долго работали. 25 анимаций с высоким разрешением с подробными анимационными глобусами поставляются в различных материалах и стилех, чтобы каждый  созданный с глобальной точки зрения мог иметь различный вид. Смотрите на мир, как дискотечный шар, или блестящий шар льда, как сверкающий металлический шар или как  пластиковый шар - названы только некоторые из стилей в этом объеме. Вы будете восхищены , насколько изящно это выглядит.Это наглядное представление о Земле в определенный момент времени. Почему бы не сделать ваше производство выделяющимся , выбрав один из этих стильных вариантов .Global Intentions -This long-awaited (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F415A1EE254AF3B2F121E9207C8A0DD86DBF9F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554836   (435875) от 01.10.2012
-
-Digital Juice - Motion Design Elements Standart 12: Motion Plaques (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice - Motion Design Elements Standart 12: Motion Plaques (Full ISO)Название: Digital Juice Motion Design Elements 012: Motion Plaques
-Официальный сайт: Digital Juice
-Homepage: (not available)
-Тип раздаваемого: Video FX, Footage
-Разрешение файлов: 1080x1080 to 1920x1080 at 60 fps
-Расширение (тип) файлов: .iso (.mov)Motion Design Elements 012: Motion Plaques - Сборник анимированных элементов дизайна, которые служат для привлечения взгляда зрителя к движущейся поверхности, на которой вы можете разместить текст, графику, логотипы или видео, чтобы выделить их из вашей видео-продукции. В Motion Plaques, эти виртуальные вывески могут принимать любую форму, которую можно вообразить - от ряби вязкой жидкости и раздвижных деревянных реек, до страниц древних рукописей, развевающихся на ветру или дисплеев фантастических устройств.Используете ли вы эти элементы в качестве неотъемлемой части логотипа или как одноразовые спецэффекты, разнообразие тем и материалов предоставит вам варианты практически для любого типа (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E290B1A4322ADD51EF1C9A27044AD0B81E1A01F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554728   (435856) от 01.10.2012
-
-Digital Juice - Canvases Collection 08: Open Spaces (Files)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Canvases Collection 8: Open Spaces - Идеальные открытые пространства для старта любого дизайн-проекта! Новая уникальная коллекция графики, включающая 200 высококачественных вдохновляющих фоновых изображений в высоком разрешении, которая является важным инструментом для каждого трудолюбивого дизайнера, и обеспечит интригующее начало для любого проекта. Каждый фон (   Читать дальше...   )Разрешение файлов: 6000х3375
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C642FC02CB3044B2A383DC20ED02B0EFFADF978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554652   (435841) от 01.10.2012
-
-Digital Juice - ToxicTraxx Volume 02: High Impact (.djmusic)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toxic Traxx: Collection 2 - High Impact - Получите ожидаемую отдачу от ваших проектов, наполнив их высокой энергией! Используйте эту новую библиотеку многослойной музыки, полную импульсивного драйва. Набор мощных, энергичных треков, которые идеально подойдут для промо-проектов - будь то трейлеры, рекламные ролики, заставки, шоу или видео знаменательных событий.
-Песни в этой библиотеке были созданы талантливыми музыкантами со всего мира, и они имеют высокое напряжение ​​необычный звук, который обязан своим вдохновением многим источникам. Каждый из этих треков были профессионально записаны и спродюсирован специально для вас! Добавьте в ваше производство ту же энергию и ритм, которые вы чувствуете, когда смотрите популярное промо-видео!
-Как и музыка из MusicBox, каждая песня из коллекции Toxic Traxx 2 содержит до 10 слоёв для максимальной адаптации. Эти треки были скомпилированы для использования в различных видео-и кинопроектах, готовые к ремиксам и настройке под всё, от шоу или заставок к фильмам, трансляции, (   Читать дальше...   )Язык интерфейса: English
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323422   (435630) от 04.09.2019
-
-Impact Soundworks - Ventus Ethnic Winds Duduk [Kontakt, OGG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестая запись в нашей серии VENTUS Winds отличается загадочным, таинственным звучанием дудука, более играбельным и выразительным, чем когда-либо прежде. Эта библиотека является дебютом движка AGILITY для гладкой игры легато, поли легато, гармонизации и многого другого. Включает в себя 12+ игровых приемов и более 700 предварительно записанных фраз!Формат: Kontakt: NIСNT, NKI, NKC, NKR, NKX; OGG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FED39A1619ACFF6BAE35D2E48392733F0C727D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323441   (435469) от 04.09.2019
-
-Creative Market - Seasonal Scene Creator Volume 1 - 986355 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сезонный создатель сцены идеально подходит для изображений заголовков осенью и зимой, макетов и многого другого.
-Внимание: раздача не полная.Формат: PNG, PSD, JPGРазрешение файлов: 1397x1373-3777x3436
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84AEE9660451C8F0590804AAACC63F5B31874AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249422   (435311) от 23.09.2018
-
-Растровый клипарт - Creative Market - Halloween Graphics Bundle - 2779000 [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю свой комплект текстур и клипарта для Хэллоуина, содержащий более 180 элементов.Формат: JPG, PNGРазрешение файлов: 1800x1800-3600x3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D8CADAE4A912142BED4B652D1F85BA8B250A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323456   (435283) от 04.09.2019
-
-Hum3D - Fiat Ducato Panel Van L2H2 with HQ interior 2014 [Scanline|Mental Ray|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, SKP, STL, MB]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435283.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки FiatФормат: Scanline|Mental Ray|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, SKP, STL, MB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056A900C2E158458F84E65A151841F466ED28EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249436   (435145) от 23.09.2018
-
-Шаблоны - Creative Market - Sport Water Bottle Mockups Bundle - 2785407 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон Спортивной бутылки для воды,
-для рекламных проектовФормат: PSDРазрешение файлов: 5000×5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8E5E93A03E0549A63CA0DEA4F7315F843A6448
 ```
 
 https://mybot314.ru/tekegram_catalog/

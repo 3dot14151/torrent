@@ -1,3 +1,119 @@
+###  Публикация: 1353389   (991687) от 18.01.2020
+
+Eminem - Music To Be Murdered By (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL]  <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Premonition (Intro) (02:53)
+02. Unaccommodating (feat. Young M.A) (03:36)
+03. You Gon' Learn (feat. Royce da 5'9" & White Gold) (03:54)
+04. Alfred (Interlude) (00:30)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FD730C2CAA15B9B1C03C86DB7B780BACE889D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434082   (986272) от 10.01.2012
+
+Lil Wayne - 10 Albums (1999-2011) [MP3|320 kbps]<Rap/Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+The Block Is Hot (1999)
+Lights Out (2000)
+500 Degreez (2002)(   Читать дальше...   )Жанр: Rap/Hip-HopПродолжительность: 11:27:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971072   (985567) от 03.01.2016
+
+Lisa Fischer - So Intense (2013) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 Save Me
+02 Get Back To Love
+03 How Can I Ease The Pain
+04 So Intense(   Читать дальше...   )Жанр: RnB, Swing, Soul, DowntempoПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041804D2340D29137A0FA65B7117D7ECD325ECC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975442   (971764) от 15.01.2016
+
+The Weeknd - Beauty Behind the Madness (2015) [MP3|320 кб/с] <R&B, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Real Life
+02. Losers (feat. Labrinth)
+03. Tell Your Friends
+04. Often(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 01:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB85D60B29D2CD3D79F7CADFAE946BE884E53B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356473   (970551) от 06.02.2020
 
 VA - Reggae Anthology - The Definitive Collection of Federal Records (1964-1982) (2010) 2CD, Compilation [FLAC|Lossless|tracks] <ReggaeSka, Rocksteady, Reggae>)
@@ -6,7 +122,7 @@ VA - Reggae Anthology - The Definitive Collection of Federal Records (1964-1982)
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +149,7 @@ Method Man - The Meth Lab (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +178,7 @@ VA - Black Tracks (2000) [FLAC|Lossless|tracks + .cue] <Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +207,7 @@ VA - Старая пластинка: Ритм-н-Блюз (2013) [MP3|256 кб/
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -120,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -149,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -178,7 +294,7 @@ VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -207,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -236,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -262,7 +378,7 @@ Rihanna - ANTI (2016) Deluxe Edition [MP3|320 кб/с] <R&B, Pop>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -291,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +436,7 @@ VA - 100 Greatest R&B Love (2020) [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +465,7 @@ VA - 100 Greatest 90s R&B (2020) [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +494,7 @@ Apollo Brown & Ras Kass - Blasphemy (2014) [FLAC|Lossless] <Hip-Hop, Boom Bap, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +523,7 @@ N.W.A - Straight Outta Compton (1988) Reissue, 2002, Priority Records [FLAC|Loss
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -465,7 +581,7 @@ Rihanna - ANTI (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <R&B, Pop>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -494,7 +610,7 @@ Leon Bridges - Coming Home (2015) [MP3|320 кб/с] <R&B, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -523,7 +639,7 @@ Rick Ross (Rick Ro$$) - Port Of Miami 2 (2019) [FLAC|Lossless|tracks + .cue] <Hi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -610,7 +726,7 @@ Juelz Santana - #FREESANTANA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -624,122 +740,6 @@ Juelz Santana - #FREESANTANA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A0A860B516D8EC4CB36840A90EA18FC73C7553B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365583   (929024) от 08.03.2020
-
-VA - Ingenious Pleasure, Vol. 4 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sofasound - Low Low [02:06]
-02. AedFX - Strive [03:08]
-03. Fungi - Rhealest [02:28]
-04. capshun - Ode to Sammy G [04:04](   Читать дальше...   )Жанр: Rap, Hip-Hop, InstrumentalПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8383305770704041AB0A7F67911FFB21F2EF09E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365595   (929018) от 08.03.2020
-
-BONES - BRACE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1WayTicket [02:30]
-02. Suffer [02:10]
-03. SpeedOfLight [02:18]
-04. HappensToTheBestOfUs [02:30](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A24E3D60B7C1CF78ECA8E96F3C29CB59667268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365585   (928907) от 08.03.2020
-
-Lil Uzi Vert - Eternal Atake (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Pluto [03:30]
-02. Lo Mein [03:15]
-03. Silly Watch [03:16]
-04. Pop [03:48](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9633E272CDA03DA31D8EFB0FA155072E90F84E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286017   (928477) от 25.01.2011
-
-KREC - 8 Альбомов + 3 Компиляции (2001-2010) [FLAC|Lossless]<Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928477.jpg" />
-</div>
-
-
-###  Подробнее
-
-KREC — российская рэп-группа из Санкт-Петербурга. Название группы — сокращение от kitchen-records. Название обусловлено тем, что первые треки ребята записывали прямо на своей кухне. Группа определяет свой стиль как «добрая грусть».Список альбомов:
-2001 - Вторжение
-2004 - Нет волшебства
-2005 - Другие Берега (соло Ассаи)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 10:51:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

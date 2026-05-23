@@ -1,3 +1,61 @@
+###  Публикация: 1365837   (926989) от 09.03.2020
+
+Дискотека 80-х (полная версия) (2019) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главная дискотека страны состоялась уже в 18-й раз и, как и прежде, подарила зрителям невероятные визуальные эффекты, качественный звук и, конечно же, выступления самых любимых российских и зарубежных звезд диско на одной сцене.01. Альянс - На Заре
+02. Bad Boys Blue - Come Back And Stay
+03. Bad Boys Blue - Pretty Young Girl
+04. Bad Boys Blue - You’re a Woman(   Читать дальше...   )Производство: РоссияЖанр: DiscoРежиссер: 1 каналПродолжительность: 03:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F940B091B4C2E35D70D4F2A439DE6B8512FCAC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986857   (925674) от 17.02.2016
+
+Адель на BBC / Adele at the BBC (2015) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Самая молодая и самая титулованная певица Великобритании возвращается спустя почти три года со специальным выступлением. Адель исполнит всеми любимые хиты и совершенно новые композиции, а также расскажет о своей карьере и жизни вне сцены.01. Rolling In The Deep
+02. Hello
+03. Rumour Has It
+04. Skyfall(   Читать дальше...   )Телекомпания: Великобритания, BBC Events Production, LondonЖанр: Концерт, МузыкаПеревод: Многоголосый закадровый, профессиональный (AMedia)Продолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9571F717DD225AAEDDB5227D5D65B11E15687D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987423   (925657) от 17.02.2016
 
 Ленинград - Фильм-концерт группы «Ленинград» (2013) HDRip [H.264/1080p]
@@ -6,7 +64,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Schiller: Zeitreise Live (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +148,7 @@ Beth Hart -  Live in Brezoi HIGH FIVE ROMANIA (2021) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -119,7 +177,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -150,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -176,7 +234,7 @@ Mylene Farmer/Милен Фармер – Live 2019 - Le Film (2019) UHD BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -205,7 +263,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -234,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -260,7 +318,7 @@ Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -289,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +376,7 @@ The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +405,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +434,7 @@ Lindemann - Live at Moscow (VTB Arena) (15.03.2020) WEB-DLRip [VP9/2160p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +463,7 @@ The Rolling Stones: Havana Moon (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +492,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) 30th Anniversary S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -489,7 +547,7 @@ Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -544,7 +602,7 @@ Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,7 +631,7 @@ Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -602,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -631,7 +689,7 @@ Kreator - Gods Of Violence - Live @ Wacken 2014 (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -660,7 +718,7 @@ Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -675,61 +733,6 @@ Chuckie(   Читать дальше...   )Жанр: Концерт, Electronic 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101033   (895581) от 06.02.2017
-
-Дискотека 80-х (полная версия) (2016) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895581.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 ноября в московском спорткомплексе «Олимпийский» состоялся 15-й международный музыкальный фестиваль «Авторадио» «Дискотека 80-х». Организаторы шоу подготовили уникальную программу с участием любимых исполнителей. На сцене такие звезды как С.С. Catch, Сандра, Dschinghis Khan, Ricchi e Poveri, Тото Кутуньо, Secret Service. Из отечественных - Олег Газманов, Юрий (   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: телеканал НТВАктеры: Zodiac, Sandra, Юрий Шатунов, Secret Service, Песняры и др.Продолжительность: 04:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748222BF8EF718FC78BA0454B6C1C65AE4556F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260070   (895124) от 03.09.2021
-
-"Артист". Юбилейный концерт Михаила Шуфутинского (2018) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заслуженный артист Российской Федерации Михаил Шуфутинский в этом году отмечает 70 летний юбилей. В честь этого события он приглашает зрителей НТВ на свой творческий вечер. На сцене концертного зала Crocus City Hall артист исполнит свои главные хиты: «У вокзала», «Москва — Владивосток», «Сгорая плачут свечи», «Ты у меня единственная», «Обожаю», «Я просто медленно (   Читать дальше...   )01. Михаил Шуфутинский - У вокзала
-02. Михаил Шуфутинский - Москва-Владивосток
-03. Михаил Шуфутинский и Елена Воробей - Беспризорник
-04. Михаил Шуфутинский - Сгорая плачут свечи(   Читать дальше...   )Производство: Россия, НТВЖанр: ТВ-шоу, концертРежиссер: Георгий НовиковСубтитры: ОтсутствуютПродолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41956E3E8DC332DDEEB2DBD1E32CFDC096E68091
 ```
 
 https://mybot314.ru/tekegram_catalog/

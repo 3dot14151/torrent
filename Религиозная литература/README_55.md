@@ -1,3 +1,107 @@
+###  Публикация: 1037308   (613862) от 24.07.2016
+
+В. В. Коник | Иллюзии свидетелей Иеговы (1981) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге кандидата философских наук В. Коника на большом фактическом материале убедительно раскрывается сущность религиозного сознания и миссионерской деятельности свидетелей Иеговы. Автор показывает неоригинальность, антигуманный характер, научную и логическую несостоятельность их вероучения и проповедничества, а также антикоммунистическую и антисоветскую направленность (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5022784803233539B2AF06A09A360CDCEB1B118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912345   (612677) от 25.06.2015
+
+Н. Ф. Усков | Христианство и монашество в Западной Европе раннего Средневековья [Германские земли II/III - середина XI в.] (2001) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга является первым в отечественной историографии исследованием раннесредневекового монашества, которое рассматривается в широком контексте религиозного, социального и политического развития. Географически монография охватывает германские земли. Их исследование, однако, не изолировано от изучения христианства и монашества в Галлии (с ней они составляли королевство (   Читать дальше...   )Жанр: Христианство, Общие представленияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CB6002968C0BB9310B5842119E4AF6B565B47B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037867   (612225) от 25.07.2016
+
+Жан-Мари Вианней (Иоанн Мария Вианней) | Чему учил Жан-Мари Вианней (1970) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит не все проповеди Ж. М. Вианнея, но все они упоминаются и иногда приводятся в кратком изложении с цитатами избранных мест. Составители ограничились избранными местами, чтобы иметь возможность ознакомить читателей и с уроками Закона Божия Арсского пастыря, ещё более знаменитыми, чем его проповеди. На обложке церковь, в которой проповедовал Арсский (   Читать дальше...   )Жанр: Проповеди и уроки Закона БожияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30838421446B84F307EB47D33BB0F6B81184DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037872   (612140) от 25.07.2016
+
+Д. С. Бирюков (ред.) | Иросанфион, или Новый Рай [Собрание текстов монашеской агиографии Палестины, Египта и Византии V-XV вв.] (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Издание объединяет произведения древнехристианской монашеской литературы Египта, Палестины и Византии: Лавсаик Палладия Еленопольского; тексты, связанные с обителью Хозива; новеллы, не вошедшие в основной корпус Луга Духовного; Новый Митерикон - собрание нравоучительных историй, посвященных женскому монашеству, и другие памятники монашеской письменности. Все тексты (   Читать дальше...   )Жанр: АгиографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8050074832335BE55695BC4EB5B59303CA524017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037743   (612127) от 25.07.2016
 
 Михаил Ткач | Тайны католических монашеских орденов (2003) [FB2]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,112 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E98CBAC4750224CB712D30C385AEF2ADC24F1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297133   (606809) от 20.04.2019
-
-А.Д. Пантелеев | Ранние мученичества. Переводы, комментарии, исследования (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подготовленная к изданию доцентом СПбГУ А. Д. Пантелеевым книга, призванная восполнить пробел в источниковой базе отечественных исследований по раннему христианству, представляет собой собрание дошедших до нас аутентичных агиографических текстов, рассказывающих о гонениях на христиан с сер. II до нач. IV в. и о подвигах первых христианских святых. Все сочинения предлагаются (   Читать дальше...   )Жанр: Античное христианство, агиографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBFC4F2602DDA72812803ED257812BAADA06F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546577   (606265) от 24.04.2022
-
-Игумен Сергий (Рыбко) | Духовная жизнь начинается с покаяния (2013) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание является продолжением публикации бесед на радио «Радонеж» иеромонаха Сергия (Рыбко), настоятеля храмов Святаго Духа сошествия на бывшем Лазаревском кладбище и прп. Сергия Радонежского в Бибиреве. Большой интерес читателей вызвала первая книга бесед «Возможно ли спасение в XXI веке?». Вторая книга, как и первая, отвечает на основополагающие вопросы (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF8C29C9475FC1E88DDBA388F6B0756528E630C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546368   (606128) от 24.04.2022
-
-Г. Н. Стромынский (сост.) | Дар Твой святый... Культовый обиход Православной Церкви (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606128.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о предметах и действиях, которые требуются для проведения Богослужения в Православном храме: просфоре, артосе, святой воде, лампадах, свечах, каждении, а также о наиболее распространённых среди верующих благочестивых традициях и обрядах: приготовлении куличей, освящении имущества и т.д.
-
-Верные знания об этом помогут вам не только избежать (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489D287FF1FE10207B2FB3605E902FA95632134E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913550   (605441) от 29.06.2015
-
-Русская Православная Церковь | Вопросы святого Сильвестра и ответы преподобного Антония (2014) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга относится к типично монашескому жанру, сформировавшемуся в византийской литературе в V в. и достигшему своего расцвета в VII–VIII вв. В оригинале книга надписана именем святого Кесария Назианзина, однако действительное ее авторство доподлинно не установлено. Вероятней всего, ее написал монах константинопольского монастыря Акимитон, скрывший свое авторство (   Читать дальше...   )Жанр: Религиоведение, Христианство, ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA2FA7CB98DA5C17CB27AD32534F849311554EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

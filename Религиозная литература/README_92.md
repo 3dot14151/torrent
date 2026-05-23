@@ -1,3 +1,107 @@
+###  Публикация: 1457247   (242886) от 25.03.2021
+
+Инок Максим (Смирнов) | Не уходи из жизни. Как удержать от греха самоубийства? (2006) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Автор брошюры — насельник Рождества Богородицы Свято-Пафнутьева монастыря. Проблема самоубийства является настоящим бедствием, проклятием нашего времени. По убеждению автора, молчать об этой проблеме сегодня нельзя, нужно искать духовные причины этой беды, искать пути её преодоления. И только Церковь может наполнить светом и надеждой этот страшный, чёрный провал (   Читать дальше...   )Жанр: Психология. РелигияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6214DDDE8B02007EFBD4C69FEC60460B7612CB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624144   (242875) от 04.04.2023
+
+А. В. Карташёв | Очерки по истории Русской Церкви: в 2-ух томах (2019) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этот авторитетный научный труд богослова, историка Русской Церкви, церковного и общественного деятеля, профессора Свято-Сергиевского богословского института в Париже А. В. Карташёва (1875–1960) представляет собой глубокий обзор основных вех в развитии Русской Православной Церкви в историческом контексте на основе знаний, накопленных отечественной и зарубежной историографией. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F309FC73EBF1719B3B216724D79BCAD52565EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627652   (242820) от 20.04.2023
+
+Протоиерей Валентин Бирюков | На земле мы только учимся жить. Непридуманные рассказы (2017) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Со многими удивительными людьми довелось встречаться протоиерею Валентину Бирюкову – 94-летнему священнику из г. Бердска Новосибирской области. Ему было предсказано чудо воскрешения Клавдии Устюжаниной – за 16 лет до событий, происходивших в г. Барнауле в 60-х годах и всколыхнувших верующую Россию. Он общался с подвижниками, прозорливцами и молитвенниками, мало известными (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747902AE112F920904B787FAD75DC3EA1B111F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624359   (242819) от 05.04.2023
+
+Иеромонах Серафим Роуз | Православие и религия будущего. О «духовности» экуменизма — главной ереси XX века (2020) [DJVU, PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга повествует о "духовности" экуменизма — главной ереси XX века. Индийские факиры, НЛО, неоязыческая магия и современные "христианские" пятидесятнические движения, что объединяет эти явления? Одна общая духовность, которая стремится к объединению и перерождению в единую общую религию — религию будущего, которая и провозгласит своим богом (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844EE95DE6AE540A7C1FC8F2AA5BF9614A86C038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627636   (242771) от 20.04.2023
 
 Преподобный Иоанн Лествичник | Лествица (2015) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -538,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -564,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -577,110 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B4F532DCF9CC86A54FB8ABF50F21D944C05AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459750   (241624) от 03.04.2021
-
-Митрополит Антоний Сурожский | Войду в Дом Твой (2011) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читателю предлагается текст двух циклов бесед, которые митрополит Антоний вел в религиозных радиопередачах русской службы Би-Би-Си в 1986-88 и 1990-91 гг. Еще до публикаций последних лет митрополит Антоний был известен в нашей стране; его нечастые приезды бывали событиями религиозной жизни Москвы; встреча с ним становилась для многих поворотным моментом жизни. Его (   Читать дальше...   )Жанр: Православная литератураФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7B7061486B67E04D99D2409CC43BCC1F533319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459724   (241554) от 03.04.2021
-
-Митрополит Антоний Сурожский | Таинство любви. Беседы о христианском браке (2021) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брак – чудо на земле. В мире, где все и всё идет вразброд, брак – место, где два человека, благодаря тому, что они друг друга полюбили, становятся едиными, место, где рознь кончается, где начинается осуществление единой жизни. И в этом самое большое чудо человеческих отношений: двое вдруг делаются одной личностью, два лица вдруг, потому что они полюбили и приняли (   Читать дальше...   )Жанр: Православная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064C5A4BE02D5FFBE279AF9C497224B91FC89DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618783   (241463) от 12.03.2023
-
-Сибирская Благозвонница | Болезнь и смерть. По трудам святителя Феофана Затворника (2011) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как христианину следует относиться к своему здоровью и к своей болезни, как принять страшный диагноз, как смириться с неизбежным концом и потерей близких – все эти вопросы служат темами писем свт. Феофана Затворника к разным лицам. Святитель, называя скорби и болезни училищем веры и терпения и знаком Божией любви, утешает своих духовных чад, призывает к терпению (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CCD9D27514BF70C4186C2D1245CDA19C403A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618775   (241428) от 12.03.2023
-
-Монах Евфимий Зигабен | Толкование Евангелия от Иоанна, составленное по древним святоотеческим толкованиям (2019) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книга содержит «Толкование Евангелия от Иоанна» известного прежде всего своими библейскими толкованиями, но малоизвестного подробностями своей жизни византийского православного богослова и экзегета XI–XII веков монаха Евфимия Зигабена (ок. 1050–1112). Четвертое Евангелие, традиционно отличаемое от трех предыдущих, синоптических (повествующих больше о (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8397D7A15E83DB19B8355CB071FC322078B35A
 ```
 
 https://mybot314.ru/tekegram_catalog/

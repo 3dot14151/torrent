@@ -1,3 +1,107 @@
+###  Публикация: 1063064   (143482) от 28.12.2016
+
+Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Тоёхиса Симадзу — легендарный самурай эпохи Сэнгоку — принимает участие в великой битве при Сэкигахаре. В неравной схватке с отрядом вражеского полководца по имени Наомаса Ии он получает тяжелое ранение. Истекающий кровью, Тоёхиса с трудом пытается уйти с поля боя, но, вдруг, неизвестным образом попадает в длинный коридор из дверей, где его ожидает человек в очках. (   Читать дальше...   )Жанр: приключения, комедия, историяРежиссер: Судзуки КэнъитиСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF1AA72F42E87CC72C5B08E9D0F2011C0DA6726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241744   (143304) от 27.12.2018
+
+Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 14 из 14] WEB-DL 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Эта история о вас. Эта история о вашем теле. По последним данным человеческое тело состоит из приблизительно 37 триллионов клеток. Каждая из них неустанно работает на благо мира, который мы называем своим телом. Эритроциты разносят кислород, лейкоциты сражаются с бактериями… Всевозможные клетки исполняют свой долг невзирая на любые трудности. Долгожданная экранизация (   Читать дальше...   )Производство: Студия David Production / デイヴィッドプロダクションЖанр: комедияРежиссер: Судзуки КэнъитиЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 14 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13389E1BA70E0A7FF3556DBF5E58CCCBCC2538D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172932   (142996) от 28.12.2017
+
+Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Каких только удобств нет у людей! И рестораны, и клубы, и библиотеки, и гостиницы… А вы думали, что ёкаям этого не нужно? Они так же, как и мы, желают жить на полную катушку и с комфортом! Гостиница "Конохана” полностью соответствует притязательным желаниям ёкаев. Она оформлена в традиционном японском стиле, расположена на горячих источниках, а работают в ней (   Читать дальше...   )Жанр: фэнтези, повседневностьРежиссер: Окамото ХидэкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC871614D1071202E56A9DF1F0A1BAA21F03C92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173698   (142990) от 28.12.2017
+
+Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / Путешествие Кино: Прекрасный Мир [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий мир, полный путешествий, приключений и новых знакомств ждёт вас в этом аниме! Юная девушка в детстве осталась без отчего дома и попала на воспитание к таинственной женщине, которая умеет ловко обращаться с оружием. Научившись всему, что полезно для самостоятельной жизни, девушка решила отправиться в путешествие. У неё было множество навыков, но для (   Читать дальше...   )Жанр: приключения, драма, повседневностьРежиссер: Тагути ТомохисаЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6057850A07C2A67026D94CA78216472BEB30E26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172926   (142974) от 28.12.2017
 
 Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
@@ -6,7 +110,7 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Bungou Stray Dogs / Бродячие псы литературы [2016, TV, 24 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Bokutachi wa Benkyou ga Dekinai [TV-2] | Мы не можем учиться! [�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +607,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +633,7 @@ Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +659,7 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,111 +670,6 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:040A1095141852EF1442C4DEC85D85BA36B732B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173827   (137168) от 31.12.2017
-
-Houseki no Kuni / Land of the Lustrous / Сказания о самоцветах [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто бы мог подумать, что в далёком будущем население Земли всё-таки обретёт вечную жизнь, бессмертие. Но только, по своей сути, эти бессмертные существа будут напоминать людей внешне, но не являться ими в действительности. Вместо человеческой цивилизации развернётся цивилизация Самоцветов. Но на соседних планетах и спутниках жизнь тоже начала кипеть ключом. Например, (   Читать дальше...   )Жанр: приключения, фэнтези, сэйнэнРежиссер: Кёгоку ТакахикоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DCD13435CBBD9403B20154E38C578B8FD84738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195875   (137158) от 31.12.2017
-
-Sin: Nanatsu no Taizai | Seven Mortal Sins | Прегрешение: Семь смертных грехов [TV-1] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гордый архангел Люцифер ослушался Бога и был низвергнут в глубины ада. По пути вниз падший ангел знакомится с обычной земной школьницей по имени Мария, которая ей помогает. Уже в аду Люцифер встречается с Левиафаном, которая рассказывает бывшему ангелу про Семь Смертных Грехов — семерых демонов, правящих адом. Когда Семь Смертных Грехов запечатывают ангельские силы (   Читать дальше...   )Производство: студия Artland, студия TNKЖанр: приключения, фэнтези, эттиРежиссер: Ёсимото КиндзиПеревод: (Aiso), (Jenia aka Zub); c моими правками по дизайну и шрифтами.Язык озвучки: Русский
-TV-1 (AniDub), (Anilibria), (Animedia), (SovetRomantica) - внешними файламиЯзык субтитров: РусскийПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FF80A2F7D6BE64239C2EA54A865D8C0E8C5891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174714   (137155) от 31.12.2017
-
-Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что тебе нужно [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ицуки Хасима молод и талантлив, пишет ранобэ в жанре сискон и довольствуется славой писателя-новеллиста. Но, окружённый вниманием поклонниц, главный герой почему-то остаётся недоволен: в его жизни есть всё... кроме любимой младшей сестрёнки. Есть близкая подруга Мияко Сиракава, а сестрёнки нет. Есть Наюта Кани, претендующая на статус его жены, а сестрёнки нет. Есть (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Онума СинЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C243D9B3C213485AFD5C279EA7CBE2FB2ED38F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173695   (137138) от 31.12.2017
-
-Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137138.jpg" />
-</div>
-
-
-###  Подробнее
-
-В запертом и заброшенном особняке, в пустынном месте живёт… Нет, не страшное привидение, а всего лишь девочка по имени Кардия. Но причину, по которой ей приходится жить в таком жутком месте, как раз можно назвать страшной. Дело в том, что в крови Кардии течёт настоящий яд! И всё, чего она касается, либо гниёт, либо плавится. Поэтому девочка пообещала своему отцу, (   Читать дальше...   )Жанр: фэнтези, романтика, сёдзёРежиссер: Ямамото ХидэёЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B4F25AF1BE7C642E336D61726E755A6BC67418
 ```
 
 https://mybot314.ru/tekegram_catalog/

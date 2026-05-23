@@ -1,3 +1,172 @@
+###  Публикация: 299765   (514359) от 18.08.2012
+
+Hurts - Live in SWR3 New Pop Festival (2010) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концерт Hurts на фестивале немецкой радиостанции SWR3 Баден-Баден, Германия.01. Silver Lining
+02. Sunday
+03. Happiness
+04. Blood, Tears & Gold(   Читать дальше...   )Жанр: Концерт, SynthpopПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8105704BE0619717610432A2F4ADFB7237AD79D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930893   (513869) от 24.08.2015
+
+VA - Летний марафон № 185 / (Новый Хитовый Сборник) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Летние (23.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 5 Seconds Of Summer - She's Kinda Hot (Official Video) (00:04:05)
+2. Achtabahn - To The King (Official Video) (00:02:54)
+3. Amure - Horses (Official Video) (00:05:15)
+4. Black Fox ft. Dj Chris Parker - Live show (Official Video) (00:07:32)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, House, ProgressiveПродолжительность: 01:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF80D2CFECA00A81D7119D8775A6567A5C7B09A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930584   (513660) от 24.08.2015
+
+Muse - Live At Rome Olympic Stadium (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концертная запись и альбом английской альтернатив-рок группы Muse, выпущенный 29 ноября 2013 года в CD/DVD и Blu-ray форматах. 5 ноября также фильм был показан в 20 городах по всему миру, а на следующую ночь еще в 40 разных местах. Альбом содержит выступление группы на Stadio Olimpico в Риме, которое состоялось 6 июля 2013 года с аудиторией более чем в 60 тысяч человек.01. Intro
+02. Supremacy
+03. Panic Station
+04. Plug In Baby(   Читать дальше...   )Жанр: Alternative Rock, New Prog, Progressive Metal, Space RockРежиссер: Matt AskemПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2018FFC3E07E7D3D82C02267D69E7B7B30AEF492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536198   (513190) от 19.08.2012
+
+PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: K-pop, hip-hopПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F84BC367DB23A475243259C72CAEBFD55A21A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 231020   (511979) от 28.08.2010
+
+С. Сурганова и В. Тхай  - Концерт в поддержку фонда Доктора Лизы на 5 Питерском (03.09.2010) [Rock ] TvRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Живой" концерт в поддержку благотворительного фонда Доктора Лизы "Справедливая помощь" состоялся 22 апреля 2010 года в ДКГ (ГлавКлуб), все средства от продажи билетов направлены на создание выездной хосписной службы, которую Доктор Лиза (Елизавета Глинка) открывает в этом году в Великом Новгороде.
+Участники: Ирина Богушевская, Машина времени, (   Читать дальше...   )01. Без тебя
+02. Забирай
+03. Белая
+Между песнями краткие коментарии С. СургановойЖанр: VIP-Punk-DecadenceПродолжительность: 00:11:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315714   (511742) от 21.07.2019
+
+Квартирник НТВ у Маргулиса. Группа Louna (20.07.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+К Евгению Маргулису пришли музыканты рок-группы Louna. Хозяин "Квартирника" признался, что раньше не был знаком с творчеством коллектива. Рокеры исполнили свои знаменитые хиты, а вокалистка Лусинэ Геворкян рассказала о втором проекте Tracktor Bowling. Девушка объяснила, чем один коллектив отличается от другого и почему его нельзя назвать сайд-проектом. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F540B9865C3ADB16A74A4D6219E463EEE677AE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931357   (511632) от 26.08.2015
 
 Три тенора. Концерт / The 3 Tenors in Concert (1994) [Jose Carreras, Placido Domingo, Luciano Pavarotti] DVDRip
@@ -6,7 +175,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +204,7 @@ The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -96,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -125,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -154,7 +323,7 @@ Alex Gaudino & Taboo - I Don't Wanna Dance (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +349,7 @@ Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +375,7 @@ Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -232,7 +401,7 @@ Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -258,7 +427,7 @@ The Beatles at Shea Stadium (1965) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -289,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -315,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +514,7 @@ Gary Clark Jr. - Rock in Rio USA (2015) WEBRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +543,7 @@ VA - Летний марафон № 186 / Видеоклипы (Самые Та
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +572,7 @@ Diplo feat. Lazerdisk Party Sex - Set It Off (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +598,7 @@ Heaven and Hell - Radio City Music Hall Live! (2011) BDRip 1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +660,7 @@ Lady Gaga - Yoü And I  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +686,7 @@ Gary Moore - Live at Montreux (2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -546,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,174 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B92A7541DE17515084A6758BDD51E9B7A201EDEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540431   (503709) от 29.08.2012
-
-Dash Berlin feat. Emma Hewitt - Like Spinning Plates (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2CB029803C663DDB0DF808829F814DEEF305B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540427   (503400) от 29.08.2012
-
-Chris Parker - Symphony (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClubПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897124E7B47BA8019445C233797FBF159BD84BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934175   (503258) от 04.09.2015
-
-U.D.O. - Navy Metal Night (2014/2015) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503258.jpg" />
-</div>
-
-
-###  Подробнее
-
-В феврале 2014 года U.D.O. сыграли специальное шоу в сопровождении немецкого военно-морского оркестра Marinemusikkorps Nordsee. Симфоническое звучание оркестра и хора слились воедино с песнями U.D.O., сделав вечер незабываемым для собравшейся аудитории.01. Das Boot
-02. Future Land
-03. Independence Day
-04. Animal Instinct(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalРежиссер: Oliver "Bomber" BarthПродолжительность: 01:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55855A6D90EC6F32D154A5D5C70E4FD798BE283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540403   (503062) от 29.08.2012
-
-Король и Шут - Концерт в Олимпийском (2004) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Мастер приглашает в гости
-03. Верная жена
-04. Волосокрад(   Читать дальше...   )Жанр: Punk, Horror, RockПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C40D02BEEE407A7805397349826922C3EE5AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934437   (502318) от 05.09.2015
-
-U.D.O. - Navy Metal Night (2014/2015) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502318.jpg" />
-</div>
-
-
-###  Подробнее
-
-В феврале 2014 года U.D.O. сыграли специальное шоу в сопровождении немецкого военно-морского оркестра Marinemusikkorps Nordsee. Симфоническое звучание оркестра и хора слились воедино с песнями U.D.O., сделав вечер незабываемым для собравшейся аудитории.01. Das Boot
-02. Future Land
-03. Independence Day
-04. Animal Instinct(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalРежиссер: Oliver "Bomber" BarthПродолжительность: 01:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE30AB254CD05616110E1C169A7987AABBA46A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934097   (502152) от 05.09.2015
-
-Gary Moore - Blues for Jimi (2007/2012) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт, который состоялся 25 октября 2007 года в рамках программы Jimi Hendrix Live At Monterey. Blu-Ray выпущен 24 сентября 2012 года под лейблом Eagle Rock.01. Purple Haze
-02. Manic Depression
-03. Foxey Lady
-04. The Wind Cries Mary(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5664E66DA080722C57B1CB0F258AFC7AE38860F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

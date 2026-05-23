@@ -1,3 +1,81 @@
+###  Публикация: 1572634   (421046) от 27.08.2022
+
+Банк России | Финансовая культура. Цикл аудиолекций (2020-2021) [MP3, Амир Рашидов, Марина Зикеева]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Банк России (совместно с сайтом "Финансовая культура") представляет сборник лекций по финансовой грамотности в формате аудиокниги. Здесь просто и доступно рассказывают о сложном мире финансовых услуг, который окружает каждого из нас. Аудиолекции посвящены взаимоотношениям граждан с финансовым рынком, противодействию финансовым мошенникам и другим темам, (   Читать дальше...   )Жанр: личные финансы, финансовое право, финансовые инструментыПродолжительность: 06:11:04 (03:17:00 + 02:54:05)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C56BA6BDB7902C279A1E0AC6ED28DB89337F237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947235   (420506) от 16.10.2015
+
+Андрей Белый | Между двух революций (2008) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Цикл воспоминаний Андрея Белого, создававшийся в конце 1920-х - начале 1930-х гг., по праву принадлежит к числу наиболее известных и наиболее ценимых произведений крупнейшего мастера русского символизма. Эти три книги в равной мере значительны и как художественное слово, и как исторический источник: будучи ярким образцом мастерства Белого-прозаика, они содержат богатый (   Читать дальше...   )Жанр: МемуарыПродолжительность: 22:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B431F471B4083D80E79EC5162789AE004990A034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572713   (419325) от 28.08.2022
+
+Коллектив авторов | Восток (Лекторий ВШЭ) (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Существует странная закономерность: в периоды кризиса национальной идеологии Европа обращается к Востоку. Запад изучает восточные экономические и политические модели, увлекается восточной философией и мистикой. Так было в конце XIX – начале XX века, так есть и сейчас. За всем этим стоит сложное социальное и культурное явление, одна из форм компенсации неудовлетворенности (   Читать дальше...   )Жанр: публицистикаПродолжительность: 15:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9995311DB049C4CA352DBB157CF223555E2A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572747   (419321) от 28.08.2022
 
 Вильям Похлебкин | Тайны хорошей кухни (2009) [MP3, Николай Козий]
@@ -6,7 +84,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +592,7 @@ V | Менеджер мафии (2018) [MP3]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E4E47EF3A20489818D5839E09D6118A18D51B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323501   (365709) от 29.09.2019
-
-Джозеф Мэрфи | Чудодейственная сила Вселенной (2017) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффективная методика достижения счастья и богатства от автора бестселлера «Сила вашего подсознания» Джозефа Мерфи! В вас заключена великая сила, способная изменить вашу жизнь до неузнаваемости. Джозеф Мерфи призывает каждого слушателя пробудить её, установить сознательный контакт со Вселенной – и тогда вы сможете решить любые проблемы, найти своё место в жизни и (   Читать дальше...   )Жанр: Практическая эзотерикаПродолжительность: 07:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFCE89F622FF3A2E42BFA6D21084B24D1A96714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328124   (365695) от 29.09.2019
-
-Тим Скоренко | Изобретено в СССР. История изобретательской мысли с 1917 по 1991 год (2019) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изобретательская мысль в Советском Союзе развивалась своеобразно. Ее поощряли в избранных областях – космической, военной, научной – и практически игнорировали в бытовой. Иначе говоря, мы совершали важнейшие прорывы в ракетостроении и фундаментальных исследованиях, но серьёзно отставали во всём, что касалось повседневной жизни, от пылесосов до автомобилей. У этой (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 18:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72862ABDCF56164BB52DD7610445BAD893FA2254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416675   (365244) от 17.10.2020
-
-Рейчел Кларк | Рука на пульсе (2020) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вряд ли молодой врач мечтает о 17-часовых дежурствах и о 70-часовых рабочих неделях, полных крови, встреч со скорбящими родственниками… И этот список можно продолжать бесконечно. Несмотря на все перечисленное, спасение жизней – это высшая степень награды, которую только может получить врач. Из этой книги вы узнаете, как проходят будни в больнице, особенно в отделении, (   Читать дальше...   )Жанр: Популярно о медицинеПродолжительность: 09:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CAAA51F08572D4E70BD993D063F99BB0D5F9C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

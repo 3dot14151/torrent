@@ -1,3 +1,55 @@
+###  Публикация: 474656   (85038) от 28.03.2012
+
+Worms: Reloaded: Game of the Year Edition + 7 DLC [Ru] (RePack/1.0.0.475) 2012 | Naitro
+
+>>След.
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Спустя десять лет после выхода Worms™ Armageddon, пошаговое комичное мессиво продолжается в переработанной Worms™ Reloaded, доступной для ПК на Steam. Worms™ Reloaded предлагает вашему вниманию многопользовательскую игру до четырех человек и с компьютером, поддержку голосовой связи, связку новых сумасшедших оружий (и это не считая некоторые самые запоминающиеся оружия из предыдущих частей серии), достижения, таблицу рекордов, новые фоновые темы в высоком разрешении, обширный список замков для нового режима «Замок», новые редактор ландшафта, новые режимы игры, шляпы, костюмы и голосовые наборы червячков. И в завершение всего этого мы чуть не забыли упомянуть интереснейшую одиночную игру, включающую в себя обучение, режим «Бой на смерть», гонки, игры режима «Замок» и паззлы. Вкусите виды нового движка высокой четкости и переработанную физику, в сочетании с которой искусственный интеллект 7 различных типов становится то легким, то бесшабашным, а то настоящим почти что неуязвимым монстром, способным растерзать любого опытного игрока в клочья.Кроме того, в игре вы найдете кучу возможностей ее настройки, начиная с тысячи вариантов оформления своей команды червячков и заканчивая уникальными, созданными вами уровнями, которые позволят вам играть так, как вы этого захотите!В издании Game of the Year Edition игра содержит в себе весь вышедщий загружаемый контент!(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Strategy (Turn-based)Язык озвучки: Русский, АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F37E741DCE4516ED9B65C9AFF3172058F2354F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785015   (69455) от 14.03.2025
+
+Combat Mission: Red Thunder (2023) [En] (2.13/dlc) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Combat Mission: Red Thunder переносит в жестокие сражения на Восточном фронте летом 1944 года, охватывая такие значимые события, как Багратион и наступление на Польшу. Действие разворачивается в болотах Беларуси и на окраинах Варшавы, а основное внимание уделяется тактике ведения боевых действий. Юзер может командовать как советскими, так и немецкими войсками, воочию (   Читать дальше...   )Тип издания: LicenseРазработчик: BattlefrontЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32145C16B3FACBB4AE8579CF63C1E1A8FD3B2AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785102   (69435) от 14.03.2025
 
 Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack seleZen
@@ -6,7 +58,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tank Operations: European Campaign (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.02.941) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (2.7.6/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Repack FitGirl [Vanguard E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Scene Tenoke [Vanguard Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ John Wick Hex (2019) [Ru/Multi] (1.03) Scene DARKSiDERS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ The Land Beneath Us (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.8/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90AF71BEA709E09392ADFAB57399AD0BB102AA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729847   (53475) от 13.06.2024
-
-A Game's Tale (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в уникальный фэнтези-мир и попробуйте узнать, почему мы играем. Участвуйте в неповторимых тактических схватках со множеством разнообразных существ. Действие игры происходит в приветливом, радостном и красивом мире. Чтобы одержать победу, нужно с умом выбирать существ и их способности! В игре шесть классов существ. Для каждого сражения нужно подбирать (   Читать дальше...   )Тип издания: RepackРазработчик: VisQoЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB6DE562C3166DFA56344779BDBC9CCF46B5F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731408   (52745) от 20.06.2024
-
-Starship Troopers: Terran Command (2022) [Ru/Multi] (3.00.01/dlc) Scene FairLight
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starship Troopers: Terran Command - это захватывающая стратегия в реальном времени, действие которой разворачивается во вселенной фильмов «Звёздный десант». Приготовьтесь командовать отважными бойцами мобильной пехоты (Mobile Infantry) и выполнять свой долг в борьбе с арахнидами. Сделайте всё, чтобы человеческая цивилизация а не насекомые господствовала в галактике (   Читать дальше...   )Тип издания: SceneРазработчик: The ArtistocratsЖанр: Strategy, Real-time, TacticalЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831239667D477B8BB100A9C1434F7081A01121CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

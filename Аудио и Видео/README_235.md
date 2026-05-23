@@ -1,3 +1,32 @@
+###  Публикация: 1498630   (237611) от 14.10.2021
+
+VA - Relaxing Jazzy Beats (Abstract Electronic Chill Jazz Vibes) (2021) [AAC|~333 Kbps] <Jazz, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Y Garcia - Un peu de jazz (5:27)
+02. Lo Greco Bros, Flow Bop - One Man (4:47)
+03. Agostino Maria Ticino - If I Had Said to You (3:01)
+04. Paolo Sessa, Polose - The Moon (3:53)(   Читать дальше...   )Жанр: Jazz, Lounge, Chill OutПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B19B544825D0AC4CA68C92F2128C23E24DF62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497791   (237598) от 14.10.2021
 
 VA - 0815 Lo-Fi Chill Hop (2019) [AAC|~264 Kbps] <Jazzy, Chillhop, Lounge>
@@ -6,7 +35,7 @@ VA - 0815 Lo-Fi Chill Hop (2019) [AAC|~264 Kbps] <Jazzy, Chillhop, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - What About Lounge, Vol. 2 (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 5 (2019) [AAC|~293 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Röyksopp & Robyn - Do It Again (2014) [AAC|~331 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Café Deluxe Chillout - Nu Brazil / Lounge (2014) [AAC|~326 Kbps] <Easy Lis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 4 (2018) [AAC|~302 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 6 (2020) [AAC|~284 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 2 (2015) [AAC|~323 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge (2013) [AAC|~316 Kbps] <Easy Liste
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Buddhatronic - the Compilation, Vol. 6 (2021) [AAC|~299 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Urban House Grooves, Vol. 2 (2021) [AAC|~323 Kbps] <House, Progressive Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Urban House Grooves, Vol. 1 (2021) [AAC|~323 Kbps] <House, Progressive Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tequilajazzz - Камни (2021) [AAC|~331 Kbps] <Alternative, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 7 (2021) [AAC|~294 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 3 (2017) [AAC|~309 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Luxury Lounge Sunset, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Playa del Lounge 3 (2012) [AAC|~324 Kbps] <Lounge, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -499,7 +528,7 @@ Autumn Tears - The Glow of Desperation (2021) [AAC|~322 Kbps] <Gothic, Neoclassi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +557,7 @@ Lords of Black - Alchemy of Souls, Pt. II (2021) [AAC|~315 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +586,7 @@ Lisa Gerrard, Jules Maxwell - Burn (2021) [AAC|~330 Kbps] <Gothic, Neoclassical,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 3 (2021) [AAC|~31
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Autumn Breeze, Vol. 3: Chill Sounds for Relaxing Moments (2019) [AAC|~327 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Autumn Breeze, Vol. 4: Chill Sounds for Relaxing Moments (2020) [AAC|~337 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Autumn Breeze, Vol. 1: Chill Sounds for Relaxing Moments (2017) [AAC|~323 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Autumn Breeze, Vol. 2: Chill Sounds for Relaxing Moments (2018) [AAC|~328 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Autumn Breeze, Vol. 2: Chill Sounds for Relaxing Moments (2018) [AAC|~328 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34180B9B43AECB644B9EB2867F82F580CDF8FEC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505129   (236724) от 26.10.2021
-
-VA - The Essential Downtempo: Chillout Your Mind (2021) [AAC|~314 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florzinho - Onenness Meditation (Original Mix) (8:07)
-02. Marga Sol - Night Sky (Original Mix) (4:17)
-03. La Estación Del Mar - A La Sombra De Un Roble (4:25)
-04. Michael e - Matterhorn (Original Mix) (4:05)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72615E7A9DABF6BDBE905A84D9A416CFD07F9083
 ```
 
 https://mybot314.ru/tekegram_catalog/

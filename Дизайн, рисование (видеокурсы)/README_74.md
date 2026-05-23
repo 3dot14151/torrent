@@ -1,3 +1,85 @@
+###  Публикация: 1650151   (194914) от 31.07.2023
+
+Udemy, Nafay Sheikh | Unreal Engine 5: Realistic Product Animation / Visualization (2023) WEB-DL [AD] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Вы заинтересованы в создании удивительных, реалистичных визуализаций и анимаций продуктов в Unreal Engine 5, но вас немного пугает кривая обучения? Не смотрите дальше! Я создал этот всеобъемлющий курс специально для таких новичков, как вы, чтобы помочь вам с легкостью вывести свои навыки 3D-искусства на новый уровень!
+В этом уроке мы рассмотрим основы импорта моделей, (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 03:01:07Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5F6B0177DE0C6983D6487CC7CEE4F74B0388CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653029   (194297) от 14.08.2023
+
+Kalachevaschool, Анна Эгида | Цветная графика (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+«Цветная графика» — вдохновляющий курс Анны Эгиды для всех, кто хочет подчинить себе ВСЕ материалы и даже АКВАРЕЛЬ!
+Вы освоите множество универсальных приёмов, которые отлично подходят для графических и живописных материалов.
+Укротите карандаш, тушь, масляную пастель, акварель и вообще всё, что есть на вашей полке.
+«Идея курса такова: если вы рисуете одним материалом, (   Читать дальше...   )Производство: KalachevaschoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:21:06Реклама: Вставки и наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE3AEC919E6167E363087875480BA4FB37A6D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653598   (194271) от 16.08.2023
+
+The Gnomon Workshop, Sean Marino | Creating a Sci-Fi Pistol for Games (2023) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как создать научно-фантастический пистолет для игр. Sean Marino, заместитель арт-директора Riot Games, делится своим рабочим процессом моделирования оружейного ассета для игр, начиная с первоначальной концепции и работая с референсами оружия из классических шутеров, чтобы определить общий стиль для модели.Производство: The Gnomon WorkshopЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 02:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8066F88F59BB1FD9694D1699386B7A6F59621456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653154   (194258) от 14.08.2023
 
 Udemy, Nafay Sheikh | Unreal Engine 5: Easy Cinematic Environments (2022) PCRec [RU]
@@ -6,7 +88,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Easy Cinematic Environments (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +115,7 @@ Boundless Entertainment, Sam Eisenhower | Unreal Engine for Filmmakers - Advance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +142,7 @@ Canopy Games, Erindale Woodford | BCS: Geometry Nodes For Blender 3.3+ (2022) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -88,7 +170,7 @@ Udemy, Gustavo Rosa | Learn Blender Compositor! (2022) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -117,7 +199,7 @@ Udemy, Stephen Ulibarri | Blender Sculpting - Rune Sword (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -144,7 +226,7 @@ Udemy, Art Studio | Modelling and Animating a Car in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -171,7 +253,7 @@ Udemy, Art Studio | Learn Modelling and Animating in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -197,7 +279,7 @@ ArtStation, Daniel Peres | Creating Vegetation for Games (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -225,7 +307,7 @@ Blender Guru, Andrew Price | The Architecture Academy (Blender 2.6-2.7) (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -251,7 +333,7 @@ XYZ School, Кирилл Золовкин | Пайплайн разработк�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -280,7 +362,7 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Arnold 6 and 7 for Cine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -306,7 +388,7 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Redshift 3 and 3.5 For 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -332,7 +414,7 @@ Art And Shock, Евгения Тумина и др. | Визуализация �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -361,7 +443,7 @@ Udemy, Oscar Villarreal | Procedurally Generated Scenes with Blender, Python & N
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -390,7 +472,7 @@ Bonnie & Slide, Егор Мараев | Убойная анимация 2.0 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -418,7 +500,7 @@ Color Grading Master, Александр Макаров | FUSION. Basic VFX Clas
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -446,7 +528,7 @@ Udemy, Aniket Rawat | Creating a Traditional Chinese Room Environment in UE5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -475,7 +557,7 @@ Domestika, Calder Moore | 3D Toon-Style Environment Art with Arnold (2023) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -502,7 +584,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5 - Product Animation - Visualization (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -529,7 +611,7 @@ Udemy, Raffi Bedross | Real-time VFX in EmberGen and Unreal Engine 5 (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -558,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -587,7 +669,7 @@ Udemy, Hossein mashayekhi | Complete Unreal Engine 5 Mastery (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -613,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -625,85 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E3AD84ADEF39F95FC57B01D9D27221A9CED7B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662684   (187765) от 18.09.2023
-
-Ирина Шпакова | Подсолнухи (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187765.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам художника Антона Горцевич.
-Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 00:34:45Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7548E47C3B4A1F4F34553ED9E00D351169E3B41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662701   (187759) от 18.09.2023
-
-Ирина Шпакова | Грейпфрут (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 00:29:53Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2358EFEDEC48680B43FA4AAC3A4A9723E1E3BE2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662688   (187754) от 18.09.2023
-
-Ирина Шпакова | Монастырь (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 00:45:49Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACEA155F91A83B13B7A56ECD480352B4049C377
 ```
 
 https://mybot314.ru/tekegram_catalog/

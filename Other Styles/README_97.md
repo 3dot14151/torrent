@@ -1,3 +1,218 @@
+###  Публикация: 1050149   (540756) от 07.09.2016
+
+Timothy Olson - Bedtime (2016) [MP3|320 Kbps] <Electronic, Easy Listening, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Awake All Night
+02. Baby Dream
+03. Bedtime Stories
+04. Breeze(   Читать дальше...   )Жанр: Electronic, Easy Listening, New AgeПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAD00CA8F0644874238B9BAC80E34F037FAABED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531652   (540733) от 06.08.2012
+
+Stefano Mocini - A Cat Playing (2011) [MP3|128-256 кб/с]<Relax,New Age,Melodic,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Injustice (2:51)
+2. The Dragonfly (2:01)
+3. Awesome Lie (3:02)
+4. Calm Before (3:06)
+5. Aginst Fate (3:13)
+6. Joke (3:02)
+7. Hope You Will Fine  (2:18)
+8. It Hurts (3:20)
+9. Leaving You (3:39)
+10. Half Moon Ball Pianosolo Version (3:50)Жанр: Relax,New Age,Melodic,PianoПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5112353AC2F21E3A9C31509A6F0FA74EC16B767A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050290   (540515) от 07.09.2016
+
+VA - Angels of Hope (An Angelic Compilation) (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Gandalf - Angel of Light [00:04:44]
+02. Kevin Kern - And the Light is Forever [00:03:23]
+03. Peter Kater - Heaven’s Window [00:08:00]
+04. Omar Akram - Angel of Hope [00:03:33](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB18F932CAA51BB53CB2A0FFA030A8CF214FEF79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050159   (540378) от 07.09.2016
+
+Valentina Babor - Piano Princess (2015) [FLAC|Lossless|tracks + .cue] <Instrumental, Classical, Piano Solo>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Children 4:21
+02. Nobody Does It Better 3:27
+03. I Believe I Can Fly 4:16
+04. When The Rain Begins To Fall 3:49(   Читать дальше...   )Жанр: Instrumental, Classical, Piano SoloПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819712ABBE8C36FBA8818C5FC2C18C3FC8117F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050101   (540373) от 07.09.2016
+
+Kitaro - Asian Cafe (2002) 2016 Domo Records [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Planet
+02. Linden
+03. Unicorn
+04. Legend Of The Road(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535AFE6B783905B2862AC7925E0A2D97D7863FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311251   (540053) от 30.06.2019
+
+Andrei Denisov - Easy to Fly (1996) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. На крыльях любви (5:05)
+02. Спящее дитя (Симе) (3:51)
+03. Счастливое ничто (5:40)
+04. Забытые грёзы (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37208E8AB7CAA719B633AD6E238323DD7388E454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531989   (540045) от 06.08.2012
+
+VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, Chillout, Lounge, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Wholeness Of The Essence
+2. True Sensuality
+3. Essence
+4. La Vie Rouge
+5. Deep Desire
+6. Serene Harmony
+7. Rivers Of Lust
+8. Blue Heaven
+9. Open Windows
+10. Love Dream(   Читать дальше...   )Жанр: New age , Enigmatic, Chillout, Lounge, DowntempoПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E93F3A84B91ACEE64E6CD3679617B859DD9C273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311232   (539969) от 30.06.2019
 
 Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
@@ -6,7 +221,7 @@ Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +250,7 @@ Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -65,7 +280,7 @@ Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -92,7 +307,7 @@ Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +337,7 @@ The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +366,7 @@ VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .c
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +395,7 @@ Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +430,7 @@ Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +463,7 @@ Anhidema - Le Retour Du Anunnaki (2016) [MP3|320 Kbps] <New Age, Space, Spiritua
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -277,7 +492,7 @@ Erin Durant - Islands (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -306,7 +521,7 @@ The Henningsens - World's on Fire (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -335,7 +550,7 @@ James Last - James Last and his Orchestra play music of Andrew Lloyd Webber (199
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +585,7 @@ VA - A Native American Odyssey- Inuit to Inca (1998) [MP3|320 Kbps] <Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +614,7 @@ Raymond Lefevre et Son Grand Orchestre - Japanese Limited Mini LP SHM-CD (6CD) (
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +649,7 @@ VA - The World Of The Spanish Guitar Vol. 1 /2CD/ (2011) [MP3|320 kbps]<Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +684,7 @@ Mythos - Eros (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +713,7 @@ Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +742,7 @@ Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +771,7 @@ Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,211 +793,6 @@ Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52D4A7701FD0A7959F61706CD4047CFB39A030A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227252   (535925) от 16.08.2010
-
-Music From The World Of Osho - Laughing Drums (2000) [WMA|357-449 kbps]<New Age, Worldbeat>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Свинг тенко		   (07:32)
-02 Танцующие барабаны	   (10:47)
-03 Ритм птицы		   (04:09)
-04 Тимфун		   (06:52)
-05 Ритм жизни		   (21:08)
-06 Спокойный Будда	   (08:09)Жанр: New Age, WorldbeatПродолжительность: 00:58:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312132   (535661) от 02.07.2019
-
-Jean Michel Jarre - The Best Of (2015) 2CD [FLAC|Lossless|image + .cue] <Electronic, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene4 [4:05]
- 02. Equinoxe 4 [6:40]
- 03. Magnetic Fields 2 [3:56]
- 04. Orient Express [4:12](   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 02:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999E690406BC79695202D451A9EB2BEC32347DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926227   (535582) от 09.08.2015
-
-VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (2015) [MP3|320 кб/с]<Electronic, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll the Dice - Portal
-02. Helm - Eye Balm
-03. Helm - Mirrored Palms
-04. Helm - Silencer II(   Читать дальше...   )Жанр: Electronic, ScoreПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E11CCC590C3AF3D328597858C2E66EBBF00ED7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926128   (535475) от 09.08.2015
-
-Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anam Cara Reprise
-02. Love Conquers All
-03. Spin of the Reel
-04. The Wisdom of Ages(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31371629ABD73564FEBAB8B44B2F746C1EE7D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154766   (535186) от 02.08.2017
-
-Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Walk The Line
-02. Folsom Prison Blues
-03. Cry! Cry! Cry!
-04. Get Rhythm(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926078   (535158) от 09.08.2015
-
-Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Talk About It (feat. King Mez & Justus)
-03. Genocide (feat. Kendrick Lamar, Marsha Ambrosius & Candice Pillay)
-04. It's All On Me (feat. Justus & BJ the Chicago Kid)(   Читать дальше...   )Жанр: Soundtrack, Rap, Hip-HopПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A7B45F3DA4374C41826BC3C9217438339FFF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312181   (534387) от 03.07.2019
-
-Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track 1 (02:15)
-02. Theme from Child's Play (04:25)
-03. Birth of Chucky (02:41)
-04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

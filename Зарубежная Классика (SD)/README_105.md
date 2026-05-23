@@ -1,3 +1,107 @@
+###  Публикация: 1642812   (210164) от 30.06.2023
+
+Титаник / Titanic (1953) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Неудовлетворенная жизнью миссис Джулия Стёрджес, втайне от мужа решает покинуть Европу и отправиться за океан, на свою родину в штат Мичиган, на крупнейшем пассажирском лайнере "Титаник". При этом она забирает с собой своих детей: 17-летнюю дочь Аннетт и 10-летнего сына Нормана. Её муж Ричард, узнав о планах жены в последний момент, решает перехватить её, (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: драма, мелодрама, историяРежиссер: Жан НегулескоАктеры: Клифтон Уэбб, Барбара Стэнвик, Роберт Вагнер, Одри Далтон, Тельма Риттер, Брайан Ахерн, Ричард Бейсхарт, Эллин Джослин, Джеймс Тодд, Фрэнсис БергенПеревод: Многоголосый профессиональный (РенТВ, Петербург 5-й канал)Язык озвучки: русский, английскийСубтитры: английские (SDH, full), испанские, французскиеПродолжительность: 01:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CF070C0CA46BB2B52DE1DCFE24362891ED5D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630741   (210142) от 30.06.2023
+
+Далёкие голоса, застывшие жизни / Distant Voices, Still Lives (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о семейной жизни рабочего класса в Ливерпуле в 1940-х и начале 1950-х годов, уделяя особое внимание роли популярной музыки, голливудского кино, легких развлечений и паба в этом сплочённом сообществе и состоит из двух отдельных фильмов, снятых с разницей в два года. Первый раздел повествует о ранней жизни католической семьи рабочего класса, живущей (   Читать дальше...   )Производство: Великобритания, Германия (ФРГ), British Film Institute (BFI), Channel Four Films, Zweites Deutsches Fernsehen (ZDF)Жанр: драма, музыкаРежиссер: Теренс ДэвисАктеры: Фрида Доуи, Пит Постлетуэйт, Анджела Уолш, Дин Уильямс, Лоррейн Эшборн, Сэлли Дейвис, Нэйтан Уолш, Сьюзэн Флэнеган, Майкл СтаркПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B1CFEA1D891208B4659989438AABD6F86E5D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601400   (210052) от 14.01.2023
+
+Большая стирка / La grande lessive (!) (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Телемания достигла разрушительных для французского народного образования пределов... Отпрыски парижских обывателей вместе со своими предками по вечерам прикованы к телеящикам, откуда их всячески зомбируют. Убежденный до мозга костей педагог Арман Сен-Жюст не хочет на своих уроках в школе наблюдать подопечных, спящих за партами, и объявляет совместно с физруком Меснаром (   Читать дальше...   )Производство: Франция / Balzac Films, Firmament Films, Mediterranee Cinema, Oceanic FilmsЖанр: комедияРежиссер: Жан-Пьер МокиАктеры: Бурвиль, Франсис Бланш, Роланд Дюбийяр, Жан Тиссье, Микаэль Лонсдаль, Рене-Жан Шоффар, Керин Балм, Аликс Махье, Марсель Перес, Жан-Клод РемолёПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D32AAA709C318BCC75E07E74714DB5286893124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601815   (209871) от 16.01.2023
+
+Процесс / Le proces (1962) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам одноимённого романа Франца Кафки. Рядовой клерк Йозеф К. обвиняется в некоем преступлении, которого он не совершал, поскольку не совершал вообще ничего противозаконного. Собственно, состав преступления ему не называют и сами обвинители, поскольку также не знают, в чём он виноват...Производство: Франция, Германия (ФРГ), Италия, F.I.C.I.T, Globus-Dubrava, Hisa-Film, Paris-Europa ProductionsЖанр: драма, детектив, триллерРежиссер: Орсон УэллсАктеры: Энтони Перкинс, Жанна Моро, Роми Шнайдер, Эльза Мартинелли, Сюзанн Флон, Орсон Уэллс, Арнольдо Фоа, Джесс Хан, Билли Кирнс, Мадлен Робинсон...Перевод: профессиональный многоголосый (Film Prestige)Субтитры: русские, английские, немецкие, французскиеПродолжительность: 02:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0108DDB65826E9CC845B467E4CD6FA6B7E78D567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583957   (209818) от 16.01.2023
 
 Римлянка / La Romana (1954) WEBRip [H.264] [DVO]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDF24AFA300FC5B1FB6063723E0591E3EE45D7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606990   (207689) от 10.02.2023
-
-Дьявол и десять заповедей / Повседневные соблазны / Le Diable et les dix commandements / The Devil and the Ten Commandments (1962) WEBRip [H.264] [Полная версия]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь увлекательных новелл представляют публике все виды современных соблазнов и все способы нарушения или соблюдения Десяти Заповедей. Новеллы объединяет история престарелого бедолаги Шамбара, живущего в монастыре. Он-то как раз и становится мишенью для змея-искусителя: потому что совершенно бесхитростен и совершенно неотесан. Такой человек открыт и добру, и злу (   Читать дальше...   )Производство: Италия, Франция / Filmsonor S.A., Incei Film, Mondex Films, ProcinexЖанр: Драма, комедияРежиссер: Жюльен ДювивьеАктеры: Мишель Симон, Люсьен Бару, Франсуаза Арнуль, Мел Феррер, Мишлин Прель, Клод Дофен, Шарль Азнавур, Лино Вентура, Фернандель, Жан-Клод БриалиПеревод: Дублированный, Профессиональный многоголосый, Профессиональный двухголосый, АвторскийЯзык озвучки: русский, французскийСубтитры: английские, французскиеПродолжительность: 02:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C10DD3E49FC268D7138B70A48A09C02C119851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328220   (207665) от 19.09.2022
-
-Какой-то странный тип / Uno strano tipo (1963) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный певец Адриано Челентано приезжает в маленький курортный городок, чтобы немного отдохнуть от песен, публики, концертов, автографов и поклокников. Но чтобы нормально устроиться там, где хочется, нужна, по словам менеджера, самая малость - дать местным жителям концерт. Только один. Совсем небольшой. И спеть пару-тройку песен. Но зато все проблемы будут решены. (   Читать дальше...   )Производство: Италия / Giovanni Addessi Produzione CinematograficaЖанр: комедия, музыкаРежиссер: Лучио ФульчиАктеры: Адриано Челентано, Клаудиа Мори, Донателла Турри, Луиджи Павесе, Карло Кампанини, Джакомо Фуриа, Джанни Агус, Нино Таранто, Эрминио Макарио, Розальба Нери, Франко Джакобини, Раффаэлла Де КаролисПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D1F64932FCD208EA8723D53F280BF319DC7883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574641   (207425) от 24.09.2022
-
-Растление / La corruzione (1963) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окончив университет, сын решает стать священником и даже подыскивает себе место в монастыре, пообещав настоятелю вернуться после посещения родного дома. Отец героя - директор крупного издательского дома, человек властный и жесткий, всеми силами пытается воспрепятствовать выбору сына. Он решает пригласить сына совершить круиз на яхте вместе со своей любовницей. Девушка (   Читать дальше...   )Производство: Италия, Франция / Arco Film, Burgundia Film, S.O.P.A.C.Жанр: ДрамаРежиссер: Мауро БолоньиниАктеры: Ален Кюни,  Розанна Скьяффино,  Жак Перрен,  Иза Миранда,  Филиппо Шелцо,  Эннио Бальбо,  Анна Глори,  Ванда Трес,  Марчелла Валери,  Бруно КаттанеоПеревод: Одноголосый любительский (Герусов)Язык озвучки: Русский, ИтальянскийСубтитры: Русские (forced, full), английские (Full, SDH) отдельными файламиПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0E7CE001D4C4C9E74E64608160CA68C02BEB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607662   (207406) от 14.02.2023
-
-Сыновья Кэти Элдер / The Sons of Katie Elder (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо братьев Элдеров приезжают в Техас на похороны матери. Здесь они узнают, что родительское ранчо им не принадлежит, поскольку их отец, будучи сильно пьяным, якобы проиграл его в карты некоему Гастингсу, вскоре, после чего был убит. Братья подозревают, что в этой истории что-то нечисто, но местный шериф настоятельно рекомендует им не впутываться в это дело.Производство: США / Wallis-HazenЖанр: ВестернРежиссер: Генри ХэтэуэйАктеры: Джон Уэйн, Дин Мартин, Марта Хайер, Майкл Андерсон мл., Эрл Холлиман, Джереми Слейт, Джеймс Грегори, Пол Фикс, Джордж Кеннеди, Деннис ХопперПеревод: Многоголосый профессиональный, Paramount ChannelЯзык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF075FAB889687932DD86E47CE987B753310397
 ```
 
 https://mybot314.ru/tekegram_catalog/

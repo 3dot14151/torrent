@@ -1,3 +1,232 @@
+###  Публикация: 1103347   (885658) от 12.02.2017
+
+Goombay Dance Band - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01 Born To Win
+02 Cherokee
+03 Eldorado
+04 Golden Veil(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75252F7408830B880DDC36ABB35573C2FB3E8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372030   (885206) от 03.04.2020
+
+VA - Roller Disco: Remix And New Generation (2020) [MP3|320 Kbps] <Disco, Pop, Remix>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+001. The Steaming Jeans - Men's Figure Skating
+002. Sidiku Buari - Power To My People
+003. Miko Vanilla - Change Your Mind
+004. Captain Apollo - It Wasn't Right(   Читать дальше...   )Жанр: Disco, Pop, RemixПродолжительность: 12:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913D3F86E61203F4455183514DF3BD4BDC1305C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103845   (883642) от 13.02.2017
+
+VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+001. Зара - Забыть О Тебе 3:32
+002. Alex 67 - Сумасшедшая 3:18
+003. Alvarez - Sin Miedo 4:12
+004. Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42ED724DB9CDC717AD7B161F983D67A481B2806A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103831   (883640) от 13.02.2017
+
+VA - Музыкальное потрясение зимы от Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+001. A-Sen - Губы Любят 3:16
+002. Proвокация - Два Сердца 3:35
+003. Моника - Корпоратив 3:08
+004. Елена Есенина - Тамтамы 3:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022E3F0FC85E2C0CD64A5BF9F6E7BEA45BF65D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103842   (883639) от 13.02.2017
+
+VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+001. Стас Костюшкин - Бабушка 2:58
+002. Lega - Она Мой Diamond 3:31
+003. Ira Smith - Мир В Тебе 3:12
+004. Егор Крид - Мало Так Мало 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279EF977EC8DCF075E8C064833DCF558AA8AE49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103837   (883638) от 13.02.2017
+
+VA - Музыкальное зимнее настроение. Русский сборник (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Ковалев - Ты Моя Любовь Сумасшедшая 3:02
+002. Iowa - Мои Стихи Твоя Гитара 3:14
+003. Карина - Мой Мир 2:31
+004. Галина Боб - Только С Тобой 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A148B84D2EE3B7944DD346ED30971F08631D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103834   (883631) от 13.02.2017
+
+VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+001. Аполлинария - Околдована 3:00
+002. Sigala & Digital Farm Animals - Only One 3:24
+003. Элемент - Не Мое Кино 3:03
+004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC1B4C6B945C7A30975673C747A5063D121F1A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186139   (883540) от 24.03.2010
+
+VA - Золотые песни 90-х (2009) [MP3|256 кб/c]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:20:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103827   (883517) от 13.02.2017
 
 VA - Хиты в тачку. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -6,7 +235,7 @@ VA - Хиты в тачку. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +264,7 @@ VA - Двигай Попой 17 (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +293,7 @@ VA - Музыкальные Новинки Интернета. Зимний Вы
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +322,7 @@ VA - Весенняя сотка любимой музыки. Часть 6 (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +351,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +380,7 @@ VA - German Top 100 Single Charts 03.04.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +409,7 @@ VA - Stand By Me: Planet Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -201,84 +430,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 298700   (881726) от 21.02.2011
-
-VA - Зимний танцпол (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_881726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CE7512A42E0B8F113FC597B3F3768690C67C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298693   (881599) от 21.02.2011
-
-VA - Очень Горячая 200-ка 50/50 №3 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_881599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51515ADF1130A73784D1688B03BF7EBF1D953CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298942   (881428) от 21.02.2011
-
-VA - 200 Хитов Позитива (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_881428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC63EF02684A5AAA4EECD2DA6B18A1F4D7538434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996143   (881057) от 13.03.2016
 
 VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 кб/с] <Pop>
@@ -287,7 +438,7 @@ VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -316,7 +467,7 @@ VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +496,7 @@ VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +525,7 @@ VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +554,7 @@ VA - Танцевальная зима. Снежная 100-ка выпуск №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -432,7 +583,7 @@ VA - Автозвук. Отборный зимний хит. Выпуск № 5 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -461,7 +612,7 @@ VA - Полный отрыв выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -490,7 +641,7 @@ VA - A Day for Love: Special Valentines Day Selection. Acoustic Versions of Love
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -519,7 +670,7 @@ VA - Дискотека зимних дорог. Индустрия поп му�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -548,7 +699,7 @@ VA - Только хиты. Русский сборник на Hit FM. Верс�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -577,7 +728,7 @@ Smokie - 100% Smokie (2020) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -591,151 +742,6 @@ Smokie - 100% Smokie (2020) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA0667662AE92EB5C13305A707E10ABDADC502EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996310   (879400) от 14.03.2016
-
-VA - Оп-оп... Послушай поп (2015) MP3 (2015) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lx24 - Сегодня Пьяным Буду Вновь
-02. Mario Jefferson Feat. Jojo - Disaster
-03. Mark Sixma - Adagio For Str0ngs
-04. Master Spensor & Leila - Сила Любви(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D09552AA1499FFC5E54224B7365A05B90D2F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996685   (878985) от 14.03.2016
-
-VA - Популярный хитовый музыкайф. 100 хитов (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn Feat. Jasmine Thompson - Ain't Nobody
-02. T-Killah - Доброе Утро
-03. Mozgi - Полицаи
-04. РЭЙ feat. Tonystar - Вселенная(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1544B01EA34948B2B8491060972AE67F5C13EB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373668   (878425) от 07.04.2020
-
-Kenny G - 100% Kenny G (2020) [MP3|320 Kbps] <Pop, Jazz, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Songbird
-02. Silhouette
-03. Forever in Love
-04. Everytime I Close My Eyes(   Читать дальше...   )Жанр: Pop, Jazz, RockПродолжительность: 06:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B551F49B0F7084D09CE36C5C9EA46B9AAE1ADFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996687   (877197) от 15.03.2016
-
-VA - Сборник от CJ.Koka v.01 (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aisha - Поцелуи[03:13]
-002. Alekseev - Пьяное Солнце (Dj Konstantin Ozeroff & Dj Sky Radio Edit)[03:01]
-003. Artik & Asti - Тебе Все Можно (Remphil Radio Remix)[04:05]
-004. C-Block - So Strung Out (The Distance & Riddick Edit)[06:41](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBD4BAE6B3658118BF0489F179BED4785925ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105312   (876740) от 17.02.2017
-
-VA - Снежный популярный отрыв выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876740.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Бужинская - Просила Бога 3:49
-002. Тимси - Медленный Рассвет 4:04
-003. Алиса Вокс & Феликс Бондарев - Зал Ожидания 3:22
-004. Kristina Dux - По Сценарию 4:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C8EF65D69FA3E84A690DB0D56FE9284BEEDED9
 ```
 
 https://mybot314.ru/tekegram_catalog/

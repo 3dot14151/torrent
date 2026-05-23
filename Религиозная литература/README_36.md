@@ -1,3 +1,112 @@
+###  Публикация: 1125703   (767074) от 16.04.2017
+
+Еп. Александр Милеант | Справочник  "Религии и Секты  в Современной  России" (1998) [FB2, PDF, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: FB2, PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F401DD26039387BC37A4C7E393233FE89F211FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125609   (766323) от 17.04.2017
+
+Новая Москва (изд.) | Комсомольская пасха (1924) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+„Современное общество все построено на эксплуатации громадных масс рабочего класса ничтожным меньшинством населения, принадлежащим к классам землевладельцев и капиталистов.
+
+Экономическое угнетение рабочих неизбежно порождает и вызывает всякие виды угнетения политического принижения, социального огрубения и затемнения духовной и нравственной жизни масс.
+(   Читать дальше...   )Жанр: История, политология, религиоведение, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F6AFBFCAC6A6B7B84D7324A71813FEFCAAFC75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126191   (766285) от 17.04.2017
+
+Н. В. Румянцев | Пасхальная мифология (1924) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В предисловии к одной из своих последних работ мы писали, что „всякий раз, как приближается какой-нибудь более или менее крупный церковный праздник, каждому просвещенцу-антирелигиознику, — а эти два понятия должны сопутствовать, — представляется удобный случай или повод показать темным, т.е. верующим массам, какова историческая ценность и истинный смысл лежащих в (   Читать дальше...   )Жанр: История, политология, религиоведение, мифологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4466C7E315B594630FB92C14D53DF36BB0C826D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521173   (766168) от 01.01.2022
+
+Святитель Феофан Затворник (сост.) | Святоотеческие наставления о молитве и трезвении или внимании в сердце к Богу и истолкование молитвы Господней словами святых отцов (2008) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга «Святоотеческие наставления о молитве и трезвении или внимании в сердце к Богу и истолкование молитвы Господней словами святых отцов» необходима каждому истинно верующему православному христианину.
+
+Сборник, составленный святителем Феофаном Затворником, содержит наставления святых отцов церкви Василия Великого, Иоанна Златоуста, преподобного Нила Синайского, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D11E5B3ED65809BC201E18FB8B674635B68BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279476   (766126) от 29.01.2019
 
 Энцо Бьянки | Лексикон внутренней жизни (2010) [PDF, DJVU]
@@ -6,7 +115,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,110 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33467AB62F568D0B9D23D27B04137E345DE5FD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215394   (759837) от 25.03.2018
-
-Рене Жирар | Миф ли Евангелие? (1996) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная статья посвящена сравнительному анализу Евангелий и мифических текстов. В ней автор утверждает ошибочность взглядов большинства антропологов на новозаветные тексты как на разновидность мифических. В ходе своего исследования он приходит к заключению, что Евангелия являются своеобразной деконстукцией мифов, ключом к их интерпретации и в силу этого не могут быть (   Читать дальше...   )Жанр: Религоведение, философияФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2502660B0316034A41D32ECB8A49CD93EE52BC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214989   (759830) от 25.03.2018
-
-Э. Мутье-Руссэ | Существовал ли Иисус Христос? (1929) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагая вниманию русского читателя перевод вышедшей в 1922 г. книги французского исследователя Мутье-Руссэ, мы к серии наших изданий по вопросу об историчности Иисуса Христа присоединяем новую работу, которая в некоторых отношениях превосходит всю иностранную и русскую литературу о проблеме Христа. Основное ее достоинство - это легкость, доступность, мы бы сказали, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9618E4FDEC887EFB97475E68EFC4FEC7175313B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017728   (759292) от 18.05.2016
-
-Дмитрий Степовик | История Киево-Печерской Лавры (2001) [PDF, DJVU] [Uk]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография профессора Киевской Духовной Академии Дмитрия Степовика освещает историю одного из древнейших и крупных мужских монастырей Украины - Киево-Печерской Лавры на протяжении всей истории монастыря - от 1051 до 2001 года. Работа состоит из четырех разделов и научного аппарата (приложений). Рассматриваются вопросы основателей монастыря, организации духовного (   Читать дальше...   )Жанр: Православие, историяФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E9FBBA7FB1794699962307FD7865F95D72BA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018061   (759201) от 18.05.2016
-
-М. В. Шкаровский, священник Илья Соловьёв | Церковь против большевизма (2013) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759201.jpg" />
-</div>
-
-
-###  Подробнее
-
-В годы Второй мировой войны на занятых немцами прибалтийских территориях Советского Союза произошли такие церковно-общественные события, значение которых для последующей церковной жизни России трудно переоценить. Речь идет о создании Миссии Экзархата Московской Патриархии для возрождения церковной жизни на освобожденных от коммунистической власти землях. Эта Миссия, (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4886AC839F8D291C5A86507259580B31D8C0BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

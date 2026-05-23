@@ -1,50 +1,21 @@
-###  Публикация: 1478556   (1007500) от 09.07.2021
+###  Публикация: 1479969   (1009349) от 26.06.2021
 
-VA - Jangrua Vol. I (2020) [AAC|~310 Kbps] <Psy-Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Totem Hotel, Nora - Elektronik Waveporn Terror (10:20)
-02. Data Entry - Ketanf (8:13)
-03. Thongoro, Monomano - Brisskar (11:12)
-04. Data Entry, FoldingCircus - Solid Space (8:08)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A787D1BAB7ECCC54BDDC05552AF65900264625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478558   (1007499) от 09.07.2021
-
-VA - Jangrua Vol. II (2021) [AAC|~305 Kbps] <Psychill, Downtempo>
+Thunda - Enlightened (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Bobek - Omega -1 (8:51)
-02. Dr. Sinapsis - Forester Hill (7:25)
-03. Bobek - Time Fluctuation (10:36)
-04. Bobek, Nora - Folie à Deux (9:12)(   Читать дальше...   )Жанр: Psychill, DowntempoПродолжительность: 01:39:58
+01. Metalized Thunder
+02. Enlightened
+03. Savage Lover
+04. Midnight Warriors(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:48
 
 ## Скачать торент
 ```bash
@@ -56,425 +27,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477161   (1007498) от 09.07.2021
+###  Публикация: 1479979   (1009348) от 26.06.2021
 
-Scatman John - Scatman's World (1995) [AAC|~329 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcom To Scatland (0:54)
-02. Scatman's World (3:45)
-03. Only You (3:46)
-04. Quiet Desperation (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D10717DA600C2187CFFCDE7AB859A8343E55BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478801   (1007497) от 09.07.2021
-
-Fancy - Get Your Kicks (1985) [AAC|~369 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice (5:06)
-02. Get Your Kicks (5:30)
-03. L.A.D.Y O. (4:19)
-04. Slice Me Nice / Chinese Eyes (Special Mix) (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22822AA48AC49C8B6C94DE87EE5517787B634C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476499   (1007496) от 09.07.2021
-
-Игорь Саруханов - Скрипка-лиса (1997) [AAC|~340 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скрипка-лиса (6:20)
-02. Рыжая звезда (4:22)
-03. Вчерашний день (4:55)
-04. Маленькая девочка (5:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA293A77232AD66DB3EB21CF777826AF73F017CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478804   (1007495) от 09.07.2021
-
-Fancy - Contact (1986) [AAC|~359 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reaving Queen (4:22)
-02. I Don't Want To Go (4:06)
-03. Bolero (Hold Me In Your Arms Again) (4:04)
-04. Feedback, Feedback (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0C1B3540F66EE3DE8E3AA5502EA949DFF5ED0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476491   (1007494) от 09.07.2021
-
-Игорь Саруханов - Лучшие песни 2 (1994) [AAC|~311 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я хочу сойти с ума (4:45)
-02. Флейта в саду (6:16)
-03. Поминальная (5:38)
-04. На Чёрном море (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6051D7BD32D6687362CE3A7EE99826A0C70665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478391   (1007493) от 09.07.2021
-
-Ottawan - Ottawan (1980) [AAC|~351 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.I.S.C.O. (5:03)
-02. Hello Rio! (4:27)
-03. Shalala Song (3:41)
-04. Tant que durera la nuit (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82FEB0CA852810D5096FAA860CD3DAE37DB13D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482654   (1007492) от 09.07.2021
-
-Женя Полонская - Вот Такая Любовь! (2006) [APE|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В Шератон отеле
-02. Разведённые мосты
-03. Вот такая любовь !
-04. Москва-Петербург(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD20FCBE90F715206BE6B100D1EDED591107C7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477168   (1007491) от 09.07.2021
-
-Garbage - No Gods No Masters (2021) [AAC|~321 Kbps] <Rock, Alternative>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007491.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. The Men Who Rule the World (4:27)
-1.02. The Creeps (3:34)
-1.03. Uncomfortably Me (3:17)
-1.04. Wolves (4:17)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0E1AA0EEB747F8395E6DE1E009C2081D90F188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482616   (1007490) от 09.07.2021
-
-Microsoft Edge 91.0.864.67 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4840EB34A888F22A06F1C79EBAF5FCD5F26F997D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479274   (1007489) от 09.07.2021
-
-Muse - Origin of Symmetry (XX Anniversary RemiXX) (2021) [AAC|~347 Kbps] <Alternative>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Born (6:04)
-02. Bliss (4:15)
-03. Space Dementia (6:22)
-04. Hyper Music (3:22)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFF62F22FAFF91F84BABA9D3BDBC4F150DC3DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478393   (1007488) от 09.07.2021
-
-Ottawan - Ottawan 2 (1981) [AAC|~341 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hands Up (Give Me Your Heart) (4:52)
-02. Siesta For Two (4:01)
-03. A.I.E. Is My Song (3:31)
-04. Sing Along With The Juke-Box (4:04)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE17C010469F50C8769B96E97CABE0BBB69EB1A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476469   (1007487) от 09.07.2021
-
-Игорь Саруханов - Лучшие песни (1993) [AAC|~339 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маскарад (5:03)
-02. Ящики почтовые (3:40)
-03. Позади крутой поворот (4:12)
-04. Barber (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2FCA2E55C48BF47A25C74A67DF6B650A9347989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477170   (1007486) от 09.07.2021
-
-Maroon 5 - JORDI (Deluxe) (2021) [AAC|~319 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maroon 5, Megan Thee Stallion - Beautiful Mistakes (3:47)
-02. Lost (2:53)
-03. Maroon 5, blackbear - Echo (2:59)
-04. Lovesick (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FBB7F134B76C6426D97AD2476CC305D2A194B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482729   (1007485) от 09.07.2021
-
-Submerge 3 v3.7.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
-Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Арабский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95CDDFE98B24AC334B20E3A6085FDFF96BF5841B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477897   (1007484) от 09.07.2021
-
-BTS - BTS, THE BEST (2021) [AAC|~323 Kbps] <k-pop>
+Ferdy Doernberg - Just A Piano A nd A Handful Of Dreams (1995) [FLAC|Lossless|image + .cue] <Rock>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-1.01. Film out (3:37)
-1.02. DNA (Japanese Version) (3:44)
-1.03. Best Of Me (Japanese Version) (3:48)
-1.04. Lights (4:51)(   Читать дальше...   )Жанр: k-popПродолжительность: 01:28:56
+01.88 Keys
+02.Over The Edge
+03.Just A Piano And A Handful Of Dreams
+04.Alone(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:23
 
 ## Скачать торент
 ```bash
@@ -486,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479269   (1007483) от 09.07.2021
+###  Публикация: 1479976   (1009347) от 26.06.2021
 
-Alicia Keys - Songs in A minor (20th Anniversary Edition) (2021) [AAC|~331 Kbps] <Pop, R&B>
+Endless Chain - Forthcoming Past (2021) [MP3|320 Kbps] <Hard & Heavy Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Piano & I (1:52)
-02. Girlfriend (3:35)
-03. How Come You Don’t Call Me (3:58)
-04. Fallin’ (3:30)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:19:59
+01. Forthcoming Past
+02. They’re the Ones to Fall
+03. Hold Out Hope
+04. All of the Above(   Читать дальше...   )Жанр: Hard & Heavy MetalПродолжительность: 00:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76FAB0B82FBCD8C809748023466C1492038E9BC8
+magnet:?xt=urn:btih:BAF314759075DC9E0A8C45E501F257D144003EBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476577   (1007482) от 09.07.2021
+###  Публикация: 1479967   (1009346) от 26.06.2021
 
-Yello - Yello 40 Years (2021) [AAC|~337 Kbps] <Synthpop>
+Midgar - Unity (2021) [MP3|320 Kbps] <Alt. Rock, Post-Hardcore, Modern Classical>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-1.01. Bimbo (3:35)
-1.02. Pinball Cha Cha (3:24)
-1.03. The Evening’s Young (3:08)
-1.04. Bananas to the Beat (2:58)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 04:46:38
+01 - Prelude [00:01:15]
+02 - Ascension [00:03:11]
+03 - We Don’t Make The Rules [00:03:16]
+04 - Disciple [00:04:07](   Читать дальше...   )Жанр: Alt. Rock, Post-Hardcore, Modern ClassicalПродолжительность: 00:50:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F929E9BABB08FCF97211E826DA84B1758685DA9C
+magnet:?xt=urn:btih:C776DC83A41B50F36DEEAA739DA25C4E02A60539
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +114,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482607   (1007481) от 09.07.2021
+###  Публикация: 1479965   (1009345) от 26.06.2021
 
-Pastore - Phoenix Rising (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+Light The Torch - You Will Be the Death of Me (2021) [MP3|320 Kbps] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 - More Than Dreaming [00:03:09]
+02 - Let Me Fall Apart [00:03:27]
+03 - End of the World [00:03:17]
+04 - Wilting in the Light [00:03:48](   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC991042011B1B71D4BC5FD3CB89390F2DB392AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479961   (1009344) от 26.06.2021
+
+Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz Funk, Groove, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Let's Have Fun - 03:30
+2. American Dream - 04:12
+3. Southern Hospitality(Feat. Mark Rapp) - 04:01
+4. Genuine Love - 04:17(   Читать дальше...   )Жанр: Fusion, Jazz Funk, Groove, SoulПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB1A03D930F659F92167610407DFE56AAF298DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479951   (1009343) от 26.06.2021
+
+Lacuna Coil - Live From The Apocalypse (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Phoenix Rising
-02. Damn Proud
-03. Symphony Of Fear
-04. March Of War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:51
+01. Anima Nera (1:54)
+02. Sword of Anger (3:27)
+03. Save Me (4:28)
+04. Now Or Never (4:20)(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 01:03:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A12E19A5B14200BD7ED4421D15631F04E4AC5B6A
+magnet:?xt=urn:btih:45C814D94A68CE1F887A2C54122F78DEA4791B32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,26 +201,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482557   (1007480) от 09.07.2021
+###  Публикация: 1479954   (1009342) от 26.06.2021
 
-Find Any File (FAF) 2.3.1 b1 [Multi]
+Иэн Келли, Вивьен Вествуд | Вивьен Вествуд (2015) [PDF, FB2, EPUB, MOBI]
 
->>Архив торрентов
->>Архив 4Apple
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+Автобиография Вивьен Вествуд, записанная Иэном Келли и дополненная воспоминаниями родных и друзей королевы панка, – захватывающая история талантливой женщины с сильным характером, пробившей себе дорогу к славе. Она увлекалась роком, создала панк, над ней смеялись журналисты, её оскорбляли прохожие, когда она появлялась на улице в своих экстравагантных нарядах. Вивьен (   Читать дальше...   )Жанр: Дизайн, Зарубежная литература о культуре и искусствеПеревод: Татьяна ЗотинаФормат: PDF, FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E1C31AC7D812A5FCCF143AFE419DD2B0C50C593
+magnet:?xt=urn:btih:A5B0D5C9D805ADB90C485B06912A61182EB36C86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482396   (1007479) от 09.07.2021
+###  Публикация: 1479970   (1009341) от 26.06.2021
 
-Aphonic Threnody - The All Consuming Void (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Metal, Death Metal>
+Grateful Dead - Grateful Dead Skull And Roses (2021) 50th Anniversary Expanded Edition [MP3|320 Kbps] <Folk Rock, Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Restless
-02. Chapel Of The Dead
-03. Until I Am Empty
-04. Chamber Of Parasites(   Читать дальше...   )Жанр: Funeral Doom Metal, Death MetalПродолжительность: 01:04:42
+1. Good Lovin’ (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (17:47)
+2. Sing Me Back Home (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (10:16)
+3. Mama Tried (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (03:08)
+4. Cryptical Envelopment (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (02:25)(   Читать дальше...   )Жанр: Folk Rock, Psychedelic RockПродолжительность: 2CD, 02:26:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CA40186332BB661936AC9383ED4F36F79CAEA25
+magnet:?xt=urn:btih:51768DF8338905166687417D4F8FCA35D8FD7D09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,50 +256,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482667   (1007478) от 09.07.2021
+###  Публикация: 1479947   (1009340) от 26.06.2021
 
-Sync Folders Pro 4.3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
-Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.07.2021Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C17CAE0D93ABAAFAA43E2C015A90537CBB5FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482577   (1007477) от 09.07.2021
-
-myTracks 4.0.9 [Multi]
+Lacuna Coil - Live From The Apocalypse (2021) [MP3|320 Kbps] <Gothic Metal, Alternative Metal>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-myTracks — удобный геотаггинг фото
-myTracks — замечательное приложение, которое будет полезно многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
-Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2021Разработчик: Dirk StichlingПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и др.
+01. Anima Nera (1:54)
+02. Sword of Anger (3:27)
+03. Save Me (4:28)
+04. Now Or Never (4:20)(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 01:03:36
 
 ## Скачать торент
 ```bash
@@ -684,27 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482672   (1007476) от 09.07.2021
+###  Публикация: 1479991   (1009339) от 26.06.2021
 
-Music Tag Editor 5.7.4 [Multi]
+Frozen Crown - Winterbane (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
-Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
-Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 19.06.2021Разработчик: SwiftMediaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+01. Embrace The Night
+02. Towards The Sun
+03. Far Beyond
+04. The Lone Stranger(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1075CB536655504D761590E172ACA8B4C8C42513
+magnet:?xt=urn:btih:47CA9B374CD7BCA5F1A2310249EA22D84F3D4F04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,28 +314,422 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482481   (1007475) от 09.07.2021
+###  Публикация: 1479999   (1009338) от 26.06.2021
 
-Thelemite - Thelemism (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Frozen Crown - The Fallen King (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Unholy Steel
-02. In For The Kill
-03. Anatolia
-04. Up On The Cross(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:20
+01. Fail No More (4:10)
+02. To Infinity (4:11)
+03. Kings (4:07)
+04. I Am The Tyrant (4:49)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD94A5A573E94C87D699844F57CF03452C67F52D
+magnet:?xt=urn:btih:67234ED13F97034CFCFFA2B6098012916B5EB375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479968   (1009337) от 26.06.2021
+
+Лев Николаевич Толстой | Воскресение. Аудиоспектакль (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Роман «Воскресение» – шедевр позднего творчества Льва Толстого. Шедевром является также предлагаемая вниманию слушателей постановка этого романа – спектакль великого режиссёра Немировича-Данченко.
+
+Любовь и порок, закон и справедливость, мучительная переоценка ценностей и долгий путь к нравственному очищению и духовному прозрению – все эти глубокие драматические (   Читать дальше...   )Жанр: Литература 19 века, Пьесы и драматургия, Русская классикаПродолжительность: 02:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834DAC53E06295473EC95D03B89DF1CAA98B0F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479905   (1009336) от 26.06.2021
+
+Platinum - Iceman (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Iceman
+02. Blind Lead The Blind
+03. Freedom Fighters
+04. Still In Love With You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479908   (1009335) от 26.06.2021
+
+Jaded Heart - Fight The System (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Schizophrenic
+02. Control
+03. Not In A Million Years
+04. I Lost My Faith(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8565253AD693F07CBF51FB82376726BB4801CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480041   (1009334) от 26.06.2021
+
+White Ward - Debemur Morti (2021) EP [FLAC|Lossless|Web-DL|tracks] <Black Metal, Post Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Debemur Morti (9:07)
+02. Embers (8:02)Производство: Debemur Morti ProductionsЖанр: Black Metal, Post Metal, Atmospheric Black MetalПродолжительность: 00:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48647E3D830467D80E92F225D7C43A9C493A270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479910   (1009333) от 26.06.2021
+
+Jaded Heart - Common Destiny (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. With You
+02. Saints Denied
+03. Into Tears
+04. Buried Alive(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01::01:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480064   (1009332) от 26.06.2021
+
+Enslaved - Below the Lights (2021) [MP3|320 Kbps] <Progressive Black Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 - As Fire Swept Clean the Earth (Cinematic Tour 2020) [00:06:38]
+02 - The Dead Stare (Cinematic Tour 2020) [00:05:41]
+03 - The Crossing (Cinematic Tour 2020) [00:09:37]
+04 - Queen of Night (Cinematic Tour 2020) [00:06:11](   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480057   (1009331) от 26.06.2021
+
+Modest Mouse - The Golden Casket (2021) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 - Fuck Your Acid Trip [00:03:11]
+02 - We Are Between [00:03:52]
+03 - We're Lucky [00:02:44]
+04 - Walking And Running [00:03:01](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3446CDAF7BBDCBEAF97FC6E17DB3CB3CFBD2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480052   (1009330) от 26.06.2021
+
+Subset - Lacidus (2021) [FLAC|Lossless|Web-DL|tracks] <Techno, Dub Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. LacidusПроизводство: Superordinate Dub Waves – SUPDUB299Жанр: Techno, Dub TechnoПродолжительность: 00:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0226BFB8CC8E3EB4F9A40A13CB9011FC19974408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480072   (1009329) от 26.06.2021
+
+Спикер - Медленный День (2021) EP [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Depressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Суицидница (2:01)
+02. Ангел Ночи (3:23)
+03. Любовь - Тяжёлый Наркотик (8:17)
+04. Медленный День (4:16)(   Читать дальше...   )Производство: Not On Label (Спикер Self-released) – spkr-01Жанр: Atmospheric Black Metal, Post Black Metal, Depressive Rock, ShoegazeПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280CD79A1D5745DD84B7D7CBF9EAE8058DD3D52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479688   (1009328) от 26.06.2021
+
+SkyEye - Soldiers Of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival
+02. King Of The Skies
+03. Soldiers Of Light
+04. Constellation(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AE6B93A750AFA4B9FB8D7FE148E3F57067A16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479695   (1009327) от 26.06.2021
+
+Lucifer's Hammer - The Trip (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. The Opression
+02. The Forest Of Tar Tac
+03. Land Of Fire
+04. All Stories Come To An End(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77651C56B23376ADE50DB6AFEA38ECBC1B0C5300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479644   (1009326) от 26.06.2021
+
+Храм Рождества Пресвятой Богородицы (изд.) | Помоги Господи! 160 ответов на вопросы новоначальных христиан (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит ответы на вопросы новоначальных христиан.
+
+Что такое грех?
+Грех — это всё то, что делает нас противниками Богу, что разлучает нас с Богом: наши дурные мысли, слова, поступки. Почему же всё это так ненавистно Господу? Потому что одно из Его имён — Бог Любви. Любой грех — это в итоге нарушение закона любви к Богу или к ближнему. Поэтому так важно наше (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EA7B5145FC0DFDB52E398F868E8E138F048CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479966   (1009325) от 26.06.2021
+
+Розамунда Пилчер | Возвращение домой (2018) [PDF, FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Возвращение домой» – один из лучших романов Пилчер. Его знают во всём мире благодаря многочисленным изданиям на разных языках и знаменитому телесериалу. История взросления Джудит Данбар, юной девушкой оказавшейся в разлуке с семьёй и вынужденной идти по жизни самостоятельно, не может не покорить читательские сердца. Дружба с богатой сверстницей, общение с кругом (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Андрей НикифоровФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2526E93E463BCA938839CF8525135ADA918605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479977   (1009324) от 26.06.2021
+
+Пятеро на одного (26.06.2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4ACCB7B94EC9B97C3FF32B958022032ECC43E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

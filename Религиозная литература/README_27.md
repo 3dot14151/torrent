@@ -1,3 +1,107 @@
+###  Публикация: 1117616   (817192) от 23.03.2017
+
+Благовест (изд.) | Достопамятные сказания о подвижничестве святых и блаженных отцов (2014) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказаний о святых и блаженных отцах Церкви - бесценный памятник христианского благочестия первых веков христианства. Примеры из жизни таких столпов Церкви, как Антоний Великий, Макарий Египетский, Пимен Великий и многих других подвижников, населявших в IV и V веках пустыни Египта и Палестины, учили многие поколения христиан точному исполнению евангельских (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF854929648399A01E4844A15A483F0AA7685008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117486   (817191) от 23.03.2017
+
+И. П.  Вороницын | А. И. Герцен и религия (1928) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В работе рассказано об антирелигиозных взглядах великого русского революционера, писателя и публициста А. И. Герцена (1812-1870), об их влияние на революционно-демократическую молодёжь России.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEEEDFF3C3036B50CBC913335A42AD9B31376DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117834   (817188) от 23.03.2017
+
+Александр Александрович Вишневский | Каноническое право. Древняя Церковь и Западная традиция (2006) [DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В основу книги легли лекции, прочитанные автором в ряде учебных заведений. Автор считает, что без канонического права Древней Церкви ("начала начал") говорить о любой традиции в каноническом праве бессмысленно. Западная и Восточная традиции имеют общее каноническое ядро – право Древней Церкви. Российскому читателю, интересующемуся данной проблематикой, (   Читать дальше...   )Жанр: Каноническое правоФормат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91474CE604342CFE2ABCE19800A60D231443A466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117637   (817180) от 23.03.2017
+
+Л.А. Ильюнина | Золотая цепь старчества. Русское старчество XX века (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены «лики святости», которые явило старческое служение на протяжении веков в разных концах мира, но прежде всего на Русской земле в самое плодоносное для святости XX столетие. «Золотой цепью святости» называется старческое служение - как звенья в цепи, связаны друг с другом подвижники. Прежде чем стать наставниками-старцами, все они были учениками, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1607E5C4A568DDC4924EE8412FBC2021CECEDCD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117647   (816908) от 23.03.2017
 
 Ковчег (изд.) | Между раем и адом. Книга видений и свидетельств о жизни души в загробном мире (2009) [DJVU, PDF]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,116 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29BF830710BA1A416C2572FFE9D1F456BC9E0B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383241   (811738) от 15.05.2020
-
-В.И.Будько, Н.Н.Наумова | Кярово Храм Покрова Божией Матери  (2004) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальные места Псковской области. В этих краях у Чудского озера было Ледовое побоище Александра Невского, здесь местная истребительная рота прикрывала отход наших войск в 1941 году.
-На берегу реки Чермы, среди старинных деревьев, на высоком холме, находится небольшая церковь с колокольней, выстроенная в 1789 году на средства графа и генерал-адъютанта Коновницына (   Читать дальше...   )Жанр: Исторический, религиозныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C136759D7CA939256CADAD4B889C341969840E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197959   (810358) от 10.01.2018
-
-Священник Виктор Кузнецов | Путями Гоголя (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решил Василий совершить путешествие по родным местам писателя Николая Васильевича Гоголя. По пути много неожиданностей и событий случается с ним. Он сравнивает большие и маленькие изменения, произошедшие на Украине за двадцать лет, прошедшие после его первого путешествия совершённого им по Малороссии.
-
-По пути читает в томике Гоголя много мудрого, раскрывающего смысл (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7EFC1368C8356EDE07E1CBF3E890EF5A3DA863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198120   (810251) от 10.01.2018
-
-Священник Виктор Кузнецов | У пяти старцев [Духовные наставления] (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810251.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге автор описывает свои встречи с великими нашими старцами-современниками, с которыми ему довелось встречаться. Старцами — схиигуменом Иеронимом (Верендякиным), протоиереем Николаем (Гурьяновым), схиархимандритом Феофаном (Даньковым), архимандритом Кириллом (Павловым), архимандритом Адрианом (Кирсановым).
-
-Интересные описания, как бесед с ними, так и (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416CB42326D5E3793F66838FDD0CCF7324532A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383461   (810116) от 16.05.2020
-
-А.М. Воронов | На берегу пустынных вод (2012) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старая Деревня. Благовещенская церковь.
-При Петре Великом хозяином земли стал Андрей Иванович Остерман. После того, как он оказался в опале и был сослан Елизаветой Петровной, владельцем участка стал гофмейстер двора императрицы Анны Иоанновны, Петр Михайлович Бестужев-Рюмин. Позднее мыза «Каменный нос»принадлежала его сыну канцлеру, графу Алексею Петровичу. Для благоустройства (   Читать дальше...   )Жанр: Исторический,РелигиозныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F57F919FDACE4F902871F23E3EBBD1B217E7DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

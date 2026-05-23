@@ -1,3 +1,107 @@
+###  Публикация: 1749381   (43586) от 14.09.2024
+
+LUNARiA -Virtualized Moonchild- (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+LUNARiA -Virtualized Moonchild- адвенчура, основанная на повествовании, которая исследует пересечение виртуальной реальности и человеческих связей. В центре сюжета - Т-БИТ, старшеклассник и исключительный геймер, который попадает в таинственное виртуальное пространство, известное как Лунный мир. Здесь он сталкивается с аватаром ИИ по имени LUNAR-Q, который является (   Читать дальше...   )Тип издания: SceneРазработчик: VISUAL ARTS KeyЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3508732EE59B741B9C9757CEA36B948CB570C946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749382   (43582) от 14.09.2024
+
+Everlasting Flowers - Where there is a will, there is a way (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Everlasting Flowers - Where there is a will, there is a way - это история о двух молодых женщинах. Студия SPRITE создала этот кинематографический роман. Мина, одиночка, уходит от мира. Школа становится для нее полем боя. Ее убежище? Комната, наполненная засушенными цветами. Пленница своих мыслей, она бредет сквозь бесконечные дни. Тем временем Ран, рожденная в богатстве, (   Читать дальше...   )Тип издания: SceneРазработчик: sprite, flowers.studioЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681A8B8D9CE57A7DF39A2B53E2EBD963723782AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640922   (43533) от 15.09.2024
+
+Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Яркий представитель классических приключенческих point-and-click игр с забавным сюжетом и затягивающей с первых минут игровой механикой. Молодой программист Джастин буквально раздавлен после расставания с Джулией и всё у него валится из рук. В таком состоянии легко что-то сломать, но кто же мог подумать, что главный герой с легкостью превратит неисправную микроволновку (   Читать дальше...   )Тип издания: LicenseРазработчик: Warm KittenЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CA76F5B620C9A25C068B197C82E26A129808CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749596   (43444) от 15.09.2024
+
+Dave the Diver (2023) [Ru/Multi] (1.0.2.1474/dlc) Repack Wagner
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: RepackРазработчик: MINTROCKETЖанр: Adventure, CasualЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3FA0EA4A1AED7704099BE8770177328DED93A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749866   (43416) от 16.09.2024
 
 Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
@@ -6,7 +110,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Granny Remake (2023) [Ru/Multi] (3.5.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Scene DOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Repack Fi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Subnautica (2018) [Ru/Multi] (71288) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Gunk (2021) [Ru/Multi] (1014.1.6.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Smells Like a Mushroom (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ AMEDAMA (2024) [Multi] (2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Portal Reloaded (2021) [En] (1.0.1HF) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ DREDGE (2023) [Ru/Multi] (2879/dlc) License GOG [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Spiral (2024) [Multi] (20240920PC-01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Three Alpha One Nine (2024) [En] (1.2.5.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5494AE54CE72FA0C6059B24FDA7DD7C2F0DFFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741932   (42152) от 28.09.2024
-
-Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creatures of Ava - это не типичная адвенчура по ловле монстров. Конечно, здесь есть более 20 диких существ, с которыми вам предстоит столкнуться, но вот в чем загвоздка: вы не ставите перед собой цель запереть их в шаре. Вместо этого Creatures of Ava посвящена пониманию и установлению связи с этими очаровательными существами. Вы будете использовать специальную флейту, (   Читать дальше...   )Тип издания: LicenseРазработчик: Inverge StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A2C149EF1CEC21B3A39400AF6C5A91ADC0265E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752030   (42116) от 28.09.2024
-
-Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел смерти (2006) [Multi] (1.1a) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42116.jpg" />
-</div>
-
-
-###  Подробнее
-
-После утомительных битв с драконами и древними богами майя Джордж Стоббарт, ставший Рыцарем давно забытого Святого Ордена, наконец-то смог насладится обычными буднями офисного работника. Но кто мог подумать, что однажды в его жизни появится таинственная и прекрасная незнакомка, девушка, чье внезапное исчезновение заставит Джорджа пуститься в отчаянные поиски зловещего (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution Software и Sumo DigitalЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579D2558D258786E5C5F7E667BF62E8667ABCF49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744798   (42105) от 28.09.2024
-
-Farewell North (2024) [Multi] (1.1.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Farewell North - приключение, направленное на исследование яркого мира и изучение окружения. Игровой процесс позволяет на некоторые время забыть об экшене и бродить по таинственным землям под расслабляющий саундтрек. Погрузитесь в глубокую историю о герое и его верном псе. Играйте за колли, который вместе со своим хозяином посещает различные континенты и бороздит (   Читать дальше...   )Тип издания: LicenseРазработчик: Kyle BanksЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6131F1F654FCCFFAE20537F7AE3965793027943B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751105   (42079) от 28.09.2024
-
-Paper Ghost Stories: Third Eye Open (2024) [Multi] (1.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paper Ghost Stories: Third Eye Open - это сверхъестественное приключение, рассказывающее о путешествии молодой девушки по имени Тинг, которая может видеть духов. Действие разворачивается в небольшом малазийском пригороде и охватывает пять лет детства Тинг, пока она осваивает свою уникальную способность. Геймеры взаимодействуют с друзьями, семьей и призраками, решая (   Читать дальше...   )Тип издания: LicenseРазработчик: Cellar Vault GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C7568405D2E1D76F19D22EC24D82A88A4FFAC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

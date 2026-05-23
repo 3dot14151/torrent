@@ -1,3 +1,108 @@
+###  Публикация: 1271500   (791609) от 09.01.2019
+
+Свадьба на скалах / Marriage on the Rocks (1965) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Брак героев на грани распада. Чтобы развестись по облегченной процедуре, они отправляются в Мексику.Производство: США / A-C Productions, Sinatra Enterprises, Warner Bros. PicturesЖанр: КомедияРежиссер: Джек ДонохьюАктеры: Фрэнк Синатра, Дебора Керр, Дин Мартин, Сесар Ромеро, Гермиона Бадделей, Тони Билл, Джон МакГайвер, Нэнси Синатра, Дэвей Дэвисон, Мишель ПетиПеревод: Многоголосый закадровый (Объединение "Русский дубляж")Субтитры: ОтсутствуютПродолжительность: 01:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92DDB2335A1162217F59531D47EFDDA477CEEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510319   (791422) от 16.11.2021
+
+Ярость / Fury (1936) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Нормана Красна. Джо Уилсон повенчан с Кэтрин Грант. Скоро они должны пожениться. Но для свадьбы нужны деньги, и Джо уезжает в Чикаго работать на заводе. Спустя некоторое время он увольняется и покупает бензоколонку. Заработав на автомобиль, герой пускается в путешествие к своей любимой. Неожиданно на просёлочной дороге путь ему преграждает (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: нуар, драма, мелодрама, криминал, триллерРежиссер: Фриц ЛангАктеры: Сильвия Сидни, Спенсер Трэйси, Уолтер Абель, Брюс Кэбот, Эдвард Эллис, Уолтер Бреннан, Фрэнк Альбертсон, Джордж Уэлкотт, Артур Стоун, Морган УоллесПеревод: профессиональный многоголосый (DVD Classic), профессиональный одноголосый (Светла)Субтитры: английские (SDH)Продолжительность: Качество видео: BDRip
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172CB863C9DAFB4D6B3D7399F661B886F58ACB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995645   (791183) от 02.06.2020
+
+Блеф Кугана / Coogan's Bluff (1968) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Аризонский шериф приезжает в Нью-Йорк, чтобы показать местным полицейским, как надо выслеживать разыскиваемого преступника. .....помощник шерифа из Аризоны, должен по долгу службы доставить из Нью-Йорка обратно в свой штат беглого преступника. Во время конвоирования преступнику удается сбежать при помощи своих сообщников......С этого начинаются приключения "Техасца", (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, криминалРежиссер: Дон СигелАктеры: Клинт Иствуд, Ли Дж. Кобб, Сьюзен Кларк, Тиша Стерлинг, Дон Страуд, Бетти Филд, Том Талли, Мелоди Джонсон, Джеймс Эдвардс, Руди Диас, Дэвид Дойл, Луис Зорик, Мэг Майлс, Марджори Беннетт, Сеймур Кэссел, Джон Коу, Альберт Попвелл, Конрад Бэйн, Джеймс Гэвин, Аль Хендерсон, Джеймс МакКэллион, Джесс Осуна, Джерри Саммерс, Антония Рей, Мария ЭнрикесПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173C2D9585CB2CBA1F6A12B08D62E942D5926E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510554   (790797) от 17.11.2021
+
+Тысяча клоунов / A Thousand Clowns (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённой пьесы Герба Гарднера (1962). Ник живёт в однокомнатной квартире вместе со своим дядей Мюрреем Бёрнсом, безработным сценаристом, прежде работавшим в популярном телешоу «Бурундук Чаклс» и ушедшим оттуда из-за надменности и глупости его ведущего. Однажды утром во время прогулки по Нью-Йорку мальчик сообщает, что им в школе заинтересовалась Комиссия (   Читать дальше...   )Производство: США, HarrellЖанр: драма, мелодрама, комедияРежиссер: Фред КоуАктеры: Джейсон Робардс, Барбара Харрис, Мартин Болсам, Джин Сэкс, Уильям Дэниелс, Филип Брунс, Джон МакМартин, Бэрри ГордонПеревод: профессиональный двухголосый (HTB+ по переводу Юрия Сербина)Субтитры: английские (SRT)
+Главы/чаптерыПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E66A716D295E688AD52F030C664028DE8997EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 109519   (790579) от 03.06.2020
 
 На несколько долларов больше / Per Qualche Dollaro In Piu / For A Few Dollars More (1965) BDRip
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -566,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D6F2A2FBB7C88DD85D95D9C611E92AC9E7DABFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205057   (784022) от 08.02.2018
-
-Девушка с пистолетом / La ragazza con la pistola (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из багажа у молодой сицилианки Ассунты Патане — один пистолет. Пышноусый и блудливый Винченцо Макалузо похитил ее, обесчестил и сбежал. Лишенная братьев, которые бы убили его, Ассунта под напутствия деревни покидает берега родной Сицилии, чтобы собственноручно свершить кровную месть. Путь мстительнице предстоит неблизкий — след ведет в Лондон…Производство: Италия / DocumentoЖанр: Драма, Мелодрама, КомедияРежиссер: Марио МоничеллиАктеры: Моника Витти, Стенли Бейкер, Корин Редгрейв, Энтони Бут, Карло Джуффре, Николина Веррелли, Тиберио Мурджа, Альдо Пульизи, Стефано Сатта Флорес, Хелен ДоунингПеревод: Дублированный, многоголосый закадровыйСубтитры: ИтальянскиеПродолжительность: 01:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA6C945DD864515E513F71D4822F672D855C10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389882   (783879) от 12.06.2020
-
-Загнанных лошадей пристреливают, не правда ли? / They Shoot Horses, Don't They? (1969) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка в тяжелые годы Великой депрессии. Всюду безработица и бедность. Люди берутся за любую работу, чтобы заработать на кусок хлеба и крышу над головой. Поэтому не удивительно, что танцевальный марафон с призом в 1500 долларов легко собрал в мрачном ангаре на побережье несколько десятков участников со всей страны. Все они такие разные, но каждый готов на все ради (   Читать дальше...   )Производство: США / American Broadcasting Company (ABC), Palomar Pictures CorporationЖанр: Драма, экранизацияРежиссер: Сидни ПоллакАктеры: Джейн Фонда, Майкл Сарразин, Сюзанна Йорк, Гиг Янг, Ред Баттонс, Бонни Беделиа, Майкл Конрад, Брюс Дерн, Аль Льюис, Роберт ФилдсПеревод: Дублированный, авторскийСубтитры: Русские (Full), английские (Full)Продолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0755245AAD10ED1494AD8587EEECF80DC75A3EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382500   (783876) от 12.06.2020
-
-Шинэндоа / Shenandoah (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место и время действия: Вирджиния в эпоху Гражданской войны. Герой фильма отказывается поддерживать конфедератов, он против рабства, однако не хочет становиться и на сторону северян, так как совершенно не приемлет войны. Когда его сын попадает в плен, Стюарт отправляется на поиски мальчика. Теперь он собственными глазами видит ужасы войны и в результате вынужден (   Читать дальше...   )Производство: США / Universal PicturesЖанр: Драма, Вестерн, ВоенныйРежиссер: Эндрю В. МакЛагленАктеры: Джеймс Стюарт, Даг МакКлёр, Гленн Корбетт, Патрик Уэйн, Розмари Форсайт, Филлип Элфорд, Кэтрин Росс, Чарльз Робинсон, Джим МакМуллан, Тим МакИнтайрПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D401C4FE8DAB20D186B8175C37855B464A3B298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101611   (783616) от 13.06.2020
-
-Северино / Severino (1978) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Северино, южноамериканский индеец из племени манзанеро, возвращается в родную деревню после 10-летнего отсутствия, чтобы забрать с собой своего младшего брата. Он работал у белых, скопил денег и теперь собирается купить земельный участок на Севере, чтобы начать новую жизнь.
-Но в его родной деревне драматически обострилась ситуация. Кто-то угоняет скот, нападает на (   Читать дальше...   )Производство: Германия (ГДР), DEFAЖанр: Драма, ВестернРежиссер: Клаус ДобберкеАктеры: Гойко Митич, Виолетта Андрей, Constantin Fugasin, Мирча Ангелеску, Эманоил Петруц, Леон Немчик, Хельмут Шрайбер, Томас Вольф, Ион Дикисяну, Юрие ДариеПеревод: Дублированный, киностудия "Союзмультфильм"Продолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48EE4C64EB45D25D9C151AB25DB9F6BCF379715
 ```
 
 https://mybot314.ru/tekegram_catalog/

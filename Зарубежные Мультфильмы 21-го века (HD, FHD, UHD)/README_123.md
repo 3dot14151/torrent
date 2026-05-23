@@ -1,3 +1,83 @@
+###  Публикация: 1726103   (55222) от 27.05.2024
+
+Четыре души Койота / Kojot negy lelke / Four Souls of Coyote (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Венгерский анимационный фильм о том, как коренные американцы борются за свою землю, протестуя против строительства нефтепровода на их территории. Индейцы желают жить в гармонии с природой, но нефтяная корпорация жаждет проложить свой нефтепровод через исторические земли, имеющие ценность для коренного населения. Старейшина рассказывает молодым потомкам древний миф (   Читать дальше...   )Производство: Венгрия / Cinemon EntertainmentЖанр: мультфильм, боевик, драма, приключенияРежиссер: Арон ГаудерАктеры: Карин Энглин, Кле Беннетт, Джон Эрик Бентли, Янош Папп, Петер Божо, Герда Пикали, Петер Шерер, Тамаш Селеш, Балинт Вида, Сара ВидаПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:46:06Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0251F87BEE6301A9188A50787E47CC283E0B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726249   (55215) от 27.05.2024
+
+Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.
+По готовится стать духовным лидером своей Долины Мира, но ему также нужен кто-то, кто займет его место Воина Дракона. Таким образом, он будет обучать нового практикующего кунг-фу для этого места и столкнется со злодеем по имени Хамелеон, который вызывает злодеев из прошлого.Производство: США, Китай / DreamWorks Animation, DreamWorks SKG, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B405C2FCF7B8A6E2E15EE63E4145A813AE5CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726297   (55122) от 28.05.2024
+
+Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.
+По готовится стать духовным лидером своей Долины Мира, но ему также нужен кто-то, кто займет его место Воина Дракона. Таким образом, он будет обучать нового практикующего кунг-фу для этого места и столкнется со злодеем по имени Хамелеон, который вызывает злодеев из прошлого.Производство: США, Китай / DreamWorks Animation, DreamWorks SKG, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: Дублированный (Red Head Sound), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54CB9AB1D040538B433D561F5BF9F44031403888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726303   (55109) от 28.05.2024
 
 Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) BDRip [H.264/720p]
@@ -6,7 +86,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -435,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -461,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -515,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -542,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -595,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -606,88 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B3EBC2A79BDF5658940E9954F2FC98BC80D64BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728118   (53282) от 15.06.2024
-
-Южный Парк: Конец ожирения / South Park: The End of Obesity (2024) WEB-DL [H.264/1080p] TVShows, HDrezka, Кубик в Кубе, RuDub
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появление нового средства для похудения вызывает волнение в Южном Парке. Однако, когда Картману отказывают в доступе к препарату, дети решают вмешаться. После этого главные герои также решают взяться за улучшение американской системы здравоохранения, однако оказывается, что у препаратов есть жёсткие побочные эффекты.Производство: СШАЖанр: мультфильм, комедия, сатираРежиссер: Трей ПаркерАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Айзек Хейз, Эйприл Стюарт, Элиза Шнайдер, Мэри Кэй Бергман, Эдриан Бирд, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: профессиональный многоголосый закадровый (TVShows, HDrezka),
-профессиональный двухголосый закадровый (Кубик в Кубе),
-любительский многоголосый закадровый (RuDub)Язык озвучки: русский, английскийСубтитры: русские (Forced), английские (full, SDH)Продолжительность: ~00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F0E57E77370D0BBBC79C677B5D73BCA576E94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728124   (53263) от 15.06.2024
-
-Южный Парк: Конец ожирения / South Park: The End of Obesity (2024) WEB-DL [H.264/720p] TVShows, HDrezka, Кубик в Кубе, RuDub
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появление нового средства для похудения вызывает волнение в Южном Парке. Однако, когда Картману отказывают в доступе к препарату, дети решают вмешаться. После этого главные герои также решают взяться за улучшение американской системы здравоохранения, однако оказывается, что у препаратов есть жёсткие побочные эффекты.Производство: СШАЖанр: мультфильм, комедия, сатираРежиссер: Трей ПаркерАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Айзек Хейз, Эйприл Стюарт, Элиза Шнайдер, Мэри Кэй Бергман, Эдриан Бирд, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: профессиональный многоголосый закадровый (TVShows, HDrezka),
-профессиональный двухголосый закадровый (Кубик в Кубе),
-любительский многоголосый закадровый (RuDub)Язык озвучки: русский, английскийСубтитры: русские (Forced), английские (full, SDH)Продолжительность: ~00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078188E6232CEBA125725CE320A0ABCFAFA5878F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730262   (53245) от 15.06.2024
-
-Ультрамен: Путь к вершине / Ultraman: Rising (2024) WEB-DL [H.264/1080p] [EN / RU, EN, UKR Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звезда бейсбола Кен Сато вслед за своим отцом становится супергероем Ультраменом, чья сила заключается в способности вырастать до размера небоскреба. После сражения с драконом Кен неожиданно для себя становится опекуном маленького кайдзю.Производство: Япония, США / Netflix Animation, Tsuburaya Productions, Industrial Light & Magic (ILM)Жанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Шеннон Тиндл, Джон АосимаАктеры: Крис Фрил, Роб Фукудзаки, Hiro Nakamura, Гедде Ватанабэ, Тэмлин Томита, Кион Янг, Фрэнк Бакли, Франсуа Чау, Джулия Харриман, Robert YasumuraПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, украинские и др (см. MediaInfo)Продолжительность: 02:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A8F831C7DFD0AA552FC63AD672844411DBD674
 ```
 
 https://mybot314.ru/tekegram_catalog/

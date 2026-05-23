@@ -1,3 +1,175 @@
+###  Публикация: 201921   (767015) от 20.05.2010
+
+Джузеппе Верди - Травиата (Анна Нетребко, Зальцбург) / G. Verdi - La Traviata. Premium Edition (Salzburg, Netrebko) (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия знаменитой постановки одной из самых популярных опер всех времен на Зальцбургском фестивале 2005 года, выпущенная легендарным германским лейблом Deutsche Grammophon GmbH, славящегося своими стандартами в области звукозаписи классической музыки.
+В главных ролях только наши современники - звезды мировой оперной сцены и дива Анна Нетребко, представшая здесь (   Читать дальше...   )Жанр: МузыкаРежиссер: Вилли Декер, Брайан ЛанджАктеры: Анна Нетребко (Anna Netrebko), Роландо Вилазон (Rolando Villazon), Томас Хэмпсон (Thomas Hampson), Сальваторе Корделла (Salvatore Cordella), Элен Шнейдерман (Helene Schneiderman)Перевод: ОригинальныйЯзык субтитров: Английские, Немецкие, Французские, Испанские, Итальянские, КитайскиеПродолжительность: 02^12^00 минуты (опера) +00^ 47^00 минут (бонусы)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125506   (766963) от 16.04.2017
+
+Def Leppard - And there will be a next time... Live from Detroit (2017) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+1 Let’s Go
+2 Animal
+3 Let It Go(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: Jim YukichАктеры: Def LeppardПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD22F455836C199387591E509915277B606F903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279158   (766748) от 28.01.2019
+
+Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bee Gees – пожалуй, самый успешный семейный проект в истории музыки. Группа «Би Джиз» состояла из трех братьев – Барри, Мориса и Робина Гиббов, их песни в 1970-х годах стали символом этого стильного времени с его цветастыми рубашками, длинными волосами и брюками-клеш. Общий объем мировых продаж пластинок Bee Gees превышает 100 миллионов копий, за что их называют (   Читать дальше...   )01. Ordinary Lives
+02. Giving Up The Ghost
+03. To Love Somebody
+04. I.ve Gotta Get A Message To You(   Читать дальше...   )Производство: США, Eagle Vision MediaЖанр: Pop, Disco, Soft RockРежиссер: Рой Вуд, Петер ДеметрисСубтитры: отсутствуютПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBF98DD2AEAAF84F2C0148C45B56E9485BED927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279153   (766735) от 28.01.2019
+
+Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bee Gees – пожалуй, самый успешный семейный проект в истории музыки. Группа «Би Джиз» состояла из трех братьев – Барри, Мориса и Робина Гиббов, их песни в 1970-х годах стали символом этого стильного времени с его цветастыми рубашками, длинными волосами и брюками-клеш. Общий объем мировых продаж пластинок Bee Gees превышает 100 миллионов копий, за что их называют (   Читать дальше...   )01. Ordinary Lives
+02. Giving Up The Ghost
+03. To Love Somebody
+04. I.ve Gotta Get A Message To You(   Читать дальше...   )Производство: США, Eagle Vision MediaЖанр: Pop, Disco, Soft RockРежиссер: Рой Вуд, Петер ДеметрисСубтитры: отсутствуютПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F6F1F50F89C19C7CADD3DA70E382011B081385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279185   (766670) от 28.01.2019
+
+Bee Gees - One For All Tour Live in Australia 1989 (2018) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bee Gees – пожалуй, самый успешный семейный проект в истории музыки. Группа «Би Джиз» состояла из трех братьев – Барри, Мориса и Робина Гиббов, их песни в 1970-х годах стали символом этого стильного времени с его цветастыми рубашками, длинными волосами и брюками-клеш. Общий объем мировых продаж пластинок Bee Gees превышает 100 миллионов копий, за что их называют (   Читать дальше...   )01. Ordinary Lives
+02. Giving Up The Ghost
+03. To Love Somebody
+04. I.ve Gotta Get A Message To You(   Читать дальше...   )Производство: США, Eagle Vision MediaЖанр: Pop, Disco, Soft RockРежиссер: Рой Вуд, Петер ДеметрисСубтитры: отсутствуютПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A809A10A1ACFE048DF9BBADDDD1EDFD59A32D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126265   (766170) от 17.04.2017
+
+J.J. Cale - In Session at the Paradise Studios '1979 (2002) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия 80-минутной сессии, записанной в Лос-Анджелесе в июне 1979 года, но фактически отсутствовавшей в поле зрения меломанов вплоть до 2001 года. Отшельник Кейл – уроженец Оклахомы. В большей степени известность ему принесли песни, написанные им, но ставшие популярными, благодаря другим исполнителям ("After Midnight"и "Cocaine"Эрика Клэптона (   Читать дальше...   )1. T-Bone Shuffle
+2. Nowhere To Run
+3. Cocaine
+4. Ten Easy Lessons(   Читать дальше...   )Производство: Classic Pictures EntertainmentЖанр: Bues, RockРежиссер: Robert GarofaloАктеры: J.J. Cale,Leon Russell & BandПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9102BB70154C0825801D59E8A963B62029896F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126072   (766158) от 17.04.2017
 
 Моисей Вайнберг - Пассажирка (2017) SATRip (2 части) (Московский театр "Новая Опера" им. Е.В. Колобова)
@@ -6,7 +178,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +205,7 @@ Duran Duran - Lollapalooza Brazil (2017) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +234,7 @@ Alestorm - Концерт в Тилбурге / Alestorm - Live in Tilburg (2021
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +263,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -120,7 +292,7 @@ Max Raabe & Palast Orchester - Heute Nacht oder Nie (2009) 2xDVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +323,7 @@ Karnivool - Концерт в театре Хита Леджера / Karnivool -
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +349,7 @@ Epica - Концертное шоу Omega Alive / Epica - Omega Alive (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -236,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +490,7 @@ Axel Rudi Pell - Live on Fire (2013) 2xDVD9 <Hard rock, Melodic heavy metal>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +519,7 @@ Axel Rudi Pell - Knight Treasures (Live and More) (2002) 2xDVD9 <Heavy Metal, Ha
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +627,7 @@ Everest of Rock - 4 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +654,7 @@ A MusiCares' Tribute to Paul McCartney (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +710,7 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,171 +724,6 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD5A0AA5F3D951F01F997CA71C940D1AC8E9D7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320121   (761350) от 07.04.2011
-
-Горе от ума (1952) DVDRip (Малый Театр)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Телевизионный спектакльРежиссер: Сергей АлексеевФормат: AVIПродолжительность: 2:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FBA57694E4CE9554A3342A60DDAA342F84E3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320068   (761241) от 07.04.2011
-
-Веселая вдова (1984) SATRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Телеспектакль, экранизация оперетты, комедияРежиссер: Г. Анисимов, Т. КарповаФормат: AVIПродолжительность: 02:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA955FCB20CC453B2805FE935265025F0999B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204391   (760894) от 26.05.2010
-
-Chris Norman - THE HITS! From his Smokie and Solo years (2007) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПеревод: ОригинальныйПродолжительность: 01:38:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887126   (760571) от 11.04.2015
-
-Mylene Farmer - Avant que l'ombre... A Bercy (2006) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый концертный тур Милен Фармер. Концепция шоу разработана самой певицей совместно с продюсером. Было дано всего 13 концертов в январе 2006-го года. Потрясающие декорации, живое исполнение, красивые песни. Незабываемое впечатление.01. Introduction
-02. Peut-etre toi
-03. XXL
-04. Dans les rues de Londres(   Читать дальше...   )Производство: Франция | Stuffed MonkeyЖанр: PopРежиссер: Франсуа АнссПеревод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 02:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6242F7131C76CCD54571F5FB203EE02FBD8ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280518   (760321) от 03.02.2019
-
-Лев Лещенко - Концерт в день рождения (2019 ) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трансляция концерта Льва Лещенко "День рождения с друзьями". Выдающемуся советскому и российскому исполнителю исполняется 77 лет! Со сцены "Крокус Сити Холла" в исполнении виновника торжества и гостей вечера звучат популярные композиции.01. Лев Лещенко — Мне интересно жить
-02. Лев Лещенко — Создан для тебя
-03. Лев Лещенко, Оксана Богословская, Александр Корецкий и Детский хор радио и телевидения России — Пока горит свеча
-04. Лев Лещенко и Юрий Антонов — Зеркало(   Читать дальше...   )Производство: Россия, Первый КаналЖанр: Pop, КонцертСубтитры: отсутствуютПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B4A640F37F36857B92C384D43A53F30B487488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280481   (760311) от 03.02.2019
-
-King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760311.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 января датский хэви-метал музыкант King Diamond выпустил "Songs For The Dead Live" в форматах DVD и Blu-ray на лейбле Metal Blade Records. Пожалуй, единственным недостатком такой внушительной дискографии является то, что в ней слишком много отличных песен, чтобы они могли вместиться в один сет. Тем не менее, вам будет трудно найти фэна, который не хотел (   Читать дальше...   )01. Out from the Asylum
-02. Welcome Home
-03. Sleepless Nights
-04. Eye of the Witch(   Читать дальше...   )Производство: Metal Blade RecordsЖанр: Dark Heavy MetalСубтитры: отсутствуютПродолжительность: 01:25:24+01:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E9849628C114DD2FC20175257516C2B971B051
 ```
 
 https://mybot314.ru/tekegram_catalog/

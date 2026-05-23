@@ -1,3 +1,108 @@
+###  Публикация: 1768089   (33126) от 24.12.2024
+
+Месье Венсан / Monsieur Vincent (1947) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Картина Мориса Клоша рассказывает о жизни католического святого, основателя двух католических конгрегаций – Венсана де Поля (1581 – 1660). Фильм охватывает период с 1617 по 1660 годы и иллюстрирует наиболее драматичные эпизоды жизненного пути святого Венсана: от борьбы с чумой до создания конгрегации дочерей милосердия. Через всю свою долгую жизнь святой Венсан пронес (   Читать дальше...   )Производство: Франция / Edition et Diffusion Cinématographique (E.D.I.C.), Office Familial de Documentaire Artistique (O.F.D.)Жанр: драма, биография, историяРежиссер: Морис КлошАктеры: Пьер Френе, Эме Кларион, Жан Дебюкур, Лизе Деламар, Жермена Дермо, Габриель Дорзиа, Пьер Дюкс, Ивонн Годо, Мишель Буке, Жан КармеПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872276B597C0565C0F54F2A684B6953843285398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767431   (33064) от 25.12.2024
+
+Лазурный берег / Costa Azzurra (1959) WEB-DLRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Забавные (и не очень) истории нескольких людей, произошедшие в Каннах. Торговец овощами и его супруга, решившая стать актрисой; кинодива, прозванная «пожирательницей мужчин» и находящаяся в поисках новой жертвы; ревнивый муж-сицилиец, проводящий здесь медовый месяц со своей, затюканной им женой. Всех этих персонажей свел вместе Лазурный Берег.Производство: Италия / Glomer Film, Lux Film S.p.a., Societé Cinématographique LyreЖанр: КомедияРежиссер: Витторио СалаАктеры: Альберто Сорди, Рита Гэм, Джованна Ралли, Антонио Чифарелло, Эльза Мартинелли, Франко Фабрици, Джорджия Молл, Жорж Маршаль, Лорелла Де Лука, Жак БертьеПеревод: Одноголосый любительский, UrasikoЯзык озвучки: Русский, итальянскийСубтитры: Русские, английскиеПродолжительность: 01:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72108A981D702A0F2168DA4735A16E571C805E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769017   (32781) от 28.12.2024
+
+Мюнхгаузен / Munchhausen (1943) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь и удивительные приключения барона Иеронимуса Карла Фридриха фон Мюнхаузена, «всегда говорившего только правду», до сих пор будоражат умы любознательных читателей и серьезных исследователей. Популярность барона оправдана его редким талантом - никогда не терять присутствия духа и находить выход из самых ужасных ситуаций.Производство: Германия / Universum Film (UFA)Жанр: фэнтези, комедия, приключенияРежиссер: Йозеф фон БакиАктеры: Ханс Альберс, Вильгельм Бендов, Михаэль Бонен, Ганс Браузеветтер, Марина фон Дитмар, Эндрюс Энгельман, Кете Хаак, Бригитта Хорней, Вальдемар Лайтгеб, Вальтер ЛикПеревод: Одноголосый любительский (Сергей Рябов)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE380758F0A62029BCD2FB1EF3712434D25CB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632328   (32777) от 28.12.2024
+
+Пир хищников / Le repas des fauves (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация по произведению Вехе Катча.
+В оккупированной Франции разношерстная компания собралась, чтобы отметить день рождения одной общей знакомой. В числе гостей присутствует и дядя коллаборационист, и ветеран войны, и доктор, и педагог, и патриотка. Тем временем было убито пару немецких солдат, и гестапо к всей компании выдвигает ультиматум..Производство: Франция, Испания, Италия / CICC, Films Borderie, Flora Film S.r.l.Жанр: драма, военный, экранизацияРежиссер: Кристиан-ЖакАктеры: Франсис Бланш, Бой Гоберт, Антонелла Луальди, Адольфо Марсильяч, Клод Никот, Доминик Патюрель, Клод Риш, Френс Англаде, Жан Морис, Карлос РондаПеревод: Дублированный (1. к.ст. им. М.Горького, 2. ВПТО "Видеофильм")Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33970A79E76907F90EE9AB25B82E89C0D5E9009F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322951   (32668) от 29.12.2024
 
 Мадемуазель Нитуш / Mam'zelle Nitouche (1954) DVDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -167,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -570,112 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14899EBFA76B1653E90F927BB6A32ABDD52368E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 16138   (23784) от 23.03.2025
-
-Жить / Ikiru / To Live (1952) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старик, узнавший о скoрoй кончинe, узнавший о равнодушии близких, узнавший, что жизнь прoжита зря, решaет, чтo детская площадка на мeсте злoвонного пустыря - это то, что он оставит этому миру после себя. Слабый, умирающий старик, покорный, бессловесный чиновник стал борцом. То упорно настаивая, требуя, то умоляя и унижаясь он проходит все круги бюрократического ада. (   Читать дальше...   )Жанр: ДрамаРежиссер: Акира КуросаваАктеры: Такаси Симура, Нобуо Канеко, Секи КиокоПеревод: МногоголосыйПродолжительность: 136 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA55D1EA0236B75CE359D8CFA77B18A990D2A982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787472   (23480) от 26.03.2025
-
-Мы все отправимся в рай / Nous irons tous au paradis (1977) DVDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фильма "И слоны бывают неверны" (Un lphant a trompe normment).
-Четверо главных героев Даниэль, Этьен, Булли и Симон — неразлучные друзья и они также постоянно попадают в курьезные ситуации, которые не обходятся без участия женщин…
-Как и первый фильм, в прокат он не попал, хотя на фестивале французского кино с успехом демонстрировался.Производство: Франция / Films de la Guéville, Gaumont InternationalЖанр: комедияРежиссер: Ив РоберАктеры: Жан Рошфор, Клод Брассёр, Ги Бедос, Виктор Лану, Даниэль Делорм, Марта Виллалонга, Дженни Арассе, Жозиан Баласко, Энн-Мари Бло, Элизабет МаргониПеревод: Многоголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F062505E08C879DE39F128FDFC247E2B4E4202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789472   (22243) от 07.04.2025
-
-Синьор Робинзон / Il signor Robinson, mostruosa storia d'amore e d'avventure (1976) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робинзон Крузо проходит через множество комичных ситуаций, пока ему не удается хоть как-то освоиться на острове. У него появляется даже Пятница - темнокожая красавица, с которой Робинзон поначалу тщетно пытается найти общий язык. Современный Робинзон не хочет отказываться от благ цивилизации и придумывает, как заменить телевизор, радио и все то, без чего в наше время (   Читать дальше...   )Производство: Италия / Vides CinematograficaЖанр: мелодрама, комедия, приключенияРежиссер: Серджио КорбуччиАктеры: Паоло Вилладжо, Зеуди Арая Кристальди, Перси Хоган, Анна НогараПеревод: Дублированный, многоголосый профессиональныйЯзык озвучки: русский, итальянскийСубтитры: русские (отдельным файлом)Продолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E159048D083D0B219E8D10B219AECD48B9FCDB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789775   (21963) от 09.04.2025
-
-Сыщик / Gumshoe (1971) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ливерпульский конферансье Эдди Гинлей мечтает написать детективный роман. Чтобы глубже погрузиться в среду, он даёт объявление об услугах частного детектива. Вскоре он получает первый заказ, а вместе с ним – пакет с фотографией молодой женщины, пистолет и тысячу фунтов стерлингов. И теперь он оказывается вовлечён в чрезвычайно запутанное дело, связанное с контрабандой (   Читать дальше...   )Производство: Великобритания / Columbia Pictures Corporation, Memorial EnterprisesЖанр: драма, комедия, криминал, детективРежиссер: Стивен ФрирзАктеры: Альберт Финни, Билли Уайтлоу, Фрэнк Финлей, Дженис Рул, Кэролин Сеймур, Фултон Маккэй, Джордж Иннес, Джордж Сильвер, Билл Дим, Венди РичардПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7E36F4EE3BC83311344C0A9CFE092CAF145B9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

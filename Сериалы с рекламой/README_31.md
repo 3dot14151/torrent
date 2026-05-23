@@ -1,3 +1,56 @@
+###  Публикация: 1419737   (225012) от 28.11.2021
+
+Майбергер. В голове преступника / Meiberger - Im Kopf des Taters (2019) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Томас Майбергер работает судебным психологом в Зальцбурге. Его работа заключается в раскрытии преступлений, которые невозможно понять с помощью простых улик и недостаточных доказательств. Если правоохранительная система, как правило в лице прокурора Барбары Симмы и комиссара Непомука «Непо» Вальнера, не знает, что делать, она обращается к Майбергеру. В работе ему (   Читать дальше...   )Производство: Австрия / Mona Film Produktion, Servus TVЖанр: криминал, детективРежиссер: Маркус Ульбрихт, Солин Юсеф, Питер БауманнАктеры: Фриц Карл, Корнелиус Обонья, Ульрике С. Чарре, Jaschka Lämmert, Franz Josef Danner, Lino Gaier, Райнер Эггер, Хильде Далик, Отто Шенк, Таня Рауниг и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствует, 2 аудио вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E73C17A559C0095F4FA360C6DFCB30A167DA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940054   (224356) от 03.08.2023
+
+Морская полиция: Лос-Анджелес / NCIS: Los Angeles (2015) WEB-DLRip (сезон 7, серии 1-24 из 24) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+7-й сезон NCIS: Los Angeles — драмы о сложной работе — наблюдении под прикрытием.
+Отдел особых проектов — подразделение NCIS, которое занимается опасными преступниками, угрожающими безопасности всей страны. Используя фальшивые личности и последние технологии, команда специалистов работает под прикрытием, рискуя собственными жизнями ради достижения цели.Производство: США / Shane Brennan Productions, CBS Television Studios, Belisarius ProductionsЖанр: триллер, драма, криминал, детективРежиссер: Тони Уормби, Терренс О’Хара, Джеймс Уитмор млАктеры: Крис О`Доннелл, LL Кул Джей, Линда Хант, Peter Cambor, Daniela Ruah, Адам Ямал Крэйг, Barrett Foa, Роки Кэрролл, Клер Кэри, Винсент Де Пол и др.Перевод: Многоголосый профессиональный - BaibaKoОзвучка: Татьяна Оболевич, Светлана Доманова, Дмитрий Глебов и Виталий ТкаченкоЯзык озвучки: Русский, английскийПродолжительность: ~00:43:00 серияРеклама: присутствуют видео, аудио вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C8A718EC16F8291D2B2F5FDB97901E88083301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425152   (223862) от 19.11.2020
 
 Преступление / Zbrodnia (2014-2015) WEB-DLRip (сезон 1-2, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -625,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF0B461158709E1F0E8C50E3D84C0E33D7631CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565376   (210908) от 09.08.2022
-
-Напарницы: Астрид и Рафаэлла / Astrid et Raphaelle (2022) WEBRip (сезон 3, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан полиции Рафаэлла Кост обращается за помощью в архив, где знакомится с Астрид. Эта девушка обладает феноменальной памятью, в отличие от Рафаэллы, которая привыкла доверять интуиции. Они становятся напарницами и расследуют самые загадочные преступления.
-Оригинальный сериал, сочетающий в себе лёгкий французский юмор с захватывающими детективным сюжетом, развивающимся (   Читать дальше...   )Производство: Франция, Бельгия, Швейцария / JLA Productions, France Télévisions, BE-FILMSЖанр: драма, триллер, криминал, детективРежиссер: Фредерик Берт, Эльза Беннетт, Ипполит ДарАктеры: Сара Мортенсен, Лола Деваэр, Бенуа Мишель, Жан-Луи Гарсон, Меледин Якуби, Хаски Кихаль, Jean Benoit Souilh, Lizzy Brynn, Clément Lagouarde, Алеша Итович и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, французскийСубтитры: Русские, английские (отдельно)Продолжительность: ~00:50:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5DB231D576DFAA88E68DDE55EA6FDE70702026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603391   (210432) от 09.01.2023
-
-Отголоски эха / Echoes (2022) WEB-DLRip (сезон 1, серии 1-7 из 7) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мини-сериал «Отголоски эха» от стримингового сервиса Netflix рассказывает о близнецах Лени и Джине (Мишель Монахэн), у которых есть общий опасный секрет: они тайно менялись местами с самого детства. Когда одна из сестер пропадает без вести, их идеально спланированный мир превращается в хаос…Производство: Австралия, США / Endemol Shine Australia, NetflixЖанр: триллер, драма, детективРежиссер: Кэт Кэндлер, Ли Лу, Анна МастроАктеры: Мишель Монахэн, Мэтт Бомер, Карен Робинсон, Али Строкер, Гейбл Сванлунд, Росанни Зайас, Майкл О’Нил, Джонатан Такер, Дэниел Сунджата, Мэдисон Эбботт и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английские (отдельные файлы)Продолжительность: ~00:40:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0184A6BFD89E4E0B5D827420B94CAE1EAD1BBEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

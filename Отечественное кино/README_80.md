@@ -1,3 +1,109 @@
+###  Публикация: 1209088   (779426) от 25.02.2018
+
+Легенда о Коловрате (2017) BDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+XIII век. Русь раздроблена и вот-вот падет на колени перед ханом Золотой Орды Батыем. Испепеляя города и заливая русские земли кровью, захватчики не встречают серьезного сопротивления, и лишь один воин бросает им вызов. Молодой рязанский витязь Евпатий Коловрат возглавляет отряд смельчаков, чтобы отомстить за свою любовь и за свою родину. Его отвага поразит даже (   Читать дальше...   )Производство: Россия, Централ ПартнершипЖанр: История, боевик, фэнтезиРежиссер: Иван ШурховецкийАктеры: Илья Малаков, Полина Чернышова, Алексей Серебряков, Александр Ильин мл., Игорь Савочкин, Тимофей Трибунцев, Александр Цой, Юлия Хлынина, Андрей Бурковский, Виктор ПроскуринПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A573AA086125B969251ECD38B7B8DEC89FF1272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209806   (779061) от 28.02.2018
+
+9 рота / Девятая рота (2005) BDRip [H.264/720p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+СССР, вторая половина 80-х. Семеро юных призывников, после нескольких месяцев учебки попадают в афганское горнило. Группа десантников получает задание командования занять высоту и держать ее до прохождения колонны. В неравном бою героическая девятая рота гибнет, так и не дождавшись подкрепления. И лишь одному, оставшемуся в живых командиру взвода суждено будет узнать, (   Читать дальше...   )Производство: Россия, Украина, Финляндия  / Art Pictures Group, Art Pictures Studio, Channel 1+1Жанр: Боевик, Драма, ВоенныйРежиссер: Фёдор БондарчукАктеры: Фёдор Бондарчук, Алексей Чадов, Иван Кокорин, Артем Михалков, Константин Крюков, Артур Смольянинов, Михаил Пореченков, Ирина РахмановаПеревод: Не требуетсяСубтитры: Русские, английскиеПродолжительность: 02:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F889E06A3795EACB58AA7155A98CDA2A53FED596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210417   (778808) от 02.03.2018
+
+Помощница (2018) WEB-DL [H.264/1080p-LQ] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Семён — юрисконсульт в большой солидной фирме. Два года назад он похоронил жену и с тех пор как будто принял обет безрадостности. Неожиданно выясняется, что его помощница-ассистент уходит в декретный отпуск. И целый год её будет подменять другая девушка — Таня. Семён понимает, что нужно смириться с неизбежным. В пятницу вечером офис расходится. Все желают друг другу (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Александр ГрабарьАктеры: Эдуард Трухменёв, Анна Васильяева, Вера Смолина, Игорь Пазыч, Олег Савкин, Валентина Вовченко, Елена Тетричная, Ксения Кожухова, Валерия ГуляеваСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBC23C406E2BB56CF2D312FC8AAAB21E6D7CBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210400   (778805) от 02.03.2018
+
+Приходи на меня посмотреть (2000) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Татьяна, женщина среднего возраста, живёт со своей больной матерью Софьей Ивановной, которая последние десять лет не может ходить и очень переживает, что дочь осталась старой девой. Матери представляется, что в этом только её вина — в желании удержать Татьяну около себя.
+
+За неделю до Нового года Софья Ивановна заявляет, что скоро умрёт и ей бы хотелось уйти, зная, (   Читать дальше...   )Производство: Россия. НТВ-Профит Киностудия имени М. ГорькогоЖанр: КомедияРежиссер: Михаил Агранович, Олег ЯнковскийАктеры: Олег Янковский, Екатерина Васильева, Ирина Купченко, Наталья Щукина, Иван ЯнковскийПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C5F6C40A2A5E4C7F97AADA7BDA2CA6C8C905F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 56450   (778746) от 02.03.2018
 
 Приходи на меня посмотреть (2000) DVDRip
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -89,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -116,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -195,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -249,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -301,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,111 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:371CEC51D4E04CB548E6FF2C331049802983C6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211681   (776996) от 08.03.2018
-
-Женщины против мужчин: Крымские каникулы (2017) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправиться в отпуск сразу после развода — довольно заманчивая идея. Особенно, если за компанию можно прихватить двух своих лучших приятелей. Но, когда в том же отеле встречаешь свою бывшую жену-красавицу, то это к неприятностям. А если экс-супруга оказывается там же с двумя своими лучшими подругами, которые к тому же являются бывшими женами твоих друзей, — то легкая (   Читать дальше...   )Производство: Россия / Fresh FilmЖанр: Комедия, мелодрамаРежиссер: Леонид МарголинАктеры: Настасья Самбурская, Наталья Рудова, Мария Кравченко, Александр Головин, Денис Косяков, Роман Юнусов, Мария Горбань, Вадим ГалыгинПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FEE5DA032C182D8C3EF2D1F490A7144F1332AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211643   (776991) от 08.03.2018
-
-Хит (2017) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва… Город прозрачный и светлый, пастельный, почти призрачный. Город ночных огней, ритма и бешеной скорости. Две юные судьбы, две истории любви майской столицы… Юля — студентка кафедры архитектуры — мечтает создать проект невероятного здания и стать знаменитой. Катя — фотограф и певица — грезит о том, чтобы стать звездой и петь на сцене. Талантливые, красивые, (   Читать дальше...   )Производство: Россия | TriKita ent.Жанр: ДрамаРежиссер: Маргарита МихайловаАктеры: Софья Озерова, Алена Тойминцева, Петр Скворцов, Юлия Ауг, Юрий Чурсин, Хусейн Дилбер, Полина Ауг, Алексей Вертков, Александр Горчилин, Ян ГэПеревод: Не требуетсяСубтитры: Русские (вшитые, на иностранную речь)Продолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B2BAE8233FE3BF1E4326AB21EDCE4FDE120D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211914   (776782) от 09.03.2018
-
-Московская пленница (2017) WEB-DL [H.264/1080p-LQ] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лена и Сережа Саврасовы на пороге новой жизни — через несколько часов они получат ключи от квартиры в новом доме. В эту квартиру вложены все их сбережения. Чтобы выплатить финальный взнос по ипотеке, молодые два года отказывали себе во всем, ютились в комнате в коммуналке, питались лапшой из пачек. И вот, когда до мечты остается один шаг, жизнь бросает Саврасовым (   Читать дальше...   )Производство: Россия / Марс Медиа ЭнтертейнментЖанр: МелодрамаРежиссер: Наталья ХлопецкаяАктеры: Екатерина Соломатина, Евгения Розанова, Николай Быстров, Антон Батырев, Ирина Баринова, Сергей Галахов, Ирина Гришина, Алексей Колубков, Зураб Миминошвили и др.Субтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9339BB5DCE978CD04A570AF05A42C9AE9616A8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212183   (776351) от 10.03.2018
-
-Большой (2016) DVB [H.264/1080i-LQ] (Полная версия)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на телевидении – полная версия фильма Валерия Тодоровского "Большой".
-Большой театр не впервые становится съемочной площадкой. Но впервые на исторической сцене этого легендарного театра был снят фильм, о котором даже профессиональные танцовщики говорят: "Так все здесь и происходит, это настоящий балет". В мировом кинематографе можно вспомнить (   Читать дальше...   )Производство: Россия / Marmot-film, ТК Россия, Valery Todorovsky Production CompanyЖанр: ДрамаРежиссер: Валерий ТодоровскийАктеры: Алиса Фрейндлих, Валентина Теличкина, Александр Домогаров, Николя Ле Риш, Маргарита Симонова, Екатерина Самуйлина, Анна Исаева, Анастасия Плотникова, Анастасия Прокофьева, Анна ТарасенкоПродолжительность: 03:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2980F7CEAC4500E023A341B4739B796B6DCC095
 ```
 
 https://mybot314.ru/tekegram_catalog/

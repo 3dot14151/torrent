@@ -1,3 +1,55 @@
+###  Публикация: 1475706   (1012046) от 08.06.2021
+
+Olympus 2207 (2014) [Ru] (1.2) Mod NebesaGames
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Основное действие игры разворачивается в районе Кремниевой Долины США, в 2207 году. Неизбежная Великая Война случилась в далеком 2013 году, оставив за собой светящиеся радиацией пустоши на добрые полторы сотни лет, но человечество, как глобальный земной вирус, не вымерло: часть людей укрылись в импровизированных убежищах, богатеи с комфортом расположились в элитном (   Читать дальше...   )Тип издания: ModРазработчик: Black Isle StudiosЖанр: RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0584719AAD6EE2E56CADD0A5BF4392A29C45A9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477556   (1010923) от 15.06.2021
+
+Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В одном далёком-далёком мире существовали два континента. Они дрейфовали, разделённые огромными топями. Столетия не существовало никаких связей между двумя континентами ибо не один корабль не мог пересечь разделяющих их пространств. И наконец, когда состоялся исторический контакт между двумя могуществеными странами, завязалась война! После долгой и кровопролитной (   Читать дальше...   )Тип издания: LicenseРазработчик: CapcomЖанр: jRPGЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F1FE16B33C50328255E457F3306CCABB3118A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477449   (1010915) от 15.06.2021
 
 Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
@@ -6,7 +58,7 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Shadow Watch [Ru] (P) 2000
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ MediEvil: Dilogy [Ru] (PC/Emul) 1998-2000 | Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ Re-Volt [En/Multi8] (RePack/1.2a12.1225) 1999 | R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +376,7 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +402,7 @@ Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +428,7 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +454,7 @@ Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +480,7 @@ Psychonauts (2005) [Ru/Multi] (1.1.603.0/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +506,7 @@ Onimusha: Warlords / Onimusha: Путь самурая [Ru/En/Jp] (Repack/1.2) 2
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +532,7 @@ Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +558,7 @@ Stranglehold Collector's Edition / Stranglehold. Коллекционное из
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +586,7 @@ Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +612,7 @@ Project: Snowblind / Операция Снегопад  [Ru/En] (P) 2007
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +638,7 @@ Crystal Caves (1991) [En] (1.0.0.28043) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +664,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -623,58 +675,6 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30ABC286BB7E816990E035CEBBC9914549BC4FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089087   (953284) от 02.01.2017
-
-Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это игра, которая охватывает всю историю железных дорог, с самого начала и по сей день. Игрок выбирает карту (сценарий) и берет на себя роль начальника железнодорожной компании. Игрок пытается получить прибыль для инвесторов и проходит различные задания, при этом мешая соперникам.Тип издания: LicenseРазработчик: G.O.D., Pop Top SoftwareЖанр: Strategy (Manage, Busin., Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089035   (953277) от 02.01.2017
-
-Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.05) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное продолжение серии игр «Железнодорожный магнат» наконец-то перед вами! А вместе с ним - новые реалистичные модели поездов, построек и пейзажей. Дело за малым. Рельсы убегают вдаль, составы с ценным грузом ждут сигнала к отправлению, конкуренты мечтают, чтобы вы их разорили... Вперед! Поезд проследует со всеми остановками.Тип издания: LicenseРазработчик: PopTop SoftwareЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28292EC29A72BB279704F29CE37257E7748B017
 ```
 
 https://mybot314.ru/tekegram_catalog/

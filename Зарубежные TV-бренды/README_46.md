@@ -1,3 +1,56 @@
+###  Публикация: 1027546   (696095) от 19.06.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/1080i-LQ] (Сезон 16, эпизод 11) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1694879C77378FBD71765D7A041E18171FA521A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703669   (695915) от 19.06.2016
+
+Возрождение Хеопса / Разгадка тайны пирамиды Хеопса / Khufu Revealed / Kheops revelee (2008) BDRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Единственное из семи чудес света древности сохранившееся до наших дней - пирамида Хеопса - самое высокое, массивное и загадочное сооружение. И по сей день остается тайной, как на самом деле ее строили. С помощью современных технологий удалось найти решение. Неужели разгадана тайна пирамиды Хеопса?
+Познакомьтесь с обновленной версией теории строительства пирамид, (   Читать дальше...   )Производство: Франция, Gedeon Programmes, NHK EnterprisesЖанр: Документальный, научно-познавательный, египтологияРежиссер: Флоренс ТранПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32807EEC6FC8B01751B4F7988A482ED5A4DE3BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288558   (695550) от 11.03.2019
 
 NGW: Смертоносная Африка. Саванна / Africa's Deadly Kingdom. Savannah (2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +59,7 @@ NGW: Смертоносная Африка. Саванна / Africa's Deadly Kin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ NG: Дайан Фосси. Секреты в тумане / Dian Fossey. Secrets
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ NGW: Планета хищников. Идеальные убийцы / Planet C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ National Geographic. Королева леопардов / Leopard Queen (2010) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ BBC: Мир природы. Роковой цветок / The Natural World. The
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +190,7 @@ Discovery. Техногеника. Самосвал БЕЛАЗ 75710 Больш�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +216,7 @@ BBC. Пингвин: Шпион под прикрытием / Penguins. Spy In T
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +242,7 @@ BBC: Времена года Британии / The Great British Year (2013) BD
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +268,7 @@ NGW: Дикая Монголия: страна крайностей. Степь 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +295,7 @@ NG: Рекорд / Breaking 2 (2017) HDTV [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +321,7 @@ Animal Planet: Живой или вымерший. Белый ньюфаундл
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +347,7 @@ BBC: Книга джунглей. Медведь Балу / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +399,7 @@ NG: Неуловимая кошка / The Phantom Cat (2012) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +425,7 @@ NG: В поисках неуловимой кошки / Hunt for the Shadow Cat 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +451,7 @@ NGW: Дикая природа Новой Зеландии: затерянный
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +477,7 @@ BBC. Одни ли мы во Вселенной? / Are We Alone In The Universe?
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +529,7 @@ NG: Гиганты мира животных / How Big Can It Get? (2011) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +555,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +581,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +607,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +659,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +670,6 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13E0AE08C9EBD91521655FE53F433F1E61A32E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028274   (690657) от 22.06.2016
-
-Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 03) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690657.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC0C81520E821534DA75042F88E0F468A842890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684356   (690547) от 22.06.2016
-
-Discovery. World's TOP 5. Super Trains / Пятёрка лучших. Супер поезда (2012) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690547.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Пятерка лучших" - это новый документальный цикл на канале Дискавери, в котором представлены самые мощные, самые быстрые, самые совершенные автомобили, самолеты и поезда. В каждом новом выпуске встретятся пять представителей своего класса, чтобы начать беспрецедентное состязание. В этом соревновании участвуют не только транспортные средства, но и крупнейшие (   Читать дальше...   )Производство: США, Discovery ChannelЖанр: Документальный, научно-познавательный, техникаРежиссер: Элйес ГабельПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18A05369CFC5F009DDCBC8CC6096A87030C4A94
 ```
 
 https://mybot314.ru/tekegram_catalog/

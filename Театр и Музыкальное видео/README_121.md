@@ -1,3 +1,169 @@
+###  Публикация: 1344559   (169627) от 11.12.2019
+
+The Cure - 40 Live (Curaetion 25: From There To Here + Anniversary) (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Два исторических шоу The Cure в 2018 году в честь их 40-летия.
+Первый фильм «CURÆTION-25: From There To Here | From Here To There» - был запечатлен на десятом и последнем вечере 25-го фестиваля Meltdown (куратор вокалист Роберт Смит) в лондонском Royal Festival Hall в июне 2018 года. Группа исполнила песню с каждого из своих 13 студийных альбомов с новыми и (   Читать дальше...   )Жанр: New Wave, Indie RockПеревод: Не требуетсяПродолжительность: 02:24:12 + 02:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15EDB5496984DCBFD47B529DE4E89236734BC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343545   (169408) от 11.12.2019
+
+Сборник клипов (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за декабрь 201901_C-BooL - Silesia
+02_Haart feat. Люся Чеботина, Palagin - Испорть мне ночь
+03_Lindsey Stirling - We Three Gentlemen (Medley)
+04_Kid Ink - Rich(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9F2B7D71C480C0AD1ECC397D5714D87717BF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672613   (167858) от 29.10.2023
+
+Квартирник у Маргулиса. Эрика Лундмоен (28.10.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Концерт российской исполнительницы норвежского происхождения Эрики Лундмоен. Разноплановая певица является своего рода феноменом на отечественной эстраде. Она наглядный пример того, что, обладая талантом и будучи трудолюбивым, можно уверенно разместиться на первых строчках хит-парадов. Ее творчество невозможно вместить в рамки одного жанра — певица использует в своей (   Читать дальше...   )00:00:05  Кариба
+00:07:04  Этна
+00:15:05  Придется молчать
+00:20:49  Репликант(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FF43290627A8F2B4B512036801000B1B1CACF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431325   (167745) от 13.12.2020
+
+Квартирник НТВ у Маргулиса. Группа SHOO (12.12.2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Гостями нового выпуска «Квартирника» Евгения Маргулиса стали участники группы SHOO. Певица Шуня Мещерякова собрала коллектив в 2010 году: вот уже 10 лет их музыкальный почерк самобытен и неповторим. Сами музыканты определяют свой стиль как absolute soul, тем самым называя свою музыку такой, которая стирает границы между странами и культурами, объединяя традиции всего (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9447314D6AF93529458B18B703742221E2ED4FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345288   (166839) от 14.12.2019
+
+Милен Фармер 2019 – в кино / Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+После шестилетнего перерыва Милен Фармер триумфально вернулась на сцену, дав серию концертов в знаменитом парижском La Defense Arena — самом большом зале Европы. В программу вошли как уже любимые публикой хиты, так и песни из нового альбома.01. Coming from the Vortex
+02. Interstellaires
+03. Sans logique
+04. Rolling Stone(   Читать дальше...   )Производство: Франция / Stuffed Monkey, Sony MusicЖанр: Pop, КонцертРежиссер: Франсуа АнссСубтитры: ОтсутствуютПродолжительность: 02:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0A1A41D41A04B3BB6C54BB62064C8F949DD209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345562   (166513) от 15.12.2019
+
+Квартирник НТВ у Маргулиса. Группа Нервы (14.12.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В эту субботу на «Квартирник НТВ у Маргулиса» пришла группа «Нервы». Солист коллектива Евгений Мильковский рассказал об участии в украинской «Фабрике звёзд», о том, какая музыка повлияла на его творчество, и о своем сайд-проекте. Кроме того, музыканты исполнили хиты «Зажигалки», «Кофе мой друг», а также новые композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65FEFCC25BDE98835BBCB52BC96B96FBA8A0689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431515   (166449) от 14.12.2020
 
 Muse - Simulation Theory Film (2020) BDRip [H.264/1080p]
@@ -6,7 +172,7 @@ Muse - Simulation Theory Film (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +198,7 @@ Roger Waters - The Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +282,7 @@ Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -169,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -198,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -224,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -253,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -279,7 +445,7 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -308,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -335,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -361,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -390,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -419,7 +585,7 @@ Def Leppard: Hits Vegas - Live at the Planet Hollywood (2020) BDRip [H.265/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -445,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -472,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +665,7 @@ Lulu & the Luvvers - Shout (1964) TVRip [H.264/2160p] [Handmade Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -525,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -539,171 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F815F38CEA0C2A5DAA5797DE3CBBF55A402961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673677   (160146) от 09.11.2023
-
-Helloween - Live at Budokan (2023) HDTV [MPEG-2/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление 16 сентября 2023, Япония, Токио, арена Будокан.
-За запись с WOWOW большое спасибоKai Hansen - lead vocals, guitars
-Michael Kiske - lead vocals
-Andi Deris - lead vocals
-Michael Weikath - guitars(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109DEFF0517A3BA4DD34AB725029A31B742489B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599496   (159863) от 23.12.2022
-
-МузЛофт-подкаст / МузLoft. Артем Качер (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159863.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Если бы не Лариса Долина, мы бы, возможно, нескоро встретились с этим талантливым артистом и настоящим профессионалом. Артём, оказывается, может не только петь с Джиганом, но и исполнять самые заметные хиты и крутые вокальные композиции. А еще Артём рассказал про (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: Поп, Рэп, Хип-ХопЯзык озвучки: РусскийПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5BBF3F3AEA4250C49341A31646F0CCE89D28BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599515   (159853) от 23.12.2022
-
-МузЛофт-подкаст / МузLoft. Нодар Ревия (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159853.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Всем привет! К нам в гости заглянул настоящий Генацвале, а именно Нодар Ревия. Нодар не только исполнитель, но еще и педагог, поэтому этот выпуск будет интереснее вдвойне всем тем, кто хочет научиться петь. А если хотите просто насладиться прекрасным голосом Нодара, (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: Поп, эстрадаЯзык озвучки: РусскийПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F8A6FF745BD0093AE982D2366A2E9A74BAC688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599504   (159851) от 23.12.2022
-
-МузЛофт / МузLoft. Вячеслав Макаров (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159851.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-В этом выпуске решили вас порадовать вокальными данными неизменного ведущего и участника множества музыкальных проектов, а также самым красивым и поющим «камызяком» - Славой Макаровым. Он рассказал нам про свою первую любовь, раскрыл секреты производства шоу «Аватар» (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DA21CD3E804BC1B7EC1D5A7A0C5B029418A087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599472   (159847) от 23.12.2022
-
-МузЛофт-подкаст / МузLoft. Никита Пресняков (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159847.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Это первый выпуск Музлофт-подкаст! И в гостях сразу талант в лице Никиты Преснякова. Проговорили про его участие в Маске, учебу в Америке и конечно же про его звёздных родителей.Производство: Россия | Y-GenerationЖанр: alternative rockЯзык озвучки: РусскийПродолжительность: 01:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32E21912355169777EB94CA11CFD04DBD752759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599466   (159843) от 23.12.2022
-
-МузЛофт / МузLoft. Город 312 (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159843.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-В этот раз возвращаем вас в начало двухтысячных вместе с легендарной группой «Город 312». Ребята поделились множеством историй с гастролей, спели свои самые главные хиты, а также поделились новыми композициями. В общем ребята оказались в зоне доступа и рассказали (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: Поп-рокЯзык озвучки: РусскийПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1622A9D1FCE6268621FCA91AFCCD6D4DF1A45E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

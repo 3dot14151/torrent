@@ -1,3 +1,81 @@
+###  Публикация: 1758143   (38682) от 31.10.2024
+
+AudioLab v1.2.37 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+AudioLab: Audio Editor Recorder – это самый продвинутый комплексный аудиоредактор, программа для записи звука, создания рингтонов, аудиомикшера и звукового редактора, в котором есть все функции, которые вам когда-либо понадобились! AudioLab — это идеальное приложение для микширования, редактирования звука и создания рингтонов, позволяющее гибко микшировать музыку (   Читать дальше...   )Тип издания: ProРелиз состоялся: 31.10.2024Разработчик: HitroLabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCD05575D43858BC49D5A85E5EE5D0E94D45A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758290   (38589) от 01.11.2024
+
+Next Track: Volume button skip v2.09 Mod by vedserega [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Next Track позволяет пропустить песни, отключить звук или остановить музыку с помощью кнопок громкости. Next Track работает со всеми стандартными музыкальными проигрывателями для управления музыкой с выключенным экраном. Перекомпоновайте ваши клавиши регулировки громкости во время прослушивания музыки. Выберите одиночные, двойные и длинные нажатия. В отличие от других (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.11.2024Разработчик: flar2Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B33E44455ABCCB51468AD117ED28CFDB51BAFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557325   (38573) от 02.11.2024
+
+Chess King - Обучение шахматам v1.5.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Chess King Обучение (https://learn.chessking.com/) - уникальный сборник курсов по обучению шахматам. Он включает курсы по тактике, стратегии, дебютам, миттельшпилям и эндшпилям, которые разделены на уровни от начинающих до опытных шахматистов и настоящих профессионалов.Тип издания: Пиратка (Unlocked)Релиз состоялся: 3 июн. 2022 г.Разработчик: Chess KingПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514AE892EC74375C6A113178A55449E97B0E05E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758686   (38424) от 03.11.2024
 
 Photoleap: Photo Editor / AI Art v1.63.2 Mod by vadj [Ru/Multi]
@@ -6,7 +84,7 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Cleaner for WhatsApp / Очиститель для WhatsApp v2.9.6 Mod by TryRoo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ FotoTweak - AI Image Generator v1.0.43 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Magic Eraser / Магический ластик v2.11.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ FotoTweak - AI Image Generator v1.0.43 Mod by ElaMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Polarr v6.10.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ PicWish: AI Photo Editor v1.8.0 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Bria Mobile: VoIP Softphone v6.18.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +319,7 @@ AirBrush: ИИ Фоторедактор v7.4.505 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Speedtest от Ookla 5.5.0 Lite-Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +424,7 @@ Stellio - Music Player v6.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +451,7 @@ PicWish: AI Photo Editor v1.8.1 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +478,7 @@ PictureThis - Plant Identification v5.0.11 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +504,7 @@ Listonic / Список покупок v8.14.3 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +530,7 @@ Obtainium 1.1.29 [Ru/Multi] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +557,7 @@ Cozy Magnifier & Microscope Plus v6.4.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +583,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.0.54212 Extra Mod by Balatan [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +609,7 @@ iCSee v7.4.0 Free [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +635,7 @@ SmartDriver: АнтиРадар ГИБДД v1.16.0.36623 Premium Mod by vedsereg
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +664,7 @@ Duolingo: изучай языки 6.7.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -597,88 +675,6 @@ Duolingo: изучай языки 6.7.1 Mod by derrin [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C697B83303370C02CD2D746152FCDACEADF9A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760192   (37520) от 12.11.2024
-
-MiHome v9.9.700 Mod by Vevs [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая быстрая и качественная модификация MiHome.
-Управление и связь с устройствами.
-Подключение устройств к сети.
-Подключение устройств друг к другу.Тип издания: ModРелиз состоялся: 10.11.2024Разработчик: Beijing Xiaomi Mobile Software Co.,LtdПоддерживаемая ОС: Android 6.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C147C8D7D432C3D4825DCFF9727682CA86870AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760302   (37440) от 13.11.2024
-
-Цифровое ТВ v4.0.1 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.11.2024Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3605B4A574A02FF14BDA53C9C10C6240358B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760379   (37415) от 13.11.2024
-
-Простые заметки - виджет v6.2.1 Mod by Timozhai [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нужно быстро сделать заметку или составить список покупок? Надо добавить много задач на одном дыхании?
-Виджет на рабочий стол позволяет постоянно иметь под рукой список дел и сразу показывает запланированные задачи. Это очень простой и чрезвычайно легкий в использовании инструмент с мощными функциями. «Простые заметки» также отлично подойдут для составления плана (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.11.2024Разработчик: Qvyshift LLCПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A503B8162E89F6F4A0188C7BFC88949AEB01B9C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

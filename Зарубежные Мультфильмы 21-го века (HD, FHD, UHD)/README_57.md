@@ -1,3 +1,81 @@
+###  Публикация: 915345   (592207) от 05.07.2015
+
+Дом / Home (2015) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Инопланетная раса бувов во главе с капитаном Смеком захватывает Землю, чтобы укрыться от своих смертельных врагов и обрести новый дом. Руководствуясь благими намерениями, бувы начинают переселять расу людей, но одной находчивой девушке по имени Тип удаётся сбежать. В бегах она встречается с изгнанным бувом по имени О, который случайно уведомил врагов о своём местонахождении.Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонПерсонажи: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), украинский (Forced, Full), английский (Full)Продолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFB0916F4D939C40DAA2AC91955F9307E488347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915449   (592191) от 05.07.2015
+
+Дом / Home (2015) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Инопланетная раса бувов во главе с капитаном Смеком захватывает Землю, чтобы укрыться от своих смертельных врагов и обрести новый дом. Руководствуясь благими намерениями, бувы начинают переселять расу людей, но одной находчивой девушке по имени Тип удаётся сбежать. В бегах она встречается с изгнанным бувом по имени О, который случайно уведомил врагов о своём местонахождении.Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонПерсонажи: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), украинский (Forced, Full), английский (Full)Продолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19058839C5CD17B65B492C6263FCED0C9C6ABA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915448   (591785) от 06.07.2015
+
+Дом / Home (2015) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Захватив Землю, раса пришельцев Був тут же начинает заниматься её благоустройством и реорганизацией. «Не стоит благодарности!» — заявляют они землянам, собранным на время в отдельных резервациях. Находчивая и рисковая девочка по имени Дар, чудом сбежавшая от пришельцев, встречает на своем пути самого раздражающе-оптимистичного Бува по имени О, отвергнутого своими (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: Мультфильм, фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Тим ДжонсонАктеры: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: ДублированныйЯзык субтитров: Русские, английские, украинскиеПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D0EDDFAE22949603D2AE925D5F8730F35D91FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915914   (591759) от 06.07.2015
 
 Дом / Home (2015) BDRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264/1080p-LQ]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,85 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C830AF67C8122A44C1E79482438F595ED43ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919206   (583686) от 18.07.2015
-
-Лига справедливости: Боги и монстры / Justice League: Gods and Monsters (2015) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомый многим мир комиксов DC изменился… В нарисованном городке все так же обитают знаменитые герои - Бэтмен, Чудо-Женщина и Супермен, вот только жители больше не любят фантастических персонажей. И, по правде сказать, есть за что.
-В этой версии реальности Супермен является отпрыском Генерала Зода, поэтому он отличается особой жестокостью и имеет психически неуравновешенный (   Читать дальше...   )Производство: США |  DC Entertainment, Warner Bros. Animation, Warner PremiereЖанр: Рисованная анимация, боевик, фантастикаРежиссер: Сэм ЛьюПеревод: Любительский многоголосый, закадровый (ZM-SHOW)Субтитры: Английские (вшитые отключаемые)Продолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E39C135A8924CCC065ACAFD06466E7B60EEC705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899533   (583525) от 18.07.2015
-
-Странная магия / Strange Magic (2015) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная сказка о гоблинах, эльфах, феях и бесах, рассказанная под мелодии популярных песен последних шести десятилетий.Производство: США, Industrial Light & Magic (ILM), Lucasfilm Animation, Touchstone PicturesЖанр: Фэнтези, Семейный, МюзиклРежиссер: Гари РидстромПерсонажи: Алан Камминг, Эван Рэйчел Вуд, Элайджа Келли, Мередит Энн Булл, Сэм Палладио, Кристин Ченоуэт, Майя Рудольф, Петер Стормаре, Бренда ЧепменПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced)Продолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABB8662D4C18E095C5F7F769481D7B556AB299F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810512   (583426) от 05.08.2014
-
-Приключения мистера Пибоди и Шермана / Mr. Peabody & Sherman (2014) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мистер Пибоди — бизнесмен, изобретатель, ученый, нобелевский лауреат, гурман, двукратный олимпийский чемпион и гений… который кроме всего прочего является собакой. При помощи своего самого неординарного изобретения — машины ВЕЙБЕК — мистер Пибоди и его приемный сын Шерман мгновенно перемещаются в прошлое, где становятся свидетелями самых важных исторических событий (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: Мультфильм, Фантастика, Комедия, Приключения, СемейныйРежиссер: Роб МинкоффАктеры: Тай Бурелл, Макс Чарльз, Эриель Винтер, Стефен Колбер, Лесли Манн, Эллисон Дженни, Стэнли Туччи, Том МакГрат, Лэйк Белл, Зак КаллисонПеревод: ДублированныйЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398FF2E05CF3779B31158D9F41B0A6042BED93B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

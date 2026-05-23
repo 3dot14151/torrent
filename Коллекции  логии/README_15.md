@@ -1,3 +1,55 @@
+###  Публикация: 1334265   (290526) от 31.10.2019
+
+Звездный путь / Star Trek (2009,2013,2016) BDRip [H.265/1080p] [10-bit] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашная команда крейсера Звездного Флота «Энтерпрайз» исследует неизведанные глубины космоса. Во время этого полного опасностей путешествия герои сталкиваются с таинственной силой, ставящей под угрозу не только их миссию и стабильность Федерации, но и весь миропорядок.Производство: США, Германия, Китай, ОАЭ, Канада / Paramount Pictures, Spyglass Entertainment, Bad Robot, Skydance Media, Alibaba PicturesЖанр: фантастика, боевик, приключенияРежиссер: Джей Джей Абрамс, Джастин ЛинАктеры: Крис Пайн, Закари Куинто, Зои Салдана, Карл Урбан, Эрик Бана, Антон Ельчин, Саймон Пегг, Джон Чо, Леонард Нимой, Брюс Гринвуд, Саймон Пегг, Бенедикт Камбербэтч, Идрис Эльба, София Бутелла, Джо ТаслимПеревод: ДублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 02:06:50 / 02:12:06 / 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678CCDBB433E85373ED22272560E3CF01594B1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263050   (283860) от 21.11.2018
+
+Сайлент Хилл / Silent Hill (2006-2012) BDRip [H.265/1080p-LQ] [10-bit, Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хизер терзается ночными кошмарами с одиннадцатилетнего возраста и вынуждена со своим отцом постоянно менять место жительства, скрываясь от таинственных сил. Накануне своего восемнадцатого дня рождения Хизер, вернувшись домой, обнаруживает, что её отец исчез. Единственное, что она нашла дома — нарисованный на стене оккультный символ с надписью «отправляйся в Сайлент (   Читать дальше...   )Производство: США, Франция, Davis-Films, Silent Hill 2 DCP, Sony Pictures Entertainment (SPE)Жанр: Ужасы, Триллер, Детектив, ДрамаРежиссер: Майкл Дж. БассеттАктеры: Аделаида Клеменс, Кит Харингтон, Дебора Кара Ангер, Мартин Донован, Малкольм МакДауэлл, Кэрри-Энн Мосс, Шон Бин, Рада Митчелл, Роберто Кампанелла, Эрин Питт, Питер АутербриджПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73AE4331D2EDC5D680217195FFF70866316EF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 403582   (278065) от 12.12.2016
 
 Обитель зла. Квадрология / Resident Evil | Resident Evil: Apocalypse | Resident Evil: Extinction | Resident Evil: Afterlife (2002/2004/2007/2010) 4*DVD9
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_278065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -377,7 +429,7 @@ AURUMfilm. Сборник короткометражек (2013-2017) WEBRip [H.2
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -614,67 +666,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
 ###  Подробнее
 
 «Люди в черном 2» продолжает рассказ о приключениях двух элитных полицейских - агента Кея и агента Джея среди инопланетян. Со времени их предыдущих похождений прошло четыре года. Все эти годы агент Кей вел размеренный образ жизни, в то время как агент Джей продолжал бесстрашно трудиться в рядах самой секретной организации в мире. Расследуя самое обычное дело, агент Джей натыкается на следы дьявольски изощренного заговора, задуманного Серлиной, злобным монстром, обитающим на Земле в образе сексуальнейшей модели.Когда события принимают угрожающий оборот, агенту Джею приходится обратиться за помощью к своему бывшему напарнику, который мирно трудится в Почтовом Департаменте. За короткое время агенту Джею надо убедить агента Кея помочь ему - ведь только он может помочь спасти Землю от порабощения и уничтожения.Жанр: Фантастика, комедия, боевикРежиссер: Барри ЗонненфельдАктеры: Томми Ли Джонс, Уилл Смит, Рип Торн, Лара Флинн Бойл, Джонни Ноксвил, Розарио Доусон, Тони Шэлоуб, Патрик Варбертон, Джек Келер, Дэвид КроссПеревод: Дублированный + 3*Одноголосый закадровый + Многоголосый закадровыйПродолжительность: 01:28:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186606   (251340) от 11.05.2012
-
-Дума о Ковпаке (1973, 1975, 1976) VHSRip [Трилогия]
-
->>Коллекции / *логии
->>Отечественное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия "Дума о Ковпаке"
-
-Фильм 1 - Набат (1973)Жанр: Военный, БиографияРежиссер: Тимофей ЛевчукАктеры: Константин Степанков,Аркадий Трощановский, Виктор Пивненко, Николай Шутько, Владимир Антонов, Зураб Капианидзе, Иван Гаврилюк, Наталья Гвоздикова, Михаил Голубович, Николай Гринько, Евгений Жариков, Валерия Заклунная, Сергей Иванов, Михаил Кокшенов, Виктор Маляревич, Альгимантас Масюлис, Николай Мерзликин, Александр Мовчан, Геннадий Нилов, Юрий Саранцев, Александр (   Читать дальше...   )Продолжительность: 02:24:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494925   (250983) от 10.05.2012
-
-Трое в каноэ (Дилогия) / Without a paddle / Трое в Каноэ-2: Зов Природы / Without a Paddle: Nature's Calling (2004-2009) [720p] BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое друзей Бен и Зак, неразлучные со школьных времен, выбирают в жизни разные пути, один становится юристом, второй так и остался рубаха-парень, всем помогает и никак не может вытянуть своего друга из его кабинета. Однажды пожилая женщина за которой он ухаживал в доме престарелых просит отыскать свою внучку Хизер, которая отправилась в экспедицию и пропала. Зак не может отказать ей. Вместе со своим другом Беном они отправляются на поиски пропавшей внучки. Найти Хизер и вернуться не легкая задача, ведь река и дикий лес непредсказуемы и таят в себе разные опасности и приключения.Жанр: Комедия, ПриключенияРежиссер: Эллори ЭлкайемАктеры: Эллен Альбертини Дау, Роберт Бланш, Мэдисон Бонтемпо, Оливер Джеймс, Эмбер МакДональд, Джерри РайсПеревод: Любительский (двухголосый) - ИнтерфильмПродолжительность: 01:31:02
 
 ## Скачать торент
 ```bash

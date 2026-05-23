@@ -1,3 +1,82 @@
+###  Публикация: 975897   (129455) от 21.01.2022
+
+SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Недостающее звено при фотографировании смартфонами высшего класса.  SKRWT (App Store's "Лучшие Приложения 2014") является самым мощным инструментом для коррекции перспективы и линзы. Версия SKRWT позволит вам значительно улучшить качество ваших фото всего в несколько нажатий. Предлагающее различные непревзойденные функции и впечатляющие расширения, MRRW (   Читать дальше...   )Тип издания: Full + ModРелиз состоялся: 15.01.2022Разработчик: mjagielskiПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский /  Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217BCBD5B8996C6C137A0B38C649DB60055EC0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945266   (129432) от 21.01.2022
+
+Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Самый универсальный сканер OBD2 - Carly - это больше, чем инструмент для диагностики автомобилей, и в среднем более миллиона владельцев автомобилей экономят 500 долларов в год. Попробуйте сами сейчас!
+Получите приложение Carly и универсальный адаптер Carly, которые получают доступ к данным через порт OBD2 вашего автомобиля. Они преобразуют его в мощные функции диагностики, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 10 января 2022 г.Разработчик: Carly Solutions GmbH & Co KGПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5423306D10A35CFBC7B5F34D404AD1F95777586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502142   (129345) от 21.01.2022
+
+FamilyGo v4.2.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+FamilyGo — это GPS локатор, который позволит найти детей и членов семьи. Для этого используется геолокация. Просто откройте приложение, попробуйте отследить телефон, чтобы узнать, где находится человек, который вам нужен. Это семейное приложение, поэтому найти устройство и узнать координаты могут только ваши близкие: вступить в группу можно по уникальному приглашению (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 15.01.2022Разработчик: My Family 2.0 IncПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AE462492A6F2E3703869282F6B105496F0912F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824266   (128953) от 14.10.2025
 
 Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
@@ -6,7 +85,7 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +111,7 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +189,7 @@ PaperColor v2.8.7 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +215,7 @@ Adobe Photoshop Express 11.8.194 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +241,7 @@ Smart AudioBook Player 10.3.1 Mod by KirIif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +267,7 @@ MX Player Pro v1.74.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +293,7 @@ Mubert: AI Music Streaming v4.2.2 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +320,7 @@ Melon VPN - Secure Proxy VPN 8.1.234 Mod By AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +349,7 @@ Doctronics - electronics DIY v2.5 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +375,7 @@ BikeComputer Pro v8.10.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +401,7 @@ Search By Image v9.0.1 Mod by vadj [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +427,7 @@ Smart Book / Параллельный перевод книг v3.3 (b1065) Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +453,7 @@ Football Live TV HD v2.0 Mod by Dymonyxx [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +479,7 @@ AR Ruler App: Линейка Рулетка v2.7.5 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +505,7 @@ Sense V2 Flip Clock & Weather v6.45.5 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +532,7 @@ VivaVideo v9.12.6 b6.6912062 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +558,7 @@ YouCut - Video Editor v1.603.1181 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +584,7 @@ Sense Flip Clock & Weather v6.41.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +610,7 @@ Photo Lab PRO v3.12.83 Mod by Mixroot, LEEAPK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +636,7 @@ YouCut - Video Editor v1.603.1181 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +662,7 @@ Listen Audiobook Player v5.2.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,84 +673,6 @@ Listen Audiobook Player v5.2.4 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DA2D4F6DB282C5CAD093C9D92CDBDC57905E8F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685268   (127306) от 18.12.2023
-
-Погода Россия XL 1.5.4.7 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это просто лучшее приложение прогноза погоды для вашего региона и всего мира.Тип издания: UnlockedРелиз состоялся: 13.12.23Разработчик: ExovoidПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A95E995362E002ED1A1691E621472A2A434EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685427   (127279) от 18.12.2023
-
-Слова из Слов v11.0.3 Mod by viktorovich31 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слова из Слов – игра головоломка, покорившая миллионы игроков по всему миру. Ее принцип знаком многим еще с детства - составить слова из слова. Если ты любишь отгадывать слова, разгадывать кроссворды, головоломки и прочие игры для ума, то эта игра на поиск слов тебе определенно понравится! Ты даже можешь устроить батл слово за слово со своими друзьями - отгадай слово (   Читать дальше...   )Тип издания: Premium / AdfreeРелиз состоялся: 19.11.2023Разработчик: Uga DoogaПоддерживаемая ОС: Android 6.0+Жанр: Словесные игрыЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE636762054723743B811E7DB6D1670DD4934487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685391   (127275) от 18.12.2023
-
-RS Explorer / RS Проводник 2.0.8 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127275.jpg" />
-</div>
-
-
-###  Подробнее
-
-RS Проводник - запросто поможет вам в управлении вашими файлами и пространством на вашем смартфоне. При помощи этого приложения, вы сможете запросто управлять всеми файлами, что находятся на вашем смартфоне. Кроме функции управления файлами, приложение поможет вам освободить дополнительное пространство на смартфоне. С этим приложениям вы, также, сможете разархивировать (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.12.2023Разработчик: RS Mobile GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

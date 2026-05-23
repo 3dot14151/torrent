@@ -1,3 +1,90 @@
+###  Публикация: 1763977   (16708) от 27.05.2025
+
+Balthazar & Warhaus - Compilation (2006-2024) [MP3|320 Kbps] <Indie rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. About Running (Balthazar EP | 2006)
+02. Against The Rich (We Fucked A Flame Into Being | 2016)
+03. Bang Bang (Warhaus | 2017)
+04. Batteries & Toys (Ha Ha Heartbreak | 2022)(   Читать дальше...   )Жанр: Indie rockПродолжительность: 04:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF06583C9908BEFD024B22370F7D27FBE07E115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800239   (15829) от 02.06.2025
+
+SUM★41 - Compilation (2000-2024) [MP3|320 Kbps] <Punk rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. 13 Voices (13 Voices | 2016)
+02. House Of Liars (Heaven-x-Hell | 2024)
+03. Sick Of Everyone (Screaming Bloody Murder | 2011)
+04. God Damn I'm Dead Again (13 Voices | 2013)(   Читать дальше...   )Жанр: Punk rock, AlternativeПродолжительность: 04:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6072C8467F2E330B1E120BCE52607C28F7262D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800432   (15746) от 03.06.2025
+
+ZZ Top - Live compilation (2025) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Blue Jean Blues (Live) [04:09]
+002. Got Me Under Pressure (Live from New York) [04:18]
+003. I Thank You [03:14]
+004. Arrested For Driving While Blind (Live 1980 Broadcast Remastered) [05:13](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 06:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7DF09787995E55FD0B6289B39B3C9A8C44DD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801379   (15060) от 10.06.2025
 
 Ken Hensley - Live Compilation (2025) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -6,7 +93,7 @@ Ken Hensley - Live Compilation (2025) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Queen - Epic (2025) [MP3|320 Kbps] <Rock, Progressive Rock, Glam Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Solo Projects From Deep Purple (1965-2025) [MP3|320 Kbps] <Hard rock, Progr
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Pink Floyd - p·u·l·s·e (2025) Compilation [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Hard Rock Arena (2025) [MP3|320 Kbps] <Hard Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Ian Gillan - Voice Of Rock - Compilation (1966-2020) [MP3|320 Kbps] <Hard rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Blackmore's Night - Compilation (1997-2025) [MP3|320 Kbps] <Folk rock, Medieval 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Top 100 Legend Rock Hits vol.2 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Top 100 Mega Hits Rock 2025 (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +354,7 @@ Ozzy Osbourne - Compilation (1980-2025) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +383,7 @@ David Coverdale - Voice Of Rock - Compilation (1974-2015) [MP3|320 Kbps] <Hard r
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Greatest Rock Ballads (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Top 100 Legend Rock Hits vol.3 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +470,7 @@ Paul Rodgers - Voice Of Rock - Compilation (1969-2024) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Prophetic Writings (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +557,7 @@ Whitesnake - Compilation (1978-2019) [MP3|320 Kbps] <Hard rock, Blues rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [O
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +673,7 @@ David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Workout Motivation (2019-2025) Alternative Edition, Mixed by Sergey Sychev 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,7 +731,7 @@ Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -658,93 +745,6 @@ Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C216243E6E9C738ECA269F2B2D431B81D7F1A78D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781660   (4606) от 03.09.2025
-
-Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow The Sign (Keeper Of The Seven Keys-Part I | 1987)
-02. Light The Universe (& Candice Night) (Keeper Of The Seven Keys-The Legacy | 2005)
-03. A Little Is A Little Too Much (Giants & Monsters | 2025)
-04. Live Now ! (Straight Out Of Hell | 2013)(   Читать дальше...   )Жанр: Power metal, Speed metalПродолжительность: 09:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDD5F9B6A27563FC9FDCDC83234BABC14A48972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805256   (3617) от 09.09.2025
-
-Glenn Hughes - Voice Of Rock - Compilation (1970-2025) [MP3|320 Kbps] <Hard rock, Blues rock, Progressive rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whiter Shade Of Pale (& Procol Harum & Marc Bonilla) (American Matador | 1993)
-02. Alive & Kicking (Influences & Connections. Volume One Mr. Big | 2003)
-03. Back In The USSR (& Molly Hatchet) (Abbey Road-A Tribute To The Beatles | 2009)
-04. Bad Reputation (& The Bobaloos) (The Bobaloos | 1983)(   Читать дальше...   )Жанр: Hard rock, Blues rock, Progressive rockПродолжительность: 24:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7873335E4BF5590C05F39825702420E63119CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800679   (2666) от 15.09.2025
-
-Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Me [16:07]
-02. I May Be Wrong, But I Won't Be Wrong Always [10:32]
-03. I'm Going Home [11:58]
-04. King Of The Blues [04:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25736848BD68424745CAC8B6689DE4D184B3E11
 ```
 
 https://mybot314.ru/tekegram_catalog/

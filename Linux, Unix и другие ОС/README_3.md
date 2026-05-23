@@ -1,3 +1,87 @@
+###  Публикация: 1358339   (963943) от 12.02.2020
+
+Интернет Контроль Сервер 7.0.1 [x86, amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Отечественный интернет-шлюз Интернет Контроль Сервер — это единое решение для комплекса задач, возникающих при организации локальной сети. В их числе контроль и обеспечение безопасности пользования интернетом, фильтрация контента, организация учета трафика, разграничение прав доступа для пользователей. Мы собрали в решении все функции, которые могут пригодиться. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98ECEB6B5624AF5E2112BB74D885AA1048007BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746730   (963603) от 18.01.2014
+
+BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Команда разработчиков BackBox Linux представляет новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем.
+
+Дистрибутив базируется на Ubuntu - ядро Linix kernel 3.11, и включает в себя ядро Linux 3.13 (u)EFI mode
+
+Как и раньше, в предыдущих релизах дистрибутива, исправлены обнаруженные баги, улучшена производительность, улучшено стартовое меню, улучшены драйвера Wi-Fi. Улучшены: Update меню, Forensic меню. Добавлены новые и обновлены старые хакерские инструменты ... и многое другое .
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD669D46BD20AFC5FA3082B19EB1C197E9721FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621450   (962599) от 20.02.2013
+
+ArchLinux 2013.02.01 [i686 + x86_64] (1xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Представлен обновленный установочный образ дистрибутива Arch Linux 2013.02.01. Arch — «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
+
+В Arch Linux отсутствуют релизы в обычном смысле, вместо этого используются текущие снимки системы. Установка Arch Linux происходит исключительно по сети, благодаря чему пользователь сразу же имеет актуальную версию системы.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747425   (962432) от 19.01.2014
 
 Mageia 4 RC [i586, x86-64] 7xDVD
@@ -6,7 +90,7 @@ Mageia 4 RC [i586, x86-64] 7xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -40,7 +124,7 @@ Q4OS 1.4.6 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -68,7 +152,7 @@ Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -96,7 +180,7 @@ KNOPPIX 7.6.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +206,7 @@ Debian GNU/Linux 8.3.0 Jessie [amd64] 3xDVD, 2x update DVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -150,7 +234,7 @@ ROSA Desktop Fresh (KDE + Plasma) R7 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -178,7 +262,7 @@ SolusOS 1.3 (Debian + Gnome) [x86, amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +290,7 @@ BackBox Linux 4.5 [Анализ безопасности, хакинг] [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -235,7 +319,7 @@ Tor Browser 2.3.25-4 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -261,7 +345,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -289,7 +373,7 @@ Window Maker Live  0.95.7-2 (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -315,7 +399,7 @@ Debian GNU/Linux 6.0.7 [amd64, x86-64] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -343,7 +427,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +455,7 @@ Tor Browser 5.5 [анонимный доступ в сети] [х86, x64] (bundl
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +481,7 @@ Debian GNU/kFreeBSD 6.0.7 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +511,7 @@ Debian GNU/Linux 6.0.7 [i386] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +539,7 @@ Edubuntu 14.04 Alpha II (Ubuntu для школ и вузов) [i386, amd64] 2xD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +567,7 @@ Linux Mint 17.1 Rebecca KDE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +595,7 @@ Parted Magic 2020.02.23 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +621,7 @@ Red Hat Enterprise Linux 6.4 [i386] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,7 +649,7 @@ Red Hat Enterprise Linux 6.4 [x86-64] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -593,7 +677,7 @@ Slackware 14.2 Beta2 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -621,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -634,86 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A5E590867F21903A96A1F38247427D91E6B0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626767   (942695) от 06.03.2013
-
-MKVToolNix v6.1.0 ('Old Devil') for Ubuntu 12.04 ('Precise Pangolin')
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942695.jpg" />
-</div>
-
-
-###  Подробнее
-
-MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в себе огромное количество информации. Формат MKV - открытый проект Матрешка (Matroska), призванный создать единый стандарт мультимедийных контейнеров на ПК. Его особенность, открытость кода, что позволяет совершенствовать данный формат любому программисту мира, а также команде программистов. Формат MKV стал необычайно распространен в последнее время, благодаря своим возможностям и, в частности, преобладанием функций по сравнению с AVI.Язык интерфейса: MulTi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364017   (939177) от 01.03.2020
-
-SystemRescueCD 6.1.0 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939177.jpg" />
-</div>
-
-
-###  Подробнее
-
-SystemRescueCd — это спасательной диск в системе Linux в качестве загрузочного компакт-диска или USB Stick для администрирования или восстановления системы и данных после сбоя. Его целью является обеспечить простой способ для выполнения задач администратора на компьютере, таких как создание и редактирование разделов на жестком диске.     Диск поставляется с большим количеством (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CB3267D5A1216B465BA1552A89FFD8A41CBA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628083   (937999) от 09.03.2013
-
-CentOS 6.4 [i386] (2xDVD+2xCD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел CentOS 6.4 (англ. Community ENTerprise Operating System) - дистрибутив Linux, основанный на коммерческом Red Hat Enterprise Linux компании Red Hat и совместимый с ним.
-
-Red Hat Enterprise Linux состоит из свободного ПО с открытым кодом, но доступен в виде дисков с бинарными пакетами только для платных подписчиков. Как требуется в лицензии GPL и других, Red Hat предоставляет все исходные коды. Разработчики CentOS используют данный исходный код для создания окончательного продукта, очень близкого к Red Hat Enterprise Linux и доступного для скачивания.
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

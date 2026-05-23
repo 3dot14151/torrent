@@ -1,3 +1,112 @@
+###  Публикация: 1148940   (403868) от 26.09.2017
+
+Isekai Shokudou | Restaurant to Another World | Кафе из другого мира [2017, ТВ, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чем зауряднее и обычнее выглядит местечко, тем больше у него шансов оказаться на самом деле пристанищем всего таинственного и мистического. Так получилось и с Кошачьей кафешкой. Это заведение вот уже пятьдесят лет радует своих посетителей вкусной и недорогой едой. Сюда заходит и стар, и млад, ведь помимо западной кухни здесь можно встретить японские блюда и лакомства (   Читать дальше...   )Жанр: комедия, фэнтезиРежиссер: Дзимбо Масато / Jinbo Masato / 神保昌登Язык озвучки: японскийПродолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAE02B4218572FF7400A9E1E5A1B64F35C9F46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025343   (403808) от 26.09.2017
+
+Ajin OVA | Полулюди OVA [2016, OVA, 3] DVDRip 576p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В мире «Адзина» семнадцать лет назад появился первый бессмертный – где-то в Африке посреди очередного конфликта. С тех пор такие вот неведомые неубиваемые «формы жизни» начали возникать то здесь, то там, и их стали называть адзинами (или полулюдьми). К моменту начала действия их существует по крайней мере сорок шесть. Сорок седьмым становится японский школьник Кей (   Читать дальше...   )Жанр: приключения, сэйнэнРежиссер: Сэсита Хироюки / Seshita Hiroyuki /Продолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B7CDA9AAE40848E71A8B7DF8BC93B795A3CF02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523484   (402739) от 23.10.2012
+
+Kyoukai Senjou no Horizon II / Horizon in the Middle of Nowhere II / Горизонт на границе пустоты 2 [2012, TV, 13 серий] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После великой войны люди покинули родную планету и переселились в иной, совершенный «небесный мир». Вскоре он рухнул, а провидцы открыли, что человечество должно вернуться домой и пережить заново 10 тысяч лет истории – только тогда оно заслужит прощение и вернет дорогу к звездам. На Земле «возвращенцы» нашли лишь один уголок, пригодный для жизни (конечно же, Японию!), населенный немногими оставшимися аборигенами. Не желая тесниться, «продвинутые» создали параллельное измерение и начали грандиозный проект воссоздания мировой истории. Увы, на уровне XVII века Новой эры кто-то совершил ошибку, карманный мир схлопнулся, а его обитатели оказались на старой доброй Земле.
+Уже не церемонясь, «новые земляне» прогнали местных жителей, чья наука, похожая на магию, не могла соперничать с мощью пришельцев. Теперь изгои живут на огромных летающих кораблях и копят силы, чтобы разобраться с «хозяевами жизни» и вернуть родину. Единственный путь к этому – не тотальная война, а участие в возобновившейся исторической реконструкции (   Читать дальше...   )Жанр: приключения, комедия, фантастика, мехаРежиссер: Оно МанабуПродолжительность: TV, 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75216BC5ACA5464EBF1EF15E07EBA25958604AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 685044   (402261) от 20.10.2013
+
+Fate/Kaleid Liner Prisma Illya / Судьба: Девочка-волшебница Илия [2013, TV, 10 эп.] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ассоциация Магов отправила двух магов - Тосаку Рин и Лувию Эдельфельт - собирать Классовые Карты, которые содержат силу Слуг времён Войны за Святой Грааль. В помощь им выделили два могущественных магических жезла. Рин получила Магический Рубин, а Лувия - Магический Сапфир.
+
+Однако, из-за того, что девушки на дух друг друга не переносят, жезлы разорвали с ними контракт. Вскоре, Рубин нашёл себе нового хозяина. Им стала ничего не подозревающая школьница - Ильсиявель фон Айнцберн. И не смотря на все её протесты сделал из неё новую девочку-волшебницу. Теперь её зовут - Призма Илия. И её цель - собрать все карты.
+
+Сериал - махо-сёдзё спин-офф Fate/stay night, действие которого происходит в альтернативной основному франчайзу вселенной.Жанр: приключения, пародия, махо-сёдзёРежиссер: Онума СинПродолжительность: 10 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68795462011E6165ADB41FD23E7007A06E81EBD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 398455   (401895) от 11.10.2011
 
 Abashiri Ikka / The Abashiri Family / Семейка Абасири [1991, OAV, 4 ep.] LDRip raw
@@ -6,7 +115,7 @@ Abashiri Ikka / The Abashiri Family / Семейка Абасири [1991, OAV, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_401895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +141,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +167,7 @@ Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +193,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] HDTV 720p Raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +219,7 @@ Jikan no Shihaisha | Chronos Ruler | Повелитель хроноса [2017, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +245,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +271,7 @@ Teekyuu 9 | Теннис - 9 сезон [2017, TV, 12 из 12] WEBRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +297,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +323,7 @@ Kyukioku no Sex Adventure Kamasutra / Камасутра [1992, OAV] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +349,7 @@ Tokyo Vice / Tokyo Project / Токийский проект [1988, OAV] DVDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +378,7 @@ Nobunaga Concerto | Концерт Нобунаги [2014, TV, 10] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +405,7 @@ Azumanga Daioh / Адзуманга Дайо [2002, TV, 26 эп. + Omake] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +431,7 @@ Centaur no Nayami / A Centaur's Life / Тревоги кентавра [2017, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +457,7 @@ Jigoku Shoujo: Yoi no Togi | Адская девочка (четвёртый с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +483,7 @@ Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akad
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +509,7 @@ Meitantei Holmes / Sherlock Hound / Famous Detective Holmes / Великий д�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +535,7 @@ Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +561,7 @@ Gekijouban Sword Art Online: Ordinal Scale | Мастера меча онлай�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +642,7 @@ Gamers! / Геймеры! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +668,7 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,113 +679,6 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A067FCAE2E7CE6EC272682BA34C7BEC9FF0A57BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570761   (388956) от 06.11.2012
-
-Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2011, ONA, 12 ep] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если коротко, то аниме повествует об ученице старшей школы, организовавшей клуб сборки пластиковых моделей.
-Правда, самих моделей в овашке практически и нет. Зато полно злого стёба над всем чем только можно. Как написал один из зрителей на W-A: "Юмор строится на противопоставлении стандартных жизненных ситуаций в школе и нестандартной реакции героинь." Я бы сказал - нестандартная реакция аниме-героинь. А так, всё очень даже жизненно получилось. И очень смешно.
-Меня чуть не порвало от смеха, пока смотрел. Было бы чуть побольше эпизодов, наверное, так бы и получилось.
-Всячески рекомендую к просмотру :)Жанр: комедия, школа, повседневностьРежиссер: Мидзусима ЦутомуПродолжительность: 12 серий по 2 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0797091A2A0F4020C69599AD67669DB72030EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173786   (388803) от 13.10.2017
-
-Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголке мира [2016, Movie] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388803.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни Сузу Урано наступают большие перемены: она выходит замуж и переезжает к своему возлюбленному из Хиросимы в город Курэ. Но начинается Вторая Мировая Война, и жизнь на новом месте будет для нее не такой радужной, как она себе представляла. Впрочем, случались и хорошие дни.Производство: MAPPAЖанр: исторический, драма, повседневность, сэйнэнРежиссер: Сунао КатабутиПеревод: Advantage (zafhoz)Субтитры: SUPФормат: MKVПродолжительность: 130 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59BE64AD39A241238D53A22365BB3A4AACEB68C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173801   (388769) от 13.10.2017
-
-Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголке мира [2016, Movie] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388769.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни Сузу Урано наступают большие перемены: она выходит замуж и переезжает к своему возлюбленному из Хиросимы в город Курэ. Но начинается Вторая Мировая Война, и жизнь на новом месте будет для нее не такой радужной, как она себе представляла. Впрочем, случались и хорошие дни.Производство: MAPPAЖанр: исторический, драма, повседневность, сэйнэнРежиссер: Сунао КатабутиПеревод: Advantage (zafhoz)Субтитры: ASSФормат: MKVПродолжительность: 130 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED79228D98E6A7E7DCE8F19DD9CC7E9254CA8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567639   (387751) от 04.09.2022
-
-Kami Kuzu Idol | Phantom of the Idol | Богиня идола-мерзавца [2022, TV, 10 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387751.jpg" />
-</div>
-
-
-###  Подробнее
-
-После очередного провального концерта, разочарованный в своей профессии Юй, сталкивается с очаровательной, энергичной и очень позитивной девушкой по имени Асахи. Позже, как оказалось, мечта яркой красотки стать айдолом в поп-группе и начать выступать. Но вот не задача, незнакомкой оказалась сама Асахи Могами – любимая певица миллионов, которая погибла год назад из-за (   Читать дальше...   )Производство: Studio GokumiЖанр: комедияРежиссер: Фукуока ДайкиПеревод: Kami KuzuЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 10 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EF97548FDBFE0A6C1D05F308E4AAB005EF3A86
 ```
 
 https://mybot314.ru/tekegram_catalog/

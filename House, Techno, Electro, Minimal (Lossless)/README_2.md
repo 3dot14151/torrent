@@ -1,3 +1,87 @@
+###  Публикация: 1436919   (1042818) от 02.01.2021
+
+VA - Nine Years Of Techno: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Rephlekt – Pushit (06:07)
+02. Orion – Amphibia II (04:56)
+03. Lisa Oakes – Traction (06:13)
+04. Rafa Ortega – Detone (06:21)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B69DB8ADCEBA2FA31951B8084935E020148C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436931   (1042815) от 02.01.2021
+
+VA - Nine Years Of Techno Part 2: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Ishii – TwitchedЖанр: TechnoПродолжительность: 02:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5648DCAB6D60900D3D7E731CE968E75F4574AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610619   (1042155) от 08.02.2023
+
+VA - Notes & Harmonies, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  Drahte -  Virgo (Rafael Cerato Remix)  (7:18)
+02.  Daniele Di Martino -  Lumen  (6:00)
+03.  Justin Cholewski, Ruta Loop -  Saulele (Original Mix)  (6:50)
+04.  Ucha -  Harmoniese (Dario Dea Remix)  (6:19)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C46330BF06F7BB8EFD18A402A0C8B71C50749E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437702   (1042038) от 05.01.2021
 
 Gui Boratto - Backstage (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal, Deep House>
@@ -6,7 +90,7 @@ Gui Boratto - Backstage (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +119,7 @@ Kerala Dust - Light, West (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Orga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +148,7 @@ Hoten - 29 Summers Album Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +177,7 @@ Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +206,7 @@ Hoten - 29 Summers (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +235,7 @@ Dezza - Cosmos (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +264,7 @@ Shingo Nakamura - Silk Music Pres. Shingo Nakamura 02 (2017) Compilation, DJ Mix
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +293,7 @@ VA - The Sound of 2023 Mix 3: Tokyo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +322,7 @@ Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +351,7 @@ Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +380,7 @@ VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +409,7 @@ VA - Defected Presents House Masters - Mr. V (2022)[FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +437,7 @@ VA - The Sound of 2023 Mix 1: Hong Kong (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +466,7 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +495,7 @@ VA - Soft, Deep & Dark #1-5 (2017-2020) Seven Villas Music [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +524,7 @@ VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -467,7 +551,7 @@ VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -496,7 +580,7 @@ VA - Genix Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -525,7 +609,7 @@ VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -551,7 +635,7 @@ ZHU, Tame Impala - My Life (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +664,7 @@ Bob Moses, ZHU - Desire (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -609,7 +693,7 @@ VA - Kirill Matveev pres. 25 MixCult Dancefloor Booms (2020) MixCult Records [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -638,7 +722,7 @@ Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -652,93 +736,6 @@ Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03AEDF2C5E080732770ECEA5BA962D8EEA03C6BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443144   (1035722) от 28.01.2021
-
-VA - MixCult Selected: Lola Palmer (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.Hz – City Space (07:23)
-02. Brickman – Meditation (07:29)
-03. Daniel Gorziza – Mountain Goat (07:15)
-04. Ini – Iceberg (07:37)(   Читать дальше...   )Жанр: Tech House, Deep House, Deep Tech, MinimalПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCD267FD7583DDDEED658D5EF7B7DF758646618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443175   (1035705) от 28.01.2021
-
-VA - The Best of Vocal Deep House Music Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Semmy Satch - Feel Alive (3:44)
-02. Ray Abegg - Surrender (4:34)
-03. PINKY - Lary Challenge (4:13)
-04. Nos Rider, Nat - When the Day Is Done (4:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A723A79608F9D1BA282230CF945835D4F43EAB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099327   (1035659) от 28.01.2021
-
-SNTS - Discography 17 Releases (2012-2020) [FLAC|Lossless|tracks] <Techno, Industrial, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Era Of Absurdity (01:43)
- 02. Bacchanalia (05:24)
- 03. Temporary Pleasure (05:05)
- 04. Defence Mechanisms (05:23)(   Читать дальше...   )Тип издания: Web, Vinyl •Жанр: TechnoПродолжительность: 08:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19934BAC7F4967DFDA97B0E63F3E8610A5530F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

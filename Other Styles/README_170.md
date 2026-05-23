@@ -1,3 +1,230 @@
+###  Публикация: 480009   (87305) от 09.04.2012
+
+VA - Русская народная хоровая песня (2000) [FLAC|Lossless]<Русская народная хоровая песня>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Ай, заинька, ай, серенький
+ 02. Пойду ль, выйду ль я
+ 03. Самара-городок
+ 04. Помню, я еще молодушкой была
+ 05. Камаринская (Небывальщина)
+ 06. Валенки
+ 07. Ах, вы сени, мои сени
+ 08. Во кузнеце
+ 09. Бояре, мы к вам пришли
+ 10. Как у наших у ворот(   Читать дальше...   )2000Жанр: Русская народная хоровая песняПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476287   (85997) от 02.04.2012
+
+Калевала - Осень в стиле фолк (2012) [MP3|320 кб/с]<folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: folkПродолжительность: 1:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569BFEEB783FADB31799700EE348DD42FA098FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475277   (85122) от 29.03.2012
+
+VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Dario G - Voices
+02. The Beloved - You’ve Got Me Thinking
+03. Jehro - All I Want
+04. Beautiful World - Love Song
+05. Monica Ramos - Angelina
+06. Simply Red - So Beautiful
+07. Laleh - Live Tomorrow
+08. A-Ha - Velvet
+09. Everything But The Girl - Rollercoaster
+10. Angelo Badalamenti - Twin Peaks Theme(   Читать дальше...   )2011  |Жанр: Relax, Easy Listening, PopПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471044   (83360) от 20.03.2012
+
+VA - Русская плясовая (2012) [MP3|320 кб/с]<folk/dance/instrumental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: folk/dance/instrumentalПродолжительность: 06:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC57F6485DD00661DB4E54EB43629161E41EB41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470587   (83357) от 20.03.2012
+
+Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, Instrumental, Chor.>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 - God of Thunder
+ 02 - Incredible Machines
+ 03 - Rebirth of a Legend
+ 04 - Rebirth Remix
+ 05 - Rise of a Hero
+ 06 - Warhammer
+ 07 - Guardian Angel
+ 08 - Limitless
+ 09 - Grand Design
+ 10 - Dark Force Rising(   Читать дальше...   )Жанр: Orchestral - Electronic - DramaПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468910   (83309) от 20.03.2012
+
+John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1.20th Century Fox Fanfare (0:19)
+2.Star Wars Main Title / The Imperial Probe (3:43)
+3.Saying Goodbye (1:31)
+4.Escaping the Wampa's Lair (1:41)
+5.Vision Of Obi-Wan / Luke's Rescue (2:14)
+6.Snowspeeder Rescue (1:03)
+7.The Bacta Tank (0:16)
+8.The Executor (1:47)
+9.Battle Preparations (4:02)
+10.Battle Of Hoth (3:18)(   Читать дальше...   )Жанр: ScoreПродолжительность: 2:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4C59EC3F1661C6513268FAD7663EC120E5A523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469248   (82728) от 17.03.2012
+
+Звуки Природы - Песни Птиц (1999) [MP3|320 кб/с]<Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Восход (03:20)
+02. Птицы на реке (03:51)
+03. Пересмешник (01:09)
+04. Древесный дрозд, Рыжик, Лисий воробей (02:57)
+05. Воробей с белым горлом, Краснохвостый сокол (01:55)
+06. Красноголовый дятел, Красногрудый дятел (02:37)
+07. Пурпурный зяблик, Балтиморская иволга, Болотная иволга (02:47)
+08. Каролинский крапивник, Каньонный крапивник, Мухолов (03:06)
+09. Ворона обыкновенная, Большой баклан, Зеленая цапля (02:57)
+10. Обыкновенный воробей, Обыкновенный дятел, Овсянка (03:35)(   Читать дальше...   )1999Жанр: RelaxПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EBFCA2C3CE09FDC7483F6CA43E64BE7CE5545B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468129   (82515) от 16.03.2012
 
 Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256 кб/с]<Soundtrack>
@@ -6,7 +233,7 @@ Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -41,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -76,7 +303,7 @@ VA - Любимые мелодии Советского кино (2012) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +373,7 @@ Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -181,7 +408,7 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -251,7 +478,7 @@ Fleur (Flёur) - Пробуждение (2012) [MP3|320 кб/с]<Cardiowave, Roc
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -286,7 +513,7 @@ Ronan Hardiman - Michael Flatley's Lord Of The Dance (1996) [MP3|320 кб/с]<Ce
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +548,7 @@ Future World Music - Дискография (2004-2007) [MP3|192-320 kbps]<Trail
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +574,7 @@ Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -382,7 +609,7 @@ VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -411,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -440,7 +667,7 @@ VA - Country Soft (2025) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -469,7 +696,7 @@ VA - The Orient Collective: Eastern Bloom (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -498,7 +725,7 @@ VA - The Orient Collective: Golden Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +754,7 @@ VA - The Orient Collective: Dunes & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +783,7 @@ VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -585,7 +812,7 @@ John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -598,212 +825,6 @@ John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87179B3297DBE0E58B570F99D009833A21FDD4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781964   (70118) от 26.02.2025
-
-VA - The Orient Collective: Caravan Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Kembali (6:18)
-02. Tibetania - Goodnight (6:24)
-03. DaDa Sound Project - Jatelo (6:07)
-04. Aglaia Rave - Tulpas (5:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70592D0F7272AEACD88AACDEA292539EDB301E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782734   (69940) от 02.03.2025
-
-Джонатан Кристенсон - ВОРОН: Воображаемая жизнь и загадочная смерть Эдгара Аллана По (2025) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоялся релиз мюзикла «Ворон: Воображаемая жизнь и загадочная смерть Эдгара Аллана По». Это канадский мюзиkл, шедший в городе Эдмонтон, в театре «The Catalyst». БАЯРУНАСконцерт представило русскоязычную версию мюзикла в аудио формате.
-Алексей Горшенёв — Артист 1
-Кирилл Гордеев — Артист 2
-Эмиль Салес — Артист 3(   Читать дальше...   )1. Пролог
-2. Начнём сначала
-3. Семейка По, Часть 1
-4. Смерть Элизы(   Читать дальше...   )Жанр: OSTПродолжительность: 02:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E475388B41C97649EFD8434426EF676F49FEE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784719   (69538) от 12.03.2025
-
-Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origination (Original Mix) (3:52)
-02. Token of Love (Original Mix) (4:49)
-03. Try to Understand This (Original Mix) (3:34)
-04. My Morning (Original Mix) (4:16)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784720   (69537) от 12.03.2025
-
-Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Of Peace (4:44)
-02. Like In The Water (3:38)
-03. Regret (3:16)
-04. Conversation With Echo (4:41)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AFE46D1FD01058DA764F1B135DAD6FD2635642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785163   (69266) от 16.03.2025
-
-Armik - Gitano Amor (2025) [MP3|320 Kbps] <Flamenco, Instrumental, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gitano Amor (04:18)
-02. Tears In Paradise (04:56)
-03. Libertad (04:00)
-04. Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4A6D8858000C293BCA6689E3ED24B92E6615FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784919   (69235) от 16.03.2025
-
-Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origination (Original Mix) (3:52)
-02. Token of Love (Original Mix) (4:49)
-03. Try to Understand This (Original Mix) (3:34)
-04. My Morning (Original Mix) (4:16)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EF8A196F15AEE926D293C7BED012906D4ACF34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787216   (68805) от 25.03.2025
-
-Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manschoud
-02. Timeless
-03. Safi
-04. People(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E569DCCCE7688482B9F5081044C8A2FB38413796
 ```
 
 https://mybot314.ru/tekegram_catalog/

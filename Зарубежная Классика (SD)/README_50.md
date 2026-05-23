@@ -1,3 +1,109 @@
+###  Публикация: 1536362   (657064) от 26.03.2022
+
+Мадам Бовари / Madame Bovary (1991) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённого романа Гюстава Флобера. История Эммы Бовари — конфликт идеализированной, «книжной» (в понимании главной героини) жизни и суровой реальности. Не сумев смириться с отягощающей, скучной и бессмысленной судьбой, она ввязывается в череду опасных и дерзких поступков, которые приводят к трагическому финалу…Производство: Франция, Canal+ (fr), CED Productions, Conseil Général de l'Eure...Жанр: драма, мелодрамаРежиссер: Клод ШаброльАктеры: Изабель Юппер, Жан-Франсуа Бальмер, Кристоф Малавуа, Жан Янн, Люка Бельво, Кристиана Минаццоли, Жан-Луи Мори, Жан-Клод Буйо, Саблен Кампо, Флоран ГибассьеПеревод: профессиональный двухголосыйСубтитры: нетПродолжительность: 02:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31FAABDDA9888884D77C675D0EFCF5D00A49088A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223954   (656545) от 19.05.2018
+
+Земля, забытая временем / The Land That Time Forgot (1974) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В конце Второй мировой войны находят рукопись, содержащую удивительный рассказ. В 1916 году моряки британского грузового корабля, захваченного немецкой подводной лодкой, были отнесены течением к острову Капрона, где обнаружили мир динозавров, вулканов и первобытных людей. В рукописи описаны все приключения, которые им пришлось пережить…Производство: Великобритания, США / Amicus Productions, Edgar Rice Burroughs Inc., Land Associates, Lion InternationalЖанр: Фэнтези, ПриключенияРежиссер: Кевин КоннорАктеры: Даг МакКлёр, Джон МакИнери, Сьюзен Пенхалигон, Кит Баррон, Энтони Эйнли, Годфри Джеймс, Бобби Парр, Деклан Малхолланд, Колин Фаррелл, Бен ХовардПеревод: Авторский (Ю.Живов)Субтитры: Английские (полные, SDH), немецкиеПродолжительность: 01:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14B609CC7E4336BF256D4C9FADC16DECD465AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342414   (656519) от 29.05.2011
+
+Странная парочка  / The Odd Couple (1968) HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Очень смешная и во многом поучительная комедия по пьесе Нила Саймона и его же сценарию (получил номинацию на "Оскар"). Феликса Ангера выставила из дома жена. Бедняга думал покончить жизнь самоубийством, но пришел в дом холостяка Оскара Мэдисона, где по пятницам друзья всегда играли в покер. Опасаясь за друга, Оскар предложил Феликсу пожить у него, тот согласился. (   Читать дальше...   )Жанр: мелодрама, комедияРежиссер: Джин СэксПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB12FA436312F5575C847FEF4BBD778AAA470C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514765   (656255) от 25.06.2012
+
+Эммануэль / Emmanuelle (1974) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первый фильм о жрице любви Эммануэль. Сюжет служит канвой для описания сексуальных похождений героини в Юго-Восточной Азии.
+
+Муж Эммануэль, работающий в посольстве, поощряет в ней стремление к раскрепощенности в сексе, благо весь дипломатический корпус, особенно женщины, изнывают от скуки. За её воспитание берется уже пожилой специалист. Эммануэль делает большие успехи в искусстве любви.Жанр: Драма, ЭротикаРежиссер: Жюст ЖэкинАктеры: Ален Кюни, Сильвия Кристель, Марика Грин, Даниэль Сарки, Жанна Коллетен, Кристин Буассон, Саманта, Габриэль Бриан,ГрегориПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6197F87859879E22848C58DAC6814374E311E543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137692   (655787) от 06.06.2017
 
 Везунчик / Lucky Me (1954) DVDRip [H.264] [VO]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,114 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CE54BD29B125E90C1C72912D3BC06BD9684AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345655   (649406) от 03.06.2011
-
-Человек с бьюиком / L'homme a la Buick (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богач и добряк мсье Арман Фавро приезжает в маленький городок Анфлер. Что он собирается делать здесь? Жить, ведь он купил одну из лучших вилл на побережье.
-Все складывается прекрасно: в первые же минуты после приезда он встречает прелестную вдову мадам де Лейрак и влюбляется. Но чем сильнее любовь, тем больше расходы.
-И мсье Фавро отправляется в Париж к друзьям. (   Читать дальше...   )Производство: Франция / Gafer, Les Films CopernicЖанр: КомедияРежиссер: Жиль ГранжьеАктеры: Фернандель, Даниель Дарьё, Жан-Пьер Марьель, Амаранд, Кристиан Барбье, Бернар Деран, Эдмон Ардиссон, Рауль Кюре, Жан Дэниэл, Альбер ДинанПеревод: Профессиональный двухголосыйСубтитры: нетПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC59831240F4EAF5F0545AC8CEE57B68D89CEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215723   (649235) от 05.07.2010
-
-Таксист  / Taxi Driver  ( 1976) [H.264] HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тусклый свет слепых фонарей, скелеты фабричных труб, задыхающихся в собственном дыму. Вавилонские башни небоскребов, все это - ад Нового времени, Нью-Йорк.
-Ветеран вьетнамской войны Трэйвис Бикл ведет свое одинокое такси по ночным улицам бесконечного города, и перед ним разворачивается мрачная панорама человеческих грехов. Как ветхозаветный пророк, он надеется, что (   Читать дальше...   )Жанр: триллер, драма, криминалРежиссер: Мартин Скорсезе / Martin ScorseseВ ролях: Роберт Де Ниро (Travis Bickle,), Сибилл Шеперд (Betsy,), Питер Бойл (Wizard), Джоди Фостер (Iris Steensma), Харви Кейтель ('Sport' Matthew), Леонард Харрис (Sen. Charles Palantine), Альберт Брукс (Tom), Дайэнн Эбботт (Concession girl), Фрэнк Эду (Angry black man), Джино Ардито (Policeman at rally), Виктор Арго (Melio), Гарт Эйвери (Iris' friend)Перевод: Оригинальный, Профессиональный (многоголосый, закадровый), Авторский (Либергал Григорий), Авторский (Михалев Алексей)Формат: MatroskaПродолжительность: 01:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF5DE077A5534CAB008A144E5389B7C85C177D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902796   (649152) от 06.06.2015
-
-Принц, который был вором / The Prince Who Was a Thief (1951) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649152.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XIII веке регент Танжера Мустафа посылает вора Юсефа убить малолетнего наследника принца Хусейна, чтобы занять его место на престоле. Юсеф, слишком добр, чтобы убить мальчика, он вырастил его, выдавая за своего сына Джалну. Он должен был стать принцем, и станет принцем - принцем воров, чтобы через много лет отомстить тому, кто приказал его убить.Производство: США / Universal International Pictures (UI or U-I)Жанр: ПриключенияРежиссер: Рудольф МатеАктеры: Тони Кертис, Пайпер Лори, Эверет Слоун, Джефф Кори, Бетти Гард, Марвин Миллер, Пегги Кастл, Дональд Рэндольф, Нита БиберПеревод: Одноголосый закадровый, KibborgЯзык субтитров: РусскийПродолжительность: 01:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A610CFBD82307636D960EEE51E28CAEE6936E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215454   (649138) от 05.07.2010
-
-Невезучий папарацци / Ecco noi per esempio (1977) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клик - бульварный фотограф, за которым гоняются то бандиты, попавшие в объектив на месте преступления, то разъяренные женщины, также оказавшееся в поле зрения журналиста. Однажды во время столкновения с полицией Клик познакомился с начинающим писателем Гуанзироле Пальмамброджо, и два новоиспеченных приятеля пускаются в приключения...
-Кто такие ПАПАРАЦЦИ, и какими (   Читать дальше...   )Жанр: КомедияРежиссер: Серджио Корбуччи / Sergio CorbuccАктеры: Адриано Челентано / Adriano Celentano, Ренато Поццетто / Renato Pozzetto, Феличе Андреази / Felice Andreasi, Барбара Бах / Barbara Bach, Джулиана Каландра / Giuliana Calandra, Антонио Касагранде / Antonio CasagrandeПеревод: Одноголосый закадровый. Николай ЖивагоПродолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8C266F9602CB9EB83312F54FCEA13C6093143C
 ```
 
 https://mybot314.ru/tekegram_catalog/

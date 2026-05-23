@@ -1,3 +1,83 @@
+###  Публикация: 605901   (995425) от 20.01.2013
+
+Том и Джерри: Полет на Марс / Tom and Jerry Blast Off to Mars! (2005) [1080p] Blu-Ray
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Выходит, что для своих погонь и проказ легендарные Том и Джерри уже использовали все возможные места на нашей старушке-Земле; и теперь забавные зверушки решают совершить вояж наМарс, чтобы повеселиться там от души! Вот, правда, марсиане оказались мелковаты: крошечные гуманоиды посчитали Тома свирепым галактическим монстром и решили расправиться с беднягой.
+
+Марс (   Читать дальше...   )Жанр: Рисованная анимацияРежиссер: Билл КоппАктеры: Джефф Беннетт, Кори Бертон, Кэтрин Фиоре, Брэд Гэррет, Джесс Харнелл, Том Кенни, Билл Копп, Роб Полсен, Фрэнк Уэлкер, Билли УэстПеревод: Многоголосый закадровыйЯзык субтитров: Английские, французские, испанскиеПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8A49509031FD95BF9F2F2D47DA9E71CB4DE064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605784   (995413) от 20.01.2013
+
+Ра / Р'ха / R'ha (2013) WEB-DLRip [H.264/720p-LQ] [EN / Ru, En, Fr Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Страшный механический монстр пытками хочет выудить информацию у благородного инопланетянина.Производство: Жанр: Фантастика, Короткометражный, АнимацияРежиссер: Калеб ЛеховскиАктеры: Дэвид МастерсонПеревод: СубтитрамиПродолжительность: 00:06:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606500   (995007) от 21.01.2013
+
+Нико 2 / Niko 2: Lentajaveljekset (2012) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Новые приключения веселого и отважного олененка Нико, мечтающего, как и его легендарный отец, стать летающим оленем в упряжке Санта-Клауса. Все начинается накануне Рождества. Вместе со своими друзьями, белкой Джулиусом, лаской Вилмой и сводным братишкой Джонни Нико с нетерпением ждет Санту. Но тот снова попадает в невероятную историю. Неужели дети останутся без подарков?Жанр: Мультфильм, приключения, семейныйРежиссер: Стефен МакКеонАктеры: Эрик Карлсон, Кари Хиеталахти, Кари Кетонен, Юха Вейонен, Элина Книхтиля, Яакко Саарилуома, Юкка Расила, Рику Ниеминен, Пертти Койвула, Аааре КаренПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2021A10962F6A7E42EF09B99FFF0811AF831B665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606788   (994699) от 22.01.2013
 
 Тэд Джонс и Затерянный город / Las aventuras de Tadeo Jones (2012) [720p] BDRip
@@ -6,7 +86,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B7327FA2019032EBFFF14337D1A87615E882008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355940   (980762) от 28.01.2020
-
-Планета сокровищ / Treasure Planet (2002) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980762.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летний Джим Хоукинс отправляется на поиски таинственной Планеты Сокровищ в компании настоящих космических пиратов. Под руководством корабельного кока, киборга Джона Сильвера, он становится умелым «космоплавателем» и не раз спасает космический галеон от самых серьезных опасностей: черных дыр, взрывов сверхновых и космических штормов.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПеревод: Дублированный (Лицензия)Субтитры: Русские, английскиеПродолжительность: 01:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC03FD8AB8001BABBF1B98C3C03FAB76BC55F602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355970   (980457) от 29.01.2020
-
-Стражи Арктики / Arctic Justice (2019) BDRip [H.264/720p] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на ЗвероПолюс, где власть находится в лапах больших, сильных и зубастых. Ради собственного превосходства они готовы переделать под себя весь мир. Лишь маленькие, но очень храбрые встанут на защиту не только родного Северного полюса, но и целой планеты. Именно они - настоящие Стражи Арктики.Производство: Индия, Великобритания, Китай, Канада, Япония, Корея Южная, США, AMBI Group, Arctic Justice Movie, Assemblage EntertainmentЖанр: Мультфильм, комедия, приключения, семейныРежиссер: Аарон ВудлиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA58ADC263FB25C0376D176DFB8628F36A7BAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356134   (980444) от 29.01.2020
-
-Стражи Арктики / Arctic Justice (2019) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на ЗвероПолюс, где власть находится в лапах больших, сильных и зубастых. Ради собственного превосходства они готовы переделать под себя весь мир. Лишь маленькие, но очень храбрые встанут на защиту не только родного Северного полюса, но и целой планеты. Именно они — настоящие Стражи Арктики.Производство: Индия, Великобритания, Китай, Канада, Япония, Корея Южная, США, AMBI Group, Arctic Justice Movie, Assemblage EntertainmentЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Аарон ВудлиАктеры: Джереми Реннер, Хайди Клум, Джеймс Франко, Джон Клиз, Омар Си, Лори Холден, Анжелика Хьюстон, Алек Болдуин, Донни Фалсетти, Сорайя АззабиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978652888F14782F243A2881106647AFE5FD83CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

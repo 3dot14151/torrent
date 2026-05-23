@@ -1,3 +1,55 @@
+###  Публикация: 1397950   (703134) от 13.08.2020
+
+Discovery. Легендарные места / Legendary Locations (2019) HDTVRip (сезон 2, серии 1-4 из 13) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Одолевает жажда приключений? Присоединяйтесь к Джошу Гейтсу, который исследует легенды и истории, связанные с самыми разными местами по всему миру. Он отправляется в проклятую крепость в индийских горах Аравали, обнаруживает каменные лабиринты (включая древний город в каньоне иорданской пустыни) и путешествует по опасной Дороге смерти в Боливии в компании других (   Читать дальше...   )Производство: США, Ping Pong Productions, Discovery Channel HDЖанр: Документальный, путешествии, историяПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE8CB0BA2E31B7AE5C7D4F9EE6B310F92370F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287548   (703108) от 07.03.2019
+
+Animal Planet: Земля снежного человека. Затерянное королевство йети / The Lost Kingdom of the Yeti (2018) HDTVRip [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С давних пор жители Гималаев верят, что в их горах обитает чудище. Учёный и охотник за снежным человеком Марк Эванс регулярно получает сообщения о новых наблюдениях и загадочных следах на снегу из горного королевства Бутан. Опираясь на последние научные данные и данные генетических анализов, которые, возможно, позволят идентифицировать загадочное существо, Марк организует (   Читать дальше...   )Производство: США, Icon Films, Animal PlanetЖанр: Документальный, история, исследованияРежиссер: Джеймс МайрПеревод: Одноголосый закадровый, профессиональный (Мобильное ТВ)Субтитры: отсутствуютПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6F1159643ECE4924EE13D632A00FAC61490765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132245   (702814) от 08.05.2017
 
 BBC. Horizon: Закат Солнечной системы / The End of The Solar System (2016) HDTVRip [H.264/1080i-LQ] (Сезон 52, эпизод 5)
@@ -6,7 +58,7 @@ BBC. Horizon: Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC. Horizon: Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG: Человекообразные обезьяны / Human Ape (2017) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ BBC. Тайная история британских садов / The Secret Hi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ NG: Кусать, жалить, убивать / Bite, Sting, Kill (2017) HDTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ NG: Прорыв / Breakthrough (2015) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Discovery: Поездка налегке / Free Ride (2016) HDTV [H.264/1080p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ NG: Проект: Динозавр / T.Rex: Autopsy (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEBRip [H.265/2160p
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) SATR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ BBC: Таинственный Мир Материалов / The Mysterious World
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ Discovery: Смертельный улов / Deadliest Catch (2017) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Discovery: Смертельное собеседование / Deadliest Job Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRemux [H.2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ Animal Planet: Рожденные свободными / From Cubs to Kings (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ History Channel: Охота за трансильванским золотом /
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ Discovery. Техногеника. Центр подготовки космон�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ Discovery. Техногеника. Реактор ВВЭР - 1200. Самый м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +661,7 @@ BBC. Вся правда о характере / The Truth About Personality (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,59 +672,6 @@ BBC. Вся правда о характере / The Truth About Personality (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:307ED792318F7A81A323E33E23B5B0E54FB86181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027546   (696095) от 19.06.2016
-
-Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/1080i-LQ] (Сезон 16, эпизод 11) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696095.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1694879C77378FBD71765D7A041E18171FA521A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703669   (695915) от 19.06.2016
-
-Возрождение Хеопса / Разгадка тайны пирамиды Хеопса / Khufu Revealed / Kheops revelee (2008) BDRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственное из семи чудес света древности сохранившееся до наших дней - пирамида Хеопса - самое высокое, массивное и загадочное сооружение. И по сей день остается тайной, как на самом деле ее строили. С помощью современных технологий удалось найти решение. Неужели разгадана тайна пирамиды Хеопса?
-Познакомьтесь с обновленной версией теории строительства пирамид, (   Читать дальше...   )Производство: Франция, Gedeon Programmes, NHK EnterprisesЖанр: Документальный, научно-познавательный, египтологияРежиссер: Флоренс ТранПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32807EEC6FC8B01751B4F7988A482ED5A4DE3BAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,74 +1,22 @@
-###  Публикация: 1851114   (1054767) от 31.01.2026
+###  Публикация: 1852862   (1056561) от 12.02.2026
 
-M. Hazewinkel (ред.) | Handbook of Algebra [6 книг] (1996 - 2009) [PDF]
+А.В. Помазанов | Защита информации от утечки по техническим каналам. Учебное пособие (2024) [PDF]
 
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алгебра в том виде, в каком мы её знаем сегодня, состоит из множества различных идей, концепций и результатов. Примерная оценка числа этих различных «элементов» составляет от 50 000 до 200 000. Многие из них получили названия, и ещё больше могли бы (и, возможно, должны) иметь «название» или удобное обозначение. В дополнение к первичной информации, это руководство (   Читать дальше...   )Жанр: МатематикаИздательство: ElsevierФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F165BA688773C5EFBB850ACBE67A866E046AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851132   (1054766) от 31.01.2026
-
-Охотники за привидениями / Ghostbusters (2016) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [Extended Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцать лет назад охотники за привидениями спасли Нью-Йорк от нашествия призраков, но теперь городу вновь угрожает опасность. Былые герои не могут стать на его защиту, но находятся и другие отважные люди, всю свою жизнь посвятившие изучению паранормальных явлений. Эбби Йейтс объединяется с Эрин Гилберт, пожалуй лучшим специалистом в квантовой физике, и вместе они (   Читать дальше...   )Производство: США, Австралия / Columbia Pictures, Feigco Entertainment, Ghostcorps, LStar Capital, Pascal Pictures, The Montecito Picture Company, Village Roadshow PicturesЖанр: фантастика, фэнтези, боевик, комедияРежиссер: Пол ФигАктеры: Мелисса МакКарти, Кристен Уиг, Кейт МакКиннон, Лесли Джонс, Крис Хемсворт, Сесили Стронг, Энди Гарсиа, Нил Кэйси, Чарльз Дэнс, Майкл МакДональдПеревод: Дублированный (Лицензия Blu-ray CEE)Язык озвучки: Русский, английскийСубтитры: русские (forced, Full), английские (full, SDH)Продолжительность: 02:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A17893EADCF9AD280332633927A9DBB52D311E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851126   (1054765) от 31.01.2026
-
-Электрические сны Филипа К. Дика / Philip K. Dick's Electric Dreams (2017-2018) WEBRip [AV1/1080p] (сезон 1, серии 1-10 из 10) Amedia
-
->>Зарубежные сериалы
+>>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Британский научно-фантастический телесериал-антология, основанный на произведениях Филипа Дика. Антология представляет собой 10 самостоятельных эпизодов, в основу каждого из которых положено творчество Дика, их сценарии написаны как британскими, так и американскими сценаристами.Производство: США, Великобритания, Channel 4, Sony Pictures TelevisionЖанр: фантастика, драмаРежиссер: Дэвид Фарр, Франческа Грегорини, Том ХарперАктеры: Брайан Крэнстон, Стив Бушеми, Вера Фармига, Мирей Инос, Грег Киннир, Тимоти Сполл, Бенедикт Вонг, Холлидей Грейнджер, Ричард Мэдден, Лара Пулвер и др.Перевод: Многоголосый профессиональный (Amedia)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: ~00:50:00 серия
+Изложены принципы построения устройств и методы защиты информации от утечки по техническим каналам. Приводятся классификация технических каналов утечки информации и современные технические средства защиты информации. Рассматривается место и роль современных комплексов радиомониторинга в системах технической защиты информации.Жанр: Компьютерная литература, КриптографияИздательство: Издательство Южного федерального университетаФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7E7F951BBB4649DAD083B3981214DD05798671A
+magnet:?xt=urn:btih:E25ED0B38B6491749EE8C220AC75B0A7CD2A425E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,103 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851129   (1054764) от 31.01.2026
+###  Публикация: 1852861   (1056560) от 12.02.2026
 
-Гринч. Ужасающий новый / The Mean One (2022) BDRip [H.264/1080p]
+Г.А. Емельянов | Цифровая безопасность личности (2025) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054764.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 лет назад в канун Рождества Гринч убил маму Синди. Повзрослев, она возвращается в родной дом на праздники. В этот раз Гринч нападает на её отца и хочет не просто похитить Рождество, а всех убить. Синди готовится остановить зелёного монстра.Производство: США / Sleight of Hand ProductionsЖанр: ужасы, комедияРежиссер: Стивен ЛамортАктеры: Дэвид Ховард Торнтон, Кристл Мартин, Чейз Маллинз, Джон Бигхем, Эрик Бэйкер, Флип Коблер, Эми Шумахер, Tina Van Berk, Saphina Chanadet, Виктория ИпполитоПеревод: Дублированный (Moygolos)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525BDBFC719DCD7CA4FA494FACBF73E15F68A910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851130   (1054763) от 31.01.2026
-
-Гринч. Ужасающий новый / The Mean One (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054763.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 лет назад в канун Рождества Гринч убил маму Синди. Повзрослев, она возвращается в родной дом на праздники. В этот раз Гринч нападает на её отца и хочет не просто похитить Рождество, а всех убить. Синди готовится остановить зелёного монстра.Производство: США / Sleight of Hand ProductionsЖанр: ужасы, комедияРежиссер: Стивен ЛамортАктеры: Дэвид Ховард Торнтон, Кристл Мартин, Чейз Маллинз, Джон Бигхем, Эрик Бэйкер, Флип Коблер, Эми Шумахер, Tina Van Berk, Saphina Chanadet, Виктория ИпполитоПеревод: Дублированный (Moygolos)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01999E2674205EEBA08E5628B53F9FF2886474E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851131   (1054762) от 31.01.2026
-
-Гринч. Ужасающий новый / The Mean One (2022) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054762.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 лет назад в канун Рождества Гринч убил маму Синди. Повзрослев, она возвращается в родной дом на праздники. В этот раз Гринч нападает на её отца и хочет не просто похитить Рождество, а всех убить. Синди готовится остановить зелёного монстра.Производство: США / Sleight of Hand ProductionsЖанр: ужасы, комедияРежиссер: Стивен ЛамортАктеры: Дэвид Ховард Торнтон, Кристл Мартин, Чейз Маллинз, Джон Бигхем, Эрик Бэйкер, Флип Коблер, Эми Шумахер, Tina Van Berk, Saphina Chanadet, Виктория ИпполитоПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: Русские (Forced) - отдельноПродолжительность: 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CA160DA5A308BA1A67511A4CAD6ADE847768F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851116   (1054761) от 05.02.2026
-
-Память убийцы / Memory of a Killer (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 10) WinMedia (обновляемая)
-
->>Зарубежные сериалы
+>>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Анджело Ледда — профессиональный убийца, умело скрывающий свою деятельность. Для всех он обычный человек, работающий в офисе, но на самом деле он беспощадный наёмник. Врачи диагностируют у него раннюю стадию болезни Альцгеймера. Осознавая, что его будущее и безопасность близких под угрозой, он решает завершить карьеру. Однако перед этим соглашается выполнить последнее (   Читать дальше...   )Производство: США / Eyeworks, Fox Entertainment, Warner Bros. Television, Welle EntertainmentЖанр: боевик, триллер, драма, криминалРежиссер: Дэвид Петрарка, Тоа Фрейзер, Джон ФоусетАктеры: Патрик Демпси, Майкл Империоли, Ричард Кларкин, Ал Сапиенца, Дженни Рэйвен, Дэниэл Дэвид Стюарт, Иэн Мэтьюз, Джофф Шовелл, Дин АрмстронгПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:45:00 серия
+Данное издание представляет сборник практических советов по цифровой (кибер), финансовой и, частично, информационной безопасности физического лица (личности), персональных электронных устройств (как мобильных, так и стационарных), обеспечения безопасности, приватности, конфиденциальности и анонимности пользователя, а также сохранности данных в целостности и доступности.Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D038E6AC6703283FA0ABB40EBDBBF66BC58AB5EF
+magnet:?xt=urn:btih:D32A203EC168BF9CB4E5752923A83121356A51AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +50,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851119   (1054760) от 01.02.2026
+###  Публикация: 1852860   (1056559) от 12.02.2026
 
-Джек и Эйва / Jack and Ava (2026) WEB-DL [H.264/1080p] [MVO]
+Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Reason confidently about distributed systems.
+
+Distributed systems are complex—but they’re also everywhere in modern software. A fuzzy understanding of how distributed systems work is no longer an option. Think Distributed Systems helps you develop clear and dependable mental models of distributed systems, so you can reason about complex problems with confidence. (   Читать дальше...   )Жанр: Client-Server Networking Systems,  Computer Systems Analysis & Design, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852858   (1056558) от 12.02.2026
+
+Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Just the Docker you need to know in 22 bite-sized lessons!
+
+In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852857   (1056557) от 12.02.2026
+
+Chris Zetter | Build a Database Server. Learn how real databases work by following this practical guide to building your own (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Learn how real databases work by following this practical guide to building your own in a programming language of your choice.
+Build a language from scratch- Create an interpreter that can parse, type check and run SQL queries. Start with running simple queries and build up to more complex ones.
+Learn SQL (the fun way) - Gain a deeper understanding of SQL. Cover (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5461CF17A782182A57708A11FD0C66B8F7C4497F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852856   (1056556) от 12.02.2026
+
+Adarsh Divakaran | Deep Dive Python. Techniques and Best Practices for Developers (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Take your programming skills to the next level by expanding real-world Python applications in open-source code. This book is an essential guide for experienced developers looking to enhance their Python proficiency.
+
+Using code examples from popular open-source projects you’ll master Python concepts and see how they are applied in production-level code. By understanding (   Читать дальше...   )Жанр: Object-Oriented Design, Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Apress MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562B6FEFA631BBF532163046E69905E69FE4CDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852855   (1056555) от 12.02.2026
+
+Hillel Wayne | Logic for Programmers (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Logic is the most important branch of math to software engineering. Knowing logic opens up a vast world of development techniques, from everyday tricks of the trade to exotic tools for cracking impossible tasks.
+This book teaches the basics of logic and nine special logic-powered techniques: property testing, decision tables, constraint solving, and more. Over 40 (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9037D6999B60FCDDCA7F8F6B6C37BF2619BBF2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852854   (1056554) от 12.02.2026
+
+Florent Poux | 3D Data Science with Python. Building Accurate Digital Environments with 3D Point Cloud Workflows. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Our physical world is grounded in three dimensions. To create technology that can reason about and interact with it, our data must be 3D too. This practical guide offers data scientists, engineers, and researchers a hands-on approach to working with 3D data using Python. From 3D reconstruction to 3D deep learning techniques, you'll learn how to extract valuable insights (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Computer SoftwareЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140D70FDE5FB6C281043128AB4031C66AE29FC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853341   (1056553) от 12.02.2026
+
+Хищник: Планета смерти / Predator: Badlands (2025) UHD BDRip [H.265/1080p] [HDR10, Dolby Vision Profile 7.6, 10-bit]
 
 >>Горячие новинки
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-История повествует о Джеке, сироте, и Аве, пережившей насилие в семье. Став любовниками, они пускаются в бега после того, как крадут партию нелегального оружия у местных преступников в маленьком южном городке. Сюжет охватывает 72 часа их жизни, в течение которых за ними охотятся и бандиты, и коррумпированные полицейские.Производство: США / Easy Brothers, Ollie & Panda FilmsЖанр: драмаРежиссер: Michael PollardАктеры: Элиша Херберт, Дион Смит, Isaac Lee, Милтон Сол, Холден Смит, Miya Golden, Джанет Л. Бёрнс, Carter Sirianni, Ивэн Бергман, Malik J AliПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: русский, английскийСубтитры: русские (full - AI), английские (full, SDH)Продолжительность: 01:30:27
+В глазах воинственного отца молодой хищник Дек — полное ничтожество и позор клана. Отец приказывает старшему сыну убить его, но тот ценой собственной жизни спасает брата и отправляет его на населённую агрессивными тварями планету Генна. Там Дек встречает располовиненную девушку-андроида Тию, некогда прибывшую сюда в составе экспедиции с Земли, и, чтобы доказать отцу (   Читать дальше...   )Производство: США, Австралия, Новая Зеландия, Канада, Германия / 20th Century Studios, TSG Entertainment, Deutsche FilmakademieЖанр: фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эль Фаннинг, Димитриус Коломатанги, Рави Нарайан, Майкл Хомик, Стефан Грубе, Рубен Де Йонг, Камерон Браун, Элисон Райт, Мэтт Даффер, Росс ДафферПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3ECDAF57BBAB9A5D3CE8A34FBC461F0885D3A0B
+magnet:?xt=urn:btih:8D62B9EB56331D5A7D853A5E9276AD0FA641D43E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,135 +241,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851134   (1054759) от 31.01.2026
+###  Публикация: 1852853   (1056552) от 12.02.2026
 
-Проекты - VideoHive - Valentine Cupid 2D character Animation Pack Vol 9 - 60790095 [AEP]
+Малькольм Макдональд | Грокаем безопасность веб-приложений (2025) [PDF]
 
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор анимационных двухмерных персонажей Купидона.
-"И в жару, и в любой холод, где-то здесь Купидон ходит.....
-С колчаном полным стрел ходит,... Мальчик-Купидон!
-Хорошо знает он дело,... у него острые стрелы,(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C77E3CEC2B5EE7B17B37D37D107302ECA540508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851137   (1054758) от 01.02.2026
-
-Reg Organizer 9.90 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Microsoft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр импортируемых (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA4C50C39183302CFEE4B29481C8A7EF0818A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851136   (1054757) от 31.01.2026
-
-PotPlayer 260114 (1.7.2277) [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054757.jpg" />
-</div>
-
-
-###  Подробнее
-
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00911F33945DE456BEDFC7028833E343C554895E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851138   (1054756) от 31.01.2026
-
-Robin Trower - One Moment In Time - Live In The USA (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Rhythm & Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Razor's Edge (Live) (03:05)
- 02 - Too Rolling Stoned (Live) (08:06)
- 03 - Wither On The Vine (Live) (03:46)
- 04 - Somebody Calling (Live) (07:55)(   Читать дальше...   )Жанр: Blues, Blues Rock, Rhythm & BluesПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A13286E67347CC9BA0D083366D2648DBDB30D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851141   (1054755) от 13.02.2026
-
-Гоморра: Истоки / Gomorrah: The Origins (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 6) HDrezka Studio (обновляемая)
-
->>Зарубежные сериалы
+>>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-В 1970-е годы Неаполь, преступная столица Италии, переживает фундаментальные перемены. Местные мафиози, промышляющие контрабандой сигарет, постепенно переключаются на распространение более тяжелых наркотиков. Шестнадцатилетний мальчишка Пьетро Савастано, проживающий в неблагополучном районе города, вместе со своими друзьями зарабатывает на жизнь мелкими кражами. (   Читать дальше...   )Производство: Италия / Cattleya, SKY StudiosЖанр: криминалРежиссер: Марко Д’Аморе, Франческо ГиаччоАктеры: Бьяджо Форести, Флавио Форно, Франческо Пеллегрино, Фабио Балестра, Лука Лубрано, Туллия Венеция, Маттиа Франческо Лавиоза, Джуниор Рансел Родригес Арсия, Антонио Буоно, Луиджи КардонеПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, итальянскийСубтитры: Русские (Forced), итальянские (вшитые не отключаемые.)Продолжительность: ~00:50:00 серия
+Безопасность приложений — приоритетная задача для веб-разработчиков. Вы работаете над интерфейсом фронтенд-фреймворка? Разрабатываете серверную часть? В любом случае вам придется разбираться с угрозами и уязвимостями и понимать, как закрыть, дырки через которые хотят пролезть черные хакеры.
+Здесь вы найдете все, что нужно практикующему разработчику для защиты приложений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F0C61DD0F2FE5D98B22AF22916CD9D45395E27D
+magnet:?xt=urn:btih:9F70911515AFC9D06812E1E010020046C3971335
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,25 +268,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851097   (1054754) от 31.01.2026
+###  Публикация: 1852852   (1056551) от 12.02.2026
 
-Любовь с уведомлением / Two Weeks Notice (2002) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+Йоаким Сунднес | Python. Системный анализ данных, расчеты и моделирование (2025) [PDF]
 
->>Остальное
->>hand made * video
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Джордж Уэйд и шага не может сделать без Люси Келсон, работающей главным консультантом в его корпорации. Однако обращается он с ней скорее как с няней, а не как с блестящим юристом, окончившим Гарвард. По прошествии года все это надоедает Люси, и она решает уволиться. Джордж соглашается ее отпустить, но с одним условием — она должна найти себе достойную замену...Производство: США, Австралия / Castle Rock Entertainment, Fortis Films, NPV Entertainment, Village Roadshow PicturesЖанр: мелодрама, комедияРежиссер: Марк ЛоуренсАктеры: Сандра Буллок, Хью Грант, Алисия Уитт, Дэна Айви, Роберт Клейн, Хезер Бёрнс, Дэвид Хэйг, Дориан Миссик, Джозеф Бадалукко мл., Джонатан ДокучицПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:41:12
+Перед вами подробное руководство по применению в научных целях Python - современного и наиболее востребованного языка программирования. Его преимущество заключается в том, что это так называемый язык высокого уровня с простым и интуитивно понятным синтаксисом. Однако несмотря на то, что Python хорошо подходит в качестве языка для начинающих, он также активно применяется (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83171E9A82ED26F7699D678DC7E0C2CDB816515C
+magnet:?xt=urn:btih:74DF7B2333A18A11D6582A17B2A45DFE8548321D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,25 +294,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851142   (1054753) от 31.01.2026
+###  Публикация: 1852851   (1056550) от 12.02.2026
 
-Гринч. Ужасающий новый год / The Mean One (2022) WEB-DLRip [H.264]
+Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Programming for Humans. 3rd Edition (2025) [PDF, EPUB] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-20 лет назад в канун Рождества Гринч убил маму Синди. Повзрослев, она возвращается в родной дом на праздники. В этот раз Гринч нападает на её отца и хочет не просто похитить Рождество, а всех убить. Синди готовится остановить зелёного монстра.Производство: США / Sleight of Hand ProductionsЖанр: ужасы, комедия, пародия, слэшер, рождествоРежиссер: Стивен ЛамортАктеры: Дэвид Ховард Торнтон, Кристл Мартин, Чейз Маллинз, Джон Бигхем, Эрик Бэйкер, Флип Коблер, Эми Шумахер, Тина Ван Берк, Сафина Чанадет, Виктория Ипполито и др.Перевод: Дублированный (Moygolos)Язык озвучки: русскийСубтитры: русские (hurdsub на надписи)Продолжительность: 01:32:14
+Your Python code may run correctly, but what if you need it to run faster? This practical book shows you how to locate performance bottlenecks and significantly speed up your code in high-data-volume programs. By explaining the fundamental theory behind design choices, this expanded edition of High Performance Python helps experienced Python programmers gain a deeper (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF22E5D3150370A0CDCB0FCB600F7F867066CDBF
+magnet:?xt=urn:btih:1C95BD1500740C3DF127BCBD18AC632C3EE40240
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,25 +320,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851057   (1054752) от 31.01.2026
+###  Публикация: 1852850   (1056549) от 12.02.2026
 
-Истерзанные сердца / Inimi cicatrizate (2016) WEB-DL [H.264/1080p] DVO
+Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generative AI and Machine Learning (2025) [PDF, EPUB] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Лето 1937 года. Больной костным туберкулезом молодой человек двадцати с небольшим лет отправляется в санаторий на Чёрном море. Лечение состоит из болезненных уколов в позвоночник и необходимости много времени проводить в постели. Немного привыкнув в своему печальному положению, Эммануэль вдруг обнаруживает, что и внутри санатория есть своя жизнь.Производство: Румыния, Германия, Бельгия, Франция (Bord Cadre Films,	Centrul National al Cinematografiei (CNC)   3.	HI Film Productions,	Komplizen Film,	Programme MEDIA de la Communauté Européenne)Жанр: драма, биографияРежиссер: Раду ЖудеАктеры: Шербан Павлу, Адина Критеску, Александру Богдан, Ивана Младенович, София Николаеску, Габриел Спахиу, Александру Биндя, Илинка Харнут, Alberto Dinache, Anca HanuПеревод: Двуголосый любительский (Синема-УС)Язык озвучки: русский, румынскийСубтитры: отсутствуютПродолжительность: 02:21:32
+Eager to learn AI and machine learning but unsure where to start? Laurence Moroney's hands-on, code-first guide demystifies complex AI concepts without relying on advanced mathematics. Designed for programmers, it focuses on practical applications using PyTorch, helping you build real-world models without feeling overwhelmed.
+From computer vision and natural language (   Читать дальше...   )Жанр: Generative AI, Microsoft Programming, Python ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C5EB07A1DF25D9B38D6658DC0457BA6A066585D
+magnet:?xt=urn:btih:C690ABDA5B4AB21DF9CC72837C4D3E05D432BD3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,25 +347,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851145   (1054751) от 31.01.2026
+###  Публикация: 1852849   (1056548) от 12.02.2026
 
-Журнал | Небосвод №03 (март 2026) [PDF]
+Alireza Parandeh | Building Generative AI Services with FastAPI. A Practical Approach to Developing Context-Rich Generative AI Applications. 1st Edition (2025) [PDF, EPUB] [EN]
 
->>Журналы
->>Научно-популярные журналы
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "Небосвод" расскажет вам новости из мира астрономии. В журнале вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будете в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: НебосводФормат: PDFКачество: Изначально электронное (ebook)
+Ready to build production-grade applications with generative AI? This practical guide takes you through designing and deploying AI services using the FastAPI web framework. Learn how to integrate models that process text, images, audio, and video while seamlessly interacting with databases, filesystems, websites, and APIs. Whether you're a web developer, data scientist, (   Читать дальше...   )Жанр: Web Services, Generative AI, Software DevelopmentЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00EF537AEB6FCC73FF18E8E6FF0BF2CD9F54AD34
+magnet:?xt=urn:btih:81DBB6003DA9A422AE3FE31039A465578E97BAE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,25 +373,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851140   (1054749) от 31.01.2026
+###  Публикация: 1852848   (1056547) от 12.02.2026
 
-Eduson Academy, Eduson Academy | Soft skills для руководителя (2022) WEB-DL [AD] [RU]
+Bartosz Konieczny | Data Engineering Design Patterns. Recipes for Solving the Most Common Data Engineering Problems. 1st Edition (2025) [PDF, EPUB] [EN]
 
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Курс для тех, кто хочет быть гибким руководителем, легко адаптироваться к изменениям, быстро решать конфликты и выстраивать коммуникацию с командой, давать ценную обратную связь и мотивировать каждого сотрудника на выдающиеся результаты.Производство: Eduson AcademyЖанр: видеокурс, обучающий курс, бизнесЯзык озвучки: русскийПродолжительность: 30:56:10Реклама: наложение на видео и в презентации (плашка спонсора и QR-код)
+Data projects are an intrinsic part of an organization's technical ecosystem, but data engineers in many companies continue to work on problems that others have already solved. This hands-on guide shows you how to provide valuable data by focusing on various aspects of data engineering, including data ingestion, data quality, idempotency, and more.
+
+Author Bartosz (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99938D0FD626DCDDD24A412B7FA90415A147483D
+magnet:?xt=urn:btih:4F246461EB2E1CA02248C98133CED1064D6C79B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,26 +401,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851102   (1054748) от 31.01.2026
+###  Публикация: 1852847   (1056546) от 12.02.2026
 
-Живая еда с Сергеем Малозёмовым (31.01.2026) WEBRip [H.264/720p]
+Antonio Di Cecco, Leonida Gianfagna | Explainable AI with Python. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Чем кроме цвета отличается дорогой ялтинский лук от обычного желтого? Какой лук подойдет для хрустящих колец, а какой превратится в кашицу?
-Команда программы устроила целое гастрономическое путешествие по Кавказу! Что такое баарш и как его подают с чесночным соусом? Как готовят дагестанскую кашу с курагой и урбечем? Каковы ритуалы поедания осетинских пирогов и как (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:12
+This comprehensive book on Explainable Artificial Intelligence has been updated and expanded to reflect the latest advancements in the field of XAI, enriching the existing literature with new research, case studies, and practical techniques.
+
+The Second Edition expands on its predecessor by addressing advancements in AI, including large language models and multimodal (   Читать дальше...   )Жанр: Python Programming, Probability & Statistics, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: SpringerФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FFE4000DBE41BB4F364084D851FA299462B3C98
+magnet:?xt=urn:btih:FC3BD67FFD617AC2E6B7D43DFF8222C1BB1E89B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,25 +429,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851153   (1054747) от 01.02.2026
+###  Публикация: 1852846   (1056545) от 12.02.2026
 
-Личное дело судьи Ивановой (1986) WEBRip [H.264/1080p]
+Matt Frisbie | Building Browser Extensions. Create Modern Extensions for Chrome, Safari, Firefox, and Edge. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-В семье героини фильма все шло благополучно до тех пор, пока ее любимый муж, провожая их дочку в музыкальную школу, не познакомился с молоденькой учительницей музыки и не увлекся ею. В образцовой семье судьи Ивановой поселились ложь и обман...Производство: СССР / Киностудия им. М. ГорькогоЖанр: драмаРежиссер: Илья ФрэзАктеры: Наталья Гундарева, Сергей Шакуров, Оксана Дацкая, Лилия Гриценко, Марина Зудина, Татьяна Пельтцер, Алексей Гуськов, Аристарх Ливанов, Лариса Гребенщикова, Анна БелюженкоПродолжительность: 01:20:53
+This book is the definitive guide to building modern browser extensions, covering everything from fundamental concepts to advanced techniques.
+
+Developing a browser extension is more like building a mobile app than a traditional website. Extensions operate within a unique environment with their own security model, lifecycle, and APIs. This book demystifies the process, (   Читать дальше...   )Жанр: Software Design & Engineering, Software Development, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:575F4B229AD083A30C09605AF2519809F70E3F46
+magnet:?xt=urn:btih:34FD1754784DDF44951DD205F9A8DBF2D14A70FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,25 +457,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851163   (1054746) от 31.01.2026
+###  Публикация: 1852844   (1056544) от 12.02.2026
 
-Психотерапия: Маленькая история о писателе, который решил написать о серийном убийце / Psycho Therapy: The Shallow Tale of a Writer Who Decided to Write about a Serial Killer (2024) BDRip [H.264/720p]
+Satej Kumar Sahu | Building Secure PHP Applications. A Comprehensive Guide to Protecting Your Web Applications from Threats. First Edition (2024) [PDF, EPUB] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Писатель, переживающий развод, завязывает дружбу с серийным убийцей в отставке, который по стечению обстоятельств становится его консультантом по браку днем и консультантом по убийствам для его следующей книги ночью.Производство: США, Турция / Asteros Film, Cinegryphon Entertainment, Curious GremlinЖанр: драма, комедияРежиссер: Толга КарачеликАктеры: Стив Бушеми, Джон Магаро, Бритт Лауэр, Сидни Коул Александр, Уорд Хортон, Энтони Майкл Лопес, Олли Хааскиви, Ли Р. Селларс, Джейкоб Минг-Трент, Надир СарыбаджакПеревод: Дублированный (Pride Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:42:44
+Learn how to protect PHP applications from potential vulnerabilities and attacks. As cyberattacks and data breaches continue to rise, it's crucial for developers and organizations to prioritize security in their PHP applications. The book offers an all-encompassing guide to securing PHP applications, covering topics ranging from PHP core security to web security, (   Читать дальше...   )Жанр: Computer Network Security, Computer Programming Languages, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6A150A7F61A908A6651D4B57262C7442FCD9FD7
+magnet:?xt=urn:btih:909CB76401B6201065CAE69F74E8D0AFCC72AA31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,25 +483,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851160   (1054745) от 31.01.2026
+###  Публикация: 1852843   (1056543) от 12.02.2026
 
-Психотерапия: Маленькая история о писателе, который решил написать о серийном убийце / Psycho Therapy: The Shallow Tale of a Writer Who Decided to Write about a Serial Killer (2024) BDRip [H.264/10 ...
+Shailendra Kadre, Shailesh Kadre, Subhendu Dey | Mastering Text Analytics. A Hands-on Guide to NLP Using Python. First Edition (2025) [PDF] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Писатель, переживающий развод, завязывает дружбу с серийным убийцей в отставке, который по стечению обстоятельств становится его консультантом по браку днем и консультантом по убийствам для его следующей книги ночью.Производство: США, Турция / Asteros Film, Cinegryphon Entertainment, Curious GremlinЖанр: драма, комедияРежиссер: Толга КарачеликАктеры: Стив Бушеми, Джон Магаро, Бритт Лауэр, Сидни Коул Александр, Уорд Хортон, Энтони Майкл Лопес, Олли Хааскиви, Ли Р. Селларс, Джейкоб Минг-Трент, Надир СарыбаджакПеревод: Дублированный (Pride Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:42:44
+This book is a comprehensive guide to mastering Natural Language Processing (NLP), a rapidly growing field in AI-powered text and data analytics. It equips you with tools and techniques to extract valuable insights from both structured and unstructured data, enabling you to uncover insights beyond the reach of traditional data analysis methods and stay competitive (   Читать дальше...   )Жанр: Python Programming, Probability & Statistics, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0408618FD902175A4696D8895CCD262E0E2BA1CF
+magnet:?xt=urn:btih:E9EEC98A823DDC77B5E1AC92D54F56F007E37245
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,26 +509,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851158   (1054744) от 31.01.2026
+###  Публикация: 1853343   (1056542) от 12.02.2026
 
-Плата за подставу / Payback (2021) BDRip [H.264/1080p]
+MediaHuman YouTube Downloader 3.9.18 (1202) (x64) [Multi/Ru]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Короткая командировка брокера Майка заканчивается жестокой перестрелкой и несколькими годами тюрьмы. Выйдя на свободу, он сводит счёты со всеми, кто его предал, но ставит на кон свою новую жизнь и семью.
-Майк работает на Уолл-Стрит, делает успехи в карьере и вместе с любимой женой ждёт рождения дочери. Его налаженная жизнь летит под откос после поездки в Лос-Анджелес (   Читать дальше...   )Производство: США / Mensch ProductionsЖанр: триллер, драмаРежиссер: Джозеф МеншАктеры: Мэтт Леветт, Тоби Леонард Мур, Анна Барышников, Лев Горн, Раде Шербеджия, Елена Сатине, Борис Ли Крутоног, Давид Вадим, Билл Сейдж, Эри БэркэнПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:31:18
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDF18068B868CB173420A4F9CF62A0AA03A919BB
+magnet:?xt=urn:btih:693C8DFAA89FDA221DC9F06475438F2E439D285E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,26 +535,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851159   (1054743) от 31.01.2026
+###  Публикация: 1852842   (1056541) от 12.02.2026
 
-Плата за подставу / Payback (2021) BDRip [H.264]
+Юрий Чернов | Искусство Agile-тестирования (2024) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Короткая командировка брокера Майка заканчивается жестокой перестрелкой и несколькими годами тюрьмы. Выйдя на свободу, он сводит счёты со всеми, кто его предал, но ставит на кон свою новую жизнь и семью.
-Майк работает на Уолл-Стрит, делает успехи в карьере и вместе с любимой женой ждёт рождения дочери. Его налаженная жизнь летит под откос после поездки в Лос-Анджелес (   Читать дальше...   )Производство: США / Mensch ProductionsЖанр: триллер, драмаРежиссер: Джозеф МеншАктеры: Мэтт Леветт, Тоби Леонард Мур, Анна Барышников, Лев Горн, Раде Шербеджия, Елена Сатине, Борис Ли Крутоног, Давид Вадим, Билл Сейдж, Эри БэркэнПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:31:18
+Книга посвящена тестированию программного обеспечения в рамках технологии Agile. Рассматриваются основные аспекты Agile-тестирования: методология, организация, процессы, категории и техники тестирования, инфраструктура, тестовое обеспечение, контроль качества данных. Отдельные главы посвящены психологии Agile-тестирования и особенностям работы тестировщика в Agile-команде. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC7B963F58CD88DBDFE8A4A69ABD7E8B40F9EB87
+magnet:?xt=urn:btih:0814CC565100BDB8FC61A269A18F49638EB443A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,25 +561,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851157   (1054742) от 31.01.2026
+###  Публикация: 1852841   (1056540) от 12.02.2026
 
-Некуда бежать / Nowhere to Run (1993) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+В.Ю. Арьков | Частотный анализ числовых и текстовых данных. Учебное пособие (2023) [PDF]
 
->>Остальное
->>hand made * video
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Беглый заключенный Сэм находит кров на уединенной ферме, где живет Клэйди Андерсон — молодая женщина с двумя детьми. С трудом сбежав от полиции, Сэм уже на пути к свободе, но Клэйди угрожает опасность, и Сэм остается, чтобы ей помочь.Производство: США / Columbia Pictures CorporationЖанр: боевик, триллер, драма, мелодрамаРежиссер: Роберт ХармонАктеры: Жан-Клод Ван Дамм, Розанна Аркетт, Киран Калкин, Тед Левайн, Тиффани Тоубмэн, Эдвард Блэтчфорд, Энтони Старк, Джосс Экленд, Аллан Граф, Леонард Термо и др.Перевод: Дублированный (Дубляжная группа киностудии имени М. Горького)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:34:19
+Данная работа посвящена применению современных методов и технологий больших данных в курсе бизнес-аналитике и статистики. Анализ частоты появления различных значений — один из способов первоначальной обработки данных. Чаще всего его относят к описательной статистике или аналитике. Подсчет частот имеет отношение распределению. Поэтому для успешного восприятия материала (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3922F374D4A93A0064321ACBFAA79D0C1532859
+magnet:?xt=urn:btih:397B1A32562627BFA2B658F331F8C14F14A25931
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,25 +587,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851165   (1054741) от 07.02.2026
+###  Публикация: 1852840   (1056539) от 12.02.2026
 
-Совесть (1974) WEBRip [H.264] (сезон 1, серии 1-5 из 5)
+Валерий Рябинин | База про нейросети (2025) [PDF]
 
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Из фашистского концлагеря в конце войны бегут трое советских военнопленных. Им помогает и бежит вместе с ними один из охранников. Спустя много лет этот бывший немецкий прихвостень приходит к мысли об уничтожении всех беглецов, с кем он когда-то совершил побег из концлагеря. Свой жестокий план он начинает приводить в действие...Производство: СССР | ТО "Экран"Жанр: детективРежиссер: Юрий КавтарадзеАктеры: Дальвин Щербаков, Александр Мартынов, Борис Кудрявцев, Всеволод Сафонов, Анатолий Ромашин, Валентин Буров, Паули Ринне, Вячеслав Кутаков, Людмила Давыдова, Никита Подгорный и др.Продолжительность: ~01:23:00 серия
+Эта книга для всех, кто хочет понимать происходящее и не остаться в стороне от главной технологической трансформации нашего времени. Простым и доступным языком мы расскажем, как устроены нейронные сети, почему они стали такими мощными именно сейчас и как вы можете использовать их уже сегодня — в работе, учебе и повседневной жизни. Никаких сложных формул и программирования (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: СамиздатФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42A2C7A24960074D60DDC53979732A8A43723078
+magnet:?xt=urn:btih:8EF16A6FFF4C633DD6E22235FD2775DF38391F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852839   (1056538) от 12.02.2026
+
+Сергей Тарасевич | Искусственный интеллект. Основное (2024) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга для начинающих пользователей искусственного интеллекта.
+Цель книги - быстро дать начальные знания об искусственном интеллекте, захватывающей и перспективной теме и знания для начала использования его в работе и жизни. Книга написана простым и понятным языком.
+В книге используются актуальные на сегодняшний день термины в программировании и науке. В дальнейшем, (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D91E78FFE1139E5BCA7561B2B2A0044C43F472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852838   (1056537) от 12.02.2026
+
+Д.Ю. Петров, Е. Окорокова | Японский язык. 16 уроков. Базовый курс (2024) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Это серия самоучителей от знаменитого полиглота и синхронного переводчика Дмитрия Петрова. Он уверен: чтобы заговорить на иностранном языке, совсем не обязательно посвящать его изучению десятилетия. Гораздо важнее освоить базовые алгоритмы плюс минимально необходимый для общения запас слов.
+И все это вполне возможно сделать за 16 уроков, что сам Дмитрий Петров много (   Читать дальше...   )Жанр: Языки, самоучителиИздательство: ЭксмоФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441A193D0DDF22722F1B5967F8EA311816DFE166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852837   (1056536) от 12.02.2026
+
+Р.А. Гонсалес, Р.Р. Алимова | Испанский на все случаи жизни. Полезный самоучитель (2017) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В книге в предельно доступной форме объясняется все самое необходимое из лексики и грамматики испанского языка. Ко всем словам и выражениям дается транскрипция русскими буквами, что позволяет использовать это пособие еще и как разговорник. Самоучитель содержит языковые подсказки, в которых объясняются основные элементы грамматики. Кроме того, приводятся списки полезных (   Читать дальше...   )Жанр: Языки, самоучителиИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C119A55AFDF2865790B74321E7BC03971E69F734
 ```
 
 https://mybot314.ru/tekegram_catalog/

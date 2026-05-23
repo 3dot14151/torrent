@@ -1,3 +1,55 @@
+###  Публикация: 1400440   (718860) от 05.08.2020
+
+Маленькие пташки / Little Birds (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История двух совершенно не похожих друг на друга женщин, оказавшихся в международной зоне Танжер в 1955 году – накануне ее ликвидации, после которой Танжер стал частью Королевства Марокко. Молодая американка Люси Сэвидж путешествует в уникальное место у Гибралтарского пролива в надежде разобраться как в собственной сексуальной и личной жизни, так и в грядущих общественно-политических (   Читать дальше...   )Производство: Великобритания / Warp FilmsЖанр: мелодрама, драмаРежиссер: Стэйси ПассонАктеры: Джуно Темпл, Рафаэль Аклок, Жан-Марк Барр, Дэвид Костабайл, Фейди Эльсайед, Камель Лабруди, Эми Ландекер, Мэтт Лауриа, Росси де Пальма и др.Перевод: Двуголосый любительский (LakeFilms)Продолжительность: ~00:50:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD90F81266102C0583EA9346974CA7CB1F9D0CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400441   (718631) от 05.08.2020
+
+Маленькие пташки / Little Birds (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История двух совершенно не похожих друг на друга женщин, оказавшихся в международной зоне Танжер в 1955 году – накануне ее ликвидации, после которой Танжер стал частью Королевства Марокко. Молодая американка Люси Сэвидж путешествует в уникальное место у Гибралтарского пролива в надежде разобраться как в собственной сексуальной и личной жизни, так и в грядущих общественно-политических (   Читать дальше...   )Производство: Великобритания / Warp FilmsЖанр: мелодрама, драмаРежиссер: Стэйси ПассонАктеры: Джуно Темпл, Рафаэль Аклок, Жан-Марк Барр, Дэвид Костабайл, Фейди Эльсайед, Камель Лабруди, Эми Ландекер, Мэтт Лауриа, Росси де Пальма и др.Перевод: Двуголосый любительский (LakeFilms)Продолжительность: ~00:50:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6365A045FD5DA51E1E37C203198710B51186AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127353   (717875) от 30.04.2017
 
 Убийство на пляже / Бродчёрч / Broadchurch (2017) WEB-DLRip (сезон 3, серии 1-8 из 8) BaibaKo  [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A719BBBB7FE9C52AFAEFA7B301D108E6C72745A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287088   (704695) от 06.03.2019
-
-Странный город / Weird City (2019) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704695.jpg" />
-</div>
-
-
-###  Подробнее
-
-События сатирической антиутопии происходят на улицах Странного города, разделённого надвое. Вся власть в мегаполисе, где живут богатые и бедные, но отсутствует средний класс, принадлежит странному и таинственному доктору Негари. Каждый эпизод поднимает одну из острых тем из жизни современного общества в США и мире: зависимость от соцсетей, увлечение сайтами знакомств, (   Читать дальше...   )Производство: США / Monkeypaw Prodctions, Mosaic, Raskal Productions, Sonar EntertainmentЖанр: комедия, фантастикаРежиссер: Адам Бернштейн, Эми ХекерлингАктеры: Дилан О’Брайен, Аквафина, Майкл Сера, Розарио Доусон, Стивен Ян, Ханна Саймон, Гиллиан Джейкобс, Малкольм Барретт, Марк Хэмилл, Энтони Холидэй, Эмили КослоскиПеревод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:25:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5706A80AECBD9090DED1D84B3E37435E768E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284601   (704690) от 06.03.2019
-
-Коронер / Coroner (2019) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704690.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Торонто происходят загадочные убийства. Неизвестный маньяк ведёт хитроумную игру с представителями власти. Новый коронер решается бросить вызов хитроумному преступнику. В центре внимания сюжета оказывается не только расследование, но и острое психологическое противостояние персонажей.Производство: Канада / Back Alley Film Productions, Cineflix StudiosЖанр: драмаРежиссер: Эдриэнн Митчелл, Пол ФоксАктеры: Серинда Свон, Эрен Кассам, Алли Чунг, Роджер Р. Кросс, Саад Сиддикуи, Эрик Брюно, Ловелл Адамс-Грэй, Грэм Йокич, Николас Кэмпбелл и др.Перевод: Многоголосый закадровый, профессиональный | NewStudioПродолжительность: ~ 00:43:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE729A0797E675E220000B861B78452AB982DCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

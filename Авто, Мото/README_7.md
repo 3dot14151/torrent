@@ -1,3 +1,160 @@
+###  Публикация: 1495324   (880711) от 12.09.2021
+
+MotoGP. Этап 13. Гран-при Арагона. Квалификация (11.09.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+11 сентября 2021, суббота. 15:10 МСК. Этап 13, Гран-при Арагона. Испания, КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DF97B3D564E7ADFAAACFFFE05A5F19DCE508C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495399   (880607) от 12.09.2021
+
+Формула-2. Сезон 2021. 5-й Этап. Гран-при Италии. Гонка 2 (11.09.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+11 сентября 2021, суббота. 15:45 МСК. Этап 5, Монца, Италия. Гонка 2 (21 круг)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA64C6CB45B83B46CDED01B4A194BCCB1A236F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496005   (874223) от 16.09.2021
+
+Шумахер / Schumacher (2021) WEB-DL [H.264/1080p]
+
+>>След.
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+О жизни семикратного чемпиона мира Формулы-1, легендарного немецкого гонщика Михаэля Шумахера. В документальном фильме покажут архивные кадры с Михаэлем Шумахером, а также актуальные интервью с его женой Коринной, отцом Рольфом, братом Ральфом и его детьми Джиной-Марией и Миком. Также в фильме появятся бывшие коллеги и соперники — Жан Тодт, Берни Экклстоун, Себастьян (   Читать дальше...   )Производство: Германия, B14 Film (Production Company), DCM Pictures, NetflixЖанр: Документальный, история, биография, спортРежиссер: Ханс-Бруно Камертёнс, Ванесса Нёккер, Михаэль ВечПеревод: Многоголосый профессиональный (Netflix)Субтитры: Русские (Forced, Full), арабские, чешские, датские, немецкие (Full, SDH), греческие, английские (Forced, SDH), испанские, финские, французские, иврит, хорватские, венгерские, индонезийские, итальянские, японские, корейские, малайские, норвежские, голландские, польские, португальские, румынские, шведские, тайские, турецкие, украинские, вьетнамские, китайские.Продолжительность: 01:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5D6BCBF837118B3FEDDEB239B12178AFF7B1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374512   (872326) от 10.04.2020
+
+WRC. Чемпионат мира по ралли. Обзоры / World Rally Championship. Reviews (2019) HDTVRip [H.264/720p] [50fps] (этапы 1-13 из 14)
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вопреки опасениям, число производителей осталось неизменным: в последний момент британский коллектив M-Sport, который готовит к стартам фордовскую технику, смог гарантировать свое участие в WRC наряду с Тойотой, Ситроеном и Hyundai.
+В коллективе M-Sport сменился руководитель раллийной команды, обязанности которого отныне будет исполнять Ричард Милленер. Ну а сам (   Читать дальше...   )Жанр: Спорт, автоспорт, раллиПеревод: Одноголосый профессиональный (Владимир Башмаков)Продолжительность: ~00:52:00 каждый этап
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A8112DEA4A4F8046A1D0F526A46091D5161614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496710   (871408) от 18.09.2021
+
+MotoGP. Этап 14. Гран-при Сан-Марино. Квалификация (18.09.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+18 сентября 2021, суббота. 15:10 МСК. Этап 14, Гран-при Сан-Марино. Италия, КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A685F9D2921090F2775ACA8A8A37DE00E5431A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497043   (867865) от 20.09.2021
+
+MotoGP. Этап 14. Гран-при Сан-Марино. Гонка (19.09.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+19 сентября 2021, воскресенье. 15:00 МСК. Этап 14, Гран-при Сан-Марино. Италия, Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1257B339E688FC8A558F9AA0752A210C9EC84F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498192   (859635) от 25.09.2021
 
 Формула-2. Сезон 2021. 6-й Этап. Гран-при России. Гонка (25.09.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +163,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +215,7 @@ MotoGP. Этап 15. Гран-при США. Квалификация (02.10.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +241,7 @@ MotoGP. Этап 15. Гран-при США. Гонка (03.10.2021) WEBRip [H.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +294,7 @@ MotoGP. Этап 16. Гран-при Эмилии-Романьи. Квалифи
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +320,7 @@ MotoGP. Этап 16. Гран-при Эмилии-Романьи. Гонка (24
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +372,7 @@ MotoGP. Этап 17. Гран-при Алгарве. Квалификация (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +398,7 @@ MotoGP. Этап 17. Гран-при Алгарве. Гонка (07.11.2021) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +565,7 @@ MotoGP. Этап 18. Гран-при Валенсии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +591,7 @@ MotoGP. Этап 18. Гран-при Валенсии. Гонка (14.11.2021) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,171 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F1041D08767F36DD80B243FA4CF087021AB23AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203205   (788525) от 01.02.2018
-
-Зеленый Ад / The Green Hell (2017) WEB-DL [H.264/1080p-LQ] [VO]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шикарный документальный фильм об истории самого легендарного, требовательного и смертельного гоночного трека в мире - Нюрбургского кольца.Телекомпания: Германия, Moonlake EntertainmentЖанр: Документальный, СпортРежиссер: Ханнес Майкл ШаллеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 1:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FE4D095C2BFD87D66DC2D2C05DF5BD47F252E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274745   (787163) от 18.01.2019
-
-Дакар 2019 вместе с КАМАЗ-мастер (2019) WEB-DL [H.264/1080p-LQ] (Серии 1-14 из 14)
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий ралли-рейд "Дакар 2019" вместе с легендарной командой КАМАЗ-мастерПроизводство: КАМАЗ-мастерЖанр: Спорт, АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:10:00 - 00:25:00 — серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE468577E0FB3203F3622B84891CDBAD9BD1C823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274536   (786945) от 19.01.2019
-
-Дакар 2019. Обзор / Dakar 2019 (2019) IPTV [H.264/1080i-LQ] (Этапы 0-10 из 10)
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786945.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Дакар-2019" станет первым ралли-марафоном, который пройдет на территории одной страны - Перу. Ранее Аргентина, Чили, Парагвай и Боливия отказались от организации гоночного мероприятия по экономическим соображениям.Телекомпания: Eurosport HD, Матч ТВЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: выпуски по ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D6FE525D3298CF2D9AC2F444C4CF5DD17BEB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388933   (785147) от 08.06.2020
-
-Серия Кубков NASCAR 2020. 10-й Этап. Атланта 500. Гонка / NASCAR Cup Series 2020. Round 10. Folds of Honor QuikTrip 500. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-07 июня 2020 года. Хэмптон (штат Джорджия, США).
-10-й Этап. Атланта 500 (Folds of Honor QuikTrip 500)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0581045888B393447FC6BEB8C84EFB203958C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390517   (782676) от 16.06.2020
-
-Серия Кубков NASCAR 2020. 12-й Этап. Хоумстед-Майами 400. Гонка / NASCAR Cup Series 2020. Round 12. Dixie Vodka 400. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-14 июня 2020 года. Хоумстед (штат Флорида, США).
-12-й Этап. Хоумстед-Майами 400 (Dixie Vodka 400)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD253C3CE169994824389E8028EFD1BDBDB83392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391993   (770677) от 23.06.2020
-
-Серия Кубков NASCAR 2020. 13-й Этап. Талладега 500. Гонка / NASCAR Cup Series 2020. Round 13. GEICO 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-21-22 июня 2020 года. Талладега (штат Алабама, США).
-13-й Этап. Талладега 500 (GEICO 500)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D155CAB8485BE084025F139FC32A994A2D128DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

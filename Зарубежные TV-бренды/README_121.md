@@ -1,3 +1,59 @@
+###  Публикация: 465704   (81688) от 12.03.2012
+
+Animal Planet: Нашествие саранчи: Насекомые, сожравшие Африку / Locust Invasion: The Insect that Ate Africa (2007) HDTV [1080i]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Французский энтомолог Антуан Фукар отправляется в Африку, чтобы узнать причины нашествий саранчи. Ему удается получить новые интересные данные об этих насекомых.Жанр: Научно-популярный, документальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009C902FEB3EB46DD2EA2708A8EC66330BC4B5D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465548   (81679) от 12.03.2012
+
+BBC: Век эгоизма. Часть 3 – В твоей голове сидит полицейский, которого нужно уничтожить / The Century of the Self. Part 3 - There is a Policeman Inside All Our Heads: He Must Be Destroyed (2002) TVRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это сериал о том, как идеи Зигмунда Фрейда о бессознательном были использованы власть имущими для управления поведением масс в эпоху демократии.
+
+Идеи Фрейда распространились по всей Америке в 50-х годах двадцатого века. Они распространялись благодаря усилиям дочери Фрейда Анны и его племянника Эдварда Бернейса. Он сделал теории Фрейда центральным стержнем рекламы и маркетинга. Оба они верили, что в основе каждого человеческого существа находится скрытое иррациональное начало, которое необходимо контролировать –  как для блага самого человека, так и ради стабильности общества.
+Но оппоненты, которые говорили, что фрейдисты неправы в своих представлениях о человеческой природе, были уже готовы отстранить наследников Фрейда от власти. Внутреннюю сущность человека не надо подавлять и контролировать, ее надо поощрять к самовыражению. Благодаря этому появится новый тип сильной личности и лучшее общество.
+Но результаты этой революции оказались совершенно противоположными. Они привели к появлению замкнутых на себя, уязвимых (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B60C287C8CB69D518AB8667FE375F778E70EF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466848   (81669) от 12.03.2012
 
 МИР ЧУДЕС: Украденные Исламские науки / Welt der Wunder: Das geheime Wissen des Islam (2006) WEB-DLRip
@@ -6,7 +62,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +143,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +198,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +250,7 @@ National Geographic Special: Суперкошки / National Geographic Special:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +276,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +302,7 @@ Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +328,7 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +354,7 @@ BBC: Век эгоизма. Часть 2 – Конструирование со
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +409,7 @@ Animal Planet: Заповедная Аляска / Into Alaska (2018) HDTV [H.26
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +435,7 @@ Animal Planet: Жуткие, настоящие и странные / Weird, Tru
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +461,7 @@ Animal Planet: Живой или вымерший. Флоридский черн
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +487,7 @@ Animal Planet: Дом для рептилий. Агамы Дикого Запа�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +513,7 @@ Animal Planet. Природа Ближнего Востока / Wildest Middle E
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +539,7 @@ Animal Planet: Дом для рептилий. Дино-террариум / Sca
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +565,7 @@ Animal Planet. Собаковедение: Новые истории / DOGS 101 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +592,7 @@ BBC Horizon. Какой длины верёвка? / How long is a piece of stri
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +619,7 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +645,7 @@ Animal Planet: То, что не видно вооруженным глазом 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +671,7 @@ BBC horizon. Как видеоигры влияют на нашу жизнь? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -626,58 +682,6 @@ BBC horizon. Как видеоигры влияют на нашу жизнь? / 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EAA3D4F0D4008FA8CC53F61DB0D80E3B4ED4AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154351   (63541) от 09.03.2024
-
-BBC. Horizon. Как перестать тревожиться и стать счастливым? / Don’t Worry, Be Happy (The Truth About Personality) (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас в детстве был жизнерадостным ребенком. И в возрасте мы стараемся казаться беззаботными, но на самом деле - это лишь видимость. Мы почти всегда думаем о плохом: о том, как всё ужасно, мы боимся потерять работу, заразится кошмарной болезнью или остаться без денег. Мы подвержены стрессу и страху перед будущим. Но есть ли у нас шанс измениться, перестать (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, психология, личностьРежиссер: Хелен НиксонУчастники: Майкл МослиПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC267C0C3E8ED04071F6DDAFBEB653F78B458B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100409   (63534) от 09.03.2024
-
-24 часа на Земле / 24 Hours on Earth (2013) SATRip (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могущественное Солнце - уникальный творец, который ежедневно дарит жизненную гармонию на Земле. Оно полноправный участник и созерцатель всех событий, случающихся на планете. Расположение Солнца судьбоносно всегда, независимо от пространства и временных рамок. Оно несет жизнь для одних существ, предоставляя им невероятные возможности, а также несет гибель другим существам. (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: ДокументальныйРежиссер: Джеймс ХонейборнПеревод: Дублированный, SDI MediaПродолжительность: 2 х ~ 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBC51DD5F22589519D6F0E70961576EC95EFF21
 ```
 
 https://mybot314.ru/tekegram_catalog/

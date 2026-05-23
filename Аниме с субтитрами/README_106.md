@@ -1,3 +1,108 @@
+###  Публикация: 1516787   (165277) от 12.12.2021
+
+Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рингариндо — это земля, со всех сторон окружённая огромной стеной. Стена взращивает, защищает и питает Рингариндо. Стена — это основа всего, Стена — это бог, ведь лишь благодаря её подаркам — Ракухо — жители могут призывать в бой огромных роботов, называемых Брайхейтами. Вид каждого из них индивидуален, а сила и способности напрямую зависят от убеждений человека, (   Читать дальше...   )Производство: Studio Voln / スタジオヴォルンЖанр: приключения, фантастика, мехаРежиссер: Танигути ГороПеревод: Wakanim (дехардсаб, оформление - ВВПупкин)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010E41BD42B9BF1DEE3A8D39D278B30F07ED71A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516794   (165144) от 12.12.2021
+
+Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another World: The Slow Life of a Cheat Pharmacist | Размеренная жизнь фармацевта-читера: Открыть аптеку в другом мире [2021, ...
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рэйдзи Кирио был типичным офисным планктоном, который целыми днями только и делал, что работал. В самый обычный день, идя на работу с отсутствующим выражением лица, он вдруг обнаружил, что оказался в лесу в другом мире. «О, должно быть, это то самое перерождение в другом мире, о котором рассказывают». Рэйдзи может создавать лекарства, которых очень не хватало в этом (   Читать дальше...   )Производство: EMT Squared / EMTスクエアードЖанр: комедия, фэнтези, повседневностьРежиссер: Сато МасафумиПеревод: CrunchyrollЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B43F902A87DF8C37F175AD3CFB6A685AEC7ECCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516802   (165116) от 12.12.2021
+
+Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdom | Герой-рационал перестраивает королевство [2021, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«О, наш герой!» - стандартная фраза, которой встречают Кадзую Сому жители иного мира. А ведь им действительно нужен новый герой!
+Но парень о героизме и не мечтает, он более чем практичен — никакой романтики, ведь теперь он у престола и обручён с принцессой Лисией Эльфриден. Экономика страны, в которой он оказался, терпит крах — нужна подмога. Кадзуя должен собрать (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ватанабэ ТакасиПеревод: SRsubs (эпизоды 1-4), AniLibria (эпизоды 5-13)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0BAD6CB759137D24048EA3406C8EF3EA8764C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668331   (165007) от 01.11.2023
+
+Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после школы [2023, TV, 4 из 4 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф аниме: Туалетный мальчик ХанакоПроизводство: студия Lerche / ラルケЖанр: комедияРежиссер: Китамура МасакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 4 эп. по 10 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D059FB45B67E29A82987B21C641ED727F172B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498222   (164775) от 12.12.2021
 
 Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедельникам 2 [2021, Web, 12 эп.] WEBRip 720p raw
@@ -6,7 +111,7 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +139,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +165,7 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +191,7 @@ Jaja-uma Quartet | Wild Cardz | Crown Knights | Дикие карты [1997, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +217,7 @@ Ie Naki Ko Remi | Remi, Nobody's Girl | Бездомная девочка Рем
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +243,7 @@ Pop Team Epic (2022) | Попсовый эпос [ТВ-2] [2022, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +270,7 @@ Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +296,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +322,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +348,7 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +374,7 @@ Nagagutsu o Haita Neko: 80 Nichikan Sekai Isshuu | Puss 'n Boots: Travels Around
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +426,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +453,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +479,7 @@ Shinobi no Ittoki | Время ниндзя [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +505,7 @@ Shiroi Suna no Aquatope / Auatrope of White Sand / Акватоп белого �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +531,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +558,7 @@ Nanamaru Sanbatsu | Fastest Finger First | Семь – верно, три – �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +584,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +612,7 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +638,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +664,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,112 +675,6 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 эп.] WEB-DL 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002B55D41860F9832430E13CF883DA28B299F82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433342   (161049) от 20.12.2020
-
-Air Master | Воздушный мастер [2003, TV, 27] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маки Айкава – застенчивая старшеклассница огромного роста. Маки Айкава – бывшая «королева гимнастики» японских островов. Маки Айкава – знаменитый уличный боец по прозвищу «Воздушный Мастер». Маки Айкава – кумир, соперник, друг, идол и просто любимая женщина.
-
-Итак, жизнь Маки Айкавы, «Воздушного Мастера»: ее победы (реже – поражения), ее друзья и враги, странствия (   Читать дальше...   )Производство: Студия Toei Animation / 東映アニメーションЖанр: боевые искусства, комедия, приключенияРежиссер: Нисио ДайсукэПеревод: Nolf, RoRay, MokonaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 27 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6242D97E1EA7585BC2E1FA6737E96AE8C329557F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581500   (161015) от 21.12.2022
-
-Mob Psycho 100 III | Моб Психо 100 [ТВ-3] [2022, TV, 12 эп.] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кагеяма Шигео, также известный как «Моб», — мальчик, у которого есть проблемы с самовыражением, но который оказался могущественным эспером. Моб полон решимости жить нормальной жизнью и подавляет свое экстрасенсорное восприятие, но когда его эмоции достигают уровня 100%, с ним происходит что-то ужасное! Поскольку он окружен лже-эсперами, злыми духами и таинственными (   Читать дальше...   )Производство: Студия Bones / ボンズЖанр: приключения, комедияРежиссер: Татикава ЮдзуруЯзык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA234F10E3AE33FA8F94CBEF464373ECF918ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347208   (160950) от 21.12.2022
-
-Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136 из 136] HDTVRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение всеми любимой истории из детства, про мальчика Эша Кетчума (Сатоши) и его партнера Пикачу. В этом сезоне к ним присоединяться Го со своим покемоном Хибани. Они вдвоем станут младшими исследователями в лаборатории профессора Сакураги. В этом сезоне будут представлены все регионы, которые появились в предыдущих сезонах аниме про покемонов, от  Канто  до  нового (   Читать дальше...   )Производство: Oriental Light and MagicЖанр: приключенияРежиссер: Томиясу ДайкиПеревод: Русские субтитры отЯзык озвучки: ЯпонскийСубтитры: ASS, Русские, Отключаемые (встроенные)Формат: MKVПродолжительность: 136 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D16A7FDBAB910B6E3FDC5DF3B70B8431AC3F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580556   (159525) от 24.12.2022
-
-Koukyuu no Karasu | Raven of the Inner Palace | Ворона в гареме [2022, TV, 13 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во внутреннем дворце живёт одна из супруг императора, которую тот никогда не навещал. Она известна как Супруга-Ворон. Одни люди, видевшее её, утверждают, что она старая, а другие — что она молодая. Ходят слухи, что она владеет магией и может выполнить любую просьбу от наведения смертельного проклятия до поиска потерянных вещей. Новый император отправляется навестить (   Читать дальше...   )Производство: Студия BN Pictures / バンダイナムコピクチャーズЖанр: фэнтезиРежиссер: Мияваки ТидзуруПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F28B6E7810E323B5DC4CD91B44CB874CDA4267
 ```
 
 https://mybot314.ru/tekegram_catalog/

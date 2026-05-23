@@ -1,3 +1,81 @@
+###  Публикация: 1792454   (20966) от 19.04.2025
+
+Echoes of Yi : Samsara (2025) [Ru/Multi] (16,270) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Echoes of Yi : Samsara - это мрачная игра в жанре боевых искусств, пронизанная традиционной китайской культурой. Игроки воплощают первого ученика Святого Меча, сражаясь с жестокими врагами и раскрывая тайну под Деревом Цзяньму. Вы справитесь с трудностями или поплывете по течению? Выбор за вами.Тип издания: SceneРазработчик: RunmengЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Китайский (упрощенный)Язык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C458F581463460D1C0BB59EEA03913C7925A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792471   (20908) от 19.04.2025
+
+Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Флакс Дэйбс, межгалактическая дальнобойщица и недовольная сотрудница корпорации, возвращается на планету Вауноуп. После заключения выгодного (хотя и сомнительного в моральном плане) контракта с представителем Бюро спецперевозок она не была здесь уже несколько лет. Но, выгорев на работе, решила отдохнуть и навестить старых приятелей. Вот только долгожданный отпуск (   Читать дальше...   )Тип издания: RepackРазработчик: Butterscotch ShenanigansЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048E94C440EA9B0DCC6D9CAEDEDE49A311A670C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792613   (20858) от 20.04.2025
+
+Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Соберите отряд и вернитесь в Забытые Королевства. Вас ждет история о дружбе и предательстве, выживании и самопожертвовании, о сладком зове абсолютной власти. Ваш мозг стал вместилищем для личинки иллитида, и она пробуждает в вас таинственные, пугающие способности.Тип издания: RepackРазработчик: Larian StudiosЖанр: RPG, Dungeons & Dragons, CRPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6969FF5A3703E5BADC64B443D981610946DFEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792733   (20729) от 21.04.2025
 
 The Fool's Apprentice (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +84,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16.269) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Multi] (0.411.140.0/dlc) S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Stone of Madness (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +396,7 @@ CyberCorp (2024) [Ru/Multi] (1.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Hero's Hour (2022) [Ru/Multi] (2.8.1b/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.b314.r63560/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0619724B1BB3D89359FEB311DBADAD1D2CFEFD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794447   (19889) от 29.04.2025
-
-Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u12/dlc) Repack dixen18 [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда небеса разверзаются и исторгают хаос, миру нужны герои. Станьте спасителем Тедаса в игре «Dragon Age: Инквизиция». Вы - Инквизитор, и вам предстоит спасти мир от него самого. Но этот путь будет вымощен тяжелыми решениями. Тедас - земля раздоров. Стороны не перестают враждовать друг с другом, даже когда в мир рекой текут демоны. А что же вы? Вы со своим отрядом (   Читать дальше...   )Тип издания: RepackРазработчик: BioWare Edmonton, BioWare MontréalЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF8B533C7D6E0D92B3EBCFA6885537AEC85EF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723488   (19827) от 30.04.2025
-
-V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проснувшись в V Rising герой в качестве вампира должен охотится за кровью, параллельно избегая прямых солнечных лучей. Слэшер с элементами выживания предлагает примерить роль кровопийцы, который просыпается в собственном замке и должен восстановить свое владение и восстановить авторитет, действуя в огромном открытом мире, где полно секретов. Здесь предстоит завоевывать (   Читать дальше...   )Тип издания: RepackРазработчик: Stunlock StudiosЖанр: Экшены, Приключенческие игры, Многопользовательские игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE69B10E11EA7D830A62B115CAB889BF4CFEF331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794628   (19812) от 30.04.2025
-
-Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свободные Земли - земли возможностей и опасностей. Они принадлежат ворам, спекулянтам и авантюристам. Люди не перестают прибывать сюда в поисках богатства и славы, но большинство из них заканчивает в могиле. Только те, кого благосклонно осеняет богиня судьбы, могут закрепиться здесь и добиться желаемого. И всё это строится на потерях других.Тип издания: RepackРазработчик: PersonaeGame StudioЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2002C2B22792F7863EFCA32DD5EFAC10AEBC30FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1517811   (161732) от 17.12.2021
+
+VA - Sophisticated Jazzy Lounge, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Jazz Crates (Instrumental Mix) (2:57)
+02. Nat Wood - Te Quiero Mi Vida (Original Mix) (4:59)
+03. Andorra Jazz Trio - Pink Panther (Original Mix) (3:33)
+04. Dean Simon - Yes and No (Original Mix) (3:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF7CA924C30A2A9F04B0B925F92D332FF381153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517810   (161729) от 17.12.2021
 
 VA - Sophisticated Jazzy Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
@@ -6,7 +35,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Lakeside Chill Sounds - Autumn (2021) [AAC|~323 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Anjunadeep The Remixes 2021 (2021) [AAC|~327 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - The Yearbook 2021 (2021) [AAC|~337 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Hoom Side of the Moon, Vol. 02 (2021) [AAC|~334 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Hoom Side of the Moon, Vol. 01 (2021) [AAC|~335 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Zen Garden: Winter Vibes (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +267,7 @@ Lian Ross - The Ballads (2021) [AAC|~325 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +296,7 @@ Noize MC - Выход в город (2021) [AAC|~325 Kbps] <Rap, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 2 (2021) [AAC|~321 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Lounge Top 55 Deluxe, the Very Best of, Vol. 2 (2015) [AAC|~328 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Lounge Top 55 Deluxe, the Very Best of, Vol. 1 (2014) [AAC|~328 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Caravan 4 (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - The Sound Of Christmas Gifts '21 (2021) [AAC|~309 Kbps] <Deep House, Deep T
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Swing & Bass Compilation Album, Vol. 1 (2019) [AAC|~291 Kbps] <Drum & Bass,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Swing & Bass Compilation Album, Vol. 3 (2021) [AAC|~308 Kbps] <Drum & Bass,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Angel Voices, Vol. 2 (Enigmatic Chill and Mystic Tracks to Relax) (2021) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Swing & Bass Compilation Album, Vol. 2 (2020) [AAC|~323 Kbps] <Drum & Bass,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +615,7 @@ Gregorian - Pure Chants (2021) [AAC|~318 Kbps] <New Age, Choir, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -667,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -693,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -704,32 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E1646A99938F86C01D8E27B318E18056A598463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853353   (158116) от 26.12.2014
-
-Аномалия / The Anomaly (2014) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Райан Рив, как и любой солдат, всегда готов к любым поворотам судьбы. Этому не помешает ни отстранение от службы, ни тяжелое психологическое состояние – ведь ты солдат. Но даже профессионалам требуется собрать всю силу воли в кулак, чтобы вырваться из состояния, когда твоим сознанием кто-то управляет. Когда только мгновенные промежутки времени подконтрольны подсознанию, чтобы узнать правду, понять как собственная судьба связана с мальчиком Алексом, с которым оказываешься внутри темного движущегося фургона... (   Читать дальше...   )Жанр: Фантастика, боевик, триллерРежиссер: Ноэль КларкПродюсер: Ноэль Кларк, Джеймс Харрис, Марк ЛэйнАктеры: Ноэль Кларк, Иен Сомерхолдер, Брайан Кокс, Алексис Нэп, Люк Хемсворт, Ниал Грег Фултон, Майкл Биспинг, Али Кук, Арт Паркинсон, Рубен ДуброуПеревод: Профессиональный (дублированный) (R5)Язык субтитров: АнглийскийПродолжительность: 01:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F580A3E1D9D13404A67168082E4D72F60EC26A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1154322   (542087) от 29.07.2017
+
+Battle Chess (1994) [En] (1.0) License GOG [Special Edition]
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Battle Chess реализует идею живых шахмат в средневековом антураже. Фигуры имеют преимущественно человеческий облик (за исключением ладьи, которая представляет собой каменную башню, но при перемещении превращается в огромного голема), действия на доске сопровождаются соответствующей анимацией, при взятии разыгрывается бой между атакующей и защищающейся фигурами. В (   Читать дальше...   )Тип издания: LicenseРазработчик: Interplay ProductionsЖанр: Logic (Chess)Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC621BB62092290145D5D88B5934619BF42BDA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858709   (540418) от 06.08.2015
+
+Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f) Repack Mentaz
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир боли. Рай снова в опасности — ему угрожает дерзкая армия монстров из ада. И она ни перед чем не остановится. На этот раз только два героя могут спасти рай от полного разрушения: Дэниелю и Белиалу, двум чемпионам из предыдущих частей Painkiller, придется объединиться, чтобы положить конец старой вражде между раем и адом. К несчастью, армия ада (   Читать дальше...   )Тип издания: RepackРазработчик: Homegrown GamesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE681E75F3F6B46C5D664AA26B8F78269F58E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154394   (540331) от 30.07.2017
 
 Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
@@ -6,7 +58,7 @@ Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Prehistorik 2 (1993) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Prehistorik (1991) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Star Wars: Shadows of the Empire (1997) [En] (2.2.0.11 GOG) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ State of Emergency [Ru] (RePack) 2002 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License PROPHET [Steam Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +668,6 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580C3C7C2C369AAD222C3C23937CE4887A7C274C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156254   (528399) от 06.08.2017
-
-Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древние и загадочные Храмы открыли местоположение родного мира исчезнувшей инопланетной расы. Эти Храмы, обнаруженные после войны на Галиусе IV, дают ключ к самым мощным технологиям во вселенной. И теперь семь межзвездных империй мчатся наперегонки через всю галактику, чтобы захватить эту планету и заполучить тайное могущество древней цивилизации. Deadlock II: Shrine (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyberlore StudiosЖанр: Стратегия, Пошаговая, ФантастикаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC153970C5C7B0E3839434F4D5B0DEC3CCCCB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156811   (526296) от 09.08.2017
-
-Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (1.4) Unofficial
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legacy: Dark Shadows – это трехмерная приключенческая игра с интригующим фантастическим сюжетом и обаятельным главным героем – девушкой, подвизающейся на ниве частного сыска. Игрокам предстоит посетить Марс и Юпитер, побывать в прошлом и в будущем и распутать клубок загадок, начало которому было положено в далеком 1939 году. Изображение высочайшего качества, использующее (   Читать дальше...   )Тип издания: UnofficialРазработчик: Razbor StudiosЖанр: Adventure, Point&ClickЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DAC472E0F05F0DEE0F0C6D5446F627D2A835BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

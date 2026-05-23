@@ -1,3 +1,29 @@
+###  Публикация: 1680456   (133987) от 29.11.2023
+
+1С Бухгалтерия предприятия 3.0.144.49 на платформе 8.3.23.1912 [Ru/En]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1С Бухгалтерия – это в первую очередь программа для бухгалтерского учета. Бухгалтерский учет – это не только обязательная активность для каждого предприятия или ИП, основной целью которого является подготовка и сдача отчетности для контролирующих органов (налоговая, пенсионный фонд и т.д.) Часто на основании данных бухгалтерского учета формируются необязательные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B43CA24CC23925E7D0031FBCFC538CC5EDF231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690357   (123885) от 08.01.2024
 
 TweakTimeSaver 1.1.0 [Ru/En] (Авторская раздача)
@@ -6,7 +32,7 @@ TweakTimeSaver 1.1.0 [Ru/En] (Авторская раздача)
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Windows 10 Pro 22H2 build 19045.4651 x64 by LaK [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Nerv Rescue Disk UEFix64\Legacy v1.0 [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Windows 11 Pro 24H2 10.0.26100.1742 by Lak [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -140,7 +166,7 @@ Windows 10 Enterprise LTSC x64 21H2 (19044.5371) by Hawksoft [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -167,7 +193,7 @@ Windows 11 Pro 24H2 (v.26100.2605) with AtlasOS Игровая сборка  [Ru
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +248,7 @@ Windows 11 home x64 24H2 DiskExpansion by Alexandr1235 07.2025 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -251,7 +277,7 @@ Draftable Desktop 25.9.0 Repack [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

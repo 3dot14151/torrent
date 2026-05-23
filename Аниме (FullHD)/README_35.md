@@ -1,3 +1,57 @@
+###  Публикация: 519985   (428094) от 11.10.2014
+
+Sankarea | Санка Рэа [2012, TV 12 эп. + 1 SP + OVA 2 эп.] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+16-летний Тихиро Фуруя – сын буддистского священника и потому куда проще относится к сверхъестественному. Возможно, из-за ранней смерти матери парень с детства одержим темой зомби, возвращения из мертвых. Фуруя коллекционирует фильмы, мангу, фигурки и даже мечтает жить с… ну, вы поняли. Впрочем, одноклассники считают Тихиро суровым неформалом, а кузина Ранко находит его увлечение весьма романтичным. Вот только нелепая гибель домашнего кота надломила героя, и он решил оживить любимца тайным зельем из древнего (   Читать дальше...   )Жанр: комедия, романтика, мистикаРежиссер: Хатакеяма МаморуПродолжительность: 12 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5081A2CB4A78ADEAF42CF642DDEA473AC9723F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708580   (427796) от 09.10.2013
+
+Fushigi no Umi no Nadia / Nadia Secret of Blue Water / Надя с загадочного моря [1990, TV, 39 + Omake] BDRip 1080p raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Основано на романе Жюля Верна "20.000 лье под водой".
+
+1889 год. 13 лет назад в королевстве Тортес произошёл государственный переворот, в ходе которого было уничтоженно древнее оружие, «Вавилонская Башня», управляемое одним из камней «Голубая Вода» и теоретически способное истребить всё живое на земле. Вместе с оружием погибло и королевство. Выжившие разбились (   Читать дальше...   )Производство: Студия GAINAXЖанр: приключения, фантастика, романтикаРежиссер: Анно Хидэаки / Anno HideakiПеревод: Nimrod | EikenClubЯзык озвучки: японскийЯзык субтитров: Русский; АнглийскийПродолжительность: ТВ (39 эп.), 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAF913E774E418F7FA70F2B63F03465CCAFBB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063294   (426088) от 20.10.2016
 
 Go!Go!575 | Давай-давай! 5-7-5 [2014, TV, 4 + 1] BDrip 1080p Hi10p raw
@@ -6,7 +60,7 @@ Go!Go!575 | Давай-давай! 5-7-5 [2014, TV, 4 + 1] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +87,7 @@ Zetsuen no Tempest: The Civilization Blaster | Буря Потерь [2012, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +113,7 @@ Rifle is Beautiful | Chidori RSC | Винтовка прекрасна [2019, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +139,7 @@ Saint Seiya: The Lost Canvas - Meiou Shinwa | Рыцари Зодиака: Ут�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +165,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +191,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +218,7 @@ Owari no Seraph | Seraph of the End | Последний Серафим [2015, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +244,7 @@ Mitsuwano [2014, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +271,7 @@ Shikioriori | Flavors of Youth | Ароматы юности [2018, Movie] WEB-D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +300,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, MV, 4] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +326,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 14 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +352,7 @@ Kono Oto Tomare! 2 | Stop This Sound! 2 | Задержите этот звук! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +378,7 @@ Kono Oto Tomare! | Stop This Sound! | Задержите этот звук! [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +405,7 @@ Fate/Kaleid Liner Prisma Illya: Prisma Phantasm | Судьба: Девочка-�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +434,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + 1 из 1] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +460,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders | JoJo`s Bizarre Adventure: Stardus
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +486,7 @@ Arslan Senki: Fuujin Ranbu | The Heroic Legend of Arslan: Dust Storm Dance | С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +513,7 @@ Arslan Senki | The Heroic Legend of Arslan | Сказание об Арслан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +539,7 @@ Kuroshitsuji: Book of the Atlantic | Black Butler: Book of the Atlantic | Тём
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +565,7 @@ Kikou Soseiki Mospeada | Genesis Climber Mospeada | Моспида - оружи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +591,7 @@ Soba e | Рядом с тобой [2019, Web] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +617,7 @@ Madoromi no Vevara | Vevara in Your Dream | Вевара из мира дрём�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +645,7 @@ Bartender | Бармен [2006, TV, 11 из 11] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +672,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki | Ты единственная, �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,58 +683,6 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki | Ты единственная, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:225A28987F7D6DE895090B63BBC639E01C0950D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170103   (399305) от 01.10.2017
-
-Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баскетбол Куроко: последняя игра [2017, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399305.jpg" />
-</div>
-
-
-###  Подробнее
-
-В японском молодежном баскетболе все знают среднюю школу Тэйко, клуб которой славен не только традициями, но и великолепной «дрим тим», «чудо-поколением», пятеркой гениев, которая в последние годы выиграла в своей категории все, что можно. Настало время – и пятеро юных талантов разошлись по пяти старшим школам – разумеется, столь же престижным в спортивном плане. (   Читать дальше...   )Производство: Студия Production I.GЖанр: спортРежиссер: Tada ShunsukeПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72C0427D5537BCA32D4A9F6A4505B017400155A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717133   (391726) от 31.10.2013
-
-Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akadama no Maki | Великий детектив Холмс - Фильм [1984, MV] BDRip 1080p Hi10p Raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие в фильме происходит в викторианской Англии, населённой исключительно собаками, каковыми являются и Шерлок Холмс, и доктор Ватсон, и их злейший враг профессор Мориарти. Холмс тут значительно моложе и подвижнее, чем у Конан Дойля, а миссис Хадсон - вообще молоденькая барышня, играющая немалую роль в происходящих событиях. Большие или маленькие, все дела важны (   Читать дальше...   )Жанр: приключения, комедия, детективРежиссер: Миядзаки ХаяоСубтитры: •Продолжительность: 46 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1ED6E456B4B7F8F41286B175921FB9EB706F858
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1290649   (673724) от 22.03.2019
+
+Borderlands: Trilogy (2009-2014) [Ru/En] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G. Revenants
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С возвращением во вселенную Borderlands! Палите из всех стволов и хватайте все, что плохо лежит, в совершенно новом приключении, которое буквально отправит вас в космос – на поверхность спутника планеты Пандора. События Borderlands: The Pre-Sequel!Тип издания: RepackРазработчик: 2K Australia, Gearbox Software и Aspyr MediaЖанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EAD489F8448200F8560E7C4F335BB35B98CA3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004081   (673524) от 30.06.2016
+
+Solarix (2015) [En/Tu] (1.6) License RELOADED
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики игры поставили перед собой задачу объединить в своем проекте атмосферу фантастических фильмов ужасов старой школы с стилем и графикой современного поколения игр, заключив все это в обертку из стелс-экшена с открытой структурой уровней. Сюжетная завязка Solarix не самая оригинальная: в один прекрасный день инженер-электрик Уолтер обнаруживает, что на (   Читать дальше...   )Тип издания: LicenseРазработчик: Pulsetense GamesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A914D42031DE5F337B6F2CE91AD99F8A1A0C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136734   (672308) от 23.05.2017
+
+The Fidelio Incident (2017) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+От арт-директора God of War 3, Fidelio Incident - однопользовательский триллер от первого лица о человеке, который отправился в тяжелое приключение к берегам Исландии. После жестокой авиакатастрофы Стэнли должен искать пустынный замерзший остров в поисках своей жены Леоноры, скрывая следы своей идентичности. Спасательная помощь уже в пути, прошлое должно оставаться (   Читать дальше...   )Тип издания: LicenseРазработчик: Act 3 Games, LLCЖанр: Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7073B9A770F3D7309DC0123A554D62480DF73459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291086   (671930) от 23.03.2019
+
+Agent 9 (2019) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Agent 9 — инди-игра с видом от первого лица. Вы будете пробираться через толпы противников. Будьте бесшумны или же выбирайте другой путь прохождения, идя напролом. Испытайте оживленную жизнь Агента 9 и покончите с самыми опасными злодеями в мире. Agent 9 - это хардкорный FPS, созданный независимым  разработчиком: Noodle Games.Тип издания: LicenseРазработчик: Noodle GamesЖанр: Action, Indie, 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A302067712DA6F90C9142168E3ABD84D79CFE711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291080   (671928) от 23.03.2019
 
 RICO (2019) [Multi] (1.0) License CODEX
@@ -6,7 +110,7 @@ RICO (2019) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +136,7 @@ eXoDOS Collection v3.11 - Volume 5 Action (2018) [En] (3.11) Repack eXo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Battlezone (2017) [Ru/Multi] (1.08/dlc) Repack Other s [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2.0/upd2/dlc) Repack Other s [Definitive Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Lazaretto (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0/upd2) Repack Other s [Definitive
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Singularity (2010) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Doom [En] (L) 1993
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ TimeShift (2007) [Ru/Multi] (1.02) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Perception (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Putrefaction 2: Void Walker (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Dead Island + Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0upd2/dlc) Repack xa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Perception (2017) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Secret Doctrine (2017) [Ru/En/Ch] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (62662/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Bulletstorm (2011) [Ru/En] (1.0.7147/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru/En]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Conarium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Depth Hunter (Lossless RePack/v1.10) [Multi5/+] 2011 | R.G. Catalyst и R.G. ExP
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ AMOK (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,118 +670,6 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B562C8B7DB32E569BBCE41BBD5EEB7CD8CA70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032100   (647172) от 06.07.2016
-
-Hard Reset Redux (2016) [Ru/Multi] (1.1.1.0) Repack R.G.Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647172.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Безоаре, единственном уцелевшем городе людей, майор Флетчер, ветеран боевых действий и солдат CLN, втянут в конфликт двух величайших врагов человечества. Ему предстоит выяснить, что все далеко не так, как кажется.Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3501AB9B83721EFD1DE26928D21896DBF7758212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074236   (646332) от 29.03.2019
-
-Killing Floor 2 (2016) [Ru/Multi] (1078/dlc) License CODEX [Digital Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646332.jpg" />
-</div>
-
-
-###  Подробнее
-
-В KILLING FLOOR 2 игроки окажутся в континентальной Европе, где вспышка болезни, вызванная неудачным экспериментом компании Horzine Biotech, быстро распространяется и принимает невероятный масштаб, парализуя Европейский Союз. Всего спустя месяц после заключительных событий в KILLING FLOOR, образцовые клоны заполонили все и цивилизация погружается в кризис.Тип издания: LicenseРазработчик: Tripwire InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0229D75EF9C8FC77EECDD346382DF7DCA9DC15FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763659   (642949) от 09.06.2015
-
-Zeno Clash 2 (2013) [Ru/En] (1.04) SteamRip Let'sРlay [Special Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия игры разворачиваются в мире Зенозоик, где протагонистом является герой из первой части игры — Гэт. По словам разработчиков, действия будут продолжаться с момента окончания первой части игры. Будут введены новые персонажи, а также все основные персонажи из первой игры будут перенесены в Zeno Clash 2, а именно: Дэдра, Голем, Отец-Мать, Римат и др. Отец-Мать (   Читать дальше...   )Тип издания: SteamRipРазработчик: ACE TeamЖанр: Action / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780F4B7892732DF71DCFDDA3A454A11436CEBC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518231   (640479) от 04.07.2012
-
-Dead Island. Game of the Year Edition [Ru/En] (Steam-Rip/1.3) 2011 | R.G. Игроманы
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ужас. Насилие. Безумие. Бедлам. Праздничные каникулы превратились в нечто ужасное. Тропический остров наполняется хаосом после загадочного появления толп зомби. Единственный шанс выжить — это бороться насмерть, чтобы найти выход с этого острова, где вы просто-напросто отрезаны от всего остального мира.
-
-Dead Island сочетает в себе экшен с видом от первого лица с особенным вниманием к ближнему бою, развитию ваших персонажей и улучшению множества видов оружий. Действие игры происходит под пеленой темной истории, созданной под впечатлением от классических фильмов про зомби, которая поразит вас своими смелыми ходами и затягивающим действием, пройти которую, к тому же, вы сможете вместе со своими друзьями в кооперативном режиме, поддерживающем одновременную игру 4-х человек.
-
-Действие разворачивается в открытом для передвижений тропическом острове, где орды разлагающихся зомби поджидают игроков за каждым углом, пока они пытаются выполнить ряд захватывающих миссий во время своего праздничного отдыха. С небольшими запасами оружия и экипировки, игрок должен полагаться на правильное обращение с оружием ближнего боя в динамичных боях с ордами зомби для своей защиты. Разнообразные приспособления помогут превратить обычное оружие в инструмент массового уничтожения.
-
-Кроме животрепещущего действа, которое удовлетворит даже самого искушенного любителя зомби, Dead Island содержит элементы ролевой игры, которые позволяют игрокам продвигать одного из персонажей по своему пути, изучая новые способности и свежие тактические приемы во время приключений в опасных местах острова. К тому же, в любой момент к игроку сможет подключиться до 3-х других игроков и присоединиться к непрерывной борьбе с глубоко проработанным сюжетом и кооперативным режимом игры.
-
-С целиком новым движком Chrome Engine 5, на котором был создан Dead Island, игра использует все последние наработки разработчиков Techland, позволяя игрокам насладиться невиданными красотами острова, пышными лесами и проработанными городскими улочками.(   Читать дальше...   )Тип издания: Steam-RipРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7474FB27C162CEA330187CF33E851BE32511E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

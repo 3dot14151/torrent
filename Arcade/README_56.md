@@ -1,3 +1,29 @@
+###  Публикация: 1342353   (22963) от 31.03.2025
+
+Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Повелитель огня возвращается! Теперь вы можете любоваться его чешуей и огненным дыханием в потрясающем разрешении HD. В коллекции игр Spyro Reignited Trilogy этот обаятельный дракончик будет зажигать как никогда раньше. Дайте волю его пламени в трех оригинальных играх Spyro the Dragon, Spyro 2: Ripto's Rage! и Spyro: Year of the Dragon. Путешествуйте по бескрайним (   Читать дальше...   )Тип издания: RepackРазработчик: Toys for Bob, Iron GalaxyЖанр: Аркада, ПлатформерЯзык озвучки: Русский (первая часть), АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D584924EEC1FEE362E26898D159DDB6CB9362174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788838   (22802) от 01.04.2025
 
 Which Way Up: Galaxy Games (2025) [Ru/Multi] (1.0.0+e1d15/dlc) Repack seleZen
@@ -6,7 +32,7 @@ Which Way Up: Galaxy Games (2025) [Ru/Multi] (1.0.0+e1d15/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tekken 8 (2024) [Ru/Multi] (2.00.01/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +162,7 @@ My Friend Pedro (2019) [Ru/Multi] (1.03) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Pull Stay (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +240,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +266,7 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.4.0.22794) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Subverse (2018) [En] (1.1.1) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +371,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +397,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGir
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -397,7 +423,7 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -423,7 +449,7 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -449,7 +475,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13112) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +501,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.2) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -501,7 +527,7 @@ Night Slashers: Remake (2024) [Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +553,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2011.010.003.007.006/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +579,7 @@ The Last Man Survivor (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -579,7 +605,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,7 +657,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -642,32 +668,6 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795027   (19605) от 02.05.2025
-
-Space Grunts 2 (2019) [En] (2.0.1b) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space Grunts 2 - стратегическая игра, действие которой происходит в атмосфере научной фантастики с четко очерченной механикой, типичной для жанра "roguelike". Игра является продолжением первой части, но сильно отличается от своего предшественника - в первую очередь обогащает известную формулу решениями, характерными для карточных игр. События происходят (   Читать дальше...   )Тип издания: LicenseРазработчик: OrangepixelЖанр: ИндиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBEF670BC2A125A2EFE529F63E7960BA7950FC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

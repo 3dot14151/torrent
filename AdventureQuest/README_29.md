@@ -1,3 +1,107 @@
+###  Публикация: 1221868   (691041) от 26.04.2018
+
+Inked (2018) [Multi] (20180425-1) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Инкэд - это рассказ о любви и мести, которые были написаны чернилами на бумаге. Вы играете как Безымянный Герой (Nameless Hero), который отправляется в путешествие по огромному ландшафту, наполненному головоломками. Каждая решенная головоломка приближает вас к вашей потерянной любви, распутывая историю, которая навсегда изменит вас.Тип издания: LicenseРазработчик: Somnium Games d.o.o.Жанр: Adventure, Puzzle, Logic, CasualЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E4C279F83D4137A43C34E1CA9C2D16744F839F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221786   (690961) от 26.04.2018
+
+INFRA (2016) [Ru/Multi] (3.3.0/dlc) License CODEX [Complete Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+INFRA - это приключенческая игра, в которой игрокам отводится роль аналитика, который путешествует по разным местам и пытается остановить бедствия, связанные со страстью человечества к улучшениям и развитию технологий.Тип издания: LicenseРазработчик: Loiste InteractiveЖанр: Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский (главное меню), Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303546D83CB312252D0D52A036B9532163A23310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134031   (690780) от 14.05.2017
+
+The Fan (2017) [En/Fr] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Fan - это интерактивная новелла с элементами point and click квеста, сделанная с помощью фотографий, в которой игроков ждут реально существующие люди и локации. Игроков ждет история жуткого серийного убийцы, который охотился за женщинами и приносил их в жертву в подземельях Парижа.Тип издания: RepackРазработчик: Ezhaac StudioЖанр: Adventure (Horror), InteractiveЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F005D0850A7ECDE1F1C198628493AAB71F6FE79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403545   (690010) от 20.08.2020
+
+Dark Earth (1997) [Ru] (1.1) License
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 21 веке Земля погрузилась во тьму - это был результат катастрофического столкновения с волной астероидов в 2054. Спустя многие годы ужасов и страданий, немногие из уцелевших людей принялись восстанавливать цивилизацию. Они строили города и храмы возродившегося культа Солнца, которое пробивается сквозь мрак и несет жизнь на Землю. Аркан, молодой Хранитель Огня из (   Читать дальше...   )Тип издания: LicenseРазработчик: Kalisto EntertainmentЖанр: Adventure, 3rd PersonЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770259F9AB15EC8085CDB0EF6BD4274949AFC5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403612   (689874) от 20.08.2020
 
 Peaky Blinders: Mastermind (2020) [Ru/Multi] (1.0) License HOODLUM
@@ -6,7 +110,7 @@ Peaky Blinders: Mastermind (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Battletoads (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Breached (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Asemblance (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Loom (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Re;Lord 2 ~The witch of Cologne and black cat~ (2021) [En] (1.00/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Room 404 (2016) [En/Pt] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Breached (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +400,7 @@ Monster Prom (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +426,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +452,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ The Bad, the Ugly and the Sober / Злой, плохой и трезвый [Ru] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +532,7 @@ The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +584,7 @@ Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +610,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Know by Heart... / Помни... (2022) [Ru/En] (1.03) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Tales of Monkey Island: Chapter 2 The Siege of Spinner Cay / Tales of Monkey Isl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -569,110 +673,6 @@ Tales of Monkey Island - это пятая часть знаменитой са�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136121   (676484) от 21.05.2017
-
-Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Old Man’s Journey - это приключенческая игра с головоломками и внутренним поиском, рассказывающая историю о жизни, потере, примирении и надежде. Войдите в прекрасный и солнечный рукотворный мир, а затем отправляйтесь в настоящее путешествие, наполненное веселыми и ненавязчивыми головоломками. Графический рассказ о самых важных моментах жизни, разбитых мечтах и меняющихся (   Читать дальше...   )Тип издания: LicenseРазработчик: Broken RulesЖанр: Adventure, Indie, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9340B850B23568A541C4D398183C5E5C9201BBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136154   (676178) от 21.05.2017
-
-Old Man's Journey (2017) [Ru/Multi] (1.0.0) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Old Man’s Journey - это приключенческая игра с головоломками и внутренним поиском, рассказывающая историю о жизни, потере, примирении и надежде. Войдите в прекрасный и солнечный рукотворный мир, а затем отправляйтесь в настоящее путешествие, наполненное веселыми и ненавязчивыми головоломками. Графический рассказ о самых важных моментах жизни, разбитых мечтах и меняющихся (   Читать дальше...   )Тип издания: RepackРазработчик: Broken RulesЖанр: Adventure, Indie, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAAB4BB9B45CB86821ED3530DDEA0C3B7D3DDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030203   (675703) от 29.06.2016
-
-Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ара Круз - блестящий журналист, которая оказывается в заброшенном особняке, который просто овеян ореолом таинственных, внезапных исчезновений. По мере того, как она будет пытаться выбраться из этого проклятого места, ей придется столкнуться с множеством опасностей. Сможет ли она выбраться и взорвать обложки газет сенсационными новостями, либо же количество бесследно (   Читать дальше...   )Тип издания: LicenseРазработчик: 7 Seals StudioЖанр: Adventure, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAF96669B1AA09B05FCE4387ADF5917B4C5AFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007398   (671552) от 01.07.2016
-
-Everybody's Gone to the Rapture / Хроники последних дней (2016) [Ru/Multi] (1.01) License CODEX
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец света произошел 37 минут назад. Пора начинать...Тип издания: LicenseРазработчик: thechineseroom и SCE Santa MonicaЖанр: Adventure, 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21D86323D3CC91E674CEB2BEE36C5BF58DAC6F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

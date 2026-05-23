@@ -1,3 +1,81 @@
+###  Публикация: 1428676   (178956) от 03.12.2020
+
+Пистолеты v8.5.4 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В приложении содержится описание пистолетов. Обширный каталог пистолетов различных стран мира с подробным описанием.Тип издания: Пиратка (Full)Релиз состоялся: 29.11.2020Разработчик: Kirill SidorovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6E2B41759D2B61BA209254F45862D23B8D3C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428599   (178693) от 03.12.2020
+
+Half-Life 2: Эпизод первый v78 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Half-Life 2: Эпизод первый  дополняет самый популярный бестселлер всех времен, Half-Life 2, новой историей и действиями. В эпизоде первом игрок узнает о новых секретах Сити 17, сможет испытать на себе продвинутый физический геймплей и взаимодействовать с удивительными существами.Тип издания: Пиратка (Куплена)Релиз состоялся: 5 июля 2018 г.Разработчик: NVIDIA Lightspeed StudiosПоддерживаемая ОС: Android 4.4 и вышеЖанр: Action (Экшен), Shooter (Шутер)Язык интерфейса: Есть + (С русскими субтитрами)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA23EF870627AD18621EF9E64CDCEDC14900347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594360   (178624) от 30.11.2022
+
+Calm - Sleep, Meditate, Relax 6.12.2 Mod by youarefinished [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Calm - Sleep, Meditate, Relax - простое приложение, не требующее от пользователя ничего. Хотя, нет: нужно успокоиться, расслабиться и наслаждаться прекрасными звуками и видами природы. В современном суетливом мире нет места умиротворению. Никто не может рвануть на выходные к реке, чтобы в тишине понаблюдать за качающимися волнами и послушать крик птиц. Постоянный (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.11.2022Разработчик: Calm.com, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Английский, Французский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DF5382998E3CAD9404DF3AB72B252FD74F97AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594210   (178535) от 30.11.2022
 
 Monefy Pro - Трекер бюджета 1.15.0 [Ru/Multi]
@@ -6,7 +84,7 @@ Monefy Pro - Трекер бюджета 1.15.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Olauncher 3.5.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Slaughter 1.9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Carly — OBD2 car scanner 48.47 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Slaughter 2: Prison Assault 1.42 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Poweramp v3-build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ ActionDirector - Видеоредактор v7.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Tag Team Karate Fighting Games: PRO Мастер кунг-фу v2.3.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Photo Lab PRO v3.12.72 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Sonic Dash v4.15.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Awesome Tanks - Крутые Танки v1.261 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -454,7 +532,7 @@ X-Plane Flight Simulator v11.4.6 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +610,7 @@ Relax Rain: sleeping sounds v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +636,7 @@ ColorNote - Блокнот заметки v4.4.6 Free + Mod by СМАРТОС [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +662,7 @@ RAR for Android v6.23 build 119 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -595,86 +673,6 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5807FD4A102E727136F9CFFD1E012EB832D908D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594970   (176482) от 03.12.2022
-
-Правда или действие v10.1.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правда или действие? Что ты выберешь?
-Правда или действие подарит массу эмоций, которых вы никогда не испытывали. Сыграй с друзьями на вечеринке в Правду или действие, и вам никогда не будет скучно. Приготовьтесь к забавным или сексуальным вопросам и действиям!
-Благодаря различным уровням откровенности Правда или действие будет уместна в любой ситуации.Тип издания: FullРелиз состоялся: 14.10.2022Разработчик: nixGamesПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CB715646DF32BBC0BFF3B335AC2B2D26008ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593562   (176005) от 04.12.2022
-
-Lock Me Out v7.0.6 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент для избавления от телефонной зависимости весьма радикальным методом. Блокирует экран по вами же настроенному сценарию. Много настроек. Статистика.Тип издания: Premium / ModРелиз состоялся: 12.11.2022Разработчик: TEQTICПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCEB6C25769E7FB11FFE4EF201E24EA5631E248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595189   (175999) от 04.12.2022
-
-Thenx v4.29 Mod by  Alex.Strannik [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для доступа к обширной базе упражнений и тренировок от Chris Heria. Видеоинструкции.Тип издания: PremiumРелиз состоялся: 02.11.2022Разработчик: ThenxПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280A080A13B9F5D1AACE5141609EC42198DD2D42
 ```
 
 https://mybot314.ru/tekegram_catalog/

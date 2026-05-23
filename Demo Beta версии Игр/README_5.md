@@ -1,3 +1,85 @@
+###  Публикация: 1040375   (587130) от 04.08.2016
+
+Diesel Guns (2015) [Ru/Multi] (0.7.1.0 DEMO) License
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Diesel Guns — это олдскульная кар комбат игра, в стиле Twisted Metal, interstate 76, Vigilante 8, San Francisco Rush 2049, разрабатываемая фирмой “Intenzibne”. Игровая механика сочетает драйв и аркадное веселье боевых гонок с проработанностью классического сетевого шутера, а удобное и интуитивно понятное управление позволяет полностью сосредоточиться на геймплее (   Читать дальше...   )Тип издания: LicenseРазработчик: IntenzibneЖанр: Arcade (Car combat), Action, IndieЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467E57272A91B59AC3EB2DEA9E2F3CB74EFEC3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360589   (579500) от 08.07.2011
+
+[DEMO] Гарри Поттер и Дары Смерти. Часть 2 / Harry Potter and the Deathly Hallows Part II  [Ru] 2011
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эпическая сага, не теряющая популярности уже почти десятилетие, подходит к концу. В видеоигре "Гарри Поттер и Дары Смерти: Часть 2" игроку предстоит выступить в роли Гарри и других ключевых персонажей и выполнить крайне сложное и невероятно опасное поручение - найти и уничтожить оставшиеся крестражи, а с ними и самого Волан-де-Морта. Проникнуть в секретные хранилища банка "Гринготтс", столкнуться с безжалостным адским пламенем в Выручай-комнате и сразиться с могущественными соратниками Темного Лорда все это выпадет на долю игрока в решающей схватке с Волан-де-Мортом и силами зла. Столь масштабных сражений в серии игр о Гарри Поттере еще не было, ведь в последней битве за Хогвартс на кон поставлена судьба всего мира волшебников.Тип издания: DEMOЖанр: Action (Shooter) / 3D / 3rd PersonЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527274   (578366) от 25.07.2012
+
+Pro Evolution Soccer 2013 (Demo) [Ru/En/Multi35] 2012
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Pro Evolution Soccer 2013 – продолжение знаменитой серии симуляторов футбола от японской компании Konami. Игра предложит полную свободу контроля над мячом, полностью ручные пассы и удары, пониженную скорость дриблинга, больше контроля над вратарями, а также улучшенный искусственные интеллект.
+
+Первая демо-версия 25 июля, в ней собраны 4 сборные: Англия, Германия, Италия и Португалия и 4 бразильской команды: Фламенго, Флуминенсе, Интернасьонал и Сантос.
+
+Вторая в начале сентября. (   Читать дальше...   )Тип издания: Demo #1Разработчик: Konami Computer Entertainment TokyoЖанр: Sport (Soccer) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Multi35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FE46BAEE751A3EC2312010D214D7E6F0FD045E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010536   (573863) от 15.08.2016
 
 Feed and Grow: Fish (2016) [En] (0.5.0/Early Access) Repack Other s
@@ -6,7 +88,7 @@ Feed and Grow: Fish (2016) [En] (0.5.0/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Last Will (2016) [En] (Beta) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +140,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (1.01) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +166,7 @@ Stranded Deep (2015) [En] (0.15h1) Repack VSETOP [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +192,7 @@ Outbreak: Pandemic Evolution (2016) [En] (Patch 8) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +218,7 @@ Turmoil (2015) [En] (0.0.0.185) License  [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +244,7 @@ Mighty No. 9 (2015) [En] (Beta 1.0) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +270,7 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обн
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +296,7 @@ Void Destroyer 2 (2016) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +322,7 @@ Dungeon Souls (2015) [En] (2.0 HotFix.1) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +348,7 @@ Catacomb Kids (2015) [En] (Early Access 0.0.11b) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +374,7 @@ DRAG (2020) [Multi] (0.1.7.0) Steam-Rip Goldberg [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +400,7 @@ Metel - Horror Escape (2020) [Ru/En] (0.279) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +426,7 @@ Breathedge (2018) [Ru/En] (0.9.1.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +452,7 @@ Chernobylite (2019) [Ru/Multi] (31663) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +478,7 @@ Dead Age 2 (2020) [Ru/Multi] (1.26) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +504,7 @@ Blockscape (2014) [En] (322714) Repack Hazestalker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +530,7 @@ Wolcen: Lords of Mayhem (2016) [Ru/Multi] (0.3.0 Hotfix) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +556,7 @@ BLOCK'HOOD (2016) [En] (0.80.16) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +582,7 @@ Man O' War: Corsair (2016) [En] (0.6.3) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +608,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 [Ru/Multi4] (Demo/v
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +636,7 @@ Mashinky (2017) [Ru/Multi] (05102017) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +662,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +673,6 @@ EBOLA 3 - переносит вас в великую классику ужас�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EC6F0B2E13347B639B76DCDCEFAF4B86D123209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251426   (377555) от 29.10.2010
-
-[Benchmark] Tom Clancy's H.A.W.X. 2 [En] 2010
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Tom Clancy’s H.A.W.X. 2 у тебя есть все шансы стать элитным пилотом, находящимся за штурвалом современных боевых истребителей. Используй свои способности для управления совершенными технологическими устройствами. В твоем распоряжении окажутся грозные истребители, штурмовики, бомбардировщики, беспилотники и другие типы самолетов, обладающие разрушительной огневой мощью. Управление вектором тяги и СДР (система дополненной реальности) – лишь малая часть технологий, которые позволят тебе почувствовать себя настоящим асом! От Москвы до Персидского залива, от Северного полярного круга до Индийского океана – со спутниковыми картами высокого разрешения от GeoEye ты везде сможешь насладиться реализмом происходящегоТип издания: BenchmarkЖанр: Simulator (Flight Combat) / 3DЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175753   (375719) от 19.10.2017
-
-The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Падение самолета — лишь начало. Восемь выживших остались брошенными посреди суровых лесов Аляски, полных секретов и тайн. The Wild Eight — это суровое приключение в случайно генерируемом мире, полном опасности и испытаний. Добывай ресурсы для выживания и исследуй локации в поисках спасения бок о бок с другими игроками. Или ты попробуешь выбраться отсюда в одиночку?Тип издания: RepackРазработчик: HypeTrain DigitalЖанр: Simulator (Survival, Top-Down), RPG, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57ADFCCB9C637669CE5DDD1D4D195C94490E555A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339509   (373517) от 13.10.2020
-
-Stranded Deep (2015) [Ru/Multi] (0.74.00) Repack Other s
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stranded Deep — это квест с видом от первого лица с элементами экшена от студии Beam Team Games. Издателем игры выступает Beam Team Games. Сюжет игры прост - терпя авиакрушение ваш герой оказывается посреди Тихого океана. Сооружаем все что попадется под руку, едим все что движется...Тип издания: RepackРазработчик: Beam Team GamesЖанр: Adventure, Action (Survival), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1CCD6DEB4FD63D73FEAF6BB8E189EC75ADC429
 ```
 
 https://mybot314.ru/tekegram_catalog/

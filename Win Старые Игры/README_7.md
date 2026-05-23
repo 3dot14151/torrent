@@ -1,3 +1,55 @@
+###  Публикация: 1109486   (858531) от 27.02.2017
+
+Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы готовы к воистину эпическому событию? Настоящая веха в истории ролевых игр, Ultima™ IV в 16 раз больше, чем Ultima™ III. В этой игре лорд Бритиш потребует от вас не только концентрации ума и силы, но и твердости характера. Мондейн, Минакс и их дьявольское порождение Эксодус повержены в прах. В Британии воцарился мир. Однако зло все еще живо в темных чащобах...Тип издания: LicenseРазработчик: Origin SystemsЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB967306260C4786D0C5C83F90FA7E11F4F29684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370487   (856182) от 19.04.2020
+
+Biped (2020) [Ru/Multi] (1.4) Repack Other s
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Biped — это динамичная приключенческая 3D-игра с реалистичной физикой для совместного и одиночного прохождения. В ее основе — взаимодействие двух игроков, которые должны помогать друг другу в точно выбранные моменты. Два маленьких двуногих робота Аку и Сайла вместе отправляются в захватывающее приключение, чтобы выполнить свое задание на планете Земля.Тип издания: RepackРазработчик: NEXT StudiosЖанр: Adventure, Action, Puzzle, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104E83CBC569D251953A47CF7DD549E21ABA5A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110781   (851399) от 03.03.2017
 
 Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License GOG
@@ -6,7 +58,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Legacy of Kain: Blood Omen 2 (2002) [Multi] (1.0.2hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ DX-Ball 2 [En] (L) 1998
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Castlevania: Lords of Shadow (2013) [Ru] (1.0.2.9upd2) Repack xatab [Ultimate Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Rally Trophy / Ралли Трофи (2001) [Ru] (1.01) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Trine (2009) [Multi] (2.12(a)) License GOG [Enchanted Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Blade of Darkness (2001) [Multi] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Overlord (2007) [Multi] (1.4/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы (2003) [En
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Deathtrap Dungeon (1998) [En] (1.0 it fix) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Fantasy General (1996) [Multi] (1.0.20211006/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Warrior Kings: Battles / Лорды войны: Битва (2003) [En] (1.23) Li
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Death Gate (1994) [En/Ge] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,62 +667,6 @@ Death Gate (Врата смерти) - компьютерная видеоигр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A302564B8195C1D0262C84591713793E26D62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312329   (818611) от 28.03.2011
-
-The Curse of monkey Island  / Проклятие острова обезьян [Ru] (P) 1997
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бежав от ЛеЧака в прошлой серии, Гайбраш Трипвуд оказывается на Plunder Island, где вновь встречается с Элейн Марли. Вместе с ним приплыло и кольцо с огромным бриллиантом, которое Гайбраш выкрал из сокровищницы пирата. Он делает Элейн предложение, даря это кольцо, но..., едва оно оказывается на пальчике возлюбленной, она превращается в золотую статую. Оставив возлюбленную на берегу, Гайбраш бросается искать средство как избавиться от проклятия. Но, вернувшись, не находит статуи - её похитила ужасная орда пиратов...
-Продолжение MI получилось изумительным, переплюнув кое в чём первые части. В то же время не потеряв обаяния, юмора и романтики. Отменная графика, сюжет, музыка - всё это как бальзам после шести лет ожидания.Тип издания: ПираткаЖанр: QuestЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32D4A85893DBE86C726B2A847AEC6C33EC178FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 315380   (818609) от 28.03.2011
-
-Вьетконг Антология / Vietcong Anthology [Ru] (L) 2003-2008
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818609.jpg" />
-</div>
-
-
-###  Подробнее
-
-* Vietcong 2 — продолжение знаменитого Vietcong, успевшего стать классикой жанра командного боевика.
-    * Две военные кампании предоставят возможность посмотреть на события вьетнамской войны как глазами солдата оккупационных сил США, так и бойца освободительных сил Северного Вьетнама.
-    * Впечатляющий искусственный интеллект противника и проработанная система повреждений: любое неосторожное движение, любая метко пущенная пуля способны принести здесь смерть.
-    * Обширный арсенал оружия — от М-16 и М-60 до автомата Калашникова.Тип издания: LЖанр: Action (Tactical / Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFE546855C9DF4B8AC0F0E77DD2906E5EAD8BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

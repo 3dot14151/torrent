@@ -1,3 +1,81 @@
+###  Публикация: 1378497   (846536) от 25.04.2020
+
+Дмитрий Баюк (ред.) | Люди мира. Русское научное зарубежье (2018) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга была придумана Дмитрием Борисовичем Зиминым по довольно радостному поводу. Учреждённая по его инициативе премия «Просветитель», которая ежегодно вручается лучшим научно-популярным книгам по разным (как правило, двум) номинациям, существует уже десять лет. Книге «Люди мира. Русское научное зарубежье» было суждено принять участие в десятой торжественной церемонии (   Читать дальше...   )Жанр: БиографииФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DB63FBFC99852C24149B59AFC436FEC563B409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877636   (845525) от 13.03.2015
+
+В.В. Назаревский | Из истории Москвы. 1147-1913. Иллюстрированные очерки (1914) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 1896 г. вышла в свет первая книга русского историка, профессора В.В. Назаревского по истории Москвы, содержавшая 212 рисунков и охватывавшая период ее существования с 1147 по 1703 годы. За несколько лет его труд стал библиографической редкостью. Это событие побудило В.В. Назаревского  пересмотреть изданное и продолжить изложение этой книги дальше, с 1703 года по (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFEB7E2AB2284534FFD79A0F5C19B346CC499D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002947   (845190) от 02.04.2016
+
+Майкл Тэйлор, Дэвид Мандэй | Книга Гиннесса об авиации: Рекорды. Факты. Достижения (1997) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга является справочным изданием, посвященным истории развития летательных аппаратов. Она содержит огромное количество документальных фактов и подробностей об исторических рекордах, событиях и достижениях в области авиации. Книга богато иллюстрирована архивными фотодокументами и представляет большой интерес как для специалистов, так и для широкого круга (   Читать дальше...   )Жанр: История, Воздушный транспортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4EBBBCEA3968A1F0DD22E696EF549C64A226E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378912   (844801) от 26.04.2020
 
 Вячеслав Черемухин | Три портрета: Карл Х, Людовик XIX, Генрих V (2019) [EPUB]
@@ -6,7 +84,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F6BD1C829AA76A9DC86178E83635AAE7DE271B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501883   (833548) от 11.10.2021
-
-Кирилл Максаков | История маски. От египетских фараонов до венецианского карнавала (2021) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалуй, нет на нашей планете ни одной культуры, в которой не использовались маски. Об этом свидетельствуют древние наскальные рисунки, изображающие охотников в масках животных. У разных народов маска сначала являлась одним из важнейших атрибутов ритуальных священнодействий, в которых играла сакральную роль, затем маски перекочевали в театры… Постепенно из обрядов (   Читать дальше...   )Жанр: Культурология, Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F6658F9F87CF57A253CDCF0881F4381C147100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380488   (833173) от 03.05.2020
-
-Грег Кларк, Монти Бошамп | Муза, где же кружка? Великие писатели и напитки, которые их вдохновляли (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833173.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Муза, где же кружка?» – прекрасно иллюстрированный путеводитель по всемирной истории алкоголя и литературы.
-Авторы книги, художники Грег Кларк и Монти Бошамп, заглянули в бокалы известных писателей и узнали, какие спиртные напитки пили прославленные мастера слова и как алкоголь повлиял на их жизнь и творчество. Авторы исследуют литературную питейную культуру, анализируя (   Читать дальше...   )Жанр: Биографии и мемуары, Литературоведение, Популярно об историиПеревод: Алексей КапанадзеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2672AFF5CAF26AD5DC8AF9250CBD50E43F41EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652555   (832326) от 06.05.2013
-
-Алексей Иванович Ракитин | Перевал Дятлова - Смерть, идущая по следу…(интернет-версия) [2012] [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832326.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом очерке будет предпринята попытка проанализировать всю накопленную к 2010 г. информацию по факту загадочной гибели свердловских туристов на перевале Дятлова зимой 1959 г. Спокойно и взвешенно мы разберём основные версии произошедшего, восстановим последовательность действий участников драмы, достаточно точно объясним логику, причинно-следственные связи и взаимную (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CC77193702A2F2B211229262ECB2B6087E8E4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

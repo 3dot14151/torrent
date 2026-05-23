@@ -1,3 +1,107 @@
+###  Публикация: 1095123   (926185) от 20.01.2017
+
+Корри тен Боом | Убежище (2005) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Голландка Корри тен Бум (или Боом) (Corrie ten Boom, Корнелия) жила в маленьком доме, где на первом этаже ее дед Виллем тен Бум открыл часовой магазин. Бумы всегда отличались набожностью и активной благотворительностью среди бедняков. Во время войны Бумы укрывали и евреев, и студентов, отказавшихся сотрудничать с нацистами, и членов сопротивления. В среднем в доме (   Читать дальше...   )Жанр: Биография, мемуарыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3915CC0C3D4E63D2547B29C066BEEAD56B38907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095118   (926184) от 20.01.2017
+
+Святитель Лука (Войно-Ясенецкий) | Дух, душа, тело (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга, которая перед вами, есть труд по апологетике. Ее автор Архиепископ Лука (Войно-Ясенецкий), был замечательным врачом, и мог бы до конца жизни с совершенно чистой совестью нести это служение страждущему человечеству. Но он почувствовал призвание к еще более высокому служению, и в самые страшные для Церкви годы он принимает священство, а вскоре и епископский (   Читать дальше...   )Жанр: Богословие, апологетикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E8C43FCD284A80C52EEEF0B5FADD844CDCC51C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095129   (926179) от 20.01.2017
+
+Е.Л. Александрова и др. | История финской Евангелическо-лютеранской церкви Ингерманландии (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга посвящена истории Евангелическо-лютеранской церкви Ингрии — одной из старейших лютеранских церквей, действующих в Российской Федерации. Первое документальное упоминание об одном из её приходов — в Лемболове на севере Ингерманландии (Ингрии) — относится к 1611 г. Состоящая в настоящее время из 77 приходов (15000 прихожан) Церковь Ингрии охватывает (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2750E1FB8761DF1EE5AC1C74B494C267BF17FDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095007   (926131) от 20.01.2017
+
+Б. Кандидов | Крестом и нагайкой [Почаевская лавра и черносотенное движение] (1928) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В настоящем очерке вкратце описано участие Почаевской лавры в черносотенном движении. Организованный лаврой Почаево-Лаврский „Союз Русского Народа" был мощной реакционной организацией, создавшей разносторонние формы деятельности и охватившей своим влиянием весь юго-западный край. Даже больше. Через свою печать и курсы черносотенного „актива“ он был связан с (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5F34D659A13A62F08D2926B14158B0E326E0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 771261   (926076) от 20.01.2017
 
 Сергей Владимирович Алексеев | Иконописцы Святой Руси. Духовные основы древнерусского иконописания (2008) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +664,7 @@ C. Милов (составитель)| Сила Любви. По творени
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,113 +675,6 @@ C. Милов (составитель)| Сила Любви. По творени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1713E78056C29FB4C209FDAC858BE462409016BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096550   (919295) от 24.01.2017
-
-Свято-Троицкая Православная миссия (изд.) | Советы Оптинских Старцев (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию православного читателя предлагается сборник советов Оптинских старцев. Отличительная черта советов преподобных подвижников Оптиной пустыни - глубина и содержательность при их видимой краткости. Не умаляется значение их советов и сейчас. Изложенные интересно и живо, с предельной простотой и ясностью, они и ныне несут боголюбивым читателям утешающее, живительное, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38932D05AD3718468C524A3AD267756F4B831352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096568   (919279) от 24.01.2017
-
-Данилов мужской монастырь (изд.) | Святитель Спиридон Тримифунтский. Житие. Чудеса. Канон. Акафист (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919279.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашей стране существует многовековая традиция почитания святителя Спиридона, но лишь в апреле 2007 года в Россию впервые была доставлена честная десница святителя Спиридона, епископа Тримифунтского. В Москве и ещё восьми российских городах поклониться святыне, попросить Святого о помощи пришли более миллиона трёхсот тысяч человек, и вера пришедших не была посрамлена. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486680A15334A4E2DC1C8901BC73A7157D2F2694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988976   (919245) от 21.02.2016
-
-Б. Кандидов | Монастыри-музеи и антирелигиозная пропаганда (1929) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919245.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлена история крупнейших монастырей бывшей Российской Империи, превращенных Советской властью в музеи. Представлена методология музеефикации монастырей и предметов культа, дана библиография.Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1376E62C56DB82A9CC130B4DED58C7115C433004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490302   (919040) от 20.08.2021
-
-Сретенский монастырь (изд.) | Как правильно подавать записки «О здравии» и «О упокоении» (1997) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молитва Церкви и Святейшая Жертва привлекают на нас милость Господа, очищающую и спасающую нас.
-
-Мы всегда, и при жизни, и по смерти, нуждаемся в милости Божией к нам.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42642759CE1E82F75509CD00D2EF21AB3C153CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

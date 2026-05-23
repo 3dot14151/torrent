@@ -1,3 +1,110 @@
+###  Публикация: 1142430   (642718) от 14.06.2017
+
+А.Н. Рабодзей (сост.) | БЭК 28. Infineon. Транзисторы S-IGBT, интеллектуальные ключи и мостовые драйверы (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приведены краткие описания и технические параметры новых ключевых приборов фирмы Infineon: быстродействующих биполярных транзисторов с изолированным затвором (технология NPT IGBT) и DuoPack® семейств S-IGBT, интеллектуальных ключей семейств TEMPFET®, HITFET®, PROFET®, TRILITHIC® и других схем управления исполнительными механизмами.
+Наряду с новыми приборами в издание (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC13B704170D5D44278409A36CC8F9D77A839E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142586   (640652) от 15.06.2017
+
+М.Л. Бараночников | Приемники и детекторы излучений. Справочник (2017) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Справочник является второй, дополненной редакцией книги «Приемники и детекторы излучений», которая вышла из печати ДМК Пресс в 2012 году. В настоящем справочнике содержатся сведения о приемниках ионизирующего излучения (счетчиках Гейгера, сцинтилляторах, детекторах альфа-, бета-, гамма-, и нейтронного излучений), а также о широкой номенклатуре фоточувствительных (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EC95CFC46B8BC6DE68503B8C42BBE2E60FA4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 204852   (640506) от 01.04.2019
+
+Тиатор И. | Библиотека климатехника. Отопительные системы [2006] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В данной книге рассмотрены вопросы проектирования отопительных систем, теплопотребления, выбора поверхности нагрева, расчета оптимальных размеров, выбора соответствующих частей системы. Также представлены основные компонеты отопительной системы, материалы для трубопроводов, виды оборудования, основные виды котлов и возможности регулирования.
+Задания-примеры послужат (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594B56BBE1C916AC718955C361086D298C7D86FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032413   (639870) от 10.07.2016
+
+Г. Лэм | Аналоговые и цифровые фильтры (1982) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются основы теории электрических цепей, принципы и схемы реализации аналоговых и цифровых фильтров. Книга является одним из лучших руководств по выбору типов и параметров непрерывных и дискретных фильтров.
+Для специалистов, занимающихся проектированием фильтров, и студентов, изучающих электро- и радиотехнику.Жанр: Радиотехника и электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865ECE743BDBCBD7820F6147C9B0FA30A7E38A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907346   (639540) от 11.06.2015
 
 Б. П. Вонг и др. | Нано-КМОП-схемы и проектирование на физическом уровне (2014) [DJVU]
@@ -6,7 +113,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,113 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF760C82B08B1F0872F3702B25044AA4861169DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909800   (621558) от 20.06.2015
-
-Г. И. Разин, А. П. Щелкин | Бесконтактное измерение электрических токов (1974) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена теории и практике современных средств бесконтактного измерения электрических токов, основанных на использовании магнитометрических и электрометрических преобразователей. Рассмотрены принципы работы, основные параметры и характеристики бесконтактных преобразователей тока различных типов. Дано описание схем и конструкции приборов, использующих указанные (   Читать дальше...   )Жанр: Технические науки, ЭлектрикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4C1A4D6F8F0BF20398CFA6A1C81CD57A31DBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295349   (620094) от 12.04.2019
-
-С.Л.  Макаров | Arduino Uno и Raspberry Pi 3: от схемотехники к интернету вещей (2018) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из двух частей, содержащих как теоретические, так и практические сведения о работе с платами Arduino Uno и Raspberry Pi 3.
- Первая часть посвящена теории и решению 34 практических заданий для Arduino Uno в среде Arduino IDE со всеми датчиками, модулями и другими компонентами соответствующего набора интернет-вещей, включая RFID-модуль, и предназначена (   Читать дальше...   )Жанр: Радиоэлектроника. СвязьФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DD3BC8A10F7F37FB9DC8134450216A94E1AB90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910788   (619961) от 21.06.2015
-
-Tektronix | Цифровые устройства. Руководство по отладке (2006) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619961.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мере роста быстродействия систем и уменьшения их размеров разработчикам схем становится все труднее обеспечить идеальные цифровые характеристики сигнала. Высокое быстродействие и плотная упаковка компонентов устройств приводят к ряду нежелательных электрических явлений, неблагоприятно влияющих на работу схемы.
- В конструировании быстродействующих устройств большую (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68024225FB4C03DF45CB45C0E06C8C9A6ADBBF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910304   (619632) от 21.06.2015
-
-М.А. Палей и др. | Допуски и посадки. Справочник. [Часть 1] (2009) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит основные материалы и рекомендации по расчету и применению в машино- и приборостроении, других отраслях техники Единой системы допусков и посадок (ЕСДП), основных норм взаимозаменяемости (ОНВ) в их увязке с международными стандартами (ИСО). Материалы приведены по состоянию на январь 2008 года.
-В части 1 рассмотрены допуски и посадки гладких цилиндрических (   Читать дальше...   )Жанр: МашиностроениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92693D889F6B7FDD4AC0BE67DD03A1259A313CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

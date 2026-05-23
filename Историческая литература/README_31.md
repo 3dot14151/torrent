@@ -1,3 +1,86 @@
+###  Публикация: 1213526   (768180) от 17.03.2018
+
+Боевые предприятия социалистов-революционеров в освещении охранки (1918) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Систематизированные и комментированные эсерами, "нумерованные" труды Спиридовича, написанные им для служебного пользования. С приложением статистики террористических актов из второго выпуска "Памятной книжки социалиста-революционера", изданной нелегально в Париже, в 1914-м году.Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DE9F24E257A3E2A855ED138B683D2A66D02ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213517   (768179) от 17.03.2018
+
+В.Д. Левинский (ред.-изд.) | Альбом Зеркало Кавказа (1902) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Альбом из 36 картин и видов Кавказа, снятых с натуры фотографом Д.И. Ермаковым.
+Пояснительный текст в 4-х отделах:
+а) лечебный Кавказ (отсутствует в ГПИБ и в данном файле);
+б) промышленность и естесственные богатства Кавказа (отсутствует в ГПИБ и в данном файле);(   Читать дальше...   )Жанр: История Отечества, альбом видовФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365E34C29737F6BAB594EBDDF21083A99DA4BD1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213505   (768174) от 17.03.2018
+
+А.Е. Алекторов | Материалы к истории революционного движения в России. Императорская Военно-Медицинская Академия (1913) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Военно-медицинская академия стала главной научной и клинической базой России. Она положила начало высшему медицинскому, ветеринарному и фармацевтическому образованию в нашей стране.
+
+Данная книга о революционном "брожении" в Академии, революционных кружках, пропаганде, участии студентов в революционном движении, репрессиях во второй половине XIX - начале (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1518C0B064C85D012BF3A958E4E448B4DF7F97DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213520   (768170) от 17.03.2018
 
 С.И. Мицкевич (ред.) | Альбом по истории ВКП(б) (1926) [DJVU]
@@ -6,7 +89,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,89 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27A3F575461B8445A8AC233B193D064308C75055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214135   (765803) от 20.03.2018
-
-Л.Б. Каменев | Между двумя революциями. Сборник статей (1923) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник статей, написанных на перевале от первой ко второй российской революции, имеет своей целью напоминание, обращенное одновременно и к друзьям, и к врагам и нашей партии.
-Врагам нашей партии следует всячески напоминать, что партия большевиков родилась не в октябре, не в июле и даже не в марте 1917 года, а лет за 15 до этого. Только величайшее невежество (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B09CC3743276F0BC5C733EFCD4A0D96FB0E6AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214134   (765777) от 20.03.2018
-
-Как выбирать крестьянам членов в Государственную Думу (1907) [DjVu]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агитационно-пропагандистская брошюра от партии "Союз 17 октября".
-
-"Союз 17 октября" («Октябристы») — умеренно правая политическая партия крупных землевладельцев, предпринимательских кругов и чиновников России, существовавшая в 1905—1917 годах. Партия представляла правое крыло российского либерализма, придерживавшееся умеренно-конституционных (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B4163A43CFDD874350B964E4E45D365F0E328F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214140   (765773) от 20.03.2018
-
-М.Н. Катков | О самодержавии и конституции (1905) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катков Михаил Никифорович (6 (18) ноября 1817, Москва – 20 июля (1 августа) 1887 с. Знаменское Подольского уезда Московской губ.) - правовед, журналист и публицист. Из дворян. В своих политических публикациях придерживался позиции умеренного дворянского либерализма.
-
-Государство всегда было для Каткова на первом месте. Но государство понималось не как территория (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1DFC6D38D4B4D118DEF02E186374CC47471826
 ```
 
 https://mybot314.ru/tekegram_catalog/

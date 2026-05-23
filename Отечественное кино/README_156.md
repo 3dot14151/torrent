@@ -1,3 +1,107 @@
+###  Публикация: 1417060   (362320) от 18.10.2020
+
+Боевая система. Группа Бора (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Боевая система" художественный фильм, снятый командой DoronkinProject в 2020 году совершенно без бюджета! В съемках полнометражного фильма "Боевая система" приняло участие более 300 человек, 50 видов стрелкового оружия, техника и бойцы специального назначения. Консультантом фильма выступил боевой офицер, полковник запаса ФСБ Семеняка Сергей Николаевич.Производство: Россия / DoronkinProjectЖанр: Короткометражный, боевик, драма, военныйРежиссер: Виталий ДоронкинАктеры: Денис Вишняк, Игорь Андрикевич, Юрий Бакин, Асхаб Идигов, Сергей Доронкин, Антон Иглаков, Павел КорицкийСубтитры: ОтсутствуютПродолжительность: 00:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E453616E2E224B511F2191BABE10DE789E7A4A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416781   (362306) от 18.10.2020
+
+Сельский детектив. Иголка в стоге сена (2020) SATRip [H.264] (фильм 3, серии 1-4 из 4)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка, шатаясь, подходит к больнице и падает. Перед тем, как отключиться, она успевает сказать два слова: "Меня убили". Врачи уверены: это бред, следствие спутанности сознания. Больная в коме, и причины не криминальны – у неё разрыв аневризмы. При чём тут убийство? Но Олеся уверена: девушка сказала именно то, что хотела. А значит, надо искать. (   Читать дальше...   )Производство: Россия / ТПО «Сила»Жанр: детективРежиссер: Сахат ДурсуновАктеры: Олеся Фаттахова, Алексей Демидов, Данила Якушев, Елена Цыплакова, Павел Белозёров, Александр Пашутин, Надежда Бахтина, Андрей Иванов, Валерия Моисеева, Егор Анисимов и др.Продолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0018764854B71F453E77B01EDED13DC686FD2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576782   (362269) от 17.11.2012
+
+Роза прощальных ветров (2012) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Герои этой истории живут спокойной налаженной жизнью. За спиной у сорокалетней домохозяйки со смешным именем Роза - 20 лет брака с успешным бизнесменом Николаем. Авиаконструктор Константин Неволин встречается с молодой красивой девушкой Лизой. Случай сталкивает Неволина и Розу в Подмосковье дождливой ночью. И эту ночь они проводят вместе. Вполне можно было бы забыть и жить дальше – но у героев это не получается. Константин постоянно вспоминает Розу, да и Роза не может его забыть, хотя и пытается убедить себя в том, что она счастливая жена. Сомнения Розы решает появление в ее доме Марины, любовницы ее мужа Николая, которая устала ждать, пока Николай уйдет от своей жены. Роза уходит от мужа и меняет имидж – из сорокалетней унылой тетки она превращается в красивую стильную моложавую женщину. Между тем и Костя Неволин, с которым Розу свела судьба, не может больше обманывать свою невесту и уходит от нее к Розе. Казалось бы, счастью Розы и Неволина ничего не может помешать. Но на самом деле их неприятности только начинаются.Жанр: МелодрамаРежиссер: Дмитрий СорокинПродюсер: Влад Ряшин, Елизавета Троицкая, Кирилл БурдихинАктеры: Татьяна Черкасова, Илья Носков, Борис Миронов, Виктория Полторак, Юлия Кокрятская, Анна Ходюш, Александр Христофоров, Алексей Захаров, Анастасия МоскалеваПеревод: Не требуется (Русский)Продолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36C192D2FFD6FAFA72EA58DD0678367484FF5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416929   (362085) от 18.10.2020
+
+Калашников (2020) BDRip [H.264/1080p] [GER Transfer] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Калашников. Все знают эту фамилию, но не все знают, какой долгий и тернистый путь прошел парень-самоучка, чтобы в 28 создать легендарное оружие АК-47, которое по сей день является символом оружейной мысли нашего времени.Производство: Россия / RB ProductionЖанр: Биография, ИсторияРежиссер: Константин БусловАктеры: Юрий Борисов, Ольга Лерман, Артур Смольянинов, Эльдар Калимулин, Виталий Хаев, Валерий Баринов, Анатолий Лобоцкий, Алексей Вертков, Дмитрий Богдан, Максим БитюковПеревод: Не требуется (Русский)Субтитры: немецкие (forced)Продолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DA422DBC4A0A0FDA9621D071A7F59C95BAE762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255558   (361360) от 19.10.2018
 
 Олеся (2016) WEBRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEE977862280AF1A5D5D2AE0176F8B3ABBD5FBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256361   (356554) от 21.10.2018
-
-Одинокие души микробов (2014) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек меняется каждую секунду и не меняется никогда. Как бы ни был счастлив, молод и даже влюблен, внутри ты носишь свое одиночество. От него не спастись: оно прячется в пьяном угаре съемных студенческих квартир, подглядывает, даже когда ты не спишь в постели. Главный герой фильма знакомится с девушкой, которая меняет его мир. Ее осознанное одиночество — надежная (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Михаил РомановскийАктеры: Артем Ключников, Ася Домская, Татьяна Левина, Юрий СкулябинСубтитры: ОтсутствуютПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72C8EABD098DF5235F4A1E5D90D1FBAA5EF6FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256466   (356429) от 21.10.2018
-
-Эрос (2017) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она слышит больше, чем все остальные. Но его голос — это всего лишь один из миллионов звуков, среди которых она пытается найти гармонию.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Виталий УймановАктеры: Ксения Новикова, Евгений Венедиктов, Антон РоммСубтитры: ОтсутствуютПродолжительность: 00:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53933DA7B9779110AF6208B0A446A0C3934F5D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256471   (356427) от 21.10.2018
-
-Шестнадцатилетний виски (2016) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей вырос в интернате, прошел чеченскую кампанию и, не сумев приспособиться к гражданской жизни, превратился в наемного убийцу. Очередной его жертвой должен стать бизнесмен Михаил, однако при встрече Алексей узнает в нем своего интернатского друга. Теперь их разделяет пропасть в шестнадцать лет, несколько социальных слоев и множество обид. Что сильнее — общее (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драма, триллерРежиссер: Денис Лафанов, Карен АрутюновАктеры: Никита Панфилов, Иван Зархин, Елена Дубровская, Алиса Емельянова, Оксана ЗавьяловаСубтитры: Английские (вшитые не отключаемые)Продолжительность: 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA59629A757CE98327E92C45B5DC7EC36EBC55DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256396   (356426) от 21.10.2018
-
-Селфи (2017) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы увидите историю, которую случайно сняла камера мобильного телефона. Его попытались украсть и это обернулсь, в итоге, настоящей драмой сразу для нескольких человек. Развитие этой драмы беспристрастно зафиксировал мобильный телефон, из-за которого все началось.Производство: РоссияЖанр: Короткометражный, триллерРежиссер: Андрей КартавцевАктеры: Анастасия Иванова, Николай Карпов, Никита Манилов, Иван Кашин, Андрей ГриневСубтитры: Английские (вшитые не отключаемые)Продолжительность: 00:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B96272EA4E8CFBC16B5C6358B062E082E17C39
 ```
 
 https://mybot314.ru/tekegram_catalog/

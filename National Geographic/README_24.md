@@ -1,3 +1,30 @@
+###  Публикация: 1240362   (528618) от 11.08.2018
+
+NGW: Атака нильского крокодила / Africa's Croc Attack (2012) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На реке Конго каякеры из США Бен и Крис пытаются выследить и поймать огромного нильского крокодила, который убил их друга, бывшего гида.
+Нильский крокодил — древнее существо, он хозяйничает в африканских реках ещё со времён динозавров. Но за 60 млн. лет эта проворная и скрытная рептилия почти не изменилась. Длина врослого крокодила достигает шести метров, а вес приближается (   Читать дальше...   )Производство: Австралия, National Geographic ChannelsЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8093B8E2CAB038E0A1F5F46BECCBA5CADBD227C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052648   (526538) от 16.09.2016
 
 NG: Смертельный бой динозавров / Dino Death Match (2015) HDTV [H.264/1080i]
@@ -6,7 +33,7 @@ NG: Смертельный бой динозавров / Dino Death Match (2015)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +59,7 @@ Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +113,7 @@ NG. Осушить океан: глубокое погружение. Подво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +139,7 @@ NG. Осушить океан: глубокое погружение / Drain the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +165,7 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +217,7 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +269,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +295,7 @@ NGW: Кошка будущего / Future Cat (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +321,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +347,7 @@ NGW: Бойцовский клуб для животных / Animal Fight Club (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +373,7 @@ NGW: Рожденные в Африке. Круг жизни / Born in Africa (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +400,7 @@ NGW: Земля хищника / Predator Land (2019) HDTV [H.264/1080i-LQ] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +426,7 @@ NGW: Тимбавати: мир диких кошек / Timbavati: An Epic Cat S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +452,7 @@ NGW: Пума! / Puma! (2012) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +478,7 @@ NGW: Намибия. Убежище гигантов / Namibia. Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +504,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +530,7 @@ NG: Осушить океан: Корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +556,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTVRip (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +582,7 @@ NGW: Анаконда. Тихий убийца / Anaconda. Silent killer (2014) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +608,7 @@ National Geographic. Зона риска. Фестиваль байкеров в
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +634,7 @@ NG: Лесное царство / Kingdom of the Forest (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -633,7 +660,7 @@ NG: Бойцовский клуб для животных / Animal Fight Club (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,32 +671,6 @@ NG: Бойцовский клуб для животных / Animal Fight Club (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DFECD8ED02FF7F95C32B567719F27AE22F60B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055457   (481763) от 25.09.2016
-
-NG: История города пиратов / История города пиратов (2011) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порт-Рояль - самый богатый город Карибского бассейна - столица грабежей, убийств и проституции. Город греха семнадцатого века. Когда 7 июня 1692 года на Ямайке произошло сильное землетрясение, Порт-Рояль ушел под воду, навсегда похоронив свои секреты в морской бездне. С тех пор он так и томится там – этот прекрасно сохранившийся затопленный город, скрытый от мира (   Читать дальше...   )Телекомпания: Канада, National Geographic Channel, Wall to Wall Media Ltd, Yap Wickedest Productions IncЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E27AA7719B5F842C696D524294E61E4A351E11
 ```
 
 https://mybot314.ru/tekegram_catalog/

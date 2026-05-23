@@ -1,3 +1,82 @@
+###  Публикация: 1555639   (230325) от 10.06.2022
+
+Shin Ikkitousen | Новые школьные войны: Истинная сила тысячи [2022, TV, 3 эп.] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Запечатанный в древних драгоценностях дух героев, которые безуспешно попробовали объединить Китай в эру Троецарствия. Эти драгоценности были рассеяны всюду по Японии, они могут развить полный потенциал тех, кто их унаследует. Однако, владельцы, известные как Тоуши, охвачены жаждой страсти к сражениям. Хакуфу Сонсаку является одной из таких бойцов. Желание Хакуфу (   Читать дальше...   )Производство: ArmsЖанр: приключения, боевые искусства, комедия, эттиРежиссер: Кудзё РионПеревод: официальный (crunchyroll)Язык озвучки: Русский дублированный (Crunchyroll), многоголосый, закадровый (AniDub), японскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C0FA8E95E04EAE63F99491C790FE38C26F4D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556702   (230322) от 10.06.2022
+
+Добро пожаловать в ад, Ирума [ТВ-2] | Mairimashita! Iruma-kun 2nd Season | Welcome to Demon School! Iruma-kun [TV-2] [2021, TV, 21 из 21] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон:
+Судзуки Ируму продали демону безответственные родители. Но к его собственному удивлению, он не только стал жить с демоном, который принял его как своего нового внука, но и был зачислен в школу в демоническом мире, где его новый дедушка работает директором. Так началась необычная школьная жизнь Ирумы среди потустороннего, где он сталкивается со своим (   Читать дальше...   )Производство: Студия BN Pictures / バンダイナムコピクチャーズЖанр: комедия, романтикаРежиссер: Мориваки МакотоЯзык озвучки: Русский закадровый (AniLibria.TV), Английский дублированный (Crunchyroll)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 21 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A59AABBA565C31052A7C429D879C5668DFB875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601386   (229697) от 27.07.2023
+
+Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Над миром нависла страшная угроза! Шпиону «Сумраку» предстоит выполнить сложнейшую миссию в своей карьере... стать примерным семьянином. Под видом любящего мужа и отца он должен проникнуть в элитную школу и сблизиться с верхами мира политики. На первый взгляд прикрытие вышло великолепное, вот только его жена — наёмная убийца. И супруги не знают о настоящей работе (   Читать дальше...   )Производство: Wit Studio и CloverWorksЖанр: приключения, комедияРежиссер: Фурухаси КадзухироЯзык озвучки: Японский, русский (AniLibria, AniPlague, Dream Cast, Force Media, Shiza)Субтитры: Русские (AniLibria, Alvakarp, Crunchyroll, SovetRomantica, YakuSub)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD23251FD974BE84114137104B7F79C2ADF01AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341938   (226313) от 30.11.2019
 
 Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Если будешь не занят, спасёшь меня от апокалипсиса? [2017, TV, 12 ep] BDRip 1080p 10-bit raw+rus
@@ -6,7 +85,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Ес�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Re: Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +163,7 @@ Overlord Specials: Ple Ple Pleiades | Повелитель: Пле-Пле-Пле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +189,7 @@ Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (ком
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +217,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +243,7 @@ Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +269,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +295,7 @@ Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -295,7 +374,7 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +400,7 @@ Drifters | Скитальцы [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -347,7 +426,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +452,7 @@ Gekijouban One Piece: Stampede | Ван-Пис: Фильм четырнадца�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +506,7 @@ One Piece: Heart of Gold | Ван-Пис: Золотое сердце [2016, Spe
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +532,7 @@ One Piece Film: Gold | Ван-Пис: Фильм тринадцатый [2016, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -534,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -561,7 +640,7 @@ Spriggan | Спригган [2022, Web, 06 эп.] WEB-DL 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -601,92 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A71496138B5D5661D83213D31404FE80484FD27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562065   (212770) от 07.07.2022
-
-Дневник слизи | Tensura Nikki: Tensei Shitara Slime Datta Ken | The Slime Diaries: That Time I Got Reincarnated as a Slime [2021, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогой дневник… Я переродился в слизь. Даже в другом мире жизнь не всегда на кону. Есть много работы, которой надо заниматься: кормление сообщества, ковка предметов, необходимых сообществу. Много разных игр и шуток вокруг! Присоединяйтесь к Римуру и его друзьям, наслаждающимся своим отдыхом и повседневной жизнью!
-
-Это аниме раскроет Римуру и его спутников с совершенно (   Читать дальше...   )Производство: Япония / Студия 8bitЖанр: Комедия, повседневность, сёнен, фэнтезиРежиссер: Хайбара ЮдзиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (SHIZA Project), Японский
-- Ados, Hekomi, Sharon, Silv (AniLibria.TV)
-- Лизавета, Daelit, Wozwald (SHIZA Project)Субтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A4332073E93F62065B039D2FE0FF40A3190D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562877   (212675) от 11.07.2022
-
-Избранный богами [ТВ-1] | Человек, выбранный богами [ТВ-1] | Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods [2020, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь обычного и ничем не примечательного 39-летнего бизнесмена Рёмы Такебаяши кардинально меняется в тот день, когда он умирает во сне и переносится на небеса к трём великим Богам. Они решают переродить его душу в ином мире, где царят чудеса и магия. Рёме предстоит не только приспособиться к новому окружению, полному необычных для него явлений, и его правилам, но (   Читать дальше...   )Производство: Япония / Студия Maho FilmЖанр: Магия, приключения, фэнтезиРежиссер: Янасэ ЮдзиЯзык озвучки: Русский многоголосый закадровый, Японский
-- Amikiri, Crowley, Derenn, Itashi (AniLibria.TV)
-- Русаков А., Шамарина Т., Портная А., Бобылёва Д., Кубасян С., Жбанов Н. (Wakanim)Субтитры: Русские (софтсаб полные/надписи)
-- (int) (полные/надписи) (AniLibria.TV)
-- (int) (полные) (Wakanim): Екатерина Ясницская, Тимофей КостинПродолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983B23170351AEE337651CA7B6DFE873F50B1556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830598   (212543) от 28.10.2025
-
-Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время летних каникул Хаири Такахара отправился на остров Торисиродзима, чтобы разобрать имущество недавно умершей бабушки. Сойдя с парома, он заметил девушку, стоящую на пирсе. Залюбовавшись ею, он пришёл в себя только тогда, когда осознал, что прекрасная незнакомка исчезла. Проведя какое-то время на острове, Хаири обнаружил, что стал потихоньку привыкать к тамошней (   Читать дальше...   )Производство: Япония, FeelЖанр: Романтика, ПовседневностьРежиссер: Кобаяси ТомокиПеревод: AniLibertyЯзык озвучки: Русский (AniLiberty)Субтитры: РусскиеПродолжительность: 26 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7BFC1BE4E3C835B01A33C1029EF4C8C9BD036C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

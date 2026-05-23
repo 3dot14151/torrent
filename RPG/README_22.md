@@ -1,3 +1,81 @@
+###  Публикация: 1144160   (638699) от 02.04.2019
+
+Darkest Dungeon (2016) [Ru/Multi] (24839/dlc) License CODEX [Ancestral Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Darkest Dungeon - это готическая ролевая игра с пошаговой механикой, бросающая игроку вызов и посвященная психологическим стрессам, возникающим в процессе приключений. Наймите, на тренируйте, а затем возглавьте команду героев и приведите ее к победе через запутанные леса, забытые заповедники, разрушенные склепы и прочие локации.Тип издания: LicenseРазработчик: Red Hook StudiosЖанр: RPG (Rogue, Action)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E2B47E500C9F9FEA4AB0B27FFAA8DF35C368A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143122   (638598) от 16.06.2017
+
+Two Worlds II / Два Мира 2 (2010) [Multi] (2.0/dlc) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новая глава истории удивительной вселенной Анталор. Прошло пять лет после драматических событий, которые привели Анталор на край пропасти. Главный герой заточен в темницу мрачного замка, а его сестра Кира находится в лапах темного властелина Гандохара, одурманенная мощным заклинанием. Зло пытается пробудить древнюю силу и завладеть Анталором, и герой не может противостоять (   Читать дальше...   )Тип издания: LicenseРазработчик: Reality PumpЖанр: RPG (Rogue, Action) 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A726EDFFC704100AFAC619B19F5394585A30588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008058   (637536) от 11.07.2016
+
+Survivalist (2015) [Ru/Multi] (57) SteamRIP ALiAS
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Перед нами открытый мир умопомрачительных размеров Survivalist, в котором царит свобода. Но не увлекайтесь – каждый ваш шаг может повлечь за собой самые неожиданные последствия. Цивилизация уничтожена, и с тех пор прошло уже немало лет. И вот, наш герой Джо Уилер, биржевой менеджер в прошлом, решил появиться на белый свет из своего убежища. Ему предстоит отправиться (   Читать дальше...   )Тип издания: SteamRIPРазработчик: Bob the Game Development BotЖанр: RPG (Rogue,Action), 3D, IsometricЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D04E5DBF698C4493871352417D405A02CFD4848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130938   (636527) от 17.06.2017
 
 Expeditions: Viking (2017) [Ru/Multi] (1.0.5/dlc) SteamRip Let'sPlay
@@ -6,7 +84,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.5/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Smoke and Sacrifice (2018) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Moonlighter (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Witcher: Anthology / Ведьмак: Антология (2008-2015) [Ru/En/P
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Moonlighter (2018) [Ru/Multi] (1.4.4.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ City of Brass (2018) [Ru/Multi] (1.5.1/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Ys Origin [En] (L) 2012 | Reloaded
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0/3dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +373,7 @@ Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +401,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +427,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +453,7 @@ Grimshade (2019) [Ru/En] (1.0.5) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +479,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +505,7 @@ Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +531,7 @@ I am Setsuna (2016) [En/Ja] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +557,7 @@ I am Setsuna (2016) [En/Ja] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +583,7 @@ Final Fantasy XV / Final Fantasy 15 (2018) [Ru/Multi] (1138403/dlc) Repack R.G. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +609,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.3.1/dlc) License GOG [Enhanced Co
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +635,7 @@ Book of Demons (2018) [Ru/Multi] (1.01.18203) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +661,7 @@ South Park: The Fractured but Whole (2017) [Ru/Multi] (1.0/dlc) License CODEX [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,84 +672,6 @@ South Park: The Fractured but Whole, сиквел знаменитой игры 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13B9B8D8BECF1A3609BB103C6742047D23C2C56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091669   (612452) от 30.06.2017
-
-Grim Dawn (2016) [Ru/Multi] (1.0.1.1/dlc) SteamRip Let'sPlay
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grim Dawn — духовный наследник Titan Quest, который создается усилиями молодой студии Crate Entertainment основанной выходцами из Iron Lore Entertainment. Игра представляет из себя экшен/RPG выполненной в фэнтезийной стилистике. Действие сюжета Grim Dawn разворачивается в империи Каирн, ставшей полем битвы двух потусторонних сил.Тип издания: SteamRipРазработчик: Crate EntertainmentЖанр: RPG, Rogue, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DD866353FF3C9467E356E29C9A893AF8C07CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230753   (612060) от 14.06.2018
-
-Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.30/1.10/1.2/1.00/1.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сейчас перед вами – фактически даже не игра, а программа-конструктор для создания собственных (!) ролевых игр во вселенной Forgotten Realms на базе движка РПГ серии GoldBox фирмы SSI. Программа содержит один предустановленный сценарий – Heirs to Scull Crag, - а также широчайшие возможности для создания не просто собственных приключений, но и целых миров. Все создаваемые (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroMagicЖанр: Ролевая игра, Экшн, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC95089AA3EB55A9B0866BD301DB84130E5D913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526438   (609157) от 22.04.2022
-
-Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609157.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Medieval Dynasty вам предстоит примерить на себя роль юноши, который сбежал от войны и хочет взять жизнь в свои руки. Изначально вы одиноки, неопытны и бедны, однако вам предстоит многому научиться, возглавить других и основать процветающую династию, которая будет процветать многие века. Охотьтесь и защищайтесь от хищников, собирайте ресурсы и изготавливайте (   Читать дальше...   )Тип издания: RepackРазработчик: Render CubeЖанр: Adventure, RPG, Simulator, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77206C31D7E4BA42A3B33727759CEB46D5C57EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 458841   (78735) от 27.02.2012
+
+Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Официальный клип на композицию Emma Hewitt - Colours (Armin van Buuren Remix)Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C601DA0ED9FDF8A40AEB8066CF19A42C0A1DD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458167   (78394) от 25.02.2012
+
+NikitA - Машина (2009) HDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455499   (78191) от 24.02.2012
+
+VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 Narcotic Sound and Christian D - Danca Bonito
+02 Blank And Jones feat Bobo - Perfect Silence
+03 NikitA - Bite
+04 David Deejay - Perfect 2
+05 Dj.Sava feat Andreea D and Yolo - Money Maker
+06 Klaas and Bodybangers - Freak
+07 Dev - In The Dark
+08 Outwork feat Mr. Gee - Elektro
+09 Dj.Flower - Jamaican Love
+10 Heaven feat Glance - Sexy Girl(   Читать дальше...   )Жанр: VariousПродолжительность: ~01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DC6C6C973B99AE17476F4B83332ACE0159ABB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448157   (77057) от 19.02.2012
+
+Виниловое видео (2011-2012) IPTVRip [Обновляемая]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыкальная, развлекательная передачаРежиссер: Светлана ЛялькинаПродолжительность: Выпуск: ~ 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87788B345D2D8219EFFC60EFBE5C7865704E50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453487   (76803) от 17.02.2012
 
 Катя Самбука - Зашли мне лям (Uncensored) (2010) WEBRip [720p]
@@ -6,7 +119,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_76803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +275,7 @@ Van Canto - Клипы (2006-2011) DVDRip, WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -226,7 +339,7 @@ VA/Сборник видеоклипов / HD клипы для хорошего
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -255,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -281,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -307,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -336,7 +449,7 @@ Don Juan Dracula - Burn (SnifferGod Rework) (2025) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -363,7 +476,7 @@ NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -389,7 +502,7 @@ Suzy - Come back (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -415,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -469,7 +582,7 @@ Miyeon - Drive (Live) (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -495,7 +608,7 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -521,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -550,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +692,7 @@ E-rotic - сборник клипов (1994-2002)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,122 +706,6 @@ E-Rotic - Fred Come to Bed (Live @ Dance Haus)(   Читать дальше...  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22B36115AC57E5C34EDF2AE971AEFED4D3C2EB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722770   (56724) от 13.05.2024
-
-Modern Talking - Video Collection (2024) WEBRip [H.264/1080p] [Handmade Upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарю это собрание клипов легендарного дуэта, всем кто любит музыку 80х. Сделал всё что смог, из того материала, который нашёл для реставрации, в приемлемом качестве. Творчество Modern Talking, приятно и смотреть и слушать. Чтобы понять гениальность этой музыки, рекомендую послушать их альбомы 80х, в формате FLAC, в хороших наушниках, с нормальным усилителем. Откроете (   Читать дальше...   )00. Intro
-01. Atlantis Is Calling (S.O.S. For Love)
-02. You're My Heart, You're My Soul
-03. Cheri Cheri Lady(   Читать дальше...   )Жанр: Pop, DiscoКачество: WEBRipПродолжительность: 03:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91810CD76CDF6A4DBC7E0DD789EB5E9FB3049C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722538   (56653) от 13.05.2024
-
-Emma Shapplin (1997-1999) DVDRip [MPEG2]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмма Шапплин (настоящее имя - Кристель Мадлен Жолитон) – французская певица, композитор и продюсер, выступающая в жанре классического кроссовера.
-
-В раздаче представлены видеоклипы с официальных изданий
-Emma Shapplin - The Concert In Caesarea 2003 DVD5(   Читать дальше...   )01 Emma Shapplin - Cuor Senza Sangue 1997 (DVD5)
-02 Emma Shapplin - Spente Le Stelle 1997 (DVD5)
-03 Emma Shapplin - Discovering Yourself 1997 (DVD5)
-04 Emma Shapplin - Cuor Senza Sangue (The Concert In Caesarea Israel) 1999(   Читать дальше...   )Жанр: Classical Crossover, Neoclassica
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC56229FCD4EF7FFCD01ED281838421BA1585B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723202   (56499) от 15.05.2024
-
-Modern Talking - Video Collection (2024) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарю это собрание клипов легендарного дуэта, всем кто любит музыку 80х. Сделал всё что смог, из того материала, который нашёл для реставрации, в приемлемом качестве. Творчество Modern Talking, приятно и смотреть и слушать. Чтобы понять гениальность этой музыки, рекомендую послушать их альбомы 80х, в формате FLAC, в хороших наушниках, с нормальным усилителем. Откроете (   Читать дальше...   )00. Intro
-01. Atlantis Is Calling (S.O.S. For Love)
-02. You're My Heart, You're My Soul
-03. Cheri Cheri Lady(   Читать дальше...   )Жанр: Pop, DiscoКачество: WEBRipПродолжительность: 03:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CF46D233D9DA3AF063DE3812519ADA0210AFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649908   (55436) от 25.05.2024
-
-Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] [Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cборник видеоклипов финской музыкальной группы, пик популярности которой пришёлся на вторую половину 90-ых и первую половину "нулевых".Жанр: Electronic breakbeat, Freestyle, Hip-HopРежиссер: Раймонд Эбанкс, Яакко СаловаараАктеры: Рэймонд Ибэнкс, Исмо Лаппалайнен, Яакко СаловаараПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8B082789C0A32573B6E0FE1712DEB7A1687B4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1427499   (182873) от 28.11.2020
+
+Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Шутер про Вторую Мировую Войну. Выбирайте противоборствующую сторону. Снаряжайте оружие и в битву, вас ждёт захватывающий онлайн шутер с игроками со всего мира с красивой и проработанной графикой.Тип издания: ПираткаРелиз состоялся: 20 ноября 2020 г.Разработчик: XDEVS LTDПоддерживаемая ОС: Android 5.0 и вышеЖанр: Action (Экшен), Shooter (Шутер)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58C3C22B6F6E2C1E09F352FF7D0223919C19008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427651   (182161) от 29.11.2020
+
+Head Soccer LaLiga 2021 v6.2.5 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Head Soccer LaLiga 2021 - Best Soccer Games - крутой спортивный проект в котором геймеры смогут насладиться футбольными поединками. Не матчами, турнирами и прочим, а именно поединками.Тип издания: ПираткаРелиз состоялся: 26 ноября 2020 г.Разработчик: La Liga Nacional de Fútbol ProfesionalПоддерживаемая ОС: Android 5.0 и вышеЖанр: Sports (Спортивная игра)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250FAFEA7E4862F192D9EB5094C2111713095A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665448   (182078) от 30.09.2023
+
+ImageMeter - photo measure v3.8.8 Mod by KitKat [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+ImageMeter предоставляет инструменты, которые помогут вам измерить длину, углы и области на ваших фотографиях. Вместо того, чтобы рисовать эскизы вручную, просто сделайте фотографию и добавьте к ней размеры телефона или планшета. ImageMeter имеет самую широкую поддержку лазерных устройств измерения расстояния Bluetooth. Поддерживается большинство устройств разных (   Читать дальше...   )Тип издания: Business License ActivatedРелиз состоялся: 28.09.2023Разработчик: Dirk FarinПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57830580CD8A92396C22B38C8959F7BC0C5D088B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665382   (182062) от 30.09.2023
 
 Радио Онлайн Zaycev.FM v3.1.9 Mod by KitKat [Ru/En]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ AudioBaby - Детские аудиосказки, музыка, диафиль�
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -293,7 +371,7 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Portal v78 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +423,7 @@ QuickEdit Text Editor Pro 1.9.7 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -371,7 +449,7 @@ Code Editor Pro 0.7.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -423,7 +501,7 @@ Colorize - Color to Old Photos v3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -449,7 +527,7 @@ Leo's Fortune v1.0.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +553,7 @@ Sleep Timer v22.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +606,7 @@ WeatherPro: прогноз погоды 5.6.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -580,7 +658,7 @@ Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Mult
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -591,84 +669,6 @@ Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Mult
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40FE3050B1DF5D8BD6FBF1F667A7C26761328E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428676   (178956) от 03.12.2020
-
-Пистолеты v8.5.4 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приложении содержится описание пистолетов. Обширный каталог пистолетов различных стран мира с подробным описанием.Тип издания: Пиратка (Full)Релиз состоялся: 29.11.2020Разработчик: Kirill SidorovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6E2B41759D2B61BA209254F45862D23B8D3C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428599   (178693) от 03.12.2020
-
-Half-Life 2: Эпизод первый v78 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Half-Life 2: Эпизод первый  дополняет самый популярный бестселлер всех времен, Half-Life 2, новой историей и действиями. В эпизоде первом игрок узнает о новых секретах Сити 17, сможет испытать на себе продвинутый физический геймплей и взаимодействовать с удивительными существами.Тип издания: Пиратка (Куплена)Релиз состоялся: 5 июля 2018 г.Разработчик: NVIDIA Lightspeed StudiosПоддерживаемая ОС: Android 4.4 и вышеЖанр: Action (Экшен), Shooter (Шутер)Язык интерфейса: Есть + (С русскими субтитрами)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA23EF870627AD18621EF9E64CDCEDC14900347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594360   (178624) от 30.11.2022
-
-Calm - Sleep, Meditate, Relax 6.12.2 Mod by youarefinished [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calm - Sleep, Meditate, Relax - простое приложение, не требующее от пользователя ничего. Хотя, нет: нужно успокоиться, расслабиться и наслаждаться прекрасными звуками и видами природы. В современном суетливом мире нет места умиротворению. Никто не может рвануть на выходные к реке, чтобы в тишине понаблюдать за качающимися волнами и послушать крик птиц. Постоянный (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.11.2022Разработчик: Calm.com, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Английский, Французский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DF5382998E3CAD9404DF3AB72B252FD74F97AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

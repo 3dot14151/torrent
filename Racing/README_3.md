@@ -1,3 +1,29 @@
+###  Публикация: 1507857   (798038) от 06.11.2021
+
+Fast & Furious: Spy Racers Rise of SH1FT3R (2021) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Fast & Furious Spy Racers: Rise Of SH1FT3R - увлекательная гоночная аркада с видом от третьего лица в серии "Форсаж", основана на популярном детском мультсериале Fast & Furious Spy Racers от Netflix. В игре вы выступите в роли юного племянника Доминика Торетто, который вместе со своей командой отправляется на яркий турнир, чтобы остановить бандитов.Тип издания: LicenseРазработчик: 3D CloudsЖанр: RacingЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CE23865D13ED61E761EAACE51F5A4BCDA1A2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199733   (797861) от 17.01.2018
 
 Bike Rush (2018) [Ru/Multi] (1.0) Repack MAXSEM
@@ -6,7 +32,7 @@ Bike Rush (2018) [Ru/Multi] (1.0) Repack MAXSEM
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Car Tuning Simulator (2021) [En] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Road Redemption (2017) [Ru/Multi] (1.0/upd9/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Carmageddon TDR 2000 / Кармагеддон. Колеса смерти (2000) 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Carmageddon Max Pack (1997) [En] (1.0/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Assetto Corsa (2014) [Ru/En] (1.16.2/dlc) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Rise: Race The Future (2018) [Multi] (1.2) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Carmageddon: Max Damage (2016) [En] (1.0.0.9902d) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ NASCAR 21: Ignition (2021) [Multi] (1.25/dlc) License CODEX [Champions Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Carmageddon 2: Carpocalypse Now (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +344,7 @@ FlatOut 2 (2006) [Multi] (1.2) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +370,7 @@ FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.18/dlc) Repack ivandubskoj
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Gravel (2018) [Multi] (1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +448,7 @@ OVERPASS (2020) [Ru/Multi] (13935/dlc) License CODEX [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Colin McRae: DiRT [Ru] (L) 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Burnin Rubber 5 HD (2018) [En] (1.0.1) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -500,7 +526,7 @@ RIDE (2015) [Ru/Multi] (1.000/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.0.7.0/dlc) Repack R.G. Origami [Gold P
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364) Repack MAXSEM
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Mantis Burn Racing (2016) [Ru/Multi] (20180222/dlc) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_774881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364/dlc) Repack Other s [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Need for Speed™, одна из ведущих игровых серий воз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D0CCF93FEA97D9B7D47E443957E780DD383058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213204   (772768) от 15.03.2018
-
-Ride 2 (2016) [Multi] (20170224/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ride 2 – гоночный симулятор, предлагающий прокатиться на более 200 мотоциклах самых известных брендов мира по различным трассам. Вас ждет 12 игровых режимов, среди которых обычный мотокросс, гонки по извилистым дорогам, гонки с прыжками, слалом между дорожными конусами и другие. Кроме этого в игре представлены широкие возможности кастомизации и различные социальные (   Читать дальше...   )Тип издания: RepackРазработчик: Milestone S.r.l.Жанр: Гонки, Симуляторы, Спортивные игрыЯзык озвучки: Английский, Бразильский (Португальский), Французский и другиеЯзык субтитров: Английский, Бразильский (Португальский), Французский и другиеЯзык интерфейса: Английский, Бразильский (Португальский), Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7AD7752678B4A5359CF93FD7E29E79C772EF066
 ```
 
 https://mybot314.ru/tekegram_catalog/

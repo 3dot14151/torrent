@@ -1,3 +1,60 @@
+###  Публикация: 1390926   (781788) от 18.06.2020
+
+History Channel: В изоляции. Один шанс на двоих / Alone (2017) HDTVRip (сезон 4, серии 01-11 из 11)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+«В изоляции» – это самый длительный и опасный эксперимент по выживанию человека в дикой природе. Один шанс на двоих. Семь пар.
+Экстремальное реалити-шоу «В изоляции: Один шанс на двоих» является продолжением популярного сериала «В изоляции» – самого дерзкого и продолжительного эксперимента по выживанию в дикой природе, показанного по телевидению.
+В борьбе за победу (   Читать дальше...   )Производство: США, LeftField Pictures, History ChannelЖанр: Документальный, познавательный, реалити-шоу, приключенияРежиссер: Валери ЛалeфПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FADA259D2DA0FF542A40C7BC8A086D10FC2485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201074   (781187) от 14.05.2010
+
+NG: Умные Крысы / Rat Genius  (2006) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Куда бы мы не шли - они там.. Питаются тем, что мы оставили.. Мы можем даже не замечать их.. Поначалу.
+Но они строят темные царства прямо у нас под ногами. Крысы... Привыкайте к ним, потому что они не собираются уходить!
+Крысы плодятся почти на всех континентах, проникая в наши дома, вызывая ночные кошмары.
+Так почему крыса лидер по выживанию, точно отлаженная машина по завоевыванию мира?!Жанр: Документальный, научно-популярныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 200561   (781104) от 14.05.2010
 
 Animal Planet & BBC: Муравьи - убийцы /  Killer Ants (2002) TVRip
@@ -6,7 +63,7 @@ Animal Planet & BBC: Муравьи - убийцы /  Killer Ants (2002) TVRip
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_781104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -37,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +120,7 @@ NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +146,7 @@ History Channel: Китай. Тайны Запретного города / Secr
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +172,7 @@ BBC: Как найти любовь по интернету / How to Find Love O
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +224,7 @@ History Channel: Убийца Зодиак: дело закрыто? / The Hunt 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +250,7 @@ NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -219,7 +276,7 @@ NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_779467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +302,7 @@ NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -271,7 +328,7 @@ NGW: Самый знаменитый в мире тигр / The world's most fam
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +354,7 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +380,7 @@ NGW: Пингвинопалуза / Penguin palooza (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -349,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -375,7 +432,7 @@ NGW: Ужас тигровой акулы / Tiger shark terror (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -401,7 +458,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -428,7 +485,7 @@ NGW: Год диких животных: Сибирь / Siberia's wild year (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -454,7 +511,7 @@ BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/10
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -480,7 +537,7 @@ Nat Geo Wild: Фантастические существа Мадагаскар
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -506,7 +563,7 @@ Discovery. Ледяное золото / Ice Cold Gold (2014) HDTVRip [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -532,7 +589,7 @@ BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +615,7 @@ Discovery: Курс выживания с Беаром Гриллсом / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +667,7 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,58 +678,6 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:003C4BCBB5B32172BC1FC8C7BC5ECE0050493668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211912   (776716) от 09.03.2018
-
-NG: Инстинкт выживания. Моря-убийцы / Primal survivor. Killer seas (2017) HDTVRip (Сезон 2, эпизод 5)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776716.jpg" />
-</div>
-
-
-###  Подробнее
-
-В бурлящих водах удаленного вулканического острова Понгсо Но Тао исследователь Хейзен Одел начинает свое уникальное путешествие по океану в маленькой традиционной деревянной лодочке под названием татала.Производство: США, National GeographicЖанр: Документальный, экстремальные путешествия, фаунаРежиссер: Алистэр СмитПеревод: Одноголосый закадровый, профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C28E2CCFED2BCA00A3FB1A9D82B1C5056D8F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212125   (776343) от 10.03.2018
-
-NG: Инстинкт выживания / Primal Survivor (2017) WEBRip (Сезон 2, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хейзен Одел, эксперт по выживанию в условиях дикой природы, в одиночку отправляется в самые опасные места планеты, чтобы проверить себя и испытать свои знания, умения и навыки. В этом ему помогут древние техники племён, живших в этих местах на протяжении тысяч лет.Производство: США, Icon Films for National Geographic ChannelsЖанр: Документальный, экстремальные путешествия, фаунаРежиссер: Энтони Баруэлл, Розалинд БэйнПеревод: Одноголосый закадровый, профессиональный (Велес)Продолжительность: 6x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA3EAD6DD13B4AEEBC96619178F24E6658B0A92
 ```
 
 https://mybot314.ru/tekegram_catalog/

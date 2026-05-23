@@ -1,3 +1,30 @@
+###  Публикация: 941346   (461583) от 27.09.2015
+
+Hyakka Ryouran: Samurai Bride / Буйство цветов (ТВ-2): Самурай невеста [2013, TV, 12 ep + 6 SP] BDRip Hi10p 720p Raw+Rus x2(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молодой воин Мунэакира вместе с подругой детства принцессой Сэн, бунтовщицей Юкимурой и таинственной Дзюбэй спасли Великую Японию от возрождения жуткого чернокнижника Сиро Амакусы. Помогли не сколько фамильные приемы школы Ягю, сколько способность парня своим поцелуем превращать любую девушку в грозного мастера-самурая. Увы, как часто бывает, всю славу присвоил себе (   Читать дальше...   )Жанр: приключения, боевые искусства, эттиРежиссер: Сидзуно КобунПеревод: Русские субтитры от YakuSub Studio
+Переводчики: @sh, Nika_Elrik, Редакторы: SapogaN, Sharingan, Оформление: KeeperRusСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов и 6 спэшлов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56CEDC6F402CF88434C902D01884301C88C2E1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941356   (461582) от 27.09.2015
 
 Grisaia no Kajitsu / The Fruit of Grisaia / Натюрморт в серых тонах [2014, TV, 13 ep + 6 SP] BDRip Hi10p 720p Raw+Rus x2(ext)
@@ -6,7 +33,7 @@ Grisaia no Kajitsu / The Fruit of Grisaia / Натюрморт в серых т�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +60,7 @@ Saenai Heroine no Sodatekata / Saekano: How to Raise a Boring Girlfriend / Ка�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +113,7 @@ Handa-kun / Ханда-кун [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +139,7 @@ Haikyuu!! / Волейбол!! [2014, TV, 25 ep] WEBRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +165,7 @@ Charlotte / Шарлотта [2015, TV, 13] HDTVRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +191,7 @@ Orange / Апельсин [2016, TV, 13 ep] HDTVRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +218,7 @@ Devil Survivor 2 The Animation / Выжившие среди демонов 2 [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +244,7 @@ Muv-Luv Alternative: Total Eclipse / Total Eclipse / Полное затмени
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +272,7 @@ Hitsugi no Chaika: Avenging Battle / Чайка - принцесса с гроб
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +299,7 @@ Megalo Box | Мегалобокс [2018, TV, 13 из 13] HDTVRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +325,7 @@ Kangoku Gakuen / Prison School / Школа строгого режима [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +351,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +377,7 @@ Arslan Senki / Сказания об Арслане [2015, TV-сериал, 25] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +430,7 @@ Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai / Скучный ми�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +456,7 @@ Shokugeki no Souma / Food Wars! Shokugeki no Soma / Кулинарные пое�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +482,7 @@ Mahouka Koukou no Rettousei / The Irregular at Magic High School / Бездар�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +508,7 @@ Berserk / Берсерк [TV-2] [2016, TV, 12] WEB-DL 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +534,7 @@ Outbreak Company / Мятежная компания [2013, TV, 12 ep] BDRip Hi1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +560,7 @@ M3: Sono Kuroki Hagane / M3: The Dark Metal / М3: Черный металл [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +586,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu / How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +613,7 @@ Mahou Tsukai no Yome: Hoshi Matsu Hito / The Ancient Magus' Bride: Those Awaitin
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +639,7 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,7 +673,7 @@ Nobunaga the Fool / Чудак Нобунага [2014, TV, 24 ep] WEBRip 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -657,32 +684,6 @@ Nobunaga the Fool / Чудак Нобунага [2014, TV, 24 ep] WEBRip 720p Ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C6CAA2A44ED0B541333AB0AD96D5E1D18870D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412070   (420005) от 28.09.2020
-
-Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пётр Гриль и время мудреца | Питер Грилл и время мудреца [2020, TV, 12 из 12] HDTVRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обаятельный и привлекательный Питер Грилл может претендовать на звание идеального мужчины. Он не только хорош собой и харизматичен, но ещё и многого сумел добиться. Его сила принесла ему огромную славу. После многочисленных соревнований, он был признан сильнейшим бойцом на материке. А ещё, у него есть невероятно привлекательная девушка, которую зовут Ливилия. Пара (   Читать дальше...   )Производство: Япония, WolfsbaneЖанр: Этти, комедия, фэнтези, приключения, мультсериалРежиссер: ТацумиЯзык озвучки: Русский (Berofu, Eva, MissClick, TimMachineСубтитры: НетПродолжительность: 12 х ~ 00:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF60CEEEB2EC43FE41E40A3BF68EFA1AB7BB5C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

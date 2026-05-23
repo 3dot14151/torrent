@@ -1,3 +1,58 @@
+###  Публикация: 1101033   (895581) от 06.02.2017
+
+Дискотека 80-х (полная версия) (2016) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+26 ноября в московском спорткомплексе «Олимпийский» состоялся 15-й международный музыкальный фестиваль «Авторадио» «Дискотека 80-х». Организаторы шоу подготовили уникальную программу с участием любимых исполнителей. На сцене такие звезды как С.С. Catch, Сандра, Dschinghis Khan, Ricchi e Poveri, Тото Кутуньо, Secret Service. Из отечественных - Олег Газманов, Юрий (   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: телеканал НТВАктеры: Zodiac, Sandra, Юрий Шатунов, Secret Service, Песняры и др.Продолжительность: 04:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748222BF8EF718FC78BA0454B6C1C65AE4556F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260070   (895124) от 03.09.2021
+
+"Артист". Юбилейный концерт Михаила Шуфутинского (2018) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Заслуженный артист Российской Федерации Михаил Шуфутинский в этом году отмечает 70 летний юбилей. В честь этого события он приглашает зрителей НТВ на свой творческий вечер. На сцене концертного зала Crocus City Hall артист исполнит свои главные хиты: «У вокзала», «Москва — Владивосток», «Сгорая плачут свечи», «Ты у меня единственная», «Обожаю», «Я просто медленно (   Читать дальше...   )01. Михаил Шуфутинский - У вокзала
+02. Михаил Шуфутинский - Москва-Владивосток
+03. Михаил Шуфутинский и Елена Воробей - Беспризорник
+04. Михаил Шуфутинский - Сгорая плачут свечи(   Читать дальше...   )Производство: Россия, НТВЖанр: ТВ-шоу, концертРежиссер: Георгий НовиковСубтитры: ОтсутствуютПродолжительность: 01:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41956E3E8DC332DDEEB2DBD1E32CFDC096E68091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100750   (894075) от 07.02.2017
 
 Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official) (2014) HDRip [H.264/1080p-LQ]
@@ -6,7 +61,7 @@ Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +116,7 @@ Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -145,7 +200,7 @@ Echoes - Barefoot To The Moon – An Acoustic Tribute To Pink Floyd (2015) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -174,7 +229,7 @@ Coldplay: Призрачные истории / Coldplay: Ghost Stories (2014) H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -203,7 +258,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -232,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -258,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -287,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -313,7 +368,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -343,7 +398,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +428,7 @@ Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +511,7 @@ Pink Floyd - The Later Years 1987-2019 (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +563,7 @@ Styx And The Contemporary Youth Orchestra: One With Everything (2006) [1080i] Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +647,7 @@ Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,7 +676,7 @@ Caro Emerald - Montreux Jazz Festival 2015 (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -651,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -665,61 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D50D1FABA40BDB6184EFDE448DA20A7B4F98C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301712   (859621) от 05.03.2011
-
-Kiss - Live At Rock Am Ring (2010) HDTV[1080p]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Day Delilah
-02. Cold Gin
-03. Let Me Go Rock 'N' Roll
-04. Firehouse(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:54:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376542   (858545) от 18.04.2020
-
-Квартирник НТВ у Маргулиса. Гарик Сукачёв (17.04.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858545.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса один из самых неординарных рок-музыкантов России Гарик Сукачёв. Он всегда шел своей дорогой, благодаря чему получил особую популярность у почитателей русского рока. Сукачёва либо любят, либо ненавидят, либо восхищаются им, либо критикуют, но его невозможно не заметить, а песню «Моя бабушка курит трубку» не слышал, пожалуй, только глухой. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78064896A1084A13D9AD0D66F6E39C57B8C05943
 ```
 
 https://mybot314.ru/tekegram_catalog/

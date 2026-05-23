@@ -1,3 +1,82 @@
+###  Публикация: 1367358   (915229) от 16.03.2020
+
+Sci-Fi Launcher Pro v2.8.8 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Sci-Fi Launcher Pro позволит вам почувствовать себя самым настоящим профессиональным хакером. Множество встроенных команд и настроек обеспечат вам доступ ко многим возможностям. Мгновенно найти нужное приложение или контакт телефона поможет тема Aris. Можно не только находить, но и удалять, перемещать, читать информацию о приложении, контакте, отключать поиск, добавлять (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.03.2020Разработчик: Aris Open UniverseПоддерживаемая ОС: Android 4.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496DA6108D9E8A5666CEE0A82A676B7324E4C9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367225   (915226) от 16.03.2020
+
+SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Данное приложение создано компанией Lenovo и впервые появилось на смартфонах и планшетах компании. Теперь оно доступно всем Android-пользователям. Благодаря SHAREit вы можете передавать любые файлы на устройства, где установлена такая же программа.
+Данное приложение выгодно отличает тот факт, что в подключении к Интернету оно не нуждается, а также может похвастаться (   Читать дальше...   )Тип издания: Mod (Вырезана реклама / Ad Free)Релиз состоялся: 10.03.2020Разработчик: SHAREit Technologies Co.Ltd ЕЩЁ!Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6198C619CE9AD5B4E7186195776D499A30B82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481902   (915018) от 22.08.2021
+
+ipTView v1.9.5 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+ipTView - простейший плеер для просмотра онлайн TV. Размер программы 85 килобайт, используются только встроенные возможности устройства, на котором установлена программа. Не требуется ни каких регистраций и других действий, для просмотра видеоконтента. Имеет возможность добавлять как свои плей-листы так и ссылки на каналы.Тип издания: Пиратка (Mod)Релиз состоялся: 18.08.2021Разработчик: GSeeMe.comПоддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9A8AEADF4B210FE89EC7187BE3957F99DB4B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367223   (914975) от 16.03.2020
 
 Hola Premium VPN Proxy v1.165.475 [Ru/En]
@@ -6,7 +85,7 @@ Hola Premium VPN Proxy v1.165.475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Car Scanner ELM OBD2 v1.50.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Piano Companion PRO: аккорды v1.8.3.2 + v6.29.315 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +215,7 @@ EUT VPN - Easy Unlimited Tunnelling v1.3.12 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +270,7 @@ YoWindow Weather 2.16.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +325,7 @@ Kitchen Book / Кухонная книга v26.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +351,7 @@ SD Card Test Pro 1.8.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +404,7 @@ Deezer 6.1.22.49 MOD [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +430,7 @@ VivaCut v2.5.4 [Ru/Multi] - видеоредактор (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +456,7 @@ Edge Screen S10 1.6.4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +482,7 @@ Group Ringtone 1.0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +508,7 @@ Easy Currency Converter Pro 3.5.9 [Rus/Multi] - Курс и конвертер �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +534,7 @@ XEFX v2.4.9 [Ru/Multi] - оживить фото и Живые обои и Фо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +560,7 @@ Blackmart 2020.1.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +586,7 @@ Ancleaner Pro, Android cleaner 3.30 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +612,7 @@ CountThings from Photos v3.23.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +668,7 @@ PortraitPro v15.0 [En] - редактор портретных фотограф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,87 +679,6 @@ PortraitPro позволяет любому с легкостью улучшит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7F8E70AD6B58939D89135590C86B207ED94431A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371149   (891663) от 30.03.2020
-
-Equalizer FX Pro 1.3.2 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любите слушать музыку? Так почему бы не насладиться ее отличным качеством? Приложение Equalizer FX Pro можно использовать для любого медиаплеера и даже на Вашем Android для регулирования громкости и улучшения качества звука, чтобы насладиться песнями различных исполнителей самых популярных жанров. Также оно визуализирует спектры и даёт возможность выбрать 1 из 6 (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.03.2020Разработчик: HowarJranПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A6C9AB3A07607D41CE0863829ACD26697CF7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463467   (887245) от 08.09.2021
-
-TextGrabber Офлайн Распознавание Текста + Перевод v2.7.5.9 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_887245.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY TextGrabber на лету оцифрует фрагменты печатного текста и превратит распознанный результат в действия: звоните, пишите, переводите на 100+ языков, просматривайте в интернете или на картах, редактируйте, озвучивайте и делитесь любым удобным способом.
-При наведении камеры на печатный текст приложение моментально захватывает информацию и распознает ее без подключения (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 8 сентября 2021 г.Разработчик: ABBYY MobileПоддерживаемая ОС: Android 4.4Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DF851C495180DAF7806DC9040706B7E953994B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480047   (887043) от 08.09.2021
-
-ESET Mobile Security & Antivirus v6.3.66.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887043.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET Mobile Security — это быстрое и мощное приложение для защиты вашего смартфона или планшета Android от вирусов и вредоносных программ.
-
-Присоединяйтесь к миллионам пользователей по всему миру и воспользуйтесь преимуществами РАСШИРЕННЫХ функций, к числу которых относятся понятный и простой в использовании интерфейс, проактивный модуль Антивор и функция защиты (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 8 сентября 2021 г.Разработчик: ESETПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8C558987A9B2124ED4CF9DABC77F3BF17C68FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1871222   (1069511) от 
+
+VA - The Sound Of Solomonari Festival 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Arhetip - Ocean Of Motion (Original Mix) 8:01
+02. Sun Project - Slomanco (Marco&Matt Version) 6:26
+03. Etnica - Impact (Original Mix) 8:48
+04. Artifact303 - Apex (Original Mix) 8:03(   Читать дальше...   )Жанр: Psy-Trance, Goa TranceПродолжительность: 02:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5062DB73B0B46A78D045F40EBE8165D00893A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447807   (1031348) от 15.02.2021
 
 VA - Mitote: The Dream Of Reality (Compiled by Agz) (2021) [FLAC|Lossless|tracks + .cue] <Psytrance>
@@ -7,7 +36,7 @@ VA - Mitote: The Dream Of Reality (Compiled by Agz) (2021) [FLAC|Lossless|tracks
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +65,7 @@ Tsirohm - Dream Conexion (2021) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -65,7 +94,7 @@ VA - Inner Frequencies Vol. 3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -94,7 +123,7 @@ Profondita - Eternal (2021) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -123,7 +152,7 @@ Man With No Name - Interstate Highway (2003) [FLAC|Lossless]<Psy-Trance, Goa Tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -152,7 +181,7 @@ Pleiadians - Pyramid (2019) [FLAC|Lossless|WEB-DL|tracks] <Psytrance, Goa Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -181,7 +210,7 @@ Andromeda - The Remixes (2005) Yellow Sunshine Explosion [FLAC|Lossless|tracks+.
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -210,7 +239,7 @@ Elysium - Live... & Beyond (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance, Psy
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -239,7 +268,7 @@ Median Project - Constellation (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +297,7 @@ VA - Spiral Lights - Compiled by DJane Gaby (2016) [FLAC|Lossless|tracks + .cue]
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +326,7 @@ Neelix - Let's Just Leave (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Prog
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +355,7 @@ Sixsense - Energy Source (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +384,7 @@ Atongmu - Voice of the Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Pro
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -384,7 +413,7 @@ Kode Six - Kold Fuzion (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -413,7 +442,7 @@ Sesto Sento - The Inner Light (2002) - (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -442,7 +471,7 @@ VA - Science. Art. Wonder. (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -471,7 +500,7 @@ Sesto Sento - Remixer (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +529,7 @@ Sesto Sento - The Bright Side (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +558,7 @@ X-Dream - X-Dream Remixed (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +587,7 @@ VA - Goa - The Power of Shiva, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -587,7 +616,7 @@ VA - Trance Legion Vol.1-4 (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_920576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +645,7 @@ VA - Goa Trance Vol.42 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -645,7 +674,7 @@ Tropical Bleyage - 4 You (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -674,7 +703,7 @@ Chris Oblivion - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -703,7 +732,7 @@ Infected Mushroom - Return to the Sauce (2017) [FLAC|Lossless|WEB|tracks|image] 
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -717,35 +746,6 @@ Infected Mushroom - Return to the Sauce (2017) [FLAC|Lossless|WEB|tracks|image] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A78693352DEFC8315365E1E37CC0260C3725825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991314   (907908) от 27.02.2016
-
-Coming Soon!!! - The Album (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance , Progressive Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anti Social Media (feat. Bryan Kearney) (7:20)
-02. Ghetto Rebels (6:50)
-03. Instant Rush (6:21)
-04. Prism (5:58)(   Читать дальше...   )Жанр: Psy-Trance , Progressive Psy-TranceПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F78BA946475AADA46C8C879A42E102B9EA2554
 ```
 
 https://mybot314.ru/tekegram_catalog/

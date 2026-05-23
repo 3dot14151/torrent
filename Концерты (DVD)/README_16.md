@@ -1,32 +1,3 @@
-###  Публикация: 327158   (47416) от 09.08.2024
-
-Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47416.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1980 году две мощные хард-рок-группы, Black Sabbath и Blue Oyster Cult, объединились для совместного концертного тура, в котором каждая из них предложила свой собственный, неповторимый подход к хэви-металу. Одна из дат этого тура была заснята на пленку, и фильм "Black & Blue: Black Sabbath и Blue Oyster Cult Live демонстрируют эти две группы-ветераны на (   Читать дальше...   )BLACK SABBATH
-01. War Pigs
-02. Neon Knights
-03. N.I.B.(   Читать дальше...   )Жанр: Heavy Metal, Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 728073   (47412) от 09.08.2024
 
 Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
@@ -35,7 +6,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +35,7 @@ AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +64,7 @@ AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +93,7 @@ Black Sabbath - The Last Supper '99  (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +122,7 @@ Beth Hart / Live at Paradiso (2005) DVD9 <Blues rock, Jazz fusion, Soul>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +180,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -239,7 +210,7 @@ Chickenfoot - Get Your Buzz On Live (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +239,7 @@ Def Leppard - Historia: In the Round In Your Face (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +265,7 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +291,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +322,7 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +374,7 @@ Jimmy Page & Robert Plant - No Quarter [Unledded] DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +403,7 @@ Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -464,7 +435,7 @@ THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -497,7 +468,7 @@ Vaya Con Dios - the ultimate collection (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +498,7 @@ Deep Purple - Perfect Strangers Live 1984 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +527,7 @@ Deep Purple: Live In California 1974 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +557,7 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +583,7 @@ Eurythmics Ultimate Collection  (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -640,7 +611,7 @@ Dire Straits - Rockpalast (1979) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -673,7 +644,7 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -699,7 +670,7 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -728,7 +699,7 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -739,6 +710,35 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DC4B5BCF539A178F5B5E7A1128C83B9FF065C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628391   (46652) от 16.08.2024
+
+Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это было время когда рок концерты были как визуальный стимулятор, поскольку были на слуху, время взрывающейся пиротехники, не покоряющихся тяжести гитаристов и певцов пропитывающих потом кровь и душу всего освещённого пятна сцены. В те дни одна группа правила как короли зрелищности и технически точной музыкальности, группа, которая полностью владеет сценой  - это (   Читать дальше...   )01. The More Things Change
+02. Push Push
+03. Sick For The Cure
+04. Make Your Own Way(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: 01:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6515EC24E1EEDCBED3BAE2B9BA1B20397CF55588
 ```
 
 https://mybot314.ru/tekegram_catalog/

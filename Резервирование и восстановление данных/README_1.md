@@ -1,3 +1,188 @@
+###  Публикация: 1858817   (1060708) от 12.03.2026
+
+RollBack Rx Professional 12.9 Build 2711739098 RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Rollback Rx Professional - программа предназначена для создания так называемых «снимков» системы, которые при необходимости могут использоваться для отката и восстановления случайно утерянных данных в случае поражения компьютера вирусом и изменений, которые внесли в систему недавно установленные программы и т. д. RollBack Rx восстанавливает не только файлы, но и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93500A7D5772149D72CB1DE5F2E548431FCCB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858592   (1060357) от 11.03.2026
+
+Magic Uneraser Home / Office / Unlimited Edition 7.2 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+Magic Uneraser от East Imperial Soft предлагает восстановление файлов всех типов, включая документы, фотографии, mp3 и ZIP файлы. Эти файлы могли быть утеряны при очищении корзины, удалении через командную строку, после форматирования или при удалении без использования корзины. В дополнение к жёстким дискам, программа для восстановления файлов поддерживает любые (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B46B8225791554C76EB25F1777E8B2DF46590B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857213   (1059597) от 04.03.2026
+
+Tenorshare 4DDiG 10.7.0.16 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Лучшая программа для восстановления данных
+
+Восстановление данных с жёсткого диска, карт памяти, SD-карт, USB-накопителей, из корзины и т.д.
+Простое восстановление всех удалённых или потерянных документов, фотографий, видео и многого другого.(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD2A594C142CD8F10F23E63CBFF9F741EEF36EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857379   (1059459) от 05.03.2026
+
+R-Studio Network 9.5 Build 191709 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139A4962CDDDEEF82B88D8E42B54A3D309D9D88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857108   (1059369) от 04.03.2026
+
+R-Studio Network / Technician 9.5 Build 191709 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+R-Studio - основанная на новейшей уникальной технологии анализа информации на носителе и обработки данных, R-STUDIO является наиболее исчерпывающим программным решением из доступных на рынке утилит восстановления для файловых систем NTFS, NTFS5, ReFS, FAT12/16/32, exFAT, HFS/HFS+ (Macintosh), Little and Big Endian variants of UFS1/UFS2 (FreeBSD/OpenBSD/NetBSD/Solaris) (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4EC754617A86300BDD4B446029E6602E975A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856981   (1059230) от 03.03.2026
+
+R-Studio Network 9.5 Build 191709 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99F49EBF7EACA49E3CD50A587D37F440F15D511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854981   (1057888) от 20.02.2026
+
+Hekasoft Backup & Restore 1.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Hekasoft Backup & Restore — это комплексное решение для управления данными и настройками браузера. Сохраните настройки своего любимого браузера в одном файле, который вы можете сохранить на внешнем диске или компакт-диске, и используйте его для восстановления профиля. Hekasoft Backup & Restore не ограничивает резервное копирование ваших программ, вы можете (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B836DF960600AE8462529D77E8347A07D4E33A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853887   (1056996) от 15.02.2026
 
 Coolmuster Android Assistant 6.0.112 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +191,7 @@ Coolmuster Android Assistant 6.0.112 RePack (& Portable) by elchupacabra [Multi/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +217,7 @@ R-Studio Network / Technician 9.5 Build 191686 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +243,7 @@ R-Studio Network 9.5 Build 191686 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +269,7 @@ R-Studio Network / Technician 9.5 Build 191683 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +295,7 @@ R-Studio Network 9.5 Build 191683 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +321,7 @@ MiniTool Power Data Recovery 12.8 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +347,7 @@ R-Studio Network 9.5 Build 191671 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +373,7 @@ R-Studio Network / Technician 9.5 Build 191671 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +399,7 @@ AOMEI Backupper Technician Plus 8.1.0 Full (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +425,7 @@ AOMEI Backupper Technician Plus 8.1.0 Lite (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +451,7 @@ AOMEI Backupper Technician Plus 8.1.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +477,7 @@ AOMEI Backupper Technician Plus 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +503,7 @@ DiskDigger 2.0.13.4139 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +529,7 @@ O&O DiskImage Professional 21.2.207 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +555,7 @@ R-Studio Network 9.5 Build 191648 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +581,7 @@ R-Studio Network 9.5 Build 191648 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +607,7 @@ R-Studio Network Technician 8.15 Build 180125  [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +633,7 @@ MiniTool Power Data Recovery Business Technician 9.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +659,7 @@ Active Disk Image Professional 10.0.3 [Multi/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,189 +670,6 @@ Active Disk Image - это программа для создания образ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C637E65EA2D99CBBE4A51025AA24ED60A2600E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619022   (1033071) от 15.03.2023
-
-Wondershare Recoverit Premium 11.0.0.13 [x64] [Multi/Ru]
-
->>След.
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Recoverit доверяют миллиарды пользователей. Программа поможет полностью восстановить удаленные и потерянные файлы, видео, фотографии, аудио, электронные письма в любой ситуации!
-Это лучшее профессиональное программное обеспечение для восстановления данных очень надежно и на 100% безопасно. С этим современным инструментом для восстановления данных вы сможете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F04B8F995437F0F985F0EF6A1728191B47269E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448195   (1031012) от 16.02.2021
-
-Acronis True Image 2020 Build 38530 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E2370DAB6B84CA90ECB459688BFA46FF952598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448303   (1030822) от 17.02.2021
-
-Resilio Sync v 2.7.2.1375 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resilio Sync - это бесплатное приложение для синхронизации и передачи любых данных. С его помощью можно делать резервные копии фото и видео со смартфона на пк , передавать файлы любого размера по протоколу BitTorrent между произвольными устройствами , так-же отправлять зашифрованную папку . Поддерживается компанией Resilio, Inc., выделенной из BitTorrent, Inc.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3341E4DBA087CB9F0ECA36BA3F56E7DA93AECD55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448728   (1030365) от 19.02.2021
-
-CardRecovery 6.30 Build 0216 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030365.jpg" />
-</div>
-
-
-###  Подробнее
-
-CardRecovery - программа для восстановления фотографий с карт памяти цифровых камер или телефонов. Может эффективно восстанавливать утерянные, удаленные, поврежденные или отформатированные фотографии и видеофайлы с различных карт памяти. Поддерживаются практически все типы карт памяти, включая SD Card, MicroSD, SDHC, CF (Compact Flash) Card, xD Picture Card, Memory (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C65E9E4A3AC812D16AAE701BB569AD9672F674E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449208   (1029865) от 21.02.2021
-
-R-Drive Image 6.3 Build 6309 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029865.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Drive Image - отличный инструмент для создания файлов образа диска и резервного копирования данных. Файл образа диска, содержащий точную, "байт в байт" копию жесткого диска, раздела или логического диска, может быть создан без перезагрузки компьютера и с различным уровнем сжатия данных. Созданный образ диска может быть сохранен на носителях различного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD337F302774812AFBA0ED306E93774C6C75CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450273   (1029127) от 25.02.2021
-
-R-Drive Image 6.3 Build 6309 + BootCD [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029127.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Drive Image восстанавливает образ диска на оригинальный диск, на другой раздел или на свободное неформатированное пространство диска без перезагрузки системы. Для восстановления системного или заблокированного раздела R-Drive Image переключается в псевдографический режим напрямую из Windows или запускается загрузочная версия программы с CD или комплекта дискет. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B45108369219C9A4BE7D127B63DEAD71C419531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450579   (1028801) от 27.02.2021
-
-Transcend RecoveRx 4.2 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Transcend RecoveRx имеет простой и удобный для пользователя интерфейс, что позволяет проводить глубокий поиск удаленных файлов, которые могут быть восстановлены: цифровые фото, документы, аудио- и видеофайлы. RecoveRx поддерживает все типы устройств хранения, включая карты памяти, USB флэш-накопители, внешние жесткие диски и твердотельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1F83A2380AE812AD830F848186CE79F6AD8ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

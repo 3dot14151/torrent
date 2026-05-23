@@ -1,3 +1,148 @@
+###  Публикация: 1577142   (200540) от 30.03.2023
+
+VA - TOP Non-Stop 2010-2019 - Lounge & Chillout. Volume 2 (2022) [MP3|192-320 Kbps] <Chillout, Deep House, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Stephen Webster - One Day the Ocean Swept Me Away (2013) (5:36)
+02. Cassius - Ibifornia (Noche De Solaris mix, 2017) (11:26)
+03. Sounds Like Water - in Cuba (2010) (4:33)
+04. Rose Quartz - Toro y Moi (2013) (2:55)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92499B6CD8CCBFF187788B03D0CDB55762DAEF62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408688   (200163) от 07.04.2023
+
+VA - TOP Non-Stop 2010-2019 - Dance House Music (2020) [MP3|192-320 Kbps] <Funky House, Techno House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. David Penn & KPD - Disc-Jockey (2018) (4:22)
+02. The New Elastics - It's Just A Word (Kellerkind remix, 2012) (5:28)
+03. David Penn - That Vibe (2017) (4:35)
+04. Cesar Merveille & Pablo Cahn-Speyer - Tribute (2010) (8:14)(   Читать дальше...   )Жанр: Funky House, Techno House, Progressive HouseПродолжительность: 07:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7BE9E6F0FB7300333E784B3EB8887BDA727603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627030   (199705) от 17.04.2023
+
+VA - Крутые пушки Весна 2023 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. P.Diddy Feat Keyshia Cole - Last Night (Max Flame & Dacks Remix) (2:52)
+02. Wongo - - The Preacher feat. Chuck Roberts (Sammy Porter Extended Remix) (2:59)
+03. Floral - Need To Feel Loved (MYRON x ZAN Remix) Radio Edit (3:48)
+04. Eminem Feat Nate Dogg - Shake That (Max Flame & Dacks Radio Remix) (4:04)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 04:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B91D3700381007CED9EBA4ABFC6B816ED449ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626888   (199666) от 16.04.2023
+
+Pawel-Wisniewski - Compilation (2023) [MP3|224 Kbps] <Electronic, Instrumental, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium • Space Music
+02. Mood • Romantic Music
+03. Movement • Space Music
+04. Aspiration • Romantic Music(   Читать дальше...   )Жанр: Electronic, Instrumental, RelaxПродолжительность: 07:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B44B96A6F0D0372E9CE12F444316D2374CA1A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628311   (199420) от 22.04.2023
+
+VA - From The Depths (2023) [MP3|320 Kbps] <Electronic, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+001. Shallow Excavation - The Gathering
+002. Bright Visions - Rhythm Of Your Heart
+003. Adam Jay - The Years We Lost
+004. Warface - Ooh Lala(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 11:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEDB5F5976678E0B653D998AD71A8811C057249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628315   (199416) от 22.04.2023
 
 VA - Friday Reloaded Vol.01 (2023) [MP3|320 Kbps] <Dance, Club, House>
@@ -6,7 +151,7 @@ VA - Friday Reloaded Vol.01 (2023) [MP3|320 Kbps] <Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Deep House Pool Party (2023) [MP3|320 Kbps] <Deep-House, Electro, Tech-Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Night Rider 6 (2023) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Deep Night Deep House 5 (2023) [MP3|320 Kbps] <Deep House, House, G-House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Techno Bunker 3 (2023) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Spring Light Deep 2023 [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Record Super Chart 13.05.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - The Inspiring Chill (2023) [MP3|320 Kbps] <Chillout, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Synthwave NME Mix (2023) [MP3|320 Kbps] <Synthwave, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - Secrets Of Your Heart: Weekend Set (2023) [MP3|320 Kbps] <Vocal-Trance, Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - A State Of Trance 2023 (Mixed by Armin van Buuren) (2023) [MP3|320 Kbps] <T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - The Only Way (Trance 2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Trance Colors 3 (2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - The Galactic Symphony (2023) [MP3|320 Kbps] <Synthspace, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - Return Of The Future (2023) [MP3|320 Kbps] <Future, Progressive House, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 3 (2023) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Дискотека 2023 Deep House - The Best Vol. 9 от NNNB [MP3|320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -499,7 +644,7 @@ Jumanov - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Trance In Motion Vol.364 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Oriental Deep 3 (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - Car Music Mix 2 (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -600,151 +745,6 @@ VA - Car Music Mix 2 (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6878BB1F1E91653ABEF6B5B11B62F0D2FAFA012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588300   (191558) от 04.11.2022
-
-VA - Oriental Deep 2 (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Keyrouz - Akhedni Maak (2:35)
-02. Eljoee - Bent Sultan (3:57)
-03. Otnicka - Babel (3:22)
-04. Anthony Keyrouz - Mohicans - Radio Edit (3:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5939788D3E0DA6C95F28413E45E49B9BF3607C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588947   (190780) от 07.11.2022
-
-VA - Record Super Chart 05.11.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza & James Carter feat. Elley Duhe & Fast Boy - Bad Memories (2:28)
-02. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)
-03. Dj Quba, Sandra K - Eins Zwei Polizei (2:14)
-04. Markul & Тося Чайкина - Стрелы (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3420F018BDE45A0CF321329681178E886991944A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589411   (190149) от 09.11.2022
-
-VA - Deep House, Baby 5 (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Ellie Lawson - Wide Awake (RoelBeat Remix) (3:38)
-02. Costa Mee - Remembering Your Touch (Housenick Remix) (4:16)
-03. Katie Melua - Wonderful Life (Scanna Remix) (2:49)
-04. NekliFF, Mary S.K. - Parallel Life (Original Mix) (4:34)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B72ABB514BD57519779215AD1F4B3D8BD2A8362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589426   (189686) от 11.11.2022
-
-Besso - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mia
-02. First Fusion
-03. The Past
-04. Harsha(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 01:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1631AF8B9CD991086B1BF1A81D72AA324D86500F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446167   (189563) от 11.11.2022
-
-VA - Workout Motivation, Trance Edition (2019-2021) Mixed by Sergey Sychev [MP3|320 Kbps] <Trance ,Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия миксов1. Ronski Speed & Jennifer Rene - Into the Sky
-2. RAM & Talla 2XLC - Shine (feat. Natalie Gioia)
-3. Alexander Popov & Attil
-4. Roman Messer & Twin View With Christian Burns - Dancing In The Dark (Alex M.O.R.)(   Читать дальше...   )Жанр: Trance ,Vocal TranceПродолжительность: 17:10:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB707D8BF8E1540F1B96251072DC768C33A9C94A
 ```
 
 https://mybot314.ru/tekegram_catalog/

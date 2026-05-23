@@ -1,3 +1,29 @@
+###  Публикация: 1714970   (60061) от 11.04.2024
+
+South Park: Snow Day! (2024) [Multi] (70374/dlc) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+South Park: Snow Day! перенесет вас в хаотичный, заснеженный мир Южного парка в роли Нового ребенка. Это снежный день, самый волшебный день для любого ребенка, но снежная буря стала причиной не только закрытия школы. Объединитесь со знакомыми лицами Картмана, Стэна, Кайла и Кенни в совершенно новом, полностью 3D-приключении.Тип издания: RepackРазработчик: QuestionЖанр: Экшены, ПриключенияЯзык озвучки: Английский, Французский, Немецкий, ПортугальскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D1E304B1FEB423BA3D5E4B47954F916604257A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716558   (59537) от 16.04.2024
 
 Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
@@ -6,7 +32,7 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Goons: Legends & Mayhem (2024) [Multi] (1.0.0.7) Repack FitGirl [Digital Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Battle Planet - Judgement Day (2019) [Multi] (1.7.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Omega Mouse Zero (2024) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ UFO Robot Grendizer - The Feast of the Wolves (2023) [Ru/Multi] (27.0.12191/dlc)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Wild Card Football (2023) [Multi] (20240423/dlc) Scene Tenoke [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.0.2/dlc) Repack FitGirl [Deluxe Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Ira (2023) [Multi] (1.0.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Gift (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Ruindog (2024) [Ru/Multi] (1.0.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ We Need To Go Deeper (2019) [En] (1.6.5.g) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Tchia (2024) [Ru/Multi] (2.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Besiege (2020) [Ru/Multi] (1.50/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Besiege - это основанная на физике игра, в котор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B977AF05AFA049E28F3CFD46CC87AD6EE7730C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725606   (55435) от 25.05.2024
-
-RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Scene Rune
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55435.jpg" />
-</div>
-
-
-###  Подробнее
-
-RKGK переносит игроков в мрачный нео-бруталистский мегаполис Кэп-Сити, находящийся под гнётом зловещей корпорации B Corp. Главная героиня Вал вместе со своей командой RKGK ставит перед собой цель освободить город, используя граффити как мощное средство сопротивления и самовыражения. Геймплей сочетает в себе элементы экшена, паркура и художественного творчества.Тип издания: SceneРазработчик: Wabisabi GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Испанский, ЯпонскийЯзык субтитров: Английский, Испанский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Испанский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBE3876316C236AFED9EBC471B1CEBAA20C4530
 ```
 
 https://mybot314.ru/tekegram_catalog/

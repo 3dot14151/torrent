@@ -1,3 +1,315 @@
+###  Публикация: 390991   (1023359) от 31.03.2021
+
+Digital Juice - Motion Designer's Toolkit 3 [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Motion Designer's Toolkit 3 - ультимативная библиотека настраиваемых анимированных элементов. Опираясь на беспрецедентный уровень настройки анимации в предшествующих сборниках MDT1 и MDT2, компания Digital Juice выкладывает еще одну революционную High-End коллекцию готовой к использованию анимации, в которой возможность настройки переведена на абсолютно новый уровень. (   Читать дальше...   )Формат: ISOРазрешение файлов: 2000x2000, 1920 x 1080, 1280 x 720, 720x480, 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275F7299E583E9FE52780DA27F9E4AF139E1A4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390640   (1023357) от 31.03.2021
+
+Digital Juice - Motion Designer's Toolkit 1 [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Motion Designer's Toolkit 1 - ультимативная библиотека настраиваемых анимированных элементов, содержит 1755 готовых к использованию Quicktime-анимаций высокого разрешения, которые могут быть использованы непосредственно с DVD, установлены непосредственно на жестком диске или настроены бесплатной утилитой Juicer. Этот пакет также включает в себя оригинальные файлы (   Читать дальше...   )Формат: ISOРазрешение файлов: 2000x2000, 1920 x 1080, 1280 x 720, 720x480, 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937D6051E1CCBE11563C1CE3A9351FE534BDB59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459222   (1023262) от 01.04.2021
+
+Звуковые библиотеки - Orange Tree Samples - The Famous E Electric Piano [Kontakt, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Для аренды инструментов в Лидсе в Северном Голливуде это был простой способ каталогизировать инструмент, напечатав буквы по трафарету на корпусе электрического пианино.В частности, продюсеры и сессионные музыканты заметили одно из электропианино, на котором есть буква «E». Вскоре "E" стала одним из самых популярных электрических пианино на студийной сцене (   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKI, NKC, NKR, NKX, NKM, NKA; OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A958B12E7270B2A4F1B4E777A4E62257DD60E534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390983   (1023186) от 01.04.2021
+
+Digital Juice - Motion Designer's Toolkit 2 [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Motion Designer's Toolkit 2 - ультимативная библиотека настраиваемых анимированных элементов. Опираясь на беспрецедентный уровень настройки анимации в предшествующем сборнике MDT1, компания Digital Juice выкладывает еще одну революционную High-End коллекцию готовой к использованию анимации, в которой возможность настройки переведена на абсолютно новый уровень. Motion (   Читать дальше...   )Формат: ISOРазрешение файлов: 2000x2000, 1920 x 1080, 1280 x 720, 720x480, 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F345BB0686D040716DDA8798FB552F32F6885F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 391022   (1023024) от 02.04.2021
+
+Digital Juice - Motion Designer's Toolkit 5 [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Motion Designer's Toolkit 5 - беспрецедентный пакет динамических анимированных элементов, в создании которого принимала участие команда из более чем 40 различных художников из самых разнообразных областей искусства - профи векторного дизайна, традиционные художники, а также самоотверженный экипаж аниматоров. Motion Designer's Toolkit 5 предоставляет вам 584 готовых (   Читать дальше...   )Формат: ISOРазрешение файлов: 2000x2000, 1920 x 1080, 1280 x 720, 720x480, 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464D6E83554E1379BB78FE5B8DA753D0680E3138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 391034   (1023021) от 02.04.2021
+
+Digital Juice - Motion Designer's Toolkit 6 [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Motion Designer's Toolkit 6 - беспрецедентный пакет динамических анимированных элементов, в создании которого принимала участие команда из более чем 40 различных художников из самых разнообразных областей искусства - профи векторного дизайна, традиционные художники, а также самоотверженный экипаж аниматоров. Motion Designer's Toolkit 6 — новая коллекция динамических (   Читать дальше...   )Формат: ISOРазрешение файлов: 2000x2000, 1920 x 1080, 1280 x 720, 720x480, 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE37A91891C4A372F39604A79914B0AE5F7801C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 391045   (1023019) от 02.04.2021
+
+Digital Juice - Motion Designer's Toolkit 7 [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Motion Designer's Toolkit 7 - беспрецедентный пакет динамических анимированных элементов, в создании которого принимала участие команда из более чем 40 различных художников из самых разнообразных областей искусства - профи векторного дизайна, традиционные художники, а также самоотверженный экипаж аниматоров. Motion Designer's Toolkit 7 — новая коллекция динамических (   Читать дальше...   )Формат: ISOРазрешение файлов: 2000x2000, 1920 x 1080, 1280 x 720, 720x480, 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B1B707CDEEEE81E45299FEF9A1733B36B944D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459800   (1022929) от 03.04.2021
+
+Экшены - GraphicRiver - Press Action for Photoshop CS6+ - 30367561 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Press - простое в использовании действие фотошоп с эффектом типографики. Работает с любыми изображениями. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346AFA252BCCBDD8AD2402E0F5801FF59113E74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340956   (1022838) от 03.04.2021
+
+Digital Juice - Compositor's Toolkit Visual FX Library II [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Compositor's Toolkit Visual FX Library 2 (CTK2) - новая библиотека визуальных-эффектов, которая содержит 13 совершенно новых категорий, с более чем 275 элементами в общей сложности, и имеет больше визуальных эффектов, чем предшествующий CTK1. Все видео-клипы записаны с высокой скоростью и сверхвысоким разрешением. Использование высокоскоростных камер дало возможность (   Читать дальше...   )Формат: ISOРазрешение файлов: 2048х1536
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FEED3B2DD0E1A5497F86398F1D78655B8EB23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477140   (1022837) от 03.04.2021
+
+Digital Juice - Compositor's Toolkit Visual FX Library I [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Набор высококачественных футажей для видео композитинга. С помощью программы Juicer 3.89b Build 248Формат: ISOРазрешение файлов: 2048х1536
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6687FE5FB0D73195CC404095B762CACBDCB5485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332483   (1022833) от 03.04.2021
+
+Digital Juice - Compositor's Toolkit Visual FX Library III [ISO]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Compositor's Toolkit Visual FX Library 3 (CTK3) - Долгожданный третий том, известной библиотеки превосходных высококачественных визуальных эффектов. На этот раз сделан акцент на многие свойства движения жидкости. Включая более чем 325 видео-клипов высокого разрешения, заснятых на сверхвысокой скорости, COMPOSITOR'S TOOLKIT 3 (CTK3) имеет больше визуальных эффектов, (   Читать дальше...   )Формат: ISOРазрешение файлов: 2048х1536
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC397C38E4C9DCF3F0A8F2730380828BA6B4CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460116   (1022728) от 04.04.2021
+
+Экшены - GraphicRiver - Vintage - Watercolor CS4+ Photoshop Action - 24308575 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Vintage - Watercolor - экшен фотошоп превратит ваши изображения в красочное художественное полотно акварели в винтажном стиле. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A350774ED6D3BAB4393B0CFF5A8480D7329A9CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561576   (1022152) от 07.04.2021
 
 Digital Juice - Photo Knockouts [ISO]
@@ -6,7 +318,7 @@ Digital Juice - Photo Knockouts [ISO]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +422,7 @@ Digital Juice - Motion Design Elements:  Flower Power (DJPROJECTS)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +449,7 @@ Digital Juice - BackTraxx 1 Music Library [ISO]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +475,7 @@ Digital Juice - BackTraxx 2 Music Library [ISO]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,320 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6407B7CF6356F309C723262596EB97EB464DD4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461995   (1021418) от 12.04.2021
-
-Звуковые библиотеки - Osmosis - Osmosis Vows Music Pack [WAV, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021418.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: - "Музыка, которая сделает ваши свадебные фильмы еще ярче. Лучший музыкальный пакет совершенно настраиваемой фоновой музыки для выражений ваших чувств. Этот музыкальный пакет создан, чтобы придать вашим произведениям больше глубины и эмоций с бесконечной гибкостью. Этот высококачественный музыкальный пакет тщательно разработан для авторов, которые (   Читать дальше...   )Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4380703F175153EC37A42086B688F571AA9C5C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461978   (1021374) от 12.04.2021
-
-Звуковые библиотеки - Professional Songs - 6000+ Cinematic SFX Ultimate Bundle Pack [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021374.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: - "Ускорьте свой рабочий процесс, и добавьте глубокие эмоции и текстуры в свой следующий проект с помощью вдохновляющих звуковых эффектов, фонов и атмосферных ландшафтов, созданных профессиональными звукорежиссерами, и отмеченных наградами. Этот звуковой пакет поможет вывести ваши видео на новый уровень. Все звуки имеют высокое качество и были тщательно (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D78A70E815F032DFF9F8DD08A4A9CB3E9E0940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462631   (1020998) от 15.04.2021
-
-Растровый клипарт - PixelSquid - Camping Collection [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Отдых для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67BF0047213250D8A95DD3202D05A142D45B1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462634   (1020996) от 15.04.2021
-
-Растровый клипарт - PixelSquid - Classic Apple Collection [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Apple для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E6B2A7516FC83C9C11C632A79A2595907EE1EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462627   (1020991) от 15.04.2021
-
-Растровый клипарт - PixelSquid - Cafe Collection [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Кафе для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921621B131746546DE1E68A9F235ACE800D8B780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462673   (1020990) от 15.04.2021
-
-Растровый клипарт - PixelSquid - Classic Toys Collection [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Игрушки для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC4C218F2BC74CCB9E7176C081A2998F709C50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462786   (1020785) от 16.04.2021
-
-Растровый клипарт - PixelSquid - Color Splash Collection [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Color Splash для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496E89D98427AACD7FE8278665FB51A5E5D8AE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462794   (1020778) от 16.04.2021
-
-Шаблоны - Creative Market - iPhone 12 Glossy Snap Case 1 Mockup - 5830160 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон глянцевого чехла для iPhone 12 - многослойные редактируемые файлы, подготовленные для демонстрации вашего индивидуального дизайна путем редактирования смарт-объектов и цветовых слоев.Формат: PSDРазрешение файлов: 3000x2000-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1F86838C9C8F04100C36600B528BB96D178ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462914   (1020774) от 16.04.2021
-
-Дополнения - InkyDeals - Ultimate Photography Bundle [LRTEMPLATE, ATN, PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020774.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ultimate Photography Bundle» - огромный, стильный пакет для обработки Ваших фотографий.
-Многие оценят по достоинству.Формат: LRTEMPLATE, ATN, PSD, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A5D00117D534B55B40DB337E7B3EDBCD1E9768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462823   (1020731) от 16.04.2021
-
-Пресеты - Greyscalegorilla - Gorilla Grade LUTs [3DL, CUBE, LOOK]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020731.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Gorilla Grade LUTs» - это комплексный профессиональный инструмент для создания высококачественной цветокоррекции Вашего материала. Получите невероятные результаты с данным пакетом постобработки. Неограниченные возможности для создания промо, интро, социальных медиа видео, рекламы, моды, трансляции и редактирования работ любой сложности...
-Многие оценят по достоинству.Формат: 3DL, CUBE, LOOK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9E74A740A561A4D8296A6AD600C0DA4D7B0462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463341   (1020406) от 18.04.2021
-
-Сборник - MightyDeals - 5,000 High-Quality Graphic Resources [AI, SVG, PNG, EPS, JPG, OTF, TTF, PSD, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перестаньте тратить время и энергию на поиски разнообразных дизайнерских ресурсов. Вместо этого получите все, что вам нужно для этого идеального проекта, прямо здесь. Вы видите 5000 графических элементов, включая иллюстрации, логотип, бесшовные узоры, акварельные текстуры, фоны, значки, шрифты, границы, цветы и многое другое. Когда у вас под рукой так много ресурсов, (   Читать дальше...   )Формат: AI, SVG, PNG, EPS, JPG, OTF, TTF, PSD, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1552242EEC475C0A0636162CA279D9341E989065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463339   (1020402) от 18.04.2021
-
-Сборник - MightyDeals - 3,000 Artistic Vectors, Watercolors, Flower Decorations & More [AI, EPS, PSD, PAT, JPG, PNG, SVG, ASL, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освободите место в своем художественном ящике для инструментов, потому что там будет действительно тесно! Этот удивительный мега-упакованный набор Artistic Bundle набит более чем 3000 прекрасных дизайнерских материалов. Вы найдете множество нарисованных вручную векторных иллюстраций, бесшовные узоры, акварели, кисти, символы, стили слоев и многое другое.Формат: AI, EPS, PSD, PAT, JPG, PNG, SVG, ASL, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F77D887320D15CDBABD3727818C043617E1407D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

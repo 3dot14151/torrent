@@ -1,3 +1,316 @@
+###  Публикация: 1500732   (840832) от 06.10.2021
+
+Сборник - GraphicRiver, Envato Elements - Сборник шаблонов от Envato Elements [PSD, IDML, INDD, INX, AI, EPS, INDT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Большой сборник шаблонов от Envato Elements и GraphicRiver.Формат: PSD, IDML, INDD, INX, AI, EPS, INDT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E1D07A5D6DCAC546A62A74D4464F1C2CCBD6FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500350   (840828) от 06.10.2021
+
+Кисти - ArtStation - 2100 + Custom shapes + 1000+ Cheat brushes Mega pack for Concept art [ABR, CSH]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+хочу представить вам мой новый продукт 1500+ нестандартных форм Kitbash, над которым я работал некоторое время. особенно полезен для концепт-арта, набросков, иллюстраций. Это один из самых больших пакетов (наборов) профессиональных нестандартных форм на рынке.Формат: ABR, CSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2282C88FF7C1F951C5D2CDCF80542DF10E629C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379419   (840751) от 28.04.2020
+
+Звуковые библиотеки - Fluffy Audio - Scoring Piano - RePack Андрей650071 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Scoring Piano - это пианино Steinway Model B, созданное в великолепной студии недалеко от Флоренции, ТосканаФормат: Kontakt: NICNT, NKI, NKC, NKR, NCW
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E72DE7F77B76F8C8C444930D15EDC8EDC3521AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379283   (840682) от 28.04.2020
+
+Фоны - Creative Fabrica - Big Bundle Graphics [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Графический дизайн Big Bundle 55 с фонами, акварельными мазками, цветами и листьями.Формат: JPG, PNGРазрешение файлов: 639x796-4378x4257
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DAD10B3B601D0AF56368853B7230D5FEB77E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772504   (840060) от 31.03.2014
+
+Векторный клипарт - Индейцы / Native American [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Индейцы
+для Вождей  :yes:Формат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D96CD3894D75185FB1EBBE320633989E328F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500868   (839577) от 07.10.2021
+
+Шаблоны - Creative Market - Wrapping Paper Wooden Board Mockup - 6389448 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Профессиональные и простые в использовании макеты упаковки для фотошопа и высококачественными продуктами Noissue.Формат: PSDРазрешение файлов: 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3A2753BF921A70BED0FE86D14844F345AC02A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500865   (839476) от 07.10.2021
+
+Шаблоны - Creative Market - Noissue Shipping Labels Mockup Set - 6451656 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Профессиональные и простые в использовании макеты упаковки для фотошопа и высококачественными продуктами Noissue.Формат: PSDРазрешение файлов: 2000x3000-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20CD449FE367E6F8CA0C448E57C44FFA2E40326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500975   (839465) от 07.10.2021
+
+3D модели - 3ddd - Городской Автобус [Corona|V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3d модель автобуса марки KamazФормат: Corona|V-Ray|*.max, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2C5EA0C0D17E572E2B85F020824A60A7539DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500869   (839354) от 07.10.2021
+
+Шаблоны - Creative Market - Sticker Mockup Bundle Logo Branding - 5142909 [PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом наборе 140 макетов стикеров.Формат: PSD, JPGРазрешение файлов: 4500x3500-6048x4032
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B718E5B8210DE34072C2A170A9F982F8750B1F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500875   (839350) от 07.10.2021
+
+Пресеты - Creative Market - THE BUNDLE 100 - Lightroom Presets - 6133635 [DNG, LRTEMPLATE, XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Редактируйте свои изображения как профессионал на мобильном или настольном устройстве одним щелчком мыши, загрузите бесплатное приложение Lightroom / Adobe Lightroom и наблюдайте, как волшебство наших предустановок меняет ваши изображения!.Формат: DNG, LRTEMPLATE, XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D70531EAD2E7247DFB0FCA2D426EDE487FD53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004125   (839284) от 05.04.2016
+
+Скрипты - miauu's Script Pack vol.2 ver.2.9 [MZP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+miauu's Script Pack vol.2 - это набор скриптов, которые помогут решить некоторые рутиные задачи, при использовании 3ds max.Формат: MZP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7322A26DA2DAB7512DD1C959E977BC201778EEA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379640   (839075) от 29.04.2020
+
+Шаблоны - NNM-Club - CD шаблоны от Snake1965 №2 - 1379640 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На CD можно наносить свои изображения, тексты и далее по списку. CD можно использовать как в боксе, так и отдельно.Формат: PSDРазрешение файлов: 2800x2800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127F5B777F219C4EDBB3D4214A8B292DEE686482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379654   (838927) от 29.04.2020
 
 Кисти - Creative Market - 150 Weather Photoshop Brushes - 3092149 [ABR]
@@ -6,7 +319,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +531,7 @@ Blue Fox Music [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -368,324 +681,6 @@ Hand Drawn Elements Pack - В этом пакете вы можете найти
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4394BAAA72FC2F5DB1AE45FCBFC70D32C38B9BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028693   (834657) от 13.03.2017
-
-Шрифты - Astakhov Braille alphabet / Шрифт Брайля TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифты в стиле "Шрифт Брайля" (Braille alphabet, шрифт для слепых и людей с ослабленным зрением) подходит для изучения и для 3D-печати на 3D-принтере.
-Количество / Штук: 4
-Разработчик: D. Astakhov
-Поддержка кириллицы: Есть (Русская, Белорусская).Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BD386BC720D9BB4D8B9F6598232E206A206CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113994   (834651) от 13.03.2017
-
-Звуковые библиотеки - Touch Loops - Dark Techno [WAV, MIDI]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Techno (NEW) - это монстр среди сэмплов такого типа. Сравнивая с пакетами в стиле "техно" таких легендарных авторов, как Leon Vincent, Andy Stott, John Talabot, Nicolas Jaar and Holy Other, эта коллекция предлагает непревзойденную интенсивность, мелодичность и жесткость. Этот пакет музыкальных образцов богат жуткими, рычащими, окружающими монотонными (   Читать дальше...   )Формат: WAV, MIDI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00F6CAD8CAB49D0A74C82DDF440F29C8D6C5D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380186   (834646) от 02.05.2020
-
-Стили - GraphicRiver - Metal Abstract Text Styles V2 - 24186687 [PSD, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834646.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 металлических текстовых стилей.Формат: PSD, ASLРазрешение файлов: 590x2322
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA0E01F6D51F608B01CD81B716547C14CC39966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004605   (834642) от 13.03.2017
-
-Шрифты - Monster High CYR-ENG / Школа монстров [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт в стиле "Monster High" (Монстер Хай - Школа монстров).
-Количество: 2шт.
-Разработчик: мой хороший знакомый, пожелавший остаться инкогнито (вот такой он скромный)
-Поддержка кириллицы: Есть (Русская, Украинская, Белорусская)Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A3D1D751659DF66FF50D8FF9B2BF53D7749DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380384   (834637) от 02.05.2020
-
-3D модели - Laubwerk - Plants Kit 1 [EXE, LBW]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выбор небольших и средних деревьев для декоративного использования, парков и улиц, включая потрясающий Kanzan с розовым цветением и впечатляюще высокий и тонкий кипарисовый дуб.Формат: EXE, LBW
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86420AEEAAA0F9D70753DD2125E854955AEE4B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773186   (834422) от 03.04.2014
-
-Векторный клипарт - Теннис / Tennis [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теннис / TennisФормат: EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF8A75E5DAAFB94088A5F54500767953E55C212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380415   (834397) от 02.05.2020
-
-3D модели - Unreal Engine - Megascans - Meadow Pack [UASSET, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет предоставляет 3 варианта различной плотности для каждого актива, от LOD до высокой детализации, подходящей для Archviz в реальном времени до рекламных щитов, UV-карт освещения и материалов, настроенных на ветер. У вас будет все, что вам нужно для создания плотных и правдоподобных луговых сцен, готовых для разброса с помощью рисовальщика листвы, использовать (   Читать дальше...   )Формат: UASSET, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCDEDAC1491E63CFF84CDCC29BA737BB09AA533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380187   (834327) от 02.05.2020
-
-3D модели - RenderHub - Anatomical Reference Bundle 005 [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя искусственный интеллект и нашу 150 фотограмметрическую установку DSLR, мы создаем 3D и 4D ресурсы для игр, VFX, фильмов, телевидения, виртуальной реальности и дополненной реальности. От 3D-сканирования до фальсификации, интеграции игрового движка и ИИ - у нас есть все необходимое для создания персонажа.Формат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E696D88936F2BD46BFE5A25DB910D14A3303090A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501748   (833459) от 11.10.2021
-
-Шаблоны - Creative Market - Noissue Food Safe Paper Mockup Set - 6387948 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональные и простые в использовании макеты упаковки для фотошопа и высококачественными продуктами Noissue.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23F34DA0604B1DAD3C2F9DD400D7B25651D2B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501755   (833454) от 11.10.2021
-
-Шаблоны - Creative Market - Food Safe Paper Mockup /french fries - 6396756 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональные и простые в использовании макеты упаковки для фотошопа и высококачественными продуктами Noissue.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC88584B2DF69EE9AE08A405996BA7D269B0BB0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501757   (833365) от 11.10.2021
-
-Шаблоны - Creative Market - Food Safe Paper Mockup Set /desserts - 6417661 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональные и простые в использовании макеты упаковки для фотошопа и высококачественными продуктами Noissue.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378AA4594E91D87ED0936B50D85153355BC6F69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501751   (833364) от 11.10.2021
-
-Шаблоны - Creative Market - Women Sleeveless Dress Mockup Bundle - 6504474 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор мокапов женского платья без рукавов - многослойные редактируемые psd-макеты базового шаблона белого расклешенного женского платья на основе студийной фотографии с минималистичным декором в стиле бохо и настоящей манекенщицей Насти Король. Мокапы одежды, подготовленные для демонстрации вашего пользовательского дизайна выкройки, просто поместив его двойным щелчком (   Читать дальше...   )Формат: PSDРазрешение файлов: 3185x4777-4000x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2148E6FE4CC95304C5867AE07089FCB8F0F9E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

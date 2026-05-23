@@ -1,3 +1,112 @@
+###  Публикация: 1401603   (703392) от 13.08.2020
+
+Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2020) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2020 Moby - My Only Love (by Zombie Studio) (Master_1080p)
+2020 Moby - Power Is Taken (Moby's Old School Remix) (1080р)
+2020 Moby - Power Is Taken ft. D.H. Peligro (1080р)Производство: Zombie StudioЖанр: ElectronicРежиссер: Paulo GarciaПродолжительность: 00:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0697556AAE2F345BB8D008A589E6BB8593B1A2A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672661   (702674) от 25.06.2013
+
+Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новый сингл талантливой поп. дивы Cher. Живое выступление на американском "The Voice" (06.18.2013).Жанр: PopПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104DC00554F6C4D1CA74B7945AEEAC80628623D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672087   (702539) от 25.06.2013
+
+Сборник клипов - VA - Various Music part. 43 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. 9-11 - Cum se face 1080p (3:30)
+2. A.M. SNiPER - ROAR 1080p (2:39)
+3. Abel The Kid & Julio Iglesias Jr. feat Snoop Dogg A Piece Of My Love 720p (4:02)
+4. ALEXANDER PROJECT FEAT. MAAX - Сердце 1080p (3:23)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F8EED913F8E6D54F7580E1C1A13780F4125149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401275   (699693) от 15.08.2020
+
+Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Производство: MyGoodEyeЖанр: Black Metal, GrindcoreРежиссер: David BrodskyАктеры: Anaal NathrakhПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1141B903DA7A6AD07330B137CCE10293C73F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 331787   (699526) от 04.05.2011
 
 Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
@@ -6,7 +115,7 @@ Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +141,7 @@ Lady Gaga - Judas (2011) HDTVRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +193,7 @@ Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +245,7 @@ Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +271,7 @@ DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +297,7 @@ DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +323,7 @@ Millenium Extended (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +375,7 @@ Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +401,7 @@ DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +462,7 @@ Sandra - The Complete History (1974 - 2002) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -388,7 +497,7 @@ Avril Lavigne - Smile (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -415,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -445,7 +554,7 @@ Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -471,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,7 +606,7 @@ VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +635,7 @@ DVJ Bazuka - Summer Love (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +661,7 @@ Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +687,7 @@ Ru.Music - Сборники Видеоклипов (Февраль 2010 - Июн
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,115 +704,6 @@ Ru.Music - Сборники Видеоклипов (Февраль 2010 - Июн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AF5BE3EC67AA4A983E6E249175129A7682A310E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770600   (637650) от 11.07.2016
-
-Motörhead Videography / Motorhead Видеография (29 клипов) (1980-2010) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rock Out
-02 - God Save The Queen (2000)
-03 - Get Back In Line (2010)
-04 - I Ain't No Nice Guy (1992)(   Читать дальше...   )Сборник из 29 видеоклипов. Скачано из сети.
-Некоторые видео пришлось вытягивать или восстанавливать...
-Использовались программы - Corel , AVS, SolveigЖанр: Heavy metal, hard rock, speed metal, rock and rollПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC160063C88CD43182A6EE9F30B6DADAE79FE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682118   (632610) от 22.07.2013
-
-Ocean Drive feat. Aylar - Some People (2010) [720p]HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocean Drive feat. Aylar - Some People (Official Video)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFC35D0EC3AF11301D3565D12A316F78C84681A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349658   (631623) от 12.06.2011
-
-Вера Брежнева - Реальная жизнь (2011) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F600608930F8E4DFBC5FBAE0FA695E2D596062E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682064   (631038) от 23.07.2013
-
-Ferry Corsten - Radio Crash (2008) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ferry Corsten 'Radio Crash' [405 Recordings]Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64A42731DA03EA53FFBED1ED6E1A6FE0A80E1AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

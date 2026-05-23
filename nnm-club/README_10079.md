@@ -1,30 +1,25 @@
-###  Публикация: 516102   (654750) от 27.06.2012
+###  Публикация: 903540   (657319) от 31.05.2015
 
-VA - Best Trance Producers (2012) [MP3|320 кб/с]<Trance>
+Video Copilot Element 3D 2.0.7.2008 (Motion Design Bundle) [En]
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-VA - Best Trance Producers (2012)
+Плагин для визуализации 3D-объектов в After Effects в реальном времени!
 
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:46:21
-Лейбл: Self-Released
-Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:(   Читать дальше...   )
+Разработка от компании VideoCopilot, специализирующейся на дополнительных инструментах для создания видео эффектов и обучающих материалах по этой тематике в программе AfterEffects. Element 3D позволяет работать с трехмерными объектами напрямую в AE.
+(   Читать дальше...   )Язык интерфейса: English
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46E62C5DDFD795AD90BC1781A4885664368EE357
+magnet:?xt=urn:btih:CBD93006267270BF820A216AB930DEE27378F86E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -32,29 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515956   (654749) от 27.06.2012
+###  Публикация: 903471   (657318) от 31.05.2015
 
-VA - Танцевальный рай 24 (2009) [MP3|320 кб/с]<Pop>
+Кунг Фьюри / Kung Fury (2015) WEB-DL [H.264/1080p-LQ]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 Stereo Love - Edward Maya & Vika Jigulina
-02 Colors - Morandi
-03 On The Beach - Sonic Palms
-04 I Gotta Feeling - The Black Eyed Peas
-05 For An Angel '2009Жанр: PopПродолжительность: 01:19:22
+В Майами 80-х появляется самый опасный преступник всех времен — Адольф Гитлер, по прозвищу Кунг Фюрер. Суперкоп Кунг Фьюри решает совершить путешествие во времени в нацистскую Германию, чтобы убить Гитлера и положить конец нацистской империи.Производство: ШвецияЖанр: Боевик, Фантастика, КомедияРежиссер: Дэвид СандбергАктеры: Дэвид Сандберг, Йорма Такконе, Леопольд Нильссон, Стивен Чю, Андреас Кахлинг, Эрик Хёрнквист, Элени Янг, Хелен Алсон, Пер-Хенрик Арвидус, Эос КарлссонПеревод: Многоголосый закадровый, любительский (OMSKBIRD records)Язык субтитров: Русский, АнглийскийПродолжительность: 00:30:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E84FCA50286ABECB0B78814ABA467C5904E46845
+magnet:?xt=urn:btih:BF9C4611BA40187989040B82E0FFAA7EA5250CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -62,274 +53,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 516203   (654748) от 27.06.2012
+###  Публикация: 903264   (657317) от 31.05.2015
 
-Вечерний Ургант. Выпуск №35 (2012.06.27) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6ED19124D669DA5DBF52C5AEEAE4CC95640F501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515862   (654746) от 27.06.2012
-
-VA - TMP: Vanilla Dreams 077 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654746.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix)
-002. JIR3H-3 - Fly (Original Mix)
-003. Arty - Kate (Original Mix)
-004. Fredda L. & Fisher - Love, You Call It (Beat Service Remix)
-005. Benya feat. Emma Lock - Loved To Be (Original Mix)
-006. Mat Zo & Arty - Mozart (Original Mix)
-007. C-Systems feat. Hanna Finsen - Pieces (Original Mix)
-008. Cardinal feat. Arielle Maren - Sink Into Me (Original Mix)
-009. Euphoric Feel - Trip To India (Original Mix)
-010. Kristina Sky & Randy Boyer feat. Shyboy - Welcome To The Future (M.I.K.E. Remix)Жанр: Vocal TranceПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD9B649D32D2DD85202AF99938D6F7C73A3F024F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515791   (654743) от 27.06.2012
-
-VA - Trance. Vocal Fascination 26 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nic Chagall & Duderstadt feat. Relyk - Alone With You
-002. Luke Bond feat. Emel - Amaze (Fady & Mina Remix)
-003. Lange vs. Gareth Emery - Another You Another Me (Rafael Frost Remix)
-004. Paki & Jaro feat. Casey Barnes - Because Of You (Original Mix)
-005. Miroslav Vrlik - Charisma (Original Mix)
-006. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix)
-007. JP Bates & Antonia Lucas - Closer (ReOrder Remix)
-008. Matt Darey & Kate Louise Smith - Crown Of Thorns (Aurosonic Progressive Mix)
-009. Kenneth Thomas feat. Roberta Harrison & Steven Taetz - Drive (Ryan Mendoza Remix)
-010. Oen Bearen & Tranceye - Goodnight My Everything (Suprano Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5813435640D7A7656F09514047DB221B7B30566C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515789   (654742) от 27.06.2012
-
-[Wallpapers 16+] Wallpapers Sexy Girls Pack (27.06.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680x1050 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC7FA7E4D3219F898E62DC31286260BFFEBCA87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516088   (654740) от 27.06.2012
-
-VA - Самый Взрывной Летний МIX (2012) [MP3|128-320 кб/с]<House, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Anton Neumark, Johnny Beast - We Rock The Party (Original
-02 DJ Solovey and Jim (E. Glotikov) - Ready To Party (Original
- 03 Fred Falke - 909 PM At The Beach (Syntheticsax Bootleg)
- 04 Fast Foot - Galaxy ( SICK SLAUGHTERHOUSE )
- 05 Flashtronica - I Cant Stop (Ural Djs Remix)
- 06 Javi Reina Alex Guerrero ft. Syntheticsax - Oig (Check off
- 07 Kulten Yeuk - Drunk Trumpet (Johnny Beast Remix)
- 08 Dj Viduta - Summer Mood ( Original Mix )
- 09 Nity - Ты Лето (Ural Djs Version)
- 10 Porn Kings - Amour (DJ Jim Remix Radio)Жанр: House, PopПродолжительность: 04:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2322F56466008AB16D1EC64A526DA618BE13D551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514351   (654735) от 27.06.2012
-
-VA - Camouflage — Retrospective 1999/2004 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overtone — Mental Movement (09:09)
- 02. Haunted House — Rain-Bow (08:03)
- 03. Blacklight — Daydream (07:25)
- 04. Cosmo Kid — Cosmic Meltdown (Original Mix) (07:33)
- 05. Jericho — Way of Love (07:00)
- 06. The Snapper — Pulsar (Original Mix) (10:25)
- 07. Overtone — Soulstatic (Part 1) (07:37)
- 08. Phrenetic System — Intensity (Original Mix) (09:52)
- 09. Oudja — Opium (2001 Revisited Mix) (09:20)
- 10. Dolt Dish — This Round Up (Main Mix) (09:41)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF54F85A3C4008B004266E706D346041F8C9DA9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516122   (654734) от 27.06.2012
-
-VA - Союз Клубный. Выпуск 8 (2012) [MP3|256 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654734.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Горячий шоколад - Стены (Andry Makarov Club remix)
-002 Каролина - Летний дискобар (Версия 2012)
-003 Бурановские Бабушки - Party for Everybody (DJ Slon remix )
-004 Алина Гросу - Взрослая
-005 KSELA feat. DJ ALIX - Наше Лето (Summer Hit)
-006 Dj Tarantino & Katrin Moro - Я Буду Помнить (original mix)
-007 Artik & Asti - Облака (DFM mix)
-008 Dan Balan - Не любя
-009 AD Men's - Жара (extended mix)
-010 DJ Andrey Keyton feat. JWELL - Лететь (DJ Vitalik Vitamin remix)(   Читать дальше...   )Жанр: ClubПродолжительность: 07:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B837E6F86D5FDF25ED5A178A242B53F55765D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344362   (654716) от 31.05.2011
-
-Rumble D.P - Apparat + B-sides (2007) [MP3|320 kbps]<Downtempo, Trip Hop, Abstract, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Downtempo, Trip Hop, Abstract, AmbientПродолжительность: 01:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0528407234AA98F45C886B4ECAB34DD20063F22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226604   (654713) от 21.05.2018
-
-Поезд на Париж / The 15:17 to Paris (2018) BDRip [720p] ATV
+Разлом Сан-Андреас / San Andreas (2015) CamRip
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-В центре сюжета события, произошедшие ранним вечером 21 августа 2015 года, когда весь мир, затаив дыхание, наблюдал за предотвращением террористической атаки в скоростном поезде N 9364 тремя бравыми молодыми американцами, которые в это время путешествовали по Европе.Производство: СШАЖанр: Триллер, драма, историяРежиссер: Клинт ИствудАктеры: Спенсер Стоун, Энтони Сэдлер, Алек Скарлатос, Джуди Грир, Дженна Фишер, Рэй Корасани, Тони Хейл, Томас Леннон, Синква Уоллс, Ирен УайтПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:33:51
+Рэй — пилот спасательного вертолета, который всю свою жизнь помогал другим людям. За все время работы он насмотрелся на множество жутких вещей и не раз оказывался в очень сложных ситуациях. Несмотря на все преграды он спешил на помощь, даже не предполагая, что самое страшное ждет его впереди. На Калифорнию обрушивается мощное землетрясение, в результате которого (   Читать дальше...   )Производство: США, Flynn Picture Company, New Line Cinema, Village Roadshow Pictures, Warner Bros. PicturesЖанр: Боевик, Триллер, ДрамаРежиссер: Брэд ПейтонАктеры: Дуэйн Джонсон, Александра Даддарио, Карла Гуджино, Колтон Хэйнс, Йоан Гриффит, Пол Джаматти, Арчи Панджаби, Уилл Юн Ли, Кайли Миноуг, Хьюго Джонстон-БартПеревод: ДублированныйПродолжительность: 01:47:32
 
 ## Скачать торент
 ```bash
@@ -341,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226534   (654712) от 21.05.2018
+###  Публикация: 826671   (657314) от 31.05.2015
 
-Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+Однажды в Сказке / В Некотором Царстве / Once Upon a Time (2014) WEB-DLRip (сезон 4, серии 1-23 из 23) (To4ka)
 
->>Other Styles
->>OST
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Fuel of War [01:45]
-02. Flatline [01:44]
-03. Unbreakable [01:36]
-04. Puma [01:23](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:19:15
+Сюжет фэнтези разворачивается в двух мирах — современном и сказочном. Беззаботная жизнь 28-летней Эммы Свон меняется, когда ее 10-летний сын Генри, от которого она отказалась много лет назад, находит Эмму и объявляет, что она является дочерью Прекрасного Принца и Белоснежки. Само собой разумеется, у мальчишки нет никаких сомнений, что параллельно нашему существует (   Читать дальше...   )Производство: СШАЖанр: драма, фэнтезиРежиссер: Дин Уайт, Ральф Хемекер, Дэвид СоломонАктеры: Дженнифер Моррисон, Джиннифер Гудвин, Лана Парийя, Джошуа Даллас, Джаред Гилмор, Роберт Карлайл, Рафаэль Сбардж, Меган Ори, Эйон Бэйли, Беверли Эллиотт и др.Перевод: Многоголосый закадровый, любительский - To4kaОзвучка / Автор перевода: To4kaTranslateПродолжительность: ~ 00:43:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:233101C2E098D5738E94C8460ECFBFD573169F38
+magnet:?xt=urn:btih:D080F3190F856EAAE38BAE7934D0B02118466092
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,28 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226531   (654711) от 21.05.2018
+###  Публикация: 1539584   (657302) от 26.03.2022
 
-VA - Music Live (2018) [MP3|320 Kbps] <Pop>
+Dorian Wilde - Unlimited (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-001. Natasha Barnes - Sun, Moon and Stars
-002. Seal - I Put A Spell On You
-003. Saba - LOGOUT
-004. Diplo - Suicidal(   Читать дальше...   )Жанр: PopПродолжительность: 08:43:02
+01 - Progressive Sunrise (00:05:57)
+02 - We Are Two (00:04:10)
+03 - Unlimited (00:07:42)
+04 - Empty Days (00:05:29)(   Читать дальше...   )Жанр: Progressive Rock, FusionПродолжительность: 00:49:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DBFB630F52015E3461A4DAF2D04207871DC4895
+magnet:?xt=urn:btih:AF4D596AEF6FA7D3C69BBD5FF0C861DD3EB5F539
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,26 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226443   (654710) от 21.05.2018
+###  Публикация: 1539587   (657301) от 26.03.2022
 
-Елена Солодова | Игра миражей (2018) [MP3]
+Spiritraiser - Ciklos (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psychedelic Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Первая и пока единственная книга из серии «Мастер миража» («Игра миражей») рассказывает о мире Дэварнии, который тесно связан с нашим миром. Сказки, легенды, многие пословицы получают несколько иную трактовку, если знать, что они пришли оттуда.
-Где бы ни происходили события, жизнь за все предъявляет счет. Особенно это заметно в мире Дэварнии, где есть люди, обладающие (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:41:20
+01 - Artificial Light (00:05:45)
+02 - Invisible Enemy (00:04:38)
+03 - Glory (00:04:30)
+04 - Stream (00:04:04)(   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 00:53:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65E06E1070EAE4C63D16F4733B66583ECCF70542
+magnet:?xt=urn:btih:9CD7C9BD130425050624DD223AB02F788F9579DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,159 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226330   (654709) от 21.05.2018
+###  Публикация: 343410   (657296) от 29.05.2011
 
-Растровый клипарт - Deeezy - Kids & Alphabet 3D Lettering [PNG]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алфавит из букв в 3D, цветной. Латиница. Дополнительно цифры, знаки препинания и т.п. с официальной документацией.Формат: PNGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226669   (654708) от 21.05.2018
-
-Александр Ковалевский | Тайна черных дайверов (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Ренат предложил друзьям отдохнуть на яхте, он и представить не мог, чем это обернется… Все началось, когда они с Ильей и Настей обнаружили брошенное каботажное судно. Внутри нашлось дайверское снаряжение и… множество ценных артефактов времен Второй мировой войны. Кто поднял их со дна моря - неизвестно. Но неожиданно объявляются хозяева судна, которые представляться (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5676FC120D1E787AFBA7C594808B983697BB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226596   (654707) от 21.05.2018
-
-Беляночка и Розочка / Schneeweißchen und Rosenrot (1979) VHSRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одной из сказок Братьев Гримм.
-Это история о двух милых сестрах, которые живут с мамой в заброшенной деревушке рядом со старой заколдованной штольней. В штольне поселился злой дух, который прогнал всех горняков из деревни. Продавая на рынке свои товары девушки знакомятся с двумя принцами, выдаваемыми себя за охотников, которые не боятся отправиться в (   Читать дальше...   )Производство: Германия (ГДР) / Киностудия ДефаЖанр: Фэнтези, СемейныйРежиссер: Зигфрид ХартманнАктеры: Юлия Юриштова, Катрин Мартин, Павел Травничек, Бодо Вольф, Ханс-Петер Минетти, Иоганнес Вике, Аннемоне Хазе, Хайо Менде, Педро Хебенштрайт, Хельмут ШрайберПеревод: Дублированный (Советский дубляж)Субтитры: ОтсутствуютПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91CC491B234A91E1A3F766607444BD23F869F5F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226528   (654706) от 21.05.2018
-
-VA - Synthetic Prototype (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современную синтетическую популярную музыку от зарубежных исполнителей уже язык не поворачивается назвать просто попсой. Новые технологии, свежие идеи и многолетний опыт позволяет восходящим звездам и знаменитостям создавать настоящую музыку для всех меломанов, даже с самыми специфичными вкусами.001. Erasure - Love You To The Sky
-002. Loewenhertz - Irgendwann
-003. Run Vaylor - Disco Cross
-004. Retouch - Earthquake(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 08:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A9CE943B33732D1858097B50A4136684563D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226479   (654705) от 21.05.2018
-
-К. Клаузевиц | О войне (1998) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654705.jpg" />
-</div>
-
-
-###  Подробнее
-
-В классическом произведении выдающегося теоретика военной науки Карла фон Клаузевица (1780-1831) излагаются взгляды автора на природу, цели и сущность войны, формы и способы ее ведения, что явилось итогом многолетнего изучения им военных походов и кампаний с 1566 по 1815 год. Глубокое философское видение этого общественного явления сочетается с анализом ключевых (   Читать дальше...   )Жанр: История, политология, дипломатия, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C518CAEE71E4662F7E21E6F1D76DF6617116F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226557   (654704) от 21.05.2018
-
-NG. Известная Вселенная / Known Universe (2009) BDRemux [H.264/1080i] (Сезон 1, серии 1-3 из 3)
+Discovery: Северное море (8 серия) / The North Sea (2009) SATRip
 
 >>Зарубежные TV-бренды
->>National Geographic
+>>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Вместе с каналом National Geographic вы сможете попасть в мир непознанных явлений, попасть в микро и макромиры, побывать на звездах и изучить строение атома. Вы опуститесь в глубины океанов и окажетесь на околоземной орбите в космосе. На все самые сложные вопросы мироздания канал National Geographic находит понятные любой домохозяйке ответы, а оторваться от документальных (   Читать дальше...   )Производство: США, BASE Productions Inc., National Geographic ChannelЖанр: Документальный, космос, путешествие, исследованиеРежиссер: В. Скотт Голди, Джон Колл МеткалфПеревод: Одноголосый закадровый, профессиональный (ТРК-Петербург, 5 канал)Субтитры: отсутствуютПродолжительность: 3 x ~00:42:00
+Программа рассказывает о людях, чья жизнь неразрывно связана с Северным морем: профессиональных рыбаках, нефтяниках, морских инженерах, капитанах портов и представителях спасательных служб.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FCF5641B0F5918A6AC61B69DF4538A068246251
+magnet:?xt=urn:btih:D9C681BF09701D3E1FE62F43F0773807D08DC5B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,25 +189,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226331   (654703) от 21.05.2018
+###  Публикация: 341548   (657295) от 29.05.2011
 
-Растровый клипарт - Deeezy - Kids & Play 3D Lettering [PNG]
+Pedro Del Mar - Mellomania Vocal Trance Anthems 158 (23-05-2011) [MP3|256 kbps]<Trance>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Алфавит из геометрических фигур в 3D, цветной. Латиница. Дополнительно цифры, знаки препинания и т.п. с официальной документацией.Формат: PNGРазрешение файлов: 3000 x 3000
+01. lune - girls with bangs (tiesto remix)
+02. cazzi opeia - i belong to you (axel bauer & lanford remix)
+03. dune - heiress of valentina (alesso remix)
+04. duderstadt feat. hannah ray - painted red (original mix)
+05. atb feat. jansoon - gold (josh gallahan remix)
+06. styller feat. suzanne isis - escape velocity (original mix)
+07. mike saint-jules pres. saint x feat. sandel - fight on (original mix)
+08. masoud feat. hannah ray - here we go (philippe el sisi remix)
+09. roger shah feat. moya brennan - morning star (original club mix)Жанр: TranceПродолжительность: 00:59:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F420432D21D5FEE8CC75549683CDBD81A72B0AF
+magnet:?xt=urn:btih:7396FA9F6905B8BECB0AAEE32BD31B29034EE4D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,24 +223,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226620   (654702) от 21.05.2018
+###  Публикация: 1539553   (657279) от 26.03.2022
 
-Хоккей. Чемпионат мира 2018. Финал. Швеция – Швейцария (20.05.2018) HDTV [H.264/1080i]
+Junior Mance - Sweet And Lovely (1960, 1961) 2004, Milestone [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-20 мая 2018 года, воскресенье. 21:15 МСК
-Финальный матч Чемпионата мира по хоккею с шайбой 2018 года
-Швеция – Швейцария
-Стадион: Роял-Арена (Копенгаген, Дания), 12490 зрителей (100 % при вместимости 12500)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:38:16
+01. The Uptown [4:04]
+02. Ralph's New Blues [4:24]
+03. Main Stem [4:24]
+04. Darling, Je vous aime beaucoup [3:38](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:17:24
 
 ## Скачать торент
 ```bash
@@ -641,25 +252,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226648   (654701) от 21.05.2018
+###  Публикация: 1539608   (657278) от 26.03.2022
 
-Glary Utilities Pro 5.98.0.120 RePack (& Portable) by TryRooM [Multi/Ru]
+Лисса Леменкюлер | Снежик, или Чудо в переулке Синичек (2022) [FB2, EPUB, MOBI]
 
->>Архив торрентов
->>Архив Программ
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Существуют ли волшебные существа? Девятилетний Оле, например, читал о снежном человеке. Но он и не подозревал, что может однажды столкнуться с таким чудом… Пока к нему в комнату порывом ветра не занесло Снежика! Ох, как же пушистик любит поесть: со стола тут же исчез папин кофе, а из холодильника – весь сыр. И всё же Снежик очень смешной и классный. Оле даже взял (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Ксения ЧесноковаФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAAF32DE3CE7805E6E3E56660415305005FE22E4
+magnet:?xt=urn:btih:28859E5929714E5A04485271B57AE88CDD6E07DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,25 +278,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226670   (654700) от 21.05.2018
+###  Публикация: 1539630   (657277) от 26.03.2022
 
-Яндекс.Браузер 18.4.1.638 Portable by thumbapps [Multi/Ru]
+Сергей Непушкин | Улька (2017) [MP3, Татьяна Янчук (jantat)]
 
->>Архив торрентов
->>Архив Программ
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+Ежик и человек. История одного лета.Жанр: Детская литература, РассказПродолжительность: 00:12:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB9D9A49E92901F3753340A6EF714CFDC6368267
+magnet:?xt=urn:btih:6544CFF1322DD6D7C45335F6A9BBF90FE4535897
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,25 +304,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226602   (654699) от 21.05.2018
+###  Публикация: 1539614   (657276) от 26.03.2022
 
-Поезд на Париж / The 15:17 to Paris (2018) BDRip [1080p] ATV
+Бенуа Грело | Солнечный камень. Книга 3 (2022) [FB2, EPUB, MOBI]
 
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-В центре сюжета события, произошедшие ранним вечером 21 августа 2015 года, когда весь мир, затаив дыхание, наблюдал за предотвращением террористической атаки в скоростном поезде N 9364 тремя бравыми молодыми американцами, которые в это время путешествовали по Европе.Производство: СШАЖанр: Триллер, драма, историяРежиссер: Клинт ИствудАктеры: Спенсер Стоун, Энтони Сэдлер, Алек Скарлатос, Джуди Грир, Дженна Фишер, Рэй Корасани, Тони Хейл, Томас Леннон, Синква Уоллс, Ирен УайтПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:33:51
+Эко и его друзьям удалось найти два волшебных камня – Океанский и Лунный. И теперь они отправились на Солнце, чтобы завершить свою миссию. Однако они и предположить не могли, что завладеть Солнечным камнем практически нереально… Что ж, значит, придётся совершить подвиг!Жанр: Детская литература, ФантастикаПеревод: Е.А. МуравьеваФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C814ED6C8898542A613F5B567411193DA4BE7CF3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -719,28 +330,389 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226533   (654698) от 21.05.2018
+###  Публикация: 1539589   (657275) от 26.03.2022
 
-VA - Deep House Collection Vol.171 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+The Urban Sea - Fall Back To Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-001. The Distance & Riddick - Where Did U Go (Original Mix)
-002. Lucas Keizer - Toxic Desire (Original Mix)
-003. Dassler - Orion Choir (Original Mix)
-004. Barratt - Collider (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:38:58
+01 - Apocalypse (00:04:51)
+02 - Smoke Alarm (00:03:17)
+03 - Silver Tongue (00:05:06)
+04 - Like a River (00:04:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3025C281AB38E6DFBF287376A722870E548BA958
+magnet:?xt=urn:btih:E014D1BDFB29E6823FFF95FB62BF426413DD2737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539660   (657274) от 26.03.2022
+
+Сто к одному (20.03.2022) SATRip [H.264/480p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F8E2317A8902EC82597E673F43C7529E90AC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539626   (657273) от 26.03.2022
+
+Хоккей. НХЛ 2021-2022. Филадельфия Флайерз - Колорадо Эвеланш (25.03.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+26 марта 2022, суббота. 04:00 МСК
+Стадион: Болл-Арена (Денвер, США), 18 051 зритель (99% при вместимости 18 147)
+Главный судья: Кендрик Николсон (Милвертон, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: ALTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B2A404B1A748A11341E872AE6CA16016F67FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539655   (657272) от 26.03.2022
+
+Meat Loaf - Couldn't Have Said It Better (2003) 2CD, Special Edition [FLAC|Lossless|image + .cue] <Rock, Hard-Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. I Would Do Anything for Love (Video From Meat Loaf Storytellers DVD)
+2. Kiss Is a Terrible Thing to Waste (Video From Meat Loaf Storytellers DVD)
+3. Did I Say That (Video)
+4. Two Out of Three Ain't Bad (Meat Loaf Storytellers CD)Жанр: Rock, Hard-Rock, MetalПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F8BD85241F948499155252A6C4AABF565AB29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539581   (657271) от 26.03.2022
+
+The Legendary Pink Dots - The Museum of Human Happiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - This Is The Museum (00:07:10)
+02 - There Be Monsters (00:06:10)
+03 - Cloudsurfer (00:06:12)
+04 - Cruel Britannia (00:04:36)(   Читать дальше...   )Жанр: Psychedelic Rock, ExperimentalПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEE9AB02BFE0BCA8985C703A86BAF948D12C57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539432   (657270) от 26.03.2022
+
+Lacuna Coil - Comalies (2002) Limited Edition [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Swamped
+02. Heaven's A Lie
+03. Daylight Dancer
+04. Humane(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA367397B10134F80A357B8FCEA5DF53DBBCFDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539579   (657269) от 26.03.2022
+
+King Mountain - Tempest at the Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Soul Sacrifice (00:05:50)
+02 - Tempest at the Gate (00:03:29)
+03 - Burning Walls (00:04:05)
+04 - King of the Mountain (00:06:12)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADA4BD62E725AF8F1104299C94ACB29AECD7831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539748   (657268) от 26.03.2022
+
+Fat Larry's Band - Lookin' For Love (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Lookin' For Love (5:32)
+02. Here Comes The Sun (5:22)
+03. Last Chance To Dance (5:21)
+04. Like To Get To Know You Better (5:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630C572B327D20C8A1EB49E28D31B8DD7BDFC10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539662   (657267) от 26.03.2022
+
+Сто к одному (26.03.2022) SATRip [H.264/480p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7C5712535BD40038476138C11C877C0D2C4240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539682   (657266) от 26.03.2022
+
+Meat Loaf - Bat Out Of Hell III The Monster Is Loose (2006) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard-Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Monster Is Loose [00:07:12]
+02. Blind As A Bat [00:05:50]
+03. It's All Coming Back To Me Now [00:06:05]
+04. Bad For Good [00:07:32](   Читать дальше...   )Жанр: Rock, Hard-Rock, MetalПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63137F5D311E05BE6A75E4583F018FCA0C3AA45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539544   (657265) от 26.03.2022
+
+VA - Another Dimension: Psy Trance Compilation (2022) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В отличие от хауса, техно, и других стилей танцевальной электронной музыки, психоделический транс имеет под собой большую эзотерическую основу. Такая музыка придает ощущение легкости и полета, что очень благоприятствует как пассивной, так и активной медитации.001. Apollon - Happy Person
+002. Grouch - Indifference
+003. VORG - Munin
+004. Elegy - Deus Ex Machina(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 13:07:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539719   (657264) от 26.03.2022
+
+Генри Саттон | Гром среди ясного неба (2010) [MP3, Георгий Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Роман американского писателя Г.Саттона «Гром среди ясного неба» рассказывает об эпидемии, вызванной утечкой бактериологического вируса с одной из военных баз США, о возможных страшных последствиях гонки вооружений, затеянной крупнейшими державами.Жанр: ДетективПродолжительность: 11:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15733164D0FC54A13B2F829FE6683FBBBCE57363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539700   (657263) от 26.03.2022
+
+Антон Залыгин | Почемучкины книжки. Каких размеров Вселенная? (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Объекты, которые нас окружают, бывают очень разных размеров, поэтому человек придумал единицы измерения – чтобы измерять всё подряд и сравнивать. В этой книге мы рассмотрим разные объекты и представим их ни много ни мало в масштабах Вселенной! Начнём мы с самых маленьких из них: микроорганизмы, клетки живых организмов, атомы, электроны, затем рассмотрим объекты покрупнее: (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A88E9FD2456DFAC4B0F5E163EBA9AC703BF9B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539533   (657262) от 26.03.2022
+
+Камбрия Брокманн | Скажи мне всё (2022) [MP3, Светлана Радужная]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Притворяйся», – всегда учил ее отец. Для нее это стало заклинанием. Притворяйся хорошей и правильной. Дружелюбной и искренней. Заводи друзей. Именно они помогут тебе идти дальше, веря, что ты любишь их. И пусть никто никогда не узнает, какая ты есть на самом деле… Малин, поступившая на первый курс престижного колледжа Хоторн, принята в компанию «золотой молодежи». (   Читать дальше...   )Жанр: ДетективПродолжительность: 13:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991E91E6C4A45F522311CFA53BDB24006098B8CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

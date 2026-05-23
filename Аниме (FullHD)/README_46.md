@@ -1,3 +1,55 @@
+###  Публикация: 1648676   (208104) от 24.07.2023
+
+Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не признает меня мобом [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Дзюнта Щираищи — обычный старшеклассник с простым желанием — провести школьные годы полноценно. Но есть одна проблема: Дзюнта настолько неприметный, что одноклассники и учителя его не замечают, словно моба в игре. Всё настолько серьезно, что люди думают, будто место Щираищи всегда пустует и ошибочно предполагают, что он просто пропускает школу. В классе даже ходит (   Читать дальше...   )Производство: студия Pine Jam / パインジャムЖанр: комедия, романтикаРежиссер: Кога КадзуомиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F785B7C959902721924FC523C7149ED483C8A0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612615   (207237) от 16.02.2023
+
+Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь слёзы я притворяюсь кошкой [2020, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Обычная японская старшеклассница Миё живет своей обычной японской жизнью. Но когда девушка влюбляется в одноклассника, а тот не обращает на неё никакого внимания, она решает, что единственный способ добиться его расположения — стать кошечкой. В этом ей поможет волшебная маска. Вскоре также выяснится, что существует параллельный кошачий мир, а вернуться в человеческое (   Читать дальше...   )Производство: студия Studio Colorido / スタジオコロリドЖанр: приключения, романтика, фентезиРежиссер: Сато ДзюнъитиПеревод: Netflix (Всеволод Иващенко)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B6C9B0D32177A1A45BEBCE715355701ADCE1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616046   (206231) от 28.02.2023
 
 Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip 1080p raw
@@ -6,7 +58,7 @@ Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +86,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +112,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -89,7 +141,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -115,7 +167,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -141,7 +193,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -167,7 +219,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -193,7 +245,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -219,7 +271,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -248,7 +300,7 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -275,7 +327,7 @@ Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -301,7 +353,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -327,7 +379,7 @@ Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -353,7 +405,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -379,7 +431,7 @@ Gunslinger Girl: Il Teatrino / Школа убийц: Театр марионе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -405,7 +457,7 @@ Gunslinger Girl / Школа убийц (ТВ-1) [2003, TV, 13] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -431,7 +483,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +509,7 @@ Tensei shitara Slime Datta Ken Movie: Guren no Kizuna-hen | That Time I Got Rein
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -484,7 +536,7 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -510,7 +562,7 @@ Brave Witches | Храбрые ведьмы [2016, TV, 12 эп. + 1 OVA] BD-rip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -536,7 +588,7 @@ Nomad: Megalo Box 2 | Мегалобокс [ТВ-2] [2021, TV, 13 из 13] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -562,7 +614,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -588,7 +640,7 @@ Isekai Ojisan | Uncle from Another World | Перерождение Дяди [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -614,7 +666,7 @@ Uma Musume: Pretty Derby - Road to the Top / Девушки-лошадки: Ми
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -627,58 +679,6 @@ Uma Musume: Pretty Derby - Road to the Top / Девушки-лошадки: Ми
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B086DA58D9B2C5A185D369500E1D91EE2315717B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552012   (197623) от 03.06.2023
-
-Muv-Luv Alternative The Animation | Мав-Лав: Альтернатива [2021, TV, 24 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197623.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из бесчисленных параллельных миров, существующих в пространстве, человечество десятилетиями вело войну против БЕТА, враждебных инопланетных захватчиков. Только благодаря ТНИ (Тактическим Наземным Истребителям) — огромным боевым экзоскелетам — оно смогло дать отпор захватчикам. Но на долго ли его ещё хватит? Эта история о том, как человечество пытается выжить, (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Нисимото ЮкиоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA46D2CBAC42BEB8960A59FC4855234087411606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606948   (197619) от 03.06.2023
-
-Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | Может, я встречу тебя в подземелье? [ТВ-4] [2022, TV, 22 эп.] BDRip 1080 raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орарио. Город, ставший домом для многих богов, знаменитый своим подземельем, которое ведёт к неизведанным глубинам. Богиня Гестия всё так же заботится о своём единственном подопечном — начинающем авантюристе Белле Кранеле. Но теперь на юношу, которому быстрее всех на свете покорился второй уровень, многие смотрят с интересом. Значит, впереди героя ждут лабиринт, (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Татибана ХидэкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 22 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13097690A96A26C498EFDF5EE7019E1884BA788F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1444964   (1033913) от 04.02.2021
+
+Сергей Зеленин | Сборник произведений [9 книг] (2018-2021) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сознание нашего человека попадает в тело Императора Российского Николая II - только-только принявшего на себя бремя Верховного Главнокомандующего... Получив возможность перемещаться в прошлое, главный герой встаёт перед нелёгким выбором: «накосить бабла» и жить в своё удовольствие или попытаться изменить ход истории, оптимизировать потери своего народа в первой половине (   Читать дальше...   )Жанр: Альтернативная история, ПопаданствоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1896F713A91158731FD63F9A611032482161612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446020   (1033217) от 07.02.2021
+
+RedDetonator | Сборник произведений [15 книг] (2019-2021) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Команданте Че Гевара после своей смерти был перенесен в тело домового эльфа. Завербовав двух добровольцев, Че решает освободить народ домовых эльфов от гнета рабовладельцев.Начавшись как обычно, революция довольно быстро превратилась в научно-техническую кровавую вакханалию с применением бронированных экзоскелетов, ракет и коктейлей Молотова и, разумеется, разрушительной (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ЛитРПГ, ПопаданствоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7274B1D9F9C88A0002AB6AB39D34B6FA013A94F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619236   (1033087) от 15.03.2023
+
+Роман Афанасьев | Собрание сочинений [53 книги] (1998-2020) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Афанасьев Роман Сергеевич родился 4 сентября 1976 года в городе Наро-Фоминске. В настоящий момент проживает в Подмосковье, недалеко от места рождения.Творческий дебют состоялся весной 2000 года: рассказы «Эвелин» и «Одуванчики» были опубликованы в журнале «Порог» (г. Кировоград). После дебюта рассказы автора публиковались в периодике – в «Технике – Молодёжи», «Звёздной (   Читать дальше...   )Жанр: Фантастика, фэнтези, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E527AF8EDA8D42498124707A3EF8B0AB63C970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446333   (1032887) от 08.02.2021
 
 Сергей Богдашов | Сборник произведений [13 книг] (2015-2021) [FB2]
@@ -6,7 +84,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -249,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -330,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -489,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -602,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -613,86 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F474DE5C455141AE585DDDAB934DD97C788D3AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339849   (1006203) от 18.07.2021
-
-Юрий Иванович | Собрание сочинений [101 книга] (2006-2021) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Иванович (литературный псевдоним, имя при рождении — Юрий Иванович Дзямко; род. 29 марта 1958) — русский писатель в жанре фэнтези, научной фантастики и детектива, постоянно проживающий в Мадриде, Испания.
-Писал также под псевдонимом Терентий Гравин.Жанр: Научная Фантастика, Космическая фантастика, Боевое фэнтези, Героическое фэнтези, Городское фэнтези, Детективное фэнтези, Альтернативная история, попаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8C1FCAC9FA1F75ECE2604A94A3CB60D03B0BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350166   (1003412) от 05.01.2020
-
-Илья Ильф, Евгений Петров | Собрание сочинений [в 2-х томах] (2019) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произведения И. Ильфа и Е. Петрова радуют читателей на протяжении уже многих десятилетии. Их литературные краски не поблекли от времени. Читатели нового поколения смеются так же весело и заразительно, как смеялись их бабушки и дедушки, мамы и папы.
-В настоящее собрание сочинений вошли произведения, написанные И. Ильфом и Е. Петровым о великом комбинаторе. (   Читать дальше...   )Жанр: Юмористическая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654739984AA1BE63D66CBE53CC05CEAF54A211EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599979   (998738) от 08.01.2013
-
-Лев Николаевич Толстой | Полное собрание сочинений в 90 томах [1928-1958] [PDF]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лев Николаевич Толстой (1828-1910) — великий русский писатель. Родился в аристократической графской семье. Рано остался без родителей и жил у родственников. В 1844 поступил на восточный факультет Казанского унта, но фактически не занимался и, не имея возможности сдать экзамены, перевелся на юридический факультет, где продолжал вести светский образ жизни. В 1847 он (   Читать дальше...   )Издательство: Государственное издательство художественной литературыФормат: PDFКачество: OCR без ошибок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4D5484E635302572FA0067831F3C31DDD8400B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1287612   (701069) от 08.03.2019
+
+Juubee Ninpuuchou | Ninja Scroll | Манускрипт ниндзя [1993, Movie] BDRemux 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Япония, начало ХVII века. Люди бегут из провинции Ямасиро, где внезапно началась чума - болезнь в этих краях совершенно неизвестная. Воины клана Кога, отправленные выяснить обстоятельства возникновения эпидемии, жестоко убиты загадочными существами. Из всего отряда разведчиков уцелеть удаётся лишь девушке-бойцу Кагэро. Странствующий ниндзя Дзюбэй, по счастливой случайности (   Читать дальше...   )Производство: Madhouse StudiosЖанр: Приключения, Фэнтези, РомантикаРежиссер: Кавадзири ЁсиакиЯзык озвучки: Японский и русскийСубтитры: MC EntertainmentПродолжительность: 92 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2182D654EF5E2962B82116D7E2973A740B1178F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132456   (698575) от 10.05.2017
 
 Princess Army: Wedding Combat / Принцесса Арми: Свадебный поединок [1992, OVA, 2 из 2] DVDRip 480p raw+HS
@@ -6,7 +32,7 @@ Princess Army: Wedding Combat / Принцесса Арми: Свадебный 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kenpuu Denki Berserk | Berserk | Берсерк [1997, TV, 25 эп.] [озвуч
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +87,7 @@ Sakasama no Patema / Patema Inverted / Патэма наоборот [2013, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -87,7 +113,7 @@ Spring 2019 Anime Preview | Превью аниме сезона весна 2019
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +140,7 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +166,7 @@ Ergo Proxy / Эрго Прокси [2006, TV, 23 из 23] BDRemux 1080p raw+eng+
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +192,7 @@ Hinako Note / Дневник Хинако [2017, TV, 12] WEB-DL 720p HS
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +244,7 @@ Sekai no Yami Zukan / The World Yamizukan / Тёмная книга мира [20
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +270,7 @@ Mimi o Sumaseba | Whisper of the Heart | Шёпот сердца [1995, Movie] B
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +296,7 @@ Hatsune Miku Live Party 2013 in Kansai (2013) / Живой концерт Хац
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +323,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Еванг
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +349,7 @@ Cowboy Bebop: Tengoku no Tobira | Cowboy Bebop: Knockin' on Heaven's Door | Ко
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +377,7 @@ Kimi no Suizou o Tabetai | Kimi no Suizou wo Tabetai | I Want to Eat Your Pancre
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +403,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +430,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +457,7 @@ Fireworks | Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуд�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +509,7 @@ Shelter / Убежище [2016, ONA, 1 из 1] WEBRip 1080p HS
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +535,7 @@ Roujin Z / Старик Зет [1991] Blu-Ray raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +561,7 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +588,7 @@ Tanin no Kankei / Homeroom Affairs / Классный роман [1994, OVA, 2 e
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +614,7 @@ Canaan / Ханаан [TV] [13 из 13] [Звуковая дорожка 3df voi
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +640,7 @@ Macross - Super Deformed OP
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +668,7 @@ Robot Carnival / Карнавал роботов [1987, OVA] DVD5 raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -654,32 +680,6 @@ Robot Carnival / Карнавал роботов [1987, OVA] DVD5 raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC3DB33AE5AE524C8D2AFB771500760221995E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061196   (450237) от 09.10.2016
-
-Kokoro ga Sakebitagatterunda / The Anthem of the Heart / Сердцу хочется петь [2015, Movie] BDRemux 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450237.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Дзюн была весёлой, счастливой девочкой, но как-то раз она сказала нечто такое, из-за чего её семья распалась. Тогда Дзюн явилось волшебное разумное яйцо и лишило её способности говорить, чтобы она больше никому не причинила вреда. С тех пор девочка старалась жить тихой жизнью и особо не отсвечивать, но в один прекрасной день ей предлагают стать исполнительным (   Читать дальше...   )Производство: A-1 Pictures Inc.Жанр: Романтика, ДрамаРежиссер: Нагай ТацуюкиПродолжительность: 120 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577840A5AF9D5874CB0E1ED8E997D8070B4A3DC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1167174   (418910) от 19.09.2017
+
+Трансформеры: Последний рыцарь / Transformers: The Last Knight (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Оптимус Прайм исчез. Люди ведут войну с Трансформерами. Ключ к нашему будущему погребен в тайнах прошлого, в скрытой истории Трансформеров на Земле… Миссия по спасению мира ложится на плечи разношерстной компании, состоящей из Кейда Йегера, Бамблби, английского лорда и профессора из Оксфорда. Пришла пора действовать! Жертвы станут героями. Герои станут злодеями. (   Читать дальше...   )Производство: США / Paramount Pictures, Hasbro, Di Bonaventura PicturesЖанр: фантастика, боевик, триллер, приключенияРежиссер: Майкл БэйАктеры: Марк Уолберг, Энтони Хопкинс, Джош Дюамель, Жан Дюжарден, Питер Каллен, Стивен Мерчант, Изабела Монер, Аллен Феникс, Джеррод КармайклПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанские, португальскиеПродолжительность: 02:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF78954941AAE124508307A099478ED7A6E9730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064980   (418573) от 23.10.2016
+
+В долине насилия / In a Valley of Violence (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бродяга по имени Пол, которому нечего терять, стремится отомстить бандитам, убившим его лучшего друга.Производство: США, Blumhouse Productions, Reel Chefs CateringЖанр: ВестернРежиссер: Тай УэстАктеры: Карен Гиллан, Итан Хоук, Таисса Фармига, Джон Траволта, Берн Горман, Джеймс Рэнсон, Тоби Хасс, Ларри Фессенден, Харрисон Суини, Джампи ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70441417BC445DFC25DB88CDCED96C56AD5EA955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065630   (418322) от 23.10.2016
+
+Абсолютная власть / Imperium  (2016) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Агент ФБР под прикрытием внедряется в банду нео-нацистов для предотвращения теракта. Каково это - жить каждый день в потоке насилия и жестокости, отстаивать свое право кулаками, выбрить череп и закрыть душу? Что такое нео-нацизм -это не только хулиганы и скинхеды, но и благополучные господа в дорогих костюмах, готовые уничтожить город ради идеи.Производство: СШАЖанр: триллер, драма, криминалРежиссер: Даниэль РагуссисАктеры: Дэниэл Рэдклифф, Тони Коллетт, Трэйси Леттс, Сэм Трэммелл, Нестор Карбонелл, Крис Салливан, Сет Нумрик, Павел Шайда, Девин Друид, Берн Горман, Адам Мейер, Роджер ЙоусонПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0A45C28A41829478E4EDFD07EAEBBD62C4D80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064987   (418308) от 23.10.2016
 
 Только правда / The Whole Truth (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3A110C4FB22A75CF1990668AEB91CC3C7A896BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169191   (402079) от 28.09.2017
-
-Человек-паук: Возвращение домой / Spider-Man: Homecoming (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402079.jpg" />
-</div>
-
-
-###  Подробнее
-
-После исторической встречи с командой Мстителей Питер Паркер возвращается домой, стараясь зажить обычной жизнью под опекой своей тёти Мэй. Но теперь за Питером приглядывает ещё кое-что… Тони Старк видел Человека-Паука в деле и должен стать его наставником. Когда новый злодей Стервятник угрожает уничтожить всё, что дорого Питеру, приходит время доказать всем, что (   Читать дальше...   )Производство: США, Columbia Pictures, Marvel Studios, Pascal PicturesЖанр: Фантастика, боевик, приключенияРежиссер: Джон УоттсАктеры: Том Холланд, Роберт Дауни мл., Майкл Китон, Мариса Томей, Джон Фавро, Джейкоб Баталон, Зендея, Лора Хэрриер, Тони Револори, Дональд Гловер ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DF0D343CC98E41553FEDD7BBD56BC17CC7C9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169857   (401129) от 29.09.2017
-
-Ветреная река / Wind River (2017) WEBRip [H.264/720p-LQ] [EN / KOR Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401129.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пустыне на территории индейской резервации «Ветреная река» егерь Кори Ламберт находит изувеченное тело молодой девушки. Опытный охотник с трагическим прошлым, он берется помочь в расследовании этого дела агенту ФБР Джейн Бэннер, которая оказывается в мире, полном загадок и насилия. Но смогут ли они противостоять зловещим силам этих мест, где сама природа пропитана (   Читать дальше...   )Производство: Великобритания, Канада, США / Acacia Filmed Entertainment, Film 44, Ingenious MediaЖанр: Криминал, Драма, ДетективРежиссер: Тейлор ШериданАктеры: Джереми Реннер, Элизабет Олсен, Джон Бернтал, Келси Эсбиль, Джулия Джонс, Тео Брионес, Апесанахкват, Грэм Грин, Танту Кардинал, Эрик Ланж ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейский (вшитые, неотключаемые)Продолжительность: 01:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B078D958DBE5B4275164F739F0E777F1500D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170146   (400383) от 30.09.2017
-
-Белстоунский лис / The belstone fox (1973) BDRip [H.264/720p] [EN / Rus, En Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм является экранизацией книги Дэвида Рука "Баллада о Белстоунском Лисе". Самое странное, что могло случиться с осиротевшим лисенком - это быть принятым и воспитанным в семействе фоксхаундов, вместе со щенками своих злейших врагов. Особенно подружился лисенок Таг со щенком по имени Мэрлин. Владелец своры, мистер Кендрик, воспринимает это как великолепную (   Читать дальше...   )Производство: Великобритания, Pinewood Studios, The Rank OrganizatioЖанр: ДрамаРежиссер: Джеймс Хилл / James HillАктеры: Эрик Портер, Джереми Кемп, Билл Треверс, Рейчел Робертс, Хезер Райт, Дэннис ВатерманПеревод: ОтсутствуетСубтитры: русские (полные), английские (полные)Продолжительность: 01:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110FB612D71BFE2C32841A022B494249DCE902D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

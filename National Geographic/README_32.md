@@ -1,3 +1,29 @@
+###  Публикация: 1265736   (272974) от 29.11.2018
+
+NGW: Голодное нападение / Striker (2007) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта история о кратком, но смертельном мгновении природы. Оно длится всего четверть секунды, но вызывает очень серьёзные изменения. Речь пойдёт об атаке гремучей змеи. Любой, кого когда-либо кусали - знает, чем это грозит. Но жизни можно спасти, если мы поймём, что стоит за этим броском...Производство: Великобритания, США, BBC Wildvision Production, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F73AE71854E0DADEDD91778E13886208F6CCF35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337898   (271443) от 13.11.2019
 
 NGW: Последний рай орангутанов / The Last Orangutan Eden (2015) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG: Лики Власти / Icons of Power (2006) HDTV [H.264/1080i-LQ] (фил�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ NGW: Династия дельфинов / Dolphin Dynasty (2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ NG. Американская мафия изнутри / Inside the American Mob
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ National Geographic. Американская мафия изнутри / Inside
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG: Невероятное путешествие Хаббла / Hubble's Amazin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +188,7 @@ NG: Марсоход Curiosity / Curiosity. Life of a Mars Rover (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +214,7 @@ NG. Место жительства - Марс (Заселение Марса) /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +240,7 @@ NG: Чудища морей. Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG: С точки зрения науки: Апокалипсис каменно
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ NGW. Дикая природа Средиземноморья: Последни�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ NGW: Дикие места Африки. Битва полов / Africa's Wild S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +345,7 @@ NG. Экстремальный Китай. Подземный Ханжонг / E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +371,7 @@ NGW: Изгои среди животных (Животные-разбойник
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +397,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -397,7 +423,7 @@ NG: Последняя львица / The Last Lioness (2009) HDTVRip 720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -423,7 +449,7 @@ NG: История о нас с Морганом Фрименом / The Story of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -449,7 +475,7 @@ NG: Охотники за вирусами / Virus Hunters (2008) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -475,7 +501,7 @@ NG: Известная Вселенная. У Пределов Познания 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -501,7 +527,7 @@ National Geographic: Острова. Галапагосы / Islands. Galapagos (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -527,7 +553,7 @@ NG: ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -553,7 +579,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -579,7 +605,7 @@ NG. Настоящие Красные хвосты / The Real Red Tails (2024) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -605,7 +631,7 @@ NG. Ангкор-Ват. Жемчужина Древней Азии / Glories Of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -631,7 +657,7 @@ NG: Титаник: Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -642,34 +668,6 @@ NG: Титаник: Заключительное слово с Джеймсом 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B063E87543B8BF32460FF4077910AE90BB1BEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 130956   (252756) от 13.05.2012
-
-NG: Труднейший в мире ремонт / World's toughest fixes (2008) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлеченный романтик и опытный монтажник-высотник Шон Райли в поисках острых ощущений помогает инженерам провести серьезнейший ремонт на крупных промышленных объектах.
-Требуется установить новую турбину для реактора на атомной электростанции? Круизный лайнер нуждается в замене двигателя?
-Когда на крупных объектах возникают серьезные проблемы, их устранение часто требует таких же серьезных по своему масштабу решений. Подобный ремонт требует гораздо больших усилий, чем обычная замена трубопровода. Опытный специалист-монтажник и герой нашей программы Шон Райли на своем опыте узнает, что значит справиться с технической проблемой, возникшей на таком крупнейшем промышленном объекте, как атомная электростанция или высоковольтные линии электропередач. Он встречается со специалистами, на которых лежит ответственность за выполнение этой сложнейшей задачи. Ремонтник и монтажник по профессии Райли, обуреваемый страстью к приключениям, бесстрашно спускается на вертолете на опору ЛЭП и, привязав себя к проводам действующей линии (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 47 минут каждая серия
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

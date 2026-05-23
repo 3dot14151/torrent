@@ -1,29 +1,3 @@
-###  Публикация: 1170113   (400190) от 30.09.2017
-
-FIFA 18 Legacy Edition (2017) [PS3] [EUR] 4.21 [Repack / 1.02] [Ru/Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждут великолепный игровой процесс и непревзойденная реалистичность, а также обновленные формы и составы, улучшения режима карьеры, FIFA Ultimate Team — и многое другое.Тип издания: RepackРазработчик: EA VancouverЖанр: Sports, SoccerЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEFE846E426635B20F3EE06E197E67042B01052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170097   (400127) от 30.09.2017
 
 FIFA 18 Legacy Edition (2017) [Xbox360] [PAL] 17349 [Freeboot] [License] [Multi]
@@ -32,7 +6,7 @@ FIFA 18 Legacy Edition (2017) [Xbox360] [PAL] 17349 [Freeboot] [License] [Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +32,7 @@ Doom 3 BFG Edition [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +64,7 @@ PRO EVOLUTION SOCCER 2013 [PSP] [RUS/MULTI5] [ISO] [FULL] (2012)
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +90,7 @@ Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +116,7 @@ Borderlands 2 [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +142,7 @@ Ubisoft Triple Pack: Outland, From Dust, Beyond Good and Evil HD [XBOX360] [En] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +169,7 @@ Avatar: The Legend of Aang - The Burning Earth [Wii] [PAL] [Multi 2] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +195,7 @@ Epic Mickey 2 : The Power Of Two [Xbox 360] [ENG] [RegionFree] [LT+3.0/15574] (2
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -251,7 +225,7 @@ The Legend of Zelda: A Link to the Past [Wii] [Virtual Console] [RUS] [Pal] (200
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -280,7 +254,7 @@ Call of Duty: Black Ops 2 [Xbox 360] [ENG] (RegionFree) (LT+2.0/15574) (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +281,7 @@ One Piece: Pirate Warriors [PS3] [ENG] [FIXED FOR 3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -335,7 +309,7 @@ Pro Evolution Soccer 2013 [PS3] [RUS] [PAL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -361,7 +335,7 @@ God Eater 2: Rage Burst (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/Multi
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -387,7 +361,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +387,7 @@ HITMAN: Game of the Year Edition / HITMAN: издание «Игра года» 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +413,7 @@ The Wolf Among Us (2014) [PSVita] [USA] 3.60 [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +439,7 @@ Project Zero: Maiden of Black Water / Fatal Frame: Maiden of Black Water (2015) 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +468,7 @@ TANK! TANK! TANK! (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +496,7 @@ Syberia 2 / Сибирь 2 (2015) [Xbox360] [RegionFree] 17349 [Freeboot] [Unoff
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -548,7 +522,7 @@ Crypt of the NecroDancer (2016) [PSVita] [EUR] 3.65 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,7 +548,7 @@ The Amazing Spider-Man/ Новый Человек-Паук [PS3] [FullRUS] [PAL]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +578,7 @@ Double Dragon Neon [PS3] [ENG] [NTSC] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -630,7 +604,7 @@ Legend of the Guardians: The Owls of Ga'Hoole (2010) [PS3] [EUR] 3.30 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -656,7 +630,7 @@ How to Train Your Dragon (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -682,7 +656,7 @@ Warp [PS3] [PSN] [ENG] [NTSC] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -693,6 +667,32 @@ Warp [PS3] [PSN] [ENG] [NTSC] (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B2E61A84ECCF070ED55422290D87942378311D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833947   (379805) от 24.10.2014
+
+F1 2014 [PS3] [EUR] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Почувствуйте всю мощь турбированных болидов F1 в самой доступной игре серии Formula 1. F1 2014 включает в себя все болиды, гонщиков и треки сезона 2014 года, в том числе и новые трассы, расположенныеТип издания: ЛицензияРазработчик: CodemastersЖанр: Racing / Simulator / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636E21AD7DC849D23EAF804F280C07249E80BD66
 ```
 
 https://mybot314.ru/tekegram_catalog/

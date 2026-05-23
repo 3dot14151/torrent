@@ -1,22 +1,25 @@
-###  Публикация: 1236881   (552226) от 23.07.2018
+###  Публикация: 1306693   (555253) от 08.06.2019
 
-Папа-мама гусь / Duck Duck Goose (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+Witchfinder General - Buried Amongst The Ruins (2007) [FLAC|Lossless|image + .cue] <Doom Metal>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Пэм — веселый и самовлюбленный неудачник, который постоянно попадает в нелепые ситуации и подвергает свою родню опасности. Ему всегда удавалось избежать наказания, но не в этот раз…. Из-за полученной травмы крыла, неудачливый эгоист упал на землю, где не сумел благополучно приземлиться. Рухнув вниз, он чуть было не задавил двух маленьких утят. Несмотря на свой скверный (   Читать дальше...   )Производство: Китай, США / Original ForceЖанр: Мультфильм, Приключения, Комедия, СемейныйРежиссер: Крис ДженкинсПерсонажи: Джим Гэффиган, Зендея, Лэнс Лим, Грег Прупс, Наташа Леджеро, Дидрих Бадер, Регги Уоттс, Карл Райнер, Стивен Фрай, Крэйг Фергюсон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, датские, немецкие, испанские, финские, французские, норвежские, голландские, португальские, шведские, тайские, китайскиеПродолжительность: 01:32:16
+01. Soviet Invasion
+02. Rabies
+03. R.I.P.
+04. Satan's Children(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:38:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AE534339F353DA31ACA731D02F63520C14AD396
+magnet:?xt=urn:btih:29FCCDA16CC19981F2133BEA3B059AEA5873A135
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +27,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237008   (552225) от 23.07.2018
+###  Публикация: 1306691   (555252) от 08.06.2019
 
-Ольга Копылова | Тело как игрушка. Книга, которая поможет справиться с симптомами ВСД, неврозом и укротить психосоматику (2018) [PDF]
+Witchfinder General - Resurrected (2008) [FLAC|Lossless|image + .cue] <Doom Metal>
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Все мы слышали термин психосоматика, но зачастую мы даже не подозреваем, насколько всемогущей она может быть. Что на самом деле кроется за диагнозом вегето-сосудистая дистония? Каким образом можно приручить психосоматику или хотя бы договориться с ней?
+01. The Living Hell
+02. The Gift Of Life
+03. Final Justice
+04. Bryn-Y-Mor(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7BD6E91A4D35221EDF13A413DA4041D14D32C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307227   (555251) от 08.06.2019
+
+Ripperton - Contrails (2019) ESP Institute [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. First Snow (05:33)
+ 02. Pendant Qu'ils Dorment (06:34)
+ 03. Ghetto Berlino (08:26)
+ 04. Lonely Walk (04:32)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 02:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39EE59F4217E16F348DE4C25457E6AAD17B94AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307147   (555250) от 08.06.2019
+
+Журнал | Drive! [USA] №7 (июль 2019) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Получайте удовольствие от своего автомобиля, пользуясь автомобильным источником № 1 в Америке - освещая тысячи шоу, технические статьи с инструкциями и новости из форумов для знаменитостей.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8E724A1CD235CF3221F8F2F6A9C69C635BE1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307213   (555249) от 08.06.2019
+
+Журнал | Truckin’ Life [AU] №6 (июнь 2019) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Truckin 'Life - это лучший дорожный журнал, в котором рассказывается о грузовиках, водителях, политических проблемах, истории, образе жизни, интересах и увлечениях любого, кто занимается автопробегом.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8DC3BB3AD760EF75B971DA0FCBAD6BA93ADFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307121   (555248) от 08.06.2019
+
+В. Н. Колбановский | Любовь, брак и семья в социалистическом обществе (1948) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нормальный быт социалистической семьи является одной из важнейших гарантий высокой продуктивности труда каждого члена этой семьи — мужчины и женщины.
 
-Перед вами уникальная книга - исследование психосоматических заболеваний, исходя из реальных научных фактов. Вас (   Читать дальше...   )Жанр: Здоровье, НеврологияФормат: PDF
+Нельзя отделять вопросы быта, семьи от вопросов всей нашей политики и экономики: они очень тесно связаны.
+(   Читать дальше...   )Жанр: История, политология, культурологияФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57782914AF862E1629EB916DCFFE6EDAC41DB926
+magnet:?xt=urn:btih:747BD1FF128D3DAF4E38E375FAB81C1C1CC37CA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,26 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237476   (552223) от 23.07.2018
+###  Публикация: 1307125   (555246) от 08.06.2019
 
-Мэттью Скарпино | Двигатели для моделистов (2018) [DJVU]
+Футбол. Лига Наций УЕФА 2018-2019. Финал 4-х. 1/2 Финала. Португалия — Швейцария (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Научная и техническая литература
->>Техническая литература
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Моделирование немыслимо без электродвигателей! Они намного сложнее остальных компонентов, используемых в моделировании, но эта книга поможет вам разобраться в их устройстве и принципах функционирования. Научившись управлять электродвигателями, вы откроете для себя новые горизонты в конструировании электронных устройств.
-В отличие от остальных изданий, посвященных (   Читать дальше...   )Жанр: Моделизм, электротехникаФормат: DJVU
+05 июня 2019, среда. 21:45 МСК
+Лига Наций УЕФА 2018-2019. Финал 4-х.
+1/2 Финала.
+Португалия — Швейцария(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:49:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DE0C1EFC49BC231054B34E1E4CF238501816024
+magnet:?xt=urn:btih:3187898ECEB1132B225DEB1E59CBEC39B291D4AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237373   (552221) от 23.07.2018
+###  Публикация: 1307150   (555245) от 08.06.2019
 
-Генезис 2.0 / Genesis 2.0 (2018) DVB [H.264/1080i-LQ]
+Журнал | Fast Ford [UK] №7 (июль 2019) [PDF] [En]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-На далеких островах северных широт, в условиях вечной мерзлоты охотники за трофеями заняты поисками бесценных сокровищ «черного» рынка — бивней доисторических мамонтов. Одна из таких экспедиций обнаруживает прекрасно сохранившиеся останки древнего зверя. Поразительная находка вызвала интерес в биотехнологическом мире. Фрагменты животного с живыми клетками доставляют (   Читать дальше...   )Телекомпания: Швейцария, Китай, Россия, Южная Корея, США / Christian Frei FilmproductionsЖанр: Документальный, История, ФаунаПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:52:57
+Fast Ford - журнал для владельцев и потенциальных покупателей автомобилей Ford, для членов их семей, друзей и знакомых, а так же для всех людей, которых интересует производитель Ford.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F95CF9554DE4D9D5594478EDA28D51354CFE3228
+magnet:?xt=urn:btih:6A06A99BAD3F8F55C6D3E69AE5F6C39B6F469F23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,21 +221,472 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237288   (552213) от 23.07.2018
+###  Публикация: 1307152   (555244) от 08.06.2019
 
-DxO PhotoLab 1.2.1.3131 RePack by KpoJIuK [Multi/Ru]
+Журнал | Australian Muscle Car [AU] №5 (май 2019) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Австралийский Muscle Car (AMC) посвящен сохранению легенды мускул-кар и автоспорта.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B35B32C81AAD89FE49A5ACB9F7F49FCED99E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307218   (555243) от 08.06.2019
+
+Журнал | VW Camper & Bus [UK] №6 (июнь 2019) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Журнал VW Camper & Bus - ведущее британское издание, посвященное всему, что связано с VW Transporter, начиная с разделенным кузовом T1 Bus и заканчивая сегодняшним более современным T5.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2E3291CB716F36FCAAAEFD673C2FB4C8858B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307117   (555242) от 08.06.2019
+
+И. К. Дашковский | Мировой капитализм и план Дауэса (1925) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+Предлагаемая работа была написана еще в феврале месяце тек. года, но задержалась в печати. При пересмотре корректуры пришлось в большинстве случаев ограничиться освежением цифрового материала и кое-какими дополнениями фактического характера.
+(   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4647ACCC1A61FE990F6292165CC3A7BC39BBFBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307247   (555241) от 08.06.2019
+
+Футбол. Чемпионат Европы 2020. Отборочный турнир. Превью к 3 - 4 туру (2019) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отборочный турнир ЕВРО-2020 — это футбольный турнир, который проводиться с марта 2019 года по март 2020 года, чтобы определить 24 мужских сборных УЕФА, которые выйдут в финальный турнир Чемпионат Европы по футболу 2020.
+Превью к 3 - 4 туруТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DA265FBC16987E7581EDA6A428A11F5687CDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307128   (555240) от 08.06.2019
+
+Футбол. Лига Наций УЕФА 2018-2019. Финал 4-х. 1/2 Финала. Нидерланды — Англия (2019) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+06 июня 2019, четверг. 21:45 МСК
+Лига Наций УЕФА 2018-2019. Финал 4-х.
+1/2 Финала.
+Нидерланды  — Англия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9337C07BE92367E45B0A73265CC9581A867F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307242   (555239) от 08.06.2019
+
+Black Lung - The Great Manipulator (2019) Metropolis [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, IDM, Electro>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation Of The Method (06:49)
+ 02. Roth (06:00)
+ 03. The Great Manipulator (05:51)
+ 04. The Crown Family Theme (04:51)(   Читать дальше...   )Жанр: Experimental, Ambient, IDM, ElectroПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F4763451027C29A4DF98E439FCA943C0BFE1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307292   (555238) от 08.06.2019
+
+Линдси Карри | Странное происшествие на Тенистой улице (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Переезд, смена школы, новый дом – это всегда сложно. Особенно если раньше ты жил в солнечной Флориде, а теперь – в дождливом Чикаго.
+Тесса Вудвард очень скучает по лучшей подруге, пляжу и океану. Она ещё не успела завести новых друзей и никак не может привыкнуть к своему дому на Тенистой улице. Да и как можно! Пропавшие коробки, открытые ящики комода, необъяснимые (   Читать дальше...   )Жанр: Современная проза, Книги для подростков, МистикаПеревод: В. ВладимировФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6DCB6C442D7EE6191C4E1DEF1BEFC3B44856B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307203   (555236) от 08.06.2019
+
+Журнал | BMW Car [UK] №7 (июль 2019) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+BMW Car- журнал для владельцев и потенциальных покупателей автомобилей BMW, для членов их семей, друзей и знакомых, а так же для всех людей, которых интересует немецкое качество и высокие технологии, воплощенные в автомобилях BMW. Яркость, насыщенность, привлекательность и интересность - это то, чем должны привлекать читателей глянцевые страницы издания по задумке (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A3EA45138262FBE49EE66181C63B8499D8E72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307310   (555235) от 08.06.2019
+
+Angelspit - Larva Pupa Tank Coffin (2010) [FLAC|Lossless|tracks + .cue] <Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Now (Angelspit Remix) (4:23)
+ 02. Fink (Noir du’Soleil Remix) (4:46)
+ 03. Twenty6hundred (Original Angelspit Track) (3:10)
+ 04. Ditch the Rest (Angelspit Remix) (4:19)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBCF2FBE26AECA2759D26A01CE2177D6391447A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307158   (555231) от 08.06.2019
+
+Формула 1. Сезон 2019. 7-й Этап. Гран-при Канады. Свободная практика 2 (07.06.2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+07 июня 2019 года, пятница. 21:00 МСК
+70-й сезон Формулы-1 2019 года
+7-й Этап. Гран-при Канады. Монреаль (Канада)
+Свободная практика 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16425FC15DBE66A33152D73F34684A1D86FE0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307124   (555230) от 08.06.2019
+
+Футбол. Лига Наций УЕФА 2018-2019. Финал 4-х. 1/2 Финала. Португалия — Швейцария (2019) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+05 июня 2019, среда. 21:45 МСК
+Лига Наций УЕФА 2018-2019. Финал 4-х.
+1/2 Финала.
+Португалия — Швейцария(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAEA498E016DBBDE06C917AB532D07521F8D14CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307245   (555229) от 08.06.2019
+
+Журнал | 5 Колесо №6 (314) (июнь 2019) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей.В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EE388E26C09FB6110E2E83A1412E39B8B6E42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307236   (555228) от 08.06.2019
+
+Tom Adams - Particles (2019) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Particle X (A Sudden Memory) (01:14)
+ 02. Particle VI (Shadow & Light) (03:11)
+ 03. Particle V (02:09)
+ 04. Particle VI B (Navigators) (04:31)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Post RockПродолжительность: 00:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633E6F118A3FD2BDD4D0E78B735A32322F6EFB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307322   (555227) от 08.06.2019
+
+Angelspit - Cult Of Fake (2016) [FLAC|Lossless|tracks + .cue] <Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Thanks for Your Cooperation (4:00)
+ 02. Eat Volts (3:37)
+ 03. Cult of Fake (3:43)
+ 04. New Devil (2:56)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90EACA010904E735263FAB460CD5D8B0A4BCD1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307109   (555226) от 08.06.2019
+
+Plastic Surprise - Bang Bang (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Bang Bang (You Got The Money) (5:09)
+02. Disco Express (7:43)
+03. Got To Have Your Love (9:29)
+04. Hot Nights (6:02)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37F40B72D9D336118E0C42490C2930AFEBF0BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306708   (555224) от 08.06.2019
+
+Sopor Aeternus & The Ensemble Of Shadows - Sanatorium Altrosa (Musical Therapy For Spiritual Dysfunction) (2008) [FLAC|Lossless|tracks] <Modern Classical, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Consider This The True Meaning Of Love (Instrumental) (5:39)
+02.Architecture II (7:23)
+03.Shave, If You Love Me (Remix) (6:46)
+04.La Mort D'Arthur (Instrumental) (3:00)(   Читать дальше...   )Жанр: Modern Classical, DarkwaveПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D7F9B2A9D0554EE190D2BA80F65C3E4582CFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307325   (555223) от 08.06.2019
+
+Pessimist & Karim Maas - Pessimist & Karim Maas (2019) Pessimist Productions [FLAC|Lossless|WEB-DL|tracks] <Experimental, Industrial, Trip-Hop, Drone>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_552213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. A1 (03:55)
+ 02. A2 (03:45)
+ 03. A3 (03:29)
+ 04. A4 (01:01)(   Читать дальше...   )Жанр: Experimental, Industrial, Trip-Hop, DroneПродолжительность: 00:46:00
 
 ## Скачать торент
 ```bash
@@ -131,594 +698,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045391   (552212) от 27.08.2016
+###  Публикация: 1307194   (555221) от 08.06.2019
 
-Футбол. Чемпионат Испании 2016-2017. 1-й тур. Реал Сосьедад - Реал (21.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [ES]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552212.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 августа 2016, воскресенье. 21:15 МСК
-1-й тур
-
-Стадион: Аноэта (Сан-Себастьян, Испания) , 27 720 зрителей (86 % при вместимости 32 076)(   Читать дальше...   )Телекомпания: PartidazoЖанр: СпортЯзык озвучки: ИспанскийПродолжительность: 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E7F9A3F619205289F315F073F577330B1011E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044856   (552211) от 27.08.2016
-
-Футбол. Чемпионат Испании 2016-2017. 1-й тур. Гранада - Вильярреал (20.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552211.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 августа 2016, суббота. 21:15 МСК
-1-й тур
-
-Стадион: Лос-Карменес (Гранада, Испания) , 15 101 зритель (66 % при вместимости 23 014)(   Читать дальше...   )Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортЯзык озвучки: Русский (Алексей Иванов)Продолжительность: 01:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A9327AC0DAB1B348A85E04BC23A468C1688789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046400   (552210) от 27.08.2016
-
-VA - Epic Trance Weapons Vol. 6 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Epic Trance>
+Jadakiss - Kiss of Death (2004) [MP3|320 Kbps] <Hip-Hop, Rap>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. No Carrier  -  Previous Architecture  3:50
-02. Dreamy  -  What Did I Do (Emotional Mix)  8:34
-03. Derek The Bandit  -  Joburg Sunrise  8:00
-04. Fryonic  -  Augenblick  4:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Epic TranceПродолжительность: 02:18:23
+01.Intro
+02.What You So Mad At??
+03.Shine (feat. Snoop Dogg & DJ Quik)
+04.Bring You Down(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:03:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB91FBFD74F4CA7E5275CBB267970A1FD243815A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046402   (552209) от 27.08.2016
-
-VA - Seven Sessions Vol 2 (mixed by Frank Lamboy) (2016) [MP3|320 Kbps] <Chill Out, Deep House, Tech House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Lamboy - Seven Sessions, Vol.2 (Continuous Dj Mix) 55:04
-02. Taladianos - Circus Of Life 05:06
-03. Grass Is Greener - Clase Azul 05:54
-04. Susy Seven - No Holding Back 07:24(   Читать дальше...   )Жанр: Chill Out, Deep House, Tech House, Nu Disco, Funky, ClubПродолжительность: 01:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AF2686A5D4CBA5AF46AC7097B29A0DE4A71C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046729   (552208) от 27.08.2016
-
-VA - Ibiza Lounge Classics: 25 All-Time Favorites (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Tort - Chase the Sun - Musica Feliz Ibiza Beat Remix
-02. John Dahlback - Everywhere - D.O.N.S. Vs Tranquillo Chill Mix
-03. Greg Knight - Circle of Clowns - Original Mix
-04. Steen Thottrup - Missing U (A Tribute to the Sun) - Original Mix(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399C98C6F6FF2A98F4AB07E4BEA6A6396649AB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046277   (552207) от 27.08.2016
-
-VA - Sun Global Uplifting Trance Anthems (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Eray  -  Skyshock  7:53
-02. Kilu  -  Deep Ocean  8:41
-03. Marc Lener  -  Lunar (Adiano Remix)  5:40
-04. The North Works  -  It's Gonna Be Alright  4:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D04A48EE204BC3E8F3681BF5C9DF40588647919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046383   (552206) от 27.08.2016
-
-VA - Farewell Summer Tech House Tunes (2016) [MP3|320 Kbps] <Electronica, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronogramm - Snap 2 07:25
-02. Buer & Furfur - Mujeriego 06:46
-03. Tec77 - Perpetuum 07:26
-04. Rocketpunk - Outgoing Signal 07:45(   Читать дальше...   )Жанр: Electronica, HouseПродолжительность: 02:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6E4FA814FF539CC6F315C245C3EC7F3309301E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046305   (552205) от 27.08.2016
-
-VA - The Summer Is Magik (2016) [MP3|320 Kbps] <Trance, Progressive, Vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EC Twins  -  Compass  4:19
-02. Bobina & Kyle Richardson  -  Love is the Answer  3:10
-03. Bassanova  -  Lullaby  2:41
-04. Tiesto  -  Lethal Industry (KEVU Festival Remix)  4:23(   Читать дальше...   )Жанр: Trance, Progressive, VocalПродолжительность: 01:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC8CA0CC925CDC5F8D37FEAF14E2D57AF08EA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046529   (552204) от 27.08.2016
-
-Art Tatum - More Of The Greatest Piano Of Them All (1954, 1955) 2015, Poll Winners Records[FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet Lorraine [04:24]
- 02.Crazy Rhythm [02:59]
- 03.Isn't It Romantic? [04:36]
- 04.Indiana [03:06](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D944486265C43A4C9E4FA855CBE129FE0926E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046723   (552203) от 27.08.2016
-
-VA - Chillout Lounge Collection 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Befun - Temptation Crises [03:33]
-02. Angel Armony - Relaxed Poems [04:55]
-03. Debris of Theia - Cycle of Life [04:40]
-04. Taylor Befun - Paula's Theme [04:24](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E4A2C42C880090D00783A4403047C49BC99AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046502   (552202) от 27.08.2016
-
-VA - Dream City Lounge, Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Pearl - Indipendence Sound - Original Mix [04:20]
-02. Pianistico - Song Mama - Original Mix [05:05]
-03. Montecarlo Hotel - Immunion Day - Original Mix [04:09]
-04. Lido 3 - Pressione - Original Mix [05:26](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952314AAE92352F4F1FD914566A99349F45DEF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046746   (552201) от 27.08.2016
-
-Вести в 20-00. Большие Вести. Россия 1 (27.08.2016) HDTVRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: ТелепередачаПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD5D0D407B137319345AFC85A97CE91F6494F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046735   (552200) от 27.08.2016
-
-VA - When The Night Falls (25 Amazing Tunes) Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TLX 20 - Morder
-02. Key Of Dreams - You Don't Know
-03. Raffika Dionisio - Shell
-04. DJ Joseph B - Wanderin Star(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B7839F5EBA533A13B8689769D1F0ABAC745B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046189   (552199) от 27.08.2016
-
-Ученым удалось создать графеновый "искусственный атом"
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_552199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электроны, заключенные в "тюрьму" крошечной квантовой ловушки, ведут себя совершенно по иному, нежели их свободные собратья. Они могут находиться только на строго определенных энергетических уровнях (в квантовых состояниях), подобно электронам оболочек атома, именно по этой причине такие электронные ловушки называют искусственными атомами. Эти искусственные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046734   (552198) от 27.08.2016
-
-VA - When The Night Falls (25 Amazing Tunes) Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Formentera Quartett - Lover [03:46]
-02. Lounge Dreamers - Bora Bora [04:25]
-03. The X Lounge - Look [02:56]
-04. Square 22 - Pin [04:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA278BE5094CFAFD806F0C1C51CF1E2638FA2DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046337   (552197) от 27.08.2016
-
-VA - It's Vocal House 2 (2016)[MP3|320 Kbps] <House, Electronica>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bass Boom Deejays - Faded (Jason Parker Remix) 05:09
-02. Moomicoo - Don't Look Any Further (Franco Maldini Remix Edit) 03:01
-03. Dj Ferre & Sammy Love - We Are Friends (Sammy Love Deephouse Mix) 04:45
-04. Tbo & Vega - Teardrops (Patricio Amc Remix) 03:09(   Читать дальше...   )Жанр: House, ElectronicaПродолжительность: 01:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D902206180B5B4F1199A74A4DC53FB6A176DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046297   (552196) от 27.08.2016
-
-VA - Global DJ Broadcast - Top 20 August (2016) [MP3|320 Kbps] <Trance, House, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artisan  -  Love Is Divine (Original Mix)  7:08
-02. Nifra  -  Rebel (Original Mix)  6:02
-03. Lace Up  -  Caliber (Original Mix)  4:08
-04. Maor Levi & Ilan Bluestone  -  Dynamic  5:56(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 02:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F958B3B9DA7B9980556139CA7675B95C8C7BF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046504   (552195) от 27.08.2016
-
-VA - Dream City Lounge, Vol. 5 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Z Man - Loto (Original Mix) 03:02
-02. Man Drake - Trinity Soft (Original Mix) 05:33
-03. Midtempo Lovers - Neutral Wonder (Original Mix) 03:09
-04. Sand Rhythm - Lonely Moon Walk (Original Mix) 04:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A1E52B1BFC0A1917524DFC6387EA1C565B175E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046639   (552194) от 27.08.2016
-
-Секретные материалы 17. Думский пролог  (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто входил в масонскую ложу первой царской Думы? Николай II был испуган революцией и решил, что модель абсолютной монархии не сможет долго продержаться в империи. Были ли подорваны основы самодержавия с появлением российского парламента и почему театрального деятеля Сергея Дягилева называют «чиновником по особым поручениям»?Телекомпания: Россия, МирЖанр: Документальный, ТелепередачаРежиссер: Алла ДерюгинаПродолжительность: 00:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404A39C0C59C2C78C1EB4E2C26D0C33635559FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046653   (552193) от 27.08.2016
-
-Permute 2.2.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 августа 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F19A31CC7FA7AAAA0DCC5E3FAE0BF898EC74391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692295   (552171) от 23.08.2013
-
-Пиратская бухта: В удалении от клавиатуры / TPB AFK: The Pirate Bay Away from Keyboard (2013) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о The Pirate Bay (аббревиатура - TPB) - крупнейшем в мире торрент-трекере и его основателях. Сайт ThePirateBay находился на 75 месте по количеству посещений (по состоянию на 5 февраля 2012) в рейтинге Alexa. The Pirate Bay был запущен по инициативе шведской организации Piratbyrn (шведский «Пиратское бюро») в ноябре 2003 года, но с начала октября (   Читать дальше...   )Производство: SVT, Film i Skne, DR, NRK, BBC, VPRO, ZDF, Arte, Anagram Produktion, Final Cut for Real, Piraya Film A/SЖанр: ДокументальныйРежиссер: Саймон КлозеПеревод: Одноголосый закадровый, любительскийСубтитры: НетПродолжительность: 01:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64613AE20BBB95ACF3AF57CC1F06609285914F0F
+magnet:?xt=urn:btih:4B09478954426BBB033FE938BCBD609243904DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

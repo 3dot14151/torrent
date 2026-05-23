@@ -1,3 +1,107 @@
+###  Публикация: 1645148   (196026) от 08.07.2023
+
+The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Игра о тайне неизвестного, действие которой происходит на запретном острове, полном ужасов. Основанная на работах Г.Ф. Лавкрафта, история включает в себя многие из его самых известных творений. Игроки увидят мир глазами Эндрю, отца, ищущего свою потерянную дочь. Погружаясь всё глубже, вы столкнётесь с неопределимыми трудностями, которые заставят вас усомниться в (   Читать дальше...   )Тип издания: SceneРазработчик: Ares DragonisЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Греческий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Греческий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035ACB762F4E1429FB33A5A559DA530E31DB66E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637839   (195974) от 07.07.2023
+
+To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Вы играете за Рока Бейли, потрясающе красивого блондина, который систематически отказывается от всех ухаживаний. И на то есть веская причина: он упорно держится до того дня, пока ему не исполнится 20 лет. Однажды ночью всё меняется, когда его накачивают наркотиками и похищают возле джаз-клуба Zooty Slammer, после чего он просыпается в незнакомой больнице. Кто может (   Читать дальше...   )Тип издания: LicenseРазработчик: La Poule Noire, ARTE FranceЖанр: Приключение, Квест, ДетeктивЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813A56BD35E91AF3012389630F11761FCB6487E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630495   (195961) от 08.07.2023
+
+Stay Out of the House (2022) [Ru/Multi] (1.1.7) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Stay Out of the House предлагает пережить настоящий кошмар от лица хрупкой девушки. Играем за Роксану. После вынужденной остановки машины она отправилась на поиски своего водителя Брендона и наткнулась на старый дом. Женщина зашла внутрь и была оглушена кем-то неизвестным. После этого она проснулась в самодельной темнице. Задача геймера: сбежать из логова серийного (   Читать дальше...   )Тип издания: LicenseРазработчик: Puppet ComboЖанр: Экшны, Приключение, ХоррорыЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D356C10AAE0800C1C9D2ADC7F1405D1C55A933AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646701   (195684) от 16.07.2023
+
+GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Воплощайте страхи… Бойтесь воплощений. GYLT - мрачная история о том, как фантазии и реальность переплетаются в странном печальном мире, способном воплотить наяву ваши кошмары. Прячьтесь от страшных существ или сражайтесь с ними, чтобы преодолеть испытания этого жуткого мира. GYLT - это повествовательное приключение, сочетающее головоломки, стелс и экшен. События (   Читать дальше...   )Тип издания: SceneРазработчик: Tequila WorksЖанр: Adventure, PlatformerЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C63ACFEB295C174A698E8C84A7CE61983586A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646687   (195622) от 15.07.2023
 
 911: Cannibal (2023) [Ru/Multi] (Build 10864067) Repack Other s
@@ -6,7 +110,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Dark Pictures Anthology: Man of Medan (2019) [Ru/Multi] (Build 10739751/dlc)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +188,7 @@ OXENFREE II: Lost Signals (2023) [Multi] (1.2.14) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Life is Strange Remastered Collection (2022) [Ru/Multi] (11330282/11258280) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +266,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Frozen Garden (2023) [En] (Build 11771483) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719_1750_15
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Welcome to Kowloon (2023) [Ru/Multi] (Build 11855091) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (Build 11792639) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Scrap (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (0.169) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Greyhill Incident (2023) [Ru/Multi] (1.0.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 11965072) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Labyrinthine — кооперативная хоррор-игра с одино�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC71D978090BF7CE08C2AF2B7C858B0C8178BE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654763   (193928) от 22.08.2023
-
-Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юто был брошен своими родителями и вырос в приюте в Великобритании, прежде чем торговец по имени Такакура Ёсиоми усыновил его и привез в Японию. Он едва мог говорить на языке, но его поддерживали и любили две его новые сестры, веселая, но застенчивая Анзу, и спокойная, собранная Анри. Во время учебы в начальной школе у него также появились новые друзья: простодушная (   Читать дальше...   )Тип издания: SceneРазработчик: ALcotЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCFA0042E5ED5BE2E515677FE9CC2E438E8A87E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654956   (193865) от 23.08.2023
-
-Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой самурай Хироки поклялся умирающему мастеру, что защитит свой город и дорогих людей от любых угроз. Столкнувшись с трагедией, юноша должен исполнить долг и в одиночку отправиться в путешествие за гранью жизни и смерти, чтобы преодолеть себя и определить свою судьбу.Тип издания: RepackРазработчик: Leonard Menchiari, Flying Wild HogЖанр: Action, Adventure, ArcadeЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A70BE383996C256E1C6F079AEB7D88758E4CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655361   (193854) от 25.08.2023
-
-Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк и Дрейк сведены вместе неизвестными силами в заговоре, который угрожает им обоим. Живя в одной квартире, хотя им суждено никогда не встретиться, они должны работать вместе, чтобы раскрыть тайну, окутывающую их существование. Фрэнк - управляющий ветхим многоквартирным домом в Ориол-Сити, обеспокоенный тем, что он теряет рассудок и то немногое, что осталось от (   Читать дальше...   )Тип издания: SceneРазработчик: Appnormals TeamЖанр: Приключенческие игрыЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE066518432FF2869D12769AFCAAD6AA4D26D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655878   (193748) от 28.08.2023
-
-Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почувствуйте себя в шкуре Орбо! Бегайте, прыгайте и тренируйтесь в офисе своего босса, заводите новых друзей и раскрывайте ужасающие тайны компании, в которой вы работаете, в этом комедийно-сюрреалистическом 3D-платформере! Высокооктановое движение, которое легко изучить, но сложно освоить! 4 уникальных мира с секретными локациями, которые ждут своего открытия!Тип издания: SceneРазработчик: Feverdream SoftworksЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43689F76137817DCA4840557795D39FB1017E76
 ```
 
 https://mybot314.ru/tekegram_catalog/

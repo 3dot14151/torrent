@@ -1,3 +1,109 @@
+###  Публикация: 1355684   (982034) от 27.01.2020
+
+Валерий Шарапов | Самый страшный след (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Лето 1945 года. На северной окраине Москвы убит отец Илларион, священник местного прихода. По всем признакам это дело рук цыган, охотящихся за церковными ценностями. Сыщики МУРа Иван Старцев и Александр Васильков готовы принять эту версию, но есть одно «но»: в руке убитого священника обнаружена пуговица от старого мундира финского офицера. У цыган такой одежды нет. (   Читать дальше...   )Жанр: Исторический детективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01306696C5DCEAF3291CC18A578F62AE323D6D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972522   (981988) от 06.01.2016
+
+Эдгар Уоллес и др. | Похищенная картина. Убийство у школьной доски. Обожатель мисс Уэст. Рубины приносят несчастье (1993) [PDF, DJVU]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книгу составили еще не переводившиеся детективы знаменитого Эрла Стенли Гарднера «Обожатель мисс Уэст», Ежи Эдигея «Рубины приносят несчастье» и Стюарта Палмера «Убийство у школьной доски». В сборник вошел также детектив Эдгара Уоллеса «Похищенная картина».
+Читатель встретится не только с хорошо известными героями, такими, как адвокат Перри Мейсон, его очаровательная (   Читать дальше...   )Жанр: Классические зарубежные детективыПеревод: А. Патрикеев, Н. Стахеева, Ю. РоманенковФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198B840EFFD958A8AF8127F01A81EC0B89345113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972460   (981987) от 06.01.2016
+
+Джеймс Х. Чейз | Нас похоронят вместе [сборник] (1993) [PDF, DJVU]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Дж. X.Чейз — выдающийся мастер приключенческого жанра. Его произведения отличаются динамичностью сюжета, убедительностью психологических мотивировок, наличием ярких, запоминающихся образов.
+В книгу вошли три романа автора: «Нас похоронят вместе», «Фиговый листок» и «Я буду смеяться последним».Жанр: Классика зарубежного детектива, РоманФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67B94F5FE61498096580077C36B2CA647EA612E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972608   (981986) от 06.01.2016
+
+Кэрол Дуглас | Танец паука (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В жизнь примадонны вторгаются тени прошлого, и главная из них – знаменитая авантюристка, исполнительница «танца паука» Лола Монтес.Жанр: Классические детективы, Зарубежные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30890D18B09E3238D5943291FB343070AC8542D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972612   (981934) от 06.01.2016
 
 Кэрол Дуглас | Роковая женщина (2016) [FB2]
@@ -6,7 +112,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,110 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D041EF736740F067CA22F222AFB8C5B1CF8DA92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357168   (975537) от 02.02.2020
-
-Мэри Стюарт | И девять ждут тебя карет (2017) [PDF, FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая англичанка Линда Мартин приезжает во Францию, чтобы стать гувернанткой девятилетнего Филиппа, графа де Вальми. Её подопечный – владелец родового замка и имения, которыми управляет его дядя Леон. Линда чувствует в отношениях обитателей замка непонятную напряжённость и пытается защитить мальчика от давящей властности дяди и холодного равнодушия тётки. Внезапно (   Читать дальше...   )Жанр: Зарубежные детективы, Остросюжетные любовные романыПеревод: Рамин ШидфарФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE37C8AE8C97DD5E0DDC61A110A495585AC762D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357051   (975284) от 02.02.2020
-
-Джонатан Келлерман | Серия "Детективы профессора психологии" [6 книг] (2017 - 2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джонатан Келлерман – один из самых популярных в мире писателей детективов и триллеров. Свой опыт в области клинической психологии он вложил в более чем 40 романов, каждый из которых становился бестселлером New York Times. Практикующий психотерапевт и профессор клинической педиатрии, он также автор ряда научных статей и трехтомного учебника по психологии. Лауреат (   Читать дальше...   )Жанр: Детектив, Триллер, Про маньяковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA715EECE4788A75F3D69545FA5356F18E0733D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975052   (974461) от 13.01.2016
-
-Татьяна Казакова | Ничего себе пошутила (2015) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему-то все считают Светочку Птичкину глупышкой. Ее даже называют не по имени, а Птичкой, как бы намекая на то, что она, как глупый воробей, всегда умудряется влезть в какую-нибудь историю. Вот и в этот раз ей опять не повезло: она попадает в криминальную историю. Если бы Птичка знала, насколько опасной она станет, она не втянула бы в нее двух верных подруг. «Ничего (   Читать дальше...   )Жанр: Современные детективы, Иронические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB76CA9D1930CFAB0523DC3B38910745F815DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357493   (974327) от 03.02.2020
-
-Фергюс Хьюм | Зеленая мумия (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая английская деревушка вдруг оказалась в центре большой истории. Местный египтолог давно хотел заполучить легендарный артефакт – уникальную перуанскую мумию в зеленом саркофаге. Купить реликвию должен был ассистент ученого, которого тот отправил на Мальту. Но, вскрыв ящик, профессор обнаруживает в нем труп своего помощника. Полиция разводит руками. И за дело (   Читать дальше...   )Жанр: Детектив, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17081CD12AE21934122AEBF6226982B40ACF67CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

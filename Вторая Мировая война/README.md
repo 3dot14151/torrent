@@ -1,4 +1,57 @@
 https://t.me/izofen
+###  Публикация: 1870362   (1069105) от 
+
+Неизвестная война / Великая Отечественная / The Unknown War (1978) WEBRip [H.264/1080p] (серии 1-20 из 20) [handmade Remastered]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Великая Отечественная» (англ. The Unknown War — «Неизвестная война») — документальный телевизионный сериал советско-американского производства, вышедший на экраны в 1978 году. Фильм рассказывает об участии СССР во Второй мировой войне и рассчитан на западного зрителя, для которого события на Восточном фронте были настоящей «неизвестной войной».
+Режиссёр (   Читать дальше...   )Производство: СССР, США / Центральная ордена Ленина и ордена Красного Знамени студия документальных фильмов при участии в/о «Совинфильм» по заказу Air Time InternationalЖанр: документальный, хроника, история, военныйРежиссер: Роман Кармен, Игорь Гелейн, Лев Данилов, Василий Катанян, Семён Киселёв, Леонид Кристи, Семирамида Пумпянская, Александра Рыбакова, Тенгиз Семёнов, Джемма Фирсова, Зоя ФоминаУчастники: Берт Ланкастер, Василий ЛановойЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:51:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EE67B7D8BFEDB57AE21E42D23BA705A644695C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870207   (1068653) от 
+
+Победа (2025) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Шестисерийный проект расскажет о самых масштабных сражениях Великой Отечественной войны: битве за Москву, Сталинградской и Курской битвах, блокаде Ленинграда, форсировании Днепра, освобождении Белоруссии, взятии Берлина. Фильм сочетает объективный рассказ об истории войны и личные воспоминания участников, которые будут перенесены на экран с помощью хроники и игровых (   Читать дальше...   )Производство: Россия | «Мостелефильм Дистрибьюшн»Жанр: Документальный, военныйРежиссер: Дарья Шумакова, Денис НосковУчастники: Максим Дромашко, Роман Мигурский, Вадим Мещеряков, Вячеслав Фёдоров, Олег Грисевич, Сергей Коломоец, Николай Пронин, Илья Клычев, Сергей Плахов, Екатерина Полякова и др.Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12017A77B6D6A9F176F71C8B6C01DA3D4192A236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860796   (1062097) от 22.03.2026
 
 Хатынь, 5 км (1968) WEBRip [H.264/720p]
@@ -7,7 +60,7 @@ https://t.me/izofen
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +425,7 @@ National Geographic. Нераскрытые тайны Второй мирово
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6939D239860BCCDD84E3A48701290E53186D0ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224594   (1016831) от 09.05.2021
-
-Исторический Парад Победы 24 июня 1945 года (24.06.1945) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Черно-белый фильм, снятый фронтовыми операторами Центральной студии документальных фильмов о параде Победы в Москве 24 июня 1945 года. Москва. Красная площадь. Правительство на трибуне: Сталин, Калинин, Жданов, Микоян, Ворошилов, Каганович, Буденный, Хрущев, Шверник, Булганин. Члены дипломатического корпуса, военные атташе, гости. Маршалы Советского Союза: Жуков, (   Читать дальше...   )Производство: СССР, ЦСДФЖанр: Документальный, военный парадРежиссер: Владимир Беляев, Ирина Венжер, Иосиф ПосельскийПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436743CDBA4F8BBD922B2B403B8F1EF27E68F3A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028724   (1009940) от 21.06.2021
-
-От Версаля до 22 июня (2008) DVB (Серии 1-8 из 8)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический авторский сериал о времени, предшествующем началу Второй мировой войны. Последние месяцы Первой Мировой войны. Из города Питтсбурга на фронт отправляется в качестве военного корреспондента журналист N. Он станет посылать в свой родной город репортажи, очерки, заметки с полей сражений и будет вести подробные записи происходящего.Телекомпания: Россия, К/ст. ГамаюнЖанр: Документальный, ИсторияПродолжительность: ~00:25:00 одна серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EDDF02DD1C05B3544CA7E7F050A4DB929E7B01
 ```
 
 https://mybot314.ru/tekegram_catalog/

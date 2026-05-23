@@ -1,4 +1,111 @@
 https://t.me/izofen
+###  Публикация: 1871816   (1069909) от 
+
+Коллектив авторов | Справочник металлиста [5 томов] (1976 - 1978) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В первый том вошли справочные сведения по единицам измерения, механике, гидравлике, теплотехнике, электротехнике, сопротивлению материалов, деталям машин. В нем учтены все изменения в действующих стандартах.
+Во втором томе приведены справочные сведения по физико-механическим и технологическим свойствам чёрных и цветных металлов, сплавов и неметаллических материалов, (   Читать дальше...   )Жанр: МашиностроениеИздательство: МашиностроениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF9D2CBAFC3342DC71329AEC832DE3539950CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871824   (1069895) от 
+
+Н.С. Ачеркан (ред.) | Справочник машиностроителя (в 6 томах) [6 томов] (1955 - 1956) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Справочник по машиностроению. Включает в себя: математику, механику, теорию механизмов и машин, сопротивление материалов, теплотехнику (тепловые свойства тел, техническая термодинамика, теплопередача) горение, топливо, смазочные материалы, химию, оптику и акустику, гидравлику, гидроаэрогазодинамику, электротехнику, взаимозаменяемость, валы, оси, муфты и т.д. Справочник (   Читать дальше...   )Жанр: МашиностроениеИздательство: Государственное научно-техническое издательство машиностроительной литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BB37A6513587CDAB9321C8B786E7FBD7F08933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871822   (1069893) от 
+
+В.И. Анурьев | Справочник конструктора-машиностроителя (5 издание) [3 тома] (1978 - 1979) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В первом томе приведены общетехнические сведения, справочные данные по материалам, шероховатости поверхности, допускам и посадкам, предельным отклонениям формы и расположения поверхностей, конструктивным элементам деталей, крепежным изделиям, стандартизированным и нормализованным деталям и узлам.
+
+Во втором томе приведены современные справочные сведения по расчету (   Читать дальше...   )Жанр: МашиностроениеИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D5080573F6F013DAB6B52D10E8E10CA83C0C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871871   (1069859) от 
+
+Н.С. Ачеркан (ред.) | Детали машин. Расчет и конструирование [3 тома] (1968 - 1969) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Со времени выхода второго издания книги «Детали машин. Сборник материалов по расчету и конструированию» прошло пятнадцать лет. Естественно, что при современных темпах развития теории и практики машиностроения некоторая часть материалов, отвечавших уровню развития науки и техники 1952—1953 гг., к настоящему времени в большей или меньшей части устарела и потребовала (   Читать дальше...   )Жанр: МашиностроениеИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:463F015FD5518810A2589D250751B9AC7380E830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866613   (1066361) от 21.04.2026
 
 Максим Домасев, Сергей Гнатюк | Цвет. Управление цветом, цветовые расчеты и измерения (Учебный курс) (2009) [PDF]
@@ -7,7 +114,7 @@ https://t.me/izofen
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +588,7 @@ Stephen Corda | Introduction to Aerospace Engineering with a Flight Test Perspec
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -509,7 +616,7 @@ Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to U
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -537,7 +644,7 @@ Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autono
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,7 +670,7 @@ Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Ap
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -574,116 +681,6 @@ This book presents an in-depth exploration of biopolymers in biomedical engineer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849396   (1054080) от 04.02.2026
-
-Технические нормы и правила (обновления) [01.01.2026] (2026) [HTML]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновления электронной базы документов "Технические нормы и правила" (01.01.2026)
-
-Данная сборка представляет собой структурированный архив нормативных и правовых документов, предназначенный для удобного офлайн-доступа, хранения и поиска информации.
-Для использования нужно открыть файл cat.html в директории prod.Жанр: Нормативные документыФормат: HTMLКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1CF40D83BBB50E500F895E4C1396ED76B273A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849228   (1053441) от 21.01.2026
-
-Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engineering. 3rd Edition (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053441.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book contains information obtained from highly regarded resources. Reprinted material sources are
-indicated. Copyright for individual articles remains with the authors as indicated and published under
-Creative Commons License. A Wide variety of references are listed. Reasonable efforts have been made
-to publish reliable data and views articulated in the chapters (   Читать дальше...   )Жанр: Электротехника, ЭлектроникаЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97A0726DBA059C8DEC0B6F69DB518E36361AFF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848499   (1052673) от 17.01.2026
-
-Г. Крон | Применение тензорного анализа в электротехнике (1955) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена применениям разрабатываемого автором метода расчета сложных электрических цепей и вращающихся электрических машин. В книге собраны в сокращенном и переработанном виде результаты опубликованных ранее работ автора. Материал основных глав изложен в форме, доступной для инженеров-электриков с обычной математической подготовкой. В конце книги приводится (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Государственное энергетическое издательствоФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B930ACC29B83CE3AE373C57AABB2EDDBADB1AAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848502   (1052658) от 17.01.2026
-
-Г. Крон | Исследование сложных систем по частям - диакоптика (1972) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена эффективному методу исследования сложных систем самой различной физической природы: электрических, механических, экономических и, возможно, биологических. Сложная система по определенным правилам расчленяется на некоторое число малых подсистем и на основе этого строятся топологические модели — графы исходной системы. Для каждой из подсистем в отдельности (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3959793CB378E7CC1AED07741FA3AAEB6D5C1E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 947240   (420874) от 16.10.2015
+
+И. В. Кузнецов (отв. ред.) | Науки о неорганической природе и религия (1973) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Основываясь на позитивной разработке вопросов, относящихся как к естествознанию нашего времени, так и к истории науки, а также на методологических и мировоззренческих принципах философии марксизма, авторы книги вскрывают несостоятельность религиозно-натурфилософских концепций о природе. Анализ осуществляется на обширном конкретном естественнонаучном материале.Жанр: История, религиоведение, науковедение, философия, физика, кибернетика, химия, естествознаниеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3F8107C1CE2E476FDBA32AEBBFC2CA03F0AE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947338   (420872) от 16.10.2015
+
+Станислав Вшолек | Рациональность веры (2005) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга профессора Станислава Вшолека - это исследование взаимоотношений разума и веры. Автор считает, что понимание рациональности веры ставит проблему взаимоотношения науки и богословия правильным образом: враждебность некоторых ученых и богословов - это не конфликт науки и религии. История разума и история веры - это одна история.Жанр: БогословиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E64DFF076BAAC2CB6CC8C59D0A61BE5A75DFEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946867   (420868) от 16.10.2015
+
+Т. В. Панфилова | Человек в мировоззрении Востока (1991) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Человек находятся в центре внимания большинства восточных учений. Благодаря специфике трактовки человека и его места в мире, ряд восточных учений пользуется устойчивой славой гуманистических. Познакомившись с этой книжкой, читатель узнает об особенностях некоторых восточных учений о человеке и может принять участие в обсуждении вопросов о том, что такое гуманизм (   Читать дальше...   )Жанр: История, религиоведение, философия, этика, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D32722CC1358626C5A3D9A55B6CBED81B8840E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946967   (420866) от 16.10.2015
+
+К. К. Габова (ред.) | Медицина против религии (1965) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+B далекое прошлое ушли те времена, когда церковь, ревниво охраняя религиозные догматы, жестоко расправлялась с передовыми умами. В наш век служители культа не предают анафеме ученых, - они вынуждены напрашиваться к ним в попутчики, давать им свое благословение. Слишком далеко шагнула вперед творческая мысль человека, и ее поступательное развитие трудно остановить. (   Читать дальше...   )Жанр: История, медицина, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203765810C30F790710D6C8565164AC2191AA818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947332   (420863) от 16.10.2015
 
 М. С. Беленький | Современный иудаизм (1972) [DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,112 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90A3F5A6D62D62A2BFC8C89B870C0611629062D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947364   (418259) от 17.10.2015
-
-М. И. Шахнович | Мифы о сотворении мира (1968) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опыт полувековой истории советского общества подтвердил прогноз, что преодоление религии — продолжительный процесс. Массовый отход трудящихся от религии произошел в результате глубоких изменений социально-экономических условий жизни, культурной революции, совершившейся за 50 лет Советской власти, и огромной идейно-воспитательной работы, которую вели Коммунистическая (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE041BD5F186544BDCCA7D536D0EFD046D6F2D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947722   (418258) от 17.10.2015
-
-Серафим Мелюхин | Можно ли предвидеть будущее? (1966) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каким образом предшествующие явления связаны с последующими, в какой степени прошлое предопределяет будущее и можно ли на основе знания всех причинных связей в настоящем определить все возможные следствия на будущее? Все эти и аналогичные им вопросы возникали с незапамятных времен, и их обсуждение всегда стояло в центре внимания науки и практики.Жанр: История, религиоведение, естествознаниеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69AC7F8DF0E1A7EDD87FBA415386ABBBF0D88F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947368   (418249) от 17.10.2015
-
-В. А. Мезенцев | Биография примет (1968) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогу перебежала черная кошка - быть неприятности. Разбилось зеркало - большое несчастье. Поговорить через порог - поссориться... Кто не знает этих примет, пришедших в наш век из далеких времен? Уже давно забыты причины, вызвавшие их к жизни, а нелепое суеверие все живет. Оно таится где-то в нашей памяти, рядом с огромным запасом полезных, нужных для жизни знаний, (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874928E38AFCF7500F89B769EB0AE8A817EC9505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947727   (418121) от 17.10.2015
-
-И. И. Акимушкин | Открытие «шестого чувства» (1964) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование «шестого чувства», или, вернее, «шестых чувств», охватывает широкий круг навигационных проблем – от простейших химических реакций до таких сложнейших средств, как природные сонары, эхолокаторы, радиолокаторы, поляроиды, «физиологические часы», солнечные компасы и замысловатые «хореографические» методы передачи информации, открытые у пчел.
-
-Лет пятнадцать (   Читать дальше...   )Жанр: История, религиоведение, естествознаниеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8211D9490AE4A78FF0553E3D3FBC5B9BDFD592AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

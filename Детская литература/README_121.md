@@ -1,112 +1,3 @@
-###  Публикация: 1055646   (485991) от 23.09.2016
-
-Т. Пиксасова и др. | Ладушки. Энциклопедия детского фольклора (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485991.jpg" />
-</div>
-
-
-###  Подробнее
-
-С первых дней своей жизни ребенок знакомится с прекрасным миром народной культуры. Мама заведет веселую игру в "Ладушки" и споет ласковую колыбельную песню, а бабушка одарит яркой россыпью прибауток и потешек.
-Прекрасное русское слово "пестовать" передаёт всю теплоту любящих родительских сердец. Пестушки - самые первые детские стихи, которые он (   Читать дальше...   )Жанр: Детская образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7C9A84EDCAE1E4CD809076D7BE924DCDA5B865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937795   (485940) от 16.09.2015
-
-Владимир Лифшиц | Ищи ветра в поле (1970) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485940.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сборнике, ребята вы можете прочитать и стихи, и три пьесы. А пьесы не только прочитать, но если они понравятся, то и поставить своими силами на школьной сцене.
-Пьеса "Картофельный Человек" написана для театр кукол, поэтому поставить ее можно лишь там, где в школе имеются самодеятельный кукольный тетр. Может быть, если в вашей школе его нет, стоит (   Читать дальше...   )Жанр: Стихи, пьесы, детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F21B9F2542C0CA1EBFB2069C222B31F425453E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405419   (485627) от 29.08.2020
-
-Анка Штурм | Всемирный экспресс. Тайна пропавшего ученика. Книга 1 (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история произошла одной звёздной ночью, когда тринадцатилетняя Флинн сидела на перроне заброшенной железнодорожной станции. Именно здесь два года назад пропал её любимый брат Йонте. За всё это время от него пришла одна-единственная открытка с изображением старинного поезда со странным названием «Всемирный экспресс». Так каково же было изумление Флинн, когда этот (   Читать дальше...   )Жанр: Зарубежная литература для детей/ФантастикаПеревод: Ольга ПолещукФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43859C8B37E5C8CE7FCD6DA2B0375E67F39C03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398929   (484897) от 29.08.2020
-
-А.В. Митяев | Рассказы о русском флоте (1989) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский флот совершал кругосветные плавания, открывал неведомые земли и воевал - защищал страну от врагов.
-В морских сражениях было одержано много славных побед. Никогда не забудутся имена мужественных адмиралов и отважных матросов прежнего времени. О некоторых из них и рассказывается в этой книге...
-
-Для младшего школьного возраста.Жанр: Познавательная литература, Исторические рассказыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D34DB0A02A3FF5D17B10399A07D6DEA0A977B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 237843   (484489) от 19.09.2010
 
 Ник Горькавый | Астровитянка [3 книги] (2008-2010] [FB2]
@@ -115,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -669,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -680,6 +571,113 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0267250D7CAA494EF2DEC0540449670DF7C7086C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822787   (480105) от 18.09.2014
+
+С. Могилевская | Чапаёнок (1961) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Повесть Софьи Могилевской о юном бойце Чапаевской дивизии Мите Горелове по прозвищу Чапаёнок.
+
+"Случалось им стоять с утра до ночи за прикрытием и ждать, когда кончится бой, чтобы покормить усталых и голодных бойцов горячей похлёбкой. Случалось мокнуть под дождём и страдать от солнца. Случалось под свист пуль отступать вместе с отрядом. Но это бывало редко. (   Читать дальше...   )Жанр: Детская прозаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2052C6952CE9CC69F5B8C927692D01696FFC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938621   (479996) от 19.09.2015
+
+Н.В. Тулупов (сост.) | Рассказы о животных (1923) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассказы и стихотворения о братьях наших меньших для самых маленьких.Жанр: Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462A7A295DF6AB502205D79A7D420FA4CF4D270E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938907   (479799) от 19.09.2015
+
+Галина Петровна Шалаева | Литературное чтение (2010) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данное издание является принципиально новым современным пособием, разработанным в соответствии с базовой программой для начальной школы, утвержденной Министерством образования и науки Российской Федерации. Программный материал сгруппирован по темам и представлен в доступной и увлекательной форме, а яркие цветные иллюстрации органично сопровождают текст, подключая (   Читать дальше...   )Жанр: Детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46074D105AF2891F17E25BA4149B890CD394146D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822495   (479764) от 18.09.2014
+
+Людмила Улицкая | Сто пуговиц (1983) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Маша замолчала на минутку, пока конфета ещё была во рту, а кот, тот на конфету и не посмотрел, только морду обиженную сделал. А Маша всё кричала, и Серёжа стал ей скармливать конфету за конфетой. Она хоть на немного замолкала после конфетки, а кот вообще не замолкал, и отогнать его от двери было невозможно.
+«Нет, не пущу», — твёрдо сказал Серёжа сам себе. Но… (   Читать дальше...   )Жанр: Детская прозаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9361192212EF75F234BEF3B8C42C448361D0D00E
 ```
 
 https://mybot314.ru/tekegram_catalog/

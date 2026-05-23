@@ -1,3 +1,83 @@
+###  Публикация: 1611075   (1041509) от 10.02.2023
+
+Autodesk AutoCAD 2023 Portable by conservator [Ru/En]
+
+>>След.
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD является мировым лидером среди решений для 2D- и 3D-проектирования. Будучи более наглядным, 3D моделирование позволяет ускорить проектные работы и выпуск документации, совместно использовать модели и развивать новые идеи. Для AutoCAD доступны тысячи надстроек, что позволяет удовлетворить потребности самого широкого круга клиентов.
+Представлены русская и английская (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10095D322D405CC27576428F456DD06A4BBBD67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616345   (1036387) от 02.03.2023
+
+Zuken CADSTAR 16.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Комплекс средств проектирования CADSTAR компании Zuken предоставляет одно из самых оптимальных решений по соотношению цена/производительность в мире САПР на платформе персональных компьютеров. Вся система в целом содержит полный набор необходимых инструментов и включает в себя средства схемного ввода, размещения, ручной, интерактивной и автоматической трассировки, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8570317F81064EDA191699D81661A34C7602A635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617132   (1035520) от 05.03.2023
+
+Proteus Professional 8.15 SP1 Build 34318 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Proteus Professional — пакет программ для автоматизированного проектирования электронных схем. Пакет представляет собой систему схемотехнического моделирования, базирующуюся на основе моделей электронных компонентов принятых в PSpice.
+Отличительной чертой пакета Proteus Professional является возможность моделирования работы программируемых устройств: микроконтроллеров, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A531AA6A190D9F4EC353499337F8D3CB7176D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444401   (1034593) от 01.02.2021
 
 Apowersoft CAD Viewer 1.0.3.1 Portable by Spirit Summer [Ru/En]
@@ -6,7 +86,7 @@ Apowersoft CAD Viewer 1.0.3.1 Portable by Spirit Summer [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +112,7 @@ OpenSCAD 2021.01 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +139,7 @@ Synopsys Synplify 2019.03 SP1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +165,7 @@ Golden Software Surfer 20.1.195 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +193,7 @@ Nemetschek Vectorworks 2020 SP1 build 512839 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +219,7 @@ ESRI ArcGIS Pro 2.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +245,7 @@ Pitney Bowes MapInfo Pro 17.0.3 r19 x64 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +271,7 @@ ESRI ArcGIS Pro + Addons 2.5 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +297,7 @@ Apowersoft CAD Viewer 1.0.4.1 RePack (& Portable) by TryRooM [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +323,7 @@ CorelCAD 2021.5 Build 21.1.1.2097 RePack by KpoJIuK [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -261,32 +341,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484050   (1006195) от 18.07.2021
-
-LiraLand LIRA-SAPR + SAPFIR (ЛИРА-САПР + САПФИР) 2015 R4 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многофункциональный программный комплекс ЛИРА-САПР, предназначен для проектирования и расчета строительных и машиностроительных конструкций различного назначения (программа расчета конструкций). Расчет выполняется на статические (силовые и деформационные) и динамические воздействия. Выполняется подбор или проверка сечений стальных и(или) железобетонных конструкций. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550E43AA209F50FE6E8177576957300662D4BB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457025   (1005356) от 25.07.2021
 
 Autodesk AutoCAD 2022 [En]
@@ -295,7 +349,7 @@ Autodesk AutoCAD 2022 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +375,7 @@ Blue Marble Global Mapper 17.0.5.123015 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +401,7 @@ Altera Quartus II 7.2 Build 175 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +427,7 @@ ProgeCAD Professional 2016 7.2 (16.0.10.23) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +453,7 @@ PowerSim Professional 9.0.3.464 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +479,7 @@ Abacom Electronics Software 31.01.2017 RePack (& Portable) by Robby [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -443,32 +497,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370308   (893156) от 29.03.2020
-
-КОМПАС-Штамп V5.6 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система "КОМПАС-Штамп" ориентирована на автоматизацию проектирования штампов различных конструкций для разнообразных операций холодной листовой штамповки (вырубка, пробивка, отрезка, гибка, отбортовка, формовка и т. д.). "КОМПАС-Штамп" не имеет ограничений ни на операции холодной листовой штамповки, для которых проектируются штампы, ни на конструкции (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84315B96C5559201032296DD8939D2E7ABA60416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373712   (878066) от 07.04.2020
 
 Autodesk AutoCAD Map 3D 2021 [Ru]
@@ -477,7 +505,7 @@ Autodesk AutoCAD Map 3D 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +531,7 @@ Autodesk AutoCAD MEP 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -529,7 +557,7 @@ Autodesk AutoCAD Plant 3D 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +585,7 @@ Autodesk AutoCAD Electrical 2021 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -583,7 +611,7 @@ Sprint-Layout 6.0 Portable [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +637,7 @@ Autodesk Inventor Professional 2017 Build 142 (x64) [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -635,7 +663,7 @@ MapInfo Pro 15.2.1 Build 224 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,32 +674,6 @@ MapInfo Professional – географическая информационна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D8AD8DCD969360E359BDC127072D64086497A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002465   (844344) от 02.04.2016
-
-MapInfo Pro 15.0 Build 18 (x86) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844344.jpg" />
-</div>
-
-
-###  Подробнее
-
-MapInfo Professional – географическая информационная система (ГИС), предназначенная для сбора, хранения, отображения, редактирования и анализа пространственных данных.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8B8020F156728123401EDBEDF2CC5B26C02CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

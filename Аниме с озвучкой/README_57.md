@@ -1,3 +1,107 @@
+###  Публикация: 1690603   (61651) от 27.03.2024
+
+Любовь с кончиков пальцев | Yubisaki to Renren | A Sign of Affection [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юки — самая обыкновенная студентка колледжа, лишь с той небольшой разницей, что она глуха. Языком жестов владеют не многие, и поэтому особенность девушки всегда была для неё преградой, ограничивавшей круг общения и возможностей. Но вот однажды она знакомится со старшекурсником Ицуоми, и её мир переворачивается с ног на голову. Его совершенно не смущает глухота девушки, (   Читать дальше...   )Производство: Япония / Студия Ajia-douЖанр: РомантикаРежиссер: Мурано ЮтаЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6031E2273D684C4D83A205705E2B3EB53CF6C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690336   (61577) от 28.03.2024
+
+Добро пожаловать в класс превосходства [ТВ-3] | Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 3rd Season | Classroom of the Elite III [2024, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Битва между классами закрытой школы "Кодо Икусей" продолжается! В новом сезоне нас ждёт ещё больше интересных испытаний, непримиримых противостояний, запутанных многоходовочек и захватывающих развязок. Нашим героям из класса "Ди" придётся сильно постараться, чтобы в следующем году заграбастать себе буковку попрестижнее. Каким бы гением ни был (   Читать дальше...   )Производство: Япония / Студия LercheЖанр: драма, повседневностьРежиссер: Киси СэйдзиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB37CDA4338717601B47DDCAAE7AD68ED433C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692489   (61555) от 28.03.2024
+
+Королева со скальпелем | Gekai Elise | Doctor Elise: The Royal Lady with the Lamp [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Двойной исекай с уклоном в медицину заказывали? Нет? А он будет! И не сосчитать, сколько невинных людей Её Кровавое Величество Элиза де Клоранс погубила в своей прошлой жизни! Поэтому, переродившись, она решила, что теперь она будет их спасать. А как это сделать проще всего? Правильно, посвятить себя медицине. И вот так, работая не покладая рук, она становится первоклассным (   Читать дальше...   )Производство: Япония / Студия Maho FilmЖанр: Комедия, романтика, фэнтезиРежиссер: Хабара КумикоЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778A319DCBE1020B8EB9DC21F4D9470BDADCC572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692288   (61548) от 28.03.2024
+
+Досанко-гяру чудо как милы | Девчонки с Хоккайдо чудо как милы | Dosanko Gal wa Namara Menkoi | Hokkaido Gals Are Super Adorable! [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Какой идеал девушки у ОЯШа здорового человека? Скромная, аккуратная отличница с длинными тёмными волосами! Вот и наш Цубаса, столичный паренёк, переехавший в маленький городок на Хоккайдо, постоянно себя в этом убеждает. Он ещё не подозревает, что однажды посреди белой морозной пустыни на одинокой остановке он увидит Её... Гяру... в опасно короткой юбке... без колготок... (   Читать дальше...   )Производство: Япония / Студия Silver Link, BladeЖанр: Комедия, романтика, повседневность.Режиссер: Минато МирайЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED0A54C10BC86DF44AEF8ED06E745FB01BA288F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693717   (61345) от 30.03.2024
 
 Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Злодейка 99 уровня: Да, я скрытый босс, но не повелительница демонов [2024, TV, 12 из 12] WEBRip 1080p rus+raw
@@ -6,7 +110,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Зл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Oroka na Tenshi wa Akuma to Odoru | Глупый ангел пляшет с де
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Hime-sama "Goumon" no Jikan Desu | Время пытки, принцесса | T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Shingeki no Kyojin: The Final Season - Kanketsu-hen | Attack on Titan: Final Sea
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sousou no Frieren | Sousou no Frieren | Фрирен, провожающая в 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Bleach: Sennen Kessen Hen Ketsubetsu Tan | Bleach: Thousand-Year Blood War - The
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Hachi-nan tte, Sore wa Nai deshou! | The 8th Son? Are You Kidding Me? | Вось
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +658,7 @@ NHK ni Youkoso! | Добро пожаловать в NHK [2006, TV, 24 эп.] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,111 +671,6 @@ NHK ni Youkoso! | Добро пожаловать в NHK [2006, TV, 24 эп.] DV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF802106A1D5536AC812EC8554E34589E519480A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623844   (55166) от 28.05.2024
-
-Путешествие аристократа в другом мире: На службе у богов, которые не ведают меры | Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волей случая Шино Казуя погибает, вступившись за девушку в магазине. Мгновение спустя Казуя осознаёт, что попал в место своей мечты – мир, где царит искусство меча и магии! И перерождается он никем иным, как третьим сыном аристократической семьи – Каином фон Силфордом. Уже в роли пятилетнего Каина он проходит церемонию крещения согласно традиции, после чего боги (   Читать дальше...   )Производство: Япония / Студия EMT Squared, Magic BusЖанр: Приключения, фэнтезиРежиссер: Накамура НориюкиЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Itashi, NeoNoir, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE30D29812C21D8A7D1590FA90A8D06815DE1CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726895   (54859) от 31.05.2024
-
-Мальчик и птица / Как поживаете? / Kimitachi wa Dou Ikiru ka / The Boy and the Heron [2023, Movie] TS 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик Махито сильно тоскует по своей матери и решает отправиться в рискованное путешествие в потусторонний мир. В иной реальности исход неминуем, а жизнь обретает новое начало.Производство: ЯпонияЖанр: аниме, мультфильм, драма, фэнтези, приключенияРежиссер: Хаяо МиядзакиАктеры: Сома Сантоки, Аимён, Кэйко Такэсита, Ёсино Кимура, Каору Кобаяси, Ко Сибасаки, Такуя Кимура, Дзюн Кунимура, Масаки Суда,Сёхэи ХиноОзвучка: Двухголосая любительская FumoDub (Makishima & S4NN3R)Язык озвучки: Русский, Японский, ИспанскийСубтитры: русские, английскиеПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F89B6A65818198D289A572E83EDBC863C8D4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706756   (54443) от 04.06.2024
-
-Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битва [ТВ-2] [2023, TV, 23 из 23] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Юдзи Итадори отличается от будней его сверстников. Начать с того, что парень отличается природным атлетизмом, так что с момента поступления в старшую школу ему приходится отбиваться от постоянных приглашений в спортивные клубы. А ещё его единственный родственник — сварливый и грубый дедушка — лежит в больнице, и Юдзи старается почаще его навещать. Именно поэтому (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Госёдзоно СётаЯзык озвучки: Японский, русский (Force Media, AniLibria, AniPlague, Jam Club, Studio Band, TVShows)Субтитры: Русские (AniLibria, Crunchyroll, CafeSubs)Продолжительность: 23 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667154   (54417) от 04.06.2024
-
-Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жизнь в ином мире [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54417.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти от неизлечимой болезни парень по имени Хираку воскресает в новом мире. Решив стать фермером и жить подальше от цивилизации, Хираку получает в распоряжение волшебный сельскохозяйственный инструмент, который по его желанию может превращаться в любое полезное орудие. Оказавшись в удалённом лесу, парень рьяно принимается за дело.Производство: студия Zero-G / ゼロジーЖанр: повседневность, фэнтезиРежиссер: Курая РёитиЯзык озвучки: Японский, русский (AniDub, AniMaunt)Субтитры: Русские (Dniwe, ItoTakashi)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370835DADE6130E1101ACBE7204BE2C37244F33
 ```
 
 https://mybot314.ru/tekegram_catalog/

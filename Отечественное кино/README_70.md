@@ -1,3 +1,107 @@
+###  Публикация: 1273623   (799282) от 03.01.2019
+
+Проводник (2018) WEB-DLRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня, девушка Катя, обладает мистическим даром: она видит призраков. Когда пропадает её сестра-близнец, девушка в одиночку бросается на поиски. В полиции настаивают, что сестры вообще  не существует, что она — плод Катиного больного воображения. Однако в процессе поисков сестры Катя понимает, что в городе орудует серийный маньяк, и сестра — одна (   Читать дальше...   )Производство: Россия, Мотор Фильм Студия, Пропеллер ПродакшнЖанр: Ужасы, ТриллерРежиссер: Илья МаксимовАктеры: Александра Бортич, Евгений Цыганов, Александр Робак, Вячеслав Разбегаев, Владимир Яглыч, Константин Мурзенко, Юрий Скулябин, Марта Тимофеева, Екатерина Рокотова, Василий БочкаревПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CE0C425B30FB569F61621D054A2846D0FEF06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121984   (799004) от 04.04.2017
+
+Огни большой деревни (2016) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Родина» в смертельной опасности. Ровно через неделю ее сравняют с землей. Спасти кинотеатр может только успешная премьера. За дело берется пара супергероев без суперспособностей. В их распоряжении — камера, девушка-ниндзя и Дмитрий Дюжев. Правда, он об этом еще не знает.Производство: Россия, ТПО РокЖанр: КомедияРежиссер: Илья УчительАктеры: Дмитрий Дюжев, Кирилл Фролов, Максим Емельянов, Анастасия Мытражик, Василий Кортуков, Юрий Быков, Тагир Рахимов, Карен Мартиросян, Кирилл Полухин, Анна ВоркуеваПеревод: Не требуется (Русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E669D40C65B7E3107CC79805E83BA94B65DF10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506867   (798906) от 02.11.2021
+
+Маруся фореva! (2020) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь двадцатичетырехлетнего Индейца рушится в одночасье, когда он узнает, что является отцом пятилетней девочки Маруси. Индеец не готов расстаться с успешной карьерой, холостяцкими встречами с друзьями и взять на себя заботу о маленьком ребенке, но со временем искренняя любовь дочери меняет Индейца. Едва не лишившись права воспитывать дочь, он находит способ оставить (   Читать дальше...   )Производство: Россия / Мотор Фильм СтудияЖанр: Комедия, мелодрамаРежиссер: Александр ГалибинАктеры: София Петрова, Кузьма Сапрыкин, Соня Присс, Кирилл Каганович, Филипп Бледный, Раиса Рязанова, Ирина Савицкова, Алина БулынкоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832B25D9FF8CC800F5CBFAC93C516EF2A0E2F7B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273917   (798727) от 04.01.2019
+
+Лера (2018) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Десятилетняя Лера находится на грани нервного срыва, после того, как в её семье происходит раскол. Постоянные скандалы родителей, насмешки и издевательства сверстников, приводят маленькую девочку на мост…Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Олег АндросовАктеры: Владимир Паршенков, Марина Ковалева, Игорь Костерин, Алина Мкртчан, Олег Андросов, Арина Ковалёва, Евгений Щербаков, Анастасия АгееваСубтитры: ОтсутствуютПродолжительность: 00:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2933EB59C3448BA389554D1114A7FB6FA91E08CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273974   (798702) от 04.01.2019
 
 Лео и Ураган (2017) WEBRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B49ABF50C6E93FCED6F876072B8B38FC74AADDE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385455   (797694) от 24.05.2020
-
-Аванпост (2019) HDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797694.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем что-то произошло. Связь с большей частью населенных пунктов Земли оборвалась. Космонавты передали с орбиты, что видят сверху небольшое пятно в Восточной Европе, по своим очертаниям напоминающее круг. То, что военные находят за границей этого круга, шокирует. В магазинах, в автомобилях, на дорогах, в зданиях больниц и вокзалов, повсюду - следы (   Читать дальше...   )Производство: Россия / 1-2-3 Production, TNT-Premier, Канал ТВ-3Жанр: Триллер, фантастика, боевикРежиссер: Егор БарановАктеры: Лукерья Ильяшенко, Пётр Фёдоров, Светлана Иванова, Алексей Чадов, Ксения Кутепова, Константин Лавроненко, Филипп Авдеев, Артем Маркарьян, Сергей Годин, Артем ТкаченкоПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 02:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D00C961FE5B209721AF348A47CFD18253E3BD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385490   (797693) от 24.05.2020
-
-Спутник (2020) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797693.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1983 год. На землю возвращается космический аппарат, но от людей скрывают, что из двух космонавтов живым возвращается только один. Что произошло на борту, остается загадкой, но факты указывают на то, что космонавт столкнулся в полете с новой формой жизни и вернулся на землю не совсем один… Нейрофизиолог Татьяна Климова пытается докопаться до правды и спасти (   Читать дальше...   )Производство: Россия / Art Pictures Studio, «Водород», Hype FilmЖанр: Фантастика, триллер, драмаРежиссер: Егор АбраменкоАктеры: Оксана Акиньшина, Пётр Фёдоров, Фёдор Бондарчук, Антон Васильев, Павел Устинов, Виталия Корниенко, Наталья Швец, Алексей Демидов, Александр Марушев, Альбрехт Зандер, Александр ШамПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CD9984134C45D761302D4D5FA1068ACBB37C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011034   (797531) от 26.04.2016
-
-Прохиндиада 2 (1994) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обаятельный ловкач и тонкий психолог Сан Саныч продолжает свою жизнь в новой эпохе, перенеся в нее свои методы и привычки. Но времена изменились и жизнь вносит свои коррективы. Более молодые прохиндеи выкидывают на обочину дороги постаревших Сан Санычей.Производство: РоссияЖанр: Комедия, СемейныйРежиссер: Александр КалягинАктеры: Александр Калягин, Людмила Гурченко, Татьяна Догилева, Максим Виторган, Алексей Жарков, Виктор Зозулин, Марина Трегубович, Виктор СошальскийПродолжительность: 01:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040CBB03CC2A46AAAA1BEF5A9FFE727B4E8068D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199946   (797494) от 18.01.2018
-
-Восемнадцать лун (2002) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои этой драматической истории любви — старшеклассники, выпускники школы. Первая любовь, первая измена, первое чувство ревности и нежелание смириться с тем, что ты ничего не можешь изменить. Во внезапно образовавшемся любовном треугольнике страдают все его участники и совершают отчаянные безумные поступки. Главной героине приходится делать выбор: один — (   Читать дальше...   )Производство: РоссияЖанр: Драма, мелодрамаРежиссер: Ильдар ИсламгуловАктеры: Светлана Малюкова, Иван Глубоков, Светлана Фатина, Дмитрий Рыбин, Бари Кит, Дмитрий КуповыхСубтитры: ОтсутствуютПродолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FC99CC541CF25D97F5DC8EC04002FDBAEFA7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

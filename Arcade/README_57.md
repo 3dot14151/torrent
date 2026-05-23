@@ -1,3 +1,29 @@
+###  Публикация: 1795027   (19605) от 02.05.2025
+
+Space Grunts 2 (2019) [En] (2.0.1b) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Space Grunts 2 - стратегическая игра, действие которой происходит в атмосфере научной фантастики с четко очерченной механикой, типичной для жанра "roguelike". Игра является продолжением первой части, но сильно отличается от своего предшественника - в первую очередь обогащает известную формулу решениями, характерными для карточных игр. События происходят (   Читать дальше...   )Тип издания: LicenseРазработчик: OrangepixelЖанр: ИндиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBEF670BC2A125A2EFE529F63E7960BA7950FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795033   (19589) от 02.05.2025
 
 Cannon Fodder (1993) [En] (1.01) License GOG
@@ -6,7 +32,7 @@ Cannon Fodder (1993) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Space Grunts (2016) [En] (1.7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Badlands Crew (2025) [Ru/Multi] (30737) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Super Raft Boat Together (2023) [Ru/Multi] (1.4.1s1) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Pure Bubble Hockey (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.3) Repack FitGirl [Deluxe Edi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Death Squared (2017) [En] (1.8.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (Build 18402244) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Dome Keeper (2022) [Ru/Multi] (4.2.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.3.67463/dlc) Repack Let'sРlay [Ultimate Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Ember Knights (2023) [Ru/Multi] (2.2.1.b4712/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Dustborn (2024) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.5) Repack Let'sРlay [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ DRAGON BALL XENOVERSE 2 (2016) [Ru/Multi] (1.24.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/Multi] (1.24.01/dlc) Repack FitGirl [Special
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ GUILTY GEAR -STRIVE- (2021) [Ru/Multi] (1.46/dlc) Repack Let'sРlay [Ultimate Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.13.112/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ ANTONBLAST (2024) [En] (1.1.2с) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F08526AD3CCADF749BF329314D2906B934A5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793871   (15896) от 02.06.2025
-
-World of Goo 2 (2024) [Ru/Multi] (1.0.13211) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стройте мосты, воздвигайте башни, формируйте ландшафт и заправляйте летающие механизмы в потрясающем продолжении завоевавшей множество наград игры World of Goo. Мир восхищает, пугает и эволюционирует. Познакомьтесь c реалистичной вязкой жидкостью. Управляйте её потоками, превращайте её в тягучки, тушите пожары и решайте головоломки.Тип издания: LicenseРазработчик: 2D BOY, Tomorrow CorporationЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9764980F4FEABC2352EB031A186F0F7D5F43836
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 466723   (81859) от 13.03.2012
+
+Tansu Warashi / Drawer Hobs / Обитатели комода [2011, TV-special] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ноэру Хираги работает оператором в «службе поддержки клиентов», проще говоря, сидит в офисе и отвечает на звонки. Работа не сложная, но монотонная. После нее нет сил на уборку/готовку/домашние хлопоты, приятней выпить с приятельницей и назавтра поспать подольше. Но как-то утром Ноэру-сан будит служба доставки: мама зачем-то решила прислать ей свой старый комод – (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Кисэ Кадзутика / Kise KazuchikaПеревод: AdvantageЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 25 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466597   (81693) от 12.03.2012
+
+Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминания одного пилота | Принцесса и пилот [2011, MV] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История о молодом пилоте Шарле Карино, служащем наёмником в войсках княжества Левам. Однажды судьба предоставляет ему шанс показать себя на особо секретном задании.Цель его миссии заключается в сопровождении княжеской невесты, леди Фаны де Морал в столицу, на пути к которой ему придётся прорывать сквозь линию фронта. Войскам княжества Амацуками удалось перехватить (   Читать дальше...   )Жанр: приключения, война, романтика, драмаРежиссер: Сисидо ДзюнСубтитры: внешние русские отПродолжительность: 99 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D31726A663CD5C8445954F83D1A50E0C36BBD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458358   (79642) от 02.03.2012
+
+Black Lagoon The Second Barrage / Пираты «Черной лагуны» (второй сезон) [2006,TV 12 + 3 спэшла] BDRip 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение первого сезона.Жанр: приключения, комедия, драмаРежиссер: Катабути СунаоПродолжительность: Серия - 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E11A2DA6257102288690B7A53D844BC84F83BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459336   (79591) от 02.03.2012
+
+AA! Megami-sama: Itsumo Futari de / Ah! My Goddess OVA-2  / Моя богиня! OVA-2 [2011, OVA, 2] DVDrip raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Данная OVA - экранизация очередной части известной манги Фуджишимы Коске "Aa! Megami-sama!.
+Очередная история о любви японского студента Политехнического института и богини первого класса без ограничений
+
+world-artЖанр: романтика, фэнтезиРежиссер: Года ХироакиПродолжительность: 2 эпизод - 30 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455428   (77624) от 21.02.2012
 
 Hagane no Renkinjutsushi: Milos no Seinaru Hoshi / Fullmetal Alchemist: The Sacred Star of Milos / Стальной алхимик (фильм второй) [2011] BDRip 720p raw
@@ -6,7 +113,7 @@ Hagane no Renkinjutsushi: Milos no Seinaru Hoshi / Fullmetal Alchemist: The Sacr
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +139,7 @@ Usavich 4 / Усавич [ТВ-4] [2011, TV, 13 серий] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +165,7 @@ Code Geass Hangyaku no Lelouch R2 Special Edition: Zero Requiem / Code Geass: Le
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +191,7 @@ Code Geass Hangyaku no Lelouch Special Edition: Black Rebellion / Code Geass: Le
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +219,7 @@ Zero no Tsukaima: Futatsuki no Kishi / The Familiar of Zero: The Rider of the Tw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +247,7 @@ Gekijouban Mononoke: Karakasa | Mononoke the Movie: The Phantom in the Rain | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +273,7 @@ Hige o Soru. Soshite Joshikousei o Hirou. | Higehiro: After Being Rejected, I Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +299,7 @@ Meng Qi Shi Shen 2 | Adorable Food Goddess 2 | Очаровательная бо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +325,7 @@ Thunderbolt Fantasy: Seiyuu Genka | Thunderbolt Fantasy: Bewitching Melody of th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +351,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki | Thunderbolt Fantasy: Sword Seekers | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +377,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 2 | Thunderbolt Fantasy: Sword Seekers 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +403,7 @@ Juusenki L-Gaim II: Farewell My Lovely + Pentagona Dolls | Heavy Metal L-Gaim II
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +429,7 @@ Nomo no kuni | The Land of NOMO | Земля НОМО [2025, Web] WEB-DL 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +455,7 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [ТВ-1] [2022, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +481,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 Bonus Stage | Этот замечате�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +509,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +535,7 @@ Mononoke | Мононокэ [2007, TV, 12 эп.] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +561,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +588,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus' Bride Season 2 | Невест
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +616,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +642,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +669,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -574,112 +681,6 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB16FAAAD5AD7C56BE57EA6EDD5E64D28B49DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800094   (66319) от 31.05.2025
-
-Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Как не стоит использовать магию исцеления [ТВ-1] [2024, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычное возвращение домой со школы в итоге обернулось для Усато невероятным приключением. Ни с того ни с сего его и двух других учеников затянуло в иной мир. Усато быстро выяснил, что его призвали случайно, но затем оказалось, что он владеет редкой магией исцеления! Теперь юноша обучается на пределе человеческих возможностей, чтобы целительные способности подарили (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Огата ТакахидэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FB25A0BD48185AF2649A957E0AC62B326E4408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800105   (66318) от 31.05.2025
-
-Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком много проигравших героинь! [2024, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр романтики таков, что в нём зачастую есть не только победители, но и проигравшие. И к Кацухико притягивает именно таких героинь, отвергнутых своими избранниками. Будь то образцовая подруга детства Анна, спортсменка Рэмон или стеснительная до невозможности Тика.
-© crunchyrollПроизводство: студия A-1 PicturesЖанр: комедия, романтикаРежиссер: Китамура СётароПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8368AA66EA611BBBB0F93906DE80281B7AC49A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800108   (66317) от 31.05.2025
-
-Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru. | Невероятный новичок [2024, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рик - администратор гильдии, проработавший на этой должности уже четырнадцать лет. Однако всё это время он не оставлял свою мечту - стать настоящим авантюристом. Говорят, что если хочешь что-то успеть в жизни, надо начинать молодым, но он готов доказать, что это совсем не так. В этом ему поможет "Орихалковый кулак", группа самых сильных авантюристов континента. (   Читать дальше...   )Производство: студия Yumeta Company / ゆめ太カンパニーЖанр: приключения, комедия, фэнтезиРежиссер: Катагай СинПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95F48E6A767B711A6EFD04743C299D1EE3E53F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800097   (66316) от 31.05.2025
-
-Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12 эп. + 3 OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой побеждает повелителя демонов, отдав ради этого все свои силы. Что же делать дальше? Блэйд решает, что самое время наверстать упущенное из-за битв со злом время и поступает в академию Розвуд, где обучаются молодые герои. Его цель - завести сто друзей. Впереди юношу ждут эпические приключения и прекрасные девы.
-© crunchyrollЖанр: комедия, фэнтезиРежиссер: Кавагути КэйитироПеревод: CrunchyRoll (ТВ 01-12)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 3 OVA по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A86505EF6123F0B9EA6FEF879B144446ABDACC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

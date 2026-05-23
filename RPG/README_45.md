@@ -1,3 +1,81 @@
+###  Публикация: 1074394   (137219) от 31.12.2016
+
+Darkest Dungeon (2016) [Ru/Multi] (16707) Repack R.G. Механики
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Darkest Dungeon - сложная пошаговая ролевая roguelike-игра с готической атмосферой, в которой приключения персонажей сказываются на их душевном здоровье. Вам предстоит собрать, обучить и возглавить команду героев, у каждого из которых есть свои недостатки. Команду нужно будет провести по жутким лесам, опустевшим заповедникам, обрушенным склепам и другим опасным местам.Тип издания: RepackРазработчик: Red Hook StudiosЖанр: RPG (Rogue, Action)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7493EEC032159C56D1C4F1E3CCE6ECC05D2029C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085102   (137198) от 31.12.2016
+
+Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механики
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+События Dragon’s Dogma развиваются в огромном открытом для исследования фэнтезийном мире. Главный персонаж в группе трех героев отправляется в долгое путешествие, чтобы найти и убить таинственного дракона. Однако путь будет очень нелегким – троице придется сразиться с самыми большими и опасными существами, населяющими виртуальный мир.Тип издания: RepackРазработчик: CapcomЖанр: Add-on (Standalone), RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913A1CF1FA32733305D53124EEE8A93160D50450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518298   (137032) от 31.12.2021
+
+Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+этой игре вам с головой предстоит окунуться в невероятный и популярный мир Baldur's Gate. Здесь вы отправитесь в эпическое приключение Dungeons & Dragons, в котором огромное количество крайне напряжённых действий, затруднительных головоломок и очень зловещих интриг. Единственное, что вам сможет помочь - ваше мастерство владения холодной сталью и сильнейшими заклинаниями.Тип издания: LicenseРазработчик: Black Isle StudiosЖанр: Ролевая игра, В реальном времени, ФэнтезиЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2386FDB62466D14BA1C510A416AF8D205E5DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825520   (136734) от 17.10.2025
 
 Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
@@ -6,7 +84,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tales of Arise (2021) [Ru/Multi] (20231108/dlc) Repack DjDI [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Ghoul Castle 3D (2021) [Ru/Multi] (2.5) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Dungeon Defenders Collection [En/Multi 5] (Repack/7.46c) 2012 l R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +219,7 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +245,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +271,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +297,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -248,7 +326,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +352,7 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +378,7 @@ World of Horror (2020) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +404,7 @@ Cookie Cutter (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +430,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.300/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +456,7 @@ Legend of Keepers: Career of a Dungeon Manager (2020) [Ru/Multi] (1.1.0.3/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +482,7 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +508,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +534,7 @@ Trinity Fusion (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +560,7 @@ You Will Die Here Tonight (2023) [En] (20231102) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +586,7 @@ Shadows Over Loathing (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +612,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53394) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +638,7 @@ Merchant of the Six Kingdoms (2023) [En] (5.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +664,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53385) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -597,84 +675,6 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A19DD140061B0CA2D109FA307FC1E0ECB21A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689285   (124822) от 01.01.2024
-
-Small Saga (2023) [En] (20231130) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользователи в Small Saga получают возможность погрузиться в авантюры мышонка, что разыскивает божество, похитившее у него хвост. Игра выполнена в жанре ролевой адвенчуры с пошаговыми сражениями, где необходимо подбирать тактические действия для персонажей. Протагонист повстречает других прикюченцев и сможет сформировать боевой отряд, состоящий из разношерстных героев. (   Читать дальше...   )Тип издания: SceneРазработчик: Darya NoghaniЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: ...Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0100DD204C2960664A7DE89BF14BC39A59A93300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342677   (124626) от 03.01.2024
-
-Darkwood (2017) [Ru/Multi] (1.4a/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkwood - это игра о выживании, исследовании и страхе, действие которой происходит в таинственных лесах где-то на территории Советского блока. С видом сверху, со свободой перемещения, этот сюрреалистический хоррор-опыт ждёт вас в мире, который каждый раз генерируется заново. Беря пример с классических игр, где часто нужно было разобраться самостоятельно, и впитав (   Читать дальше...   )Тип издания: LicenseРазработчик: Acid Wizard StudioЖанр: Action, Survival, HorrorЯзык субтитров: Русский, Английский, Польский и другиеЯзык интерфейса: Русский, Английский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB987DCB3C402E5352D41C8430CA3FDCCB7F06CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689610   (124615) от 03.01.2024
-
-Gone Rogue (2023) [Ru/Multi] (1.14) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gone Rogue можно назвать иммерсивным симулятором вора. Технически это изометрический стелс-экшен с элементами тактической ролевой игры. Показанные в проекте события разворачиваются на территории альтернативной Европы. Действие происходит в середине 20-го века. Сюжет повествует о приключениях жителя некого антиутопического тоталитарного государства. Обстоятельства (   Читать дальше...   )Тип издания: SceneРазработчик: AskaLot GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1742661E1EDE82EE6BA11A4A94F396ED6963AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

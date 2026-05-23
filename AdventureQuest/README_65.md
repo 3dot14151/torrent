@@ -1,3 +1,107 @@
+###  Публикация: 1826706   (170947) от 19.10.2025
+
+Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Warcraft Adventures: Lord of the Clans — отменённая компьютерная игра в жанре графического квеста, которую совместно разрабатывали американская компания Blizzard Entertainment и американо-российская студия Animation Magic с 1996 по 1998 год. Действие Warcraft Adventures происходит в вымышленной вселенной Warcraft вскоре после событий игры Warcraft II: Beyond the (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard Entertainment, Animation MagicЖанр: Приключенческая игра, КвестЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6191B91FD343355D5F64493AD9700AC244DA8F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515086   (170792) от 05.12.2021
+
+Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Поздравляем. Тебя приняли на работу в ночную смену. Больше никого ночью не будет. Думаем, ты справишься. Ты будешь жарить котлетки, смотреть за фритюрницами и разливать напитки в тихом ресторанчике на окраине города. Посетителям ну очень нравится меню, и они просят еще вкуснейших сэндвичей Happy’s Deluxe, Fantastic Fowl и Poppin’ Pork. Картофель фри и наггетсы из (   Читать дальше...   )Тип издания: LicenseРазработчик: Scythe Dev TeamЖанр: Экшн, Симулятор, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9354533CE2E09BFF3B987B367F08266D44BD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514958   (170688) от 05.12.2021
+
+Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Некогда лучший боец Круга, теперь она стала самым страшным его противником. Присоединяйтесь к Наре (Nara) и «Форсейкену» в их путешествии, сплотите силы Сопротивления, вступите в бой с Пророком и спасите Вселенную от тирании.Тип издания: RepackРазработчик: Deep Silver FishlabsЖанр: Adventure, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C041C9A8E2338E635930091440D82A0E70384BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486673   (170646) от 05.12.2021
+
+Machinarium / Машинариум (2009) [Ru/Multi] (4041) License GOG [Collector's Edition / Коллекционное издание]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы играете за робота, которого отправили на свалку. Вам предстоит думать логически, собирать важные предметы и решать головоломки, логично встроенные в игровой мир. Помогите роботу вернуться в родной Машинариум, где он должен спасти мэра города и свою подружку-робота, а заодно одолеть злодеев из Банды Черных Шляп. «Машинариум» – прекрасное доказательство того, что (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Приключение, Квест, ФэнтезиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2C00629436E8F1F1EBA750CD85473F79A9D06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671887   (170581) от 26.10.2023
 
 Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
@@ -6,7 +110,7 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Unto The End (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Titan Station (2022) [Ru/Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8109/dlc) Repack R.G. М�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.1116.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Saint Kotar (2021) [Ru/Multi] (1.53/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674272   (161918) от 04.11.2023
-
-One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двенадцать личностей с глубоко проработанными характерами, чьи судьбы переплетаются одной страшной ночью, которую вам предстоит пережить. Каждое ваше решение, каждое неосторожно брошенное слово, меняет ход событий. Любой из двенадцати, может стать жертвой и любой может оказаться убийцей, а значит, каждый раз Вас ждет новое приключение. Однако поимка маньяка, разгадка (   Читать дальше...   )Тип издания: SceneРазработчик: ViviLatviaЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E400F25CF0EB95E2D3E50D90883641EB31D71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826447   (161818) от 19.10.2025
-
-El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательная игра в стиле спагетти-вестерн, в которой шестилетний мальчик с Вашей помощью разыскивает свою мать. В шестилетнем возрасте "Эль Хиджо" должен пройти и обойти опасности своего мира. По мере того, как он преодолевает все испытания, он обретает уверенность в себе и хитрость, а вместе с этим и другие схемы, позволяющие обойти своих врагов. Его (   Читать дальше...   )Тип издания: LicenseРазработчик: Honig Studios, QuantumfrogЖанр: Приключенческие игры, Инди, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642BB970FD33FAD3A2D010AEA8B1C3A23F3151D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517365   (161765) от 16.12.2021
-
-Scrapland Remastered (2021) [Ru/Multi] (1.1/1.6.1) License GOG
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrapland — приключенческий экшен от третьего лица, разыгрывающийся в отдаленном будущем Земли. В этом будущем на планете остались лишь роботы, и они считают людей чудовищным порождением ночных кошмаров. Ты будешь играть роль Ди-Тритуса — новоприбывшего, расследующего зверские убийства, которые совершила кровожадная тварь — омерзительный человечище, бесчинствующий (   Читать дальше...   )Тип издания: LicenseРазработчик: MercurySteamЖанр: Приключение, ФантастикаЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A970C7A78C8F0C3F4F2F843B027EBA0F42EA44FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432971   (161617) от 19.12.2020
-
-Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпизодическая приключенческая игра, посвященная Тайлеру и Элисон Ронан, двум близнецам и их проблемам. События игры разворачиваются на Аляске, где близнецам предстоит разобраться в рядом проблем - как семейных, так и окружающих их людей. Взаимодействуя с воспоминаниями о прошлом, вы сделаете судьбоносный выбор, который определит силу уникальной связи, объединяющей (   Читать дальше...   )Тип издания: RepackРазработчик: Dontnod EntertainmentЖанр: Adventure (Interactive drama), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2088A1F859B2FD89135C806CBDBD57AAF6840935
 ```
 
 https://mybot314.ru/tekegram_catalog/

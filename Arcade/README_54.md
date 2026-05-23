@@ -1,3 +1,29 @@
+###  Публикация: 1764594   (28729) от 04.02.2025
+
+River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Девушки из Ривер-сити готовы ко второму раунду! Извечный враг возвращается, чтобы отомстить, а к Мисако, Кёко, Кунио и Рики присоединяются новички: Мариан и Прови. Подруги отправляются на улицы в поисках новых приключений в стиле beat'em-up. Игровой мир кишит новыми врагами, союзниками, локациями, боевыми приемами и не только! Играйте с друзьями локально или по сети (   Читать дальше...   )Тип издания: RepackРазработчик: WayForwardЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D678441EF4E29CCF79AEA4BD174E2787C00B86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777041   (28688) от 04.02.2025
 
 Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
@@ -6,7 +32,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +162,7 @@ BORE BLASTERS (2024) [Multi] (1.52) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Let's Cook Together 2 (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.0.34) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +396,7 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Smushi Come Home (2023) [Multi] (1.1.0.4.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Nunholy (2025) [Ru/Multi] (1.0.01) Repack Let'sРlay [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Overcooked! 2 (2018) [Ru/Multi] (#1034.799570/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Shapik: The Moon Quest (2020) [Graphic] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -630,7 +656,7 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -641,32 +667,6 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76280F57BEC3BBEFFC99FB51ABD15C0D57CCB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784085   (25190) от 09.03.2025
-
-The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетные захватчики оставили Бриксбург в руинах и забрали друзей Эммета! Он собрал команду героев, чтобы выйти за пределы своего мира и спасти друзей от странных пришельцев. Открывайте новые миры и проверьте свои навыки сборки.Тип издания: LicenseРазработчик: TT GamesЖанр: Приключение, ЭкшныЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D34F2F82B3B62687AA57AD35865FF06A3DAF49D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1240853   (522847) от 14.08.2018
+
+С.В. Булгаков | Справочник по ересям, сектам и расколам (1994) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга С.В. Булгакова состоит из двух частей: первая часть - "Православие", и вторая часть - "Расколы. Ереси. Секты. Противные христианству и православию учения. Западные христианские вероисповедания. Соборы Западной Церкви". В данном справочном издании представлена вторая часть книги, посвященная расколам, ересям, сектам, а также характеризующая (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC46BC8FB7B4B351D7528022799480A5C9E5AC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240702   (522846) от 14.08.2018
+
+Фёдор Конюхов | Одиночное повествование. Дневники путешественника (2018) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каждому человеку хотя бы раз в жизни приходится переживать ситуацию, которую можно назвать «на грани выживания» или «между жизнью и смертью». Неоценимой поддержкой и опорой в этом пути преодоления обстоятельств, себя, судьбы к воскрешению и возрождению станет издание «Одиночное повествование» — сборник книг странника-пилигрима, писателя и священника Фёдора Конюхова. (   Читать дальше...   )Жанр: Православие. ПутешествияФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4F4C880F120E0D08E415920070A694BDD7B96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313837   (522321) от 11.07.2019
+
+Символик (изд.) | Семь слов Спасителя на кресте (2018) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данная книга — переиздание популярной в конце XIX - начале XX в. брошюры, напечатанной в типографии Вильде. В простом изложении она описывает события Великого Пятка — Страстной пятницы, когда Господь Иисус Христос был распят на Голгофе. Соотнося друг с другом тексты четырёх Евангелий, автор поясняет и комментирует происходившие в тот страшный день события и последние (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BA9F0553F993D713622FC3D481E2F411D721A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241122   (522196) от 15.08.2018
+
+Православное братство святого апостола Иоанна Богослова (изд.) | Слово Оптинских старцев (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Преподобные Оптинские старцы - люди совсем разные по социальному происхождению, воспитанию и образованию; по-разному говорят они с нами, но слово каждого из них, в силу их святости, способно помочь нам, ищущим истину.
+
+Издание составлено по творениям преподобных Оптинских старцев Амвросия, Варсонофия, Иосифа и Никона.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26EC69B4776DF9BA785D461409BFC2E1C6AB038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928722   (521455) от 17.08.2015
 
 Александр Лопухин | Толковая Библия. Ветхий Завет и Новый Завет (2013) [FB2]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,114 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DF3C79E72ED2846483CE496BE242A68CEC9878A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242820   (513119) от 24.08.2018
-
-Н.И. Большаков | Источник живой воды (1999 (Репринт 1910 года)) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий молитвенник и чудотворец, святой праведный отец Иоанн Кронштадтский (1829—1908) — воистину “источник живой воды” для русского народа, ревностный пастырь Церкви Христовой, Пророк, явленный нашему Отечеству в годину великих испытаний.
-
-Предлагаемое читателю описание жизни и деятельности святого, составленное редактором и издателем журнала “Кронштадтский маяк” (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1403DCC41F4E8230FF94338333923EBC7819DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242775   (513064) от 24.08.2018
-
-П. Гольбах | Галлерея святых [Исследование образа мыслей, поведения, правил и заслуг тех лиц, которых христианство предлагает в качестве образцов] (1937) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513064.jpg" />
-</div>
-
-
-###  Подробнее
-
-„Галерея святых" — одно из наиболее значительных произведений Гольбаха, направленных против религии и церкви. Автор проводит перед читателями всех действительных и вымышленных „героев" ветхого и нового завета, „святых" и „отцов церкви", вскрывает истинное лицо насильников, обманщиков, фанатиков и показывает, какой вред их учение и деятельность (   Читать дальше...   )Жанр: История, политология, религиоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E759F5F5D1B527F1DEFD6F672324099FED5E8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242774   (513062) от 24.08.2018
-
-П. А. Павёлкин | Религиозные суеверия и их вред (1951) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правильное объяснение развития религии можно дать только с позиций революционного рабочего класса, с позиций единственно научного мировоззрения — диалектического и исторического материализма.
-
-«Религия есть опиум народа, — это изречение Маркса есть краеугольный камень всего миросозерцания марксизма в вопросе о религии. Все современные религии и церкви, все и всяческие (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12DD5BCCAA10600BDBE685CB243E2950C611E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242742   (513056) от 24.08.2018
-
-А.З. Лобанова (сост.) | Святой Андрей (2017) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святых, носящих имя Андрей, в жизни Русской Православной Церкви очень много. Один из них — святой апостол Андрей Первозванный, который был со Спасителем всё время Его земного служения и проповеди. Очень любят и чтут в народе ещё одного святого, наречённого именем Андрей. Это святой благоверный князь Андрей Боголюбский (сын Юрия Долгорукого и внук Владимира Мономаха). (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC67C0FF71046F5314BE878142B92AEE37C246A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,185 @@
+###  Публикация: 974675   (975191) от 12.01.2016
+
+Экстрасенсы / Утешение / Solace (2015) HDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Напарники, Джо и Кэтрин, детективы из ФБР расследуют череду загадочных убийств. Все преступления объединяет нечто сверхъестественное — серийный убийца всегда на шаг впереди лучших сыщиков. Тогда на помощь правосудию приходит отставной аналитик спецслужб доктор Джон Кленси. Его исключительная интуиция и интеллект могут помочь поймать убийцу, но вскоре Джон понимает (   Читать дальше...   )Производство: США / Eden Rock Media, FilmNation Entertainment, Flynn Picture CompanyЖанр: Триллер, ДетективРежиссер: Афонсо ПойартАктеры: Джеффри Дин Морган, Колин Фаррелл, Энтони Хопкинс, Эбби Корниш, Марли Шелтон, Джанин Тернер, Ксандер Беркли, Кенни Джонсон, Хосе Пабло Кантильо, Джошуа КлоузПеревод: Двухголосый закадровый, любительский (Parovoz Production)Язык субтитров: Английский, испанский, румынский, датский, голландскийПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060CAECEE2C4DCDDB6FFAA7D4453ACF68F3383EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974643   (975189) от 12.01.2016
+
+Последний охотник на ведьм / The Last Witch Hunter (2015) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Современный мир скрывает множество секретов, но самым удивительным из них является то, что ведьмы до сих пор живут среди нас. Это злобные сверхъестественные существа, чья цель — наслать на мир смертоносную чуму. Армии охотников на ведьм сражались с ними на протяжении многих веков. В наши дни остался всего лишь один охотник на ведьм, Колдер, которому однажды удалось (   Читать дальше...   )Производство: США / Summit Entertainment, Lionsgate CompanyЖанр: Фэнтези, боевик, приключенияРежиссер: Брек ЭйснерАктеры: Вин Дизель, Роуз Лесли, Элайджа Вуд, Оулавюр Дарри Оулафссон, Рина Оуэн, Юли Энгельбрехт, Майкл Кейн, Джозеф Гилган, Исаак Де Банколе, Майкл Халсли, Слоун Кумбс, Лотте Вербеек, Доун Оливери, Инбар Лави, Армани Джексон, Эйми Карреро, Бекс Тейлор-Клаус, Дэвид Уэйлен, Джэк Эрди, Туссэн Рафаэль АбессолоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A35C4B6BF870AC94D55EC43D70C6E86486590E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974565   (975188) от 12.01.2016
+
+Экстрасенсы / Утешение / Solace (2015) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Напарники, Джо и Кэтрин, детективы из ФБР расследуют череду загадочных убийств. Все преступления объединяет нечто сверхъестественное — серийный убийца всегда на шаг впереди лучших сыщиков. Тогда на помощь правосудию приходит отставной аналитик спецслужб доктор Джон Кленси. Его исключительная интуиция и интеллект могут помочь поймать убийцу, но вскоре Джон понимает (   Читать дальше...   )Производство: США, Eden Rock Media, FilmNation Entertainment, Flynn Picture CompanyЖанр: Триллер, ДетективРежиссер: Афонсо ПойартАктеры: Джеффри Дин Морган, Колин Фаррелл, Энтони Хопкинс, Эбби Корниш, Марли Шелтон, Джанин Тернер, Ксандер Беркли, Кенни Джонсон, Хосе Пабло Кантильо, Джошуа КлоузПеревод: Двуголосый закадровый, любительский (Parovoz Production)Язык субтитров: Английский (Full, SDH)Продолжительность: 01:41:12Реклама: Присутствуют голосовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DA98A6D321195BA14AA0CF51B3FF8081C17CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356553   (975169) от 02.02.2020
+
+Европа разрабатывает собственный процессор для ИИ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Похоже, что монополия США на микропроцессоры остаётся в прошлом. Вслед за Китаем и Россией свои наработки готовит Евросоюз. В рамках European Processor Initiative (EPI) разрабатывается собственный процессор для высокопроизводительных приложений, воде машинного обучения и искусственного интеллекта.По данным главы EPI Жан-Марке Дениса, процессор будет создан по технологии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337112   (975036) от 02.02.2020
+
+Navitel / Навител: Официальные карты релиза 2019-Q3 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Обновление карт Q3 2019 от 06.11.2019г. Только для версий 9.10.1619 и выше.Релиз состоялся: 27.12.2019Разработчик: NavitelПоддерживаемая ОС: Android, WinCEЯзык интерфейса: Ru/MultiФормат: nm7
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA9C606D0483635BC8A04F1183EDA2C201FA942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975020   (974169) от 13.01.2016
+
+Acronis True Image 19.0.6027 / Universal Restore 11.5.40010 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Acronis BootCD - загрузочный диск, содержащий пакет последних версий двух наиболее популярных программ компании Acronis - Acronis True Image, Acronis Disk Director и Acronis Universal Restore, предназначенных для резервного копирования, создания точных образов жесткого диска и его отдельных областей. В числе функций диска восстановления системы, управление разделами: (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0E94DE62E47AB5D326239BCEE60B79AB4018A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974935   (974086) от 13.01.2016
+
+Зеленый ад / The Green Inferno (2013) BDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти племена Амазонки от вымирания из-за наступления цивилизации, группа из нескольких нью-йоркских студентов отправляется в джунгли Перу. Правда, возвращаясь домой, ребята попадают прямо, можно сказать, в лапы к тем, кого собирались защищать. И все из-за того, что самолет, в котором они направлялись в Америку, потерпел крушение из-за того, что сломался двигатель. (   Читать дальше...   )Производство: Чили, США / Worldview Entertainment, Dragonfly Entertainment, Sobras International PicturesЖанр: Ужасы, ПриключенияРежиссер: Элай РотАктеры: Лоренца Иззо, Ариэль Леви, Дэрил Сабара, Кирби Блисс Блэнтон, Магда Апанович, Скай Феррейра, Николас Мартинез, Аарон Барнс, Игнасия Алламанд, Рамон ЛьяоПеревод: Двухголосый закадровый, любительский (den904&DeadSno), одноголосый закадровый, любительский (ХиХиДок)Язык субтитров: английскийПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FCCCEF89CD847EA0F40E13D4909631DB9F5410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975141   (974083) от 13.01.2016
 
 Navitel / Навител Навигатор v9.6.904/1327/1978 Real CLONES UniRepack от Nixman [Ru/En] - только программа навигации
@@ -6,7 +188,7 @@ Navitel / Навител Навигатор v9.6.904/1327/1978 Real CLONES UniRe
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +292,7 @@ Elcomsoft Wireless Security Auditor 5.2.272 Professional Edition [Multi/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +344,7 @@ Far Cry 2 (2008) [Ru] (1.03/dlc) Repack Other s [Fortune's Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +448,7 @@ Far Cry 3 (2012) [Ru] (1.05 /dlc) Repack =nemos= [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +476,7 @@ Xara Xtreme Pro 5.1.0.9131 Portable [Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +504,7 @@ Syberia v1.0.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +556,7 @@ Windows 7 (x86/x64) UralSOFT 1.5.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +584,7 @@ Reboot Restore Rx 3.3 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +610,7 @@ VA - Большая коллекция клипов в авто (2DIN) (2000-201
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +636,7 @@ Chris Spheeris - 22 albums (1987 - 2013) [MP3|160-320 kbps] <New age, World, Smo
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -494,194 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F722562C32857673DE82AA258C2A805FF88324E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742280   (969910) от 12.01.2014
-
-VA - Жажда Скорости. Дискотека Казанова (1998-2006) [MP3|112-320 кб/с]<Eurodance, Rave, Club, Techno, House, Trance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_969910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия "Казанова Рекордс" - это вымышленное название. Выпускалась она конгломератом, известным как "НОВАЯ СТУДИЯ" ("Арлекина" и "Русская Студия").01 Scooter - One (Club mix)
-02 DJ Aligator - Music is my language (feat. Arash)
-03 Eddy Wata feat Evanescence - Bring Me To Life (remix)
-04 Alex M Vs. Mark Van Damme - Technodisco (R.Mayth Radio Edit)(   Читать дальше...   )Жанр: Eurodance, Rave, Club, Techno, House, TranceПродолжительность: 88:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F6E1631458847294832D376A9BE216B2726A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358147   (969290) от 07.02.2020
-
-Windows 10 Enterprise LTSC 2019 x64 Rus by OneSmiLe [17763.1012]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru_windows_10_enterprise_ltsc_2019_x64_dvd_78e7853a
-Интегрированы последние обновления на 06.02.20.
-Поиск работает (значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D55ADA557FF425CE445A46ED71EF87B8FD6CA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358004   (969289) от 07.02.2020
-
-Мое прекрасное лето с Софи / Une fille facile (2019) WEB-DL [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Найме 16 лет, она живет в Каннах. Учебный год закончился, впереди каникулы — в компании с приехавшей из Парижа 22-летней кузиной Софи, готовой научить подросшую сестренку правилам взрослой жизни. Лови момент — ее главный девиз. А это значит — богатые и щедрые мужчины для того и существуют, чтобы делать счастливыми юных красавиц и дарить им удовольствия. Такое море (   Читать дальше...   )Производство: Франция, Les Films Velvet, France 3 Cinéma, Canal+Жанр: Драма, комедияРежиссер: Ребекка ЗлотовскиАктеры: Мина Фарид, Захия Дехар, Бенуа Мажимель, Нуно Лопеш, Клотильда Куро, Любна Абидар, Лакдхар Дриди, Анри-Ноэль Табари, Седрик Аппиетто, Микаэль МильориниПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9410C0635C35C2BAB6C124F8BCDADA2BB50023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976196   (969246) от 17.01.2016
-
-Как американская разведка предлагает правительству США бороться с криптовалютами
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вчера в интервью «Российской газете» глава Следственного комитета Бастрыкин предлагал запретить биткойн. А вот свежая новость из США: аналитический центр RAND Corporation (по факту — подразделение американской раздедки) в своем докладе называет криптовалюты (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975525   (969164) от 17.01.2016
-
-MAGIX Movie Edit Pro 2016 Premium 15.0.0.90 (x64) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969164.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAGIX Movie Edit Pro 2016 - это программа для работы с видео, способная удовлетворить самые высокие требования профессиональных пользователей. Эта программа является победителем самых разных конкурсов и включает в себя уникальный набор инструментов для детальной обработки видео и аудио. Кроме того благодаря продуманной разбивке программы на модули и повышенной производительности (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827A340763E2D8BA68E556278B67D0B2358225D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976172   (969155) от 17.01.2016
-
-AusLogics BoostSpeed 8.2.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B49DAE414CAF346697A2883A03AB91347392452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976163   (969152) от 17.01.2016
-
-Total Commander 8.52a LitePack | PowerPack | ExtremePack 2016.1 Final + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCFCE7817B6385A92DF989D05FE4DB9530C1E6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

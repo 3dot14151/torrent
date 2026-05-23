@@ -1,3 +1,193 @@
+###  Публикация: 1434561   (148679) от 25.12.2020
+
+Kpoxa Tweaker 1.4 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный релиз Крохи Твикера.
+Кроха Твикер позволяет даже самому неискушенному пользователю без знаний и труда увеличить производительность системы WINDOWS.
+Набор твиков постепенно увеличивается,у программы расширяется функционал.
+Программа актуальна для слабых ПК. Обладателям современных и мощных ПК данная программа не требуется, эффект будет практически не (   Читать дальше...   )Язык интерфейса: Русский язык
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEE8CBB087F99A70893F0472AF75386F34B5289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434764   (148671) от 25.12.2020
+
+Довод / Tenet (2020) BDRip [H.264] [IMAX Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Стоящее на страже мира ЦРУ раскрывает заговор, направленный на уничтожение американских ценностей (в том числе материальных), и всего американского мира. На защиту мира бросается отважный агент, вооруженный технологией, присланной из будущего. Она позволяет обращать время вспять: пули возвращаются в ствол, мысли — в голову, слова — в рот. Ну а еда — наоборот.
+Ничего (   Читать дальше...   )Производство: Великобритания, СШA / Warner Brosers, SyncopyЖанр: фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: русскиеПродолжительность: 02:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35ABA56742CFD11DB96BA33927F0B664DCDDAB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969134   (148352) от 26.12.2015
+
+«Японий» может стать 113-м элементом таблицы Менделеева
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новым – 113-м элементом – химической таблицы Менделеева может стать «японий». До сих пор его открытие не признавалось Международным союзом теоретической и прикладной химии, несмотря на то, что элемент был получен специалистами из РФ и США ещё в 2003 году.Как рассказали сами учёные, тогда проводился эксперимент по синтезу 115 элемента, однако получить удалось другой (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271330   (148211) от 24.12.2018
+
+Новое предложение Госдумы: «тест на идиота» для водителей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Член комитета Госдумы по транспорту и строительству Александр Васильев («Единая Россия») предлагает при замене водительских прав по истечении их срока проверять у автомобилистов с многолетним стажем уровень уважительного отношения к другим участникам дорожного движения по аналогии с «тестом на идиота», который проходят водители в Германии.Об этом парламентарий сообщил (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271468   (147951) от 24.12.2018
+
+MultiBootHDD 2018 23.12.2018 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сборка на базе конструктора BootHDD by Policai для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных,установки Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCEB705ECD81A000AA4EAD538A5B7DD75559F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969216   (147916) от 26.12.2015
+
+Проекты - VideoHive - Christmas Titles 3 - 13795169 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Новогодних титров.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6878479D02BDB46F1B34527AFFC1842D74E2328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 66424   (147909) от 24.12.2018
+
+Энциклопедия рыболова: Фидер - это просто (2007) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+- Подготовка и сборка снасти
+- Промер глубины
+- Приготовление прикормки
+- Техника ловлиЖанр: Жанр: спорт, рыбалкаРежиссер: Александр МонаковПродолжительность: 02:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D331E7F8FBF245844E761C27D2AD8ED5D67E1C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969309   (147888) от 26.12.2015
 
 ФотоШОУ PRO 8.0 Repack by KaktusTV [Ru]
@@ -6,7 +196,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +248,7 @@ VA - Trance In Motion: Sensual Breath 001 - 105 (2012 - 2013) [MP3|320 кб/с]<
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +274,7 @@ George Michael - 78 Albums (1984-2014) 89 CD [MP3|192 - 320 kbps]<Pop, Dance, So
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +303,7 @@ Microsoft Windows 10 Enterprise Insider Preview Redstone 2 Build 10.0.14997.1001
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +355,7 @@ Space Hulk: Deathwing (2016) [Ru/En] (1.06) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +381,7 @@ uDraw Wii collection [Wii] [PAL] [Eng] (2010-2011)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +407,7 @@ Deworker Pro, Дмитрий Елисеев | Разработка аукцио�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +513,7 @@ Alien Skin Exposure X 1.0.0.2005 Revision 31988 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +539,7 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +565,7 @@ Adobe After Effects CC 2015 (v13.6.1) RUS/ENG Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +591,7 @@ Crash Bandicoot N. Sane Trilogy (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -490,188 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23A4992A37EDAAA16AFAEC7DADE3816FEB03A3F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511324   (145965) от 25.12.2021
-
-Колесо времени / The Wheel of Time (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) HDRezka, DniproFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145965.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Эмондов Луг приезжают трое чужестранцев: седой менестрель Том Меррилин, прекрасная леди Морейн и её страж Лан. Морейн принадлежит к организации «Айз Седай» и считает, что силы тьмы охотятся за пятью подростками, один из которых — реинкарнация древней могущественной личности. Согласно пророчеству, вернувшись в мир, она спасёт человечество, навредив ему.Производство: США / Amazon Studios, Little Island Productions, Radar Pictures Inc., Red Eagle Entertainment, Sony Pictures TelevisionЖанр: фэнтези, боевик, драма, приключенияРежиссер: Ута Бризвитц, Салли Ричардсон-Уитфилд, Уэйн ЙипАктеры: Розамунд Пайк, Дэниэл Хенни, Зои Робинс, Мадлен Мэдден, Джоша Страдовски, Маркус Рутерфорд, Барни Харрис, Кейт Флитвуд, Приянка Бозе, Хаммед АнимашонПеревод: Многоголосый профессиональный (HDRezka Studio, DniproFilm)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced), украинские (Forced), английскиеПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541D59A02E32AB310676AF3FB1F012692BEF1445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341872   (145421) от 26.12.2019
-
-Паразиты / Gisaengchung (2019) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычное корейское семейство жизнь не балует. Приходится жить в сыром грязном полуподвале, воровать интернет у соседей и перебиваться случайными подработками. Однажды друг сына семейства, уезжая на стажировку за границу, предлагает тому заменить его и поработать репетитором у старшеклассницы в богатой семье Пак. Подделав диплом о высшем образовании, парень отправляется (   Читать дальше...   )Производство: Корея Южная / Barunson E&A,  CJ EntertainmentЖанр: Триллер, драма, комедияРежиссер: Пон Джун-хоАктеры: Сон Кан-хо, Ли Сон-гюн, Чо Ё-джон, Чхве У-щик, Пак Со-дам, Чан Хе-джин, Чон Джи-со, Чон Хён-джун, Ли Джон-ын, Пак Со-джунПеревод: Дублированный (iTunes), Профессиональный (многоголосый, закадровый), авторский одноголосыйСубтитры: русские (форс, полные), английские (полные)Продолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C165E99F60D38632428B9B823CC65028CD76D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272124   (144902) от 26.12.2018
-
-Adobe Photoshop Lightroom Classic CC 2019 8.1.0 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8101865C476B900D4FEA6AAE254AF244CEFD912A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272171   (144897) от 26.12.2018
-
-Adobe After Effects CC 2019 16.0.1.48 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144897.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAC49A71A12996FA2A3B23D240A41E04D84808E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145388   (144883) от 26.12.2018
-
-The Forest (2018) [Ru/Multi] (1.10b) SteamRip R.G. Origins
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой игры остается в живых после крушения самолета на необитаемом острове. Основная задача - выжить: рубите деревья, чтобы построить себе убежище, охотьтесь на диких животных или ищите и садите плоды, чтобы не умереть с голоду, а также не забывайте поддерживать очаг, чтобы не замерзнуть..Тип издания: SteamRipРазработчик: Endnight GamesЖанр: Survival Horror, SandboxЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F153E54AFD0256FB26902223091C816374091C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146487   (144875) от 26.12.2018
-
-Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.04) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бойтесь волков. Их сердца холодны, их терзает голод – и чтобы выжить, они не остановятся ни перед чем… Рагнарек. Легенда гласит, что когда начнется последняя зима, йотуны вернутся, чтобы отомстить богам Асгарда. Мир на грани краха, участь Мидгарда предрешена. Но когда огненные и ледяные великаны решили объединить свои армии, выяснилось, что им противостоит клан Ульфунга (   Читать дальше...   )Тип издания: LicenseРазработчик: Games FarmЖанр: RPG, Action, AdventureЯзык озвучки: Aнглийский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2ED8DC693EB4B8CB41B97EEB6C99D21BBA6EDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040763   (144814) от 27.12.2020
-
-SafeInCloud v20.8.5 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер паролей SafeInCloud позволяет хранить ваши логины, пароли и другую личную информацию в безопасности в зашифрованной базе данных. Вы можете синхронизировать данные с другим телефоном, планшетом, маком или ПК через ваш собственный аккаунт в облаке. Никаких подписок, никаких ежемесячных платежей!Тип издания: Пиратка / Мод (Разблокированы Pro функции)Релиз состоялся: 26.11.2020Разработчик: SafeInCloudПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2F84F16D927B13BEC82BAD0917F0C4E676F0BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

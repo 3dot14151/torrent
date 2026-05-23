@@ -1,3 +1,206 @@
+###  Публикация: 1707134   (62853) от 15.03.2024
+
+VA - Music News vol.352 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - Texas Hold 'Em (Mentol Remix) (02:58)
+ 002. Adam Ulanicki - Some Say (03:42)
+ 003. AFELIA - Мир Панических Атак (02:32)
+ 004. Aikko - Принять Себя (03:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB3FCF65DEB9335B9FAB095F5EFF4FF378CC4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707721   (62712) от 17.03.2024
+
+VA - Дискотека 2024 Dance Club Vol.222 [NNNB] (2024) [MP3|320 Kbps] <Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+[2:04] 001. Alan Walker feat. YUQI & JVKE - Fire!
+[2:51] 002. Inna - Imagination
+[2:25] 003. Alok feat. Bebe Rexha - Deep In Your Love(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, Chill, RockПродолжительность: 16:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F65EC282B0D3371B8B2B3B790A68BE5051B35D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708334   (62351) от 20.03.2024
+
+VA - Music News vol.354 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Катя Panterrra - Крапива (02:48)
+ 002. Alan Walker & Sofiloud feat. RCB - Team Side (03:01)
+ 003. Alexia - Peste Mari (Si Mai Departe) (02:56)
+ 004. Andreea - Frasi Fatte (03:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835EFE761B426463F335BC44F2340960AEF1591C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709073   (62037) от 23.03.2024
+
+VA - ЕвроХит Топ 40 Europa Plus 22.03.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Yes, And (3:35)
+02. Моя Мишель - Ветер Меняет Направление (2:46)
+03. Alan Walker feat. Daya - Heart Over Mind (3:09)
+04. Justin Timberlake - Selfish (3:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DC26CC3B00EB22C86B1EC079C32A51E8E21095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709178   (62024) от 23.03.2024
+
+VA - Music News vol.355 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Loboda - Имя (03:24)
+ 002. Andery Toronto feat. Диман Брюханов - Надежда На Завтра (02:28)
+ 003. Arkanne - Полный Газ (02:20)
+ 004. AURORA - Some Type Of Skin (03:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B54348E900323BC79219CAFEC51F50E554147E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709191   (62004) от 23.03.2024
+
+VA - Music News vol.356 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Юлия Савичева - Циклон (02:57)
+ 002. 2xA - Hypnotize (01:34)
+ 003. 4K feat. Макси АК - Блики Катаного Лба (04:17)
+ 004. 140 Ударов В Минуту - Я Останусь С Тобой (03:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF46CDDB1EF189F6C15F33BCBF38794AF4FBFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315207   (61965) от 24.03.2024
+
+VA - Понемногу отовсюду by Yuridar #B (1961-2022) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Others>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. B-Zet - Ancient Person of My Heart (Le Tonnere Dance remix)
+02. Baba Blues - St. James Infirmary
+03. Baba Blues - Walk On
+04. Balligomingo - Goodbye(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5FE95A6686E46F82041218980DD6C8CB6593E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711280   (61377) от 29.03.2024
 
 VA - Music News vol.358 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +209,7 @@ VA - Music News vol.358 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - 70s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Disco, New Wave, Ballad, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Remix NNM 8 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Music News vol.362 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Music News vol.363 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Music News vol.364 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Music News vol.365 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - Music News vol.366 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Music News vol.367 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.04.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Дискотека 2024 Dance Club Vol. 223 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Music News vol.368 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Music News vol.370 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Music News vol.369 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - Music News vol.371 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Cardio (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - Music News vol.372 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - Music News vol.373 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +731,7 @@ VA - РАДИО БАТЯ - 001 (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -542,209 +745,6 @@ VA - РАДИО БАТЯ - 001 (2024) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71076312A87F906CE83CA070EE9506C0A7C533B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722148   (56976) от 10.05.2024
-
-VA - РАДИО БАТЯ - 003 (2024) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56976.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:05] 01. Intermission - Piece Of My Heart
-[4:04] 02. Руки Вверх! - Он тебя целует
-[4:22] 03. Жека - Пить с ней вино
-[2:23] 04. СВЯТ - Не скучай(   Читать дальше...   )Жанр: Different genresПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DE5019736D209F2DE3F4D9EE59E3E3FC915E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721504   (56969) от 10.05.2024
-
-VA - РАДИО БАТЯ - 002 (2024) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56969.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:21] 01. Audioboy - Everything To Me
-[4:12] 02. Ирина Аллегрова - Мой ласковый и нежный зверь
-[3:50] 03. Мираж - Безумный мир
-[4:00] 04. Сергей Лазарев - Даже если ты уйдёшь(   Читать дальше...   )Жанр: Different genresПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2402BC5478C32235491EAB00022B3F8DA895DBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722856   (56654) от 13.05.2024
-
-VA - Music News vol.375 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56654.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Даурова - Переболела, Перегорела (03:12)
- 002. Aloe Blacc - Shine (04:25)
- 003. Aquagen - Hard To Say I'm Sorry (Jerome Edit) (02:11)
- 004. ASDIS - Flashback (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71872327EEF0588CAD743ED291668B5AD3CACB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722623   (56584) от 14.05.2024
-
-VA - РАДИО БАТЯ - 004 (2024) [MP3|320 Kbps] <Different genres>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56584.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:16] 01. Modern Heroes - Moment Of Love
-[4:04] 02. Комиссар - Эти глаза
-[3:57] 03. Евгений Осин - Не верю
-[3:45] 04. Bad Boys Blue - Sooner or Later(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80A7494C33CA2604B4DDC826E37ED615F4ECFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723937   (56234) от 17.05.2024
-
-VA - Music News vol.377 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56234.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жасмин - Любовь-Морковь (03:06)
- 002. A'DI - Девочка Ночь (02:50)
- 003. ADRIAN HIS - Забыл Сказать (02:53)
- 004. AGAYAN - Темных Дел (01:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1766E83D7CB8515AF923558D9C9E3743D1ACBBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724077   (56188) от 18.05.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 17.05.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jung Kook - Standing Next To You (3:26)
-02. Fred again, Baby Keem - leavemealone (3:42)
-03. Disturbed - The Sound Of Silence (Cyril Remix (3:05)
-04. Purple Disco Machine, Asdis - Beat Of Your Heart (3:29)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464BD0D571D16F5D5A8E88C9E0E2011906BA8448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723706   (56083) от 19.05.2024
-
-VA - РАДИО БАТЯ - 005 (2024) [MP3|320 Kbps] <Поп, Рок, Шансон, Другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дима Билан - Я просто люблю тебя (04:21)
-02. Андрей Губин - Ночь (03:42)
-03. HYDY - Невыносима (02:51)
-04. Форум - Что сравнится с юностью... (03:22)(   Читать дальше...   )Жанр: Поп, Рок, Шансон, ДругиеПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B579589BB51759FEAD296086326C600CB3CA914
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1222226   (687366) от 28.04.2018
+
+Я. В. Минц | Иисус Христос как тип душевнобольного (1927) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В статье сделана попытка показать, как эпоха появления христианства располагала к появлению мессии, избавителя иудеев от ига завоевателей, от всех бед и гонений, который, вероятно, является изображением не одного определенного индивидуума, а сборной группы одержимых религиозным бредом.Жанр: История, медицина, психиатрия, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C183F048F90E8972BE76171A6CEDF25EBDE340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222184   (687360) от 28.04.2018
+
+Митрополит Иларион (Алфеев) | Иисус Христос. Жизнь и учение. Начало Евангелия [Книга 1] (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Будучи первой в шеститомной серии «Иисус Христос. Жизнь и учение», книга митрополита Илариона (Алфеева) «Начало Евангелия» покрывает материал, содержащийся в начальных главах четырех Евангелий: в книге рассматриваются повествования о рождении Иисуса и связанных с ним событиях; о крещении Иисуса и Его взаимоотношениях с Иоанном Крестителем; об искушении от диавола (   Читать дальше...   )Жанр: Библеистика, богословиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC00100D9DEFE71F560B8C2AB93DF2F7244241E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134519   (687089) от 16.05.2017
+
+Мурад Абдуллах | Я тоже умею совершать намаз (2010) [PDF, EPUB, DOC, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ислам - религия, которая призывает к миру и спокойствию, чистоте, человечности, любви и великодушию, патриотизму, получению знаний. Она удостаивает человека благоденствием мира нынешнего и мира последнего.
+Данная книга содержит информацию о намазе: Условия Веры и Ислама. Шесть фраз, содержащих основы религии. Сорок религиозных обязанностей (фарзов). Тахарат, гусл, (   Читать дальше...   )Жанр: ИсламФормат: PDF, EPUB, DOC, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6523EF1B636F18416EDA8A7AFAC47DDD15A837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134635   (684968) от 17.05.2017
+
+Задонский Рождество-Богородицкий мужской монастырь (изд.) | О чтении Священного Писания, книг духовных и светских. Из творений Святых Отцов (2011) [PDF, DJVU, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Писания святых отцов все составлены по внушению или под влиянием Святого Духа. Чудное в них согласие, чудное помазание! Руководствующийся ими имеет, без всякого сомнения, руководителем Святого Духа.
+
+Все воды земли стекаются в океан, и может быть, океан служит началом для всех вод земных. Писания отцов соединяются все в Евангелии; все клонятся к тому, чтобы научить (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BB9EDE10618FAEBB2EC3BCD9E0227EE5681456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507800   (683365) от 08.06.2012
 
 Фома Шпидлик | Духовная традиция восточного христианства. Систематическое изложение [2000] [PDF]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,118 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FDAA66BC8200BA7A25EC258CD94990301D3FDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223307   (677137) от 03.05.2018
-
-Ю. Хабермас, Й. Ратцингер (Бенедикт XVI) | Диалектика секуляризации. О разуме и религии (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677137.jpg" />
-</div>
-
-
-###  Подробнее
-
-В диалоге Юргена Хабермаса и Йозефа Ратцингера обсуждается вопрос о секулярных принципах современной европейской цивилизации.
-Издание адресовано всем, кто интересуется современной богословской и философской мыслью.Жанр: Богословие, философияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A26BD1691812786922EE0A8D747C18BB6423D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136186   (675070) от 22.05.2017
-
-Д. С. Чунтонов (сост.) | Преподобный Варсонофий Оптинский. Дары Божии (2012) [DJVU, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Варсонофий Оптинский
-
-Преподобный Варсонофий (в миру Павел Иванович Плиханков) родился 5 июля 1845 года в Самаре, в купеческой семье.
-(   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDDABE1AE446959EDA2F5D63B1DBBA004303EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030349   (674975) от 30.06.2016
-
-Протопресвитер Виталий Боровой | Православный экуменизм Русской Церкви и его заветы настоящему времени (1999) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание подготовлено известным специалистом прот. Виталием Боровым. Автор высказывает интересную точку зрения на возможности диалога и совместной деятельности разных конфессий на территории Беларуси. Проблема рассматривается как с исторический, так и с политической точки зрения.
-
-Для читателей, интересующихся проблемами межцерковного диалога христианских (   Читать дальше...   )Жанр: ЭкуменизмФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3831AA7FA1FBB8204CDA7E0060F6A25EE640B593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030308   (674824) от 30.06.2016
-
-Ирина Финдлоу | Путь к единству (1998) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_674824.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Эта книга — история любви, точнее, две истории, переплетающиеся в одной. Англиканский священник встречает молодую русскую беженку, и об истории их любви и семейной жизни с нежностью рассказывает Ирина Финдлоу. Но кроме того, это также свидетельство любви к России, силе её духовного характера, которую Ирина и Джон пронесли через всю свою жизнь..."
-
-Ричард (   Читать дальше...   )Жанр: MемуарыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AAB9999CAE6DE66A7BDCF43111F9DE65180388
 ```
 
 https://mybot314.ru/tekegram_catalog/

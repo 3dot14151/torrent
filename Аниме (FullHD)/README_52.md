@@ -1,3 +1,57 @@
+###  Публикация: 1691788   (123166) от 13.01.2024
+
+Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | Кайна в великом Снежном море (фильм) [2023, Movie] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Дeйcтвиe paзвopaчивaeтcя в миpe, кoтopый пoглoщaeт Beликoe cнeжнoe мope. Чeлoвeчecтвo влaчит жaлкoe cyщecтвoвaниe нa чём-тo пoд нaзвaниeм Teнмaкy (гдe-тo тyт кaлaмбyp c япoнcким oбoзнaчeниeм пaлaтки), чтo тянeтcя oт кopнeй дo вepшин гигaнтcкиx opбитaльныx дepeвьeв. B цeнтpe пoвecтвoвaния — мaльчик Kaйнa, кoтopый живёт нa Teнмaкy, и Лилиxa, пpинцecca мaлeнькoгo гocyдapcтвa (   Читать дальше...   )Производство: студия Polygon Pictures / ポリゴン・ピクチュアズЖанр: приключенияРежиссер: Андо ХироакиПеревод: CrunchyRollСубтитры: Английские; Русские; Multi-SubПродолжительность: 100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CC45B83EE4F0F605BDE7197C7BEE2B1324D0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691827   (123146) от 13.01.2024
+
+Seishun Buta Yarou wa Odekake Sister no Yume o Minai | Rascal Does Not Dream of a Sister Venturing Out | Этот глупый свин не понимает мечту сестры на прогулке [2023, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Позади изнурительный декабрь, близится окончание учебного года. У Сакуто и Маи осталось не так много времени, ведь Маи в этом году оканчивает школу. Тем временем Каэдэ, сестра Сакуто, планирует поступить в школу, где учится брат.
+
+Продолжение истории.Производство: студия CloverWorksЖанр: комедия, романтикаРежиссер: Масуй СойтиПеревод: Funimation; AniLibriaЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 65 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3935D97473BC39FB45EC30CC510F126A6A22977D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699421   (117819) от 13.02.2024
 
 Shuumatsu no Walkure II | Record of Ragnarok II | Повесть о конце света 2 [ТВ-2][2023, Web, 15 из 15] WEBRip 1080p raw+eng
@@ -6,7 +60,7 @@ Shuumatsu no Walkure II | Record of Ragnarok II | Повесть о конце �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! | Мой «комплекс бр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Leve
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +138,7 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Princess Principal: Crown Handler | Принцесса-шпионка: Укро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +242,7 @@ Tondemo Skill de Isekai Hourou Meshi | Campfire Cooking in Another World with My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +268,7 @@ Gekijouban Psycho-Pass: Providence | Психопаспорт: Провиден�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +296,7 @@ Horimiya | Хоримия [2021, TV, 13 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +322,7 @@ Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito | Пут
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +348,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +374,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +400,7 @@ Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades | Семь гл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +427,7 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигантские звери Арса [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +453,7 @@ The Klutzy Witch | Rakudai Majo: Fuuka to Yami no Majo | Ведьма-неуда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +480,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +506,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I'm in Love with the Villainess | Я влю
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +532,7 @@ Tenpuru | Храм [2023, TV, 12 эп. + 2 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +559,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +585,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +611,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +638,7 @@ Yumemiru Danshi wa Genjitsushugisha | The Dreaming Boy is a Realist | Из ме�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +664,7 @@ The Quintessential Quintuplets ∽ | Go-Toubun no Hanayome~ | Пять неве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -621,60 +675,6 @@ The Quintessential Quintuplets ∽ | Go-Toubun no Hanayome~ | Пять неве�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478C5B6AC7DCB73308E76E51A26066DE466C3890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702737   (115518) от 26.02.2024
-
-Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, сильнейший? [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за травли Харуто отказался выходить из комнаты. Но в один прекрасный день богиня выбрала его для реинкарнации. И переродился он не простым человеком, а принцем, да ещё и с невероятными навыками! Однако и там всё оказалось не так гладко.
-© crunchyrollПроизводство: студия Staple Entertainment / ステイプルエンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Наоя ТакасиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F894B8BC835E2A6992E06545A178A43CE7CFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702751   (115506) от 26.02.2024
-
-Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cleric | Великий святой [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офисного клерка убивают перед долгожданным повышением, но милостивый Бог дарует ему новую жизнь в другом мире. Люциэль выбирает профессию целителя и решает в этот раз уж точно достичь успеха. Однако вскоре он узнает, что в этом мире целителей не слишком жалуют.
-© crunchyrollЖанр: комедия, фэнтезиРежиссер: Тамагава МасатоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE6284C5403D801BAE8FD929DB1958A9C2E2567
 ```
 
 https://mybot314.ru/tekegram_catalog/

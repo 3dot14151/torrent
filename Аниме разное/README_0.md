@@ -1,3 +1,29 @@
+###  Публикация: 1469923   (1016028) от 14.05.2021
+
+Shan He Jian Xin | Thousand Autumns | Душа меча Гор и Рек | Меч сердца гор и рек | Тысяча осеней [2021, TV, 16 из 16] WEBRip 1080p rus+HS
+
+>>Аниме разное
+>>Аниме хардсаб
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Глава горы Сюаньду, Шэнь Цяо был вызван на дуэль, но сорвался со скалы. Умирающего его нашёл Янь Уши, следующий по пути тьмы и уже давно разочаровавшийся в людях, неспособных, по его мнению, даже на такую малость как верность или благодарность, не говоря уже о таких высоких достоинствах, как бескорыстная доброта, искреннее великодушие и чувство подлинной справедливости. (   Читать дальше...   )Производство: Китай, Motion MagicЖанр: Фэнтези, приключения, боевые искусстваЯзык озвучки: Русский (двухголосый) - AniStarПродолжительность: 16 х ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392F490A1DCC6CBC21E5B21DF004DA66C82B9ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476848   (1011384) от 12.06.2021
 
 Da Shen Xian | Wo Shi Da Shenxian | I Am A Great God | I'm immortal! | Я великий бог | Я - Бессмертный! [2020-2021, TV, 32 из 32] WEBRip 1080p HS+rus
@@ -6,7 +32,7 @@ Da Shen Xian | Wo Shi Da Shenxian | I Am A Great God | I'm immortal! | Я вел
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Ling Jian Zun | Spirit Sword Sovereign | Владыка духовного ме�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Serial Experiments Lain / Эксперименты Лэйн [1998 TV, 13 из 13
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +139,7 @@ Koukaku Kidoutai / Ghost in the Shell / Призрак в доспехах [1995
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +165,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +192,7 @@ Krokodil Gena / Крокодил Гена [1969,OVA]
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +427,7 @@ Macross XX | Macross 20th | Макросс ХХ [2002, OVA, 1 из 1] DVDRip 480
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +453,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +533,7 @@ Hellsing Ultimate / Хеллсинг [2006-2012, OVA, 10 из 10 + SP] BDRemux 1
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -541,7 +567,7 @@ Wu Shen Zhu Zai | Wushen Zhuzai | Боевой мастер | Повелител
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -567,7 +593,7 @@ Mutsu Enmei Ryuu Gaiden: Shura no Toki / Shura no Toki - Age of Chaos / Врем
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -593,7 +619,7 @@ Macross Frontier Music Clip Shuu: Nyankuri | Macross Frontier Music Clip Collect
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -619,7 +645,7 @@ Byousoku 5 Centimeter / 5 Centimeters per Second / Пять сантиметро
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +674,7 @@ Wanmei Shijie | Wan Mei Shi Jie | Perfect World | Идеальный мир | Б
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -659,32 +685,6 @@ Wanmei Shijie | Wan Mei Shi Jie | Perfect World | Идеальный мир | Б
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F95284A5FB1810A25E7BFD75D6C794C0A9BC3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111609   (848061) от 05.03.2017
-
-Убежище | Shelter [2016, Музыкальный клип] BDrip 1080p raw
-
->>Аниме разное
->>Аниме прочее
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткое музыкальное видео, созданное студией A-1 Pictures в сотрудничестве с американским DJ Портером Робинсоном, а также французским музыкантом Madeon. В центре сюжета — Рин, семнадцатилетняя девушка, живущая в бесконечной футуристической реальности, поддерживаемой симулятором. Каждый день она просыпается и попадает в свой собственный мир — прекрасное одиночество... (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: музыкальныйРежиссер: Акай ТосифумиПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 6 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1982B59747D519522207A0B50CE35F5767F38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

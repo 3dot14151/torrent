@@ -1,3 +1,108 @@
+###  Публикация: 570399   (384660) от 08.11.2012
+
+.hack//Sekai no Mukou ni / .hack//The Movie / .Взлом//По ту сторону мира [2012] BDrip 804p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История фильма разворачивается в 2024 году. 14-летняя школьница Сора Юки под напором друзей начинает играть в популярную сетевую игру «The World», но так случается, что из-за некоего инцидента, события игры начинают влиять на реальный мир.Жанр: приключения, фэнтезиРежиссер: Мацуяма ХиросиПродолжительность: 110 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8DE82A613C6C254DCCA01E1273F0BDA331C7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295522   (382496) от 21.09.2019
+
+Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тору Хонда — простая школьница с непростой жизнью. Она осиротела, лишилась крыши над головой, вынуждена жить в палатке и самостоятельно зарабатывать себе на жизнь. Но Тору не унывает, встречая невзгоды с улыбкой. И вот однажды судьба преподносит ей сюрприз — девочка знакомится с семьёй Сома, над которой висит ужасное проклятье…
+Ремейк аниме Корзинка фруктов (2001г.)Производство: Япония, cтудия TMS / トムス・エンタテインメントЖанр: Реверс-гарем, РомантикаРежиссер: Ибата ЁсихидэЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 25 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462AD2950CAED31EAAD153F50BCCC785EAF03BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004627   (381819) от 31.10.2016
+
+Joker Game / Игра Джокера [2016, TV, 12 ep + 2 sp] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Организация под названием «Агентство Д» создана осенью 1937 года в качестве независимого армейского подразделения по личной инициативе подполковника Юки. По слухам, Юки сам в прошлом был хорошим агентом и добыл у врага немало секретов, пока его не предал союзник. До побега из плена подполковника жестоко пытали, чем объясняется отсутствие левой руки и то, что он ходит (   Читать дальше...   )Жанр: приключенияРежиссер: Номура КадзуяПеревод: Светлана СтолыпинаСубтитры: ASS, Встроенные, Полные | Надписи «AOS Team»Формат: MKVПродолжительность: 12 эпизодов и спэшлы по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79E510499F90F9F52012F1A4F4131685C3A97E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574891   (380958) от 07.09.2022
+
+Hyakuren no Haou to Seiyaku no Valkyria | The Master of Ragnarok & Blesser of Einherjar | Повелитель Рагнарёка и покровитель эйнхерий [2018, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юто Суо как никто другой знает, что некоторым городским легендам лучше оставаться легендами. Решив с подружкой проверить одну из них, он не ожидал, что попадет в иной мир — мир, пропитанный духом древних скандинавских легенд. Вместе со знаниями, полученными в школе, и смартфоном на солнечной батарее Юто предстоит привести к величию клан Волка, что некогда о нем позаботился. (   Читать дальше...   )Производство: EMT Squared / EMTスクエアードЖанр: приключения, фэнтези, романтика, эттиРежиссер: Кобаяси КосукэЯзык озвучки: Японский, русскийСубтитры: #1: Русские, ASS, Надписи+Полные |Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAEE4B52BDB41B0D6F732B4EE4E5A30FB06C5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572920   (380714) от 10.11.2012
 
 Koi Koi Seven / Koikoi 7 / Дружная семерка (2005, TV, 13 эп.) DVDrip 720p raw+rus
@@ -6,7 +111,7 @@ Koi Koi Seven / Koikoi 7 / Дружная семерка (2005, TV, 13 эп.) DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +140,7 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / За �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +192,7 @@ Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +218,7 @@ Shokugeki no Souma: Ni no Sara / Кулинарные Поединки Сомы:
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +244,7 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? / Hensuki / Влюбишьс�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +270,7 @@ Gekijouban Fate/Stay Night: Unlimited Blade Works / Fate/Stay Night: Unlimited B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +324,7 @@ Crusher Joe: Hyouketsu Kangoku no Wana | Крушила Джо OVA-1 [1989, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +351,7 @@ Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +378,7 @@ Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +405,7 @@ Cowboy Bebop / Ковбой Бибоп [1998-1999, TV, 26] DVDrip raw rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +435,7 @@ Shinseiki Evangelion / Neon Genesis Evangelion / Евангелион новог
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -357,7 +462,7 @@ Machikado Mazoku | Demon Girl Next Door | Городская демонесса 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +488,7 @@ Hanamonogatari / История цветов [2014, Special, 5 из 5] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +516,7 @@ Cop Craft | Мастерство копа | Детективные будни: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +542,7 @@ One Piece Movie 14: Stampede | One Piece Movie 14: Stampede | Ван Пис Фи
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +570,7 @@ Pokemon Diamond and Pearl: Battle Dimension (11 Season) / Покемон Алм�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -491,7 +596,7 @@ Grand Blue / Grand Blue Dreaming / Бескрайняя синева [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +622,7 @@ Kizumonogatari | Истории ран [2016-2017, Movie, 3 из 3] BDrip 720p 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +648,7 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли ты люб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,7 +674,7 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,112 +685,6 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26CA0EAEF67137C51C8C404F9593A69AD7EFDE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885418   (348293) от 04.11.2015
-
-Owari no Seraph / Seraph of the End: Vampire Reign / Последний Серафим (ТВ-1) [2014, TV, 12 ep + 9 SP] BDRip Hi10p 720p Raw+Rus x6(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348293.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стремлении к запретным знаниям «человек разумный» опять напортачил – в 2012 году на волю вырвался смертельный вирус, начавший косить человечество. Умирали почему-то взрослые, и тут, откуда ни возьмись, явились вампиры и согнали оставшихся детей в свой подземный город, объявив, что отныне «людишки» будут жить под защитой клыкастых хозяев, расплачиваясь кровью. Резкий (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Токудо ДайсукэПеревод: Русские субтитры от Nesitach & Stan WarHammerСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов и 9 спэшлов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C55FAE621889F4787629350397524452573C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858255   (348265) от 04.11.2015
-
-Tokyo Ghoul A / Токийский гуль [ТВ-2] [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x4(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя через страшную боль, унижение и ломку жизненных ценностей, Кэн Канэки переродился. Вместо неуклюжего гибрида человека и упыря возникло что-то новое, гораздо сильнее и совершеннее. Выпустив и укротив внутреннего зверя, Кэн встал на дорогу могущества, но куда она приведет? Пока что молодой боец уверен в одном – только абсолютная сила позволит ему жить так, как (   Читать дальше...   )Жанр: приключения, мистика, ужасыРежиссер: Морита СюхэйПеревод: Русские субтитры от Timecraft [1-9]
-Переводчик: Amanri, Редактор/Перевод песен: NachtwandlerСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BDEC1C82BAFE2FC947E1391DF873BE55306761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562090   (347219) от 22.09.2022
-
-Дочь моей мачехи - моя бывшая девушка | Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мидзуто и Юмэ влюбились друг в друга и начали встречаться ещё в средней школе. Но вскоре всё пошло наперекосяк: парочка стала часто ссориться по мелочам, чувства быстро остыли, а от прежней любви не осталось ничего, кроме взаимного раздражения. Решив, что так продолжаться больше не может, наши герои расстаются прямо на школьном выпускном. Но, видимо, у судьбы-злодейки (   Читать дальше...   )Производство: Япония / Студия Project No.9Жанр: Комедия, романтикаРежиссер: Янаги СинсукэЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24030C7A8CDD43AE61BF8CA85CC0D791C2F02EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312236   (345106) от 08.10.2019
-
-Отвергнутый священный зверь / Katsute Kami Datta Kemono-tachi e [2019, TV, 12 из 12] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гражданская война поделила страну на две противоборствующие группы: Север и Юг. Южане, готовые на всё ради победы, пустили в ход запретную магию, превратив своих солдат в монстров. Те полностью утратили человеческий облик, получив взамен нечеловеческую силу, и в итоге отвоевали свои земли.
-Война закончена, однако это не принесло в страну мир и спокойствие. Магия, (   Читать дальше...   )Производство: Япония, MAPPAЖанр: Триллер, драма, фэнтези, сёненРежиссер: Дзюн СисидоЯзык озвучки: Русский (AkariGroup)Субтитры: ОтсутствуютПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFFF82946DA303B438BF1A916499ED3D453DFFEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

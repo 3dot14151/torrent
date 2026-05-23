@@ -1,3 +1,81 @@
+###  Публикация: 1011330   (796602) от 27.04.2016
+
+Planetoid Pioneers (2016) [En] (Build 0) Repack Other s [Contributor Edition]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Planetoid Pioneers - это двухмерная приключенческая игра, созданная в духе классических приключенческих проектов 1988 года - Blaster Master и Exile. Игроки, оказавшись на некоем планетоиде, оказываются вынуждены собирать ресурсы, исследовать местность и создавать различные машины.Тип издания: RepackРазработчик: Data RealmsЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395EC78AA794564217EA3897481DF1C6C1A65E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344879   (796483) от 26.05.2020
+
+Factorio (2016) [Ru/Multi] (0.18.26) Repack Other s
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Factorio — это игра про добычу ресурсов, постройку заводов, автоматизацию производства и борьбу с агрессивной фауной на чужеродной планете. Вы - одинокий выживший в космической экспедиции, оказавшийся на поверхности чужого и враждебного мира. Единственно с камнями и залежами руд под ногами, ваша последняя надежда на выживание - отстроить с нуля автоматические механизмы (   Читать дальше...   )Тип издания: RepackРазработчик: Wube Software LTDЖанр: StrategyЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815CA34FE70318579748D0306321228B4A1C977A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274525   (792961) от 07.01.2019
+
+Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Седьмая часть захватывающей тайм-менеджмент стратегии от Groqing Grass Studio и Big Fish Games.Тип издания: UnofficialРазработчик: Groqing Grass StudioЖанр: СимуляторЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E25A91ECC24026DE75EF68F47D5DC85B21F183F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014883   (791895) от 25.01.2018
 
 Project Zomboid (2013) [Ru/Multi] (38.30) Repack Other s
@@ -6,7 +84,7 @@ Project Zomboid (2013) [Ru/Multi] (38.30) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Minotaur (2020) [Ru/Multi] (0509) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Persian Nights 2: The Moonlight Veil (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ DECA (2018) [En] (0.1) License HOODLUM
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Paranormal Files 3: Enjoy the Shopping (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Hidden Expedition 18: Neptunes Gift (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ World of Diving (2014) [En] (0.16.2) Repack CoD - MW2
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Wild Eight (2017) [Ru/En] (0.8.52) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Bus Driver Simulator 2018 (2018) [Ru/Multi] (1.3) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Signs of Life (2014) [En] (0.11.1) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Lobotomy Corporation (2016) [Ru/Multi] (0.3.1.1b) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Stationeers (2017) [Ru/Multi] (0.1.1176.5874) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Abandon Ship (2018) [En] (0.5.8009) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Universim (2016) [En] (Alpha 23) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Fragmented (2016) [En] (Build 16.4.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Ms. Holmes: The Monster of the Baskervilles (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Need For Drink (2017) [Ru/Multi] (0.017) Repack R.G. Механики
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ DillyBall (2017) [En] (0.10) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Chimeras 9: Wailing Waters (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ On The Road - Truck Simulation (2017) [En/De] (0.52) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ Distance (2014) [En] (1.0.6009) Repack Mizantrop1337
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +657,7 @@ RimWorld (2016) [Ru/Multi] (0.18.1722) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,84 +668,6 @@ RimWorld – это игра о колонистах, которые потер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D13EB88FD9B6058C7DDF7DDBB1E28CB863E7FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280812   (758176) от 04.02.2019
-
-Praey for the Gods (2019) [Ru/Multi] (0.5.006) Repack Other s
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Praey for the Gods — приключенческий экшен, который, по сути, является реинкарнацией Shadow of the Colossus для PC от независимой студии No Matter. Игроку предстоит ощутить себя в шкуре одинокого охотника в мире вечной зимы, находящегося на грани уничтожения. Чтобы выжить, вам предстоит сражаться с огромными созданиями при помощи лука и своей смекалки.Тип издания: RepackРазработчик: No Matter StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0453828418271476012E6224C99F8DB06120DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019948   (744509) от 26.05.2016
-
-Raptors: Be A Dinosaur (2014) [En] (Beta) Repack John2s
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами Raptors: Be a Dinosaur — маленькая игра про динозавров студии Kubold, наглядно показывающая возможности движка Unity. В интернете её окрестили не иначе как "симулятор динозавра". Игрушка выглядит больше как показательная. Что может этот движок, его плюсы и минусы. К сожалению, дальнейшая разработка этой игры не планируется и это действительно (   Читать дальше...   )Тип издания: RepackРазработчик: KuboldЖанр: 3D-бродилки, АркадаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED881DF8C4AF338BE0F64D32DE28589C826F731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282801   (740208) от 16.02.2019
-
-Fatal Evidence: Cursed Island (2019) [En] (Beta) Unofficial
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошла неделя с тех пор, как был убит судья Максвелл МакГрегор, но Агата все еще в шоке. Сегодня было получено странное письмо от сына Уилсона! Это приглашение в усадьбу МакГрегоров на острове Блэквуд. Судя по всему, судья Макгрегор оставил что-то в своем завещании. Расследуете убийство.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905265C67AB9205225B325119204167EEA1C3576
 ```
 
 https://mybot314.ru/tekegram_catalog/

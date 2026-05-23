@@ -1,3 +1,108 @@
+###  Публикация: 1566222   (470056) от 04.08.2022
+
+Битва за Алжир / La battaglia di Algeri / The Battle of Algiers (1966) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В центре фильма — события алжирской борьбы за независимость в промежутке между 1954 и 1960 гг., пропущенные через воспоминания находящегося под арестом главного героя.Производство: Италия, Алжир / Igor Film, Casbah FilmЖанр: драма, военныйРежиссер: Джилло ПонтекорвоАктеры: Брахим Хаджадж, Жан Мартен, Язев Саади, Мишель Керьаш, Уго Палетти, Фусия Эль Кадер, Мохамед Бен Кассен, Франко Моричи, Томмазо Нери, RouïchedПеревод: Авторский (Сергей Кузнецов)Язык озвучки: Русский, ФранцузскийСубтитры: Русские, английскиеПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759BEB8EB2F9718B3BC12DC79F6E87FA48AAE2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361448   (469709) от 21.09.2013
+
+Капитан Январь / Captain January (1936) DVDRip [цветной]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Капитан Январь - старый моряк, поддерживающий работу маяка на мысе штата Мэн. Несколько лет назад он стал приемным отцом для маленьком девочки-сироты, которую нашел и спас во время шторма. Январь назвал девочку красивым именем Стар. Старый моряк научил ее всем премудростям морской жизни, кроме того, Стар оказалась на редкость талантливым музыкальным ребенком: она (   Читать дальше...   )Производство: США, Twentieth Century-Fox Film CorporationЖанр: Мюзикл, Комедия, СемейныйРежиссер: Дэвид БатлерАктеры: Ширли Темпл, Гай Кибби, Слим Саммервилл, Бадди Эбсен, Джордж Ирвинг, Сара Хейден, Джейн Дарвелл, Джун Лэнг, Джерри Таккер, Нелла УолкерПеревод: Многоголосый закадровый, профессиональный (наиболее вероятно это перевод с издания ООО "Светла")Продолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5731351662B58EA861403FA1D079519AB79594F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701650   (469610) от 21.09.2013
+
+Эльдорадо / El Dorado (1967) HDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Влиятельный землевладелец городка Эльдорадо Барт Джейсон нанимает известного стрелка Коула Торнтона для решения земельного вопроса с семьей МакДоналдов. Шерифом Эльдорадо оказался старый друг Коула Джей Пи Хара.
+Отказавшись от предложения Джейсона, Торнтон встает на сторону шерифа и принимает решение защитить МакДоналдов. В свою очередь Барт набирает банду головорезов, (   Читать дальше...   )Производство: США / Laurel Productions, Paramount PicturesЖанр: Вестерн, ПриключенияРежиссер: Ховард ХоуксАктеры: Джон Уэйн, Роберт Митчум, Джеймс Каан, Шарлин Холт, Пол Фикс, Артур Ханникат, Мишель Кэри, Р.Г. Армстронг, Эдвард Эснер, Кристофер ДжорджПеревод: Многоголосый закадровыйПродолжительность: 02:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84080A2D36DEC306FC4270BBF1A14440A301826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938208   (468789) от 24.09.2015
+
+Четверо из Техаса / 4 for Texas (1963) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Двое удалых парней отправляются в Техас, чтобы открыть игорный дом. «Солдатам удачи» придется побороться со свирепым гангстером. Многие позарятся на их денежки. Да и до них самих найдутся охотницы…Производство: США / The Sam CompanyЖанр: Комедия, ВестернРежиссер: Роберт ОлдричАктеры: Фрэнк Синатра, Дин Мартин, Анита Экберг, Урсула Андресс, Чарльз Бронсон, Виктор Буоно, Эдрик Коннор, Ник Дэннис, Ричард Джэкел, Майк МазуркиПеревод: Многоголосый закадровый ("Русский дубляж" по заказу СТС)Субтитры: ОтсутствуютПродолжительность: 01:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8F5B61961BC8AF5776B873B2AA042EF72069A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937680   (468685) от 24.09.2015
 
 Таггарт / Taggart (1964) DVDRip
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559507EE8BAB7C5CD945B1F858114BA9F33A273B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567022   (459756) от 09.08.2022
-
-Мир движется вперед / The World Moves On (1934) WEBRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459756.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается в 1825 году, когда две семьи, торговцы хлопком в Англии и Америке, с филиалами во Франции и Пруссии, клянутся поддерживать друг друга, веря, что крупный бизнес, прочно обосновавшийся в четырех странах, сможет выдержать даже такие испытания, как наполеоновские войны, от которых Европа медленно оправляется. Много лет спустя на мир обрушиваются Первая (   Читать дальше...   )Производство: США / Fox Film CorporationЖанр: драма, мелодрама, военный, историяРежиссер: Джон ФордАктеры: Мэдлен Кэррол,  Франшо Тоун,  Реджинальд Денни,  Сиг Руман,  Луиз Дрессер,  Рауль Рульен,   Степин Фетчит,  Ламсден Хейр,  Дадли Диггес,  Фрэнк МелтонПеревод: Авторский (Алексей Яковлев)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544062132F4E7FCA619F00679FF7B52C0188F0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938765   (459735) от 28.09.2015
-
-Убийца Кид / Killer Kid (1967) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американское правительство уполномочило стрелка Моррисона обезвредить банду контрабандистов, продающих оружие мексиканским повстанцам. Пытаясь выследить шайку, Моррисон сам попал в лапы мексиканцев…Производство: Италия / Elsio Mancuso per G.V.Жанр: Вестерн, МелодрамаРежиссер: Леопольдо СавонаАктеры: Энтони Штеффен, Луиза Баратто, Фернандо Санчо, Джованни Чанфрилья, Ховард Нельсон Рубьен, Вирджиния Дарваль, Адриано Витале, Уго Адинолфи, Фортунато Арена, Бруно АриПеревод: Одноголосый закадровый (7879)Субтитры: ОтсутствуютПродолжительность: 01:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78FC11E58401409CD932AA1EF1B456CA5F200EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939019   (459542) от 28.09.2015
-
-Мотоангелы ада / Ангелы ада на колесах / Hells Angels on Wheels (1967) HDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о начале становления байкерского движения в Америке- о жизни байкеров начала 60-х годов. Рабочий бензоколонки по кличке Поэт работает на бензозаправке, и когда один из так называемых клиентов его достал, просто бросает эту работу, садится на свой байк и уезжает. Вечером подъехав к какому-то кабаку на окраине города, он ввязывается в драку с одним (   Читать дальше...   )Производство: США, Fanfare FilmsЖанр: Триллер, Драма, КриминалРежиссер: Ричард РашАктеры: Джек Николсон, Адам Рорк, Сабрина Шарф, Яна Тейлор, Ричард Андерс, Джон Гарвуд, Джеймс Оливер, Джек СтарреттПеревод: Профессиональный (многоголосый, закадровый)Субтитры: отсутствуютПродолжительность: 01:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6F8697F736E758AB4816DAAFBA71086E84E52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056363   (459469) от 05.10.2016
-
-Джонни-гитара / Johnny Guitar (1954) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Салун Вьенн расположен на том участке земли, по которому скоро пройдет железная дорога. В салуне постоянно ошивается Танцующий Кид, который влюблен во Вьенн, и которого страстно желает заполучить старая дева Эмма Смол. Эмма собирает толпу, чтобы сжечь салун и повесить Кида…Производство: США / Republic Pictures (I)Жанр: Драма, Мелодрама, ВестернРежиссер: Николас РэйАктеры: Джоан Кроуфорд, Стерлинг Хейден, Мерседес МакКэмбридж, Скотт Брейди, Уорд Бонд, Бен Купер, Эрнест Боргнайн, Джон Кэрредин, Ройал Дэно, Фрэнк ФергюсонПеревод: Авторский (С. Кузнецов)Продолжительность: 01:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D38908111DDE6EEFA1A98616EED25ECE1E3600F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,392 @@
+###  Публикация: 1623543   (200403) от 02.04.2023
+
+Udemy, Serge Lansiquot | Learn C++ Programming By Making Games Volume 2 (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Углубленный практический курс по ООП с использованием C++. Мы изучим самые основы ООП, такие как классы и объекты, а также более сложные темы, такие как семантика перемещений и лямбда-выражения. Затем мы возьмем эти темы и применим их в сложном приложении, которое будет содержать 4 различные аркадные игры: Tetris, Break-out!, Asteroids и Pacman. Две из этих игр мы (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 28:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BB2771CB9B41B0F18CEB9541FAA74C5E0D8F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461392   (200349) от 03.04.2023
+
+Maven Analytics, John Pauler | MySQL Specialist (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этот путь предназначен для администраторов баз данных или аналитиков данных, которые хотят приобрести навыки работы с MySQL на экспертном уровне и попрактиковаться в их применении в реальных проектах и тематических исследованиях.
+Мы начнем с введения в администрирование баз данных, где вы узнаете, как проектировать, оптимизировать и управлять реляционными базами (   Читать дальше...   )Производство: Maven AnalyticsЖанр: Базы данныхЯзык озвучки: АнглийскийПродолжительность: 27:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BB24AC1CF902A7112BBA9024CE11D4813BE5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625824   (199995) от 11.04.2023
+
+Pluralsight, Alper Tellioglu | Pandas Arrays and Data Structures (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс охватывает использование массивов pandas для анализа и обработки данных, включая обработку временных данных, категориальных данных и разреженных данных. Практические упражнения дают практический опыт использования массивов pandas для решения реальных задач.
+
+Pandas — одна из самых мощных библиотек для науки о данных, которая предоставляет мощные и простые (   Читать дальше...   )Производство: PluralsightЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E286811917EB7A601C6B39EFEC040D0006C04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631045   (198891) от 03.05.2023
+
+Udemy, Lincoln Margison | Procedural animation for humans in Unreal Engine 5 (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы узнаете, как создать полностью процедурную систему анимации ходьбы/бега для персонажей, используя только Unreal Engine 5.1+.
+
+Эта система позволит вам контролировать каждый аспект стиля ходьбы и бега персонажей, с ручным управлением каждой костью, используя пользовательскую логику и переменные внутри Control Rig (что обеспечивает очень хорошую производительность, (   Читать дальше...   )Производство: UdemyЖанр: Unreal Engine, Procedural animation, Control RigЯзык озвучки: АнглийскийПродолжительность: 08:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8855EBBD53F2BB2B445D8643B67F632637F8280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632205   (198749) от 09.05.2023
+
+Udemy, Serge Lansiquot | Game Dev Math Ultimate guide to polishing your game! (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Для работы видеоигр необходима математика - без этого не обойтись. 2D и 3D графика, искусственный интеллект, звук, анимация, физика - все это приложения математики, и знание основных принципов математики необходимо для того, чтобы хорошо разбираться во всем этом.
+
+Мы будем изучать основные математические понятия, используемые в разработке игр. В отличие от других (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 02:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E532CDAAD1DE8DF81E47C191FC112169756686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631952   (198678) от 08.05.2023
+
+Udemy, Web Oral | ChatGPT: Earning Money With ChatGPT - Easy Way For Beginners (2023) WEB-DL [AD] [EN / EN, RU Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Вы изучите:ChatGPT - передовую технологию искусственного интеллекта.
+Создание контента
+Разработка чат ботов с помощью ChatGPT
+Языковой перевод с помощью ChatGPT(   Читать дальше...   )Производство: UdemyЖанр: НейросетиЯзык озвучки: АнглийскийПродолжительность: 01:31:58Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F064B966277F031A071EE0A67DBBCA937842E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632778   (198533) от 11.05.2023
+
+Productuniversity, Яна Чаруйская и др. | ИИ и для генерации видео (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Создание коротких видео с помощью ИИ (ChatGPT и др.) для продвижения своих продуктов и услуг.
+
+3-х недельный курс с конкурсом работ.
+(   Читать дальше...   )Производство: ProductuniversityЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 03:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5A2E5CEC9CCCDD02109F77DEA8B7828F49B40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634099   (198332) от 18.05.2023
+
+FrontendMasters, Ben Callahan | Enterprise Design Systems Thinking (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Несколько ключевых выводов!
+
+- Целостное понимание анатомии систем проектирования
+- Обзор различных способов развития системы(   Читать дальше...   )Производство: FrontendMastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8878E46CA0F6331DF47CFA05809BC0423EE41A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634102   (198259) от 18.05.2023
+
+FrontendMasters, Lydia Hallie | Advanced Front-End & JavaScript Questions (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Этот семинар протестирует ваши знания JavaScript, CSS, веб-безопасности, внутренностей браузера, производительности веб-сайтов и многого другого! В ходе этого уникального семинара вам будет представлено 40 вопросов. После каждого вопроса Лидия не только объяснит ответ, но также углубится в тему, чтобы закрепить концепции и дать вам более полное понимание.Производство: FrontendMastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171E2ADD6B4F0614DF37BEEB63D1D18E68995D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634335   (198214) от 19.05.2023
+
+Heisenbug | Конференция по тестированию не только для тестировщиков. Spring (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Heisenbug — большая техническая конференция, которая собирает вместе специалистов в области тестирования. Это и тестировщики, и программисты, разрабатывающие тесты для своего кода, и специалисты по автоматическому и нагрузочному тестированию, и менеджеры команд, которые думают о том, чтобы повысить эффективность тестирования в своих проектах.Жанр: КонференцияЯзык озвучки: РусскийПродолжительность: 51:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABA9AE48B933B6D79EA641D00ED9E054162C290
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634340   (198173) от 19.05.2023
+
+pixel.one | Создание 2D игр в Unity (2019) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Курс подходит для новичков и для тех, кто недавно работает с Unity. Мы начнем занятия с базовых принципов, поэтому не переживайте из-за отсутствия опыта.
+Навыки программирования желательны, но не обязательны. Вы научитесь писать код на C# под простые игровые задачи.
+
+Что нужно для обучения?(   Читать дальше...   )Производство: pixel.oneЖанр: Создание игрЯзык озвучки: РусскийПродолжительность: 16:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A690CCFE3BBC8FAAF52A035D08DBEE244923B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634503   (198167) от 20.05.2023
+
+Udemy | Библиотека курсов по Matlab (2022) [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Библиотека курсов по Matlab, максимально пережатых для их компактного хранения
+Я лишь пережал видеокурсы до более компактного размера, о чем свидетельствуют буквы LQ в названии раздачи. Буквы LQ означают lower quality, но качество сохранено вполне себе терпимым для целей обучения (на мой хохряк)Производство: UdemyЖанр: ОбучениеЯзык озвучки: АнглийскийПродолжительность: 205:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4AC2D91B6D5436AC71AA3AC36BF1237B11F9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634853   (198050) от 22.05.2023
+
+Udemy, Nathan House | The Complete Nmap Ethical Hacking Course : Network Security (2018) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Welcome to the Complete Nmap Course!
+Nmap is the Internets most popular network scanner with advanced features that most people don't know even exists!
+Discover the secrets of ethical hacking and network discovery, using Nmap on this complete course.
+(   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF81F86AA71E71D4AE71A0C0ABFB14D79C05A2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635067   (197953) от 24.05.2023
+
+Skillbox, М. Овчинников, С. Корниенко и др. | Веб-вёрстка для начинающих 2.0 (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Верстальщик воплощает в жизнь замысел веб-дизайнера и создаёт рабочие сайты из дизайн-макетов. На курсе вы научитесь верстать одностраничные лендинги, сайты услуг и мероприятий, интернет-магазины. С вёрстки начнётся ваш путь в веб-разработку.
+Чему вы научитесь:
+Писать код на HTML и CSS. Знать эти языки должен каждый веб-разработчик. На HTML будете создавать структуру (   Читать дальше...   )Производство: SkillboxЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 25:25:52Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95721B00D0CC2AB7BEDEC4D7D4A657BD2121F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635495   (197757) от 29.05.2023
 
 Udemy | Библиотека курсов по Ansys (2018-2023) WEB-DLRip [EN / EN Sub]
@@ -6,7 +395,7 @@ Udemy | Библиотека курсов по Ansys (2018-2023) WEB-DLRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +422,7 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -62,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -91,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -119,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -147,7 +536,7 @@ Udemy, Denis Panjuta | Complete C# Masterclass (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -175,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -204,7 +593,7 @@ Foxford (Фоксфорд), Валерия Савина | Практически
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -233,7 +622,7 @@ Udemy, David Makowski | Modern Unity UI with UI Toolkit (2023) WEB-DL [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -261,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -290,7 +679,7 @@ Udemy, Michael Pogrebinsky | Software Architecture & System Design Practical Cas
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -316,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -328,398 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:032B949C20DD0567B8F20D5F66764B6B249C72DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647425   (195576) от 18.07.2023
-
-JUG Ru Group | HolyJS 2023 Spring. Конференция для JavaScript - разработчиков (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195576.jpg" />
-</div>
-
-
-###  Подробнее
-
-HolyJS 2023 Spring - большая конференция для JS-разработчиков. Несколько десятков технических докладов о JavaScript, фронтенде, UI, инструментах и многом другомЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 39:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E9191DC0B1C01A6300219684A1457C2E842992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647514   (195539) от 19.07.2023
-
-leerob | Mastering Next.js (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый видеокурс по созданию продакшн SSR (на стороне сервера) приложений с помощью Next.js и React.Жанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D325217FD0DC8ADAAC136AC721E096B70B70A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647515   (195527) от 19.07.2023
-
-FrontendMasters, Jen Kramer | Practical CSS Layouts (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устали от обычных макетов? Неуверены, как сделать их более интересными? Этот семинар именно для вас! Присоединяйтесь к Джен на два насыщенных дня, в ходе которых вы создадите три различных отзывчивых веб-сайта для вымышленной группы Magenta Lime.
-
-Мы начнем с базового веб-сайта, закрепляя шрифты, размеры, цвета, изображения, и основы дизайна. Затем мы перейдем к (   Читать дальше...   )Производство: FrontendMastersЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED5E9353F1DFC0C2DE72A7E671C66B4FAB40A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647629   (195448) от 19.07.2023
-
-Udemy, Ali Gelenler | Microservices: Clean Architecture, DDD, SAGA, Outbox & Kafka (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195448.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this course, you will focus on architectural aspects of microservices architecture and use Clean & Hexagonal Architecture principles while developing each service. In the implementation of the domain layer you will also apply Domain Driven Design principles.
-
-You can always use the latest versions for spring boot, and other dependencies in this course. I will (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 20:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBA31E123248FA7C23DCFA722E8D33102E5EADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647882   (195381) от 20.07.2023
-
-Udemy, Ali Gelenler | Event-Driven Microservices: Spring Boot, Kafka and Elastic (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195381.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this course, you will focus on the development of microservices. With the help of microservices you can independently develop and deploy your application components . You can also easily scale services according to each service's own resource needs, for example you can scale better and create more instances of a service that requires more requests.
-
-You can always (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A20AE2335E4BB74FB25E11797093AF796689460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648503   (195373) от 23.07.2023
-
-Podlodka Crew | Записи Java Crew #2 «Микросервисная архитектура» (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195373.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Доклад "Domain Driven Design и микросервисы на Java": Станислав Кокшаров
-- Интервью "Sage. Observability своими руками": Кирилл Карандин, Роман Щербаков
-- Доклад "Как сохранить контракт, пустившись во все тяжкие": Артем Птушкин, Артём Бояршинов
-- Круглый стол "Микросервисы и места, где они обитают": Даниил Плешков, Андрей (   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 12:18:17Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E617740ECE82BC59634546191DE32CFEE9D3C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649636   (195063) от 28.07.2023
-
-Podlodka Crew | Записи Go Crew #1 - «Внутренний тулинг» (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195063.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Открытие "Добро пожаловать"
-- Батл: JavaScript/Python vs Go: тулинг / Эмиль Шарифуллин, Никита Соболев
-- Воркшоп: Gonkey: пишем функциональные/интеграционные тесты декларативно / Денис Фетинин (LaTech)
-- Разработка игр на Go: обзор экосистемы Ebitengine(   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 11:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0832F165506C61B9D9080EF4E6EDB808A06543E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649997   (194974) от 30.07.2023
-
-Udemy, Nikita Sergeev | Excel: основное для работы с массивами и базами данных (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс - это способ быстро ознакомиться с возможностями MS Excel в части работы с массивами и базами данных. Владеющих такими знаниями сотрудников в офисной среде часто считают "гуру Excel" :).
-Курс не просто дает общее представление, а и обучает набору функционалов Excel для решения прикладных задач в части работы с массивами и умными таблицами на обычных (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:21:27Реклама: Рекламные вставки и наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D69FA165389C73A7811639156C6B61093DCE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648179   (194955) от 30.07.2023
-
-SD.CODE, Сергей Дмитриевский | Мышление Программиста. Ключевой навык, без которого невозможно стать программистом (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие люди хотят стать программистами:
-- Хорошие программисты легко могут зарабатывать 350-500 тыс/руб в месяц
-- Программирование — это удаленная профессия. Можно работать из любой точки мира.
-- Это универсальная профессия. Переехав в другую страну можно легко найти работу.(   Читать дальше...   )Производство: SD.CODEЖанр: Программирование, Soft skillsЯзык озвучки: РусскийПродолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4451ECCD042B734E2406E7E6A4FADA9A106F7344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650326   (194882) от 01.08.2023
-
-Abbas Masri | The Complete Android 14 Developer Course - Build 100 Apps (2022) WEBRip [EN / EN SUb]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194882.jpg" />
-</div>
-
-
-###  Подробнее
-
-So you want to become an Android Developer & start publishing your apps?
-
-You like to stay home & learn from your own computer?
-(   Читать дальше...   )Производство: UdemyЖанр: Android, Android studio, JavaЯзык озвучки: АнглийскийПродолжительность: 98:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927318FF8FC555D6833B5F01BF742E43B1E1820F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651852   (194627) от 08.08.2023
-
-Udemy, Richard Chesterwood | Kubernetes Hands-On - Deploy Microservices to the AWS Cloud (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kubernetes is one of the hottest topics right now, and engineers with Kubernetes skills are in big demand.
-
-Get those skills with this course! It's is a great chance to work on a real Kubernetes project, and to get yourself to a high professional standard on real projects.
-(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 28:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4A0E87F820F8F1F6F06A60679E8ADC21C3FD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651937   (194586) от 09.08.2023
-
-Abbas Masri | Mastering Android App Development with Kotlin [XML +COMPOSE] (2023) WEBRip [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194586.jpg" />
-</div>
-
-
-###  Подробнее
-
-So you want to become an Android developer and start publishing your own apps?
-
-Do you have no programming experience whatsoever? Or maybe you have worked with another programming language in the past?
-(   Читать дальше...   )Жанр: Android, Android studio, KotlinЯзык озвучки: АнглийскийПродолжительность: 50:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CF3B0AD963421A6BAD8A92B47C03550460F6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652128   (194529) от 10.08.2023
-
-Udemy, Richard Chesterwood | Istio Hands-On for Kubernetes (2023) WEB-DL  [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Istio is one of the most talked-about frameworks in recent years! If you've worked with Kubernetes before, then you'll want to learn Istio! With this hands-on, practical course, you'll be able to gain experience in running your own Istio Service Meshes.
-
-This course is designed to be clear and understandable - and fun! But we also go into detail - you'll be learning (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E6C1A5D1A9B73E4530C124CFF271F4C28BAF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652090   (194493) от 09.08.2023
-
-Stepik, Shultais Education, Никита Шультайс | Проектирование баз данных (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194493.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе в простой форме рассказывается теория проектирования баз данных, а также даются практические инструменты на примере учебной базы данных автосалона.
-В ходе небольшой серии уроков рассматриваются варианты логического и концептуального проектирования, нормализация базы до формы 4НФ, а также денормализация таблиц.Производство: Stepik, Shultais EducationЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1FAFD2E00E1B096B43D9C1F9E62D580B659DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

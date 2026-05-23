@@ -1,4 +1,194 @@
 https://t.me/izofen
+###  Публикация: 1872251   (1070113) от 
+
+BUtil 2026.05.21 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Создание частых резервных копий важных файлов и папок крайне важно на случай непредвиденных обстоятельств. Наличие простого в использовании приложения, такого как BUtil, поможет вам в этом, и вы с большей вероятностью будете делать это регулярно. Настройка этой задачи с помощью специализированных приложений, таких как BUtil, занимает всего несколько секунд, в отличие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3126C097E25E66BCEBD6E834A1F6A9998A4D1DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871814   (1069911) от 
+
+Iperius Backup Full 8.8.2 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Самое комплексное и универсальное программное обеспечение для резервного копирования. Резервное копирование ПК, серверов, виртуальных машин, баз данных, почтовых серверов и Microsoft 365.
+
+Любое место назначения: облако, S3, NAS, FTPS, Google Drive и многие другие.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB1864E0B82FA312276B2E8CE7E139DFE8CC459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871504   (1069704) от 
+
+Syncovery Premium 11.15.7 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Лучший инструмент для синхронизации, резервного копирования, копирования и миграции.
+
+Вы можете настроить столько различных заданий, сколько вам нужно, и запускать их вручную или с помощью планировщика. Syncovery работает с локальными жесткими дисками, сетевыми дисками и любыми другими смонтированными томами. Кроме того, он поддерживает FTP, SSH, HTTP, WebDAV, Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB536C04DB4A7EA67F8D9BCE0F890D9B2F39D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871211   (1069405) от 
+
+Hekasoft Backup & Restore 1.1.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Идеальное решение для резервного копирования, восстановления и переноса данных вашего браузера. Перемещайте свои профили между разными браузерами или компьютерами за считанные секунды.
+
+Hekasoft Backup & Restore — это универсальное решение для управления данными и настройками браузера (а также другого программного обеспечения). Вы можете создать резервную копию (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4953C41471D5E98214F79B0FFB9811672D277C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870428   (1069146) от 
+
+IsoBuster Pro 5.8 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+IsoBuster - программа, с помощью которой можно получить доступ к файловой системе CD/DVD-диска, минуя Windows. IsoBuster будет полезна при восстановлении данных с CD/DVD, если файлы невозможно прочитать из операционной системы. Программа работает напрямую с секторами, дорожками и сессиями дисков. Поддерживаемые форматы: CD-ROM, CD-ROM XA, CD-Text, D-i, VCD, SVCD, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0946ACA81413445983B731507637ADBA2B51D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870899   (1068821) от 
+
+Syncovery Premium 11.15.6.206 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Лучший инструмент для синхронизации, резервного копирования, копирования и миграции.
+
+Вы можете настроить столько различных заданий, сколько вам нужно, и запускать их вручную или с помощью планировщика. Syncovery работает с локальными жесткими дисками, сетевыми дисками и любыми другими смонтированными томами. Кроме того, он поддерживает FTP, SSH, HTTP, WebDAV, Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF9C43EB0C8C2C5CE8CC9CE6260F0BE0ADCB510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870005   (1068801) от 
+
+EaseUS Partition Master Pro / Server / Tech / Unlmited 20.3.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+EaseUS Partition Master — мощная программа для управления разделами жестких дисков и SSD в Windows. Она позволяет создавать, удалять, объединять, форматировать и изменять размеры разделов без потери данных, а также переносить систему на SSD, клонировать диски и конвертировать файловые системы и таблицы разделов MBR/GPT. Программа подходит как для домашних пользователей, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93916D2CFFA66C6162A711569BA68828ABCAC100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869972   (1068554) от 
 
 Lazesoft Recovery Suite Pro / Server / Tech / Unlimited 5.2.0.1 [Multi]
@@ -7,7 +197,7 @@ Lazesoft Recovery Suite Pro / Server / Tech / Unlimited 5.2.0.1 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +225,7 @@ Lazesoft Windows Recovery Pro / Server / Unlimited 5.1.1.1 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +253,7 @@ MiniTool Power Data Recovery 12.9 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -89,7 +279,7 @@ Auslogics File Recovery Pro 12.2.0.6 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +305,7 @@ Iperius Backup Full 8.8.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +333,7 @@ Auslogics File Recovery 12.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +359,7 @@ Hasleo Backup Suite 5.8.2.0 Professional | Eterprise | Technician Editions RePac
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +386,7 @@ MiniTool Power Data Recovery 12.9.0 Full (Standard-Deluxe-Enterprise-Technician)
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +412,7 @@ Syncovery Premium 11.15.2.202 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +440,7 @@ QILING Disk Master Free / Pro / Server / Tech 8.7.6 Build 20260425 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +466,7 @@ iBeesoft Disk Partition Wizard Professioanl / Server / Technician 3.5.0 [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -304,7 +494,7 @@ AOMEI Backupper Technician Plus 8.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -330,7 +520,7 @@ AOMEI Backupper Technician Plus 8.3.0 Lite (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +546,7 @@ AOMEI Backupper Technician Plus 8.3.0 Full (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +572,7 @@ AOMEI Backupper Technician Plus 8.3.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -408,7 +598,7 @@ Syncovery Premium 11.14.7 build 188 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +626,7 @@ O&O DiskImage Premium 22.6.1231 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +652,7 @@ iBeesoft Data Recovery 5.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,7 +680,7 @@ Abelssoft EasyBackup 2026.16.02 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,190 +694,6 @@ Abelssoft EasyBackup 2026.16.02 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:086258AC3F15A67B5D5EB4A5555C3FA4CDB5474B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865622   (1065643) от 16.04.2026
-
-Syncovery Premium 11.14.4 build 185 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший инструмент для синхронизации, резервного копирования, копирования и миграции.
-
-Вы можете настроить столько различных заданий, сколько вам нужно, и запускать их вручную или с помощью планировщика. Syncovery работает с локальными жесткими дисками, сетевыми дисками и любыми другими смонтированными томами. Кроме того, он поддерживает FTP, SSH, HTTP, WebDAV, Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F2EC71E4BF43888161D63B631EF9A4EF1111D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864494   (1064738) от 
-
-R-Studio Network 9.5 Build 191742 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7F6193D12A259D9FE229F1DF6B54602ED0FB40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864291   (1064612) от 
-
-GetDataBack Pro 5.78 [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флагманский продукт GetDataBack Pro является самым мощным программным обеспечением для восстановления данных. Молниеносно, для NTFS, FAT, exFAT, EXT, HFS+ и APFS. Восстановите ваши потерянные данные сейчас!Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978942A7D44FCFBEE33EA207D703FB0E6A23D70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862281   (1064252) от 29.03.2026
-
-MiniTool Power Data Recovery 12.8 Full (Standard-Deluxe-Enterprise-Technician) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064252.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E823DD31F4BAE5EDAF852FA1FCEE131626D5187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862380   (1064182) от 30.03.2026
-
-R-Studio Network 9.5 Build 191733 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38ED1F464D1C6AA7E24FD0F229DAFC77E6CD8ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862535   (1064092) от 30.03.2026
-
-R-Studio Technician 9.5 Build 191733 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED853E3BFCEE63DADD027E2A022B6B5927B33B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862537   (1064090) от 30.03.2026
-
-Magic Uneraser Commercial / Office / Home / Unlimited Edition 7.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление удаленных файлов в несколько простых шагов! Magic Uneraser является самым удобным и простым в использовании инструментом для восстановления данных. Программа восстанавливает любые типы файлов. Продукт поддерживает все типы носителей, включая жесткие диски, SSD диски, флэш-накопители и карты памяти.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6751C7B6F461E917DB506E0E10E1B8B2DB77ED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

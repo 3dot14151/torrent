@@ -1,26 +1,22 @@
-###  Публикация: 599207   (999759) от 05.01.2013
+###  Публикация: 1488410   (1002084) от 11.08.2021
 
-[Wallpapers] Christmas mood Pack 3 (05.01.13)
+Журнал | Auto Strassenverkehr [Deutsch] №16 (июль 2021) [PDF] [De]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Christmas mood Pack 3 (05.01.13)
-Название: Christmas mood Pack 3 (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Auto Straßenverkehr предоставляет каждому водителю тщательно изученную и очень подробную справочную информацию. Тематика журнала Auto Straßenverkehr варьируется от отчетов о поездках и экзаменов по вождению до тем обслуживания, которые могут сэкономить много денег. В разделе помощи AUTO, Auto Road Traffic борется с ловушками денег и обслуживания. Нещадно (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D706B440A8DFC6B1FBD4870D1E8E11EF9CBB9A1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,29 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599140   (999758) от 05.01.2013
+###  Публикация: 1488413   (1002083) от 11.08.2021
 
-[Wallpapers] Car wallpapers (05.01.13)
+Журнал | Auto Strassenverkehr [Deutsch] №18 (август 2021) [PDF] [De]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Car wallpapers (05.01.13)
-Название: Car wallpapers (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Auto Straßenverkehr предоставляет каждому водителю тщательно изученную и очень подробную справочную информацию. Тематика журнала Auto Straßenverkehr варьируется от отчетов о поездках и экзаменов по вождению до тем обслуживания, которые могут сэкономить много денег. В разделе помощи AUTO, Auto Road Traffic борется с ловушками денег и обслуживания. Нещадно (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14BCBCCF6520977F7090FB2516E553BF64B15345
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -58,29 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599201   (999756) от 05.01.2013
+###  Публикация: 1488402   (1002082) от 11.08.2021
 
-[Wallpapers] New 2013 Wallpaper Pack 12
+Журнал | Australian Muscle Car [Australia] №124 (июнь 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Wallpaper Pack 12
-Название: New 2013 Wallpaper Pack 12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Австралийский Muscle Car (AMC) - это  новое, австралийское издание, посвященное сохранению легенд нашего уникального «австралийского» наследия маслкаров Ford vs Holden. От классических мускулов Bathurst 1960-х до сверхсовременных мощных автомобилей Falcon и Commodore нового тысячелетия и всё, что между ними.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF1DCE45D8ED83422B2385D16FBA76AA4860509E
+magnet:?xt=urn:btih:53E1CE54DC04C88062B27F9D41C6CC45BCEE43B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,25 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599075   (999754) от 05.01.2013
+###  Публикация: 1488428   (1002081) от 11.08.2021
 
-Sexy Girls Pack Wallpapers (05.01.13) [Wallpapers 16+]
+Wolfstavar - Im Schatten der Götter (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Folk>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+01. Auf nach Walhalla
+02. Tyr
+03. Heimdall - Der Wächter
+04. Der Freiheit entgegen(   Читать дальше...   )Жанр: Heavy Metal, FolkПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C37B5C1A122F09CDB2F878F5EDC9B0139C5B63A2
+magnet:?xt=urn:btih:68EE7AC55FC1C3945A0624B2D46CAFBC7E91D1E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,29 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599208   (999752) от 05.01.2013
+###  Публикация: 1488465   (1002080) от 11.08.2021
 
-[Wallpapers] Christmas mood Pack 4 (05.01.13)
+Журнал | VW Camper & Bus [UK] №9 (сентябрь 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Christmas mood Pack 4 (05.01.13)
-Название: Christmas mood Pack 4 (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Журнал VW Camper & Bus - ведущее британское издание, посвященное всему, что связано с VW Transporter, начиная с разделенным кузовом T1 Bus и заканчивая сегодняшним более современным T5.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:531FB2A2FDEB7F9399556203A8C8717CC767B79C
+magnet:?xt=urn:btih:DE82ABC79692B4B97EECE6AC829C597D569CE3A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -144,25 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598790   (999750) от 05.01.2013
+###  Публикация: 1488468   (1002079) от 11.08.2021
 
-Sexy Girls Pack Wallpapers (04.01.13) [Wallpapers 16+]
+Журнал | VWt Magazine [UK] №8 (август 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Журнал VWt предназначен для владельцев / энтузиастов Volkswagen Transporter от модели T4 и выше. Журнал включает в себя информацию о T4 и T5, обзоры продуктов, дорожные тесты, шоп-туры, дорожные поездки, историю Transporter и поездки читателя. VWt Magazine все о ценности читателя. Каждый выпуск содержит 100 страниц, заполненных всем, что кому-либо когда-либо нужно (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A47A61B451E4075CA243432A9CE3003167C13187
+magnet:?xt=urn:btih:60494D355ACA15D08C394A72694D8E8102FF7DDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,29 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599127   (999747) от 05.01.2013
+###  Публикация: 1488470   (1002078) от 11.08.2021
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 1
+Журнал | Wheels [Australia] №8 (август 2021) [PDF] [En]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 1
-Название: New 2013 Nature Wallpaper Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Журнал мирового класса с огромной международной репутацией, Wheels охватывает весь спектр автомобилей - от спортивных автомобилей до полноприводных, экономичных и семейных автомобилей - плюс мы знакомим вас с людьми,  стоящие за одним из мировых лидеров. наиболее динамично развивающиеся отрасли. Теперь журнал Wheels доступен, где бы вы ни находились. Загрузите сегодня (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5BC07DE64F3EFCF6BF6F1DB995CCDC505A36F6B
+magnet:?xt=urn:btih:80A532C8616FAA3BB7621927EAD94ED091265363
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,25 +183,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598785   (999746) от 05.01.2013
+###  Публикация: 1488467   (1002077) от 11.08.2021
 
-Computer Desktop Wallpapers Collection (04.01.13) [Wallpapers]
+Ovvercross - Stuttgart, 1943 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Stuttgart, 1943 (03:52)
+02. Kill All the Time (03:39)
+03. Dead Bodies (04:38)
+04. Partisans (04:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6973B5EE66333B101F9138DE817C467257253117
+magnet:?xt=urn:btih:1EFC221C5A946F65AABA55C6578C17769392996B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,29 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599204   (999745) от 05.01.2013
+###  Публикация: 1488469   (1002076) от 11.08.2021
 
-[Wallpapers] New 2013 Wallpaper Pack 14
+Журнал | VWt Magazine [UK] №9 (сентябрь 2021) [PDF] [En]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Wallpaper Pack 14
-Название: New 2013 Wallpaper Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Журнал VWt предназначен для владельцев / энтузиастов Volkswagen Transporter от модели T4 и выше. Журнал включает в себя информацию о T4 и T5, обзоры продуктов, дорожные тесты, шоп-туры, дорожные поездки, историю Transporter и поездки читателя. VWt Magazine все о ценности читателя. Каждый выпуск содержит 100 страниц, заполненных всем, что кому-либо когда-либо нужно (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF5041BE04BDA40E744A2879565A017B80407E83
+magnet:?xt=urn:btih:A77E9B0D4D486850581FC447519B7C1B44E4CD91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,25 +238,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598791   (999744) от 05.01.2013
+###  Публикация: 1488473   (1002075) от 11.08.2021
 
-Sexy Girls Wallpapers (04.01.13) [Wallpapers 16+]
+Kilmara - Across The Realm Of Time (2018) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+01. ...And Into The Realm
+02. Purging Flames
+03. The Silent Guide
+04. The End Of The World(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5C0A87E09BF1889BF7E9D2EF85A8ADE410DDDC8
+magnet:?xt=urn:btih:8FBBFF5C07DB9C62FF49F0B94821F0A4E90DAD28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,25 +267,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598744   (999742) от 05.01.2013
+###  Публикация: 1488426   (1002074) от 11.08.2021
 
-HQ Wallpapers Perfect Women (03.01.13) [Wallpapers 16+]
+Eons Enthroned - Into the Arcane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+01. Stormblessed
+02. Winds Wept
+03. Freelancer
+04. To Sheathe the Blade (feat. R.A. Voltaire)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50E51CEC85A6FF1A3F5A4561D112D9CC9C593A60
+magnet:?xt=urn:btih:F6BFF78E58A6D470FEDD0FC23C74D4CC35DCB868
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,25 +296,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599061   (999741) от 05.01.2013
+###  Публикация: 1488325   (1002073) от 11.08.2021
 
-Журнал | T3. The Gadget Magazine №2(212) (UK) [февраль 2013] [PDF] [En]
+Sorceress Of Sin - Constantine (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Necropolis 07:50
+02. Massacre of Meridian 05:12
+03. Realms of Elysium 05:57
+04. Pathogenic Parasite 05:30(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BFC27E767B9FE4CB725E90BA22CB2957125D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488415   (1002072) от 11.08.2021
+
+Журнал | The English Garden [UK] №9 (сентябрь 2021) [PDF] [En]
 
 >>Журналы
->>Компьютерные журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Компьютерный журнал, который рассказывает все о новинках аппаратного и программного обеспечения, электроники, гаджетов для персональных компьютеров.Формат: PDF
+The English Garden - журнал для всех, кто любит красивые сады. Каждый выпуск оживляет лучшие сады Великобритании благодаря великолепным фотографиям и увлекательным историям, поддерживаемым опытными советами по посадке растений и вдохновляющими дизайнерскими идеями опытных садоводов.Жанр: СадоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AC6F2BBE67CB1F23C812063008223FEA87CAF60
+magnet:?xt=urn:btih:72A9A1F156F6CDEF5A2AC94A435D1A301D5F8796
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,29 +351,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599138   (999740) от 05.01.2013
+###  Публикация: 1488397   (1002071) от 11.08.2021
 
-[Wallpapers] World Architecture (05.01.13)
+VA - Beatport Deep House: Sound Pack #329 (2021) [MP3|320 Kbps] <Deep House, Electro>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] World Architecture (05.01.13)
-Название: World Architecture (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+001. Rai - Andromeda
+002. Paul Cutie - Tell Me Now
+003. Ollie Remington - Rift
+004. Adam Sleyer - Got To(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E79A3DC276DE3D3D9BE5053D588C04CFCF31825
+magnet:?xt=urn:btih:CFBEFE92CCE98A975E4513E25267AA081C75C07E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,196 +380,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599110   (999739) от 05.01.2013
+###  Публикация: 1488450   (1002070) от 11.08.2021
 
-[Wallpapers] New 2013 Wallpaper Pack 10
+Журнал | TKC [UK] №3 (март-апрель 2021) [PDF] [En]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Wallpaper Pack 10
-Название: New 2013 Wallpaper Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755150310B1EAD04F510209A4E2CDE5356283227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599167   (999737) от 05.01.2013
-
-Sonic Lounge Club - Pearls Of Love (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightdrive
-02. Sundown
-03. Lazy Morning
-04. Memories
-05. Brazilian Love Affair
-06. Rain Over Aden
-07. Love or Confusion
-08. Easy Chair
-09. Voyaging Stars
-10. Just Walked inЖанр: Downtempo, Lounge, ChillOutПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F687DBC2166C2B8E7516E40450A091804FED2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598792   (999736) от 05.01.2013
-
-Incredible Mixed Wallpapers (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321F5AB75EAEA5FF1F539D11B2B61B3116ED3204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598788   (999734) от 05.01.2013
-
-53 HQ Wallpapers (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD9904C5F68018021E0E8DE5CEC12D8262B8830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597779   (999733) от 05.01.2013
-
-Sexy Girls Wallpapers (02.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9161338123FE3A310B58489CFA3C1FDCB7457773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598786   (999732) от 05.01.2013
-
-Best HD Wallpapers Pack (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E182DBADD925C88649BBF39957965478FCA3FDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598314   (999731) от 05.01.2013
-
-Sonny Rollins - Reel Life (1982) [MP3|320 кб/с]<Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reel Life (Rollins) 6:14
-02 - McGhee (Howard McGhee, Sonny Rollins) 4:20
-03 - Rosita's Best Friend (Rollins) 6:22
-04 - Sonny Side Up (Yoshiaki Masuo) 6:47
-05 - My Little Brown Book (Billy Strayhorn) 3:55
-06 - Best Wishes (Duke Ellington, Ted Koehler) 5:43
-07 - Solo Reprise (Sonny) 2:12Жанр: JazzПродолжительность: 00:35:23
+Мы расскажем об лучших британских автопромах, а также о классике, хот-роде и некоторых популярных спортивных автомобилях. Добавьте к этому особенность необычного образа жизни, и вы получите высококачественный 124-страничный журнал высочайшего качества, выходящий раз в два месяца.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -565,29 +406,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599205   (999730) от 05.01.2013
+###  Публикация: 1488398   (1002069) от 11.08.2021
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
+VA - Dream Synthetic: The Relax Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Chill Electronic, Synthwave>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
-Название: New 2013 Nature Wallpaper Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+001. Patrick Cowley - Moving Bodies I
+002. Handshaking - Countryside Mailbox
+003. Mmyylo - Inurhead
+004. Mike Rish - In The Woods(   Читать дальше...   )Жанр: Synthetic, Chill Electronic, SynthwaveПродолжительность: 11:07:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C84B75799E81CD1BC0746B69580976AAE67B43FA
+magnet:?xt=urn:btih:2A132BBB07B69CECE93E85DEFBEFB5F031CD2304
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,25 +435,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599076   (999729) от 05.01.2013
+###  Публикация: 1488446   (1002068) от 11.08.2021
 
-Sexy Girls Wallpapers (05.01.13) [Wallpapers 16+]
+Журнал | Total 911 [UK] №8 (август 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Total 911 - единственный в мире журнал, посвященный Porsche 911. В каждом роскошном номере этого легендарного спортивного автомобиля отмечается потрясающая фотография, а также подробное, занимательное и информативное описание. Все модели 911 представлены, от востребованной классики до сегодняшних невероятных суперкаров. Total 911, созданная настоящими энтузиастами (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F8A840C500A16729D244C084DAC5CCFB09B7E57
+magnet:?xt=urn:btih:506519CBE347AF393F8E55ADAED545D161364132
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,86 +461,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599206   (999728) от 05.01.2013
+###  Публикация: 1488434   (1002067) от 11.08.2021
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 4
+Firefox Browser 91.0 Portable by PortableApps [Ru]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 4
-Название: New 2013 Nature Wallpaper Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 4000х2600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D2183703EE8EC4DA063AC9CE033257DAAF53FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599071   (999727) от 05.01.2013
-
-Best HD Wallpapers Pack (05.01.13) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D22B0D368C528A8E501545E50C9200288FC9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598298   (999723) от 05.01.2013
-
-Jessy Carolina and The Hot Mess - Bootlegs:January 2012 (2012) [FLAC|Lossless]<New Orleans Jazz \ Vintage Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
- 02 Nobody's Sweetheart
- 03 Yes Sir, That's My Baby
- 04 Royal Garden Blues
- 05 China Boy (Explicit)
- 06 Louisiana Fairytale
- 07 Muskrat Ramble
- 08 My Melancholy Baby
- 09 I'll Be A Friend With Pleasure
- 10 That's A Plenty(   Читать дальше...   )Жанр: New Orleans Jazz \ Vintage JazzПродолжительность: 00:57:36
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -712,28 +487,214 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598916   (999721) от 05.01.2013
+###  Публикация: 1488444   (1002066) от 11.08.2021
 
-Hypnose - Притяжение (2012) [MP3|320 кб/с]<Alt. Rock>
+Про Лёлю и Миньку (2019) WEB-DLRip
 
->>Архив торрентов
->>Архив Музыки
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Знаю
-02. С утра и в ночь
-03. Солнцем и луной (Тишина)
-04. Мистер (   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:52:18
+Когда выросший Минька едет навестить свою сестру Лёлю, теперь взрослую женщину с двумя детьми, живущую в доме их детства, всё по дороге напоминает ему весёлые истории из прошлого. Но он не знает, что в результате шалости её «чучел»-близнецов Пети и Феди, Лёле грозят очень серьезные неприятности…Производство: Россия / Студия Первый АЖанр: Семейный, детскийРежиссер: Анна ЧернаковаАктеры: Евгения Щербинина, Елисей Мысин, Татьяна Рыбинец, Андрей Емельянов, Сергей Степанченко, Ольга Красько, Валентина Талызина, Роман Мадянов, Аркадий Коваль, Екатерина КирчакСубтитры: русские (отдельно)Продолжительность: 01:25:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C9E02B474F33994AC817243C9EADF7A7CE9D7CD
+magnet:?xt=urn:btih:C4B7CEAD41135E0840B01819F960084F692E98B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488433   (1002065) от 11.08.2021
+
+Журнал | Style Wagon [ Japan] №7 (июль 2021) [PDF] [Jp]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Японские минивэн-универсалы информационный журнал "STYLE WAGON-" выходит 16 числа каждого месяца!.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CB97D3AD020F153D7C277471B8B353CF03FFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488451   (1002064) от 11.08.2021
+
+Журнал | TKC [UK] №5 (май-июнь 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мы расскажем об лучших британских автопромах, а также о классике, хот-роде и некоторых популярных спортивных автомобилях. Добавьте к этому особенность необычного образа жизни, и вы получите высококачественный 124-страничный журнал высочайшего качества, выходящий раз в два месяца.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04F7E8F555331DD2F4CB52E1C0FD7272049F866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488435   (1002063) от 11.08.2021
+
+Журнал | Style Wagon [ Japan] №6 (июнь 2021) [PDF] [Jp]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Японские минивэн-универсалы информационный журнал "STYLE WAGON-" выходит 16 числа каждого месяца!.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB451F74FF79F7E3EC5E0B8FAEF00D4D1BF05C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488438   (1002062) от 11.08.2021
+
+Firefox Browser 78.13.0 ESR Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD493573D6A6C7EEF23B7DA6B80C8380394BC8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488497   (1002061) от 11.08.2021
+
+Tone2 - Nemesis 2.0.0 STANDALONE, VSTi (x64) RePack by RET [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Так называемый метод NeoFM обещает сделать производство звуков FM-стиля более лёгким и интуитивным. Tone2 заявляют, что Nemesis превосходит «обычные» синтезаторы по качеству звучания и поставляется с 1000 патчами.
+NeoFM охватывает все главные аспекты традиционного FM-синтеза, при этом совершенно не ограничиваясь звуками вроде колокольчиков. Он предлагает широкий (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E3CDE9D2E627136E345375437AAE4A2B5ABAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488399   (1002060) от 11.08.2021
+
+VA - Electro Voice: Mixtape Techno (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Perdu - Dystopia feat. Tjade
+002. Meyer Bergy - Retrograde
+003. Room 99 - Breathe
+004. Boglin - Sea Kelp(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 11:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84AFE0BDAA66B90E045C9B560BE7855F655A359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488492   (1002059) от 11.08.2021
+
+Gerry Rafferty - Life Goes On (2009) [FLAC|Lossless|WEB-DL|tracks] <Soft rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Kyrie Elieson 3:49
+02. The Waters Of Forgetfulness 3:52
+03. Don't Speak Of My Heart 5:56
+04. Because 2:45(   Читать дальше...   )Жанр: Soft rockПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282DBC99CE49527FD2DFA0FB95685B4E5055585F
 ```
 
 https://mybot314.ru/tekegram_catalog/

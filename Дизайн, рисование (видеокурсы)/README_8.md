@@ -1,3 +1,86 @@
+###  Публикация: 1449408   (1030007) от 21.02.2021
+
+Andreas Vrhovsek | Creating Cloudscape in Houdini (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке по Гудини мы будем задействовать VDB, чтобы использовать самые последние технологии и некоторые новинки программы.
+Мы создадим облачный пейзаж, используя частицы как основу, а затем добавим им движение наподобие облачного. Это позволит объектам взаимодействовать с облаками и придаст всему ощущение динамики. В конце этого курса вы научитесь, как изменять (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB45BC83FB704F651705DD4E5F50CC9C124871B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449284   (1029999) от 21.02.2021
+
+Kurt Jones | Indie Game Development Pipeline Volume 2 (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этой части курса мы начнем делать нашего игрового персонажа более функциональным, при помощи мощного игрового движка Unity.
+Начнем мы с анализа концепта персонажа и на основе наших потребностей, создадим его игровой объект. После этого, на основе скетчей, добавим к нашему уровню нужные ассеты.
+После того, как основные ассеты будут настроены, мы займемся оживлением (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEA8913C0C86F44FC007C4C28E57403111C2DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449500   (1029997) от 21.02.2021
+
+John Moncrief | Introduction to Materials in Houdini (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе по Houdini мы поверхностно взглянем на материалы.
+Начнем с настройки сессии Houdini для правильно работы с шейдингом. Мы разберем окно RenderView, MaterialPalette(редактор материалов), основы освещения и рендер Mantra. Посмотрим, как применять материалы из редактора к разным объектам.
+Изучим основные материалы начиная с шейдера Clay. Будем разбирать (   Читать дальше...   )Производство: Digital TutorsЖанр: Шейдинг, текстурированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB90AD556534B3BED294AC8701BDFDB732DB0C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449529   (1029995) от 21.02.2021
 
 SideFX | Houdini 15 Masterclass Crowds (2016) PCRec [EN, RU]
@@ -6,7 +89,7 @@ SideFX | Houdini 15 Masterclass Crowds (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +115,7 @@ SideFX | Houdini 15 Masterclass Distributed Simulations (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +141,7 @@ Rohan Dalvi | Houdini Rocket Ship (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +168,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +194,7 @@ SideFX | Houdini 15 Masterclass FLIP Workflow Enhancements (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +220,7 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +246,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +272,7 @@ Kurt Jones | Indie Game Development Pipeline Volume 1 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +300,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 5 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +355,7 @@ Joshua Kinney | Indie Game Development Pipeline Volume 3 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +383,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 4 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +409,7 @@ Andreas Glad | Houdini VFX for Games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +435,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 1 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +461,7 @@ Adam Swaab | Houdini Procedural Foundations (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +515,7 @@ Tim Cgi | Abstract Visuals - Houdini and Redshift (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +569,7 @@ Jeremy Huxley | Vegetation & Plants for Games (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +595,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -540,7 +623,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -568,7 +651,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -596,7 +679,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 5 (2016) PCRec [Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -609,92 +692,6 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 5 (2016) PCRec [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D59C13A4C9F3DE616719D9A9D44B1505EB7D890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450786   (1028855) от 27.02.2021
-
-Lu Dongjun | Glass Study (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот более чем 8 часовой курс посвящен рисованию стеклянных объектов.
-В него входят:
-- 3 часа неускоренного видео, где я рассказываю, как рисовать стеклянные куб и шар;
-- 3 часа неускоренного видео, где я рисую стеклянную бутылку;(   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 08:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2AC0825DAC33F6315D7921C4108FFB70DEC1DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450816   (1028852) от 27.02.2021
-
-Lu Dongjun | Stone Study (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028852.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом 7часовом уроке я покажу вам, как рисовать разнообразные каменные объекты. В урок ходят:
-3 часа неускоренного видео, в котором я рисую каменный блок и каменного льва;
-4 часа неускоренного видео, в котором я рисую гоблина;Производство: GumroadЖанр: Создание видеоПродолжительность: 07:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CADF23CC46954A91D19CE56B44C2CDC406492F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450783   (1028843) от 27.02.2021
-
-Lu Dongjun | Fish & Portrait Study (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот 7часовой урок посвящен рисованию рыб и портретов! В него входят:
-2 часа неускоренного видео, в котором я рисую портрет Давида (основываясь на знаменитой скульптуре Микеланджело);
-1.5 часа неускоренного видео, в котором я рисую кита;
-1.5 часа неускоренного видео, в котором я рисую рыбу-воина;(   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 06:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90B0E2D651263B5FC5558C6D778D132EF15D7D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

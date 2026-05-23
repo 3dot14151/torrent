@@ -1,3 +1,83 @@
+###  Публикация: 923574   (562466) от 01.08.2015
+
+Джон Уитмор | Внутренняя сила лидера. Коучинг как метод управления персоналом (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Успешность лидера во многом зависит от того, какого уровня он сам сумел достичь в личностном развитии, способен ли отказаться от привычки давать указания и поверить в скрытый потенциал своих сотрудников. Коучинг устраняет внутренние препятствия и помогает открыть доступ к неисчерпаемым ресурсам — как вашим собственным, так и ваших подчиненных. Основная цель коучинга (   Читать дальше...   )Жанр: Бизнес-консалтинг и личностный тренинг. КоучингФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117CCE9D9011259DAB464385066025358E9D6776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923593   (562462) от 01.08.2015
+
+Александр Евстегнеев | Библия личных финансов (2014) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге заключены уникальные знания, которые собраны не одним поколением, усовершенствованы автором и представлены в легкой для восприятия и применения форме. Они способны легко, как соломинка утопающего, вытащить читателя из любых жизненных ситуаций, помочь ему лучше утвердиться в жизни и заработать свой первый миллион. В основе авторской методики А. Евстегнеева (   Читать дальше...   )Жанр: Личные финансы, О бизнесе популярноФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7518EEF1DF6B042CFD17A51E712201736D1F6EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923601   (562456) от 01.08.2015
+
+Чип Хиз, Дэн Хиз | Сердце перемен. Как добиваться изменений легко и надолго (2015) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга научит принимать взвешенные решения, находить желанный баланс между эмоциональным и рациональным.
+Почему так трудно добиваться долгосрочных изменений в компаниях, сообществах и в личной жизни?
+Основное препятствие для конструктивных изменений - конфликт между рациональным и эмоциональным мышлением. Рациональная часть нашего мозга хочет красивое тело к пляжному (   Читать дальше...   )Жанр: БизнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C362F74545EF7F552F414A6DB1985FE7EA7B82ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923864   (562454) от 01.08.2015
 
 Джил Конрат | Гибкие продажи: как продавать в эпоху перемен (2015) [PDF, EPUB]
@@ -6,7 +86,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +272,7 @@ Jonathan L. Portny & Stanley E. Portny | Project Management For Dummies 6th edit
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,86 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D9B214F5E49F51FD0495BF663FACA747B9FEB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309494   (550079) от 20.06.2019
-
-Саймон Кингснорт | Стратегия цифрового маркетинга (2019) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Саймона Кингснорта – практическое руководство, которое поможет разработать и органично вписать вашу инновационную маркетинговую стратегию в бизнес-стратегию компании. Автор предлагает четко структурированный «путеводитель» по основным вопросам цифрового маркетинга: клиентоориентированности, планированию, SEO, социальным медиа, аналитике и многому другому. Он (   Читать дальше...   )Жанр: Зарубежная деловая литература, Интернет-маркетинг, Управление продажамиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFF142A4AFFC236C76C578C2E90B769535EF059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046893   (550012) от 29.08.2016
-
-Евгений Кнутов | Офисный путь. Как подняться по карьерной лестнице и полюбить то, чем занимаешься (2016) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство из нас уделяет много времени своей работе и часто не понимает, почему они зарабатывают немного, не получают повышения и почему их не ценит руководство, а удовлетворение от проделанной работы стремится к нулю. Построение карьеры – это тоже постоянная работа, вы должны осознавать свои ошибки, и работать над ними, и применять правильные методики для подъёма (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, успех в бизнесеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE3BBFC85ADC59C81C7ECC19C7990320C87A964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046945   (549853) от 29.08.2016
-
-Андрей Парабеллум, Николай Мрочковский | Выжми из бизнеса всё! 200 способов повысить продажи и прибыль (2011) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549853.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собрано свыше 200 различных фишек, стратегий и тактик, которые помогут бизнесу не просто поднять продажи и прибыль, а перейти на принципиально новый уровень работы с клиентами. При этом большинство из данных рекомендаций не потребует от вас каких-либо серьезных усилий или финансовых вложений.
-
-Авторы абсолютно уверены, что 99 % ваших конкурентов не используют (   Читать дальше...   )Жанр: Менеджмент, модели управления, бизнесФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CDAB236F6A89477A8FA6833B1CF5BF74542AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

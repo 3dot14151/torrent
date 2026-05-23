@@ -1,3 +1,57 @@
+###  Публикация: 1316974   (1014738) от 22.05.2021
+
+Алиса в стране чудес & Алиса в Зазеркалье / Alice In Wonderland & Alice Through the Looking Glass (2010/2016) BDRip [H.264/720p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь 19-летней Алисы Кингсли принимает неожиданный оборот. На викторианской вечеринке, устроенной в её честь, Алисе делает предложение Хэмиш, богатый, но глупый сын лорда и леди Эскот. Не дав ответа, девушка убегает и идёт за кроликом, замеченным ею на лужайке. Кролик как кролик, вот только он одет в камзол и всё время смотрит на карманные часы.
+Алиса гонится за (   Читать дальше...   )Производство: США, Великобритания / Walt Disney PicturesЖанр: фэнтези, приключения, семейныйРежиссер: Тим Бёртон, Джеймс БобинАктеры: Джонни Депп, Миа Васиковска, Хелена Бонем Картер, Энн Хэтэуэй, Криспин Гловер, Мэтт Лукас, Майкл Шин, Стивен Фрай, Алан Рикман, Барбара УиндсорПеревод: Дублированный, двухголосый профессиональный, авторский (одноголосый)Язык озвучки: Русский, украинский, казахский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:48:34 / 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD356846D09BAAD2303D3178908D287B310C6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471539   (1014304) от 25.05.2021
+
+Алиса в стране чудес & Алиса в Зазеркалье / Alice In Wonderland & Alice Through the Looking Glass (2010/2016) BDRip [H.264/1080p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь 19-летней Алисы Кингсли принимает неожиданный оборот. На викторианской вечеринке, устроенной в её честь, Алисе делает предложение Хэмиш, богатый, но глупый сын лорда и леди Эскот. Не дав ответа, девушка убегает и идёт за кроликом, замеченным ею на лужайке. Кролик как кролик, вот только он одет в камзол и всё время смотрит на карманные часы.
+Алиса гонится за (   Читать дальше...   )Производство: США, Великобритания / Walt Disney PicturesЖанр: фэнтези, приключения, семейныйРежиссер: Тим Бёртон, Джеймс БобинАктеры: Джонни Депп, Миа Васиковска, Хелена Бонем Картер, Энн Хэтэуэй, Криспин Гловер, Мэтт Лукас, Майкл Шин, Стивен Фрай, Алан Рикман, Барбара УиндсорПеревод: Дублированный, двухголосый профессиональный, авторский (одноголосый)Язык озвучки: Русский, украинский, казахский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:48:34 / 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C5A34D0A1929A8B46ADB76D303D4509A690F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471549   (1014295) от 25.05.2021
 
 Алиса в стране чудес & Алиса в Зазеркалье / Alice In Wonderland & Alice Through the Looking Glass (2010/2016) BDRemux [H.264/1080p] [Дилогия]
@@ -6,7 +60,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -629,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AA2D24E89A6DCD3FC43317B16A5149138342161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321061   (965887) от 10.02.2020
-
-Собачья жизнь / A Dog's Life (2017, 2019) BDRip [H.264/1080p] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собаки бывают разных пород, мастей и размеров. Они — наши самые верные и преданные друзья, а мы учим их хорошим манерам. Собаки всегда думают о нас, правда, иногда и о беконе. Все они каждый день провожают и встречают нас у порога в уверенности, что пока им есть, кого облизывать и любить, в их жизни есть смысл. Старый пес Бадди прожил несколько жизней, прежде чем (   Читать дальше...   )Производство: Индия, Гонконг, США, Китай / DreamWorks, Walden Media, Amblin Entertainment, Original PicturesЖанр: Фэнтези, драма, комедия, приключения, семейный, экранизацияРежиссер: Лассе Халльстрём, Гейл МанкусоАктеры: Джош Гэд, Дэннис Куэйд, Пегги Липтон, Кей Джей Апа, Брайс Гейзар, Джульет Райлэнс, Люк Кирби, Габриель Роз, Майкл Бофшевер, Бритт Робертсон, Эбби Райдер Фортсон, Бетти Гилпин, Кэтрин Прескотт, Марг Хельгенбергер, Джейк Мэнли, Даниэла Барбоза, Йен Чен, Генри Лау, Эмма Фольк, Джонни ГалэкиПеревод: ДублированныйСубтитры: Русские (форсированные), английские (полные)Продолжительность: 01:40:02 / 01:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A302CF1F89E31DF606427DADB2727BADB45791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747811   (960906) от 20.01.2014
-
-Блэйд / Blade (1998-2004) BDRip [720p] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его настоящее имя — Эрик Брукс, но его прозвали Блэйдом за мастерское владение особым мечом. Сами вампиры называют его «Дневным бродягой» за способность воспринимать солнечный свет, губительный для остальных вампиров. Он окончательно не превращается в вампира только благодаря синтетической сыворотке, периодические инъекции которой поддерживают его жизненные силы (   Читать дальше...   )Фатальные события могут привести к захвату власти в мире вампирами. Блэйд — единственный, кто может предотвратить страшные перемены и воспрепятствовать превращению мира в «Планету вампиров». Стремясь помешать Блэйду в реализации его плана, верхушка вампиров во главе с Даникой Талос натравливают на него людей. Полиция начинает охоту на того, кого теперь все считают (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Фантастика, Фэнтези, Боевик, ТриллерРежиссер: Дэвид С. ГойерАктеры: Уэсли Снайпс, Крис Кристофферсон, Доминик Пёрселл, Джессика Бил, Райан Рейнольдс, Паркер Поузи, Марк Берри, Джон Майкл Хиггинс, Каллум Кит Ренни, Пол ЛевескиПеревод: Дублированный, Многоголосый, ОдноголосыйСубтитры: Русские, АнглийскиеПродолжительность: 01:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A59088E2BF114BFBFC2F419197EB731C146F25A
 ```
 
 https://mybot314.ru/tekegram_catalog/

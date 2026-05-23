@@ -1,3 +1,107 @@
+###  Публикация: 1674272   (161918) от 04.11.2023
+
+One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Двенадцать личностей с глубоко проработанными характерами, чьи судьбы переплетаются одной страшной ночью, которую вам предстоит пережить. Каждое ваше решение, каждое неосторожно брошенное слово, меняет ход событий. Любой из двенадцати, может стать жертвой и любой может оказаться убийцей, а значит, каждый раз Вас ждет новое приключение. Однако поимка маньяка, разгадка (   Читать дальше...   )Тип издания: SceneРазработчик: ViviLatviaЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E400F25CF0EB95E2D3E50D90883641EB31D71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826447   (161818) от 19.10.2025
+
+El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная игра в стиле спагетти-вестерн, в которой шестилетний мальчик с Вашей помощью разыскивает свою мать. В шестилетнем возрасте "Эль Хиджо" должен пройти и обойти опасности своего мира. По мере того, как он преодолевает все испытания, он обретает уверенность в себе и хитрость, а вместе с этим и другие схемы, позволяющие обойти своих врагов. Его (   Читать дальше...   )Тип издания: LicenseРазработчик: Honig Studios, QuantumfrogЖанр: Приключенческие игры, Инди, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642BB970FD33FAD3A2D010AEA8B1C3A23F3151D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517365   (161765) от 16.12.2021
+
+Scrapland Remastered (2021) [Ru/Multi] (1.1/1.6.1) License GOG
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Scrapland — приключенческий экшен от третьего лица, разыгрывающийся в отдаленном будущем Земли. В этом будущем на планете остались лишь роботы, и они считают людей чудовищным порождением ночных кошмаров. Ты будешь играть роль Ди-Тритуса — новоприбывшего, расследующего зверские убийства, которые совершила кровожадная тварь — омерзительный человечище, бесчинствующий (   Читать дальше...   )Тип издания: LicenseРазработчик: MercurySteamЖанр: Приключение, ФантастикаЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A970C7A78C8F0C3F4F2F843B027EBA0F42EA44FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432971   (161617) от 19.12.2020
+
+Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Эпизодическая приключенческая игра, посвященная Тайлеру и Элисон Ронан, двум близнецам и их проблемам. События игры разворачиваются на Аляске, где близнецам предстоит разобраться в рядом проблем - как семейных, так и окружающих их людей. Взаимодействуя с воспоминаниями о прошлом, вы сделаете судьбоносный выбор, который определит силу уникальной связи, объединяющей (   Читать дальше...   )Тип издания: RepackРазработчик: Dontnod EntertainmentЖанр: Adventure (Interactive drama), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2088A1F859B2FD89135C806CBDBD57AAF6840935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672855   (161560) от 04.11.2023
 
 Alan Wake 2 (2023) [Ru/Multi] (1.0.6/dlc) Repack DjDI [Deluxe Edition]
@@ -6,7 +110,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.0.6/dlc) Repack DjDI [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Skabma - Snowfall (2022) [Ru/Multi] (1.1.110) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (673723) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Attentat 1942 (2017) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Crime O'Clock (2023) [Multi] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Titan Station (2022) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Oxenfree – это триллер о сверхъестественных си�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D98CD380EEA7DFCE2EDF4E2479B191CBDB18CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784335   (153001) от 27.12.2014
-
-Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153001.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеких горах Колорадо, ужасы творятся в лечебнице Маунт Мэссив. Учреждение было давно заброшено, но недавно восстановлено под программой «исследования и благотворительность» транснациональной корпорации Муркофф. До сих пор все в лечебнице проходило в полной секретности... Действуя по наводке от внутреннего источника, независимый журналист Майлс Апшур проникает (   Читать дальше...   )Тип издания: SteamRipРазработчик: Red BarrelsЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Бразильский, Португальский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Бразильский, Португальский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4650FA79C3E6AF9C0DA14B907B39C4F284E36E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135495   (152690) от 26.12.2017
-
-Life Is Strange: Complete Season (2015) [Ru/Multi] (1.0.0.397609) Repack Other s [Episode 1-5]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Life is Strange – эпизодическое приключение, события которого развиваются в вымышленном городе Аркадия Бэй, что в Орегоне. История о дружбе, которая могла быстро закончиться если бы не внезапно открытый талант Мэкс. Она нашла в себе дар - возможность перематывать время. Но еще неясно, как это точно работает и к чему может привести. Все начнется со спасения подружки (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD Entertainment, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: Adventure, ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94773A71926215CFA6ED1A47E6AF5D3A88E0665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825716   (151870) от 17.11.2025
-
-Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bad Cheese - это психологический хоррор, вдохновленный мрачным очарованием анимации 1920-х годов. Мама куда-то ушла, и крошечному мышонку придется провести выходные дома в компании неадекватного отца. Ему нужно вести себя хорошо, иначе папа разозлится.Тип издания: LicenseРазработчик: Simon LukasikЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83E58914BF978DF6DC40098737097B2DFD9F1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677080   (151737) от 16.11.2023
-
-American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151737.jpg" />
-</div>
-
-
-###  Подробнее
-
-American Arcadia - увлекательная кинематографическая головоломка, в которой органично сочетаются элементы 2,5D-платформера и геймплея от первого лица, погружающая игроков в захватывающее повествование о побеге из опасной ситуации. В центре сюжета - Тревор, ничем не примечательный человек, оказавшийся в центре событий самого известного в мире реалити-шоу. Действие (   Читать дальше...   )Тип издания: SceneРазработчик: Out of the Blue GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481BAD31B1CE1E541544CADE36E76E5BFBEE1A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

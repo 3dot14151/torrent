@@ -1,3 +1,109 @@
+###  Публикация: 1033688   (636036) от 12.07.2016
+
+Валентина Николаевна Кузнецова | Евангелие от Марка. Комментарий (2000) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Валентина Николаевна Кузнецова (род. 10 марта 1948) — российский переводчик, филолог-классик и библеист. Закончила отделение классической филологии филологического факультета Московского университета. Духовная дочь о. Александра Меня. По его благословению и с непосредственным участием в середине 1980-х гг. начала работу над переводом Нового Завета. С 1991 г. В.Н. (   Читать дальше...   )Жанр: БиблеистикаФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE935E8D88A5EAF12B9F9C6605418D4A62597EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228473   (635956) от 01.06.2018
+
+Москва (изд.) | Летопись скита во имя святого Иоанна Предтечи и Крестителя Господня, находящегося при Козельской Введенской Оптиной пустыни. Том 1-2. (2008) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга освещает историю Иоанно-Предтеченского скита Свято-Введенской Оптиной пустыни с самого его основания в 1821 году до 2006 года. Публикуются все известные на сегодняшний день части скитской Летописи. Описание событий тех лет, которые в Летописи отсутствуют, составлено по известным источникам. Книга снабжена примечаниями, иллюстрациями и кратким биографическим (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C8CCB9FB6350201D0743A640F84D5136A06256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228291   (635949) от 01.06.2018
+
+Священная Великая Обитель Ватопед (изд.) | Чудеса Святого Пояса (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наша Церковь чтит святые и священные останки как тел святых, так и предметов, принадлежавших им. Одной из таких уникальных сохранившихся реликвий, принадлежащей Пресвятой Богородице, является Её Честной Пояс.
+
+Честной Пояс Богородицы, разделённый на сегодняшний день на три части, является безценным сокровищем, единственной священной реликвией или святыней, которая (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A2DEF037A35297A768137A2B4A4E3A079F5C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228426   (635829) от 01.06.2018
+
+В. Чернов (сост.) | Евангельские притчи Господа нашего Иисуса Христа с толкованиями святых отцов и учителей церковных (2018) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге, подготовленной кандидатом богословия В. В. Черновым собраны наиболее авторитетные толкования всех притч Спасителя: от святителей Иоанна Златоуста, Григория Нисского, блаженного Феофилакта Болгарского до выдающихся проповедников XX столетия - праведного Иоанна Кронштадтского, святителя Луки (Войно-Ясенецкого), архиепископа Аверкия (Таушева), митрополита Антония (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864DF37592BE5B62CB659AC74E34F1D79D4D69F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228690   (634124) от 02.06.2018
 
 И. Ходаков (сост.) | Радость, которую никто не отнимет. Из творений святителя Филарета Московского [Празднуем Пасху] (2013) [PDF, DJVU]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -304,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -515,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,113 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F67910A02B0970F9AAD8E8E9E954B05639F409BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682644   (630243) от 23.07.2013
-
-Е.И. Фесенко | Альбом изображений святых икон [1894] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В альбоме представлены цветные хромолитографии святых икон.
-Изображены: сцены из праздников, Апостолы, Чудотворцы, Преподобные, Князья, Святые (Дарья, Ольга, Ксения, Екатерина, Татьяна, и др.), Великомученики (Александра, Варвара, Дмитрий, Иоан, Артемий, ...), иконы Божией Матери, Иисуса Христа,  ...Жанр: Святоотеческое наследиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1F093B99EE163A30410DEC6517F646D74E3F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908935   (630215) от 16.06.2015
-
-М. С. Беленький | Спиноза о религии, боге и Библии (1977) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий амстердамский мыслитель XVII в. Спиноза презирал дух наживы, разнузданность и безделье. Захваченный познанием закономерностей объективной реальности, он стремился нарисовать целостную картину мира. В книге показано, как стремление философа осмыслить сокровенные тайны природы реализовалось в глубоких и научных обобщениях его эпохи. В центре внимания автора (   Читать дальше...   )Жанр: история, религиоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D46C289F8845809A2EA263B9E32ACA9E858B09D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144279   (629365) от 21.06.2017
-
-И. М. Концевич | Оптина Пустынь и ее время (1995) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга ”Оптина Пустынь и ее время” написана известным писателем и богословом русского зарубежья Иваном Михайловичем Концевичем (1893-1965). В вводных главах раскрывается понятие старчества и прослеживается его история в России в XVIII – XIX веках. Особое внимание автор уделяет жизни и подвигам преподобных старцев Оптинских. В книге содержатся их письма и поучения, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C93982E931DBA98DAC871389EF9592DC53390A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909465   (628575) от 17.06.2015
-
-Н. С. Гордиенко | Современное русское православие (1987) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге показан процесс становления современного русского православия и его сегодняшнее состояние, охарактеризованы все направления деятельности русской православной церкви.
-
-Рассчитана на массового читателя.Жанр: история, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F20AFEBABC0FB3FCED6A850DA4E852FEF0EF14
 ```
 
 https://mybot314.ru/tekegram_catalog/

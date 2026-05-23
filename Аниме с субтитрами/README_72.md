@@ -1,3 +1,108 @@
+###  Публикация: 1058947   (463889) от 03.10.2016
+
+Gekijouban Hibike! Euphonium / Sound! Euphonium The Movie / Играй, эуфониум! (фильм) [2016, Movie] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После не очень удачного выступления в региональном соревновании духовых оркестров среди средних школ, Кумико Омаэ надеялась начать всё с нуля в старшей школе. Ей повезло — в новой школе она быстро находит людей, занимающихся музыкой и заинтересовавшихся идеей создания школьного духового оркестра.
+Новыми товарищами Кумико стали: Хазуки Като, новичок, играющая на тубе; (   Читать дальше...   )Производство: Kyoto AnimationЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: Sa4ko aka Kiyoso & ZenobianСубтитры: ASSФормат: MKVПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DC53DC8AA1DA0B248EDF1E4EDEA468BFD6CD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568334   (463820) от 07.08.2022
+
+Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Простолюдин в школе благородных девиц [2015, TV, 12 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Женская школа Сэйкайн воспитывает дочерей японской элиты, да вот беда – жизнь и обучение там застряли в галантной эпохе Тайсё. Утонченные выпускницы не могут адаптироваться в реальности, полной непонятной техники и грубых невежд. Решение нашлось быстро – старшеклассника Кимито Кагурадзаку взяли под белы руки, привезли и объяснили, что отныне он – образец простолюдина, (   Читать дальше...   )Производство: Студия Silver LinkЖанр: комедия, романтика, эттиРежиссер: Дзимбо МасатоПеревод: Dreamers Team & Komugi-chan & GeraleЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 6 SP по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01051F7F6E0CA7C1BBAB61E3CE2060B8EA66387B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568318   (463809) от 07.08.2022
+
+Nozo x Kimi | Нодзоми и Кимио [2014, OVA, 3 из 3] DVDRip 576p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Суга Кимио оказывается в женской раздевалке, без возможности выйти и избежать неприятной ситуации, так как в школу уже начали прибывать девушки. И хотя изначально у него были совершенно иные мотивы, услышав девушек он запаниковал и спрятался в шкафчике. Коминэ Нозоми, скромница из его класса, обнаруживает его, но неожиданно помогает. В недоумении, но все же радостный (   Читать дальше...   )Производство: Студия Zexcs / ゼクシズЖанр: комедия, эттиРежиссер: Дзимбо МасатоПеревод: LookerAЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C96B85AD9922B5DDAE1391D3AA257154A9F9306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 106003   (463754) от 08.09.2020
+
+Devilman: Tanjou Hen / Devilman - The Birth / Человек-дьявол OVA-1 [1987] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Акира учится в школе, у него есть знакомая девушка, а ещё он держит маленьких пушистых кроликов. Иногда приходят местные отморозки, чтобы поубивать его питомцев. Всё вроде бы нормально. В один прекрасный денёк к нему за помощью приходит его друг Рио. Оказывается, его отец работал над странным артефактом, который связан с другим страшным миром, но контроль был утерян, (   Читать дальше...   )Производство: Dynamic PlanningЖанр: приключения, ужасы, фэнтезиРежиссер: Иида УманосукэЯзык озвучки: ЯпонскийСубтитры: EN ASS (в контейнере), RU SSAФормат: MKV DVDRipПродолжительность: 1 эп. 51 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6AB9DDA6F38A44394A16B82C110FCCE0E385BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 106015   (463747) от 08.09.2020
 
 Amon Devilman Mokushiroku / Amon: The Apocalypse of Devilman / Амон: Апокалипсис Человека-дьявола [2000, OVA] DVDRip 480p raw
@@ -6,7 +111,7 @@ Amon Devilman Mokushiroku / Amon: The Apocalypse of Devilman / Амон: Апо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Danganronpa 3 Zetsubou Hen | Danganronpa 3: The End of Hope's Peak High School -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Danchigai / Big Difference / Большая разница [2015, TV, 12 + OVA] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Akai Koudan Zillion | Red Photon Zillion | Красный фотон Зилли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Akai Koudan Zillion: Utahime Yakyoku | Red Photon Zillion: Burning Night | Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Gundam G no Reconguista / Гандам: Возвращение на G [2014, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Gekijouban Hibike! Euphonium | Sound! Euphonium The Movie | Играй, эуфо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +294,7 @@ Aa! Megami-sama! OVA / Ah! My Goddess! OVA / Моя богиня! OVA [1993, 5 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +320,7 @@ Mai-HiME / My-Hime / Май-Химэ TV [2004, TV, 26  эп. + 26 сп.] DVDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +346,7 @@ Garou Densetsu / Fatal Fury / Фатальная ярость [1992/1993/1994, M
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +372,7 @@ Princess Tutu | Принцесса Тютю [2002, TV, 38 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +398,7 @@ Monster Musume no Iru Nichijou / Everyday Life with Monster Girls / Повсед
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +425,7 @@ Prison School / Школа-тюрьма [2015, TV, 12 из 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +451,7 @@ Watashi ga Motenai no wa Dou Kangaete mo Omaera ga Warui! / WataMote / Не мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +479,7 @@ Non Non Biyori Repeat / Прекрасные деньки [2015, TV, 12] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +505,7 @@ Neppu Kairiku Bushi Road | Neppuu Kairiku Bushi Road | Burning Wind Ocean Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +531,7 @@ Plunderer | Грабитель [2020, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +557,7 @@ Log Horizon | Лог Горизонтa [TV-1][2013, TV, 25 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +583,7 @@ Seisenshi Dunbine: New Story of Aura Battler Dunbine | Aura Battle Dunbine: The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +609,7 @@ Kami nomi zo Shiru Sekai: Megami Hen / The World God Only Knows: Goddesses Arc /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +635,7 @@ Okusama ga Seito Kaichou! / My Wife Is the Student Council President! / Моя �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +661,7 @@ Ore Monogatari!! / My Love Story!! / Моя история! [2015, TV, 24] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,111 +672,6 @@ Ore Monogatari!! / My Love Story!! / Моя история! [2015, TV, 24] HDTV 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6319867A69E372BC92061158B93A5634DBD47B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 97490   (452852) от 13.09.2020
-
-Harlock Saga: The Ring of the Nibelung - The Rhein Gold / Сага о Харлоке: Кольцо Нибелунга [1999, OVA, 6 эп.] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллионы лет назад во Вселенной бушевала Война Богов. Галактика шла к полному разрушению. Осознав это, один из богов – Один, погрузил себя и своих собратьев в вечный сон на Валгалле – планете вне времени. Единственное, что может разбудить богов – золотой слиток, укрытый на планете Рейн. Если перековать слиток в кольцо и доставить его на Валгаллу, боги проснутся и (   Читать дальше...   )Производство: Bandai Visual, 81 ProduceЖанр: фантастика, приключенияРежиссер: Такэути ЁсиоЯзык озвучки: ЯпонскийСубтитры: EN SRT (в контейнер), RU SRTФормат: MKV DVDRipПродолжительность: 6 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FCF0400B1613A242D9FEE936C597CBB3D50ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408962   (451465) от 14.09.2020
-
-Isekai Quartet 2 | Четвёрка попаданцев 2 [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кроссовер четырёх аниме: «Overlord», «Kono Subarashii Sekai ni Shukufuku wo!», «Re:Zero kara Hajimeru Isekai Seikatsu» и «Youjo Senki».
-В мирах каждого из героев этих аниме появляется странная кнопка. По стечению различных обстоятельств каждый нажимает на кнопку, после чего все переносятся в один мир. Им предстоит учиться в школе, налаживать контакт с каждым из новоприбывших (   Читать дальше...   )Производство: Studio Pu Yukai / スタジオぷYukaiЖанр: комедия, пародияРежиссер: Асина МиноруПеревод: ApostolЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260240A909E2556C0B1157403C40C187B7A091BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679890   (450545) от 29.09.2013
-
-Kin`iro Mosaic / Golden Mosaic / Золотая Мозаика [2013, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450545.jpg" />
-</div>
-
-
-###  Подробнее
-
-15-летняя Синобу Омия – обычная японская школьница, что очень любит западную культуру, пускай даже английский не отвечает ей взаимностью. Главная героиня включилась в программу обмена и прожила неделю в британской семье Картлет, где познакомилась со своей ровесницей Элис, застенчивой миниатюрной блондинкой. Учитывая простой и открытый нрав Сино, взаимопонимание наладилось быстро, языковый барьер не помешал девушкам понять друг друга и подружиться. Вот так Элис полюбила Восток, выучила японский, поработала над (   Читать дальше...   )Жанр: комедия, школаРежиссер: Танака МотокиПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C996468A628BF6C18F54E028CD01EBA591F840B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569843   (449561) от 14.08.2022
-
-Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь после порабощения мира [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фудо Айкава — лидер супергеройского отряда «Пятёрка Джелато». Дэсуми Магахара — член злодейской организации «Геккон». Для всего мира они заклятые враги, которые воюют по разные стороны баррикад, но на самом деле втайне ото всех Фудо и Дэсуми встречаются друг с другом.Производство: Студия Project No.9Жанр: комедия, романтикаРежиссер: Ивата КадзуяПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E380A3F2A6E2F3361683029F3A062B5AB5D504
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1258483   (332916) от 01.11.2018
+
+Анжелика, маркиза ангелов / Angelique, marquise des anges (1964) BDRip [H.265] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Анжелика, необыкновенно красивая бедная аристократка вынуждена выйти замуж за Жоффрея де Пейрака. Несмотря на его внешность она со временем полюбила его. Влюбленные живут счастливо в своем замке, пока однажды к ним не приезжает король...Производство: Франция, Германия (ФРГ), Италия |  Compagnie Industrielle et Commerciale Cinématographique (CICC), Fono Roma, Franco London FilmsЖанр: драма, мелодрама, приключения, историяРежиссер: Бернар БордериАктеры: Мишель Мерсье, Робер Оссейн, Жан Рошфор, Клод Жиро, Джулиано Джемма, Шарль Ренье, Жак Тожа, Мадлен ЛеБо, Жан Топар, Бернар ВоринжеПеревод: Дублированный, Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB9217DC2A48581E1AAAC22089B40E55C706C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256585   (332804) от 01.11.2018
+
+Займемся любовью / Let's Make Love (1960) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Миллиардер Жан-Марк Клеман — потомственный бизнесмен и привлекательный мужчина. Он умеет делать деньги и очень любит женщин. Жан-Марк привык блистать в обществе и считает, что для него нет ничего невозможного.
+Получив шокирующее известие о том, что он — «гений бизнеса» — станет объектом насмешек в юмористическом спектакле, Клеман решает самостоятельно разобраться (   Читать дальше...   )Производство: США / Jerry Wald ProductionsЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Джордж КьюкорАктеры: Мэрилин Монро, Ив Монтан, Тони Рэндалл, Фрэнки Вон, Уилфрид Хайд-Уайт, Дэвид Барнс, Майкл Дэвид, Мара Линн, Дэннис Кинг мл., Джо БессерПеревод: Многоголосый закадровый, двухголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB570AD53B8DB4B05DA0598067D48B6CFC10E53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954274   (332411) от 12.11.2015
+
+Человек из Колорадо / The Man from Colorado (1948) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Двое друзей вернулись домой после Гражданской войны. У одного из них психологическая травма из-за событий на войне. Он начинает вести себя неустойчиво и ожесточенно. Друг пытается найти способ помочь ему.Производство: США / Columbia Pictures CorporationЖанр: ВестернРежиссер: Генри ЛевинАктеры: Гленн Форд, Уильям Холден, Эллен Дрю, Рэй Коллинз, Эдгар Баканан, Джером Куртлэнд, Джеймс Милликэн, Джим Бэннон, Уильям «Билл» Филлипс, Стэнли ЭндрюсПеревод: Многоголосый закадровый (5-й канал С.Пб)Субтитры: ОтсутствуютПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AAF0FB35C1A655E073D439750C04B921B9235F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420540   (332293) от 01.11.2020
+
+007: Из России с любовью / From Russia with Love (1963) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Второе задание для Джеймса Бонда - это спасти и вывезти из Стамбула русского агента, красавицу владеющую тайной сверхсекретного шифровального аппарата Лектор, а также сам аппарат. В легко протекающую комбинацию вклинивается неизвестный до сих пор агент №1 Спектра, Эрнест Ставро Блофелд.
+В его задачу входит не только обострить отношения между Великобританией и Советским (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Теренс ЯнгАктеры: Шон Коннери, Даниэла Бьянки, Педро Армендарис, Лотте Ленья, Роберт Шоу, Бернард Ли, Юнис Гейсон, Уолтер Готелл, Френсис Де Вулф, Джордж ПэстеллПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CAEE6B6493F17F4D1F296F6A87D4770F0E0701B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763934   (332282) от 01.11.2020
 
 Саломея / Salome (1910) DVDRip
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,114 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43FB58C7862960812A1447D8F105089A4ECEFCD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577383   (327123) от 05.10.2022
-
-Джубал / Jubal (1956) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странствующий ковбой Джубал Труп (Гленн Форд) случайно попадает на ранчо к ревнивому властолюбцу Шепу Хоргану (Эрнест Боргнин) и его молодой жене Мэй (Валери Френч), которая проявляет откровенные симпатии к незнакомцу. Ситуация осложняется тем, что в жену хозяина влюблен и один из его работников, злобный и коварный Пинки (Род Стайгер). Страсти накаляются, льется (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: Драма, Мелодрама, ВестернРежиссер: Дэлмер ДэйвсАктеры: Гленн Форд, Эрнест Боргнайн, Род Стайгер, Валери Френч, Фелиция Фарр. Бэзил Руисдейл, Ной Бири мл., Чарльз Бронсон, Джон Диркес, Джек ЭламПеревод: Авторский, С. КузнецовСубтитры: АнглийскиеПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F05CBCB85C487FDEF2B0E0969FBF12ECA0203FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413840   (326810) от 25.11.2011
-
-Ювелиры лунного света / Les bijoutiers du clair de lune (1958) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то те, за кем полицейские гонялись по горным дорогам, называли друг друга «ювелирами лунного света». Добропорядочная девушка Урсула, отправляясь на каникулы, не подозревала, что в ближайшее время ее жизнь сложится так, что она окажется одной из них. Урсула решает провести каникулы в поместье своей тети Флорентины и дяди Мигеля.
-
-Приехав, она оказывается свидетельницей (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Роже ВадимАктеры: Брижит Бардо, Фернандо Рей, Алида Валли, Стивен Бойд, Хосе Ньето, Маручи Фресно, Адриано Домингез, Хосэ Марко Даво, Антонио Вико, Марио МореноПеревод: Многоголосый закадровыйПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6565D3CB00FF02C42C993AC7338D49CBA294957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342544   (326564) от 25.11.2011
-
-Нечто / The Thing (1982) BDRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326564.jpg" />
-</div>
-
-
-###  Подробнее
-
-На американскую антарктическую станцию прибегает собака. Но это она только с виду - собака! На самом деле вовсе она и не собака, а жуткий монстр, который пожирает зверей/людей, а потом искусно притворяется ими, норовя подмять под себя всю Землю. Но на пути распоясавшегося монстра встает отважный вертолетчик МакРиди (Курт Рассел).
-"Нечто" считается не только (   Читать дальше...   )Жанр: Ужасы, ФантастикаРежиссер: Джон КарпентерАктеры: Курт Расселл, Дэвид Кленнон, Кейт Дэвид, Ричард Мазур, Т. К. Картер, Уилфорд Бримли, Джоэл Полис, Дональд Моффат, Питер Мэлоуни, Ричард Дайсарт, Чарльз ХэллаханПеревод: Многоголосый закадровый. ОРТ, НТВ+, СТС, Киномания.Продолжительность: 01:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663CF0E3786DAA2C66CC5F510620BDCE9BF919D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384920   (326443) от 20.11.2014
-
-Кто боится Вирджинии Вульф? / Who's Afraid of Virginia Woolf? (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326443.jpg" />
-</div>
-
-
-###  Подробнее
-
-....Новый преподаватель биологии Ник (Джордж Сигал) и его жена Хани (Сэнди Деннис) посещают университетскую вечеринку, где знакомятся с семьей профессора истории Джорджа (Ричард Бертон) и Марты (Элизабет Тейлор). Обмен ночными шутками превращается в уродливое словесное сражение между Джорджем и Мартой, которые используют гостей, чтобы досадить друг другу. Изрядное количество алкоголя подвигает на слишком откровенные разговоры, эмоциональное ожесточение и, в конце концов, на измену…
-..Сверхудачный режиссерский (   Читать дальше...   )Жанр: драма, мелодрамаРежиссер: Майк НиколсПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 02:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DAADA66E13DA641EB4D86754235BCE2633BD48
 ```
 
 https://mybot314.ru/tekegram_catalog/

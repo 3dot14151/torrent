@@ -1,3 +1,96 @@
+###  Публикация: 541980   (500331) от 01.09.2012
+
+VA - Pop Icons [The Mail On Sunday] (2003) [FLAC|Lossless]<Pop, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Christina Aguilera – Fighter [4:10]
+02. Five – When The Lights Go Out [4:10]
+03. Natalie Imbruglia – Big Mistake [4:35]
+04. Kylie Minogue – Did It Again [4:23]
+05. Venus Hum – Montana [3:45]
+06. Republica – Ready To Go [3:41]
+07. Heather Small – Proud [4:30]
+08. Westlife – Unbreakable [4:34]
+09. Alison Limerick – Where Love Lives [3:49]
+10. NSync – I Want You Back [3:20]Жанр: Pop, EuropopПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243158   (495902) от 25.08.2018
+
+Milk Inc. - Supersized (2006) [FLAC|Lossless|tracks + .cue] <Pop, Trance, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Run (3:52)
+ 02. Tainted Love (3:15)
+ 03. No Angel (3:58)
+ 04. Go To Hell (3:44)(   Читать дальше...   )Жанр: Pop, Trance, Euro HouseПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542679F3304E9591D664AC4CC9F4A152A1399A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406044   (478968) от 01.09.2020
+
+VA - DanceNet (1998) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-Disco, Euro-House, Trance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking feat. Eric Singleton - You're My Heart, You're My Soul '98 (3:18)
+02. Ace of Base - Life is A Flower (3:43)
+03. The Tamperer feat. Maya - Feel It (3:14)
+04. Solid Harmonie - I Want You to Want Me (3:29)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, Euro-House, TranceПродолжительность: 01:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C15D09E19B2C6DC12CF87043852930C7B2416B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 702701   (467303) от 22.09.2013
 
 DJ Bobo - Reloaded (2013) [FLAC (tracks+.cue)|Lossless]<Eurodance>
@@ -6,7 +99,7 @@ DJ Bobo - Reloaded (2013) [FLAC (tracks+.cue)|Lossless]<Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +128,7 @@ Boney M. - Original Version - Long Version - Rarities (2012) 4xCD Box Set / CD R
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -73,7 +166,7 @@ Moti Special - 2 альбома (1985-1990) [FLAC|Lossless]<Synthpop, Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -102,7 +195,7 @@ Carly Rae Jepsen - Kiss (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossless]<Pop
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +221,7 @@ Mad'House - Absolutely Mad (2002) [APE|image+.cue]<Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +250,7 @@ Londonbeat - Legends (2004) 3CD Box Set [FLAC|Lossless]<Europop, Synthpop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +279,7 @@ Sandra - Stay In Touch (2 CD, Deluxe Edition) (2012) [FLAC|Lossless]<Pop / Eurod
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +314,7 @@ Inna - Hot (2009) [FLAC|Lossless]<Dance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_383897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +340,7 @@ Boney M - Oceans Of Fantasy + Single Hits (2000) [FLAC|Lossless|image + .cue] <F
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +369,7 @@ VA - Dieter Bohlen: Die Megahits (2017) 3CD Premium Edition [FLAC|Lossless|track
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +398,7 @@ Pandora - 3 альбома (1993-1996) [FLAC|Lossless]<Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -335,7 +428,7 @@ John The Whistler - It's Crazy (2000) [APE|Lossless|image + .cue] <Eurodance, Eu
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -364,7 +457,7 @@ Bosson - The Best (2005) [FLAC|Lossless]<Pop, Eurodanse>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_331637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +492,7 @@ Angeleyes - ABBAdance (1999) [APE|Lossless|image + .cue] <Eurodance, Euro-House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +521,7 @@ Technotronic - Best Of (2012) Compilation [FLAC|Lossless|tracks + .cue] <Euro Ho
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +550,7 @@ Ace Of Base - Classic Remixes (Extended) (2008) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +579,7 @@ VA - Serious Beats 95 (2020) 4CD [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, House
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +605,7 @@ E-Type - Greatest Hits / Greatest Remixes (1999) 2CD [FLAC|Lossless]<Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +634,7 @@ Army Of Lovers - Les Greatest Hits (1996) [FLAC|tracks+.cue]<Leftfield, Euro Hou
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +663,7 @@ Mr. President - A Kind Of... Best! (2000) [FLAC|Lossless]<Pop, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -599,7 +692,7 @@ S.E.X. Appeal - Sexy Boy... Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Euroda
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -628,7 +721,7 @@ S.E.X. Appeal - Russian Roulette (2013) 3H Dance, 2019 [FLAC|Lossless|WEB-DL|tra
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -657,7 +750,7 @@ VA - The Best Of Italian Style (2014) 5CD, Compilation [FLAC|Lossless|tracks + .
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,93 +764,6 @@ VA - The Best Of Italian Style (2014) 5CD, Compilation [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9694B9F8A387826C73F07504D346DF6B89AD4858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266665   (269945) от 02.12.2018
-
-Ace Of Base - Playlist: The Very Best Of Ace Of Base (2011) Remastered [FLAC|Lossless|tracks + .cue] <Europop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All That She Wants (3:32)
- 02. The Sign (3:11)
- 03. Don't Turn Around (3:50)
- 04. Beautiful Life (3:39)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1107CEA0AD0E08B08904CE592CAA696F47E15E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342985   (220877) от 04.12.2019
-
-Mo-Do - Was Ist Das? (1995) [FLAC|Lossless|tracks + .cue] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eins, Zwei, Polizei (5:13)
-02. Hamlet (4:11)
-03. Gema Tanzen (4:14)
-04. Liebes Tango (4:12)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3FA5C52B8E390CA097A86D15649BF455D24D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084946   (215921) от 20.12.2016
-
-Yaki-Da - Pride (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just A Dream (3:21)
- 02. I Saw You Dancing (3:50)
- 03. Pride Of Africa (3:37)
- 04. Show Me Love (3:29)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24646A0BE41E9B08CA9B7F03F7217818EFF195A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

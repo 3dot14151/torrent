@@ -1,3 +1,61 @@
+###  Публикация: 1213420   (772008) от 16.03.2018
+
+The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Getting Sentimental Over You [03:35]
+02. Harlem Nocturne [02:50]
+03. Leave Us Leap [03:30]
+04. You Made Me Love You [03:19](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213177   (772002) от 16.03.2018
+
+Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Classical Crossover>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sinfonia [03:36]
+02. Choral No. 1 [02:40]
+03. Waltz [03:15]
+04. Choral [03:22](   Читать дальше...   )Жанр: Vocal Jazz, Classical CrossoverПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0826A2BE089BFFA6D2417FAEF8123C68C35886AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278433   (771993) от 25.01.2019
 
 Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -6,7 +64,7 @@ Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ John Lewis - Grand Encounter (1956) Remaster, 2014, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Archie Shepp Quartet feat. Annette Lowman - Lover Man (1988) Remaster, 2015, Sol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -210,7 +268,7 @@ Oscar Peterson - The Will To Swing 1949-1971 (1991) 2CD, Verve [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -239,7 +297,7 @@ Tom Grant - Mystified (1976) Remaster, 2015, Solid Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +326,7 @@ Masabumi Kikuchi, Gary Peacock, Paul Motian - Tethered Moon (1991) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +355,7 @@ Stefano Bollani - Live From Mars (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +384,7 @@ Duke Ellington - Second Sacred Concert 1974 (2000) ADA Sound [APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +413,7 @@ Duke Ellington - The Great Duke Ellington 1959 (2000) ORO [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +442,7 @@ Jae Sinnett's Zero To 60 Quartet - Just When You Thought... (2020) Self-Released
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +471,7 @@ Sinne Eeg & The Danish Radio Big Band - We've Just Begun (2020) Stunt Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -442,7 +500,7 @@ Club Des Belugas - Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Be
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -471,7 +529,7 @@ Sam Rivers Trio - Emanation 1971 (2019) NoBusiness Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +556,7 @@ George Mraz - Morava (2001) Milestone Records [FLAC|Lossless|tracks + .cue] <Eth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +585,7 @@ The Three Sounds - Six Classic Albums, Vol.2 (1958 - 1962) 4CD, 2014, Real Gone 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +614,7 @@ Carlo Actis Dato Quartet - Enna Milonga (2000) BAJ Records [APE|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +643,7 @@ Johnny Griffin - Bush Dance (1978 / 1983) 2004, Galaxy [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +672,7 @@ Corey King - Lashes (2016) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal, Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +701,7 @@ Arthur Doyle & Sunny Murray - Live at Glenn Miller Cafe (2000) Ayler Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -672,7 +730,7 @@ Norman Brown - Let It Go (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -686,66 +744,6 @@ Norman Brown - Let It Go (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Fusi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DF6F3B59827964B0B20C2DB30725AB31D1ED41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125657   (767932) от 15.04.2017
-
-Scott Bradlee's Postmodern Jukebox - 33 Resolutions Per Minute (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing, Vintage>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer (feat. Kenton Chen)
-02. Don't Stop Me Now (feat. Melinda Doolittle)
-03. I Will Survive (feat. Sara Niemietz)
-04. Ice Ice Baby (feat. Aubrey Logan)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, VintageПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE60D7C2E33D8F3C9302320B7365128B7DDCE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125735   (767884) от 15.04.2017
-
-Michael Franks - Collection 1975 - 1987 (2012) Light Mellow [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнкс Майкл (p. 18 сентября 1944, Ла-Джолла, Калифорния) — американский певец, композитор, музыкант (гитара, мандолина, банджо, фортепиано).
-Майкл Фрэнкс, популярный с конца 70-х и до 90-х годов певец и автор поп-джазовых номеров, которые пели многие жанрово близкие исполнители, может похвалиться и докторской диссертацией.
-Сменив несколько местных фолк- и рок-групп, (   Читать дальше...   )Список альбомов:
-1975 - The Art Of Tea
-1977 - Sleeping Gypsy
-1978 - Burchfield Nines(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-FunkПродолжительность: 06:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E146B897624E38CE1CE101041BFDC9892F39226
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 118791   (883304) от 24.03.2010
+
+Drum'n'Bass Clips. Коллекция музыкальных драм'н'бэйс клипов. (Обновлён 24.03.2010) DVDRip, SATRip (158 клипов)
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Drum'n'Bass / JungleФормат: AVI, MPG, MKV, WMV, MOV
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641931   (881012) от 10.04.2013
+
+Sarah Brightman - Angel (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D296AD8290D0C9A1D53B022FD5594F30D4465D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642092   (880802) от 10.04.2013
+
+Сборник клипов - VA - Various Music part. 41 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Alyona Lanskaya - Solayoh (Belarus) 2013 Eurovision Song Contest 1080p (3:07)
+2. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 1080p (4:09)
+3. BAZUKA - Good For Me 720p (2:53)
+4. BAZUKA - Suck My Ass 720p (2:46)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8738D5E68BF365811D3D237D7A24D143533DE37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 136931   (880669) от 21.02.2011
+
+Видеоклипы российских исполнителей / Russian Music Videos [VOB] [DVD5, DVD9]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Небольшая подборка из того, что было найдено на DVD.Жанр: Pop, Pop Rock, AlternativeФормат: VOBПродолжительность: 3:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372789   (880337) от 06.04.2020
 
 МУАР -  3 Music Videos (2012-2019) WEBRip [H.264/1080p-LQ] <Alternative Rock, Gothic Metal>
@@ -6,7 +113,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +141,7 @@ Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -63,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -89,7 +196,7 @@ Babooshka (Александр Константинов) - Православны
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -115,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -144,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -170,7 +277,7 @@ Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish P
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +303,7 @@ ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -225,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -252,7 +359,7 @@ Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -287,7 +394,7 @@ Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -316,7 +423,7 @@ Feuerschwanz - Das Elfte Gebot (2020) WEBRip [H.264/1080p-LQ]<Mitellater Folk-Ro
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -342,7 +449,7 @@ Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bu
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -368,7 +475,7 @@ Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -394,7 +501,7 @@ Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Me
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -420,7 +527,7 @@ Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Th
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -446,7 +553,7 @@ Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +581,7 @@ Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Гориз�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +633,7 @@ Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +686,7 @@ Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,114 +697,6 @@ Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B90B65B3D284017ED3A9B93B23A39308BFAE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645347   (865575) от 18.04.2013
-
-2 Chainz ft. Lil Wayne - Yuck (Uncensored) (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB35F510CB7C5E1D1FFF3C6078CFF11D59F8B300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189176   (864656) от 04.04.2010
-
-A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно испытал жестокий приступ ностальгии, и в результате появился этот релиз. Это та самая группа - продолжательница дела легендарной ABBA, также известная по большому количеству всевозможных кавер-версий и безумно популярная в 2000 году (а может и сейчас даже найдутся поклонники). Очень красочное видео и незамысловатый текст песен - одним словом - Europop. Дорожки (   Читать дальше...   )01. Gimme! Gimme! Gimme! (A man after midnight) {03:42} (1999)
-02. Mamma mia {03:43} (1999)
-03. Super trouper {04:27} (1999)
-04. Dancing queen {04:26} (2000)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375133   (863867) от 15.04.2020
-
-We Blame The Empire - Updraft (2020) WEBRip [H.264/1080p-LQ] <Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863867.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA We Blame The Empire (2020) AeroПроизводство: Animals Mosh Harder RecordsЖанр: MetalcoreПродолжительность: 00:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA32B99DCD6469B16AE31680D9FDE6062FC375B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375554   (863763) от 15.04.2020
-
-Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.264/1080p-LQ] <Post-Hardcore, Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863763.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA: Concepts (2020) Worry About Me (Ellie Goulding & blackbear Cover) (Single)
-Music Video: Ellie Goulding & blackbear - Worry About Me (2020)Жанр: Post-Hardcore, MetalcoreСубтитры: ENПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64D932DE5F7AA107F3228C912F8AFA9958307BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

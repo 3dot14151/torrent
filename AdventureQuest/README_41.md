@@ -1,3 +1,107 @@
+###  Публикация: 1056554   (479633) от 22.08.2017
+
+Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Virginia - триллер от первого лица про маленький городок со скелетом в шкафу. В роли начинающего агента ФБР Анны Тарвер вы попытаетесь разыскать пропавшего мальчика. Вместе с опытным агентом Марией Гальперин вы отправитесь в городок Кингдом в округе Бёрджесс, Вирджиния, где бесследно пропал мальчик.Тип издания: RepackРазработчик: Variable StateЖанр: Adventure, 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114AE98A0672FAC698BB6E0F36393F42F08544FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031302   (479523) от 22.08.2017
+
+Samorost 3 (2016) [Ru/Multi] (1.4.465) Repack Other s [Cosmic Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Samorost 3 — приключенческая исследовательская игра-головоломка от создателей известных игр Machinarium и Botanicula. Это самый амбициозный проект Amanita Design на сегодняшний день на основе популярных инди-игр Samorost и Samorost 2. Samorost 3 следует вслед за любопытным космическим гномом, путешествующим по космосу с помощью волшебной флейты и стремящимся добраться (   Читать дальше...   )Тип издания: RepackРазработчик: Amanita DesignЖанр: Adventure, Casual, IndieЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0C14803024462BA587DBA27C98768C0FEEB12C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056659   (478924) от 26.09.2016
+
+INFRA (2016) [En] (2.0.0) License HI2U [Part 1-2]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+INFRA - это приключенческая игра, в которой игрокам отводится роль аналитика, который путешествует по разным местам и пытается остановить бедствия, связанные со страстью человечества к улучшениям и развитию технологий.Тип издания: LicenseРазработчик: Loiste InteractiveЖанр: Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23162E45E10F9A053DDF7344375C4CB24DE23C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353253   (478517) от 01.09.2020
+
+Blasphemous (2019) [Ru/Multi] (2.0.27/dlc) Repack Other s [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Blasphemous — это динамичный напряженный платформер, который сочетает в себе черты агрессивных игр с большим количеством сражений и увлекательный сюжет. Игрокам предстоит исследовать огромную вселенную, состоящую из нелинейных уровней. Вам предстоит примерить на себя роль Кающегося — единственного, кто выжил в бойне под названием «Безмолвное горе». Герой попал в (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Adventure, Action, Platform, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F351041134521E7B055AA61B4DA7842B1EEE89D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267855   (478068) от 31.07.2022
 
 Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
@@ -6,7 +110,7 @@ Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Mages of Mystralia (2017) [Ru/Multi] (25464) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Cursed Mountain / Проклятая гора (2009) [Ru] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Vanishing of Ethan Carter Redux (2015) [Ru] (1.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Blue Horizon (2017) [Ru/En/Ge] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Great Perhaps (2019) [Ru/Multi] (1.32.14) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ DARQ (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Room Dilogy (2014-2016) [Ru/En] (1.0.1/1.0.4) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dark Fall Трилогия [Ru/En] (Repack) 2002-2009 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ Warlock: The Curse of the Shaman / Чернокнижник: Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Tormented Souls (2021) [Ru/Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.0/dlc) SteamRip CHRONOS [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Firewatch (2016) [Ru/En] (1.03) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ The Raven: Legacy of a Master Thief (Episode 3: A Murder of Ravens) (2013) [En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +535,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +561,7 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +587,7 @@ Flynn & Freckles (2018) [En/Es] (3.0.0.5) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +613,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack O
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [En/Ge] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,110 +676,6 @@ Duke Grabowski, Mighty Swashbuckler - это рисованный приключ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C45C590BA536044808D61D66828BDAA6AB433039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962320   (456638) от 06.10.2016
-
-Dreamfall Chapters (2014-2016) [Ru/Multi] (5.3.1) License GOG [Special Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamfall Chapters — это сюжетно-ориентированная эпизодическая адвенчура о выборе и последствиях, сновидениях и реальности, магии и науке, хаосе и порядке, а также сломленных героях, действия которых могут изменить ход истории во всех мирах. Действие игры разворачивается в двух параллельных мирах. Первый выдержан в стиле мрачного футуристического киберпанка, другой (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Thread Games и Blink StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893A172149A07CC7EE88A6A07616A1270365A686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408446   (455010) от 12.09.2020
-
-The Unfinished Swan (2020) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455010.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей игры What Remains of Edith Finch. Исследуйте таинственный, совершенно белый пейзаж игры The Unfinished Swan: разбрызгивая краску, постепенно открывайте мир вокруг. Десятилетний сирота Монро идет за лебедем, который вышел из незаконченной картины и скрылся в нереальном, сказочном королевстве. В каждой главе ждут сюрпризы, новые способы постигать этот (   Читать дальше...   )Тип издания: RepackРазработчик: Giant SparrowЖанр: Adventure, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F522E7E73B60C762431E97C5DE7E47AB5FB099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247344   (454305) от 14.09.2018
-
-Disneyland Adventures (2018) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454305.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Магия Disneyland становится ближе, чем когда-либо! Отправляйтесь в страну, где сбываются мечты и оживают герои любимых историй… не выходя из дома! Прогуляйтесь по огромному парку развлечений Disneyland®: от Main Street U.S.A. до Critter Country; помогите Питеру Пэну одолеть капитана Крюка; поздоровайтесь с Микки Маусом и обнимите Белоснежку.Тип издания: LicenseРазработчик: Frontier Developments, Asobo StudioЖанр: , Adventure (Quest), Action, 3D, ArcadeЯзык озвучки: Немецкий, Английский и другиеЯзык субтитров: Английски, Немецкий и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89114B5EE00411D74103D133FA2F284B3DE07417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060815   (452571) от 08.10.2016
-
-Deponia Doomsday (2016) [Ru/Multi] (1.1.0246) License PROPHET
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452571.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одну роковую ночь Руфус проснулся от жуткого кошмара: в нем он принес себя в жертву во имя спасения Депонии. Но какой ценой? На планету обрушился летающий город Элизиум. Будучи последним выжившим депонийцем, он сражался с воинственными дикарями, но вскоре понял, что выход у него только один: Он должен взорвать Депонию!Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, QuestЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB65F40007F3CFE5A4EB492662F3373E27DDCDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

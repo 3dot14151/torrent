@@ -1,3 +1,242 @@
+###  Публикация: 967347   (158545) от 20.12.2015
+
+Whonix 12.0.0.3.2  [анонимный доступ в сети] [x86] Образ для VM
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Whonix - дистрибутив Linux на основе Debian, ранее известный как TorBOX. Предназначен для обеспечения анонимности средствами VirtualBox и Tor. Его особенностью является то, что ни вредоносные программы, ни компрометация учётной записи суперпользователя не могут привести к утечкам IP-адреса и DNS. Все программное обеспечение, идущее в комплекте с системой предварительно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F17FB2B5A1C1EE9F011F13D8325C140A798B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967601   (158322) от 21.12.2015
+
+Cyborg Hawk 1.1 (хакинг и анализ безопасности) [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Cyborg Hawk - Linux дистрибутив, в состав которого входят утилиты для проведения тестирования на проникновение в систему. Содержит большое количество инструментов для аудита и хакинга, Чем данный дистрибутив может оказаться лучше Kali Linux? По словам разработчиков дистрибутив содержит больше инструментов.
+
+Функциональный инструментарий дистрибутива Cyborg Hawk: (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A11B5B9EF9A22C2BA921E6EA689B1303CF4DA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194322   (156685) от 24.12.2017
+
+Потестируйте программку MRSS
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix - обсуждение
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Давно собирался написать программку для просмотра RSS nnm-club(только nnm-club) для Linux для себя, вот наконец в первом приближении закончил. Не оформляю пока как релиз, т.к. Уверен, что будут замечания предложения и.т.д. Выложил на yandexdisk.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518377   (155142) от 19.12.2021
+
+Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано второе корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 64 обновления с устранением проблем со стабильностью и 30 обновлений с устранением уязвимостей. Из изменений в Debian 11.2 можно отметить обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3114F34782C532FF6EBA6AF2CB2E20B97557973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347001   (154734) от 21.12.2019
+
+Wowza Streaming Engine (linux) 4.7.8 [x64] (run)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Wowza Streaming Engine надежное, индивидуально настраиваемое программное обеспечение потокового вещания, которое обеспечивает надежную передачу видео и аудио контента высокого качества на любые устройства. Будучи развернутым в облаке или на локальных серверах, компоненты Wowza Streaming Engine позволяют организовать технологические процессы потоковой передачи ваших (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8657B7568D4CB4E181F64E874CF1C4B60B684B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518381   (153629) от 20.12.2021
+
+Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано второе корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 64 обновления с устранением проблем со стабильностью и 30 обновлений с устранением уязвимостей. Из изменений в Debian 11.2 можно отметить обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F2253CD1E87286E1EDFE89540738FD96474131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518735   (151959) от 21.12.2021
+
+elementary OS 6.1 Jolnir [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Представлен выпуск дистрибутива Elementary OS 6.1, позиционируемого в качестве быстрой, открытой и уважающей конфиденциальность альтернативы Windows и macOS. Основное внимание в проекте уделяется качественному дизайну, нацеленному на создание простой в использовании системы, потребляющей минимальные ресурсы и обеспечивающей высокую скорость запуска. Пользователям (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC8290650DB5AE9115C4B1640F312CA721F896E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589187   (151072) от 14.12.2012
+
+Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Доступен релиз Univention Corporate Server 3.1, промышленного дистрибутива, основанного на Debian GNU/Linux 6 (Squeeze) и ориентированного на обеспечение поддержки корпоративной IT-инфраструктуры. Для установки задействован собственный инсталлятор, оптимизированный для быстрого развёртывания готовых сервисов. Для локального и централизованного администрирования используется специальный web-интерфейс. Для управления конфигурацией подготовлен инструментарий Univention Configuration Registry, позволяющий через наглядный интерфейс генерировать файлы конфигурации для разных сервисов и программ.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434666   (148972) от 25.12.2020
+
+Интернет Контроль Сервер 8.0.1 [x86, amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шлюз безопасности ИКС для многоуровневой защиты корпоративной сети и мониторинга интернет-подключения.
+Удобный интерфейс. ОС FreeBSD. Идеальный инструмент для системных администраторов.
+Бесплатная версия до 10 пользователей!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A02445D1722016A6ADB54A1E9C60E3A47EAD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969348   (148677) от 26.12.2015
 
 KX Studio 14.04.2 (Мультимедийная рабочая станция) [i386, amd64] 2xDVD
@@ -6,7 +245,7 @@ KX Studio 14.04.2 (Мультимедийная рабочая станция) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +271,7 @@ AV Linux 6.0.4 (Мультимедийная рабочая станция на 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +299,7 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +325,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +406,7 @@ BlackArch Linux 2020.01.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +432,7 @@ Calculate Linux 17 [i686] 2xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +460,7 @@ Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +486,7 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +512,7 @@ Calculate Linux 17 [x86-64] 2xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +540,7 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -329,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -355,7 +594,7 @@ Network Security Toolkit (NST) 30-11210 [x86_64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +620,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [En] [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +647,7 @@ IDA Pro 7.7 + IDA Pro 8.3 [x86_64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +673,7 @@ DaVinci Resolve Studio for Linux 17.4.2 Build 9 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -445,249 +684,6 @@ DaVinci Resolve — единственное в мире решение для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E63CFA05D14AE1DD9CF7709B385C0836CD76821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525582   (129040) от 22.01.2022
-
-Ctlos Linux Xfce 2.2.1 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ctlos Linux — базируется на Arch Linux, iso образ собран с помощью archiso скриптов, полностью совместим с Arch Linux, в работе используются оригинальные репозитории, в том числе и Aur.
-Включена поддержка Aur репозитория: пакетный менеджер yay, это говорит о том, что проблем с поиском ПО быть не должно.
-Образ не перегружен программами, как это часто бывает. Есть (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903D7F0C95BC8FEAA6CE0AEEE252855058F8801A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824325   (128866) от 15.10.2025
-
-Linux Mint Debian Edition 7 Gigi (LMDE 7) [64-bit] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Mint Debian Edition 7 (LMDE ) получил название "Gigi", основан на дистрибутиве Debian 13 "Trixie" и поставляется с долгосрочно поддерживаемой версией ядра Linux 6.12 LTS. Дистрибутив доступен только с новейшей версией рабочего окружения Cinnamon 6.4.
-Помимо базы Debian и нового ядра, Linux Mint Debian Edition 7 включает в себя большинство (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864ACB15B81C720A3ABAA93224E21534A524A4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684192   (128015) от 14.12.2023
-
-Ubuntu ServerPack 18.04 (ноябрь 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ubuntu ServerPack - полный комплект серверного ПО, который позволит создать полноценный сервер Enterprise-уровня как в открытой, так и в закрытой(без возможности доступа к Интернет) корпоративной среде предприятий / фирм / государственных учреждений.
-Он легко внедряется в существующую ИТ-инфраструктуру и корпоративные сети. Возможно взаимодействие с рабочими станциями (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574C8C008EB34CE499323A0F33685FC9CF509A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684191   (128013) от 14.12.2023
-
-Ubuntu ServerPack 20.04 (ноябрь 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ubuntu ServerPack - полный комплект серверного ПО, который позволит создать полноценный сервер Enterprise-уровня как в открытой, так и в закрытой(без возможности доступа к Интернет) корпоративной среде предприятий / фирм / государственных учреждений.
-Он легко внедряется в существующую ИТ-инфраструктуру и корпоративные сети. Возможно взаимодействие с рабочими станциями (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3DC284F38C46ADCCF8466453E8B79DEB4477D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685775   (126986) от 20.12.2023
-
-Astra Linux Special Edition 1.6.13 [amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инновационная операционная система класса Linux, обеспечивающая защиту информации, содержащей сведения, составляющие государственную тайну с грифом не выше «совершенно секретно». Разработаны и включены в состав операционной системы программные компоненты, расширяющие ее функциональность и повышающие уровень защищенности и удобства ее использования.
-
-Разработаный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1C20421F15D96B64CEB64D04FD141B6D114569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634032   (126812) от 21.12.2023
-
-IntelliJ IDEA Ultimate 2023.3.2 [х64] (tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126812.jpg" />
-</div>
-
-
-###  Подробнее
-
-IntelliJ IDEA – это ведущая среда быстрой разработки на языке Java. IntelliJ IDEA представляет собой высокотехнологичный комплекс тесно интегрированных инструментов программирования, включающий интеллектуальный редактор исходных текстов с развитыми средствами автоматизации, мощные инструменты рефакторинга кода, встроенную поддержку технологий J2EE, механизмы интеграции (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766A7033CD37B9D08EE93E58516C3E200EAE3E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634090   (126705) от 22.12.2023
-
-WebStorm 2023.3.2 [x64] (tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126705.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebStorm - Легкий, но мощный IDE, прекрасно оборудованный для комплексной разработки на стороне клиента и на стороне сервера разработки с Node.js. WebStorm поможет вам писать код лучше благодаря умному завершению кода, на лету обнаружения ошибок, мощной навигации и рефакторингу. Поддержка новейших технологий IDE обеспечивает поддержку первого класса для JavaScript, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634040   (126675) от 22.12.2023
-
-CLion 2023.3.1 [x64] (tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126675.jpg" />
-</div>
-
-
-###  Подробнее
-
-CLion — умная IDE, предназначенная для разработки на С и С++. Включает в себя поддержку системы сборки кросс-платформенных проектов CMake, Gradle C++ и compilation database, возможности анализа кода на лету, разнообразные рефакторинги и унифицированный интерфейс для работы с самыми популярными системами контроля версий.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1335E544F6F08F30EAD8DA5990F36D869251E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686680   (126321) от 24.12.2023
-
-Wolfram Mathematica 13.3.1 [x64] (.sh)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее полная система для современных технических вычислений в мире
-Благодаря энергичному развитию и стабильному видению на протяжении трёх десятилетий, система Mathematica не имеет себе равных в большом диапазоне измерений и уникальна в своей поддержке современной среды и организации рабочего процесса для технических расчётов.
-Система Mathematica имеет в наличии (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BBCDE7B9B85F6DC46B7067ED0CDC398EA39770
 ```
 
 https://mybot314.ru/tekegram_catalog/

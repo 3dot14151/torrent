@@ -1,3 +1,108 @@
+###  Публикация: 1360169   (961840) от 14.02.2020
+
+Три дня Клавы Грачевой (2018) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1951 год. Клава Грачёва едет забирать своего мужа из колонии-поселения, в которой он пробыл 9 лет. Тот не сильно рвётся домой. У Клавы есть всего три дня на то, чтобы во всем разобраться и забрать мужа.Производство: Россия / ВГИКЖанр: Короткометражный, драмаРежиссер: Иван ГриголюнасАктеры: Ольга Калашникова, Наргис Абдуллаева, Сергей УдовикСубтитры: ОтсутствуютПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A8FB0D8B3362D8604A0CED8A9803ADD754B4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360194   (961714) от 14.02.2020
+
+Красавица и воры (2019) SATRip [H.264] (сезон 1, серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Валерия — следователь прокуратуры. Вся её жизнь — служба закону, в жертву которой принесена и недолгая семейная жизнь. Валерия готовится получить очередное звание. Однако вместо повышения её «временно отстраняют» от дел — пропало пустяковое дело о дорожном хулиганстве, которое вела наша героиня.Производство: Россия / NRG FILMЖанр: детектив, мелодрамаРежиссер: Андрей СилкинАктеры: Светлана Антонова, Максим Щёголев, Анастасия Панина, Анатолий Лобоцкий, Максим Коновалов, Михаил Дорожкин, Ирина Баринова, Вахтанг Беридзе, Александр Красовский, Иван Гришанов и др.Продолжительность: ~ 00:42:53+00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7890293C728DC1503C997575C78B28207CAF21C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622009   (961303) от 21.02.2013
+
+Белый мавр, или Интимные истории о моих соседях (2012) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это ироничная, местами откровенно смешная и в тоже время грустная история о буднях так называемого «верхнего среднего класса» — воспетой в Америке Вуди Алленом, но пока еще весьма малочисленной в нашей стране прослойке состоятельных граждан. Помимо завидного достатка, всех этих погрязших в экзистенциальных сомнениях и банальных адюльтерах бизнесменов, кинозвезд, (   Читать дальше...   )Производство: РоссияЖанр: Драма, КомедияРежиссер: Дмитрий ФиксАктеры: Александр Галибин, Андрей Соколов, Екатерина Стриженова, Жанна Эппле, Игорь Верник, Сергей Астахов, Олеся Железняк, Анна Якунина, Галина Петрова, Ирина Гринёва ...Субтитры: ОтсутствуютПродолжительность: 01:39:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747721   (961222) от 20.01.2014
+
+Девушка в приличную семью (2012) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В старом подмосковном поселке, на даче, принадлежащей известному художнику Сергею Волынскому, проживает его сын Саша с женой Мариной и дочкой шести лет.
+ Отношения в браке непростые: Саша старше Марины на 12 лет, у него проблемы с алкоголем, а после периода первоначальной влюбленности выясняется, что у мужа и жены мало общего. Марина - девушка из простой семьи, а (   Читать дальше...   )Производство: Россия, Новый проектЖанр: МелодрамаРежиссер: Виктория ЛопачАктеры: Анастасия Савосина, Михаил Полицеймако, Александр Половцев, Юлия Майборода, Николай Аверюшкин, Ольга Науменко, Алексей Фатеев, Кристина Пакарина, Елизавета ЗарубинаПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27FCACB5672F0FCD43E7163FB18FBA28D5E079FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 170621   (961217) от 29.01.2010
 
 Чёрная молния (2009) DVDRip
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF423CBC8162A26C46D2CE8ECF880BDFBBA2921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748330   (958173) от 22.01.2014
-
-Ёлки 3 (2013) BDRemux [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя два года они снова с нами: любимые герои «Ёлок» в самых невероятных новогодних историях. Боря и Женя, чьи годовалые дети в канун праздника доведут друзей до психушки. Маленькая девочка Настя, чьи родители разлучат ее влюбленных друг в друга собак. Лыжник и сноубордист в самой экстремальной в их жизни гонке — от военкома. И профессор из Екатеринбурга Андрей, (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: Семейный, комедияРежиссер: Ольга Харина, Дмитрий Киселёв, Александр КоттАктеры: Иван Ургант, Сергей Светлаков, Гоша Куценко, Валентин Гафт, Татьяна Догилева, Пётр Фёдоров, Анна Чиповская, Мария Шукшина, Константин Хабенский, Антон БогдановПеревод: Не требуется (Русский язык)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (*.pgs)Продолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81833374E18402BFF2117726AB0C5CAEEADD6743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748455   (958171) от 22.01.2014
-
-Ёлки 3 (2013) BDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: РоссияЖанр: Семейный, КомедияРежиссер: Ольга Харина, Дмитрий Киселёв, Александр КоттАктеры: Иван Ургант, Сергей Светлаков, Гоша Куценко, Валентин Гафт, Татьяна Догилева, Пётр Фёдоров, Анна Чиповская, Мария Шукшина, Константин Хабенский, Антон БогдановПеревод: Не требуется (русский) | Лицензия |Продолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A8C251142AAAE6B0736C020BC6D9D6EA15B031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748456   (958160) от 22.01.2014
-
-Ёлки 3 (2013) BDRip [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: РоссияЖанр: Комедия, СемейныйРежиссер: Ольга Харина, Дмитрий Киселёв, Александр Котт, Александр Карпиловский, Леван Габриадзе, Антон Мегердичев, Екатерина Телегина, Заур ЗасеевАктеры: Иван Ургант, Сергей Светлаков, Гоша Куценко, Валентин Гафт, Татьяна Догилева, Пётр Фёдоров, Анна Чиповская, Мария Шукшина, Константин Хабенский, Антон Богданов, Вера Строкова, Анна ХилькевичПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BE62E4423EC6AC75499643AB5FCC2F360ECEAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361003   (958099) от 17.02.2020
-
-Как к Ивану Ивановичу совесть пришла (2013) WEBRip [H.264/720p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958099.jpg" />
-</div>
-
-
-###  Подробнее
-
-К человеку, который никогда не совершал ошибок, неожиданно приходит совесть в обличии его незаконнорожденного слепого сына, и теперь в жизни героя одна ошибка следует за другой. Совесть - невоспитанный и наглый мальчишка, который приходит, когда его совсем не ждёшь.Производство: Россия / ВГИКЖанр: Короткометражный, комедияРежиссер: Светлана СигалаеваАктеры: Валерий Гаркалин, Евгений Михеев, Марина Федункив, Елена Захарова, Роман ХардиковСубтитры: ОтсутствуютПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB28FA333E77F6A33D4E6F22FBC60659A30F2A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

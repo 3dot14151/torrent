@@ -1,3 +1,29 @@
+###  Публикация: 1741566   (47599) от 07.08.2024
+
+Master PDF Editor for Linux 5.9.50 [x86_64, arm64] (deb, rpm, tar.gz)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Master PDF Editor - это простая в использовании, но максимально эффективная программа для работы с PDF документами. С ее помощью Вы легко сможете просматривать, создавать и редактировать, объединять несколько файлов в один и разделять исходный файл на несколько документов, комментировать, шифровать, подписывать и печатать интерактивные PDF документы. Программа оснащена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25976DD5F351D6571D3E0D6986CB807899CDD62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742178   (47303) от 10.08.2024
 
 Zapret v.60 for Linux [x86, x86_64] (elf)
@@ -6,7 +32,7 @@ Zapret v.60 for Linux [x86, x86_64] (elf)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +61,7 @@ R-Studio for Linux Network 3.5.1347 [x86, x64] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +87,7 @@ HCL Lotus 14 [x86_64] (.tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +141,7 @@ Kerio Control 9.4.5 [x64] 1xCD
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +167,7 @@ DR14 T.meter 2.0.0 [x32, x64] (py)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -169,7 +195,7 @@ Kerio Control v9.4.5 Patch 2 Build 8629 [x64] (iso, img) [Multi/Ru]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -195,7 +221,7 @@ VMware Workstation 17 Pro 17.6.4-24832109 [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +248,7 @@ RAR for Linux 7.12 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -248,7 +274,7 @@ DeaDBeeF for Linux 1.10.0 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +302,7 @@ CrossOver Linux 25.1.0 [x64] (deb, rpm, bin)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

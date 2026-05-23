@@ -1,3 +1,29 @@
+###  Публикация: 1771344   (31810) от 06.01.2025
+
+Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.5.2) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Проверьте свои предпринимательские навыки в Shop Simulator: Supermarket. Погрузитесь в мир розничной торговли, начните свой бизнес и превратите небольшой магазин в процветающий супермаркет. Всё в ваших руках! Игра станет ещё интереснее с друзьями – работайте вместе, отдавайте команды в голосовом чате и обслуживайте клиентов. Решите, какой магазин хотите создать: (   Читать дальше...   )Тип издания: RepackРазработчик: Three River Games (3RG)Жанр: Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1C1558DDB47DB92F188FFD0129B867B9C2DBD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762925   (31453) от 10.01.2025
 
 Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold Miner's Edition]
@@ -6,7 +32,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ My Summer Car (2016) [En] (241230-03) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030.529/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Guardian's Guide (2025) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Teardown (2022) [Ru/Multi] (20241204/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +266,7 @@ While We Wait Here (2024) [Ru/Multi] (Build 16641425) Repack FitGirl [Soundtrack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +292,7 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.15) Repack R.G. Freedom
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.37/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Heart's Medicine - Hospital Heat (2017) [Ru/Multi] (1.0.0.9) Scene F4CG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Love n Life: Lucky Teacher (2024) [Ru/Multi] (3.3.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Tavern Master (2021) [Ru/Multi] (2.3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Warlords Under Siege (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Vampire Therapist (2024) [Multi] (1.202) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Uncle Chop's Rocket Shop (2024) [Ru/Multi] (1.4.0:5875/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -630,7 +656,7 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -641,32 +667,6 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A55FD6C5FE09A8C6CE558B8B494DF96A7E99250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776251   (29216) от 31.01.2025
-
-JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симулятор разработки программного обеспечения - захватывающая трехмерная головоломка по программированию автоматизации и управления реалистичными машинами, роботами, дронами и многим другим с использованием настоящего кода Python. Развивайте навыки программирования, играя, решайте увлекательные небольшие задачи по программированию и двигайтесь вперед, чтобы открывать (   Читать дальше...   )Тип издания: RepackРазработчик: Prof. SchererЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E1DF6A8D44E7538D5C3C876CA39633AA074EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

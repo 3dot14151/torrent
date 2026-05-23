@@ -1,3 +1,29 @@
+###  Публикация: 337542   (673604) от 16.05.2011
+
+Microsoft office 2007 wined 12 SP2 [x86] (tar)
+
+>>След.
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+версия пакета приложений Microsoft Office, последовавшая за Microsoft Office 2003 и предшествующая Microsoft Office 2010. Поступила в продажу для организаций 30 ноября 2006, для индивидуальных клиентов — 30 января 2007. Одновременно была выпущена операционная система Windows Vista.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132248   (672311) от 23.05.2017
 
 ZVVOnlineTV 0.2 [x86, x64] (deb) (обновляемая авторская раздача)
@@ -6,7 +32,7 @@ ZVVOnlineTV 0.2 [x86, x64] (deb) (обновляемая авторская ра
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +61,7 @@ Allegorithmic Substance Designer 6.0.3 build 181 (Linux) [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +87,7 @@ Tor Browser 4.5.2 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +113,7 @@ Tor Browser 5.0a2  (Alpha2)  [анонимный доступ в сети] [х86
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +139,7 @@ Autodesk Maya 2017 Update 3 [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +166,7 @@ Bricsys BricsCAD Platinum 17 17.1.20 Build 47302 [x64] (.tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +192,7 @@ OpenVPN Access Server 2.6.1 [En]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +218,7 @@ Maplesoft Maple 2017.1a Build 1238644 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +244,7 @@ PDF Studio Pro 11.0.7 (13.04.17) [x86, amd64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +271,7 @@ Komodo Edit 10-2.2.17703 [x86, amd64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +298,7 @@ Tor Browser for Linux 4.5.3 [x86/x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +352,7 @@ Microsoft Office 2007 Professional Plus SP3 12.0.6607.1000 Repack The Hacker [x8
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +378,7 @@ Tor Browser 2.3.25-12 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +404,7 @@ Image Uploader 1.3.1 build 4318 Stable [Multi/Ru] Repack The Hacker [x86-x64] (c
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +430,7 @@ Abbyy FineReader 7.0 Professional 7.0.0.509 Repack The Hacker [x86-x64] (cxarchi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +459,7 @@ Wing IDE Professional 6 6.0.6-1 [x64] (tar.bz2,deb,rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +485,7 @@ Tixati 2.53 [amd64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +537,7 @@ Wing IDE Pro 7.0.3.0 [x64] (deb,rpm,tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +589,7 @@ Abbyy FineReader 8.0 Professional 8.0.0.706 Repack The Hacker [x86-x64] (cxarchi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +615,7 @@ Brackets 30 [x32,x64] (deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +641,7 @@ Tor Browser 5.0 [анонимный доступ в сети] [х86, x64] (bundl
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,7 +667,7 @@ Microsoft Office 2003 Pro SP3 + FrontPage 2003 SP3 + Project 2003 Pro SP3 + Visi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -652,32 +678,6 @@ Microsoft Office – самый популярный в мире пакет оф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23EE2199742D745A60B2D758EB582D6125B1FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929218   (520192) от 18.08.2015
-
-Microsoft Office 2007 Pro Plus SP3 + Project 2007 Pro SP3 + Sharepoint Designer 2007 SP3 + Visio 2007 Pro SP3 12.0.6607.1000 Repack The Hacker [x86-x64] (cxarchive)
-
->>След.
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2007 — исчерпывающий комплект рабочих приложений и программ управления базами данных, помогающих экономить время и эффективно организовать работу. Широкий спектр возможностей управления контактами позволяет сосредоточить все функции управления сведениями о клиентах и потенциальных клиентах в одном месте и обеспечить более высокое качество обслуживания. (   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FC733BF9AD45B78B4E3D90FD17FD811929DF47
 ```
 
 https://mybot314.ru/tekegram_catalog/

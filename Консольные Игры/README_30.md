@@ -1,29 +1,3 @@
-###  Публикация: 1042618   (577976) от 13.08.2016
-
-Vancouver 2010 (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO]  [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект жанра Simulators разработан для PS3 и позволяет максимально использовать ресурсы консоли. Невероятно реалистичные графика и физика порадуют даже самого заядлого игромана. Без чего не может обойтись Олимпиада? Факел? Несколько лет подготовки и десятки миллиардов долларов, профуканных во имя спортивного будущего нации? Ах, все не то. В XXI-ом веке обязательный (   Читать дальше...   )Тип издания: UnofficialРазработчик: EurocomЖанр: SportsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F9C38D66CB6A5CDDD812FBEA3D032FF2040BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042546   (577838) от 13.08.2016
 
 Wangan Midnight (2007) [PS3] [JAP] 1.08 [Cobra ODE / E3 ODE PRO ISO]  [License] [En/Jp]
@@ -32,7 +6,7 @@ Wangan Midnight (2007) [PS3] [JAP] 1.08 [Cobra ODE / E3 ODE PRO ISO]  [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +33,7 @@ Toukiden 2 (2016) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial / 1.
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +60,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +86,7 @@ Sid Meier's Pirates! [Wii] [PAL] [Multi 5] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +112,7 @@ Need For Speed: Most Wanted U (2013) [WiiU] [USA] 5.3.2 [WUP] [Repack] [Ru]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +138,7 @@ Shellshock 2 Blood Trails (2009) [PS3] [EUR] 2.42 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +164,7 @@ Maximum Racing: Super Truck Racer [Wii] [NTSC] [ENG] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +190,7 @@ Giana Sisters: Twisted Dreams (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +216,7 @@ The Walking Dead: Michonne. Episode 1-3 (2016) [PS3] [EUR] 3.55 [Cobra ODE / E3 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +268,7 @@ Star Wars The Force Unleashed II (2010) [PS3] [USA] 3.41 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +294,7 @@ GoldenEye 007: Reloaded (2011) [PS3] [Move] [USA] 3.70 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +321,7 @@ SSX Blur [Wii] [PAL] [Multi 5] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +375,7 @@ The King of Fighters XII (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [U
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +429,7 @@ Arise: A Simple Story (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.03]  [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +455,7 @@ ACE COMBAT ASSAULT HORIZON (2012) [PS3] [USA] 4.20 [HEN] [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +481,7 @@ Alpha Protocol (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] [Unofficial]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +536,7 @@ Lost Dimension (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO] [Unofficial] [En
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +562,7 @@ Outland (2011) [PS3] [EUR] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +588,7 @@ Fairytale Fights (2009) [PS3] [USA] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -640,7 +614,7 @@ Batman: Arkham Asylum GOTY [PS3] [EUR] [En] [3.15] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -666,7 +640,7 @@ Star Wars: The Force Unleashed II (2010) [PS3] [EUR] 3.42 [Unofficial] [En/Ru] R
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -679,6 +653,33 @@ Star Wars: The Force Unleashed II (2010) [PS3] [EUR] 3.42 [Unofficial] [En/Ru] R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29C36C0361BE194279E38223AC0ECE14E2895EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921856   (562361) от 01.08.2015
+
+Motionsports Adrenaline (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MOVE]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Если вы любите спортивные соревнования и активные игры, вам стоит обратить внимание на эту игру. Motionsports Adrenaline позволит вам испытать себя в самых сумасшедших соревнованиях по всему миру, по состязаться в них с виртуальными противниками и реальными друзьями, чтобы выяснить, кто из вас круче.
+В этой игре вы сможете сделать все то, на что вряд ли решитесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft VancouverЖанр: Arcade / Sport / 3D / Party gameЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C8A7FDF8C2CDEB45A7FE681664B502FA09684B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1422893   (305938) от 10.11.2020
+
+Тайны Сильверхёйда / Jordskott (2017) BDRip [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прошло два года с тех пор, как ужасные события потрясли маленький городок Сильверхёйд. Детектив Ева Торнблад вернулась к своей работе в полиции Стокгольма. Она пытается двигаться дальше, борясь со своим горем из-за потери Юзефин и болью, которую ей причиняет "росток земли". Вскоре она оказывается втянутой в загадочное дело, связанное с ее собственным прошлым, (   Читать дальше...   )Производство: Швеция, Финляндия, Великобритания, Норвегия / Palladium Fiction, Sveriges Television (SVT), ActinvestЖанр: фэнтези, триллер, драма, криминал, детективРежиссер: Хенрик Бьорн, Андерс Энгстрем, Jakob StrömАктеры: Муа Гаммель, Йоран Рагнерстам, Ричард Форсгрен, Хаппи Янкелль, Густав Линд, Хенрик Кнутссон, Ваня Бломквист, Stina Sundlöf, Mira Gustafsson, Анн Петрен и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A4F8BDA86EF350563F09D21F2F1D825CA4C3CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422897   (304020) от 11.11.2020
+
+Тайны Сильверхёйда / Jordskott (2017) BDRip (сезон 2, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прошло два года с тех пор, как ужасные события потрясли маленький городок Сильверхёйд. Детектив Ева Торнблад вернулась к своей работе в полиции Стокгольма. Она пытается двигаться дальше, борясь со своим горем из-за потери Юзефин и болью, которую ей причиняет "росток земли". Вскоре она оказывается втянутой в загадочное дело, связанное с ее собственным прошлым, (   Читать дальше...   )Производство: Швеция, Финляндия, Великобритания, Норвегия / Palladium Fiction, Sveriges Television (SVT), ActinvestЖанр: фэнтези, триллер, драма, криминал, детективРежиссер: Хенрик Бьорн, Андерс Энгстрем, Jakob StrömАктеры: Муа Гаммель, Йоран Рагнерстам, Ричард Форсгрен, Хаппи Янкелль, Густав Линд, Хенрик Кнутссон, Ваня Бломквист, Stina Sundlöf, Mira Gustafsson, Анн Петрен и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские (отдельно)Продолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107483EBDB627FF0192FC49A2998AF841FA4953D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423138   (301873) от 12.11.2020
 
 Знаки / Znaki (2018-2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1-2, серии 1-16 из 16) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE9916D31B0DBB3FF052183D71BBAFE04266028E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327419   (265896) от 19.11.2019
-
-Американская история ужасов / American Horror Story (2019) WEB-DLRip [H.264/720p-LQ] (сезон 9, серии 1-9 из 9) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265896.jpg" />
-</div>
-
-
-###  Подробнее
-
-После призраков, клоунов и ведьм настал черед слэшеров 1980-х, где незадачливых подростков убивает незнакомец с ножом и в маске. По всем правилам жанра истории об убийце полушепотом пересказывают вокруг костра, в деле замешаны прошлые преступления и не самая надежная психиатрическая больница.Производство: США / Brad Falchuk Teley-Vision, Ryan Murphy Productions, 20th Century Fox TelevisionЖанр: ужасы, триллер, драмаРежиссер: Брэдли Букер, Альфонсо Гомес-Рехон, Майкл АппендальАктеры: Эван Питерс, Сара Полсон, Дэнис О’Хэр, Кэти Бейтс, Джессика Лэнг, Фрэнсис Конрой, Лили Рэйб, Анджела Бассетт, Эмма Робертс, Шайен Джексон и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:55:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FC7E03D396D8F5E9A7C15DAA3002718AF460AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327418   (265895) от 19.11.2019
-
-Американская история ужасов / American Horror Story (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 9, серии 1-9 из 9) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265895.jpg" />
-</div>
-
-
-###  Подробнее
-
-После призраков, клоунов и ведьм настал черед слэшеров 1980-х, где незадачливых подростков убивает незнакомец с ножом и в маске. По всем правилам жанра истории об убийце полушепотом пересказывают вокруг костра, в деле замешаны прошлые преступления и не самая надежная психиатрическая больница.Производство: США / Brad Falchuk Teley-Vision, Ryan Murphy Productions, 20th Century Fox TelevisionЖанр: ужасы, триллер, драмаРежиссер: Брэдли Букер, Альфонсо Гомес-Рехон, Майкл АппендальАктеры: Эван Питерс, Сара Полсон, Дэнис О’Хэр, Кэти Бейтс, Джессика Лэнг, Фрэнсис Конрой, Лили Рэйб, Анджела Бассетт, Эмма Робертс, Шайен Джексон и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:55:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E5C46EFEEA0DD75FAC712884B1DD6DA2210C11
 ```
 
 https://mybot314.ru/tekegram_catalog/

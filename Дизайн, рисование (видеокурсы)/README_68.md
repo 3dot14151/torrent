@@ -1,3 +1,88 @@
+###  Публикация: 1609549   (203168) от 03.02.2023
+
+Фотошкола "Друзья", Александр Заморин, Соня Лебедева | Ретушер (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Пакет «Продвинутый»
+Включает 41 занятие + Raw исходники + Бонусы
+
+Начни обрабатывать так как всегда мечтал!(   Читать дальше...   )Производство: Фотошкола "Друзья"Жанр: Обработка фотографийЯзык озвучки: РусскийПродолжительность: 13:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A3813543597E93C7ABA8E52D39D0B252841DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609316   (203156) от 03.02.2023
+
+Waqas Qazi | Master DaVinci Resolve NODE TREE. Live Training Session 2 (2020) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В этом живом обучении я собираюсь показать свое дерево узлов подписи, которое я практически использую на каждом концерте. И мы собираемся построить это дерево узлов с нуля, чтобы вы могли узнать все, что вам нужно знать об узлах внутри DaVinci Resolve.
+Мы завершим тренинг разделом «Вопросы и ответы», где вы получите индивидуальные ответы на свои конкретные вопросы. (   Читать дальше...   )Жанр: Видео, ЦветокоррекцияЯзык озвучки: Английский, РусскийПродолжительность: 03:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6F801278CDB57A8AABBD782E966B185D7106E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609734   (203135) от 04.02.2023
+
+Художник Онлайн, Дарья Куцаева | Перспектива. Маркеры (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Программа обучения
+
+История перспективы. Теория. Курс начнется с серии теоретических уроков. На первом занятии Дарья расскажет о том, какие виды перспективы использовали художники прошлого.
+(   Читать дальше...   )Производство: Художник ОнлайнЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 16:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10063C225BFFCB4A2083850ECFFF97A613720276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609710   (203121) от 04.02.2023
 
 Школа искусств Муза, Алена Казначеева | Лаборатория коммерческой иллюстрации (2022) WEB-DL [RU]
@@ -6,7 +91,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +120,7 @@ Study Kvo, Саня Кво | Курс по веб-дизайну 3.0 (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -92,7 +177,7 @@ MographPlus, Камиль Хезри | The Ultimate Introduction to Arnold 6 for
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -120,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -148,7 +233,7 @@ Rebelway, Saber Jlassi, Igor Zanic | Ocean rendering using Redshift (2020) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -176,7 +261,7 @@ Rebelway, Saber Jlassi | Abstract FX in Houdini Using Karma (2021) WEB-DL [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -204,7 +289,7 @@ Nexttut Education Pvt.Ltd., Shahzad Ahmad | Houdini for Absolute Beginners (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -233,7 +318,7 @@ Kalacheva School, Вера Соколова | Новый английский к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -262,7 +347,7 @@ FXPHD, Andrew Lowell | HOU220 – Houdini FX, Particle Fundamentals and Fuzzy Lo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -290,7 +375,7 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +404,7 @@ ArtiGood, Николай Солодов | Акварельный курс «Зи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +432,7 @@ Vertex School, Keith Kamholz | Houdini FX & Redshift (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +461,7 @@ Udemy, Pirate Sheep | Houdini Hacks: 3D Dynamics for Absolute Beginners (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -434,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -460,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -489,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -517,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -544,7 +629,7 @@ Skillshare, Derek Davidson | 3D Creature Modeling with Nomad Sculpt (2023) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,7 +657,7 @@ Skillshare, Jake Fleming | Vector To Pixel Art (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -598,7 +683,7 @@ Class101, Studio Pants | Retro Video Game Like Illustrations: Pixel Art for Begi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -624,7 +709,7 @@ DESIGNLINE, Сергей Гуров | Поиск и реализация виз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -635,90 +720,6 @@ DESIGNLINE, Сергей Гуров | Поиск и реализация виз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F153BB3E90F2B39AA036A81B7B563D8439CD0753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621976   (200769) от 27.03.2023
-
-Нина Петровская | Пять роз (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нина Петровская
-Художник, коуч
-
-Член ТСХ России, Ассоциации художников ботанического искусства. Автор более 20 очных и онлайн курсов, марафонов. Участник десятков российских и международных выставок. Создатель клуба "Ботанический сад".Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 30:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9802F42F3AEF215B5051071BED4845A89E62DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622144   (200766) от 27.03.2023
-
-Сергей Гуров | Композиция. Пластическое формообразование (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаем работать с темой Пространство и Форма.
-В серии интенсивов мы рассмотрим два базовых подхода к решению графических задач:
-⁃ геометрический (упрощение)
-⁃ пластический (усложнение)(   Читать дальше...   )Жанр: Дизайн, UI-ДизайнЯзык озвучки: РусскийПродолжительность: 10:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FFDA3965E8C60983A6B13F6C512391C60FDB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621935   (200736) от 26.03.2023
-
-Udemy, Alan Ayoubi | After Effects Animated Graphics Beast (2020) WEB-DL [AD] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предназначен для начинающих и продвинутых, которые хотят улучшить свои навыки в анимации и моушн графике. По окончанию этого курса вы можете называть себя аниматором и хорошим аниматором! Позвольте мне рассказать вам, почему. Мы начнем курс с принципа анимации, мы рассмотрим самый важный для моушн-графики. Вы узнаете обо всех типах ключевых кадров с практикой. (   Читать дальше...   )Производство: UdemyЖанр: 2D АнимацияЯзык озвучки: АнглийскийПродолжительность: 03:02:40Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438CE502836F367B7B06D6FA3837323F2DC62A57
 ```
 
 https://mybot314.ru/tekegram_catalog/

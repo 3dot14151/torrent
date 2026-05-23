@@ -1,3 +1,29 @@
+###  Публикация: 1816121   (4549) от 03.09.2025
+
+Rusty Rangers (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Как выглядел мир до того, как его захватил Барон, не помнит никто, кроме команды отважных рейнджеров. Теперь повсюду царит хаос и непредсказуемость - безобидные в прошлом существа несут разрушения, а мир вокруг постоянно меняется, раз за разом обнуляя привычную обстановку вокруг. Rusty Rangers - это экшен платформер и рогалик с элементами метроидвании. Выбери своего (   Читать дальше...   )Тип издания: RepackРазработчик: Fantastica!Жанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, ЯпонскийЯзык интерфейса: Русский, Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0282AFB734E414CBA2C99006AFC99C6ED5E39AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816157   (4535) от 03.09.2025
 
 Spiritfall (2024) [Ru/Multi] (1.6.28) License GOG
@@ -6,7 +32,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.28) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ ION Shift (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.04/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ NINJA GAIDEN Ragebound (2025) [Ru/Multi] (cs37801) Repack Let'sРlay [Soundtrack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Undead West (2024) [Ru/Multi] (1.0.4.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Meganoid (2017) [En] (2.2.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Primal Planet (2025) [Ru/Multi] (1.0.250909.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

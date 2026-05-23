@@ -1,3 +1,84 @@
+###  Публикация: 1813687   (6688) от 21.08.2025
+
+Алко Калькулятор самогонщика v3.4.1  Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Калькулятор для винокуров, самогонщиков, пивоваров и всех кто занимается домашними напитками. Имеются также рецепты различных напитков.Тип издания: ModРелиз состоялся: 19.08.2025Разработчик: ProWattaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7427DC92B40B8B1E37B4E9E1BD850541BB1948BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813689   (6651) от 21.08.2025
+
+Все заболевания (Offline) v5.2 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этом словаре все болезни расположены в алфавитном порядке и содержат заболевания с краткой информацией и симптомами,  чтобы было легче понять понять о том, что это за болезни. Это очень полезный и удобный справочник. К Вашим услугам самая подробная информация о любой интересующей болезни - от банальной простуды до сложнейших генетических патологий.Тип издания: PremiumРелиз состоялся: 17.08.2025Разработчик: ufostudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C103D18B090C165450E31FD37FFDC8033B693B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813691   (6649) от 21.08.2025
+
+Хатха йога для начинающих v3.3.5 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Хатха йога для начинающих дома - это синтез самых лучших и проверенных временем на эффективность асан и упражнений, которые познакомят Вас с Хатхой. Йога тренировки дома составлены таким образом, что они:
+1) Развивают гибкость связок и сухожилий, увеличивают уровень растяжки,
+2) Подходят для больной спины и очень хорошо формируют правильную и ровную осанку,
+3) Насыщают (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.08.2025Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D16F8A595D3C302D702AB3B1F4B7648812DA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814038   (6358) от 23.08.2025
 
 TwinMe - конфиденциальный мессенджер 30.6 [Ru/Multi]
@@ -6,7 +87,7 @@ TwinMe - конфиденциальный мессенджер 30.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +142,7 @@ DNS Changer - IPv4 & IPv6 v2.8.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +168,7 @@ DjVu Reader & Viewer (читалка) v1.0.137 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +222,7 @@ GPS АнтиРадар v50.3 Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +248,7 @@ DNS Changer Pro v1.4.1 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +275,7 @@ GPS Compass Navigator v2.20.35 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +301,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.6 Mod by Balatan  [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +327,7 @@ GPS Locker Prime v2.5.0 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +355,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +381,7 @@ PicWish: AI Photo Editor v2.1.9 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +408,7 @@ Listen Audiobook Player v5.3.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +434,7 @@ Background Eraser (InShot Inc.) v2.285.87 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +460,7 @@ CPU-Z v1.52 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +539,7 @@ MobiPDF: Редактор и сканер PDF  v11.8.267277 Mod by Balatan [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +565,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +591,7 @@ Proton VPN 5.12.80.0 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +617,7 @@ Lighting calculations / Расчеты освещения v6.1.7 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +643,7 @@ TuneIn Radio Pro v39.8.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +669,7 @@ Photo Lab PRO v3.13.70 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,84 +680,6 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F07C02B1A797F114A8393E215CC01E4120524647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815163   (5582) от 28.08.2025
-
-Мультфильмы v288 Mod by clubtime2009 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите любимые Мультфильмы и Сказки онлайн прямо сейчас. Хотите всегда иметь доступ к анимационному контенту Мультфильмов и Сказок и получать новинки каждый день?Тип издания: AdfreeРелиз состоялся: 27.08.2025Разработчик: Мульт твПоддерживаемая ОС: Android / Android TV 5.0Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E773D5CC7566C0E544622B3E7E5DF805F1D45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815165   (5540) от 28.08.2025
-
-Cat Scanner / Сканер породы кошек v22.2.15-G Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Cat Scanner надежно идентифицирует породу вашей кошки всего за несколько секунд! Помимо фотографии, вы также можете записать видео или загрузить изображение из своей галереи. Узнать кошку так же легко, как и получить! Несмотря на небольшой размер приложения, вы получите все возможности и сможете в любое время определить породу кошки или получить доступ (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.08.2025Разработчик: Siwalu Software GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA2F09C5C031E2C05C282EE40E83EB2987ED511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815168   (5524) от 28.08.2025
-
-Dog Scanner: Породы собак v22.2.15-G Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Dog Scanner надежно идентифицирует породу вашей собаки всего за несколько секунд! Помимо фотосъемки, вы можете записать видео или загрузить изображение из своей галереи. Узнать собаку так же легко, как и получить! Несмотря на небольшой размер приложения, вы получите все возможности и сможете идентифицировать породу собаки или получить доступ к нашей обширной (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 27.08.2025Разработчик: Siwalu Software GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DCF2227E76D5E786B3A199389F212F71A79F73
 ```
 
 https://mybot314.ru/tekegram_catalog/

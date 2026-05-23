@@ -1,90 +1,3 @@
-###  Публикация: 1422050   (313158) от 07.11.2020
-
-VA - Blues for Christmas (2020) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Lee - Christmas Blues
-02. Brent Johnson - Christmas Tears
-03. Bryan Lee - Santa Claus Is Messin' with the Kid
-04. Beau Kavanagh & The Broken Hearted - Santa Claus Is Back in Town(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C09F236E1D4E8F25082BBE6B873E28D58864533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183105   (311908) от 12.11.2017
-
-VA - Blues Collection 13 (The End) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Lonely Boys - Orale  (03:46) 
-02. The Harpoonist & The Axe Murderer - Father's Son  (03:19) 
-03. Gonzales Tino & Los Reyes - Cloak Of Misery  (06:46) 
-04. Jon Amor - In The Devil's Back Yard  (04:15) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03617B8C9E4526DC3659456EFF979CED5839B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076629   (311536) от 26.11.2016
-
-VA - Chillout Cocktail Christmas Jazz (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Kelly - I Saw Mommy Kissing Santa Claus
-02. Carol Sudhalter - Somewhere Over the Rainbow
-03. Middle Jazz Quartet - Stolen Moments
-04. Samuele Pagliarani - We Wish You a Merry Christmas(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5024A91096D3C7662A04C1C0A6BEF48502381A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076854   (311198) от 26.11.2016
 
 VA - Jazz Tunes Vol 1 (2016) [MP3|191-320 Kbps] <Smooth Jazz, Lounge>
@@ -93,7 +6,7 @@ VA - Jazz Tunes Vol 1 (2016) [MP3|191-320 Kbps] <Smooth Jazz, Lounge>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +35,7 @@ VA - Love In My Soul: Autumn Blues (2015) [MP3|320 кб/с]<Blues, Rock Blues, S
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +64,7 @@ VA - Let's Hit To Road (2019) [MP3|320 Kbps] <Country, Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +93,7 @@ VA - Smooth Jazz Music Collection (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +122,7 @@ VA - Velvet Evening: Classical Vocals In Jazz (2020) [MP3|320 Kbps] <Jazz, Blues
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +151,7 @@ VA - Wine Bar Grooves: Classy Jazz Bar Music Selection (2015) [MP3|320 кб/с]<
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +180,7 @@ VA - Jazz Tunes Vol 2 (2016) [MP3|192-320 Kbps] <Smooth Jazz, Lounge>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +209,7 @@ VA - My Jazz Lounge (2015) [MP3|320 кб/с]<Jazz,Lounge>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +238,7 @@ VA - Blues Variety (2017) [MP3|192-320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +267,7 @@ VA - Modern Blues (2019) [MP3|320 Kbps] <Blues,Modern,Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +296,7 @@ VA - 50 Shades of Jazz (2015) [MP3|320 кб/с]<Jazz, Jazz Fusion, Smooth Jazz, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +325,7 @@ VA - Empire Records - Saloon (2018) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +354,7 @@ VA - Jazz Symphonic (2018) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +383,7 @@ VA - Blues Forever vol.65 - vol.68 (2016) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +412,7 @@ VA - Unforgettable Moments with Jazz (2016) [MP3|320 Kbps] <Jazz, Instrumental>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +441,7 @@ VA - Empire Records - Old Vocal Jazz (2018) [MP3|320 Kbps] <Vocal Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +470,7 @@ VA - Diamond To Dust: Blues Collection (2018) [MP3|320 Kbps] <Blues, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +499,7 @@ VA - Jazzatronic Vol 1 (Nu Jazz Meets Electronic Music) (2016) [MP3|320 Kbps] <J
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +528,7 @@ VA - Late Night Jazz Chill: Staring At The Moon (2016) [MP3|320 Kbps] <Jazz, Chi
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +557,7 @@ VA - Blues Metropolia (2018) [MP3|320 Kbps] <Blues, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +586,7 @@ VA - Road Blues: Top 50 Songs (2017) [MP3|320 Kbps] <Rock Blues, Folk Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -702,7 +615,7 @@ VA - Vintage Jazz Deluxe (2017) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -731,7 +644,7 @@ VA - Country Night Top 130 (2019) [MP3|320 Kbps] <Country, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -745,6 +658,93 @@ VA - Country Night Top 130 (2019) [MP3|320 Kbps] <Country, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E4C42E15DDFA5CA3EE5B943F98DB60C3393437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341473   (262307) от 28.11.2019
+
+VA - Soul And Love Song (2019) [MP3|320 Kbps] <Soul, R&B, Other>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+001. Allуshа Jоу - Fnfl
+002. Jеаn Dеаux - It’s Whаtеvеr
+003. Quеntin Mооrе - Swееt Sроt
+004. K'nуа - Cоnstаnt(   Читать дальше...   )Жанр: Soul, R&B, OtherПродолжительность: 09:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E27A3ABAB293B47A12F351A3FF1111A86404BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838572   (260635) от 23.11.2025
+
+VA - No name compilation part 15 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soulful Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01 - Ai - Train to Silence
+02 - Ilaria Argento - Under My Tree
+03 - Ilaria Argento - That Winter Stayed
+04 - Ilaria Argento - We'll Burn Tonight(   Читать дальше...   )Жанр: Soulful Blues BalladПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBAF90BC174BB001091D95DDC68C2010FA23116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838451   (260618) от 23.11.2025
+
+AI - No name compilation part 12 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soulful Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01 - Weight of a Whisper
+ 02 - Shadows on My Shoulder
+ 03 - Velvet Shadows
+ 04 - The Ghost in the Machine(   Читать дальше...   )Жанр: Soulful Blues BalladПродолжительность: 02:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C486CCCD96F61A40EC5D8434E0485E5889CFA8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

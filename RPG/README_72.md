@@ -1,3 +1,81 @@
+###  Публикация: 1758174   (23077) от 30.03.2025
+
+The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Axis Unseen - это игра в жанре хэви-метал хоррор от одного из разработчиков Skyrim и Fallout. Найдите стрелы, напитанные силой стихий. Устройте охоту на чудовищ из древних легенд в открытом мире. Но помните - любой охотник может стать добычей. Устройте охоту на древних чудищ. Ищите их по запаху и следам крови. Учитывайте направление ветра и не дайте им учуять (   Читать дальше...   )Тип издания: RepackРазработчик: Just Purkey GamesЖанр: Экшены, Ролевые игры, СимуляторыЯзык интерфейса: Русский, Английский, Японский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF230FE32DBF7C54F3996B9D832866C75ACD214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788322   (23026) от 30.03.2025
+
+Broken Roads (2024) [Ru/Multi] (1.3.15161) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Broken Roads создана командой настоящих энтузиастов классических компьютерных ролевых игр, так что далеко не последнее место в путешествии игроков по австралийским пустошам будет занимать глубокий и захватывающий сюжет. Традиционные элементы здесь сочетаются с инновационными решениями — например, здесь нет классов, что позволяет экспериментировать со способностями (   Читать дальше...   )Тип издания: RepackРазработчик: Drop Bear BytesЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4EF6F034476CC59E5EB97DA406C196493AF30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788327   (23002) от 30.03.2025
+
+Darkest Dungeon II (2023) [Ru/Multi] (2.00.75033/dlc) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Darkest Dungeon 2 - сиквел готической ролевой игры, объединяющей в себе механики метроидвании и сурвайвал хоррора. Игровой процесс представляет собой динамичный экшен, в котором вы путешествуете по мрачному фэнтезийному миру и сражаетесь с многочисленными врагами. Каждый враг представляет серьезную угрозу. Все противники имеют уникальные паттерны атак и движений. (   Читать дальше...   )Тип издания: RepackРазработчик: Red Hook StudiosЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD0283B8A2494CE81C09C928B1F2D98149693D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788335   (22996) от 30.03.2025
 
 Core Keeper (2022) [Ru/Multi] (1.1.0.2-a156) Repack Wanterlude
@@ -6,7 +84,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.0.2-a156) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Miryam The Polluted Land (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.3d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Battle Brothers (2017) [Ru/En] (1.5.1.5 HF/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Avowed (2025) [Ru/Multi] (1.3.1.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -164,7 +242,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -190,7 +268,7 @@ REYNATIS (2024) [Multi] (1.0.9/dlc) Scene Rune [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +294,7 @@ Werewolf: The Apocalypse (2020-2024) [En] (1.0.13.2010191537/1.1.13.2504011817) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +320,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +346,7 @@ Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -294,7 +372,7 @@ Master Key (2024) [Ru/Multi] (1.7.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +398,7 @@ Dark Deity 2 (2025) [En] (1.0.1) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -346,7 +424,7 @@ Vagrus: The Riven Realms (2021) [Ru/Multi] (1.2.00.0402Q/dlc) Repack FitGirl [Ce
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +450,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -398,7 +476,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -424,7 +502,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -450,7 +528,7 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -476,7 +554,7 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -502,7 +580,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -528,7 +606,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Bleak Faith: Forsaken (2023) [En] (4036071) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +658,7 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -591,84 +669,6 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76B4601062233F9A2C237D20A9F5D20238CE63C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791376   (21586) от 13.04.2025
-
-Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [Ru/Multi] (1.21/dlc) Repack Wanterlude [Definitive Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средиземье: Тени войны продолжает историю следопыта Талиона и призрака Келебримбора. Ныне им предстоит проникнуть в тыл вражеской армии и обратить силы Мордора против самого Темного Властелина. События игры продолжают сюжет первой главы серии и относятся к периоду времени между «Хоббитом» и «Властелином колец».Тип издания: RepackРазработчик: Monolith ProductionsЖанр: Action, RPG, 3D, 3st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5041FC6ABC3A2B129958C9BB90747E70837F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744229   (21585) от 13.04.2025
-
-Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.1.3/dlc) Repack FitGirl [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Knock on the Coffin Lid - ролевая игра с элементами стратегии, где требуется помочь главному герою выполнить предназначение. Однако есть один нюанс - протагонист уже мертв. Для того, чтобы пройти путь, ему пришлось восстать из мертвых. Сюжет Knock on the Coffin Lid запутанный и предлагает пойти двумя различными путями: слепо следовать предназначению или попытаться (   Читать дальше...   )Тип издания: RepackРазработчик: RedBoonЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1ACEE511B41606223F8CBB499F8AF651423F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390587   (21581) от 13.04.2025
-
-Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасный заколдованный мир окутала черная тень прошлого: злой король Иксал вновь собрал войско, грядет война. Никто и представить не мог, что спасать мир будет настолько пестрая компания: светлячок, мечтающий стать звездой, пантера – эгоистка до кончика хвоста, упорный джентльмен, которому даже отсутствие тела не мешает идти к цели... Они выступили в поход, даже (   Читать дальше...   )Тип издания: LicenseРазработчик: Instant KingdomЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9909CA94281F11F9B01D5C4BA462D49A7262EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

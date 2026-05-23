@@ -1,3 +1,83 @@
+###  Публикация: 1353779   (990538) от 19.01.2020
+
+Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop Touch на Андроид – скачайте и установите программу, и вперед фантазировать, создавать и комбинировать изображения, применяя профессиональные эффекты. Не забудьте поделиться с друзьями и с семьей через Facebook и еще много чего интересного.Тип издания: Пиратка (Mod: поддерживает Android 10)Релиз состоялся: 04.01.2020Разработчик: AdobeПоддерживаемая ОС: Android 3.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F01516B35C300CC47B146638F7821D9F22396ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029248   (990367) от 19.01.2020
+
+Self Camera HD Pro 4.2.21 [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это приложение позволяет делать отличные снимки высокого качества удаленно с помощью свистков или хлопков, не касаясь телефона.
+Многие фильтры эффект доступны с предварительного просмотра и возможностью использования 4 фильтров сразу.
+Простой и быстрый способ для захвата Селфи с расстояния от 1 до 15 метров от устройства.Тип издания: ПираткаРелиз состоялся: 18.01.2020Разработчик: Ouadban YoussefПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86598EF771D779EFEFA5A8191291ECF43C3E9353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354020   (989684) от 20.01.2020
+
+Клавиатура SwiftKey v7.4.6.6 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Клавиатура SwiftKey - умная клавиатура на андроид от лучшего разработчика SwiftKey. Клавиатура составит ваш персональный алгоритм подстановки слов и словосочетаний, на основе первоначального анализа ваших sms сообщений, учетных записей почты и аккаунтов в социальных сетях, что значительно облегчает ввод текста.Тип издания: Оригинал (Разорвана связь с Google Play)Релиз состоялся: 19.01.2020Разработчик: SwiftKeyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DE29B1A41ACBEB930C8F450D9C1C34B41EFE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978384   (988693) от 21.01.2020
 
 Лекарства и их аналоги v1.9.4 Ad-Free Mod [Ru] - Мобильный справочник лекарств без интернета
@@ -6,7 +86,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +112,7 @@ Free Audiobooks v1.14.7 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +138,7 @@ GreenPower Premium 9.21 [Ru] - Экономная работа аккумуля�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +164,7 @@ TurboScan Paid 1.5.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +191,7 @@ Compass Pro 1.49 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +355,7 @@ Birthdays / Дни рождения v2016-01-15.34-paid Patched  [Ru/Multi] - В
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +381,7 @@ Canva Premium 2.47.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +459,7 @@ Adblock Plus 1.3.0.369 [Ru] - Блокировщик рекламы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +513,7 @@ Check Engine  v1.5.8.01 [Ru] - на русском языке
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +565,7 @@ WPS Connect 1.3.1 (Beta) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +591,7 @@ Assistant Premium 3.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +617,7 @@ IP Tools Premium v7.0.4 [Ru/Multi] - инструмент для анализа 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +643,7 @@ PRO PDF Reader 4.5.2 [Ru] - Читалка книг и документов фо
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,7 +670,7 @@ Swapper for ROOT 2.0.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -603,86 +683,6 @@ Swapper for ROOT 2.0.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C0D19BFD20572779BEB2F862EA09A19A8A2B040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090392   (945616) от 07.01.2017
-
-ElectroBuddy Pro 1.2 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945616.jpg" />
-</div>
-
-
-###  Подробнее
-
-ElectroBuddy Pro- AdFree версия Electrobuddy приложение, которое получило 100 тысяч загрузок в этой категории.
-Большая коллекция наиболее широко используемых инструментов электроники под одной крышей для всех студентов электроники, энтузиастов и профессионалов отрасли. Большая часть этого приложения является состоит из бесплатной версии electrobuddy.
-Цель этого приложения (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 8 февраля 2016 г.Разработчик: www.electrobuddyapp.comПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B09A2B45BB50A30333E288836B6F4D68CFE3CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090865   (945581) от 07.01.2017
-
-AntiVirus Android Premium 2.5.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Life-License Full версия Aнтивирус Aндроид AndroHelm Mobile Internet Security Vip Premium с расширенными функциями и возможностями для безукоризненной работы Вашего смартфона или планшета и Web безопасности в любых ситуациях, с пожизненной лицензией. При установке и начале работы быстро выявляет проблемные места для их лечения и при отклонениях в работе системы моментально (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 07.01.17Разработчик: AndroHelm SecurityПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4062277E34A29DAC0CA946CB3E650304E577E1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091116   (944268) от 08.01.2017
-
-Recorder 4 in 1 PRO 1.7.5 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recorder 4 in 1 PRO - Запись входящие звонков, исходящих звонков,запись видео, секретный диктофон, рекордер экрана (для последней функции требуется версия Android 5.0 и выше). Все ещеищите рекордер, который имеет множество функций? Нет необходимости искать дальше, представляем вашему вниманию новое приложение "Recorder 4 in 1".Запись входящие звонков, исходящих (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20 декабря 2016 г.Разработчик: Manqaro.Поддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75D60AB5D49B46B130C90E0148C2F94D202BF1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

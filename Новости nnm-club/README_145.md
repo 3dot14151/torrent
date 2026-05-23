@@ -1,3 +1,187 @@
+###  Публикация: 1036548   (564553) от 20.08.2016
+
+Репортерша / Whiskey Tango Foxtrot (2016) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Осознав, что она завязла в повседневной рутине, репортер Ким Бейкер решает встряхнуться и сменить кабинетные будни в Нью-Йорке на опасную работу в Афганистане. Вдали от дома и полностью за пределами собственной зоны комфорта, шокированная местными обычаями Ким заводит дружбу с рискованной репортершей Таней Вандерпоел, суровым Полковником и обаятельным фотожурналистом, (   Читать дальше...   )Производство: США, Broadway Video Little Stranger, Paramount PicturesЖанр: Драма, Комедия, Военный, БиографияРежиссер: Гленн Фикарра, Джон РекуаАктеры: Тина Фей, Марго Робби, Мартин Фриман, Альфред Молина, Кристофер Эбботт, Билли Боб Торнтон, Николас Браун, Стивен Пикок, Шейла Ванд, Эван ЙоникитПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC68256D5BA6FF90DD7462826ADD05CED8AC02E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044483   (564552) от 20.08.2016
+
+Иллюзия обмана 2 / Now You See Me 2 (2016) BDRip [h.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Четыре всадника», команда лучших иллюзионистов мира, снова в сборе! Их «магия» стала еще совершеннее, а враги — опаснее. На сей раз им предстоит спасти свою репутацию и вывести на чистую воду жестокого техномагната…Производство: США, Китай, Великобритания, Канада, Lionsgate, Summit EntertainmentЖанр: Боевик, Триллер, Комедия, Криминал, Детектив, ПриключенияРежиссер: Джон М. ЧуАктеры: Дэниэл Рэдклифф, Лиззи Каплан, Джесси Айзенберг, Марк Руффало, Дэйв Франк, Вуди Харрельсон, Майкл Кейн, Санаа Лэтэn, Генри Ллойд-Хьюз, Джей ЧоуПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 02:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE16527BF2425A2D38076F1E383872C92474D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922729   (564253) от 31.07.2015
+
+Создана более быстрая и надежная альтернатива анонимной сети Tor
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики придумали более быструю и надежную альтернативу сети Tor, способную обеспечить скорость передачи зашифрованного трафика 93 Гбит/с на каждом узле.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923251   (564152) от 31.07.2015
+
+Убрать из друзей / Unfriended (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обычный вечер после школы. К скайпу влюбленных Блэр и Митча подключаются друзья — Адам, Джес, Кен и Вэл… и кто-то седьмой с ником Billy227. Все уверены, что это компьютерный глюк, пока неизвестный не начинает им писать. Билли хочет знать, кто выложил в Сеть скандальное видео с их одноклассницей Лорой Барнс, из-за которого девушка покончила с собой. И он готов выяснить (   Читать дальше...   )Производство: США, Россия | Bazelevs Production, Blumhouse ProductionsЖанр: Ужасы, ТриллерРежиссер: Леван ГабриадзеАктеры: Шелли Хенниг, Моусес Сторм, Рени Олстэд, Уилл Пельтц, Джейкоб Высоцки, Кортни, Хэлверсон, Хезер Соссамэн, Мэттью Борер, Мики Ривер, Кэл БарнсПеревод: ДублированныйПродолжительность: 01:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03817B69440F48F94CD4E741C63DC9EF1F15322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923258   (564149) от 31.07.2015
+
+KMSAuto Net 2015 1.3.6 Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+KMSAuto Net — автоматический KMS-активатор для операционных систем Windows VL-редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, а также Office 2010, 2013, 2016. Дополнительно программа активирует: Windows 8.1 Single Language; Windows 8.1 Core; Windows 8.1 Core N; Windows 8.1 Pro WMC; Windows Embedded 8.1 Industry Pro; Windows Server 2012 R2 Standard; (   Читать дальше...   )Язык интерфейса: Русский / Украинский / Английский / Французский / Испанский / Вьетнамский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BF0175B83FF0E0F1DC8BC924B4EFC6FB563307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304232   (563263) от 26.05.2019
+
+В Австралии запускают «подводное такси» scUber, с помощью которого можно исследовать Большой барьерный риф на субмарине
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Компания Uber запустила в Австралии необычное такси scUber, которое позволит всем желающим исследовать подводную жизнь Большого барьерного рифа.Заказать подводную прогулку можно непосредственно в приложении Uber.
+Сначала за заказчиком приедет автомобиль, который привезет его к побережью. Затем, в зависимости от локации, он будет доставлен к Большому барьерному рифу (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152670   (562752) от 24.07.2017
+
+В Android появился собственный антивирус
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Новый антивирус получил название Google Play Protect и в скором времени он будет доступен всем пользователям Android. Сначала новинку внедрят в Google Play, где она будет помогать корпорации следить за порядком, затем планируется, что Play Защита сможет ежедневно сканировать около 50 миллиардов приложений на наличие возможных угроз безопасности.После боевого крещения, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151794   (562733) от 24.07.2017
 
 Роман Якобчук | Курс по React.js (2017) PCRec
@@ -6,7 +190,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +217,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack YelloSOFT [Digital
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +269,7 @@ Dark Orbit: Reloaded 3D (2015) [Ru/En] (10.0.4463) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +295,7 @@ Android Weather & Clock Widget v3.9.0.2 Ad-Free и v5.9.0.2 Free + Mod [Ru/Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +400,7 @@ Adobe After Effects CC 2015 (v13.5.1) RUS/ENG Update 1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +452,7 @@ Huawei 3G Modem Software 16.3.45.9.143 (9.05.2012) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +483,7 @@ Amlab.me | Свадебный университет (2017) [H.264/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +563,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.9 Full | Lite by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +589,7 @@ CyberLink PowerDVD Ultra 16.0.2011.60 RePack by qazwsxe [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +615,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4405.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +641,7 @@ Final Fantasy XIII (2009) [PS3] [USA] 2.80 [Unofficial] [En/Ru] R.G. RED
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +667,7 @@ DriverPack Solution 15.8 + Драйвер-Паки 15.08.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,190 +678,6 @@ DriverPack Solution - это самая популярная программа 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96A2B30DCB4EB8E437041CF5657AEA48AB0872E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923374   (560297) от 02.08.2015
-
-Растровый клипарт - Россия. Физическая карта [JPG]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физическая карта России с отрисованным рельефом. Авторская раздача.Формат: JPGРазрешение файлов: 12340x7030
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511FD4AB2A7899E8846BAA438DD7AEF506AB424B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235226   (560015) от 11.07.2018
-
-Victoria 4.56b SSD Portable [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная программа "Victoria" предназначена для тестирования, измерения характеристик, сервисного обслуживания накопителей HDD, SSD, Flash с интерфейсами IDE/SATA, USB, SCSI, и др., в рамках стандарта по управлениюЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D627235B3219F0F5CBE80FD2FBF7F26F2F5D1BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153066   (559410) от 26.07.2017
-
-Онлайн-кинотеатры пожаловались на "преимущества" торрентов из-за прокатных удостоверений для видеосервисов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_559410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-кинотеатры пожаловались на новый закон об обязательном приобретении прокатных удостоверений
-Норма, обязывающая кинотеатры, в том числе и работающие в сети, приобретать прокатные удостоверения, никак не коснется торрент-трекеров, а вот легальным онлайн-кинотеатрам она может нанести непоправимый ущерб. Об этом говорится в письме, которое представители кинопрокатной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285127   (559239) от 28.05.2019
-
-Роковой патруль / Doom Patrol (2019) WEB-DLRip [H.264] (сезон 1, серии 1-15 из 15) Profix Media
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о супергероях, обретших сверхспособности в результате изувечивших их роковых случайностей. В состав необычной команды под руководством сумасшедшего учёного Найлза Колдера (также известного как Шеф) входят Роботмен, Негативный Человек, Безумная Джейн и Эластичная Женщина. Сломленные и искалеченные, эти люди находят применение своим способностям, защищая (   Читать дальше...   )Производство: США / DC ComicsЖанр: фантастика, боевик, драма, приключенияРежиссер: Дермотт Даунс, Крис Мэнли, Салли Ричардсон-УитфилдАктеры: Дайан Герерро, Эйприл Боулби, Алан Тьюдик, Мэтт Бомер, Брендан Фрейзер, Тимоти Далтон и др.Перевод: Многоголосый закадровый, профессиональный (Студия "Profix Media")Субтитры: русские, английские
-Внимание! В русских субтитрах присутствует ненормативная лексикаПродолжительность: ~00:58:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7A4D6B6118AA2413FCFBAAEF0DC6BF76A3EADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153239   (559082) от 26.07.2017
-
-Меч короля Артура / King Arthur: Legend of the Sword (2017) BDRip [H.264/1080p] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой Артур околачивается на окраинах Лондиниума со своей бандой. Своим происхождением он совершенно не дорожит и не интересуется. Так он живёт до момента, когда судьба сводит его с волшебным мечом Экскалибуром. После этого Артур кардинально меняется — влюбляется, присоединяется к движению сопротивления и объединяет вокруг себя людей, чтобы свергнуть тирана Вортигерна, (   Читать дальше...   )Производство: США, Safehouse Pictures, Village Roadshow Pictures, Warner Bros. Pictures, Weed Road Pictures, Wigram ProductionsЖанр: Фэнтези, Боевик, Драма, ПриключенияРежиссер: Гай РичиАктеры: Чарли Ханнэм, Астрид Берже-Фрисби, Джуд Лоу, Джимон Хонсу, Эрик Бана, Эйдан Гиллен, Фредди Фокс, Крэйг МакГинли, Том Ву, Кингсли Бен-АдирПеревод: Дублированный (iTunes)Субтитры: Русские (Full, Forced), Украинские (Forced), Английские (Full, SDH)Продолжительность: 02:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF239F32B7DD0D2204B04E7F223B7FB680D30B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045415   (558883) от 23.08.2016
-
-Inside (2016) [Ru/Multi] (5.0.4.29787) License CONSPIR4CY
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inside - это новая приключенческая хоррор игра от создателей, ставшего уже культовой игры LIMBO, Немецкой студии Playdead. Игроки берут на себя роль мальчика, который остался один в монохромном пугающем мире. Так же, как и в предыдущей игре студии, нужно разгадывать загадки и преодолевать разнообразные ловушки в безжалостном мире. Мрачные затопленные помещения научного (   Читать дальше...   )Тип издания: LicenseРазработчик: PlaydeadЖанр: Arcade (Platform), 3D, IndieЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B423F6351117B3B664C277FD277B6D363A415A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045349   (558879) от 23.08.2016
-
-Pinnacle Studio Ultimate 20.0.1.10084 (x86) RePack by PooShock [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоредактор Pinnacle Studio 20 Ultimate очень популярен среди пользователей, которые занимаются созданием и редактированием видеоконтента. Представляем обновленную версию этой программы от мирового лидера в сфере профессиональных видео- и аудиотехнологий - компании Corel. Скорость просчета в новой версии возросла до 10-ти раз благодаря обновленному «движку» и поддержке (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2746A1A0BE281A82F9C3799202A9652BD5FD7A42
 ```
 
 https://mybot314.ru/tekegram_catalog/

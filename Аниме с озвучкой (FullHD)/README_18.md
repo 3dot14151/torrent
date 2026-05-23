@@ -1,3 +1,84 @@
+###  Публикация: 562502   (405125) от 20.10.2012
+
+Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие сюжета разворачивается в 1963 году, когда у главной героини, школьницы Уми Комацудзаки, погибает отец. История повествует о буднях Коматсудзаки после этого печального события, ее отношениях с членом школьной газеты, президентом студенческого совета и другими одноклассникамиЖанр: Романтика, школа, сёдзёРежиссер: Горо МиядзакиВ ролях: Масами Нагасава, Дзюнъити Окада, Кэйко Такэсита, Юрико Исида, Дзюн Фубуки, Такаси Найто, Сюнсукэ Кадзама, Нао Омори, Тэруюки КагаваПеревод: Многоголосый закадровыйСубтитры: Английские, Русские (Advantage), ФранцузскиеПродолжительность: 01:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC9C451B65D200982F618E617EB623787DD980B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574496   (385186) от 05.09.2022
+
+Для тебя, Бессмертный [ТВ-1] | Fumetsu no Anata e | To Your Eternity [2021, TV, 20 из 20] BDRip 1080p HEVC 10bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Неизведанное существо проникло в наш мир. Оно не знает почему оно попало сюда и что ему делать? Всё что оно могло - это брести по свету и наблюдать. Оказалось, что пришелец может вселяться во всё, в чем нет жизни. Сначала он стал камнем, затем мхом. Странствуя по окрестностям, существо наткнулось на мертвого волка, вселилось в него и обрело сознание. Хозяином волка (   Читать дальше...   )Производство: Япония / Студия Brains BaseЖанр: Драма, приключения, сверхъестественное, сёнен, фэнтезиРежиссер: Мурата МасахикоЯзык озвучки: Русский многоголосый закадровый, Японский
+- (внешним файлом) Amikiri, Anzen, Derenn, Itashi (AniLibria.TV)Субтитры: Русские (софтсаб)
+- (внешним файлом) (полные/надписи) (AniLibria.TV): Rossik666Продолжительность: 20 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6557BD337C4B10322B8C46973A9746B1CC166C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295522   (382496) от 21.09.2019
+
+Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тору Хонда — простая школьница с непростой жизнью. Она осиротела, лишилась крыши над головой, вынуждена жить в палатке и самостоятельно зарабатывать себе на жизнь. Но Тору не унывает, встречая невзгоды с улыбкой. И вот однажды судьба преподносит ей сюрприз — девочка знакомится с семьёй Сома, над которой висит ужасное проклятье…
+Ремейк аниме Корзинка фруктов (2001г.)Производство: Япония, cтудия TMS / トムス・エンタテインメントЖанр: Реверс-гарем, РомантикаРежиссер: Ибата ЁсихидэЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 25 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462AD2950CAED31EAAD153F50BCCC785EAF03BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574891   (380958) от 07.09.2022
 
 Hyakuren no Haou to Seiyaku no Valkyria | The Master of Ragnarok & Blesser of Einherjar | Повелитель Рагнарёка и покровитель эйнхерий [2018, TV, 12 из 12] BDRip 1080p raw+rus
@@ -6,7 +87,7 @@ Hyakuren no Haou to Seiyaku no Valkyria | The Master of Ragnarok & Blesser of Ei
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / За �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +165,7 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? / Hensuki / Влюбишьс�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +217,7 @@ Crusher Joe: Hyouketsu Kangoku no Wana | Крушила Джо OVA-1 [1989, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +244,7 @@ Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +271,7 @@ Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +298,7 @@ Hanamonogatari / История цветов [2014, Special, 5 из 5] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +326,7 @@ Cop Craft | Мастерство копа | Детективные будни: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +352,7 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли ты люб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +404,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 из 12] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +640,7 @@ Cyberpunk: Edgerunners (2022) | Киберпанк: Бегущие по краю
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +667,7 @@ RWBY Ледяное королевство | RWBY: Hyousetsu Teikoku | RWBY: Ice
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,86 +678,6 @@ RWBY Ледяное королевство | RWBY: Hyousetsu Teikoku | RWBY: Ice
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B05D31BCE7B21A86F6B5A55EECEBF139D3D11E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499517   (335946) от 27.09.2022
-
-Jujutsu Kaisen | Магическая битва [2020, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юдзи Итадори — сильный юноша, который ведёт заурядную жизнь старшеклассника. Однажды, чтобы спасти друзей от нападения проклятий, он съедает палец Двуликого призрака, который становится частью его души. С этого момента он делит с ним своё тело. Под присмотром Сатору Годзё, одного из сильнейших магов, Итадори поступает в магический техникум, где учат сражаться с проклятиями. (   Читать дальше...   )Производство: Студия MAPPAЖанр: приключения, фэнтезиРежиссер: Пак Сон ХуЯзык озвучки: Японский и русскийСубтитры: ASS, Встроенные, Полные+надписи |Продолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44784ABF33BC6FB0A64F9C94ACB9CCCC1088A188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258597   (335874) от 30.10.2018
-
-Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower Blooms | Укрась прощальное утро цветами обещания [2018, Movie] BDRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавица Макия — из рода бессмертных. На протяжении веков многие армии пытались захватить её народ, чтобы завладеть секретом вечной жизни. И вот теперь, когда город разрушен, девушка прячется в лесу. Здесь она встречает потерявшего родителей маленького мальчика Эриала и начинает о нём заботиться.
-
-Проходят годы, мальчик превращается в прекрасного юношу, и у беглецов (   Читать дальше...   )Производство: ЯпонияЖанр: приключения, фэнтези, драма, мелодрама, про любовьРежиссер: Мари ОкадаЯзык озвучки: Русский (Reanimedia)Субтитры: ЯпонскиеПродолжительность: 01:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964CB88E3A64A6D2FDEC0C0E45176E27B4369DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420057   (333651) от 31.10.2020
-
-Покемон 22: Мьюту наносит ответный удар – Эволюция | Pokemon: Mewtwo Strikes Back - Evolution [2019, Movie] BDRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — покемон Мьюту, созданный в секретной лаборатории для уничтожения человечества. Узнав об этой миссии, он восстаёт против своих создателей.Производство: Япония / Oriental Light and MagicЖанр: аниме, мультфильм, приключения, фэнтезиРежиссер: Мото Сакакибара, Тэцуо Ядзима, Кунихико ЮямаПеревод: Дублированный (SDI Media по заказу Netflix)Субтитры: отсутствуютПродолжительность: 01:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F10880BD370415B9BE3A5602678C40DB7F1A5E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

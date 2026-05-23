@@ -1,3 +1,109 @@
+###  Публикация: 1771588   (31669) от 07.01.2025
+
+Ishura | Исура [ТВ-1] [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Альтернативный мир. На человечество совершает нападение Король демонов, что быстро берёт под контроль огромные территории. Когда это происходит, то люди решают сплотиться и не дать себя полностью поработить. Так появляются личности с уникальными способностями, что совместными усилиями побеждают врага. Король Демонов не просто отброшен, но и убит, а это позволяет (   Читать дальше...   )Производство: Passione, SanzigenЖанр: приключения, фэнтезиРежиссер: Такахаси ТакэоПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9EA45A2C034D3A90864AF096FD1EC44D5923EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775417   (29711) от 26.01.2025
+
+Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + SP] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+В одном из незримых миров правят суккубы, властительницы которых, чтобы сохранять могущество и долголетие, должны регулярно питаться жизненной силой мужчин других рас. Примерно как вампиры, только э-э… биологическая жидкость требуется другая. Юная принцесса Астаротта (для друзей – Лотта) вступает в возраст, когда пора заводить свой гарем, тут и начинаются проблемы. (   Читать дальше...   )Производство: Студия Diomedea / ディオメディアЖанр: комедия, этти, мистикаРежиссер: Оидзаки ФумитосиПеревод: WitwoodЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + SP по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FADE82F400A763D738222B839D950C1E08ACCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769149   (29225) от 31.01.2025
+
+Shiguan Daliren: Yingdu Pian | Time Agent: Bridon Arc | Агент времени: Арка Инду [2024, Web, 6 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти погибшего Чэн Сяоши, Лу Гуан возвращается к началу, повторяя путь судьбы. Однако в «Фотостудии времени» появляется фотография, содержащая подсказки о родителях Чэн Сяоши. Чтобы раскрыть правду, Лу Гуан нервно отправляется в Брайдон с Чэн Сяоши. Дружелюбная топ-модель Ся Фэй, эксцентричный лидер Чайнатауна Вейн и таинственно появляющийся Лю Сяо... Столкнувшись (   Читать дальше...   )Производство: КитайЖанр: приключения, путешествие во времениРежиссер: Ли ХаолинПеревод: официальный (Crunchyroll)Язык озвучки: КитайскийСубтитры: Русские (мультисаб)Продолжительность: 6 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0DE515F8FED1DE8A3270645B2984C8FC13C30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755998   (28103) от 10.02.2025
+
+Nanatsu no Taizai: Mokushiroku no Yonkishi 2 | The Seven Deadly Sins: Four Knights of the Apocalypse 2 | Семь смертных грехов: Четыре всадника Апокалипсиса 2 [2024, TV, 12 эп. ] WEBRip 1080 raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+6ой сезон Семи смертных грехов с новыми героями
+
+Продолжение историиПроизводство: студия Telecom Animation Film / テレコム・アニメーションフィルムЖанр: приключения, фэнтeзи, комедияРежиссер: Кодайра МакиПеревод: AnilibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CCA260E4D62E4CB45FDBB7D951DB6CBB77BDD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779942   (27530) от 15.02.2025
 
 Rescue Me! | Спаси меня! [2013, OVA] BDRip 1080p 10-bit raw
@@ -6,7 +112,7 @@ Rescue Me! | Спаси меня! [2013, OVA] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Dokyuu Hentai HxEros | Super HxEros | Формирование извращён�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +190,7 @@ Dragon Ball Daima | Драгонболл Дайма [2024, TV, 20 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +219,7 @@ Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete / Перер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +245,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +271,7 @@ Izure Saikyou no Renkinjutsushi? / Possibly the Greatest Alchemist of All Time /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +297,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Kyoto Douran | Бродяга Кэнс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +325,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta. / I Got Married to the 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +351,7 @@ Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsura Sugiru / Девушка, в �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +377,7 @@ Zenshuu. | Полное исследование [2025, TV, 12 эп.] WebRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +403,7 @@ Kisaki Kyouiku kara Nigetai Watashi | I Want to Escape from Princess Lessons | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +429,7 @@ Sakamoto Days | Дни Сакамото [2025, TV, 11 из 11 эп.] WEBRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -349,7 +455,7 @@ Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai | Medaka Kuroiwa is Impervious 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +481,7 @@ Ao no Exorcist: Yosuga Hen | Blue Exorcist: The Blue Night Saga | Синий э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +508,7 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +534,7 @@ Unnamed Memory Act.2 | Безымянная память [ТВ-2] [2025, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -456,7 +562,7 @@ Amagami-san Chi no Enmusubi / Tying the Knot with an Amagami Sister / Брачн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +588,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 3 | Re: Жизнь в альтернати
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +616,7 @@ Grisaia: Phantom Trigger the Animation / Грисайя: Призрачный с
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +642,7 @@ Magic Maker: Isekai Mahou no Tsukurikata / Magic Maker: How to Make Magic in Ano
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -562,7 +668,7 @@ Honey Lemon Soda | Сладкий лимонад [2025, TV, 12] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -573,110 +679,6 @@ Honey Lemon Soda | Сладкий лимонад [2025, TV, 12] WEB-DL 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:673E96E14576734743206CD63EDCDE941FF3ECE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754880   (23364) от 27.03.2025
-
-Ao no Hako | Blue Box | Голубая шкатулка [2024, TV, 25 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taйки Инoмaтa cocтoит в бaдминтoннoм клyбe cпopтивнoй шкoлы Эймeй. Oн влюблён в бacкeтбoлиcткy Чинaцy Kaнo, кoтopaя нa гoд cтapшe. Kaждый дeнь дo нaчaлa ypoкoв oни вмecтe тpeниpyютcя в oбщeм cпopтивнoм зaлe. B oдин вeceнний дeнь в иx oтнoшeнияx пpoиcxoдит нeoжидaнный пoвopoт... Taк нaчинaeтcя иcтopия o любви, cпopтe и мoлoдocти!Производство: Студия Telecom Animation Film / テレコム・アニメーションフィルムЖанр: комедия, романтика, спортРежиссер: Яно ЮйтироПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3E7CACDC8BB6926D0E32C0F8CB1D9F1486E675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775429   (23361) от 27.03.2025
-
-Sousei no Aquarion: Myth of Emotions | Aquarion: Myth of Emotions | Акварион [ТВ-4] [2025, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эносима — небольшой остров, плавающий в море Сёнан. На его прекрасном и спокойном пляже находится частная академия Эносима. Школа собирает талантливых детей со всей страны и предоставляет им одаренное образование с использованием новейшего оборудования. Сакко, Римия и Тоши, которые были отобраны в качестве учеников в специальный усиленный класс «Элементы», получают (   Читать дальше...   )Производство: Студия Satelight / サテライトЖанр: приключения, фантастика, мехаРежиссер: Итосо КэндзиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957AB8919719CA8C861E82B99647D1A3D4371AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772266   (23345) от 27.03.2025
-
-Douse, Koishite Shimaunda. | Anyway, I'm Falling in Love with You | В любом случае я влюблюсь в тебя [2025, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23345.jpg" />
-</div>
-
-
-###  Подробнее
-
-В качестве главной героини — начинающая мангака, которую окружает гарем из друзей детства, но она сохнет по крутому старшаку.Производство: Студия Typhoon Graphics / 颱風グラフィックスЖанр: романтикаРежиссер: Ямамото ДзюнъитиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E381B47D28E10596995A85798DAE92D2BB98194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787881   (23317) от 27.03.2025
-
-Meng Qi Shi Shen | Adorable Food Goddess | Очаровательная богиня еды [2018, TV, 12 эп.] WEBRip 720p Raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Е Цзяяо, редактор журнала современная кухня, перемещается в период династии Хуай Сун, став Е Цзинсюань - старшей дочерью губернатора Янчжоу и становится наложницей Ся Чхуньюя, третьего человека в деревне Черного Ветра. Ся Чхуньюй на самом деле - шпион, он подозревает, что его новую наложницу подослал к нему глава деревни, чтобы за ним следить. Однако, острота ума (   Читать дальше...   )Производство: Wawayu Animation (Китай)Жанр: комедия, драма, Гурман, Романтика, ИсторическийРежиссер: Цзя ФэйПеревод: официальный  (Crunchyroll)Язык озвучки: КитайскийСубтитры: Русские (мультисаб)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A44E417F12E8CCA98D94935D875C08AC1620F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

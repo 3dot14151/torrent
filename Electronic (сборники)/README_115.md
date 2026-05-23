@@ -1,3 +1,148 @@
+###  Публикация: 1042434   (578518) от 13.08.2016
+
+VA - Electropower 2016 - Best of Electro & House (2016) [MP3|320 Kbps] <Funky, Progressive, Electro, Club, Fidget House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Prash - Bring That Bass (Extended Mix) 04:47
+02. Malibu Breeze - Noise Makers (Melbourne Breeze Mix) 05:05
+03. Tonski & Watts - Biscuits 04:13
+04. Afrochuck - Electro House Anthem (Radio Cut) 03:29(   Читать дальше...   )Жанр: Funky, Progressive, Electro, Club, Fidget HouseПродолжительность: 03:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBCDC3A63651505280D9FD6897A4A9B66CBD99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042373   (578517) от 13.08.2016
+
+VA - Lounge Music Players (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tabu – Song for Malala
+ 02. Katia B – Parece Mentira
+ 03. GYSNOIZE – Million Miles Away
+ 04. EDO – Erevan(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F1EA50D276CF0D4136BD71F11FE84A8DC2E0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042534   (578514) от 13.08.2016
+
+VA - Motel Atlantique: Gold Selection (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Real - Is to the Work - Deep Guitar Mix
+02. Rick Warrol - Wide Panoramas - Deep Lady Mix
+03. Matt Maxim - Spontaneous Lightness - Early Morning Deep Mix
+04. Nic Cherokee - Lights Ahead - House Room's 69 Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA63380621FB0B47F20BB000E2EBA2A9A19BB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042514   (578510) от 13.08.2016
+
+VA - Summer Chillout & Lounge Session (2016) [MP3|320 Kbps] <Balearic, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Chillo - Chillo Three (Lounge Mix) 04:21
+02. The Vault - Banyuwang 08:27
+03. Pusteblume - Cold As Ice (Wonderful Lounge Mix) 07:20
+04. Sounds Of Summer - Praise The Sun (Vocal Beachhouse Mix) 05:53(   Читать дальше...   )Жанр: Balearic, Ambient, DowntempoПродолжительность: 04:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C566DD03511944BE94124C56DDFE4B8DC5DE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042484   (578472) от 13.08.2016
+
+VA - EDM Bash Vol.1 (2016) [MP3|320 Kbps] <House, Electro House, Melbourne Bounce, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz  -  Heatwave (feat. Akon) (Remady Remix)  3:47
+02. Laidback Luke & GTA  -  The Chase (feat. Aruna) (Evangelos & Subshock Remix)  3:26
+03. Axwell  -  Barricade (Radio Edit)  4:53
+04. Fedde Le Grand  -  Rhythm of the Night (Club Mix)  4:17(   Читать дальше...   )Жанр: House, Electro House, Melbourne Bounce, BigroomПродолжительность: 02:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B48AEF55E526683A6CEE9ED5C1157031B1921E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042563   (578461) от 13.08.2016
 
 VA - Chillout Lounge Lovers (2016) [MP3|320 Kbps] <Balearic, Ambient, Downtempo, Trip Hop>
@@ -6,7 +151,7 @@ VA - Chillout Lounge Lovers (2016) [MP3|320 Kbps] <Balearic, Ambient, Downtempo,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Deep House - Gold Collection (2016) [MP3|320 Kbps] <House, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Chillout August 2016 Top 10 August Relaxing Chill Out and Lounge Music (201
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +238,7 @@ DJ AFRO - MundialAfroStars (2018) [MP3|320 Kbps] <Tech House, Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Record Super Chart 543 (2018) [MP3|320 Kbps] <House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Empire Records – Tropical Trance (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Empire Records - Retro Trance (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Summer Session 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +380,7 @@ VA - Acoustic Chill Playlist 4 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -264,7 +409,7 @@ VA - Ibiza Romantic Chillout & Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +438,7 @@ VA - Top Hits Progressive (2015) [MP3|320 кб/с]<Bigroom, Progressive, Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +467,7 @@ VA - Жаркое лето новинок (2011) [MP3|256 kbps]<Pop, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Club TOP Music for Auto compiled bu DJ Najim-4 (2011) [MP3|192-320 kbps]<El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +534,7 @@ VA - Beatport Trance Pack (12.08.) (2016) [MP3|320 Kbps] <Trance, Progressive, M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +563,7 @@ VA - German Top 50 Official Dance Charts (22.08.) (2016) [MP3|320 Kbps] <House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +592,7 @@ VA - Get Ready Beats Vol.1: Finest Deep House Tunes (2016) [MP3|320 Kbps] <Deep 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +621,7 @@ VA - Trance Traveling 79 (mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +650,7 @@ VA - Ultimate Hits Summer Revers (2016) [MP3|320 Kbps] <Club, Drum & Bass, House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +679,7 @@ VA - Awaken Ibiza - Lights In Remixes (2016) [MP3|235~320 Kbps] <House, Electro 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +708,7 @@ VA - Record Super Chart 587 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +737,7 @@ VA - Empire Records - Progressive Trance (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,157 +751,6 @@ VA - Empire Records - Progressive Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A6A75BCCD1FD670B70AABB3F4CA9943790C3014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151093   (576023) от 17.07.2017
-
-VA - Beatport Top 100 Trance June (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576023.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren, Josh Cumbee - Sunny Days feat. Josh Cumbee (Extended Club Mix) 06:31
-002. Thomas Datt - The Love Frequency (Extended Mix) 09:13
-003. Gareth Emery ft. Christina Novelli - Concrete Angel (ReOrder Extended Remix) 05:59
-004. Chris Schweizer - Atom (Extended Mix) 05:55(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 11:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D1000FAF656CCA68EDB7D447F8C480F2A43985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233891   (575627) от 02.07.2018
-
-VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575627.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alakin Kirill - Save to memory (Extended mix)
-002. Alakin Kirill - Tarzan (Original mix)
-003. All Saints - Love Lasts Forever (Pink Panda Extended Vocal Mix)
-004. Andrey Pitkin & Alexander Gecko - Flying Emotion  (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8379B70F44BCF3434E228FF66BD2638E51C0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554450   (575565) от 31.05.2022
-
-VA - 60 Minutes. Old School Dance Music vol.8 (mixed by Dj V) (2022) [MP3|320 Kbps] <Club House, Dancecore, Eurotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sasha Dith - Russian Girls (Club Mix)
-02-Commander Tom - Attention (Original Club Mix)
-03-Disco Construction - Can't Get Enough (Steve Angello's Re-Mode mix)
-04-DJ Ivan Scratchin' - Госнаркоконтроль (Whiskey & Cola Extended Mix)(   Читать дальше...   )Жанр: Club House, Dancecore, EurotranceПродолжительность: 59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D868FFFF9459F4FE10B274543F550284B48019DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921570   (575478) от 25.07.2015
-
-VA - Extra Trance (episode 5) (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airscape, Peetu S - Pianomatic (Airscape Festival Mix) (05:57)
-02. Ben Gold Feat. Eric Lumiere - Hide Your Heart (Chris Schweizer Remix) (05:03)
-03. BluSkay - Feels Like Home (Original Mix) (06:44)
-04. Ciaran McAuley and Clare Stagg - Firebird (Original Mix) (07:32)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78139D0E8068EC67C58EF4AD3CEB86580EFDC8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527911   (575127) от 27.07.2012
-
-VA - In Da Club Vol.64 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575127.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Markus Schulz presents Dakota - Sinners
-002. M.I.K.E. - Turn Out The Lights (Hiver & Hammer Remix)
-003. Mark Otten - So Serene (Original Mix)
-004. Kyau & Albert - A Night Like This (Original Mix)
-005. John O'Callaghan feat. Audrey Gallagher - Big Sky (Original Mix)
-006. Kenneth Thomas feat. Roberta Harrison & Steven Taetz - Drive (Ryan Mendoza Remix)
-007. Marcos - Cosmic String (Giuseppe Ottaviani Remix)
-008. Makrostorung - Die Grune Katze Strikes Back (Original Mix)
-009. MIKE - The Art Of Love (Protoculture remix)
-010. Liquid Vision - Pearlescent(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BDD157492F329FF11DAB39F022EDD692D3F1DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

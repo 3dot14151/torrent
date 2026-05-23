@@ -1,107 +1,3 @@
-###  Публикация: 874365   (864976) от 02.03.2015
-
-Валентин Лебедев | Заповедник Сказок 2005-2010 (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международное творческое сообщество литераторов-сказочников и художников-иллюстраторов "Заповедник Сказок" объявляет об успешном завершении своего народного издательского проекта и о начале подписки на сборник избранных работ, подготовленный к печати в связи с юбилеем нескучных литературных игр. В сборник вошли избранные тексты 38 авторов, проиллюстрированные (   Читать дальше...   )Жанр: Сказки для взрослых и детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DC1C2E6F2A6E6271762482E72A5E122C0A81C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874393   (864971) от 02.03.2015
-
-Валентин Лебедев | Заповедник сказок 2014 (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верить в хорошее с некоторых пор стало равнозначно вере в чудеса. Отсюда и потребность в сказках. У самих авторов — не меньше, чем у читателей. Создавая сказочные миры, авторы успевают прожить в них мгновения яркой жизни. Притом что хорошая сказка всегда частичка биографии самого сказочника, только окрашенная в волшебные цвета. Авторы выуживают сюжеты из того, что (   Читать дальше...   )Жанр: Сказки для взрослых и детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05889F150AE903B7471B15348DEB37B824EE7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874299   (864900) от 02.03.2015
-
-Валентин Лебедев | Заповедник сказок 2015 (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга-загляденье, книга-восхищение. Откроешь на минуту - зачитаешься на весь день. А если учесть что вышел этот том в год десятилетия творческих игр дружной кагорты неисправимых сказочников, то это ещё и книга-традиция.Жанр: Сказки для взрослых и детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28613C689BECE2A06ECB25156A87A07FA4389130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999499   (864720) от 22.03.2016
-
-ЗАО "РОСМЭН-ПРЕСС" | Игрушечные сказки (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в детской гаснет свет, лишь луна, потихоньку заглядывающая в окошко, может увидеть, как игрушки просыпаются после своего дневного сна. Они начинают разговаривать между собой, играть и рассказывать свои истории - самые удивительные и сказочные истории на свете! Ведь в игрушечном мире возможно все!Жанр: Детская литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A46B9DB49457F82EE1C56EC797A48BF691316F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507054   (864578) от 22.09.2021
 
 Вадим Коростылёв | Вовка в тридевятом царстве (2005) [PDF]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -638,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -664,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -675,6 +571,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E05F7D8424A89B594C2BF5B6E94E6DC4E4964CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768970   (858950) от 21.03.2014
+
+Наталия Новаш | Переводные картинки из книги Тир (1993) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пошла вторая неделя с тех пор, как в комнате поселились привидения.
+    Шкафовник жил в одежном шкафу. Летун — на самой верхней книжной полке под потолком.
+    Двое обитали на подоконнике: Прозрачник в обыкновенной трехлитровой банке, из которой поливают цветы, и Подгеранник — в цветочном горшке под большим кустом красной герани.
+    В холодильнике тоже кто-то жил…Жанр: СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4535E9DBF7E21326550784B41398DAEE1F4BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769075   (858829) от 21.03.2014
+
+Сельма Лагерлеф | Перстень Лёвеншёльдов (1989) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В саге о пяти поколениях семьи Левеншельдов параллельно развиваются три истории, охватывающие события с 1730 по 1860 год. Представителей этого рода связывает тема преступления и наказания, тайные предсказания и довлеющие над членами семьи проклятия. И противостоять этому может лишь любовь и добрая воля человека, способные победить лицемерие, корысть и зло.
+Действие (   Читать дальше...   )Жанр: Зарубежная литература для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238E4BC93ED61158D6EB74DEE9856F976E29DC83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768841   (858383) от 21.03.2014
+
+Леонардо да Винчи | Сказки, легенды, притчи (1998) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мудрый гений Леонардо убедительно изобразил в сказках все стороны жизни человека. Высшая мудрость в простоте, поэтому скорее короткие притчи, легенды, а не многотомные философские сочинения посеют зерна истины в сердце читателя. Причем эти зерна с благодарностью к великому сеятелю.
+
+Для широкого круга читателей всех возрастов и взглядов на жизнь.Жанр: ПритчиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CEA89132A7505FD398B47DCE164944EA2B445E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376717   (858132) от 18.04.2020
+
+Ганс Христиан Андерсен | Все сказки Ганса Христиана Андерсена (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Впервые в России – полное собрание сказок Ганса Христиана Андерсена в одной книге!
+В этой книге собраны все сказки всемирно известного датского писателя, переведенные на русский язык за последние 150 лет. Проиллюстрированы они лучшими произведениями из букинистических изданий XIX–XX веков и дополнены жизнеописанием и личной перепиской автора.
+«Жизнь – прекраснейшая (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EC760C0AC8C44116055CBD5233E4EEE0FD6671
 ```
 
 https://mybot314.ru/tekegram_catalog/

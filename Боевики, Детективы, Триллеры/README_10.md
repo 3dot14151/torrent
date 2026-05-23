@@ -1,3 +1,113 @@
+###  Публикация: 1350103   (1003644) от 04.01.2020
+
+Луиза Пенни | Убийственно тихая жизнь (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Блестящий дебют в жанре детективного романа! Премии «John Creasy New Bloody Dagger», «Arthur Ellis Award», «Anthony Award», «Dilys Award», «Barry Award»!
+
+Роман «Убийственно тихая жизнь» открывает серию расследований блистательного старшего инспектора Армана Гамаша – нового персонажа, созданного пером Луизы Пенни, ставшей единственным в мире пятикратным лауреатом (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективыФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F0B75C26A98762BBD731C85225EB0F36CF8432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350151   (1003482) от 05.01.2020
+
+С. Дж. Тюдор | Похищение Энни Торн (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Что еще хуже леденящего душу ужаса?
+В ту ночь, восемь лет назад, моя сестра Энни пропала. Ее искали, но тщетно. Тогда я приготовился к худшему. Однако через сорок восемь часов она вернулась. Энни не хотела говорить, что с ней произошло и где она была… После возвращения сестра стала другой. Это была уже не моя Энни. Я боялся ее и боялся признаться в этом… Чуть больше (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675090C2A3C9A5BDA468B6A2A2DF0FB7ACFDA537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839215   (1003371) от 27.11.2025
+
+Брэнди Скиллачи | Убийство в заброшенном поместье (2025) [FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Заброшенное английское поместье. Пропавший портрет. Убитый смотритель.
+
+Не на такое наследство она рассчитывала…
+(   Читать дальше...   )Жанр: ДетективИздательство: InspiriaФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DF5EE7AEFB8303064DAF5101544261F56EE869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350494   (1003286) от 06.01.2020
+
+Кэролайн Кепнес | Новая Ты (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Джо Голдберг, продавец из книжного магазина, – специалист в сокрытии тел. На его счету их уже четыре – сопутствующий ущерб в поисках идеальной любви. Собирается он разобраться и с пятым, наказав свою бывшую за предательство. Голдберг узнал, что девушка уехала в Лос-Анджелес, и последовал за ней. Но здесь его планы резко изменились. Потому что Джо… влюбился, как никогда (   Читать дальше...   )Жанр: Детективы, триллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFF74354424BB0F47BD819C6C1602FFB0241CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350495   (1003284) от 06.01.2020
 
 Ольга Вяземская | Воровка. Королевы бандитской Одессы (2019) [FB2]
@@ -6,7 +116,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -332,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -358,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -385,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -439,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -465,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -494,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -520,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -548,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -575,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,115 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8137A59D9532DED35DFD187DC4AB1DBE090C075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352789   (1000871) от 15.01.2020
-
-Джефф Мариотт | Нарко. Коготь ягуара (2019) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый официальный роман по мотивам культового сериала «Нарко» от Netflix. Удивительно подробное и правдивое изображение колумбийской наркоторговли изнутри.
-Хосе Агилар Гонсалес – sicario, наемный убийца медельинского картеля. Он готов обрушиться на любого врага Пабло Эскобара – и сделать с ним все, что прикажет Патрон. Он досконально изучил весь механизм работы (   Читать дальше...   )Жанр: Современные зарубежные детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D39713F2AAF1146301752DCA65AD053FB690BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352567   (1000841) от 15.01.2020
-
-Эндрю Мэйн | Охотник (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Тео Крей исследует природу на основе математических моделей. Его страсть и одновременно уникальное умение – находить закономерности и систему в хаотичном, на первый взгляд, поведении животных. Когда полиция обнаруживает труп девушки, которую по всем признакам убил медведь, сомнения возникают только у доктора Крея.
-Предварительное расследование показывает – (   Читать дальше...   )Жанр: Детектив, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7B6CD4FE77C956D398C46251AE6E1366224615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599999   (998457) от 09.01.2013
-
-Джеффри Линдсей | Декстер (6 книг) [2007-2011] [FB2]
-
->>След.
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декстер Морган не обычный серийный убийца. Он наслаждается своей дневной работой в качестве аналитика брызг крови для департамента полиции Майами... но живет он ради своего хобби - ночной охоты на других убийц. Поэтому Декстер не доволен, узнав, что кто-то тайно наблюдает за ним, а затем копирует его методы. Декстер не из тех, кто терпит неудовольствие... У него (   Читать дальше...   )Перевод: А. Г. СкибинаФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605475   (995511) от 20.01.2013
-
-Гарри Грей | Однажды в Америке [2011] [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарри Грей написал этот биографический роман в одиночной камере тюрьмы Синг-Синг. Будучи членом преступной банды, которой боялась вся страна, он реалистично отобразил жизнь Америки времен Великой депрессии: сухой закон, бутлегеры, проституция, ограбления и убийства. Герои книги - выходцы из бедных эмигрантских кварталов Нью-Йорка. В условиях беззакония и отсутствия работы они прокладывают себе дорогу в жизни с помощью дружбы и пистолета.
-
-Знаменитый фильм легендарного режиссера Серджо Леоне «Однажды в Америке» с Робертом Де Ниро в главной роли вышел на экраны в начале 80-х годов и очень скоро стал классикой криминального жанра в кино.
-Удостоенный премии Каннского Фестиваля, фильм до сих пор пользуется огромным успехом. И во многом причиной этого успеха стал талант Гарри Грея, автора романа, ставшего прекрасной основой для сценария фильма.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA5677B5D93FE5B6058AE7277C7FD42007C6237
 ```
 
 https://mybot314.ru/tekegram_catalog/

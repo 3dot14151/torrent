@@ -1,3 +1,30 @@
+###  Публикация: 489035   (101791) от 28.04.2012
+
+Laser Squad [En] (RePack) 1992 | Pilotus
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Первая игра от братьев Голлопов для ПК. Собственно, даже не первая, а первый порт их игры на ПК, сделанный сторонней компанией Krisalis... Кто такие братья Голлопы? Разве вы не играли в X-Com? Так вот, они это всё придумали...
+Жанр в принципе тот же - тактика. Здесь нет стратегических моментов, здесь всего пять миссий с фиксированными картами, условиями игры и оружием... Эта игра - рай для любителей чистой тактики (или весёлого Hot-Seat рубилова - здесь можно сыграть на двоих! Правда, только друг против друга). Настоятельно рекомендуется всем, кто хочет знать, с чего начиналась легенда команды Mythos Games и откуда растут ноги X-Com.Тип издания: RePackЖанр: СтратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488351   (101688) от 27.04.2012
 
 Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
@@ -6,7 +33,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +61,7 @@ Shortline [En] (RePack) 1992 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +87,7 @@ SimLife (RePack) [En] 1992 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +114,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +141,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +169,7 @@ Prince Of Qin [Ru/En] (P) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -169,7 +196,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -195,7 +222,7 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +250,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -249,7 +276,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -277,7 +304,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -303,7 +330,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -329,7 +356,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -355,7 +382,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -384,7 +411,7 @@ American McGee's Alice / Америкэн Макги: Алиса [Ru] (RePack) 2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +437,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -438,7 +465,7 @@ Full Spectrum Warrior [Ru] (RePack) 2004 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -465,7 +492,7 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -493,7 +520,7 @@ Angels vs Devils [Ru] (L) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -520,7 +547,7 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -546,7 +573,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -572,7 +599,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -598,7 +625,7 @@ Morpheus [Ru] (P) 1998
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -624,7 +651,7 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -650,39 +677,13 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
 Футуристическая стратегия о конфликте между роботами, уничтожившие все человечество.Тип издания: RePackЖанр: Приключенческий трехмерный экшенЯзык озвучки: Русский (Фаргус) + русификатор (GSC)Язык интерфейса: Русский (Фаргус) + русификатор (GSC)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478768   (86630) от 05.04.2012
-
-Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шервуда [Ru] (RePack) 2002 | Pilotus
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86630.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Робин Гуд: Легенда Шервуда" - это тактическая стратегия, жанр которой фактически оформился с выходом знаменитой игры "Commandos" и получил развитие в "Desperados". Теперь создатели Desperados обратились к классическому английскому сюжету о братстве лесных стрелков, злом шерифе, короле Ричарде и его брате Джоне по прозванию "Безземельный". Руками Робина Гуда игрок спасет Англию от жестокого гнета самозваного правителя, собрав выкуп за томящегося в плену Ричарда Львиное Сердце.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time / Tactical) / Arcade / IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash

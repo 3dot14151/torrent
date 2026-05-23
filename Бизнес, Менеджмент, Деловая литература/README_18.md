@@ -1,3 +1,83 @@
+###  Публикация: 1104435   (879261) от 15.02.2017
+
+Стивен Шиффман | Золотые правила продаж. 75 техник успешных холодных звонков, убедительных презентаций и коммерческих предложений, от которых невозможно отказаться (2017) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Всемирно известный гуру продаж Стивен Шиффман обучил более полумиллиона сейлз-менеджеров. Эта книга - квинтэссенция его тридцатилетнего опыта, в ней он сформулировал 75 правил, которым нужно следовать на всех этапах продаж, чтобы ваша работа гарантированно привела к заключению сделки. Успешного продавца, говорит Стивен Шиффман, отличает то, что он способен предвидеть (   Читать дальше...   )Жанр: Бизнес, маркетинг, рекламаФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212217781FC24AF1A6640D40D19BF5F6319B6C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373698   (878259) от 07.04.2020
+
+Нэнси Дуарте, Патти Санчез | Illuminate: как говорить вдохновляющие речи и создавать эффективные презентации, способные изменить историю (2017) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Слова вызывают перемены и зажигают сердца. Если вам удастся полноценно донести свою идею, люди будут следовать ей и меняться. Аккуратно подобранные и произнесённые слова – это, пожалуй, самое эффективное средство коммуникации, которое у нас есть. И доказательство тому – вся жизнь гениев коммуникации.
+
+Слушатели не должны подстраиваться под вас – это вам нужно настроить (   Читать дальше...   )Жанр: Лидерство, Ораторское искусство / риторика, Эффективная презентацияПеревод: А. ГусеваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB216CABEC0B92F6DC99E618C5FB5C16FFA5D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105162   (877539) от 16.02.2017
+
+Петр Панда | Тексты, которым верят. Коротко, понятно, позитивно (2017) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Перед вами мощное оружие по усилению любых видов текстов. Своего рода «библия современного копирайтера». Только важное и действенное. Только проверенные методы, фишки и приемы от создателя стиля «Убедительно-позитивный копирайтинг» Петра Панды. С помощью этой книги вы научитесь создавать по-настоящему убедительные продающие и рекламные тексты.Теперь (   Читать дальше...   )Жанр: Маркетинг. Общие вопросыФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347E014A182A093840314C4546B6683BCF1887B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374082   (876698) от 08.04.2020
 
 Джуди Додж Каммингс | Apple. Как заработать $1 триллион долларов (2020) [EPUB]
@@ -6,7 +86,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +591,7 @@ Harvard Business Review (HBR) | Психология лидерства (2020) [
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,86 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FADF8D61FE2868FED616D9A36FEDD9D691DCD524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106885   (865602) от 23.02.2017
-
-Итан М. Расиел | Метод McKinsey. Использование техник ведущих стратегических консультантов для решения личных и деловых задач (2013) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865602.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сегодняшний день в мире нет другой столь известной, успешной и востребованной консалтинговой фирмы, как McKinsey & Company. Ее клиентами является большинство ведущих мировых корпораций. Из этой компании вышли многие величайшие бизнес-лидеры и мыслители в области менеджмента. Среди них Том Питерс, Луис Герстнер, Йон Катценбах и многие другие.
-
-Книга впервые (   Читать дальше...   )Жанр: БизнесФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3AD7D2053B02C92B757FA16A9383444E5B389F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375576   (865396) от 14.04.2020
-
-Мо Баннелл | Система снежного кома. Как побеждать в бизнесе и превращать клиентов в своих преданных фанатов (2020) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того, ведете вы собственный бизнес или являетесь наемным сотрудником, предлагаете свои услуги юриста, преподавателя, консультанта, коуча, дизайнера или же работаете менеджером по продажам в крупной компании, система продаж, представленная в этой книге, поможет вам привлекать больше клиентов, строить более прочные отношения с ними и, конечно, больше (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB7273B5F76523737726B2AB399A88B020B2070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375658   (865383) от 14.04.2020
-
-Мо Баннелл | Система снежного кома. Как побеждать в бизнесе и превращать клиентов в своих преданных фанатов (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того, ведете вы собственный бизнес или являетесь наемным сотрудником, предлагаете свои услуги юриста, преподавателя, консультанта, коуча, дизайнера или же работаете менеджером по продажам в крупной компании, система продаж, представленная в этой книге, поможет вам привлекать больше клиентов, строить более прочные отношения с ними и, конечно, больше (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаПеревод: Юлия БукановаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BC213EC26E9DD8BE5B62989746F1DCDFABDD26
 ```
 
 https://mybot314.ru/tekegram_catalog/

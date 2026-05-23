@@ -1,3 +1,108 @@
+###  Публикация: 1237497   (551477) от 24.07.2018
+
+Г.К. Зайцев | Устройство, эксплуатация и ремонт тепловозов серии 2ТЭ25А (2ТЭ25К) (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрено устройство узлов и агрегатов тепловоза, систем отопления, вентиляции, кондиционирования, торможения. Приведены технические характеристики, возможные неисправности и методы их устранения. Изложены основные правила подготовки тепловоза к эксплуатации, проверки технического состояния систем пожаротушения, периодичности ремонтов, техники безопасности.
+Предназначено (   Читать дальше...   )Жанр: учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC2464D3207C9D28F62B4CEB8D4059B0061B5C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046869   (550717) от 28.08.2016
+
+Гюнтер Валь | Мини-шпионы. Схемотехника (2016) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассматривается множество любительских схем, позволяющих организовать скрытое дистанционное прослушивание, слежение за подвижными объектами, контроль за телефонными линиями и многое другое. Отдельная часть посвящена разработке радиопередатчиков ближнего действия и пеленгации подобных устройств. Изложенный материал освещает различные области радиосхемотехники, (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886DEE9663F745BF38B871194E529F83136480F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046721   (550018) от 29.08.2016
+
+В.Н. Гусев | Коротковолновые любительские антенны (1950) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+При составлении данной брошюры ставилась задача популярно рассказать о применениях в практике радиоклубов и отдельных любителей различных типов антенн, об оценке их эффективности, наиболее целесообразном использовании для повышения общего качества работы любительских радиостанций, а также дать основные знания для дальнейшего совершенствования антенн.Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A258D0CCCDFCACA3061F8A4E60D0D05E7B6A633A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046615   (549933) от 29.08.2016
+
+И.Ю. Темпер, В.Е. Ошеров | Справочник радиолюбителя (1949) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит данные по радиодеталям, лампам и методикам расчёта схем. Много справочного материала полезного для начинающих радиолюбителей.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171D1D1BC0464CBB912EB230C7EAC3014C4A3FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046771   (549851) от 29.08.2016
 
 Г.С. Гендин | Школа радиолюбителя (2003) [PDF, DJVU]
@@ -6,7 +111,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +676,7 @@ Tyler Bain, Peter Kent | Cryptocurrency Mining For Dummies 2nd Edition (2022) [P
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,111 +687,6 @@ Tyler Bain, Peter Kent | Cryptocurrency Mining For Dummies 2nd Edition (2022) [P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:802BE852A6595EECE25D65054206BAAFD665D9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928519   (521539) от 17.08.2015
-
-Moeller GmbH | Справочник по схемам электрических подключений.  Автоматизация и распределение электроэнергии (2008) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник предлагает ценные практические советы по вопросам электротехники – как для людей, проходящих обучение, так и для опытных практиков. Все схемы составлены надлежащим образом и тщательно протестированы.Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD94E00A540E4847400282F7F4D313DCE967A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928863   (520609) от 18.08.2015
-
-В.А Зайцев, В.А. Третьяков | Срок службы радиоламп (1966) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются вопросы правильной эксплуатации электровакуумных приборов с целью увеличения их срока службы и надежности, даются практические рекомендации.Жанр: Электроника, радиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D9339832778C2C23B1E86060895E7D538F0671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928912   (520589) от 18.08.2015
-
-К.И. Дроздов | Справочник по западно-европейским приемным лампам (1948) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520589.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящую книгу включены основные справочные сведения по приемно-усилительным лампам западно-европейского ассортимента, не обходимые для правильной эксплуатации, налаживания и ремонта приемно-усилительной и измерительной аппаратуры, в которой применяются указанные лампы. Особая нужда в подобных справочных данных возникает при замене ламп в этой аппаратуре лампами (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A14C0AF882EA2C3D6DBED2939BD5C369DF4B731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929200   (519556) от 19.08.2015
-
-Б.Б. Гурфинкель | Приемно-усилительные электронные лампы (1949) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519556.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даются основные сведения по приемно-усилительным лампам и лампам вспомогательного назначения как старых, так и новых типов, находящих применение в радиолюбительской практике, а также в практике технического персонала, занимающегося обслуживанием, наладкой и ремонтом радиовещательной и телевизионной приемной аппаратуры.
-Даются сведения по ряду новых типов (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC06B95460AA738EE0512FF9C0174155052DBAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

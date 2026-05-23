@@ -1,3 +1,81 @@
+###  Публикация: 1093410   (935360) от 14.01.2017
+
+Королева Катве / Queen of Katwe  (2016) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка из Уганды тренируется, чтобы стать чемпионкой мира по шахматам.Производство: США, ЮАРЖанр: драма, биография, спортРежиссер: Мира НаирАктеры: Лупита Нионго, Дэвид Ойелоуо, Нтаре Мвине, Рассел Савадье, Мадина Налванга, Морис Кирйа, Чарити Роуз Пимер, Тэрин Кйазе, Эстер Табандеке, Питер ОдекеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83EE055E79ABB642414D8A7F25EAF60D826479C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985921   (933830) от 12.02.2016
+
+Крид: Наследие Рокки / Creed  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В центре внимания сын Аполло Крида - первого серьезного соперника Рокки Бальбоа на ринге, впоследствии ставшего лучшим другом героя. Талант отца в какой-то момент проявляется и в Криде-младшем, и юноша отправляется на поиски наставника, коим для него в итоге становится постаревший Рокки, тоже не слишком жаждущий возвращаться к старым делам. Даже в качестве тренера.Производство: США,	Chartoff-Winkler Productions, Metro-Goldwyn-Mayer, New Line Cinema, Warner Bros. PicturesЖанр: драма, спортРежиссер: Райан КуглерАктеры: Майкл Б. Джордан, Сильвестр Сталлоне, Тесса Томпсон, Филисия Рашад, Андре Уорд, Тони Белью, Ричи Костер, Джейкоб ’Стич’ Дюран, Грэм МакТавиш,  Габриэль РосадоПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанский, португальскийПродолжительность: 02:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7ABF6687CC29FAD19FA946713AC92F493B8CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093468   (933144) от 15.01.2017
+
+Операция «Лавина» / Operation Avalanche  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1967 год, самый разгар Холодной войны. Чтобы предотвратить возможный саботаж миссии «Аполлон» советскими шпионами, ЦРУ внедряет в NASA двух молодых агентов под прикрытием режиссеров-документалистов, которые должны запечатлеть подготовку к первой пилотируемой высадке на Луну. Кто бы мог подумать, что результат операции окажется куда более шокирующим, чем банальное (   Читать дальше...   )Производство: СШАЖанр: триллерРежиссер: Мэтт ДжонсонАктеры: Мэтт Джонсон,  Джаред Рааб,  Криста Мэдисон, Мадлен Симс-Фьюер, Джо Томас, Том Болтон, Шэрон Белль,  Джо АнастасиоПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C392812C43DF4D418CD7D9407148D30089C0CE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365176   (931485) от 06.03.2020
 
 Хищные птицы: Потрясающая история Харли Квинн / Birds of Prey: And the Fantabulous Emancipation of One Harley Quinn (2020) WEBRip [H.264/1080p-LQ] [EN / KOR Sub] [PR]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F84B1395C545E9955F98975E48D386BBFB84ACB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991680   (905711) от 28.02.2016
-
-Крадущийся тигр, затаившийся дракон: Меч судьбы / Crouching Tiger, Hidden Dragon: Sword of Destiny (2016) WEBRip [H.264/720p-LQ] [EN / EN, FR, ITA, DUT, Ge Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905711.jpg" />
-</div>
-
-
-###  Подробнее
-
-История потерянной любви, легендарного меча и последнего шанса на искупление.Производство: США, China Film Group, Pegasus Taihe Entertainment, The Weinstein Company, Yucaipa FilmsЖанр: Фэнтези, Боевик, Драма, ПриключенияРежиссер: Юэнь Воо-пинАктеры: Донни Ен, Мишель Йео, Гарри Шам мл., Джейсон Скотт Ли, Евгения Йуан, Жужу Чан, Крис Пэнг, Дэррил Квон, Роджер Йуан...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Английский, нидерландский, итальянский, французский, немецкийПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8944EB108F5E3FAF336B26472611ACAC523BEB6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099370   (904728) от 01.02.2017
-
-Прибытие / Arrival  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неожиданное появление неопознанных летающих объектов в разных точках планеты повергает мир в трепет. Намерения пришельцев не ясны - вооруженные силы всего мира приведены в полную боевую готовность, а лучшие умы человечества пытаются понять, как разговаривать с непрошенными гостями. Правительство обращается за помощью к лингвисту Луизе Бэнкс и физику Яну Доннели, (   Читать дальше...   )Производство: СШАЖанр: фантастика, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Эми Адамс, Джереми Реннер, Майкл Стулбарг, Форест Уитакер, Сангита Патель, Ци Ма, Эбигейл Пнёвски, Марк О’Брайэн, Рут Чианг, Джейдин Мэлоун, Анана Ридвальд, Натали ТибоПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85649133683F4DA52D6F75BC5875995FC5F5E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100172   (901219) от 03.02.2017
-
-Не стучи дважды / Don't Knock Twice (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поиски пропавшего друга приводят Хлою в родной город. По местному преданию, в странном доме на его окраине живет опасная ведьма, охотящаяся на жителей города. Хлое придется вызвать древнего демона и ступить за порог реального мира в мир потусторонний, чтобы открыть страшную правду городской легенды.Производство: Великобритания, Red & Black Films, Seymour FilmsЖанр: УжасыРежиссер: Карадог В. ДжеймсАктеры: Люси Бойнтон, Кэти Сакхофф, Хавьер Ботет, Ник Моран, Джордан Болджер, Пунех Хаджимохаммади, Ричард Милан, Меган Пурвис, Каллум Гриффитс, Селин Эванс...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3371B2E3F249BE861CFB2941813A60125A93EFD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

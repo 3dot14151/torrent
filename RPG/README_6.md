@@ -1,3 +1,81 @@
+###  Публикация: 1136196   (1016623) от 10.05.2021
+
+The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.1.0b) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Хватайте оружие и отправляйтесь на поиски невероятных приключений в стиле готического нуара: в мире Борговии безумная наука угрожает хрупкому равновесию между людьми и монстрами. Вместе со своей очаровательной спутницей, леди Катариной (вернее, ее призраком), вы должны спасти положение! Исследуйте пустоши и мрачные кварталы мегаполиса, исковерканного безумной наукой, (   Читать дальше...   )Тип издания: LicenseРазработчик: NeocoreGamesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C82CBB9DB93E3AE4606AC93A75BDDEC5F9662AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472141   (1014417) от 24.05.2021
+
+Nox Archaist (2021) [En] (1.1.4e) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Nox Archaist - восьмибитное приключение, создано по канонам классики 80-х, типа Ultima. Возьмите под свое управление небольшую группу смельчаков и совершите путешествие по Царству. Исследуйте данжи, посещайте города и замки, общайтесь с многочисленными NPC, а также сражайтесь с разнообразными монстрами, спасая мир от нависшей угрозы. Игра выполнена по всем канонам (   Читать дальше...   )Тип издания: LicenseРазработчик: 6502 WorkshopЖанр: RPG, AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA436C3CBB0E0D36BC92A7927DA9B3B2AADDB8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472447   (1014276) от 25.05.2021
+
+Ark of Artemis (2021) [Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Полгода прошло с тех пор, как ангелы уничтожили мир —— Получив письмо из Рыцарского Ордена, Клаудиа решила отправиться на Демонический континент (Континент демонов, как вариант), но по пути была атакована ангелами. Получив силу божественного оружия, она смогла отразить нападение. По воле случая она натыкается на заточённого во льду зверя, из-за чего начинается череда (   Читать дальше...   )Тип издания: LicenseРазработчик: Kujirabo。Жанр: Adventure, Indie, RPGЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF71292FF55B87C01C8EECB0BAE666319D6D051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473610   (1013447) от 30.05.2021
 
 Chrono Trigger (2018) [En] (1.0) License TiNYiSO [Limited Edition]
@@ -6,7 +84,7 @@ Chrono Trigger (2018) [En] (1.0) License TiNYiSO [Limited Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Mistover (2019) [Multi] (1.0.9a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.0/dlc) License EMPRESS [Legendary Her
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Mount & Blade: Warband / Mount & Blade. Эпоха турниров (2010) [Ru/M
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Edge of Eternity (2021) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Demons Age (2017) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Icewind Dale: Enhanced Edition (2014) [Ru/Multi] (2.6.6.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Arx Fatalis (2002) [Ru/Multi] (1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Fareo Shadowlands (2021) [Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (181.13.00/dlc) License GOG [Necroman
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Moonlighter (2018) [Ru/Multi] (1.14.37/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Bastion (2011) [Ru/Multi] (1.50436) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Firelight Fantasy: Resistance (2021) [Ru/Multi] (4.25) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +501,7 @@ Death's Door (2021) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +527,7 @@ Divinity: Dragon Commander (2013) [Ru/En] (1.0.124hf/dlc) License GOG [Imperial 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +553,7 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +579,7 @@ Final Fantasy II (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +605,7 @@ Final Fantasy (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +631,7 @@ Eldest Souls (2021) [Ru/Multi] (Build 7099613) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,7 +657,7 @@ Eastern Exorcist (2021) [Multi] (Build 6990221) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,84 +668,6 @@ Eastern Exorcist (2021) [Multi] (Build 6990221) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D05456AAB4DA6F43F51B2AB543F79B9045593818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486311   (1004779) от 30.07.2021
-
-The Ascent (2021) [Ru/Multi] (Build 7106737) License CODEX
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на Велес! Вы - подневольный "Асцент Груп", крупнейшей корпорации на планете, которая владеет здесь всем и вся. Внезапно "АГ" прекращает своё существование и Вы попадаете в водоворот опасных событий. Системы безопасности выходят из строя, конкуренты стремятся захватить власть, а преступные группировки - укрепиться на черном рынке. (   Читать дальше...   )Тип издания: LicenseРазработчик: Neon GiantЖанр: Cyberpunk, RPG, Action, ShooterЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA434AB40756941A354FC208A70A141D1EF7558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486585   (1004660) от 31.07.2021
-
-Ys IX: Monstrum Nox (2021) [Multi] (1.0.5/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный авантюрист Adol "the Red" Christin и его товарищ Dogi прибывают в Балдук, город, аннексированный Ромунской Империей. Однако Adol оказывается схвачен едва ли не раньше, чем его нога ступает на городской камень. Находясь в тюрьме, он встречает загадочную женщину по имени Aprilis, которая превращает его в Монструма, существо со сверхъестественными (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom, Engine Software BV, PH3 GmbHЖанр: jRPG, ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, ФранцузскийЯзык интерфейса: Английский, Японский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5F19BB888C269551FFB89A866E28143A845C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385856   (1004471) от 01.08.2021
-
-Signs of the Sojourner (2020) [En] (4) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте в очень интересную карточную игру, сюжет которой повествует о важности общения и отношениях между людьми. Заводите новых друзей, соперников или просто знакомых с помощью серий карточных диалогов. Signs of the Sojourner не экономическая игра и не симулятор управленца. Практически всё, чем предстоит заниматься, это разговоры. Вопреки сложившемуся представлению (   Читать дальше...   )Тип издания: LicenseРазработчик: Echodog GamesЖанр: Ролевая игра, Exploration, Визуальные новеллыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3438D62723236D662A1AAAE747C37A88434AE62
 ```
 
 https://mybot314.ru/tekegram_catalog/

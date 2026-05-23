@@ -1,3 +1,29 @@
+###  Публикация: 1263758   (283844) от 21.11.2018
+
+Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Учёные обнаружили субстанцию, которая способна напрямую взаимодействовать с человеческим мозгом. Оказалось, что эта субстанция, названная «экзотическая материя» с древних времён оказывала влияние на прогресс человечества. Вскоре после открытия началась борьба среди могущественных наций и гигантских корпораций. Организации по всему миру стали тайно пытаться использовать (   Читать дальше...   )Производство: Япония / CraftarЖанр: Детектив, фантастикаРежиссер: Сакураги Юхэй (Yūhei Sakuragi)Язык озвучки: Русский (Xelenum, одноголосный)Субтитры: ОтсутствуютПродолжительность: 11 эпизодов, 25 мин./серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E396EABDB35870299C85178723C510EF8B03751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963894   (281511) от 11.12.2015
 
 Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в повседневности [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x3(ext)
@@ -6,7 +32,7 @@ Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в по�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou / Волейбол!! С
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Hoshi wo Ou Kodomo / Ловцы забытых голосов [2011, MV] BDrip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Steins;Gate 0 | Врата Штейна 0 [TV, 2018, 23] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Gyakusatsu Kikan / Genocidal Organ / Орган Геноцида [2017, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Gekijouban Sword Art Online: Ordinal Scale / Мастера Меча Онлай�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -163,7 +189,7 @@ Robomasters / Робомастера [2017, TV, 6 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -189,7 +215,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken / My Girlfriend is Shobitch / М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -215,7 +241,7 @@ Enmusubi no Youko-chan / Сводники Духов: Лисьи Свахи [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -241,7 +267,7 @@ Ballroom e Youkoso / Welcome to the Ballroom / Добро пожаловать �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +293,7 @@ Memories / Воспоминания о будущем [1995] BDRip 720 raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Vinland Saga Season 2 | Сага о Винланде 2 [2023, TV, 24 из 24] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Hula Fulla Dance | Танец хула-хула [2021, Movie] WEBRip 1080p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -345,7 +371,7 @@ Neko no Ongaeshi | The Cat Returns | Возвращение кота (2002) BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +400,7 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +426,7 @@ Gigigoegoe seonghyeongsu | Beauty Water | Эликсир красоты [2020, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +479,7 @@ Megaton-kyuu Musashi 2nd Season | Мегатон 2 [2022, TV, 15 эп.] HDTVRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +506,7 @@ Douluo Dalu | Dou Luo Da Lu | Soul Land | Боевой континент [2018-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -506,7 +532,7 @@ Donten ni Warau / Laughing Under the Clouds / Смех под облаками [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +558,7 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +584,7 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +610,7 @@ Ousama Game The Animation / King's Game The Animation / Королевская �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +636,7 @@ Juuni Taisen / Война Двеннадцати [2017, TV, 12 ep] WEB-DL 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -636,7 +662,7 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -647,32 +673,6 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464786935DFBF87C07B6C64601A33D69D7C212CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853796   (155680) от 27.12.2014
-
-Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Наездников [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посреди могучих держав лежит небольшое горное королевство Лотремон, славное единственной в мире академией, где готовят наездников на драконах. Мало кто способен «запечатлеть» разумного зверя, вырастить его, а потом несколько лет учиться вместе, составляя идеальную боевую пару. Лучшие рыцари получают от дракона магические доспехи и оружие, заменяя собой целые армии, поэтому любая страна с готовностью оплатит недешевое обучение своих кандидатов. Юные таланты прибывают в академию Ансариван отовсюду, в том числе (   Читать дальше...   )Жанр: приключения, фэнтези, эттиРежиссер: Тада СюнсукэПеревод: YakuSub StudioФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692C229C49281B312E1A35BC6DA4262E5A90F665
 ```
 
 https://mybot314.ru/tekegram_catalog/

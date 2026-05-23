@@ -1,3 +1,55 @@
+###  Публикация: 1765142   (34480) от 11.12.2024
+
+Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene Rune
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Гладиус Прайм был известен среди Имперских ученых, как планета богатая на археологические находки. Во время его колонизации были найдены древние реликвии, намекающие на окутанное тайной прошлое планеты. Находки оказались нечто большим, чем реликвиями. Пробудился ужасный отголосок древнего прошлого, и жители Гладиуса оказались втянуты в смертельную войну за выживание.Тип издания: SceneРазработчик: Proxy StudiosЖанр: Стратегия, Пошаговая, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420A251E92DDD174E039E8364B992DA1980BACBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765507   (34332) от 13.12.2024
+
+This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Scene Rune
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+This War of Mine - первая игра, которая позволяет увидеть войну не глазами солдата, а от лица группы мирных жителей, которые пытаются выжить в осаждённом городе, испытывая нехватку еды, лекарств и находящихся в постоянной опасности из-за снайперов и мародеров. Делайте всё, что потребуется, чтобы выжить, но постарайтесь не потерять человечность.Тип издания: SceneРазработчик: 11 bit studiosЖанр: Экшн, Приключение, ВыживаниеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A6AAE4FABC09A96CFE6BF77D3C85F980363718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707052   (33102) от 25.12.2024
 
 Warcraft III (3): Reforged (2020) [Ru/En] (2.0.1.22498) Repack Decepticon
@@ -6,7 +58,7 @@ Warcraft III (3): Reforged (2020) [Ru/En] (2.0.1.22498) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.2.12.54620) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Toy Tactics (2023) [Ru/Multi] (1.1E) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Terra Exodus (2025) [En] (43.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +396,7 @@ The Great War: Western Front (2023) [Ru/Multi] (Build 822194/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Status One (2025) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Door Kickers (2014) [Ru/Multi] (1.1.6) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.00) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Comple
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.6.32935/dlc) Repack Let'sРlay [The Ixia
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.6/dlc) Repack dixen18 [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B4A6D93ED95F1AE0F484BCD4C08B795DA8CAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765189   (26207) от 28.02.2025
-
-Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Repack seleZen [Supernova Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подготовься к исследованию галактики, изучению новых технологий, знакомству с новыми инопланетными цивилизациями и созданию галактической цивилизации, которая выдержит испытание временем. Будучи лидером молодого межзвездного вида, тебе предстоит направлять свой народ на развитие новых миров, строительство новых типов звездолетов и ведение войн, чтобы гарантировать (   Читать дальше...   )Тип издания: RepackРазработчик: Stardock EntertainmentЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD64869BF38C850BA7345CEF92F87C956D9991AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773290   (26201) от 28.02.2025
-
-FRONT MISSION 1: Remake (2023) [Ru/Multi] (3.0.1/dlc) Repack Let'sРlay
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26201.jpg" />
-</div>
-
-
-###  Подробнее
-
-FRONT MISSION 1st: Remake - атмосферная тактическая пошаговая RPG, где вам предстоит управлять внушающими трепет Ванзерами - мощными боевыми машинами. Станьте отважным пилотом, что бороздит просторы опасных полей сражений, где каждый стратегический маневр пробуждает истинные реалии войны. Игра совмещает интересное повествование, где почти на каждом шагу вас ждут (   Читать дальше...   )Тип издания: RepackРазработчик: Forever Entertainment S. AЖанр: СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B528C9313975A21CC145E5F2ED902F9BF574F3D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

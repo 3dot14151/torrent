@@ -1,3 +1,29 @@
+###  Публикация: 1307654   (554832) от 10.06.2019
+
+Секреты дикой Индии / Secrets of Wild India (2011) BDRemux [H.264/1080i] (серии 3 из 3) [hand made 50fps]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Индия, являющаяся домом для более чем миллиарда человек, имеет и дикие области, населенные великанами, хищниками и экзотическими существами. Легендарный натуралист сэр Дэвид Аттенборо в очередном фильме из серии "Дикая природа" расскажет о удивительной природе этой загадочной страны. Вы посмотрите на мир гигантских травоядных, обитающих в предгорьях Гималаев (   Читать дальше...   )Производство: США, Icon Films for National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Дункан ЧардПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: РусскиеПродолжительность: 3 x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E769751F77647B1716155F7DFC271F1E4438936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307991   (554428) от 12.06.2019
 
 NG: Герои Средиземноморья / Heroes of the Mediterranean (2019) HDTV [H.264/1080p-LQ]
@@ -6,7 +32,7 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ NGW: Секретное королевство Борнео: странные и
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG:Армия львов: Битва за выживание / Lion Army. Battle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ NG. Вампиры в Венеции / Vampires in Venice (2010) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +344,7 @@ NGW: Человек против монстра / Man vs Monster (2011-2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +370,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +396,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +422,7 @@ NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +449,7 @@ NG: Как это связано? От мечей до беспилотнико�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +475,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +501,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +527,7 @@ NG. С точки зрения науки: Пули / Naked Science: Bullets (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +553,7 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +581,7 @@ NG. По его собственным словам / In His Own Words (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +607,7 @@ NG. Жизнь до рождения: Собаки / In The Womb. Dogs (2009) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +633,7 @@ NG: Больше, чем тираннозавр / Bigger Than T.Rex (2014) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -633,7 +659,7 @@ NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,33 +670,6 @@ NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E28F39BD51D5B03D2F8B2737C01550BBCEA22B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240362   (528618) от 11.08.2018
-
-NGW: Атака нильского крокодила / Africa's Croc Attack (2012) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528618.jpg" />
-</div>
-
-
-###  Подробнее
-
-На реке Конго каякеры из США Бен и Крис пытаются выследить и поймать огромного нильского крокодила, который убил их друга, бывшего гида.
-Нильский крокодил — древнее существо, он хозяйничает в африканских реках ещё со времён динозавров. Но за 60 млн. лет эта проворная и скрытная рептилия почти не изменилась. Длина врослого крокодила достигает шести метров, а вес приближается (   Читать дальше...   )Производство: Австралия, National Geographic ChannelsЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8093B8E2CAB038E0A1F5F46BECCBA5CADBD227C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

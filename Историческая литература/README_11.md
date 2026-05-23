@@ -1,3 +1,86 @@
+###  Публикация: 973255   (980104) от 08.01.2016
+
+Александр Фомич Петрушевский | Генералиссимус князь Суворов [том I, том II, том III, современная орфография] (1884) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Три тома в одной книге.
+
+Перед вами книга, не издававшаяся в России более 100 лет.
+Это удивительно потому, что интерес к Суворову во все времена велик, а данная книга, состоящая из 3 томов общим объемом почти в полторы тысячи страниц, признана историками лучшей биографией величайшего русского полководца. И неудивительно, потому что по прочтении этой книги складывается (   Читать дальше...   )Жанр: История, Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C913C23F8760D4D18FEF582AD95073DF60A518F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614545   (979404) от 06.02.2013
+
+"Вече" | Книжная серия "Тайны Земли Русской" (61 том) [2001-2011] [FB2, DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Тайны Земли Русской - серия произведений, исследующих темные пятна, загадки и тайны нашей истории. Иногда выдвигаются прямо-таки "дикие" гипотезы, иногда - просто альтернативная фантастика.
+Но всё это интересно и познавательно.Формат: FB2 (26 книг), DJVU (26 книг), PDF (9 книг)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C624E5B829CB5EBDDCEFB86251F840728FBAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973579   (979259) от 09.01.2016
+
+Виталий Вульф | Серебряный шар: Преодоление себя. Драмы за сценой (2003) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ему есть что рассказать... Виталий Вульф был не только лично знаком, но и дружен со многими звездами отечественной сцены. Блестящий дар рассказчика превращает жизненные коллизии в захватывающие своим драматизмом сюжеты.
+Бабанова, Сухаревская, Степанова, Кторов, Тарасова, Серова, Еланская, Коренева, Андровская, Пилявская, Уланова, Нуреев, Кшесинская, Гердт, Бриннер, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941C5182463E05DD7147ABCBC6216EE37709130F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974271   (976811) от 11.01.2016
 
 Ричард Харвуд | Шесть миллионов — потеряны и найдены (2005) [FB2]
@@ -6,7 +89,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -598,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE063F4D49E11712AE54C823D65E4CF04A2CB44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975951   (969659) от 17.01.2016
-
-Яков Брафман | Книга Кагала [2 книги] (1882 - 1888) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брафман, Яков Александрович - известный в дореволюционной России литератор. Дед русского писателя Владислава Ходасевича. Родился в еврейской семье; на 34-м году жизни принял православие. В 1858 г., при проезде императора Александра II через Минск, подал ему записку, для объяснения которой был вызван в Санкт-Петербург; в 1866 г. напечатал в "Виленском Вестнике" (   Читать дальше...   )Жанр: История России, этнография, документыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6EDDC8EDBC76D8223FA920BAC931CC53C0E6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358629   (968690) от 08.02.2020
-
-Джошуа Правер | Королевство крестоносцев (2019) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся израильский историк Джошуа Правер на страницах своей книги воссоздает жизнь и уклад средневекового общества на Ближнем Востоке в эпоху Крестовых походов. Профессор Правер описывает историю создания крестоносцами Иерусалимского королевства, рассматривает его устройство, систему управления, политические и общественные институты, привнесенные европейцами (   Читать дальше...   )Жанр: История Древнего мираПеревод: В.С. МухинФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3281526908579C1C58DF46FA477B66F92DD9301A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358627   (968688) от 08.02.2020
-
-Вольфганг Акунов | Сказание о наших готских предках (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй половине IV в. п. Р. Х. Римская «мировая» держава была потрясена вторжением германского племени готов, едва не приведшим ее к гибели. Но со временем именно готам было суждено не только вписаться в античный мир, но и стать решающим фактором его выживания и подготовки к переходу в мир феодализма. О судьбе готов, внесших свой вклад и в создание древнерусской (   Читать дальше...   )Жанр: История Древнего мираФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B46AEC532C4B83E85B823E7BA9F63E1F3D02DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

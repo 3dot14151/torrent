@@ -1,3 +1,55 @@
+###  Публикация: 1782940   (25901) от 03.03.2025
+
+Mycelium Heaven (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Наслаждайтесь другой и изобретательной приключением в Mycelium Heaven, где гриб с очень особой диетой поможет спасти свой дом. Разработайте свою лучшую стратегию в этой войне и преодолевайте уровни, на которых вы откроете новые и сложные механики, которые проверят вашу логику. Погружайтесь сразу без сложных обучающих программ и откройте для себя увлекательный мир, (   Читать дальше...   )Тип издания: RepackРазработчик: 3DGoblinDevЖанр: Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F790CA9D9138121E98160AF22119655587A043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782927   (25818) от 03.03.2025
+
+Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Заканчивается посадка на скорый поезд, следующий до богатства и славы в Railway Empire 2! Наденьте костюм ловкого предпринимателя и возглавьте небольшую железнодорожную компанию в начале 1800-х годов, превратив паровые машины в рабочих лошадок экономики. Превратите свое предприятие в крупнейшую железнодорожную компанию континента и переиграйте конкурентов, соединяя (   Читать дальше...   )Тип издания: RepackРазработчик: Gaming Minds StudiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722473AE9AFC6CCD8FBC830FE3FA911B149DD0AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783164   (25758) от 04.03.2025
 
 One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Let'sРlay
@@ -6,7 +58,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Builders Of Egypt (2025) [Ru/Multi] (1.0408) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Pegasus Expedition (2022) [Ru/Multi] (2025 mar01 patch) License GOG [Grand A
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (2.1.2 R22365/dlc) Repack FitGirl [Essentia
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack FitGirl [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +214,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Learning Factory (2021) [Ru/Multi] (1.1.4a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Oasis Mission: Colony Sim (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.32.1.24) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dungeon Tycoon (2024) [Ru/Multi] (1.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Kaiserpunk (2025) [Ru/Multi] (build 17798436) RePack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Bass Defense: Rhythm Meets Strategy (2024) [Mutli] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +396,7 @@ The Sims Legacy Collection (2025) [Ru/En] (1.0.0.139/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack dixen18 [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cities: Skylines - Collection (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Cities: Skylines - Collection (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Empires of the Undergrowth (2017) [Multi] (1.101071/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (55) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A8D0D7E83A1C6EE9EF999F45992FE9ED29641D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778609   (22452) от 05.04.2025
-
-The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание оригинальной The Sims 2, где судьбы персонажей переплетаются через поколения. В игре можно выбирать жизненные цели для симов: богатство, слава, семья, любовь или знания. Завести питомца, отправиться в путешествие, пережить смену сезонов или даже вступить в брак с пришельцем — каждый день приносит новые возможности.Тип издания: RepackРазработчик: MAXISЖанр: Management, Strategy, 3DЯзык озвучки: СимплишЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7977ED7CE62852DDCC0D26787C2BFC51FDD377E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386454   (22440) от 05.04.2025
-
-Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в серии: огромные архипелаги! Управляйте несколькими островами сразу и отвечайте на новые вызовы. Отправляйте своих агентов за границу на охоту за чудесами света – пора расширить вашу коллекцию. Стройте мосты и тоннели, перевозите граждан и туристов на такси, автобусах и канатных дорогах.Тип издания: LicenseРазработчик: Limbic EntertainmentЖанр: Strategy, SimulationЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BF315958E3ADA37A3E8D2FEEF2D442863B878F
 ```
 
 https://mybot314.ru/tekegram_catalog/

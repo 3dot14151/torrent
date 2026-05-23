@@ -1,90 +1,3 @@
-###  Публикация: 1833102   (246161) от 01.11.2025
-
-Мария Варгас - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ночной звонок
- 02 - Не для меня
- 03 - Забудь меня
- 04 - С любимыми не расставайтесь(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0733ACD61D93B5A4F961D174E5F30C2CAC9D18AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833019   (246124) от 31.10.2025
-
-Chicago Blues Radio - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Midnight ashes (Version 2)
- 02 - Midnight smoke
- 03 - Midnight on State Street
- 04 - Midnight on ice(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6035374CAC9C35D2BCF741F7CF4F035A4B1140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833485   (246092) от 01.11.2025
-
-Chicago Blues Radio - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Midnight Glass of Blues
- 02 - Whiskey and midnight blues
- 03 - Whiskey after midnight
- 04 - Whiskey and midnight blues(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44605BAC2EACD00704B5CE779F902A2168C540BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833481   (246090) от 01.11.2025
 
 Chicago Blues Radio - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
@@ -93,7 +6,7 @@ Chicago Blues Radio - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -122,7 +35,7 @@ Chicago Blues Radio - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -151,7 +64,7 @@ VA - Discotheque Miss Soul (2023) [MP3|320 Kbps] <Jazz, Soul, R'B>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -180,7 +93,7 @@ Kaz Hawkins - Compilation (2023) [MP3|320 Kbps] <Soul, Soft Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +122,7 @@ VA - The Contemporary Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Improvisat
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -238,7 +151,7 @@ Sabrina Starke - The Best Of (2023) [MP3|256-320 Kbps] <Soul, jazz, pop>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -267,7 +180,7 @@ VA - Blue Fish Collection (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -296,7 +209,7 @@ VA - Midnight Blues (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -325,7 +238,7 @@ VA - Blues Rock Compilation Part 22 (2023) [MP3|320 Kbps] <Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -354,7 +267,7 @@ Chris Beard - Compilation (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -383,7 +296,7 @@ VA - Aesthetiсs Blues (2018) [MP3|320 Kbps] <Blues, Rock Blues, Soft Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +325,7 @@ VA - Blue Jean Bar Blues (2018) [MP3|320 Kbps] <Blues, Country, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +354,7 @@ VA - Jazz Magic: Kings Of Improvisation (2019) [MP3|320 Kbps] <Jazz, Instrumenta
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +383,7 @@ VA - Living With The Blues (2018) [MP3|320 Kbps] <Blues, Country, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -499,7 +412,7 @@ VA - A Jazzy Little Christmas: 50 Jazz and Swing Holiday Favorites (2016) [MP3|3
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +441,7 @@ VA - Jazz Sax and Piano (2016) [MP3|320 Kbps] <Instrumental Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +470,7 @@ VA - Blues Velour (2021) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +499,7 @@ VA - Velvet Evening Jazz (2019) [MP3|320 Kbps] <Jazz, Instrumental, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,7 +528,7 @@ VA - The Autumn Blues (2021) [MP3|320 Kbps] <Blues, Soul, Lyric>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -644,7 +557,7 @@ VA - Christmas Jazzy Lounge Grooves (2015) [MP3|320 кб/с] <Lounge, Jazz, Smoo
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -673,7 +586,7 @@ VA - Smooth Jazz: Romantic Travel (2020) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -702,7 +615,7 @@ VA - Merry Christmas, Baby! - Christmas Blues (2020) 3CD [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -731,7 +644,7 @@ Chicago Blues Radio - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -745,6 +658,93 @@ Chicago Blues Radio - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D57338D7F9AA758524D1E7FEFD55CA966BF2094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638483   (211669) от 12.06.2023
+
+VA - Hey, what's that sound - Hammond Organ! (2023) 2CD [MP3|320 Kbps] <Jazz, Hammond, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Down to the Bone - Vinyl Junkie [05:25]
+02. Eloy - Inside (Remastered) [06:42]
+03. John McLaughlin - My Favourite Things (Instrumental) [06:17]
+04. Elvis Costello & The Attractions - Watch Your Step [02:59](   Читать дальше...   )Жанр: Jazz, Hammond, RockПродолжительность: 11:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B551F4CD020B5BF572EC59F5942FB0E50E6F38B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641397   (210540) от 25.06.2023
+
+VA - Blues On My Soul (2023) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+001. Jimmy Thackery - Run Like The Wind [06:31]
+002. Micke Bjorklof - Girl Of My Favourite Song [03:04]
+003. The Groundhogs - Music Is The Food Of Thought [04:35]
+004. Van Morrison - Nervous Breakdown [05:09](   Читать дальше...   )Жанр: BluesПродолжительность: 08:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6002C9BE00D8FDE42C6F39C126827BB32B8F72C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643752   (209888) от 03.07.2023
+
+VA - Blues For Your Evening (2023) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Beard - Can't Walk Away [03:51]
+002. Ray Charles - Early In The Morning [02:48]
+003. Smokey Robinson - Gasms [04:25]
+004. Tab Benoit - Fast And Free [03:09](   Читать дальше...   )Жанр: BluesПродолжительность: 08:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7737BA6BADB44CA8FB995B0CF5D922410F2A09E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

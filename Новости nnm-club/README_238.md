@@ -1,3 +1,187 @@
+###  Публикация: 964682   (219343) от 17.12.2015
+
+Viber 5.4.0 Portable by vitalijtuz [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах! Viber синхронизирует ваши контакты, сообщения и журнал  звонков с вашим мобильным устройством.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B5DA746BE6C116BEE5FAE2B87C1D0033638C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966362   (219337) от 17.12.2015
+
+City Navigator Russia NT 2016.30 Navicom [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Автомобильная навигационная карта — карта, используемая навигатором для показа текущего местоположения автомобиля, построения маршрута и выдачи в реальном времени информации для совершения маневров. Автомобильная навигационная карта от «Навиком» — это карта с маршрутизацией, поиском адресов и контурами зданий, включая дороги вне города, в том числе грунтовые, железные (   Читать дальше...   )Релиз состоялся: 15.12.2015Разработчик: Navicom / GarminПоддерживаемая ОС: GarminOSЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B66547A1A1DFEAFB4925BC3C94DB5955C86846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840566   (219327) от 18.12.2016
+
+Stronghold Kingdoms: World 4 (2012) [Ru/En] (2.0.30.7) License
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Хотите стать бароном, герцогом или королем? Погрузитесь в мир враждующих феодалов, в мир, где создаются и рушатся союзы и целые государства. Примерьте на себя роль средневекового правителя. Трон ждет вас, Государь! Stronghold Kingdom - онлайн игра по мотивам популярной вселенной Stronghold. Геймплей феодальной стратегии вполне предсказуемый - игрокам предстоит развивать (   Читать дальше...   )Тип издания: LicenseРазработчик: Firefly StudiosЖанр: MMO Strategy (Manage, Real-time), IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F4F5EC9753496C2D580BA8DAC902B78AC2B105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966282   (219277) от 17.12.2015
+
+Final Fantasy VI (2015) [Ru/Multi] (1.0) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Final Fantasy VI, вышедшая в свет в 1994 году, стала шестой игрой в легендарной серии Final Fantasy. В числе новшеств была возможность сделать главным героем любого из основных персонажей, судьбы которых переплетаются в этой эпопее, до сих пор чрезвычайно популярной и почитаемой по всему миру. Драматичная, захватывающая дух история, в середине которой происходит (   Читать дальше...   )Тип издания: LicenseРазработчик: Square, TOSE и Matrix SoftwareЖанр: RPG (Japanese-style), Top-downЯзык озвучки: -/-Язык субтитров: Русский, Английский, Немецкий, Испанский, Французский, Португальский, ИтальянскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский, Французский, Португальский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE5D2FB148FF856EEA4076DC329FB771F826B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582651   (219242) от 11.12.2012
+
+Far Cry 3 Deluxe Edition [Ru/En] (RePack/1.02) 2012 | R.G. Shift
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача – выжить любой ценой.
+
+Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить опиумный сон от безумной яви. Сумасшедший остров сводит с ума всех, кто ступит на его берега и нужно быть психом, чтобы здесь остаться. А ты в своём уме?(   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal, Massive Entertainment and Ubisoft ShanghaiЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210A3E5CB56E39093F0C1839D4AC9479D21A7CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342663   (219232) от 05.12.2019
+
+⚡  Опровергнута общепринятая физическая теория
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ученые Стэнфордского университета обнаружили в сверхпроводящих металлах феномен, который пока еще не имеет объяснения. Он ставит под сомнение текущую физическую теорию сверхпроводимости и для своего описания требует квантовые компьютеры. Об этом сообщается в пресс-релизе на Phys.org.Исследователи изучили переходную фазу в сверхпроводнике Bi-2212 (Bi2Sr2CaCu2O8+x), (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526463   (219198) от 11.12.2012
+
+Михаил Русаков | Создание и раскрутка сайта от А до Я [2010] [unpacked]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Как создать профессиональный сайт? Как разместить его в Интернете? Как раскрутить сайт и поднять его посещаемость? Данный видеокурс  подробно отвечает на все эти вопроса. 246 уроков общей продолжительностью более 50-ти часов обучающего видео сделают из Вас настоящего профессионала, который способен создать практически любой сайт (как минимум, 99% сайтов, которые Вы видите в Интернете).Жанр: Создание сайта, Веб-дизайнФормат: unpackedПродолжительность: 50:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD56A2B49ACE227A1DFDBB48391433AC1108F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266964   (218483) от 15.12.2018
 
 Летящие сквозь ночь / Nightflyers (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
@@ -6,7 +190,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +242,7 @@ Bandicam 5.3.3.1893 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +348,7 @@ Joe Cocker - Fire it Up Live (2013) BDRip [720p]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +377,7 @@ The Matrix: Path of Neo / Матрица: Путь Нео (2005) [Ru/En] (1.2) R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +429,7 @@ Tom Clancy's Rainbow Six: Siege (2015) [Ru/En] (1.1) Repack R.G. Механик�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +481,7 @@ Dying Light (2015) [Ru/En] (1.6.2/dlc) Repack R.G. Механики [Ultimate Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -375,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -403,7 +587,7 @@ Test Drive: Ferrari Racing Legends [En/Multi5] (L) 2012 | SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -429,7 +613,7 @@ Darksiders 2: Death Lives [Ru/En] (Repack/u6) 2012 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -457,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -483,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -496,192 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221876   (215766) от 13.08.2023
-
-Белый воротничок / White collar / полный второй сезон (2010) HDTVRip [NewStudio]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он мошенник, вор, фальшивомонетчик и далее по списку. Как раньше без него обходилось ФБР - непонятно. Всё меняется и сейчас он новый агент.. ну, или ещё нет?Жанр: Детектив, Драма, КомедияРежиссер: Jeff EastinАктеры: Мэттью Бомер (Neal Caffrey), Тим ДиКей (Peter Burke), Тиффани Тиссен (Elizabeth), Вилли Гарсон (Mozzie), Александра Даддарио (Kate) и др.Перевод: Negenka.Озвучка: Gutta, Caps.Продолжительность: 0:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673166BE8726342EB77F4E9F06F8552DB2EB132B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 240067   (215747) от 13.08.2023
-
-Теория Большого Взрыва / The Big Bang Theory (2010) WEB-DL [H.264/720p] (сезон 4, серии 1-24 из 24) Кураж-Бамбей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два блестящих физика, Леонард и Шелдон, «великие умы», которые понимают как «работает вселенная». Но их гениальность ничуть не помогает им общаться с людьми, особенно с женщинами. Всё начинает меняться, когда напротив них поселяется красавица Пенни.
-Когда Леонард и Шелдон встречают Пенни, Леонард сразу же начинает интересоваться ею. Он видит в общении с Пенни огромную (   Читать дальше...   )Производство: США, Chuck Lorre Productions, Warner Bros. TelevisionЖанр: комедия, мелодрамаРежиссер: Марк Сендроуски, Энтони Рич, Питер ЧакосАктеры: Джонни Галэки, Джим Парсонс, Кейли Куоко, Саймон Хелберг, Кунал Нэйэр, Мелисса Рауш, Майем Биалик, Кевин Сассмэн, Кэрол Энн Сьюзи, Джон Росс БоуиПеревод: Одноголосый профессиональный (Кураж-Бамбей)Язык озвучки: Русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CEC0A1CEFBE2E1107B7F8B9CA765DE7389CB86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966641   (215501) от 19.12.2015
-
-В США внесли "ВКонтакте" в список "печально известных рынков"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215501.jpg" />
-</div>
-
-
-###  Подробнее
-
-В американский список сайтов-нарушителей интеллектуальной собственности включена соцсеть «ВКонтакте»
-Российские интернет-порталы rapidgator.org, ru tracker.org и vk.com вошли в обновленный американский список «печально известных рынков», где публикуются сайты-нарушители права интеллектуальной собственности. Очередной доклад на эту тему опубликовало ведомство представителя (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426090   (215450) от 23.11.2020
-
-1Password 7 v7.7 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215450.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
-
-Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.12.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8254F4ABF74AFF61713F35A33731D7D117D20BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852936   (215383) от 25.12.2014
-
-Миссия «Серенити» / Serenity (2005) BDRip [H.264/1080p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический «морской волк» и ветеран Гражданской Галактической войны Малькольм «Мэл» Рейнольдс - теперь всего лишь капитан транспортного корабля. Когда они взяли на борт пассажиров - молодого доктора и его странную сестру с телепатическими способностями, ни он, ни его товарищи не предполагали, в какую историю ввяжутся. Спасаясь сразу от нескольких могущественных (   Читать дальше...   )Производство: Barry Mendel Productions | Universal PicturesЖанр: Фантастика, Боевик, ТриллерРежиссер: Джосс УидонАктеры: Нэйтан Филлион, Джина Торрес, Алан Тьюдик, Морена Баккарин, Адам Болдуин, Джуэл Стэйт, Шон Маэр, Чиветель Эджиофор, Дэвид Крамхолц, Майкл ХичкокСубтитры: русские (Full), английские (Full)Продолжительность: 01:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AD028AA4E94B6D90880840B4DB306E7A3185CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343460   (215381) от 07.12.2019
-
-К звёздам / Ad Astra (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалёкое будущее. Несколько лет назад человечество запустило программу поиска внеземной жизни «Проект «Лима»», во главе которой стоял капитан Клиффорд Макбрайд. Последний сигнал экспедиции был зафиксирован в районе Нептуна, и с тех пор о её судьбе ничего не было известно. Сам капитан Макбрайд стал героем и самым известным космонавтом, вдохновившим многих на исследование (   Читать дальше...   )Производство: Китай, Бразилия, США / New Regency Pictures, Bona Film Group, Keep Your HeadЖанр: Фантастика, триллер, драма, детектив, приключенияРежиссер: Джеймс ГрэйАктеры: Брэд Питт, Томми Ли Джонс, Рут Негга, Дональд Сазерленд, Кимберли Элиз, Лорен Дин, Донни Кешаварц, Шон Блейкмор, Бобби Ниш, Лиза Гэй ХэмилтонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (SDH)Продолжительность: 02:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B90B3F5CF474282CA56ABA72578C5FD5305B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425192   (215330) от 23.11.2020
-
-Air Explorer Pro 4.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, Mail.ru, поддержка подключения по протоколам WebDAV, FТP и SFTP.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68ED067DD3A2A2721940108CADD72CE0CF99EB7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

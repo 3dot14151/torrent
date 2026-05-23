@@ -1,3 +1,110 @@
+###  Публикация: 364854   (535058) от 24.07.2011
+
+Honoo Tripper / Fire Tripper / Сквозь огонь [1985, OAV] DVDRip raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Япония. XVI век, гражданские войны.
+В горной деревушке идет бой. Гибнут люди, горят дома. В охваченной пламенем хижине осталась маленькая Судзу. Ее пытаются спасти, но с потолка на девочку рушатся пылающие балки. Огонь отражается в детских глазах... Мгновение – и Судзу исчезает из-под лавины углей.
+Япония. XX век. Ночь в большом городе.
+На берегу реки сидит перепачканная (   Читать дальше...   )Жанр: фэнтези, приключения, драма, историяРежиссер: Такахаси Мотосукэ / Takahashi MotosukeПеревод: WizardЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 48 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 687390   (534955) от 09.08.2015
+
+Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободитель [2013, TV, 24 эп.] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем люди живут в околоземном пространстве, вокруг Солнца раскинулась огромная сфера Дайсона, а человечество все так же рвут на части междоусобицы. Главными силами конфликта являются германская империя Доруссия, Атлантическая Федерация Арус и экономически успешный, но не богатый военными ресурсами Джиор, наследник маленькой, но гордой островной нации. (   Читать дальше...   )Производство: Студия SunriseЖанр: приключения, фантастика, мехаРежиссер: Мацуо КоПеревод: 1) Timecraft; 2) ggЯзык субтитров: 1) Русский; 2) АнглийскийПродолжительность: 24 серии по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47165C6E03700F3E621B0928D7F702B19CC30B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051231   (534443) от 10.09.2016
+
+Junketsu no Maria | Непорочная Мария [2015, TV, 12 эп.] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главной героиней является молодая, но очень могущественная ведьма по имени Мария, которая живёт во Франции периода Столетней войны (1337–1453). Мария ненавидит насилие и готова на многое, лишь бы защитить обитателей своей деревни и предотвратить кровопролитие. Например, она вполне может наколдовать гигантского дракона или послать фамильяра-суккуба к генералам враждующих (   Читать дальше...   )Производство: Студия Production I.GЖанр: комедия, фэнтезиРежиссер: Танигути ГороПеревод: YakuSub StudioЯзык субтитров: РусскийПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E4800650CC2207A62F848AD4F189DA12BF9DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051213   (534442) от 10.09.2016
+
+Вечная Филена | Eien no Filena | Eternal Filena [1992, OVA, 6 эп.] DVD 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Правитель сильной и развитой империи решил воплотить в реальность свои планы по захвату мира. Одной из уничтоженных в ходе этой войны стран, была красивая морская страна Фиросера. В последний день ее существования, король просит своих верных слуг сохранить самое ценное что у них осталось - две Филены. Первая Филена является императорским мечем, его принимает Ут. (   Читать дальше...   )Производство: студия Studio PierrotЖанр: приключения, фэнтезиРежиссер: Нитта ЁсикатаПеревод: Jiyuu Sub TeamЯзык субтитров: РусскийПродолжительность: 6 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5913266FAE720A0FCEF1E3FAB583E182603AC82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312189   (534283) от 03.07.2019
 
 Kubikiri Cycle: Aoiro Savant to Zaregotozukai | Обезглавливающий цикл: Синий савант и Повелитель бессмыслиц  [2016, OVA, 8 эп.] BDrip 720p raw
@@ -6,7 +113,7 @@ Kubikiri Cycle: Aoiro Savant to Zaregotozukai | Обезглавливающий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +167,7 @@ Akatsuki no Yona | Рассвет Ёны [2015, OVA, 3 эп.] DVDrip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +195,7 @@ Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +326,7 @@ Sekai de Ichiban Tsuyoku Naritai! | SekaTsuyo | Wanna Be the Strongest in the Wo
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +352,7 @@ Mahou no Stage Fancy Lala / Magical Stage Fancy Lala / Волшебная сце
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +378,7 @@ Souryuuden / Legend of the Dragon Kings / Легенда о Королях-Др�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +430,7 @@ Pani Poni Dash! OVA / Пани Пони Дэш! OVA [2009] DVDRip upconvert raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +456,7 @@ Tomodachi Game | Игра друзей [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +482,7 @@ Miss Monochrome The Animation 2 | Мисс Монохром 2 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +508,7 @@ Miss Monochrome The Animation 3 | Мисс Монохром 3 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +535,7 @@ Deaimon / Deaimon: Recipe for Happines / Дэаймон [2022, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +561,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +587,7 @@ Gunjou no Fanfare | Fanfare of Adolescence | Фанфары юности [2022, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +613,7 @@ Cue! / Реплика! [2022, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +640,7 @@ Yakusoku no Nanaya Matsuri | Starlight Promises | Звездное паломн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +666,7 @@ Gunjou no Magmell | Магмел синего моря [2019, TV, 13 эп.] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,110 +677,6 @@ Gunjou no Magmell | Магмел синего моря [2019, TV, 13 эп.] HDTV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE111E4DB737D51CD5D0E4077A86782B8CF139C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510448   (522565) от 27.06.2022
-
-Kyoukai Senki | Amaim Warrior at the Borderline | Воины пограничья [2021, TV, 25 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522565.jpg" />
-</div>
-
-
-###  Подробнее
-
-2061 год, Япония находится под оккупацией. Четыре главных мировых экономических силы разделили её на сферы влияние и японцы проводят свои дня в тяготах порабощённого народа. Япония стала передовой линией мира, где каждая экономическая сила правят при помощи особого мобильного оружия AMAIM. Однажды Амо Сииба, юноша, увлекающийся механикой, встречает Гая, автономного (   Читать дальше...   )Производство: Студия Sunrise BeyondЖанр: приключения, фантастика, мехаРежиссер: Хабара НобуёсиПеревод: официальный (1-13 wakanim; 14-24 crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD16B0A9619C600C3133D1A37A980E4CE036B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554945   (521855) от 28.06.2022
-
-Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Show: The Unpopular Girl and the Secret Task | Настоящая героиня [2022, TV, 12 из 12] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хиёри Судзуми покинула свой родной город и поступила в токийскую старшую школу Сакурагаока, чтобы продолжить заниматься лёгкой атлетикой. В поисках подработки Хиёри становится менеджером для своих одноклассников Юдзиро Сомея и Айдзо Щибасаки, которые состоят в айдол-дуэте LIPxLIP. История рассказывает о проблемах Хиори, с которыми она сталкивается в школе, вне школы (   Читать дальше...   )Производство: Lay-duceЖанр: Комедия, сёдзё, повседневностьРежиссер: Хасимото НорикоСубтитры: РусскиеПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F703B8FEAA8C64A7FB60DD5E8A96615925214F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314315   (520212) от 13.07.2019
-
-Peace Maker Kurogane | Железный миротворец (фильм) [2018, Movie] WebRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в 1864 году. 15-летний Тецуноске Ичимура вместе со старшим братом Тацуноске приходит в штаб-квартиру Щинсенгуми (особого самурайского полка, созданного для охраны порядка в Киото и поддержки сёгуна), чтобы вступить в их ряды. Тецуноске мечтает стать сильнее и отомстить мятежникам, которые убили его родителей прямо на его глазах. Однако низкорослого (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Кимия СигэруПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Русские; #3: Multi-subПродолжительность: 110 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAC06D1ACCA91F53A6CB425B91882D6F94FB4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858174   (518109) от 20.08.2015
-
-Strike Witches: Operation Victory Arrow | Штурмовые ведьмы OVA-2 [2014, OVA, 3 эп.] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то в параллельном мире в 1939 году на Землю явились Неврои – бездушные летающие машины, умеющие только сеять смерть и разрушение. Страны двух блоков, до того стоявшие на пороге мировой войны, срочно объединились для противодействия неведомому агрессору. И что же? Любое традиционное оружие середины XX века пришельцам нипочем - армады самолетов, военный флот, сухопутные (   Читать дальше...   )Жанр: приключения, фантастика, эттиРежиссер: Такамура КадзухироСубтитры: русские отФормат: BDRipПродолжительность: 3 из 3 эп., 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D58BE5A0179EFB01D55E2E6F0346657F0C30D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

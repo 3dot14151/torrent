@@ -1,3 +1,81 @@
+###  Публикация: 1648839   (228885) от 28.07.2023
+
+Обитель зла: Остров смерти / Resident Evil: Death Island (2023) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Агент Министерства обороны Леон С. Кеннеди отправляется на задание по спасению доктора Антонио Тейлора от похитителей, но таинственная женщина мешает его преследованию. Тем временем агент B.S.A.A. Крис Редфилд расследует вспышку зомби в Сан-Франциско, причину которой не удается установить. Единственное, что объединяет жертв, это то, что все они недавно посещали остров (   Читать дальше...   )Производство: Япония, Capcom Company, TMS EntertainmentЖанр: мультфильм, ужасы, боевикРежиссер: Эйитиро ХасумиАктеры: Эрин Кэхилл, Кевин Дорман, Мэттью Мерсер, Стефани Паниселло, Николь ТомпкинсПеревод: Многоголосый профессиональный (Лицензия, Jaskier)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EC0BC340B6ADF5FDA50BCEE689713E7EDEECDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735773   (228700) от 18.12.2013
+
+Индюки: Назад в будущее / Free Birds (2013) BDRemux [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Индюк Реджи вырос на обычной ферме, его жизнь была скучной и однообразной, как и у других птиц. Однако он отличался от сородичей тем, что умел пользоваться смекалкой и понимал, зачем его кормят. Поедание индейки на День Благодарения — знаменитая американская традиция, которая определяет смысл существования всех индюков на этой ферме. Однажды у Реджи появилась возможность (   Читать дальше...   )Производство: США / Reel FX Creative Studios, Relativity MediaЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Джимми Хейуорд / Jimmy HaywardАктеры: Оуэн Уилсон, Вуди Харрельсон, Эми Полер, Джордж Такей, Колм Мини, Кит Дэвид, Дэн Фоглер, Джимми Хейуорд, Кейтлин Мехер, Карлос АласракиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1BD1729F0621B85B33415D0BD59DC7A55CCF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735537   (228563) от 18.12.2013
+
+Приключения мышонка / Rodencia y el Diente de la Princesa (2013) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в густых и широких лесах стояло прекрасное королевство Роденсия — место, где обитали удивительные создания и могущественные волшебники. Приключение, которое произойдёт здесь, расскажет нам о любви между неуклюжим учеником мага маленьким мышонком Эдамом и красивой и уверенной мышкой Бри, которым придётся преодолеть много опасных препятствий, для того (   Читать дальше...   )Производство: Перу, Аргентина - Red Post Studio, Instituto Nacional de Cine y Artes Audiovisuales (INCAA)Жанр: Мультфильм, СемейныйРежиссер: Давид Бисбано / David BisbanoАктеры: Эрнан Браво, Наталия Росминати, Рикардо Эланис, Энрике Порсейана, Серджо Бермехо, Освальдо Салас, Гонсало Уртисбереа, Марсело Чиринос, Хосе Луис Пертикарини, Мария Елена МолинаПеревод: ДублированныйПродолжительность: 01:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9205766F866B61EAAD6189148A4E5555486059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583609   (228525) от 15.10.2022
 
 Скуби-Ду и монстр из Мексики / Scooby-Doo! and the Monster of Mexico (2003) BDRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064879CD78B9535C89ADC424B527792A482A73E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513796   (221856) от 30.11.2021
-
-Эллиот / Elliot the Littlest Reindeer (2018) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь: Эллиот — маленькая лошадка с большой мечтой. Ему так хочется занять место одного из северных оленей в упряжке Санты и дарить детям радость! У него есть всего 3 дня, чтобы доказать окружающим, что он достоин стать одним из них, даже если рогами не вышел! Ведь если чего-то хочешь по-настоящему, то чудеса случаются непременно!Производство: Канада, Awesometown Entertainment,Double Dutch International,Elgin Road ProductionsЖанр: Мультфильм, СемейныйРежиссер: Дженнифер ВесткоттАктеры: Джош Хатчерсон, Морена Баккарин, Джон Клиз, Мартин Шорт, Кристофер Жако, Джин Юн, Джефф Данэм, Саманта Би, Джордж Бьюза, Роберт ТинклерПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF0935BBBF0B2E910BAD325F7C0191ADC69C7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513883   (221020) от 01.12.2021
-
-Стражи Арктики / Arctic Justice (2019) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на ЗвероПолюс, где власть находится в лапах больших, сильных и зубастых. Ради собственного превосходства они готовы переделать под себя весь мир. Лишь маленькие, но очень храбрые встанут на защиту не только родного Северного полюса, но и целой планеты. Именно они — настоящие Стражи Арктики.Производство: Индия, Великобритания, Китай, Канада, Япония, Корея Южная, США / AMBI Group, Arctic Justice Movie, Assemblage EntertainmentЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Аарон ВудлиАктеры: Джереми Реннер, Хайди Клум, Джеймс Франко, Джон Клиз, Омар Си, Лори Холден, Анжелика Хьюстон, Алек Болдуин, Донни Фалсетти, Сорайя АззабиПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C93AE7683962AE0C8D47D6F6BBD6A1B7763BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513963   (221009) от 01.12.2021
-
-Трио в перьях / Richard the Stork (2017) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воробей Ричард с рождения воспитывался аистами и считает себя одним из них. Но приходит время мигрировать на юг. Родители боятся, что Ричард не справится с перелетом, и оставляют его дома. Но воробей решает доказать всем, что он настоящий аист. Он сам отправляется в Африку. По дороге он заводит дружбу со странноватой совой и эксцентричным попугаем, мечтающим о большой (   Читать дальше...   )Производство: Германия, Бельгия, Люксембург, НорвегияЖанр: мультфильм, приключенияРежиссер: Тоби Генкель, Реза МемариАктеры: Тильман Дёблер, Cooper Kelly Kramer, Шеннон Конли, Кристиан Гол, Николетт Кребиц, Марк Томпсон, Марко Эссер, Джейсон Гриффит, Маркус Офф, Эрика ШредерПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1489D0185A8FDE9D9A60168A8FF547021138A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

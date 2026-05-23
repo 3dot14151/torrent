@@ -1,3 +1,88 @@
+###  Публикация: 1664785   (184377) от 27.09.2023
+
+Rebelway, Val David | Using Solaris in Houdini (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+РУКОВОДСТВО ПО МАКСИМАЛЬНОМУ РАБОТЕ С HOUDINI С SOLARIS.
+В этом курсе вы узнаете, как профессиональные художники по спецэффектам используют Solaris для облегчения рабочего процесса внутри Houdini.
+
+Этот курс представляет собой углубленную лекцию о том, как использовать Solaris в Houdini.Производство: RebelwayЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 04:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD4CD9C874BF6948E4518ADEA23968966019324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633581   (184266) от 27.09.2023
+
+Rebelway, Corbin Mayne | VEX For Houdini Artists (2020) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс охватывает основы кодирования VEX вплоть до продвинутых методов. Попутно мы продемонстрируем, как VEX практически используется в реальных проектах, и вы узнаете, как создавать различные сложные эффекты с помощью VEX.
+
+VEX — важный навык для создания реалистичных и привлекательных эффектов в Houdini.Производство: RebelwayЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 31:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23385CD904F050912728E63EFD43DC7C90EC4F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592169   (184079) от 21.11.2022
+
+Wingfox, Steffen Hampel | Creating a Photorealistic Japanese Alleyway with Maya and V-Ray (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В этой серии уроков вы узнаете как создать фотореализм, познакомитесь с основами быстрого процедурного шейдинга и, особенно, с тем, как разумно использовать свои шейдеры.
+
+Потому что все хотят добиться фотореализма. Здесь вы можете этому научиться. Кроме того, в этой серии вы получите только факты, никаких повторов, никаких бессмысленных разговоров. Просто факты.Производство: WingfoxЖанр: Компьютерная графикаЯзык озвучки: АнглийскийПродолжительность: 06:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67708FFAAA8B0022D30094D2DC4368448D142110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592180   (184076) от 21.11.2022
 
 Granich.Design, Вадим Гранич | Графсистема UI-дизайн (2022) WEB-DL [RU]
@@ -6,7 +91,7 @@ Granich.Design, Вадим Гранич | Графсистема UI-дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -34,7 +119,7 @@ Wingfox, MikeHong | Creating a photorealistic character Joan of Arc (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +145,7 @@ Wingfox, David Masana Lafuente | 3D Game-Ready Environment In Unreal Engine 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +171,7 @@ CGcircuit, Stefan Bredereck | FX MAYHEM 102 - Smokeless Fire & Flames (2021) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +198,7 @@ CG Forge, Tyler Bay | Pyro III – Large Explosions (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +225,7 @@ Enterclass, Анна Иванова | Ахалтекинец (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -166,7 +251,7 @@ Enterclass, Сергей Лысый | Солнце за костелом (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -192,7 +277,7 @@ New Masters Academy, Steve Huston | Художественная анатоми�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -218,7 +303,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 1: Geometry Based Simulations (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +331,7 @@ Creature Art Teacher, Aaron Blaise | Как рисовать хищных пти
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -272,7 +357,7 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 2 : Demon Fire Trails (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +386,7 @@ Enterclass, Константин Стерхов | Путешествие в Ки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -327,7 +412,7 @@ CGcircuit, Arihant Gupta | Houdini Essentials - Flip Rendering (2021) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -355,7 +440,7 @@ GeekBrains | Создатель игровой вселенной: геймди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -381,7 +466,7 @@ Granich.Design, Алиса Брюква | Granich Midjourney (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +493,7 @@ Rebelway, Saber Jlassi | Introduction to Houdini For FX Weeks 1 – 6 (2018) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -437,7 +522,7 @@ Blender Studio, Simon Thommes | Geometry Nodes from Scratch (2022) PCRec [EN / E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -464,7 +549,7 @@ FlippedNormals, Ben Erdt | Advanced Character Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -491,7 +576,7 @@ Udemy, Artem Daysun | Create a 3D Game Asset in Blender & Substance Painter - Vi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -518,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -547,7 +632,7 @@ VFX Grace | Houdini Tutorial Volcanic Eruption (2021) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -573,7 +658,7 @@ FlippedNormals, Chunck Trafagander | UV развёртка для игр в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -599,7 +684,7 @@ CGcircuit, Diogo Guerreiro | The Faroe Islands in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -612,87 +697,6 @@ CGcircuit, Diogo Guerreiro | The Faroe Islands in Houdini (2021) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:142DE6E6E32C03E17FA4AFBE7610C7B32D9B5A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665216   (182863) от 29.09.2023
-
-Gumroad, Emilis Baltrusaitis | Monsoon – Tutorial Large Scale Environment Creation (2018) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробный урок, посвященный моей недавней работе «Муссон».
-Целью этого урока является создание в одиночку профессионально выглядящего изображения, для создания которого обычно требуется команда художников. Используемые методы, как 2D, так и 3D, разработаны для того, чтобы предоставить нам наилучший результат в кратчайшие сроки.
-Помимо создания концепции, я показываю, (   Читать дальше...   )Производство: GumroadЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 24:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900F66D56112020508C534AFEE640927F544F672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664573   (182845) от 29.09.2023
-
-Wingfox, Ors Barczy | Use Arnold for Lighting, Rendering and Compositing (2021) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182845.jpg" />
-</div>
-
-
-###  Подробнее
-
-There is a lot of lighting knowledge that you cannot have access to in one organized tutorial. I can give you a solution for that because my lectures are following an understandable path from the very basics through some complex to advanced lighting, shading, rendering, and compositing workflow (in ACES Colour Space) and show some of my own artistic approaches to (   Читать дальше...   )Производство: WingfoxЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 22:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B7D2612CD467D8872101E7A411AEC65C6331A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665171   (182745) от 29.09.2023
-
-Liveclasses, Дмитрий Ларионов | Fusion в DaVinci Resolve: быстрый старт (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как работать с Fusion в DaVinci?
-...Этот класс посвящен закладке Fusion в DaVinci Resolve, предназначенной для наложения визуальных эффектов, вещательной графики и 3D-анимации. Благодаря огромному набору функций Fusion поможет вам качественно изменить любой материал, будь то эфирная программа, сериал или полнометражная художественная картина!...В этом классе вы научитесь (   Читать дальше...   )Производство: LiveclassesЖанр: КомпозитингЯзык озвучки: РусскийПродолжительность: 03:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46B090D407AA331D842BAC7F82D35A79695FEEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

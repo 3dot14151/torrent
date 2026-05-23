@@ -1,3 +1,55 @@
+###  Публикация: 1443046   (1033866) от 04.02.2021
+
+Знаете ли вы, что? (2021) SATRip (выпуски 1-3) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярное шоу, которое рассказывает о судьбоносных изобретениях человечества, которые подсказала сама природа. В каждом выпуске зрителей ждут встречи с самыми редкими и необычными обитателями нашей планеты, чьи навыки и способности взяли на вооружение инженеры и конструкторы. Ведущий программы - инженер и изобретатель Алексей Иванченко - в легкой и доступной (   Читать дальше...   )Производство: Россия, Рен ТВЖанр: Документальный, познавательный, научно-популярныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: выпуски x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654C09E14088C6CD62B92971516810ED7611E0EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448339   (1030858) от 17.02.2021
+
+Короли разрушения / Scrap Kings (2017) HDTVRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Мега-Проекты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Взрывной сериал о работе специалистов по сносу и переработке рассказывает о том, как они взрывают, ломают и рушат здания, корабли, автобусы и мосты. Короли разрушения взрывают, разбивают и прокладывают себе путь сквозь различные объекты, которые отжили свое. От гигантских башен и заводов металлопроката до самолетов, поездов и автомобилей. Каждый дюйм материала разбирается, (   Читать дальше...   )Производство: Великобритания, back2back Productions LtdЖанр: Документальный, познавательный, научно-популярныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422B5E7900877842EAF693D4BE69612243C747B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448980   (1030320) от 19.02.2021
 
 Инопланетные миры / Alien Worlds (2020) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
@@ -6,7 +58,7 @@
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +320,7 @@ NG: Свидетели катастроф / Witness to Disaster (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +450,7 @@ NGW: Удивительные большероты / Incredible Gulpers (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +477,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEBRi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +555,7 @@ BBC: Это Слейд / It's Slade (1999) TVRip [EN]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +581,7 @@ BBC: Маленькие гиганты / Tiny Giants (2014) UHD BDRemux [H.265/2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +607,7 @@ NG. Самые лучшие суперкары / Ultimate Supercar (2019) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,60 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64B691E7873E8701047D9CC996DF0EC37ED68694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460857   (1022204) от 07.04.2021
-
-Чачапойя. Раскрытая тайна погибшей цивилизации / Chachapoya. Solving the Mystery of a Lost Civilisation (2008) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чачапойя — доколумбова культура, существовавшая в Перу примерно в 900—1470 гг. н. э.
-Находилась на плато на территории современного департамента Амаcонас.
-Жители данной культуры создали множество монументальных каменных памятников: Куэлап, Гран-Пахатен, Лагуна-де-лос-Кондорес и др., а также большое количество саркофагов и мавзолеев в труднодоступных местах.Производство: Великобритания, Nat Geo TelevisionЖанр: Документальный, познавательный, историяРежиссер: Макс СаломонПеревод: Одноголосый  закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E450D3230E9B76B248EB734AED837F23C0FCC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456556   (1022166) от 07.04.2021
-
-Великие изобретения. / Great Inventions (2020) HDTV [H.264/1080i] (сезон 1, серии 1-5 из 35) (Обновляемая)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Метрополитен, мосты, история туалета, первая бензиновая машина, и многие другие изобретения человечества в новом документальном цикле: "Great Inventions".Производство: Голландия, Германия, World Media Rights Productions, Doc.station Medienproduktion, Off the Fence, k22 Film & Entertainment, ZDF EnterprisesЖанр: Документальный, познавательный, научно-популярныйРежиссер: Ханна РоджерсПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: серии x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB198CDC90B0A16DE7197630449DAA6FB7BEE4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

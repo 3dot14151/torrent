@@ -1,3 +1,107 @@
+###  Публикация: 1302973   (1023383) от 31.03.2021
+
+Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love is War | Кагуя: В любви как на войне [ТВ-1][2019, TV, 12 эп.] BDrip 1080 raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Высокое происхождение, привлекательная внешность, учёба в академии для будущей элиты страны… У Миюки и Кагуи было всё. Когда их избрали главой и заместителем главы ученического совета, только ленивый не говорил, что молодые люди будут чудесной парой. И хотя втайне герои считали так же, за целых полгода ни Миюки, ни Кагуя не открылись друг к другу — гордость мешала (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: комедия, романтикаРежиссер: Омата СинъитиПеревод: 1) Cqur Far; 2) SovetRomantica; 3) WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E6AB3880001739DA52B83448696D2CBF8A14B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381812   (1023353) от 31.03.2021
+
+Black Clover (2017) | Чёрный клевер [2017, TV, 91-170 из 170 + 8SP] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Демоны никогда не сулили ничего хорошего. Издавна все твердят беречься от них, люди создают различные обереги, чтобы спасти свою душу. Но однажды демоны и вовсе распоясались, и начали представлять собой нешуточную угрозу для всего человечества, да такую, что вся раса людей оказалась под угрозой вымирания. Но спасение пришло, откуда не ждали. Один волшебник решил (   Читать дальше...   )Производство: Студия Studio Pierrot / studioぴえろЖанр: приключения, фэнтезиРежиссер: Ёсихара ТацуяПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 170 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614C686E30214980368545774939724118F78F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439170   (1023210) от 01.04.2021
+
+Tenchi Souzou Design Bu | Heaven's Design Team | Небесное бюро дизайна [2021, TV, 13] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бог сотворил свет, небо и землю и собирался сотворить животных... Но ему быстро надоело, и он нанял для этого подрядчика. Небесное бюро дизайна — агентство, которое создаёт жизнь по заказу своего клиента, Бога. Почему этот зверь выглядит так? Следите за поисками и успехами дизайнеров и инженеров, которые должны исполнять сумасбродные заказы Господа!Производство: Студия Asahi Production / 旭プロダクションЖанр: комедияРежиссер: Масуй СойтиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A428C8649FAC5A7393711EABA392DB58CE8CD2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441327   (1023208) от 01.04.2021
+
+Kemono Jihen | Инцидент с монстром [2021, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Детектив Инугами, специализирующийся на паранормальных явлениях, прибывает из Токио в одну отдалённую деревню для расследования череды странных инцидентов. Там убитые кем-то животные необъяснимым образом очень быстро гниют. В деревне Инугами знакомится со странным пареньком по имени Кабанэ, которого избегают окружающие. Инугами и Кабанэ вместе предстоит расследовать (   Читать дальше...   )Производство: Студия Ajia-dou / 亜細亜堂Жанр: Приключения, мистика, демоныРежиссер: Фудзимори МасаяПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CEBB3DA3C73A12A04415C0F2C3382F7280D8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416078   (1023207) от 01.04.2021
 
 Osomatsu-san (2020) | Mr. Osomatsu 3rd Season | Осомацу-сан [ТВ-3] [2020, TV, 25] WEBRip 720p raw
@@ -6,7 +110,7 @@ Osomatsu-san (2020) | Mr. Osomatsu 3rd Season | Осомацу-сан [ТВ-3] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Aya to Majo | Earwig and the Witch | Ая и ведьма [2020, Special, 1 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Majutsushi Orphen Hagure Tabi: Kimluck Hen | Sorcerous Stabber Orphen: Battle of
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Log Horizon 3 / Лог горизонта [ТВ-3] [2021, TV, 12] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +270,7 @@ SK∞ | SK8 the Infinity | На скейте в бесконечность [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +296,7 @@ Super Seishun Brothers | Супербратья Сэйсюн [2013, TV, 14] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +324,7 @@ Gekidol: Actidol Project | Театрайдол [2021, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +351,7 @@ Horimiya | Хоримия [2021, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +377,7 @@ Slam Dunk: Zenkoku Seiha da! Sakuragi Hanamichi | National Champions, Sakuragi H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +403,7 @@ Slam Dunk: Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi | Слэм-данк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +429,7 @@ Slam Dunk | Слэм-данк (фильм первый) [1994, Movie] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +455,7 @@ Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Сл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +481,7 @@ Slam Dunk | Слэм-данк [1993, TV, 101 из 101] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +507,7 @@ Love Rice 2 | Love Kome: We Love Rice Nikisaku | Мы любим рис 2 [2017,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +533,7 @@ Musekinin Galaxy Tylor | Безответственная галактика Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +559,7 @@ Gokushufudou | The Way of the Househusband | Путь домохозяина [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Kaitou Saint Tail | Mysterious Thief Saint Tail | Таинственная гр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Romeo no Aoi Sora | Romeo's Blue Skies | Голубые небеса Ромео 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Cutie Honey Universe | Cutey Honey Universe | Вселенная Милашки 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +666,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,111 +677,6 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 эп.] BDRip 1080p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A77121F596FB2C1BDF2EFEB946B17D999FDA95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462965   (1020779) от 16.04.2021
-
-Gekijouban Fate/Stay Night: Heaven's Feel - Spring Song | Судьба: Ночь схватки. Прикосновение небес (фильм третий) [2020, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война Священного Грааля: жестокая битва между магами, в которой семь мастеров и их призванные слуги сражаются за Святой Грааль, магический артефакт, который может даровать победителю любое желание. Почти 10 лет назад Последняя битва четвертой войны Святого Грааля нанесла ущерб городу Фуюки и унесла более 500 жизней, оставив город опустошенным.
-Широ Эмия, переживший (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Судо ТомонориПеревод: WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 125 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E073DFFB6B3F76AAAA510E3FB385B4DAFCA58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463008   (1020772) от 16.04.2021
-
-Rokudenashi Blues | Racaille Blues | Рокудэнси блюз [1992, Movie] DVDRip 404p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маэда - новый ученик средней школы Тейкен. Он заикается, когда нервничает, и довольно неуклюж. Его сразу же заметили, потому что он ударил учителя во время вступительной церемонии. Некоторые клубы стремятся завербовать его, поскольку видят в нем силу, которую они могут использовать, чтобы отыграться с другими клубами. Но Маэда - одиночка, и у него есть только одна (   Читать дальше...   )Производство: Студия Toei Animation / 東映アニメーションЖанр: комедия, драмаРежиссер: Ёсидзава ТакаоПеревод: Sengoku TeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93678A31658948B596B513D932B213B7057ADE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463505   (1020480) от 18.04.2021
-
-Himouto! Umaru-chan R | Beautiful Little Sister! Umaru-chan R | Двуличная сестрёнка Умару [ТВ-2] [2017, TV, 12 эп. + 2 OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020480.jpg" />
-</div>
-
-
-###  Подробнее
-
-У всех старших детей в любой семье как минимум одна общая головная боль - младшие братья и сестры, за которыми нужен глаз да глаз. Со стороны может показаться, что юноше по имени Тайхэй Дома подобных переживаний не понять: в конце концов, его младшая сестренка, старшеклассница Умару, отличается и умом, и сообразительностью, и красотой, и изящностью, и морем других (   Читать дальше...   )Производство: Студия Doga Kobo / 動画工房Жанр: комедия, повседневностьРежиссер: Ота МасахикоПеревод: YakuSub; Krasialex (OVA1); SovetRomantica (OVA2)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 2 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA87B694703C55ACA8AA47B898B81D1F8DCF9C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463475   (1020457) от 18.04.2021
-
-Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | Моя девушка девственна, но извращенка до мозга костей [2017, TV, 10 + OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харука Щинозаки — обычный старшеклассник, который идеализировал красивую и прилежную старосту своего класса Акихо Косаку. Однажды, решив, что терять ему всё равно нечего, он признаётся ей в своих чувствах, и, к его удивлению, Акихо соглашается с ним встречаться. При этом девушка подходит к отношениям со всей серьёзностью, правда, суть иногда не улавливает, так что (   Читать дальше...   )Производство: Студия Studio Barcelona / ディオメディアЖанр: комедия, эттиРежиссер: Нагаяма НобуёсиПеревод: RyujiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 10 эп. + OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81AC6C4C960CDD31F1DD3F9F74F3C9DA679D997
 ```
 
 https://mybot314.ru/tekegram_catalog/

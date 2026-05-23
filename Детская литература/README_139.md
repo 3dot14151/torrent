@@ -1,112 +1,3 @@
-###  Публикация: 1255999   (359137) от 20.10.2018
-
-Майкл Морпурго | Адольфус Типс и её невероятная история (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор более сотни книг, Майкл Морпурго живёт на тихой ферме в Девоне и, по собственному признанию, прежде чем перенести свои истории на бумагу, рассказывает их своим лошадям и собакам. Ведь в большинстве его книг животным отведена очень важная роль. Делая их героями своих приключенческих произведений, автор говорит о беззащитной красоте и хрупкости мира, его зависимости (   Читать дальше...   )Жанр: Проза для детей, Детские приключенияПеревод: Анна ОлефирФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB69692872A5FEE63C0455748BEBAC379AEAD86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255998   (359038) от 20.10.2018
-
-Майкл Морпурго | Рожденный бежать (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождённый бежать» – трогательная история рыжего пса, принадлежащего к благородной породе английских борзых, грейхаундов, созданных для охоты и скачек. Однако, несмотря на высокую кровь, этот пёс ещё при рождении столкнулся с необходимостью бороться за жизнь. И эта битва была бы про играна, ещё не начавшись, если бы не мальчик по имени Патрик, спасший выводок щенят (   Читать дальше...   )Жанр: Проза для детейПеревод: А. М. БродоцкаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B71C14F08940B2053718BEA2A4E716FDC9E6197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417523   (358410) от 20.10.2020
-
-Сергей Никитин | Приключения елочных игрушек (1973) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка и рассказы для детей.
-
-Творчество владимирского писателя Сергея Никитина широко известно во всем мире. Он — мастер рассказа — продолжил литературную традицию русской новеллы.
-(   Читать дальше...   )Жанр: Детская литература/СказкаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6153C99184792744435405FA8F825C2FA0A7412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071769   (357349) от 11.11.2016
-
-Александр Батров | Завтра – океан (1954) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все свое творчество А. М. Батров посвятил детям. Многие писатели среднего и младшего поколения вырастали, зачитываясь его книжками. Но во много раз больше число его читателей, излеченных романтикой моря, которая буквально пронизывает все произведения Александра Батрова, стали моряками.
-
-"...Море навеяло на них теплую целебную дрему. Вода до самого дна просвечивалась (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5551AF4BE9BE49F44B6C3767DB8E8BC3E2E9AC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071766   (357339) от 11.11.2016
 
 Владимир Тан-Богораз | Северные рассказы (1958) [PDF]
@@ -115,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -515,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -625,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -681,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -692,6 +583,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54EE3DA532584F141F1AF417E8D18654FA193014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072280   (352155) от 13.11.2016
+
+Геннадий Яковлевич Снегирёв | Собрание произведений для детей [30 книг] (1959—2011) [PDF, DJVU, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Геннадий Яковлевич Снегирёв (1933—2004) — советский писатель, автор детских книг. Родился в Москве. Отец его погиб в лагерях, мама работала библиотекарем при паровозном депо Октябрьской железной дороги. Мальчик с детства узнал, что такое нужда и голод. После начальной школы учился в ремесленном училище. Во время войны жил в эвакуации в Поволжье, под Чапаевском. По (   Читать дальше...   )Жанр: Детская проза, Сказка, СтихиФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD204EF56307A6B90553F4B349F422610EC658D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072656   (352016) от 13.11.2016
+
+Григорий Остер | Права детенышей. Перевод Конвенции о правах ребенка на детский язык (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+У детей есть права – это понятно любому взрослому. А вот понятно ли самим детям, какие права у них есть? Пожалуй, взрослые не всегда уделяют достаточно времени, чтобы объяснить детям их права. А даже если они и захотят это сделать, то уж слишком заумным языком эти самые права написаны… Поэтому замечательный детский писатель Григорий Остер взялся перевести некоторые (   Читать дальше...   )Жанр: Литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED6E3289F761DCCF04079CC57A45112A1E73C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072470   (352011) от 13.11.2016
+
+Сергей Алексеев | Собрание сочинений в 3 томах (1982-1984) [DJVU, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В I том Собраний сочинений С. П. Алексеева входят ранее издававшиеся повести и рассказы из русской истории: «Грозный всадник», «Небывалое бывает», «История крепостного мальчика», «Жизнь и смерть Гришатки Соколова», «Рассказы о Суворове и русских солдатах», «Птица-Слава».
+
+Во 2-й том Собрания сочинений С. П. Алексеева входят повести и рассказы, созданные на историко-революционные (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D651171E878B610887F96848765DEB6242862376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256684   (351997) от 23.10.2018
+
+Калеб Крисп | Остановите Айви Покет! (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После трагического происшествия в Баттерфилд-парке Айви Покет оказалась в доме гробовщиков, которые взяли её под опеку. Но опасные приключения на этом не закончились. Алмаз Тик-так открыл страшную тайну: Ребекка, которую Айви считала погибшей, оказалась в Проспе, другом мире, где её подвергают ужасным испытаниям. Айви во что бы то ни стало надо проникнуть туда и (   Читать дальше...   )Жанр: Городское фэнтези; Фантастика для детейПеревод: Наташа АллунанФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2CD645DE9C13FD4B8C2C0C7C5B3F7792F983C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,24 +1,137 @@
-###  Публикация: 1524963   (130331) от 18.01.2022
+###  Публикация: 1681642   (132744) от 03.12.2023
 
-Wondershare PDFelement Pro 8.5.11 [Multi/Ru]
+Сибирская Благозвонница | Избранные поучения святых отцов о вере (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Основа нравственной жизни христианина есть вера во Христа как Богочеловека, Искупителя и Спасителя. Верующий в Сына имеет жизнь вечную, а не верующий в Сына не увидит жизни, но гнев Божий пребывает на нем (Ин. 3, 36). О том, как должно возгревать в себе веру, мы можем поучиться у святых отцов. Как говорил преподобный Максим Исповедник, «поревнуем святым подвижникам (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EFDABEA6D0448C601509BA72A95BED5516A3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681422   (132743) от 03.12.2023
+
+Slice of Sorrow - Covered with Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Occult Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Be Quick Or Be Dead [00:03:29]
+02. Harvester of Sorrow [00:05:45]
+03. Rosewell 47 [00:04:10]
+04. Rock The Night [00:03:58](   Читать дальше...   )Жанр: Occult Heavy MetalПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349EEC99EC82660175AA87D8D34733684CC4AAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681651   (132742) от 03.12.2023
+
+Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Nuclear — чилийская трэш-метал-группа, основанная в Арике, Чили, в 1998 году.2006 - Heaven Denied
+2008 - Ten Broken Codes
+2010 - Jehovirus
+2015 - Formula for AnarchyЖанр: Thrash MetalПродолжительность: 03:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681550   (132740) от 03.12.2023
+
+Чудо техники с Сергеем Малозёмовым (03.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+С легким паром! Сауны в квартире: кто, зачем и с какими последствиями сооружает такое в ванной, коридоре и даже в гостиной? Как часто можно совершать банные процедуры, чтобы не подорвать здоровье?
+ В чем заключается магия лазеров, как они помогают восстанавливать слух, рисовать картины и показывать кино? И чем все это объясняется?
+ Правда ли, что газовые уколы помогают (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEAB0E39179DA2F935C716D753ABE830284B87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595469   (132739) от 28.12.2012
+
+EmEditor Professional 12.0.8 Final [Multi/Русский]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat и другими приложениями PDF.
-Примечание:
-Плагины не установлены.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+EmEditor это быстрый, легкий, расширяемый, легкий в использовании текстовый редактор для Windows.
+EmEditor быстро запускается и легко выполняет все операции. В скорости запуска, открытии файлов, поиска и замены EmEditor превосходит большинство других текстовых редакторов. EmEditor поддерживает юникод (UTF-16, UTF-8 и UTF-7) и множество международных кодировок.
+EmEditor Professional способен открывать очень большие файлы — до 248 Гбайт или до 2,1 миллиарда строк — даже на ПК со скромным объёмом памяти. EmEditor также умело обращается с файлами более 248 Гбайт, открывая часть файла с помощью управления крупными файлами. Есть возможность вертикального выделения текста.
+Для EmEditor доступны подключаемые плагины.Название программы: EmEditor ProfessionalЯзык интерфейса: Multi/Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:518A0801CD14FC54956F40F4B508E35AF8CF8966
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +139,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525013   (130329) от 18.01.2022
+###  Публикация: 1681614   (132738) от 03.12.2023
 
-TunesKit Video Converter 2.1.0 [En]
+Наша банда. Дядя дяди Тома / Our Gang. Uncle Tom's Uncle (1926) WEBRip
 
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Универсальный видео конвертер, видеоредактор и DVD риппер, который может конвертировать любое видео в 250 форматов с 60-кратной скоростью без потери качества. Вы также можете использовать его для редактирования видео или копирования любых защищенных или коммерческих DVD-фильмов в любой формат на Mac.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: © 2021 TunesKit StudioПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и Японский
+Банда ставит свою собственную версию «Хижины дяди Тома» в сарае Микки. Но мать Джо считает, что задний двор нуждается в уборке, и спектакль регулярно прерывается. Да и другие проблемы...
+И вот еще что - если вдруг, кто-то сам не поймет. По ходу спектакля ребята путают слово "Soul" - душа, со словом "Sole" - подошва. И вообще в этих фильмах полно (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Джей Р. Смит, Клифтон Янг, Дэвид Дюран, Джэнни ХоскинсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:27:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27BDA215856C6C57D93C61AAD36D3732F115B909
+magnet:?xt=urn:btih:F41A1A250F828342C3E7AA4A8908C502DD938ADC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,190 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524925   (130328) от 18.01.2022
+###  Публикация: 595273   (132734) от 28.12.2012
 
-TunesKit AceMovi Video Editor 4.8.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130328.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86E3D60639391459F6C06A4ACF0B7C86A76F6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524857   (130327) от 18.01.2022
-
-Anita O'Day - Complete Signature & London Recordings (1942 - 1950) 2CD, 2001, The Jazz Factory [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130327.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I'm Going Mad for a Pad [3:08]
-02. And Her Tears Flowed Like Wine [3:09]
-03. And Her Tears Flowed Like Wine [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B457CFA3AFE9E5CD117A547A5A8915831ACB7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490923   (130326) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13511D874525193F13BFE91E00D3C1C8D21463A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490946   (130325) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 9
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525024   (130324) от 18.01.2022
-
-VideoSolo Screen Recorder For Mac 2.0.50 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того, какие виды экранных действий на вашем компьютере, например, онлайн-видео игры, скайп-чат, демонстрации, вы можете использовать VideoSolo Screen Record для записи их на видео.
-• Захват экрана на вашем компьютере в HD-видео
-• Запишите звук с компьютерной системы и микрофона одновременно
-• Сделайте снимок определенных областей экранаТип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C1F18271E2226F6EC869ACEA8BC9D586C47853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524743   (130323) от 18.01.2022
-
-VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Yeah Uhhh Oui (3:00)
-02. Weber & Weber - Speaking Without Words (4:49)
-03. Svendaq - Blue Bossa (6:01)
-04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490701   (130322) от 02.05.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (01.05.12)
+New year wallpapers 2013 (27.12.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2479
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
+magnet:?xt=urn:btih:DA1AE9D3030B4C4CB37EA5A22DE2A9EA228E6634
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,51 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525008   (130321) от 18.01.2022
+###  Публикация: 595291   (132732) от 28.12.2012
 
-Клоун Коко курильщик / Koko Smokes (1928) TVRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курение это зло, бесспорно. Надо бросать эту вредную привычку, одни неприятности от нее.Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9496138982305628F5D84BD9EEA024DE61E495F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490699   (130320) от 02.05.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (01.05.12)
+[Wallpapers] Cars Wallpapers №6
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
+Обои машин для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
+magnet:?xt=urn:btih:B60D24ADB7EBFCD472E562BF34C5AE33AE87AED5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,28 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524745   (130319) от 18.01.2022
+###  Публикация: 595236   (132731) от 28.12.2012
 
-VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Lo-Fi>
+Журнал | Маленькая Diana №2 [февраль 2013] [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Krishna Singh - The Spirit Of Buddha (Heart Chakra Mix) (4:57)
-02. Ragi - Double Dream (Vocal Mix) (2:43)
-03. Sarod Sapla Glee - Two Spirits (India Radio Cut) (2:39)
-04. Green Taboo - Oriental Vibes (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 00:38:57
+Популярный журнал по вязанию "Маленькая Diana" представляет коллекцию женского трикотажа для холодного время года. Девиз этого номера: "Яркие краски против зимней скуки!" Тёплые модели, связанные из мягкой пряжи жизнерадостных расцветок, прекрасно скрасят холодные, ветреные дни. Также в номере: плед и новые узоры в вашу коллекцию.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
+magnet:?xt=urn:btih:D8288387F71CA68A5DDE4F78C307A8C66FDD8236
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,25 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524989   (130318) от 18.01.2022
+###  Публикация: 1681458   (132730) от 03.12.2023
 
-PDF Reader Pro Edition 2.8.7 [Multi/Ru]
+Военная тайна с Игорем Прокопенко (02.12.2023) WEB-DL [H.264]
 
->>Архив торрентов
->>Архив 4Apple
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
+magnet:?xt=urn:btih:B3D33490CB9A427AAFA6D9271B5643903F7994F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,25 +270,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491039   (130317) от 02.05.2012
+###  Публикация: 1681395   (132728) от 03.12.2023
 
-[Wallpapers] Girls Desktop Wallpapers Pack 11
+Xtrueder - Забытая Станция (2023) [MP3|320 Kbps] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
+01 - Радио 1 [00:00:44]
+02 - Ритуал [00:03:27]
+03 - Посейдон [00:03:39]
+04 - Маяк [00:01:51](   Читать дальше...   )Жанр: Rock, Drone MetalПродолжительность: 00:33:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B693A7AF720CB65836512B9FE2D130AD9D3689C3
+magnet:?xt=urn:btih:8296B1D4D046C02D7F2EF53365418E8A5ADCE63A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,28 +299,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524908   (130315) от 18.01.2022
+###  Публикация: 1681586   (132723) от 03.12.2023
 
-VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+Своя игра (03.12.2023) WEBRip [H.264/1080p]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Oliver Schlolaut, Frank Doberitz - Can't You Hear Me (Enigmatic Vocal Chillout Mix) (5:02)
-02. Artenovum, Emma Laveigh - Cosmic Fade (5:01)
-03. Richard Bonnee - Ma Vie (Short Electronic Deep Mix) (3:25)
-04. Nightzoom - Silence (Ambient Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:22
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
+magnet:?xt=urn:btih:DF8BA006534A2487E711452964EBAD5BBE3BCA77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,60 +325,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491044   (130314) от 02.05.2012
+###  Публикация: 595239   (132721) от 28.12.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490866   (130313) от 02.05.2012
-
-Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
+Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (1:36)
-02. Before the Storm (7:40)
-03. Kurt of Koppigen (4:52)
-04. Grimhilde (4:55)
-05. The Dragonslayer (7:40)
-06. The Lord of Halten (5:17)
-07. Ambush in Langenthal (5:42)
-08. Song of Agnes (4:08)
-09. Distant Sky or the Wild Hunt (6:50)
-10. The Lost Chapter (6:03)(   Читать дальше...   )1998Жанр: Dark Power MetalПродолжительность: 01:06:55
+01. Silent Night [04:06]
+02. Santa Claus Is Coming To Town [04:06]
+03. Have Yourself A Merry Little Christmas [04:02]
+04. Joy To The World [04:07]
+05. Ave Maria (Duet with Placido Domingo) [04:42]
+06. The Christmas Song [04:10]
+07. O Holy Night [04:54]
+08. White Christmas [03:44]
+09. This Is The Time (Duet with Wynonna) [04:05]
+10. Love Is The Power [05:37]Жанр: Pop rock, ChristmasПродолжительность: 00:43:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,28 +360,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524904   (130312) от 18.01.2022
+###  Публикация: 1681443   (132720) от 03.12.2023
 
-VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Karen Gibson Roc, Johannes Huppertz - Fly Light (4:13)
-02. Marie Therese - Lost Somewhere (4:04)
-03. Ann Grace - Sentimenti (5:31)
-04. Mare et Monti - Sans Soucis (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:38
+A1 The Show Must Go On
+A2 Friends
+A3 Stallion In The Dawn
+A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F96FFE9240AE24DE30D86FAFC7CED42A1FAB773C
+magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -495,28 +389,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524864   (130310) от 18.01.2022
+###  Публикация: 1681435   (132719) от 03.12.2023
 
-VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+Ирина Кова | Цинична Умна Успешна (2023) [MP3, Инга Брик]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Dave Neville - Sun Is Coming (Smooth Jazz Mix) (6:47)
-02. Soundset City - Sweep Along (Groovy Lounge Mix) (4:07)
-03. For Found Future - Drops of the Future (Smooth Ambient Mix) (6:35)
-04. Marie Therese - Call of Sirens (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:53
+Каждый человек, заинтересованный в своем успехе, в той или иной степени является «социальным альпинистом». Но далеко не все знают, как добраться до вершины Олимпа и добиться по-настоящему выдающихся результатов. Книга Ирины Ковы – это практическое руководство по социальному альпинизму, которое поможет вам:
+
+– подняться над коллегами и конкурентами в своей сфере; (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 02:28:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E8BBAFF9740FA6E2DB6377E168914A23F6806A9
+magnet:?xt=urn:btih:4FC32D5DA61CD34AE19D596E9E9A5166BAE4FBB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -524,29 +417,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491033   (130309) от 02.05.2012
+###  Публикация: 595276   (132716) от 28.12.2012
 
-[Wallpapers] Nature Desktop Wallpapers Pack 6
+VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 AD Men's - Жара (extended mix)
+02 Aerofeel5 - Disco In The Hell (original mix)
+03 Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev remix)
+04 Chris Decay & Re-lay - Love Junkie (Original Summer Mix Edit)
+05 Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
+06 LTN - Never Let Me Go (Beat Service remix)
+07 MMDance feat. Dj Smash - Суббота
+08 Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
+09 Горячий шоколад - Стены (Andry Makarov Club remix)
+10 Kash Trivedi - Darkness (LinBit remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92892936285DE0D398EDF8659A8461B97C4E784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681543   (132715) от 03.12.2023
+
+Sandboxie 5.67.3 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Desktop Wallpapers Pack 6Название: Nature Desktop Wallpapers Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C78B37F7530EF3773DF88297CF7B273B0309EEAB
+magnet:?xt=urn:btih:1917434D0AEAC5972C0BDB28657DC24F908719AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,28 +478,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524906   (130308) от 18.01.2022
+###  Публикация: 1680882   (132713) от 03.12.2023
 
-VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv, 2023, Century Media[MP3|320 Kbps] <Doom-Death Metal, Middle Eastern Folk, Progressive Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Frank Doberitz - Sea of Love (Cosmic Model Instrumental Mix) (4:40)
-02. For Found Future - Dreamlands Harmony (Chillout Melody Mix) (4:28)
-03. Bernon - Cool Day of April (Cosmic Chillout Mix) (5:26)
-04. Wallenski - Reise (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:30
+01. Mabool (The Flood) (7:15)
+02. The Storm Still Rages Inside (9:05)
+03. Like Orpheus (4:38)
+04. The Kiss of Babylon (6:18)(   Читать дальше...   )Жанр: Doom-Death Metal, Middle Eastern Folk, Progressive MetalПродолжительность: 01:23:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
+magnet:?xt=urn:btih:F6D927F3F1D708DACA5075AA4BE60D1254745861
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,25 +507,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524952   (130306) от 18.01.2022
+###  Публикация: 1681622   (132711) от 03.12.2023
 
-ProFind 1.9.4 [En]
+VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila x Alex M.O.R.P.H. feat. Cheryl Barnes - Eye Of The Storm (Extended Mix) [7:55]
+02. MurZo - Kiss The Night (Extended Mix) [7:12]
+03. Philippe El Sisi & Omar Sherif - Sunrise In Buenos Aires (Extended Mix) [6:18]
+04. Aly & Fila x Chapter 47 x Richard Bedford - Edge Of Tomorrow (Extended Mix) [8:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAF05932C9D0382C08BC51A3455CC77077316E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595130   (132710) от 28.12.2012
+
+Том Пиккирилли | Да сдохни блин уже [2012] [MP3]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
+Клей был честным Нью-йоркским полицейским, мечтавшим разгромить мафию и сделать город чуточку безопасней, даже когда казалось, что от него нет толку. Он всегда играл по правилам – пока безмозглый наркоман-убийца не убил всю его семью и оставил его умирать. Но Клей не позволит себе сдохнуть, пока не получит последнее, что ему нужно от жизни – месть.Жанр: Нуар, детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
+magnet:?xt=urn:btih:3A16CF0D804901A088910DA0C3E9E32A568CF3FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,25 +562,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524991   (130304) от 18.01.2022
+###  Публикация: 1680222   (132707) от 03.12.2023
 
-Transfer 2.0.2 [En]
+Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues-rock, Progressive-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 - Disco [00:04:58]
+02 - Red Hot Mama [00:05:11]
+03 - Rock [00:04:17]
+04 - Impossible _ Rock [00:08:22](   Читать дальше...   )Жанр: Southern Rock, Blues-rock, Progressive-RockПродолжительность: 02:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EDBCBA8B1A46E3F1FC12F25BDD7E6FBDB3BB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595480   (132706) от 28.12.2012
+
+Дик Трэйси / Dick Tracy (1990) HDTVRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Transfer - это надежное и полностью RFC-совместимое приложение TFTP-сервера. Идеальная альтернатива встроенному TFTP-серверу на вашем Mac. Здесь есть все, что вы ожидаете: в режиме реального времени происходит обновление текущих передач, поддержка широковещательных запросов TFTP, история передачи и базовый контроль доступа к корневому каталогу TFTP и управление файлами. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2022Разработчик: © 2019-2022 Intuitibits LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+Тридцатые годы. Чикаго. В городе всем заправляет банда головорезов, которых никто не может остановить. Единственный, кому это под силу, — отважный сыщик Дик Трэйси. И он не отступит, даже если на его пути оказывается главарь мафии. Но сердце бесстрашного героя может не устоять перед чарами соблазнительной красотки…Жанр: Боевик, триллер, мелодрама, криминалРежиссер: Уоррен БиттиАктеры: Уоррен Битти, Аль Пачино, Мадонна, Дастин Хоффман, Джеймс Каан, Чарлз Дернинг, Кэтрин О’Хара, Уильям Форсайт, Майкл Джей Поллард, Дик Ван Дайк, Чарли Корсмо, Сеймур Кэссел, Пол Сорвино, Гленн Хедли, Р. Дж. Армстронг, Мэнди Пэтинкин, Эстель ПарсонсПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 01:40:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7EF90D33CECB7F1EE802FF24DC0C038F8A43D2F
+magnet:?xt=urn:btih:76B89F21A722BE59116A673284AFEAE66A83E835
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +617,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491091   (130303) от 02.05.2012
+###  Публикация: 1681564   (132705) от 03.12.2023
 
-[Wallpapers] HD Desktop Wallpapers Pack 5
+ТВИК | Золотая коллекция сказок. Детские мюзиклы. Сказка про Ивана-царевича и Василису Прекрасную (2006) [MP3, Борис Плотников и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается мюзикл «Сказка про Ивана-царевича и Василису Прекрасную, злого Кощея да царя Еремея».
+Автор музыки и либретто Людмила Фадеева-Москалева.Жанр: Русская литература для детей, музыкальная сказкаИздательство: Детское музыкальное издательство «ТВИК»Продолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5AF8F1B911085DDFCFB6833D3044C6049A41615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681440   (132704) от 03.12.2023
+
+PictureThis - Plant Identification v3.71 Mod by youarefinished [Ru/Multi]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Desktop Wallpapers Pack 5Название: HD Desktop Wallpapers Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 29.11.2023Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94541A3554A47985F8AD61358F800C2CC4F8ABB8
+magnet:?xt=urn:btih:7BC68C491EDFAFCF9EAB007BE2D5EE84CB169BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +670,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524929   (130302) от 18.01.2022
+###  Публикация: 1681548   (132703) от 03.12.2023
 
-VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
+Sandboxie plus 1.12.3 [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Aqua Mundi - Chuchaqui (5:47)
-02. Logophilia - Surfaces (6:03)
-03. Ace Of Duty - Prerogatives (6:13)
-04. Paco Borges Ensemble - Sonido de Madera (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:14
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
+magnet:?xt=urn:btih:BF043B3E51C6887DB0DE801D70AADA2A3C030AF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,34 +696,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 489789   (130301) от 02.05.2012
+###  Публикация: 1681525   (132702) от 03.12.2023
 
-Askold Buk - Askold Buk (1999) [FLAC|Lossless]<Fusion, Crossover Jazz>
+Norah Jones - Little Broken Hearts (2012) 2023, 2CD Japan Deluxe Edition, SHM-CD [FLAC|Lossless|image + .cue] <Contemporary Jazz, Pop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Bella Luna
-02. Iguana
-03. Volcano
-04. Without You
-05. Big Slinky
-06. One More Bar
-07. Picklehead
-08. Wondering
-09. A.F.B.
-10. Downtime1999Жанр: Fusion, Crossover JazzПродолжительность: 00:43:04
+CD-1 Original album + Bonus track & Remix:
+01. Good Morning
+02. Say Goodbye
+03. Little Broken Hearts(   Читать дальше...   )Жанр: Contemporary Jazz, Pop |Продолжительность: 02:03:13
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A48876A570AA67BC146F1A35EE45CB77D1FC2FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

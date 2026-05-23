@@ -1,25 +1,31 @@
-###  Публикация: 1292122   (648847) от 28.03.2019
+###  Публикация: 516548   (651945) от 29.06.2012
 
-Dirty Shirt - Letchology (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Folk Metal>
+VA - Лето Хитами Пропето! Party Music Love Radio 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1. Latcho Drom (1:06)
-2. Pălinca (3:08)
-3. Put It On (3:30)
-4. Fakea (3:15)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Folk MetalПродолжительность: 00:31:30
+001. Michel Telo – Ai Se Eu Te Pego (Nosa)
+002. Sara Oks & Иван Кит - Бой Без Правил
+003. Maroon 5 - One More Night
+004. Neoclubber - Ночь Жаркого Лета
+005. David Guetta Feat. Sia - Titanium
+006. MainstreaM One - Под Тёмными Очками
+007. Fly Project - Back In My Life (Radio Edit)
+008. Varda - Я Тебе Не Верю
+009. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
+010. Размер Project - My Moscow Love(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CFD9FC97E23931791B83616E5A50E7A8E50992B
+magnet:?xt=urn:btih:6333D5B855B7B001E9FC393A0ECAF0F4E871EA03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +33,69 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292055   (648846) от 28.03.2019
+###  Публикация: 516708   (651943) от 29.06.2012
 
-Rian Treanor - ATAXIA (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Experimental>
+VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Poshout feat. Ange - Beside (Sunset Extended)
+02.Allure feat. Emma Hewitt - Stay Forever (Extended Mix)
+03.ATB feat. Ramona Nerra - Never Give Up (Clubmix)
+04.Tenishia feat. Jan Johnston - As It Should (tyDi Remix)
+05.Will Holland feat. Jeza - Every Heartbeat (Beat Service Remix)
+06.Cosmic Gate & J'something - Over The Rainbow (Extended Mix)
+07.Xtigma feat. Sarah Russell - Take Your Hand (Summer Remix)
+08.Ignas feat. Julie Thompson - Hold On (Original Mix)
+09.Sean Tyas - Lekta (Original Mix)
+10.Mark Bester - Colors Of Summer (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B1DF6F2EF991BBFC997893ABB6015C5D997464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516522   (651941) от 29.06.2012
+
+VA - Trance In Motion Vol.119 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Ataxia_A1 (03:57)
-02. Ataxia_A2 (04:54)
-03. Ataxia_B1 (04:28)
-04. Ataxia_B2 (03:26)(   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 00:38:46
+01.BT - Flaming June (Laptop Symphony Rework)
+02.Joop feat. Tiffany Johnston - Just One Night (Original Mix)
+03.Andain - Turn Up The Sound (tyDi Remix)
+04.Beat Service - Fortuna (Original Mix)
+05.Neev Kennedy - A Bridge (DNS Project Remix)
+06.Sied Van Riel & Erik Arbores - In Ur Face (Original Mix) (Electronic Family Anthem 2012)
+07.Arty - Open Space (Original Mix)
+08.Audien - The Reach (Original Mix)
+09.Paul Oakenfold feat. J Hart - Surrender (Protoculture Remix)
+10.Running Man presents Inca - Signs (Ozo Effy Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:22:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7070BEBA0D79AF67538D4BE18156E1D0C410E71
+magnet:?xt=urn:btih:1065F6708BF4A2F0B829E1161F3630F27628E8CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +103,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291909   (648845) от 28.03.2019
+###  Публикация: 516682   (651939) от 29.06.2012
 
-deM atlaS - Bad Actress (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+Armin Van Buuren - A State Of Trance 567 (2012) [MP3|256 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Tomorrow Party (03:41)
-02. Never Belonged (03:56)
-03. Early Train (04:12)
-04. Gratitude (04:37)(   Читать дальше...   )Жанр: Hip HopПродолжительность: 01:02:51
+01. Andain - Turn Up The Sound (Xtigma Remix)
+ 02. Denis Kenzo featuring Sveta B. - Lullaby Lonely
+ 03. Norin & Rad - Retrograde
+ 04. Above & Beyond feat. Richard Bedford - On My Way To Heaven (Tomas Heredia At Sunrise Mix)
+ 05. Luigi Lusini & Starchasers feat. Molly Bancroft - All I Want
+ 06. Markus Schulz feat. Adina Butar - Caught (Club Mix)
+ 07. Tritonal & Kaeno - Azuca
+ 08. Roger Shah feat. Carla Werner - One Love
+ 09. Nitrous Oxide & Dan Stone - Nautica
+ 10. Gelardi - Deira(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0D26359E4C65ED75816FC4C9264C0B9E6E0D42F
+magnet:?xt=urn:btih:C92EADE6F1310EA5C3FC4E18A48246BBFFACFBFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,324 +138,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292018   (648844) от 28.03.2019
+###  Публикация: 516746   (651937) от 29.06.2012
 
-Tomoyoshi Date, Stijn Huwels - Hochu-Ekki-Tou (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hochu (17:34)
-2. Ekki (23:16)
-3. Tou (11:28)Жанр: Electronic, Ambient, DroneПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D880FC598E436E9C899673A492337C3FEBB8784D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291913   (648843) от 28.03.2019
-
-B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The A Train
-02. You're The Spring
-03. We've Heard The Talking Heads Talking
-04. There Is A Head(   Читать дальше...   )Жанр: Electronic, Pop, Indie PopПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291908   (648842) от 28.03.2019
-
-Devon Church - We Are Inextricable (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648842.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chamomile
-2. Your Fathers House
-3. Curses
-4. Nothing Is Revealed(   Читать дальше...   )Жанр: Electronic, DarkwaveПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A90A2557F32846DBC552804995FF5656106C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291938   (648841) от 28.03.2019
-
-Infrequency - Trip Journal (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Glitch>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The First Page (03:39)
-2. Swimming on Mushroom Tea (06:47)
-3. It's Breathing (06:10)
-4. Lost (06:18)(   Читать дальше...   )Жанр: Psychill, Psydub, GlitchПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DE0B8D3A131A7F325DA93A7F31F6A9B7E197ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292025   (648840) от 28.03.2019
-
-Emerald Sabbath - Ninth Star (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embryo - Intro (00:52)
-02. Die Young (04:34)
-03. Fluff (04:12)
-04. Trashed (04:38)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483644FA9BFD790FA298B1136F400D001F7A8B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292002   (648839) от 28.03.2019
-
-Bjarki - Happy Earthday (2019) [FLAC|Lossless|tracks + .cue] <Electronic, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessuð Börnin (02:54)
-02. Alone in Sandkassi (03:08)
-03. ( . )_( . ) (05:49)
-04. Two-brainedness (01:26)(   Читать дальше...   )Жанр: Electronic, IDM, AmbientПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529F7400AE58A95ADAF2D2E2DD551D449889F6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540959   (648838) от 01.04.2022
-
-ProFind 1.11.0 [En]
+Mozilla Firefox 14.0 Beta 10 [Русский]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 31.03.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F563821F8824C69B3E98ACEFC1A2C92EFB667BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905764   (648837) от 06.06.2015
-
-Проекты - VideoHive - Deep Eyes | 7 in 1 logo pack [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своеобразный проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C61774EA5B143ACE65EDD5DA6ED51F2EA5C0254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905630   (648836) от 06.06.2015
-
-Александр Пушкин, Марина Цветаева и др. | Мои грехи, забавы юных дней. Запрещенная поэзия и проза русских классиков (2012) [FB2]
-
->>Художественная литература
->>Классическая поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга откроет читателям фривольную и откровенную прозу и поэзию пылкого Пушкина, мечтательного Брюсова, мистического Гоголя. Познакомит с запрещенными цензурой произведениями Толстого, Блока, Цветаевой, Есенина и многих других классиков, которым были не чужды человеческие страсти. Сборник доставит истинное наслаждение ценителям откровенной поэзии и прозы.Жанр: Классическая проза, Поэзия, ЭротикаИздательство: Книжный Клуб «Клуб Семейного Досуга»Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0CD967A1D3F56E2A2C03882F4E1D5D8EAF4EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905568   (648835) от 06.06.2015
-
-Идентификация Борна / The Bourne Identity (2002) HDDVDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда итальянского рыболовецкого судна находит в водах Средиземного моря тело мужчины. У него два пулевых ранения в спине и имплантированный в бедро микрофильм, помеченный номером швейцарского банка. Когда незнакомец приходит в себя, оказывается, что он не помнит кто он, и что с ним случилось, однако он может говорить на нескольких языках и обладает другими необычными (   Читать дальше...   )Производство: США, Германия, Чехия / Universal PicturesЖанр: Боевик, Триллер, ДетективРежиссер: Даг ЛайманАктеры: Мэтт Дэймон, Франка Потенте, Крис Купер, Клайв Оуэн, Брайан Кокс, Адевале Акиннуойе-Агбадже, Гэбриел Манн, Уолтон Гоггинс, Джош Хэмилтон, Джулия Стайлз, Орсо Мария Гуэррини, Тим Даттон, Денис Браччини, Никки Нод, Дэвид Селбёрг, Деметри Горицас, Рассел Леви, Энтони Грин, Юбер Сен-Макари, Дэвид БамберПеревод: ДублированныйСубтитры: ОтсутствуютФормат: MKVПродолжительность: 01:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB3D103BD28B7AA36746336E76E2DB43EC5CE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905361   (648834) от 06.06.2015
-
-Барашек Шон / Shaun the Sheep Movie (2015) BDRip
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мирная жизнь маленькой овцефермы оказывается под угрозой, когда в результате очередной проказы неутомимого Барашка Шона хозяин фермы попадает в большой город. Вдоволь навеселившись полной свободой и безнаказанностью, Шон и остальное стадо барашков начинают волноваться за Фермера и решают отправиться на его спасение. Замаскировавшись под людей, они едут в большой (   Читать дальше...   )Производство: Великобритания, Франция, Aardman Animations, Anton Capital Entertainment (ACE), StudioCanalЖанр: КомедияРежиссер: Марк БертонПерсонажи: Джастин Флетчер, Джон Шпаркс, Омид Джалили, Ричард Веббер, Кейт Харбор, Тим Хэндс, Энди Найман, Саймон Гринхолл, Эмма Тейт, Джек ПолсонПеревод: Не требуетсяПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C03B8183B4C890FF68A04052B95ADBA9A7E285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522731   (648833) от 06.06.2015
-
-Скорость / Speed (1994) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: 20th Century Fox Film CorporationЖанр: Боевик, триллер, драма, криминалРежиссер: Ян де БонтАктеры: Киану Ривз, Сандра Буллок, Деннис Хоппер, Джо Мортон, Джефф Дэниелс, Алан Рак, Гленн Пламмер, Ричард Лайнбэк, Бет Грант, Хоторн ДжеймсПеревод: Профессиональный многоголосый, закадровый (20th Century Fox; Киномания; Карусель) / Дублированный (звук с VHS) / Авторский одноголосый, закадровый (Ю. Живов; А. Гаврилов; В. Горчаков)Язык субтитров: Русский, английскийПродолжительность: 01:55:54
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения возможностей подключением плагинов (а выпущено их великое множество).Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -414,25 +164,315 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905661   (648832) от 06.06.2015
+###  Публикация: 516384   (651935) от 29.06.2012
 
-Ольга Кутумина | Разговорный английский. Уникальный справочник современной лексики (2014) [PDF]
+VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Aura Dione - Friends
+ 02. Junior Caldera feat. Natalia Kills & Far East Movement - Lights Out (Radio edit)
+ 03. Bob Sinclar feat. Sophie Ellis Bextor & Gilbere Forte - Fuck With You
+ 04. Michael Mind Project Feat. Bobby Anthony & Rosette - Rio de Janeiro (Radio Edit)
+ 05. Avicii - Levels
+ 06. Global Deejays - Hardcore vibes (Radio Edit)
+ 07. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
+ 08. Bel Suono & Dj Magic Finger - Te Quiero (Vocal Mix)
+ 09. Fonzerelli feat. Ellenyi - Moonlight Party (Radio Edit)
+ 10. Javi Reina & Alex Guerrero feat. Syntheticsax - Oig (Radio Edit)(   Читать дальше...   )Жанр: Pop-DanceПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F27C04FD6FF20F12F631C7B82FF5991135C311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905349   (651933) от 05.06.2015
+
+В теме. Баррели риска (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Политолог Борис Блохин рассуждает о том, как будут колебаться цены на нефть после стартовавшего недавно в Вене саммита стран экспортеров нефти (ОПЕК).Телекомпания: Москва ДоверияЖанр: ДокументальныйПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61B75F33BC7B2CE2D9B69F74B1FC4F59EBEEAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905255   (651932) от 05.06.2015
+
+Metal Inc. - Traces of the Past (2015) [MP3|320 кб/с]<Heavy Metal / Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rise up!
+02. Deceiver
+03. Follow Me
+04. The Cost(   Читать дальше...   )Жанр: Heavy Metal / ThrashПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EAFEEC0F557CE29B28F9FB1586BDDD2A0AC4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905090   (651931) от 05.06.2015
+
+The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Number One (3:11)
+2. Blacked Out Windows (2:28)
+3. Keys to the Kingdom (3:41)
+4. The Winning Side (3:44)(   Читать дальше...   )Жанр: Blues Rock, GarageПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C290BD9E86777AADA0B3BD592F2A15433A6A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905289   (651930) от 05.06.2015
+
+Sigh - Graveward (2015) [FLAC|tracks+.cue]<Avant-garde, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Kaedit Nos Pestis
+02. Graveward
+03. The Tombfiller
+04. The Forlorn(   Читать дальше...   )Жанр: Avant-garde, Black MetalПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4322B9633305D9AC46A32C9441002035CE0F29B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905025   (651929) от 05.06.2015
+
+No More Pain - Debate And Rhyme (2012) [MP3|320 кб/с]<Heavy/Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dismantled & Twisted 05:26
+02. So They Say 04:35
+03. Debate and Rhyme 06:56
+04. Killing Me 06:27(   Читать дальше...   )Жанр: Heavy/Crossover ProgПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA54C6FAFFDD6EB0A43FE50B6CDDA6E9C403FEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905337   (651928) от 05.06.2015
+
+Линия защиты. Полонский. Сорванная башня (2015.06.03) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сергей Полонский - кто он на самом деле? Эксцентричный предприниматель? Талантливый мошенник? Или потерявший берега богач? Взлет и падение строительной империи самого скандального бизнесмена России: от собственного государства на далеких островах до камеры-одиночки в московском СИЗО! Почему его удалось вернуть на родину только сейчас? "Полонский. Сорванная башня" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7791643923A2AB5F3BAAE59CA1BF41BBEF06C980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905098   (651927) от 05.06.2015
+
+Gnod - Infinity Machines (2015) [MP3|320 кб/с]<Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Control Systems (17:24)
+2. Inevitable Collateral (10:39)
+3. Desire (6:50)
+4. Importance Of Downtime (17:46)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD3B6976F8979E461A3EBE44A1F9FED416E611C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905162   (651926) от 05.06.2015
+
+Crow's Claw - Fair Judgement (2015) [MP3|320 кб/с]<Instrumental Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Inchlings Of The Shining Needle
+02. Hartmann’s Youkai Girl
+03. Lonesome Werewolf
+04. Night Falls(   Читать дальше...   )Жанр: Instrumental Power MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597DF7F34892B61A57F21C12D08A175B434D3F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905247   (651925) от 05.06.2015
+
+Forgotten Suns - When Worlds Collide (2015) [MP3|320 кб/с]<Progressive Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Nowhere Pt.I (11:42)
+02. In Harm's Way (10:54)
+03. Somewhere In The Darkness (6:57)
+04. Fortress Of Silence (10:33)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08008CABEA95E147115D5CB2A3BBB294D1073DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904904   (651924) от 05.06.2015
+
+В. Н. Шевченко | Н. Бухарин как теоретик исторического материализма (1990) [DJVU]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Пособие включает фразеологические единицы, часто встречающиеся в разговорной речи: устойчивые словосочетания, эмоциональные реплики и восклицания, пословицы и поговорки, крылатые фразы, шутливые изречения. В нем отражены основные разговорные клише, которые характеризуют человека, его личностные качества, внешность, характер, поведение, род занятий и т.д. Всего в (   Читать дальше...   )Жанр: Справочное пособиеФормат: PDF
+Бухарин Н. И. (1888—1938) — профессиональный революционер и видный партийный деятель первых лет Советской власти. В брошюре раскрываются достоинства и недостатки книги Н. Бухарина «Теория исторического материализма» (1921), явившейся первым систематическим изложением марксистской социологии, анализируется тесная связь ее с другими крупными работами автора — «Азбукой (   Читать дальше...   )Жанр: история, философияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8316EA2CA496E8E8D9D1A089EBA256F241097F3
+magnet:?xt=urn:btih:3A333933987A84AA2EB59C030B18AFBD26CB388E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +480,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903816   (648831) от 06.06.2015
+###  Публикация: 904835   (651923) от 05.06.2015
 
-Проекты - VideoHive - Quick Logo Sting Pack 07: Energetic Particles [AEP]
+Kris Dollimore - All Grown Up (2015) [MP3|320 кб/с]<Acoustic Blues, Roots>
 
->>Проекты
->>Логотипы (проекты)
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Проект для создания логотипа. Проект предназначен для редактирования в АЕ.Формат: AEP
+01. All Grown Up (5:49)
+02. Sometimes You Need To Feel The Pain (4:22)
+03. Evil People (5:05)
+04. Easy (4:32)(   Читать дальше...   )Жанр: Acoustic Blues, RootsПродолжительность: 00:53:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F60E2B1320E3F8D6173904B5301A8D8F755E14
+magnet:?xt=urn:btih:2A6A59E5A02336E93BB08F4D931322C89894FF08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,25 +509,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905824   (648830) от 06.06.2015
+###  Публикация: 905020   (651922) от 05.06.2015
 
-Татьяна Трофименко | Практический самоучитель английского языка (2014) [PDF]
+Hell-Us. - Monster Piece (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 
->>Научная и техническая литература
->>Иностранные языки (литература)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Практический самоучитель английского языка поможет развить и усовершенствовать вашу устную речь. Уникальная форма изложения материала в виде компактных структур обеспечивает быстрое восприятие информации. Огромное количество практических заданий поможет вам преодолеть боязнь построения сложных фраз, и вы научитесь легко и непринужденно формулировать высказывания (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+01. Die Nasty
+02. Mr. Rusty
+03. My Tomb
+04. Under The Knife(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:31:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E59003820CD5280050B7440EFEECB3B619BF1313
+magnet:?xt=urn:btih:B8A2C3FEBB235AF07D051663631BABD6E7C48EF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +538,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905563   (648829) от 06.06.2015
+###  Публикация: 905249   (651920) от 05.06.2015
 
-План побега / Escape Plan (2013) BDRip [H.264/1080p]
+Sunchild - Synesthesia (2015) [MP3|320 кб/с]<Crossover Prog>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Один из самых выдающихся мировых специалистов по системам безопасности соглашается на последнюю рисковую операцию: сбежать из суперсекретной высокотехнологичной тюрьмы, которую называют «Гробницей». Преданный Рэй Бреслин вынужден прибегнуть к помощи напарника — заключенного Эмиля Ротмайера, чтобы разработать отчаянный и практически неосуществимый план побега из самой (   Читать дальше...   )Производство: США / Summit Entertainment, Emmett/Furla Films, Mark Canton ProductionsЖанр: боевик, триллер, детективРежиссер: Микаэль ХофстрёмАктеры: Сильвестр Сталлоне, Арнольд Шварценеггер, Джеймс Кэвизел, Винни Джонс, Сэм Нил, Фаран Таир, Винсент Д’Онофрио, Эми Райан, Фифти Сент, Катрина БалфПеревод: профессиональный (полное дублирование), профессиональный (многоголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:55:35
+01. Synesthesia (6:00)
+02. The Chosen One (5:14)
+03. Outer Space (4:22)
+04. Space Out (part 1) (1:11)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:47:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E7B7283F706934B796B47809B410171E27DBF00
+magnet:?xt=urn:btih:345C72FA8B925A7090035999A7F7F9325BEED587
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +567,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905697   (648828) от 06.06.2015
+###  Публикация: 905252   (651919) от 05.06.2015
 
-QTTabBar 1024 [En]
+Lux Purus - Chaos Creates (2015) [MP3|320 кб/с]<Symphonic Power Metal, Female Vocal>
 
->>След.
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-QTTabBar - расширение для Проводника Windows, предоставляющее возможность открытия новых окон Проводника во вкладках, а не в отдельных окнах. Кликнув правой клавишей мыши по папке, просто нужно выбрать функцию "Открыть в новой вкладке". Панель инструментов значительно упрощает навигацию между вкладками.Язык интерфейса: Английский
+1. At The Edge Of The World (05:32)
+2. Raised By The Wolves (05:57)
+3. The Seven Seals (04:21)
+4. Prophecy Of The Seventh Generation (08:04)(   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:29:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9109F164645BE5B25C3B6021DE2426A5929D8D1
+magnet:?xt=urn:btih:83E0EE6033F8E6C5E155151ED12F8DC420442EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +596,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905581   (648827) от 06.06.2015
+###  Публикация: 905167   (651918) от 05.06.2015
 
-Проекты - VideoHive - Happy New Year - 6473918 [AEP]
+Arion - Arion (2015) [MP3|320 кб/с]<Epic Heavy Metal>
 
->>Проекты
->>Праздничные (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Удобный шаблон для начала любого фильма новогодней тематики.Формат: AEP
+01. One Road
+02. Gods of Old
+03. Caught in a Dream
+04. Tentalon(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:29:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72AD2C1387E395F366A247D405492FE3FBFA2D3C
+magnet:?xt=urn:btih:CF22A03CF4DEF78D85D09DBF40C070216E276CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,26 +625,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905694   (648826) от 06.06.2015
+###  Публикация: 905178   (651917) от 05.06.2015
 
-И грянул гром / A Sound of Thunder (2005) DVDRip
+Вечерний Ургант. Сезон №7. Выпуск №70 (2015.06.02) SATRip
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В недалеком будущем, путешествия во времени станут удивительной, непредсказуемой реальностью. За деньги, богатые путешественники могут пробудить свои дремлющие инстинкты охотников, заказывая доисторические сафари, чтобы охотиться на настоящих живых динозавров.
-Есть только три важных правила, которые нельзя нарушать: не менять ничего в прошлом; не оставлять ничего (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, триллер, фильм-катастрофаРежиссер: Питер ХайамсАктеры: Армин Рохд, Хайке Макатч, Джемайма Рупер, Дэвид Ойелоуо, Уилфрид Хоххолдингер, Эдвард Бёрнс, Август Зирнер, Бен Кингсли, Кэтрин МакКормакПеревод: ДублированныйПродолжительность: 01:37:32
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:29:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B03A905200E9F8E8E5B9AB62586AC635B4D996A1
+magnet:?xt=urn:btih:DF2110C4E3E7EF3677F1B54EAA3F59D2DC47162A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,25 +651,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905292   (648825) от 06.06.2015
+###  Публикация: 905163   (651916) от 05.06.2015
 
-Проекты - VideoHive - Countdown - 9855908 [AEP]
+S.A.Y - Orion (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 
->>Проекты
->>Разное (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Стильный Hi-end обратный отсчет в 3D пригодный для любого проекта.Формат: AEP
+01. Tragedy
+02. Heroes
+03. Crash And Burn
+04. Never Say Goodbye(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56259428B34D7FCB00BD62E1515231CE696CDB8D
+magnet:?xt=urn:btih:F09924069307269701CC05340B982BAEC0611103
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,25 +680,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905293   (648824) от 06.06.2015
+###  Публикация: 905286   (651915) от 05.06.2015
 
-Проекты - VideoHive - Editable Fireworks Package - 9466144 [AEP]
+Mojo Waves - All The Right Parts Fit The Wrong Way (2015) [MP3|320 кб/с]<Hard Rock, Garage, Heavy Psychedelic, Stoner>
 
->>Проекты
->>Праздничные (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция «Редактируемый пакет фейерверков» с возможностью полного редактирования, 20 проектов After Effects в комбинации с уже готовыми 13 FullHD 1080p видео Quicktime. Фейерверк создаётся с помощью плагинов Trapcode Particular и Trapcode Shine, если вы хотите, что-либо настроить, изменить или создать свой собственный фейерверк. Вам предоставлена возможность для (   Читать дальше...   )Формат: AEP
+01. 7x7
+02. Heartquake
+03. Lioneyes
+04. Counting Backwards(   Читать дальше...   )Жанр: Hard Rock, Garage, Heavy Psychedelic, StonerПродолжительность: 00:36:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FB5B144891E022BCA51F2F803F6FF5EAAE525AB
+magnet:?xt=urn:btih:29CFBDD4F01A8DE2D3A4D578A9CE2251DC20F82E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,28 +709,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905629   (648823) от 06.06.2015
+###  Публикация: 905179   (651914) от 05.06.2015
 
-The Thrillseekers - 4 Компиляции,35 Синглов,44 Ремикса,16 Треков. (2000-2015) [FLAC|Lossless]<Trance>
+Вечерний Ургант. Сезон №7. Выпуск №71 (2015.06.03) SATRip
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 Aly & Fila vs. The Thrillseekers - Es Vedra (Radio Edit)
-02 The Thrillseekers - Dreaming Of You (Flutlicht Remix)
-03 The Thrillseekers - Dreaming Of You (Tranquilo's Ambient Mix)
-04(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:19
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:29:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A93DA429ED2D9B584BA05B158D05E906A674F4B5
+magnet:?xt=urn:btih:399AFB5ECA7FE80A80C84B31E32CCC53B5F86616
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,25 +735,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905390   (648822) от 06.06.2015
+###  Публикация: 1540623   (651913) от 30.03.2022
 
-Барашек Шон / Shaun the Sheep Movie (2015) BDRip [H.264/720p]
+Синьор Робинзон / Il signor Robinson, mostruosa storia d'amore e d'avventure / Mr. Robinson (1976) BDRip [H.264/1080p-LQ]
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Мирная жизнь маленькой овцефермы оказывается под угрозой, когда в результате очередной проказы неутомимого Барашка Шона хозяин фермы попадает в большой город. Вдоволь навеселившись полной свободой и безнаказанностью, Шон и остальное стадо барашков начинают волноваться за Фермера и решают отправиться на его спасение. Замаскировавшись под людей, они едут в большой (   Читать дальше...   )Производство: Великобритания, Франция, Aardman Animations, Anton Capital Entertainment (ACE), StudioCanalЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Марк БертонПерсонажи: Джастин Флетчер, Джон Шпаркс, Омид Джалили, Ричард Веббер, Кейт Харбор, Тим Хэндс, Энди Найман, Саймон Гринхолл, Эмма Тейт, Джек ПолсонПеревод: Не требуетсяПродолжительность: 01:25:00
+Что делать современному высокоцивилизованному человеку, отправляющемуся в круиз по океану и попадающему в результате кораблекрушения на необитаемый остров? Правильно! Главное - не впадать в панику, а собраться с мыслями и, вспомнив знаменитого Робинзона Крузо, начать потихонечку обживаться. Но тут надо быть очень осторожным, так как даже неожиданное, но такое радостное (   Читать дальше...   )Производство: Италия / Vides CinematograficaЖанр: Мелодрама, комедия, приключенияРежиссер: Серджио КорбуччиАктеры: Паоло Вилладжо, Зеуди Арайа, Анна Ногара, Перси ХоганПеревод: Дублированный (Союзмультфильм) со вставками MVOСубтитры: РусскиеПродолжительность: 01:47:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5C4418B8CEED35FCC408F7A0448054DBC23B8C1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

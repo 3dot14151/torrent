@@ -1,3 +1,186 @@
+###  Публикация: 694777   (533600) от 06.09.2013
+
+Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/u2) Repack Fenixx [Ultimate Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новая часть знаменитого сериала, к разработке которой причастен не менее знаменитый Хидео Кодзима. Сюжет не будет связан с предыдущими играми об охотнике на нечисть.
+Castlevania: Lords of Shadow рассказывает мрачную историю героя, потерявшего любимую. Вооружившись специальным крестом, протагонист отправляется в путешествие по различным городам и местечкам в надежде воскресить девушку. Для этого ему предстоит одолеть несколько тысяч монстров и сразиться с боссами. Битва с каждым из них требует особого подхода и терпения.(   Читать дальше...   )Тип издания: RePackРазработчик: MercurySteam - Climax StudiosЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Бразильский (Португальский)Язык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Бразильский (Португальский)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819317   (533288) от 07.09.2014
+
+Миллион способов потерять голову / A Million Ways to Die in the West (2014) BDRip [1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Угораздило же влюбиться не в том месте и не в то время. Здесь хамят в ресторанах, о горячей воде слагают легенды, да и с транспортом полный коллапс. Но у таинственной незнакомки отменная фигура, да и стреляет она без промаха. Кто же по своей воле откажется от такой красотки?Производство: США / Bluegrass Films, Fuzzy Door Productions, RGB MediaЖанр: Комедия, ВестернРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Шарлиз Терон, Аманда Сайфред, Лиам Нисон, Джованни Рибизи, Нил Патрик Харрис, Сара Силверман, Кристофер Хэйген, Уэс Стьюди, Мэтт КларкПеревод: Дублированный (Лицензия); многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA1E431D901E043615FDB5577049FF417685A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557771   (533283) от 19.06.2022
+
+Adobe Photoshop for Mac 2022 23.4.1 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2022Разработчик: Adobe SystemsПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9C08920A5608CA752A5F9570365C61EED0F4C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125177   (533268) от 19.06.2022
+
+Денис Борисов | Сушка тела Ракета (2017) [PDF]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Избавление от подкожного жира - это очень сложная задача, если относится к ней, как ко временной. Существует множество интересных способов похудеть. Часть из этих способов рабочие. А некоторые из них, даже весьма эффективны. Однако, поразмыслив над результатами своих знакомых и подопечных, я пришел к выводу, что эффективность способа не так важна, как его постоянство. (   Читать дальше...   )Жанр: БодибилдингФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7973B0F609601BD64C4782E7F3095177C3B839C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009823   (532881) от 03.08.2017
+
+Don't Starve (2013) [Ru/En] (1.222215/dlc) License GOG [Alone Pack]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Don’t Starve» — это бескомпромиссная игра на выживание в диком мире, наполненном наукой и магией. Вы — Уилсон, отважный ученый господин, которого поймал злобный демон и отправил в загадочные дикие земли. Уилсон должен обуздать этот мир и его обитателей, чтобы сбежать отсюда и вернуться в свой родной дом. Откройте таинственный неизведанный мир, где на каждом шагу (   Читать дальше...   )Тип издания: LicenseРазработчик: Klei EntertainmentЖанр: Adventure, Indie, Sandbox, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DB1A65AF4CEB62CF52FC69C24EFE5B44899BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155104   (532879) от 03.08.2017
+
+Стена / The Wall (2017) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Американский стрелок оказывается в ловушке за небольшой стеной и под прицелом своего противника. Герой ловит вражескую радиочастоту и общается с иракским снайпером. Живым с поля боя уйдет лишь один из них.Производство: США, Amazon Studios, Big Indie Pictures, PicrowЖанр: Триллер, Драма, ВоенныйРежиссер: Даг ЛайманАктеры: Аарон Тейлор-Джонсон, Джон Сина, Спенсер Томас, Лэйт НаклиПеревод: Одноголосый закадровый, А.Важенин (BadBajo)Субтитры: Английские (отключаемые)Продолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF38B074006781BD0C1AAD52089A5D926759D0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926639   (532871) от 10.08.2015
+
+Prinect Package Designer 2016 16.00.26 [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Prinect Package Designer - это эффективная система CAD/CAM для проектирования упаковки и инструментов высечки.Язык интерфейса: Английский, Немецкий, Французкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A163A0E8DDF3833F19C06CF9C44AC4731C80C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357474   (532587) от 25.07.2011
 
 [Steam-Rip] Ведьмак 2: Убийцы Королей / The Witcher 2: Assassins of Kings [Multi11\+] 2011 | R.G. Origins
@@ -6,7 +189,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -36,7 +219,7 @@ Windows 10 Pro 1903 (build 18362.207) x64 by vladislays v19.07.03
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +247,7 @@ Rayman Legends (2013) [Ru/En] (1.1.1) RePack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +351,7 @@ FIFA 17 (2016) [Ru/Multi] (1.09) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +377,7 @@ CyberLink PowerDirector 13 Ultimate 13.0.3130.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +403,7 @@ Exanima (2016) [En] (0.6.4.3e) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +455,7 @@ The Elder Scrolls V: Skyrim [Ru] (RePack/1.7.7.0.6/DLC) 2011 l R.G. Element Arts
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +510,7 @@ Windows 7 Ultimate SP1 x86 x64 StartSoft v27.08.01-02.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +616,7 @@ DOOM (2016) [Ru/Multi] (1.0/upd6.66/dlc) SteamRip R.G. Origins [Complete Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +642,7 @@ Batman: The Telltale Series. Episode 1 (2016) [PS3] [USA] 3.55 [Cobra ODE / E3 O
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +668,7 @@ Windows 10 PE (x86/x64) v.4.8 (13.09.2016) by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,190 +679,6 @@ Windows 10 PE (x86/x64) v.4.8 (13.09.2016) by Ratiborus [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D755787CAB9075827E429C83E4780E5A16282643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052077   (527692) от 14.09.2016
-
-Альтамира / Altamira (2016) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о жизни Марселино Санс де Саутуола, открывшего пещеру Альтамира. На сегодняшний день она внесена в список всемирного наследия ЮНЕСКО, однако при жизни Саутоле пришлось столкнуться с насмешками со стороны научного сообщества и жить с клеймом обманщика.Производство: Испания, Великобритания, ФранцияЖанр: Драма, ИсторияРежиссер: Хью ХадсонАктеры: Антонио Бандерас, Клеман Сибони, Руперт Эверетт, Хавиви, Ирена Эсколар, Николас Фэррел, Аллегра Аллен, Луис Солер, Tbata Cerezo, Голшифте Фарахани, Chantal GarsanПеревод: Многоголосый закадровый, любительский (СПД)Продолжительность: 01:33:38Реклама: присутствуют аудио и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E51799342C83FB9F626F2A57E00C2ACD649971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368627   (527246) от 29.07.2011
-
-Мультфильмы студии Арменфильм (1981-1985) TVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Рисованая анимацияРежиссер: Роберт СаакянцПерсонажи: сказочныеПродолжительность: 7 мин. 30 сек.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4F967808FDD8849D186EFF9E27D6ECA0923C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052632   (527084) от 15.09.2016
-
-Q4OS 1.6.2 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64, 'RPI' port] 4xCD+1xImg
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
-
-Система базируется на Debian и использует в качестве графической оболочки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81A18DBC2F54F05A7B6123F3F1780ABCBDD6EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009920   (527028) от 15.09.2016
-
-8-Bit Armies (2016) [Ru/Multi] (0.73.620572/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527028.jpg" />
-</div>
-
-
-###  Подробнее
-
-8-Bit Armies, бодрая стратегия, в которой можно разнести мир по кирпичикам. Война – мрачное, грязное, кровавое и трагическое дело, что и говорить. Редкое исключение – война виртуальная: тут бывает так, что на поле брани сходятся смешные квадратные человечки, которые разъезжают на квадратных танках, взлетают на квадратных истребителях и проливают квадратную кровь.Тип издания: LicenseРазработчик: PetroglyphЖанр: Real-Time StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED97401F400488C7CA96D4D41D50E6D45212351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559255   (526923) от 24.06.2022
-
-Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.145) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонардо, Микеланджело, Донателло и Рафаэль вновь объединяются, чтобы задать жару. Teenage Mutant Ninja Turtles: Shredder’s Revenge — это яркий, сделанный с любовью скроллер в жанре beat ’em up, в основе которого лежит легендарный образ черепашек из 1987 года. Эта игра — дань уважения классическим играм о черепашках, таким как Turtles In Time.Тип издания: RepackРазработчик: Tribute Games Inc.Жанр: Action, Arcade, 2DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE63B30D7FF0740FB35ECC6DE122C2BDC968AE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156799   (526813) от 08.08.2017
-
-Corona Renderer 1.6.1 for 3ds Max 2012-2018 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corona Renderer - это набирающий популярность инструмент для рендеринга в 3ds Max и Cinema 4D. Вполне может конкурировать с такими гигантами бизнеса как V-ray и MentalRay.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C412212BF9A13026C7EEDE8E3CE5CD2D0CC59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053073   (526430) от 16.09.2016
-
-Pure Chess (2016) [Ru/Multi] (1.0) License SKIDROW [Grandmaster Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шахматы! Одна из самых популярных игр в мире только что стала еще лучше! Pure Chess — версия «Гроссмейстер» — это совершенное воплощение величайшей игры всех времен и народов. В Pure Chess есть множество функций и понятное руководство, поэтому игра прекрасно подходит как гроссмейстерам, так и новичкам. Только Pure Chess — и других шахмат больше не нужно!Тип издания: LicenseРазработчик: RipstoneЖанр: Logic (Chess), 3DЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3318E8DEA8153B1F9C6CFF2F6945A1EF93F41900
 ```
 
 https://mybot314.ru/tekegram_catalog/

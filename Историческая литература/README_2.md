@@ -1,3 +1,55 @@
+###  Публикация: 1857276   (1059466) от 05.03.2026
+
+Сергей Балмасов | Белоэмигранты на военной службе в Китае (2007) [PDF, FB2, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Исследование, основанное на архивных разысканиях, представляет участие русских белоэмигрантов в драматических событиях 1920–1945 гг. в Китае, гражданской и японо-китайских войнах.Жанр: ИсторияИздательство: ЦентрполиграфФормат: PDF, FB2, RTFКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B625ACE40A48DF54A4E33EF73D13AB5FE40AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857279   (1059464) от 05.03.2026
+
+О.А. Соколов | Крестовые походы в арабской культуре (вторая половина XIX – первая половина XX в.). Идеи и образы. (2023) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Память о Крестовых походах, завершившихся более 700 лет назад, продолжает активно воспроизводиться как в Европе, так и в Арабском мире. В данной монографии примеры обращений к теме Крестовых походов рассматриваются с точки зрения истории идей, при этом впервые были проанализированы паттерны интерпретаций событий Крестовых походов в контексте антиколониальной борьбы, (   Читать дальше...   )Жанр: ИсторияИздательство: Издательство Санкт-Петербургского государственного университетаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B26BF087FCCBDCDA0A5009CCD512125BD6251EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855250   (1058138) от 23.02.2026
 
 Д.В. Журавлев | Страна восходящего солнца (2009) [FB2]
@@ -6,7 +58,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -316,6 +368,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852815   (1056526) от 12.02.2026
+
+А.И. Колпакиди, С.В. Чертопруд | СМЕРШ. От Александра I до Сталина (2025) [PDF, FB2, DOCX, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга Александра Колпакиди и Сергея Чертопруд «СМЕРШ. От Александра I до Сталина» представляет собой историческое исследование, прослеживающее развитие российской военной контрразведки с 1812 года до 1946 года. Авторы детально описывают историю спецслужб, включая создание «Высшей» или «Воинской полиции» при Александре I и структуру «СМЕРШ» (ГУ КР «СМЕРШ», УК «СМЕРШ» (   Читать дальше...   )Жанр: Публицистика, архивные материалы, военное дело / спецслужбыИздательство: ООО "Издательство Родина"Формат: PDF, FB2, DOCX, EPUBКачество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BFC847279DA2E2E3B78F0CB72E453697153037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852706   (1056135) от 09.02.2026
 
 Сергей Демидов | Самые громкие преступления последних веков. XVI-XXI вв. (2016) [FB2]
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -599,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DFAFA6818C350D89E55BDA60EC4D2058BC51C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850917   (1054871) от 31.01.2026
-
-Поль Реньяр | Эпидемия безумия. Классика социальной психологии (Злокачественные заболевания психики. Колдовство, магнетизм, морфинизм, лихорадка величия) (2022) [PDF, FB2, RTF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054871.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошло главное сочинение известного французского физиолога П. Реньяра, в котором подробно анализируются различные формы умственных эпидемий, имевших место с XV по XIX век. Автор описывает исследуемые явления и доказывает существование связи между исторической эпохой и формой, которую принимает та или иная эпидемия – колдовство, морфинизм или мания величия. (   Читать дальше...   )Жанр: Психология, ИсторияИздательство: РодинаФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CEDEC5A0900896E3C15B0A1385C10E46079CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850924   (1054870) от 31.01.2026
-
-Ф.Зиглер | Чёрная смерть. Как эпидемия чумы изменила средневековую Европу (2023) [PDF, EPUB, MOBI, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга британского историка и писателя Филипа Зиглера представляет собой исследование распространения Черной смерти, или чумы, на территории средневековой Европы. Автор пишет об истоках и причинах возникновения мора, процессах и способах его передачи, заражения. Рассматривая и сопоставляя множество свидетельств средневековых хронистов и работы по изучению эпидемии (   Читать дальше...   )Жанр: ИсторияИздательство: ЦентрполиграфФормат: PDF, EPUB, MOBI, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636730F5CA4EFD64F2E1F9D6ED6A107BDA32FCC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850943   (1054788) от 31.01.2026
-
-М. Экмечич | История сербов в Новое время (1492–1992). Долгий путь от меча до орала (2024) [FB2, RTF, PDF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного сербского историка и учёного —академика Милорада Экмечича «Dugo kretanje između klanja i oranja istorija Srbau Novom Veku 1492–1992» («Долгий путь от меча до орала – история сербов в Новое время (1492-1992)» впервые издана на русском языке при поддержке компании «Газпром нефть».
-
-Для работы над важным для развития культурных и исторических связей (   Читать дальше...   )Жанр: История, СербияИздательство: АбрикобуксФормат: FB2, RTF, PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EDC2B8F5BDF8DC1F5C4E1778083FBF33C3E751
 ```
 
 https://mybot314.ru/tekegram_catalog/

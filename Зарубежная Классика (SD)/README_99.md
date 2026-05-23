@@ -1,3 +1,107 @@
+###  Публикация: 1609353   (244864) от 03.02.2023
+
+Я был двойником Монти / I Was Monty's Double (1958) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1944 г. Офицеры разведки майор Харви и полковник Логан пытаются разработать план, как убедить нацистов отвести войска из района в Нормандии, где настоящий генерал Монтгомери готовит наступление. Однажды вечером Харви на выходе из кинотеатра увидел, как некий актёр по имени Клифтон-Джеймс удивительно точно изображал Монти и благодаря удивительному внешнему (   Читать дальше...   )Производство: Великобритания / Film Traders Ltd., Setfair ProductionsЖанр: драма, военный, историяРежиссер: Джон ГиллерминАктеры: Джон Миллз, Сесил Паркер, Патрик Аллен, Патрик Холт, Лесли Филлипс, Майкл Хордерн, Мариус Горинг, Барбара Хикс, Дункан Ламонт, Энтони СагарПеревод: Одноголосый любительский (Виктор Рутилов)Язык озвучки: русский, английскийСубтитры: английские (SDH), русскиеПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D804820DCB7060386A4617E92E7EFD8C20D2949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625162   (244793) от 06.05.2023
+
+Адрес неизвестен / Address Unknown (1944) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Фильм нуар 1944 года режиссера Уильяма Кэмерона Мензиса, снят по роману Крессманна Тейлора “Адрес неизвестен”. Молодой художник-эмигрант из Штатов возвращается на родину в Германию, привлеченный нацистской пропагандой, даже не подозревая о том, что скрывается за громкими лозунгами и воодушевляющими речами.Производство: США / Columbia PicturesЖанр: драмаРежиссер: Уильям Кэмерон МензиесАктеры: Пол Лукас, Карл Эсмонд, Петер ван Эйк, Мади Кристианс, Моррис Карновский, Кейти Стивенс, Эмори Парнелл, Мэри Янг, Фрэнк Фэйлен, Чарльз ХэлтонПеревод: Одноголосый любительский (sephiroth)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89401777B7FE17F32CE6BBA6A663750D98503A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617345   (244373) от 28.03.2023
+
+Авось прорвёмся! / A-Haunting We Will Go (1942) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+За какую-то мелкую провинность Стэна и Олли на ночь задержали в полицейском участке в Гамильтоне, а утром велели прочь убираться из города. Найдя в газете объявление, они по нему нанимаются вести в Дейтон гроб с якобы мертвым Чарли (на самом деле это гангстеры замыслили мошенничество). В поезде Стэн и Олли знакомятся со знаменитым иллюзионистом Данте...Производство: США, 20th Century Fox Film Corporation, Laurel and Hardy Feature ProductionsЖанр: комедия, приключенияРежиссер: Альфред Л. ВеркерАктеры: Стэн Лорел, Оливер Харди, Данте, Шила Райан, Джон Шелтон, Дон Костильо, Илайша Кук мл., Эдвард Гарган, Эддисон РичардсПеревод: Одноголосый любительский (Киноклуб Феникс)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (отдельными файлами)Продолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B28B94F7C32CA476B32900D77CDC98C7A57ADE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617334   (244294) от 27.03.2023
+
+Монахиня / La Religieuse (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по произведению Дени Дидро. Сюзанн оказывается не просто несчастной девушкой, которую родители для решения своих материальных трудностей насильно закрывают в монастырь, где она проходит тяготы лишений и унижений от церковного совета, поскольку продолжает бороться за то, чтобы жить своей жизнью, она же оказывается истинной христианкой, отказывающейся слепо (   Читать дальше...   )Производство: Франция, Rome Paris Films, SNCЖанр: драмаРежиссер: Жак РиветтАктеры: Анна Карина, Лизелотте Пульвер, Мишлин Прель, Франсин Берже, Франсиско Рабаль, Кристиана Ленье, Йори Бертен, Катрин Дайамант, Жилетт Барбье, Анник МорисПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские (Seandy), английскиеПродолжительность: 02:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DD283668027A436021CE3E1E76BE04AFCA483B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617511   (244247) от 29.03.2023
 
 О, молодость! / Ah, Wilderness! (1935) DVDRip [AVO]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C694BA5945746898D61D4F46A3C4FDBDA89CB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621501   (240488) от 15.04.2023
-
-Череп и кости / Double Crossbones (1951) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое заключённых из Чарльстона совершают побег из-под стражи. Это Том Ботс и Дэйв Крендел, которые были приговорены к тюремному сроку по ложному обвинению в перепродаже награбленного пиратами. Видно, от судьбы не уйдёшь, и они случайно захватывают корабль с флагом, на котором развеваются череп и кости. Теперь они - пираты и с командой, состоящей из таких же бывших (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: мюзикл, мелодрама, комедия, приключения, историяРежиссер: Чарльз БартонАктеры: Дональд О’Коннор, Хелена Картер, Уилл Гир, Джон Эмери, Стэнли Логан, Кэтрин Гивни, Хейден Рорк, Морган Фарли, Роберт Бэррат, Алан НапьеПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020661ED16D5FFF78DA03830BC893934AF631FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541891   (240478) от 20.04.2022
-
-Великий самозванец / The Great Impostor (1960) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив самую высокую оценку на экзамене в школу офицеров, Фердинанд Демара не был принят из-за отсутствия диплома о среднем образовании. Ловкий мошенник с детства, он подделывает документы и начинает жить чужой жизнью.Производство: США / Universal International PicturesЖанр: Драма, КомедияРежиссер: Роберт МаллиганАктеры: Тони Кертис, Карл Молден, Эдмонд О’Брайен, Артур О’Коннелл, Гэри Меррил, Джоан Блэкман, Рэймонд Мэсси, Роберт Миддлтон, Жанетт Нолан, Сью Эни ЛэнгдонПеревод: Многоголосый профессиональный (ТК "Культура")Субтитры: нетПродолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C5365BA18C2978A5E1331EED617834F9D6D702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619486   (240434) от 14.04.2023
-
-Вдохновение / Inspiration (1931) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Париже модель Ивонн Вэлберт была увековечена живописцами, скульпторами и автором книги о любви. О ней говорят, что она широко известна «как Эйфелева башня». Популярная и свободная духом, красавица не знающая, что такое любовь, многих мужчин сводила с ума и служила Вдохновением для некоторых из величайших художников и писателей Европы. На богемной вечеринке, Ивонн (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрамаРежиссер: Кларенс БраунАктеры: Грета Гарбо, Роберт Монтгомери, Льюис Стоун, Марджори Рэмбо, Берил Мерсер, Джон Мильян, Эдвин Максвелл, Оскар Апфель, Джоан МаршПеревод: Одноголосый профессиональный (СВЕТЛА)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBC5AF3C801B8DB43450AE3A92D61571EC1D394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618461   (239775) от 17.04.2023
-
-Подводное течение / Undercurrent (1946) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239775.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному рассказу Тельмы Страбел. Энн Гамильтон, дочь известного английского профессора, вышла замуж за американского бизнесмена Алана. Вскоре Энн узнает от мужа, что у него был брат Майкл, который несколько лет назад после смерти их родителей исчез...Производство: США, Metro-Goldwyn-MayerЖанр: фильм-нуар, триллер, драмаРежиссер: Винсент МиннеллиАктеры: Кэтрин Хепберн, Роберт Тейлор, Роберт Митчем, Эдмунд Гвенн, Марджори Майн, Джейн Медоуз, Клинтон Сандберг, Дэн Тобин, Кэтрин Кард, Ли УайпперПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD900E28670EF767127BEBCAB1EA1314CD93592A
 ```
 
 https://mybot314.ru/tekegram_catalog/

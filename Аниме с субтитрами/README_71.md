@@ -1,3 +1,110 @@
+###  Публикация: 915609   (472789) от 22.09.2015
+
+Aoharu x Kikanjuu / Aoharu x Machinegun / Юность и оружие [2015, TV, 12 ep] HDTVRip 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Масамуне Мацуока и Тору Юкимура - дружат ещё со школьной скамьи, повзрослев, один стал хостом, а другой мангакой. Хотару Тачибана — девушка с сильным чувством справедливости, президент студсовета, которую часто принимают за парня. Такой уж у нее характер и манеры, одним словом - пацанка. С другой стороны, родители бы не позволили ей жить одной, а так, хоть какая-то (   Читать дальше...   )Жанр: приключения, комедия, сёнэнРежиссер: Накано ХидэакиПеревод: Русские субтитры от YakuSub Studio
+Переводчик/Оформление: Nika_Elrik, Редактор: NagiСубтитры: ASS, Отключаемые (внешними файлами)Формат: MP4Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD52EB2D7D30CAD0F36B43C21FB233F1ABF783C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702038   (472456) от 20.09.2013
+
+Ben-Tou / Жрач-ка [2011, TV, 12] BDrip 720p Hi10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+16-летнему Ё Сато насладиться весной жизни мешает безденежье – в школьном общежитии кормят лишь завтраком, на остальное всего тысяча иен в день, а еще мангу надо покупать! Вот и рыскал парень по местному универмагу, а потом очнулся, ничего не помня. Размотав цепочку событий, Сато понял, что случайно забрел в святое место, где каждую ночь перед закрытием продавец клеит на готовые обеды-бэнто заветные ярлычки половинной цены. После этого из-под земли вырастают бойцы, и начинается королевская битва, в которой школьники и студенты от души метелят друг друга за право получить вожделенный приз. Можно сказать, что в магазине сложился «бойцовский клуб» со своими фольклором и традициями.
+
+Все это Сато узнал не сразу, а в ходе нескольких визитов в нужный отдел, которые неизменно заканчивались одним и тем же. Упорство новичка не осталось незамеченным: у него появилась верная болельщица, симпатичная Хана Осирой. А потом над ребятами взяла шефство на год старшая «Ледяная Ведьма» Сэн Яридзуй – легендарный бэнто-боец и основатель (   Читать дальше...   )Жанр: комедия, школаРежиссер: Итагаки СинПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E221F34397B2B22567EF11B50AC27F6A8BDAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407015   (470985) от 05.09.2020
+
+Kamigami no Asobi | Забавы богов [2014, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+17-летняя Юй Кусанаги, дочь синтоистского жреца, всю жизнь только училась, прислуживала в храме да занималась фамильным стилем кэндзюцу. И вот однажды девушка обнаружила чудесный меч, одно прикосновение к которому переправило ее в странное место, похожее на огромную, но пустующую школу. Сомнения развеял повелитель Зевс, объяснивший, что молодое поколение небожителей (   Читать дальше...   )Производство: Brains Base / ブレインズ・ベースЖанр: романтика, фэнтезиРежиссер: Кавамура ТомоюкиПеревод: YakuSub Studio (Nika_Elrik, Harushechka)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D51215DE70AD151F989198A43CBEE7338C5D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407005   (470722) от 05.09.2020
+
+Hinako Note | Дневник Хинако [2017, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Хинако Сакураги живет в сельской местности, и ей довольно плохо дается общение с людьми. И дабы улучшить свои навыки общения, она решает, что со старшей школы будет учиться в Токио, и там же хочет поступить в театральный клуб. Вот только выясняется, что жить Хинако будет в старом книжном магазине, вместе с девочкой по имени Куина Нацукава. Но эта (   Читать дальше...   )Производство: Passione / パッショーネЖанр: комедия, повседневностьРежиссер: Такахаси ТакэоПеревод: UndokaktyzЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBECC9E26970CB18BE1DAD6BE68F33AEA1F7A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057922   (470590) от 30.09.2016
 
 Taimadou Gakuen 35 Shiken Shoutai | Anti-Magic Academy: The 35th Test Platoon | 35-й учебный взвод Антимагической Академии [2015, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +113,7 @@ Taimadou Gakuen 35 Shiken Shoutai | Anti-Magic Academy: The 35th Test Platoon | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ Rokka no Yuusha | Герои шести лепестков [2015, TV, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ Amaama to Inazuma / Sweetness and Lightning / Сладость и молния [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ Yawaraka Sangokushi Tsukisase!! Ryofuko-chan / Рёфуко-тян [2007, OVA, 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +217,7 @@ Kakegurui Twin | Безумный азарт: Близнец [2022, Web, 6 из 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +243,7 @@ Suzumiya Haruhi no Yuuutsu / The Melancholy of Haruhi Suzumiya / Меланхо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +270,7 @@ Mondaiji-tachi ga Isekai kara Kuru Sou Desu yo? / Проблемные дети 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +296,7 @@ Bananya | Бананя [2016, TV, 13] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +323,7 @@ Onsen Yousei Hakone-chan / Young Hot Spring Fairy Hakone-chan / Юный дух 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +350,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья (OVA-2) [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +376,7 @@ Days | Дни [2016, TV, 24 из 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +402,7 @@ Mawaru Penguindrum / Крутящийся пингвиний барабан [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +430,7 @@ Meitantei Conan / Detective Conan / Детектив Конан [1996, TV, 1-452
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +458,7 @@ Okusama wa Mahou Shoujo | Madam is a Magical Girl | Замужняя девуш�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +486,7 @@ Legend of the Galactic Heroes: My Conquest is the Sea of Stars / Легенда 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +514,7 @@ Ajin | Полулюди [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +540,7 @@ Mashiro-iro Symphony: The Color of Lovers / Белоснежная симфон�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +568,7 @@ Mashiroiro Symphony: The Color of Lovers / Белоснежная симфони
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +596,7 @@ Ore, Twintail ni Narimasu. | Gonna Be the Twin-Tail!! | Я, два хвоста 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -515,7 +622,7 @@ Itsuka Tenma no Kuro Usagi: Kokoro Utsuri no Toukoubi - School Attendance Day | 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +649,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +675,7 @@ Kurokami The Animation | Black God | Тёмная богиня [2009, TV, 23 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,111 +686,6 @@ Kurokami The Animation | Black God | Тёмная богиня [2009, TV, 23 э�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02D2BDCCED901D4FFFB5C078D002A23F587E957F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058947   (463889) от 03.10.2016
-
-Gekijouban Hibike! Euphonium / Sound! Euphonium The Movie / Играй, эуфониум! (фильм) [2016, Movie] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463889.jpg" />
-</div>
-
-
-###  Подробнее
-
-После не очень удачного выступления в региональном соревновании духовых оркестров среди средних школ, Кумико Омаэ надеялась начать всё с нуля в старшей школе. Ей повезло — в новой школе она быстро находит людей, занимающихся музыкой и заинтересовавшихся идеей создания школьного духового оркестра.
-Новыми товарищами Кумико стали: Хазуки Като, новичок, играющая на тубе; (   Читать дальше...   )Производство: Kyoto AnimationЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: Sa4ko aka Kiyoso & ZenobianСубтитры: ASSФормат: MKVПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DC53DC8AA1DA0B248EDF1E4EDEA468BFD6CD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568334   (463820) от 07.08.2022
-
-Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Простолюдин в школе благородных девиц [2015, TV, 12 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская школа Сэйкайн воспитывает дочерей японской элиты, да вот беда – жизнь и обучение там застряли в галантной эпохе Тайсё. Утонченные выпускницы не могут адаптироваться в реальности, полной непонятной техники и грубых невежд. Решение нашлось быстро – старшеклассника Кимито Кагурадзаку взяли под белы руки, привезли и объяснили, что отныне он – образец простолюдина, (   Читать дальше...   )Производство: Студия Silver LinkЖанр: комедия, романтика, эттиРежиссер: Дзимбо МасатоПеревод: Dreamers Team & Komugi-chan & GeraleЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 6 SP по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01051F7F6E0CA7C1BBAB61E3CE2060B8EA66387B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568318   (463809) от 07.08.2022
-
-Nozo x Kimi | Нодзоми и Кимио [2014, OVA, 3 из 3] DVDRip 576p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суга Кимио оказывается в женской раздевалке, без возможности выйти и избежать неприятной ситуации, так как в школу уже начали прибывать девушки. И хотя изначально у него были совершенно иные мотивы, услышав девушек он запаниковал и спрятался в шкафчике. Коминэ Нозоми, скромница из его класса, обнаруживает его, но неожиданно помогает. В недоумении, но все же радостный (   Читать дальше...   )Производство: Студия Zexcs / ゼクシズЖанр: комедия, эттиРежиссер: Дзимбо МасатоПеревод: LookerAЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C96B85AD9922B5DDAE1391D3AA257154A9F9306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 106003   (463754) от 08.09.2020
-
-Devilman: Tanjou Hen / Devilman - The Birth / Человек-дьявол OVA-1 [1987] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акира учится в школе, у него есть знакомая девушка, а ещё он держит маленьких пушистых кроликов. Иногда приходят местные отморозки, чтобы поубивать его питомцев. Всё вроде бы нормально. В один прекрасный денёк к нему за помощью приходит его друг Рио. Оказывается, его отец работал над странным артефактом, который связан с другим страшным миром, но контроль был утерян, (   Читать дальше...   )Производство: Dynamic PlanningЖанр: приключения, ужасы, фэнтезиРежиссер: Иида УманосукэЯзык озвучки: ЯпонскийСубтитры: EN ASS (в контейнере), RU SSAФормат: MKV DVDRipПродолжительность: 1 эп. 51 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6AB9DDA6F38A44394A16B82C110FCCE0E385BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1847216   (1051904) от 11.01.2026
+
+Георгий Васильев | Верхум (2025) [MP3, Георгий Васильев]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+«Верхум» – исследование коллективного разума, пронизывающего все структуры культуры и общества.
+Через метафоры и личные истории автора в книге раскрывается, как рождается «личность» социума, и почему это меняет наше понимание реальности. Эта книга о том, как мыслит социум. Верхум можно расшифровать как «верхний ум», то есть мышление вне мозга. В узком смысле верхум (   Читать дальше...   )Жанр: СоциологияИздательство: CorpusПродолжительность: 15:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4761FE797F396FDE08F49D38526659F2E65B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846829   (1051546) от 09.01.2026
+
+Зигмунд Фрейд | О добывании огня. Сборник (2023) [MP3, Игорь Гмыза]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Толкование сновидений, сексуальные аспекты развития личности и мифы – в данном сборнике Фрейд раскрывает широкий спектр своих гипотез и убеждений! Зигмунд Фрейд (1856–1939) – знаменитый врач-психиатр, создатель теории психоанализа, имя которого известно даже тем, кто никогда не читал его работ. В свое время идея Зигмунда Фрейда о влиянии полового инстинкта на психику (   Читать дальше...   )Жанр: Философская проблематика, Зарубежная психологияИздательство: АСТПродолжительность: 05:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17C8A7BB24E7AD5C2A890463D110042A7DA799F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846844   (1051545) от 09.01.2026
+
+Александр Боханов | Царь Иоанн IV Грозный (2025) [MP3, Павел Ломакин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся историк Александр Боханов представляет адекватный портрет первого царя Московского государства, чья фигура веками вызывает яростные споры.
+Первый Царь Московского государства Иоанн Васильевич (1530–1584), получивший народное прозвание «Грозный», – одна из самых величественных фигур в пантеоне Русской истории. При нём Русь-Московия превратилась в великую (   Читать дальше...   )Жанр: Биографии и мемуары, Биографии политиков, Великие правители, Иван Грозный, Исторические исследования, Исторические личности, История России, Мифы истории, Научпоп: прочее, Политическая историяИздательство: АСТПродолжительность: 14:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0122F16C8363C00720FC81A512CD019CDDF7FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846839   (1051544) от 09.01.2026
+
+Вадим Панов | Симулятор безумия. Как Четвертая промышленная революция превратит Homo Sapiens в Homo Servus? (2025) [MP3, Константин Днепровский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эпоху бурного технологического развития, в которую вступило человечество, автор называет Четвёртой революцией и считает, что наряду с Великой Французской, Великой Промышленной и Великой Русской революциями она перевернёт мир, индустрию и социальные отношения, превратит жизнь каждого из нас в уютный симулятор и обеспечит переход от Homo Sapiens к Homo Servus. Вам (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 05:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04990DC1E6F50F9C8E7198E90294970DD9DFA34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845330   (1050710) от 31.12.2025
 
 Эдуард Сирота | Риторика. Для тех, кто хочет все успеть (2025) [MP3, Павел Ломакин]
@@ -6,7 +112,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,114 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1F15BF052D03530A6E50D67BD4AD210FEA0ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840929   (1047748) от 08.12.2025
-
-Виталий Третьяков | Как стать знаменитым журналистом (2025) [MP3, Филипп Матвеев-Витовский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декан Высшей школы телевидения МГУ простым языком объясняет все тонкости профессии.
-Практическое руководство для тех, кто хочет добиться успеха в журналистике, избежав главных ошибок.
-Быть журналистом – не просто ремесло, это мастерство, которому можно и нужно учиться!
-Как стать настоящим, честным журналистом, расскажет Виталий Товиевич Третьяков, декан Высшей школы (   Читать дальше...   )Жанр: Выбор профессии, Журналистика, История журналистики, Писательское мастерствоИздательство: АСТПродолжительность: 13:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8119B7BCA1EB3698CA77D01E58B54D212459FA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840770   (1047458) от 07.12.2025
-
-Александр Прасол | Роботы. История развития машин (2025) [MP3, Максим Полтавский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047458.jpg" />
-</div>
-
-
-###  Подробнее
-
-От древних механизмов до искусственного интеллекта – захватывающая эволюция роботов. Как они изменили мир и что ждет человечество в эпоху умных машин?
-В этой книге представлен путь развития робототехники: от первых и самых примитивных механизмов до современных моделей, способных выполнять даже самые сложные задачи. Вы познакомитесь с большим и интересным миром роботов, (   Читать дальше...   )Жанр: Будущее и технологии, Высокие технологии, Информационные технологии (IT)Издательство: АСТПродолжительность: 04:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1990D684B86BE325BAF2DF16E57A8D3EDB76F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840262   (1047103) от 04.12.2025
-
-Роберт Вольке | О чем Эйнштейн рассказал своему повару (2019) [MP3, Арсений Лес]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еда является для нас чем-то обыденным, мы редко задумываемся о том, что и как мы едим, что происходит с блюдами и продуктами до того, как они появляются на нашем столе, почему одни из них нам нравятся больше, другие меньше, почему одни из них полезны, а другие нет. Между тем каждый день на кухне случаются чудеса, которых мы не замечаем. Автор доходчиво, просто и (   Читать дальше...   )Жанр: Научно-популярная литература, кулинарияИздательство: Аудиокнига своими рукамиПродолжительность: 11:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99D027F393DB738203CE48B93432CD3E52250C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840122   (1047078) от 03.12.2025
-
-Михаил Ярин | Навыки выживания в дикой природе: Карманное руководство (2025) [MP3, Пётр Власов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если вы заблудились в лесу? Как развести костёр без спичек и подать сигнал спасателям? Михаил Ярин, эксперт с многолетним личным опытом походов и практики в условиях дикой природы, даёт ясные и проверенные рекомендации, которые могут спасти жизнь. Аудиокнига учит главному: сохранять физическое и психическое здоровье в экстремальной ситуации до прибытия (   Читать дальше...   )Жанр: Дикая природа, Искусство выживания, РуководстваИздательство: Альпина ПаблишерПродолжительность: 03:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A4C012698DADDCC19999CEFC8FBC4B20599E59
 ```
 
 https://mybot314.ru/tekegram_catalog/

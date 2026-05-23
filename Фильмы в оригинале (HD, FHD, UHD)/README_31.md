@@ -1,3 +1,83 @@
+###  Публикация: 1552900   (585666) от 22.05.2022
+
+Хозяйство / Housekeeping (1987) BDRip [H.264/720p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Где-то на северо-восточном побережье Тихого океана две маленькие девочки после смерти матери переходят как нежеланная обуза от одних родственников к другим, пока, наконец, не попадают в одинокий дом на берегу озера под присмотр своей эксцентричной тети Сильвии.Производство: США, Канада / Columbia PicturesЖанр: комедия, драмаРежиссер: Билл ФорсайтАктеры: Кристин Лати, Сара Уолкер, Андреа Бурчилл, Энн Питониак, Барбара Риз, Margot Pinvidic, Билл Смилли, Уэйн Робсон, Бетти Филлипс, Карен Элизабет ОстинПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0964530394D188B6AB865BFB37F9F0C6070E379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552738   (585653) от 22.05.2022
+
+Клон / Dual (2022) WEB-DL [H.264/1080p] [EN / ES Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В мире будущего люди вынуждены отстаивать свое право на существование в публичных смертельных поединках со своими клонами. Когда специалисты ставят Саре тяжелый диагноз, она приобретает собственного двойника, чтобы он заботился о близких. Но когда девушка выздоравливает и решает деактивировать клона, она сталкивается с новым суровым законом. Саре придется сойтись (   Читать дальше...   )Производство: Финляндия, США / BondIt, Business Finland, Film Service Finland OyЖанр: фантастика, боевикРежиссер: Райли СтернсАктеры: Карен Гиллан, Аарон Пол, Бела Коале, Тео Джеймс, Элина Джексон, Майя Паунио, Реа Лест, Джун Хайд, Кристофер Гуммерус, Нико СиккиненПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ИспанскиеПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0C9224A032DB3530BF1AD79730EEBE0C74004D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040601   (585094) от 06.08.2016
+
+Пришельцы 3: Взятие Бастилии / Les Visiteurs: La Revolution / The Visitors: Bastille Day (2016) BDRip [H.264/1080p] [FR / FR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм является продолжением второй части.
+Последний раз отправившись в XX век, Годфруа и Жакуй так и не вернулись в Средневековье. Ведьма рассказывает воинам Годфруа, что их господин на самом деле не пропал, а находится в будущем. Из-за пребывания в коридорах времени герои ускоренно стареют, их тела стали выглядеть на 10 лет старше.
+Годфруа и Жакуй прибывают в 1793 (   Читать дальше...   )Производство: Франция, BNP Paribas Fortis Film Finance, Canal+ (fr), Ciné, GaumontЖанр: Комедия, Приключения, ФантастикаРежиссер: Жан-Мари ПуареАктеры: Кристиан Клавье, Жан Рено, Франк Дюбоск, Карин Вьяр, Сильви Тестю, Мари-Анн Шазель, Эри Абиттан, Алекс Лутс, Стефани де Крэенкур, Вероника БуланжерПеревод: ОтсутствуетЯзык озвучки: ФранцузскийЯзык субтитров: ФранцузскиеПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910247424CA882D81F1FFA3C236F574C63753C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919408   (583797) от 18.07.2015
 
 X+Y / X+Y (2014) BDRip [H.264/1080p] [EN / Ch Sub]
@@ -6,7 +86,7 @@ X+Y / X+Y (2014) BDRip [H.264/1080p] [EN / Ch Sub]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,85 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE1E085A867E787C66830DB760E3FB2D09875054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922521   (569858) от 28.07.2015
-
-Послушай, Филип / Listen Up Philip  (2014) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Филип - молодой, успешный и невыносимо самовлюбленный писатель-мизантроп, ничуть не сомневающийся в своей гениальности. Даже негативная статья из Times - не повод для уныния: он по-прежнему убежден, что готовящаяся к печати книга говорит сама за себя и не нуждается ни в какой PR-кампании, как и сам Филип не нуждается в своей девушке, шумном городе, людях и вообще (   Читать дальше...   )Производство: США, Sailor Bear, Faliro House Productions and Washington Square Films.Жанр: драма, комедияРежиссер: Алекс Росс ПерриАктеры: Джейсон Шварцман, Элизабет Мосс, Кристен Риттер, Жозефин де ла Буме, Джонатан Прайс, Джесс Вейкслер, Дри Хемингуэй, Кит Поулсон, Кейт Лин Шейл, Юсеф Булос, Майте Алина, Дэниэл ЛондонПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547DE73909B1A2DFE71FF29029F57CF38A8B36E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043899   (568516) от 18.08.2016
-
-До встречи с тобой / Me Before You   (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лу Кларк знает, сколько шагов от автобусной остановки до ее дома. Она знает, что ей очень нравится работа в кафе и что, скорее всего, она не любит своего бойфренда Патрика. Но Лу не знает, что вот-вот потеряет свою работу и что в ближайшем будущем ей понадобятся все силы, чтобы преодолеть свалившиеся на нее проблемы.
-Уилл Трейнор знает, что сбивший его мотоциклист (   Читать дальше...   )Производство: США, Великобритания, Metro-Goldwyn-Mayer, New Line CinemaЖанр: драмаРежиссер: Теа ШэррокАктеры: Эмилия Кларк, Сэм Клафлин, Дженна-Луиз Коулмэн, Мэттью Льюис, Чарльз Дэнс, Джоанна Ламли, Джанет МакТир, Ванесса Кирби, Брендан Койл, Александр Купер, ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанский, португальскийПродолжительность: 01:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512E28A318CAE0A3299A469AACE968F0266FB5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555724   (566887) от 05.06.2022
-
-Шпион, который никогда не умирает / The Spy Who Never Dies (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шпион мирового класса влюбляется в необычную женщину и должен решить, как построить отношения с нормальным человеком, в то время как другие вокруг него пытаются разрушить как отношения, так и многое другое.Производство: Австралия / Rhythmic FilmsЖанр: боевик, триллер, мелодрама, комедияРежиссер: Кори ПирсонАктеры: Тересса Лиэн, Кассандра Маграт, Пол О’Брайэн, Эми Кристиан, Georgia Walters, Джаспер Бэйг, Jamie Vergan, Natasha Maymon, Amir Aizenstros, Ana NguyenПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH)Продолжительность: 01:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEEA96CB35E19CC6BF659F805DA97E7424CEC9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1697689   (118275) от 10.02.2024
+
+VA - Sensual Piano Jazz: Restaurant Week 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Tamara Erotique - Sexy Music Lounge (Go to the Club) (3:08)
+02. Jazz Erotic Lounge Collective - Sensual Massage (Erotic Games) (5:31)
+03. Sexting Jazz Music - Erotic Lounge (4:32)
+04. Tamara Erotique - French Kiss (Paradise) (3:51)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F80CBDB5B5A8B4BCE58736FDF237D23F6B6D131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698404   (117976) от 12.02.2024
+
+VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, New Age, Electro>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. B-Tribe,AH*NEE*MAH,Mohicans,Chillout Cafe,Winds Of Minds,EverLight,Relax Bro - Kindred Spirit [04:51]
+02. B-Tribe,AH*NEE*MAH,Mohicans,Stress Relief Calm Oasis,Majestic Sleep,Binaural Landscapes - Living Your Ending [03:50]
+03. B-Tribe,AH*NEE*MAH,Mohicans,Dormiente,Mellow Line,Relaxing Spa Music - In The Magic Of Cosmos [04:50]
+04. B-Tribe,AH*NEE*MAH,Mohicans,Our (   Читать дальше...   )Жанр: Native American, New Age, ElectroПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57FA0E6525BD18B04FEFDB28E7988C59A0CBF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699246   (117972) от 12.02.2024
+
+Kevin Costner & Modern West - Untold Truths (2008) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock,Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1. Long Hot Night
+2. 90 Miles an Hour
+3. Hey Man What About You?
+4. Superman 14(   Читать дальше...   )Жанр: Pop/Rock,CountryПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97070E0A36822B9C0FDE210AF16A70C3BE4BBE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699250   (117968) от 12.02.2024
+
+Kevin Costner & Modern West - Turn It On (2010) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1. Turn It On
+2. Ashes Turn to Stone
+3. Moon So High
+4. Maria Nay(   Читать дальше...   )Жанр: CountryПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967DBF74FFD31A69AE6F7C22A17108FCF4351086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697694   (117890) от 13.02.2024
+
+VA - Atomic Heart, Vol.4 (Original Game Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Progressive, Electronic, Metal>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Братство Атома, BassnPanda & Квашеная - Звенит январская вьюга [00:03:17]
+02. Альянс, Братство Атома & BassnPanda - На Заре [00:03:30]
+03. Geoffplaysguitar - Cookie Crumbler [00:04:22]
+04. Geoffplaysguitar - Goose Run [00:05:31](   Читать дальше...   )Жанр: Breakbeat, Progressive, Electronic, MetalПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520A8EA59285ED544EC63E4F6D8B0AD39372919E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698383   (117805) от 13.02.2024
+
+Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечности) (2001) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Bare Bare
+02. Hashir Prabhat
+03. Bahir Haite
+04. Ogo Mor(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A782736ED7EE4CA8F18EF458C05C3247872F84EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697514   (117799) от 13.02.2024
+
+Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Dodet
+02. Andro
+03. Barentanz
+04. Quant je suis mis au Retour & Douce Dame Jolie(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01F3D890BB0602C07B85477A970F7B0B78DC67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699088   (117798) от 13.02.2024
 
 ЗОР - Буу Ай (2022) [MP3|320 Kbps] <Buryat Ethnic Music, Folk>
@@ -6,7 +209,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Corbetta, Izhar Elias - La Guitarre Royalle (2018) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Oliver Scheffner - Ambient Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +528,7 @@ Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +615,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka (1980) [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +644,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka Two Colors (1989) [
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +673,7 @@ Spiritual Seasons - Metal Age (2017) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +702,7 @@ Spiritual Seasons - Villeman (2022) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -542,208 +745,6 @@ Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B176D60114CF901E5781B7A995CE97A20AFD27F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713117   (111824) от 07.04.2024
-
-VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|Lossless|tracks + .cue] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song Huei Liou & Ya Ging Ging - Om Mani Padme Hum
-02. Song Huei Liou & Ya Ging Ging - Mantra of Avalokiteshvara
-03. Sheng Horng - Om Mani Padme Hum (Alternate Version)Жанр: MantrasПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD6BA2636B70AB129504B454E268CD206E8B4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715788   (111484) от 13.04.2024
-
-Kitaro - Warme-Cosmic Love (1985) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga 3:38
-02. Sunset 5:14
-03. Linden 3:17
-04. Theme Of Silk Road 4:56(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9063C5E57EFCD1A6E398F8A38691186580CFDD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717433   (111205) от 20.04.2024
-
-Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <Saxophone, Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynamite [03:20]
-02. Sacrifice [03:38]
-03. Memories [03:38]
-04. Circles [04:54](   Читать дальше...   )Жанр: Saxophone, Easy Listening, InstrumentalПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A384097BCEAE7DD1615530201BD3D1D2D1A5F19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720488   (110325) от 03.05.2024
-
-VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juantxo Munoz & Robric & Tibetania - Desert Moon (Original Mix) (6:42)
-02. DJ Arte & Alsur & Tibetania feat. DJ Mell - Eunoia (Original Mix) (5:07)
-03. Juantxo Munoz & Robric & Tibetania - Oman (Original Mix) (6:22)
-04. Indiano & Tibetania - White Love (Original Mix) (7:18)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD09ABE447896D9B65E5D806A2DA0214451CD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720612   (109889) от 09.05.2024
-
-El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водил меня Серёга на капище Сварога [00:03:03]
-02. Я как Дичеслав (Из былины) [00:02:21]
-03. Про короля [00:02:14]
-04. Ярость топора [00:04:02]Жанр: Folk RockПродолжительность: 2 CD, 00:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B0C900CF92DC58C92668DC371AFE5652EE9D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720924   (109797) от 10.05.2024
-
-Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woledto [02:03]
-02. Ganeni [02:57]
-03. Callin' U (Tamally Maak) [01:57]
-04. Al Sham [02:46](   Читать дальше...   )Жанр: World, Arabic, R&BПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C61B4F7B790846A18C1DBE245093B3737E48D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722754   (109604) от 14.05.2024
-
-Mark Ashley - Instrumentals Vol. 2 (2024) [MP3|320 Kbps] <Instrumental Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are the One (Karaoke Version) (3:36)
-02. Like an Angel (Instrumental) (3:16)
-03. The Fans of Modern Talking (Karaoke Version) (3:23)
-04. Hot Like Fire (Instrumental Extended Remix) (7:21)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9942F2D9C91A584A05F6BCDF6B2C378D82C02815
 ```
 
 https://mybot314.ru/tekegram_catalog/

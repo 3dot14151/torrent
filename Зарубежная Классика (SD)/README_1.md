@@ -1,3 +1,108 @@
+###  Публикация: 1847985   (1052391) от 15.01.2026
+
+Аванти! / Avanti! (1972) HDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация по произведению Сэмьюэля А. Тейлора.
+Бизнесмен из Балтимора узнает, что его отец умер в Италии. Приехав в красивый итальянский курорт за телом покойного отца и по воле судьбы познакомившись с забавной леди, он из «сухого» бизнесмена превращается в романтика.Производство: США, Италия / Jalem Productions, Phalanx ProductionsЖанр: комедия, мелодрама, экранизацияРежиссер: Билли УайлдерАктеры: Джек Леммон, Джульетт Миллс, Клайв Ревилл, Эдвард Эндрюс, Джанфранко Барра, Франко Ангрисано, Пиппо Франко, Франческо Акампора, Джизельда Кастрини, Раффаель МоттолаПеревод: Многоголосый профессиональный (DVD Магия)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7D9397F6016AB3E785298024270F3E5AE4EE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847760   (1052330) от 14.01.2026
+
+Между вчера и завтра / Zwischen gestern und morgen / Between Yesterday and Tomorrow (1947) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В послевоенной Германии группа бывших постояльцев возвращается в роскошный мюнхенский отель, где их преследуют воспоминания о прошлом, связанном с Нелли Дрейфус, еврейкой, погибшей в нацистскую эпоху.Производство: Германия / Bavaria Film, Neue Deutsche Filmgesellschaft (NDF)Жанр: драма, мелодрама, военныйРежиссер: Харальд БраунАктеры: Хильдегард Кнеф, Винни Маркус, Сибилла Шмиц, Вилли Биргель, Виктор де Кова, Виктор Штааль, Карста Лёкк, Адольф Гондрелл, Вальтер Киаулен, Эрих ПонтоПеревод: Авторский (Юрий Сербин)Язык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1D750C2BEF3397E8524599788E96F9C0F8EC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847629   (1052282) от 22.01.2026
+
+Единственный ангел на земле / Ein Engel auf Erden (1959) WEB-DLRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Если бы он случайно посмотрел в её глаза, она бы замерла от счастья! Маленькая стюардесса Лина красива, великолепна, безумно влюблена, и все же совершенно несчастна. Потому, что является для соблазнителя и гонщика Пьера Шелло пустым местом. Он думает только о своей невесте, богатой и избалованной Августе фон Мюнхенбург. Даже лучший друг Мишель не может заставить (   Читать дальше...   )Производство: Германия (ФРГ), Франция / CCC Filmkunst GmbH, Criterion Productions, Regina-FilmЖанр: фэнтези, мелодрама, комедияРежиссер: Геза РадваньиАктеры: Роми Шнайдер, Анри Видаль, Мишель Мерсье, Жан-Поль Бельмондо, Эрика фон Телльман, Маргарете Хааген, Жан Брошар, Полетт Дюбо, Жан Тиссье, Пьер СержольПеревод: Одноголосый любительский (ССК+)Язык озвучки: Русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EE0671CCADD05333657D289DB57CD6325B84B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847463   (1052238) от 22.01.2026
+
+Аванти! / Avanti! (1972) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Миллионер из Балтимора узнает, что его отец умер в Италии. Он едет туда, чтобы перевезти тело покойного на родину. И с изумлением узнает, что отец умер в объятиях любовницы. А сообщает ему эту пикантную подробность ее дочь, в которую он благополучно влюбляется, следуя таким образом по стопам шалуна-папеньки. Смешная и тонкая комедия, поставленная по пьесе Сэмюэла (   Читать дальше...   )Производство: США, Италия / Jalem Productions, Phalanx Productions, Produzioni Europee Associati (PEA), The Mirisch CorporationЖанр: мелодрама, комедияРежиссер: Билли УайлдерАктеры: Джек Леммон, Джульетт Миллс, Клайв Ревилл, Эдвард Эндрюс, Джанфранко Барра, Франко Ангрисано, Пиппо Франко, Франческо Акампора, Джизельда Кастрини, Раффаель МоттолаПеревод: Многоголосый профессиональный (DVD Магия, НТВ), двуголосый профессиональный (НТВ+), авторский (В.Белов)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534ED960A3FD5334E43145A8B3631E897B44267F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846911   (1051538) от 09.01.2026
 
 Пожнёшь бурю / Inherit the Wind (1960) BDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -567,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFDF3534F0141CF684DCB624DEAD9AF750C1E746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605977   (1044613) от 20.01.2023
-
-Капитан Хайберских стрелков / King of the Khyber Rifles (1953) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сын английского офицера и мусульманской танцовщицы, после гибели своих родителей воспитывался в семье их единственного друга, афганского торговца. Алан Кинг в чине капитана возвращается в Пешавар, где становится во главе подразделения Хайберских стрелков, набираемых из афганцев. Чопорное английское колониальное общество не принимает его в свой круг. Он оказывается (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: драма, мелодрама, приключения, историяРежиссер: Генри КингАктеры: Тайрон Пауэр, Терри Мур, Майкл Ренни, Джон Джастин, Гай Рольф, Ричард Уайлер, Мюррэй Мэтисон, Фрэнк ДеКова, Арджентина Брунетти, Суджата РубенПеревод: Одноголосый закадровый (Kolobroad)Язык озвучки: русский, английскийСубтитры: русские (отдельно)Продолжительность: 01:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE52E5867DA0DDC42DCD0B800BD1C24A699491A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601970   (1044598) от 20.01.2023
-
-Осуждённый / Convicted (1950) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джо Хаффорд был осуждён за непреднамеренное убийство. Начальник тюрьмы Джордж Ноуленд сочувствует Джо и пытается облегчить его тюремную жизнь. Когда Джо становится свидетелем убийства тюремного осведомителя другим заключённым, он в соответствии с тюремным «кодексом молчания» отказывается назвать имя убийцы, даже несмотря на то, что его самого могут обвинить в убийстве...Производство: США / Columbia Pictures CorporationЖанр: фильм-нуар, боевик, драма, криминалРежиссер: Генри ЛевинАктеры: Гленн Форд, Бродерик Кроуфорд, Миллард Митчелл, Дороти Мэлоун, Карл Бентон Рейд, Фрэнк Фэйлен, Уилл Гир, Марта Стюарт, Генри О’Нилл, Дуглас КеннедиПеревод: Одноголосый закадровый (Алексей Багичев)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B93B7031A6ED9712BC34445B1612B246AA5B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602345   (1044484) от 21.01.2023
-
-Пэйтон Плейс / Peyton Place (1957) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что Констанс, как и другие родители, населяющие этот образцово-порядочный городок, стремятся растить своих детей-подростков по всем правилам хорошего тона и воспитания, скандалы только набирают оборот вокруг них: пьяный сторож избивает свою падчерицу, что влечет за собой убийство, суд и осознание того, что все в этом городе далеко не так хорошо, как (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Jerry Wald ProductionsЖанр: Драма, МелодрамаРежиссер: Марк РобсонАктеры: Лана Тернер, Ли Филипс, Ллойд Нолан, Артур Кеннеди, Расс Тэмблин, Терри Мур, Хоуп Лэнг, Дайан Варси, Дэвид Нельсон, Бэрри КоуПеревод: Многоголосый профессиональный, FOX InternationalСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429C448D27970162DBC87117E66CA7ABD047707F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194266   (1044466) от 21.01.2023
-
-Молчание моря / Le silence de la mer (2004) DVDRip [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая экранизация одноименной книге Веркора (наст. имя и фам. Жан Брюллер).
-Тихий провинциальный французский городок времен Второй мировой войны. В дом, где живет молодая учительница музыки Жанна и ее дедушка Андрэ, вселяется молодой немецкий офицер Вернер. Андрэ и Жанна не могут повлиять на присутствие «гостя», который вдобавок занял комнату погибших родителей (   Читать дальше...   )Производство: Франция, Бельгия / Expand Drama, Radio Télévision Belge Francophone (RTBF), Saga Film (I)Жанр: драма, мелодрама, военный, экранизацияРежиссер: Пьер БутронАктеры: Жюли Деларме, Мишель Галабрю, Тома Жуанне, Мари Бюнель, Тимоти Ферран, Жан-Батист Пюэк, Йорг Шнасс, Йорн Камбреленг, Франк Бекманн, Александр АшкеназиПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304D98D1BB6107E33AE2C5EFC5502758FDF46C22
 ```
 
 https://mybot314.ru/tekegram_catalog/

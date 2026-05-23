@@ -1,3 +1,55 @@
+###  Публикация: 1079908   (682253) от 18.05.2017
+
+Настоящий гений / Чистый гений / Pure Genius (2016) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Медицинская драма с технологическим уклоном, затрагивающая темы, которые определённо встанут вскоре перед человечеством. Два главных героя – люди разных профессий и мировоззрений, чьё сотрудничество является с одной стороны вынужденным, а с другой – очень перспективным. Один – молодой технический гений из Силиконовой долины. Второй – гениальный хирург с достаточно (   Читать дальше...   )Производство: СШАЖанр: драмаРежиссер: Марк Пизнарский, Дэвид СемелАктеры: Гилфорд Адамс, Одетт Эннэйбл, Мэттью Джон Армстронг, Эктор Луис Бустаманте, Каллен Дуглас, Мариса Эчеверриа, Уорд Хортон, Аарон Дженнингс и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~00:42:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB390AEF2030E4A1F5529AF8D611225591235241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528869   (682095) от 08.03.2022
+
+Засуха / Sequia (2022) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Засуха осушила водохранилище Кампомедиано, и на поверхности оказалось преступление двадцатилетней давности. Два трупа с огнестрельными ранениями, найденные на дне, всколыхнут тихий городок на границе Испании и Португалии. Инспектору Даниэле Янес предстоит выяснить подробности случившегося и вытащить на свет еще не один «скелет из шкафа» ...Производство: Португалия, Испания / Atlantia Media, Coral Europa, Radio Televisión Española (RTVE)Жанр: триллер, криминалРежиссер: Хоакин Льямас, Ориоль ФеррерАктеры: Елена Ривера, Родольфо Санчо, Марко Де Альмейда, Мирйам Гальего, Мигель Анхель Муньос, Гильерме Филипе, Маргарида Маринью, Сорая Чавес, Хуан Хеа, Beatriz Frazão и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, испанскийСубтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствует реклама - аудио+видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C90932F716D3F121A4122807B2BC549DCFD750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528870   (682003) от 08.03.2022
 
 Засуха / Sequia (2022) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A20A8B93758D6C7FAF00CCA2F0166A1DDDD9CEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130139   (664034) от 29.05.2017
-
-Сотня / The 100 (2017) WEBRip [H.264/1080p] (сезон 4, серии 1-13 из 13) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664034.jpg" />
-</div>
-
-
-###  Подробнее
-
-События в сериале начинают разворачиваться по прошествии девяносто семи лет после того как всю цивилизацию уничтожила страшная атомная война. Высоко в космосе на орбите Земли летает большой космический корабль, именно здесь находятся те, кто выжил после страшной катастрофы. Они единственные кто пережил этот ужасный катаклизм который устроило человечество. Именно (   Читать дальше...   )Производство: США / Bonanza Productions, Alloy Entertainment, Warner Bros. TelevisionЖанр: фантастика, драма, детективРежиссер: Дин Уайт, Эд Фрэйман, П.Дж. ПешеАктеры: Элиза Тейлор, Пейдж Турко, Боб Морли, Мария Авгеропулос, Девон Бостик, Кристофер Ларкин, Линдси Морган, Ричард Хэрмон, Зак Макгоун, Исайя Вашингтон, и др.Перевод: Многоголосый профессиональный - AMS (Adis Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:45:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2FF07E73AE9CCC343710A99B6554A619E55D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168995   (663566) от 12.05.2018
-
-Смертельное оружие / Lethal Weapon (2017) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-22 из 22) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский Мартин Риггз работает в Техасе, он весел, бесшабашен, счастливо женат и ждет рождения сына. Но по дороге в роддом его жена гибнет в ДТП, и Риггз превращается в сломленного человека, который искренне желает умереть, поскольку жить ему теперь незачем. Он переезжает в Лос-Анджелес, поступает в тамошнюю полицию и получает в напарники 50-летнего Роджера Мерту. (   Читать дальше...   )Производство: США / Good Session, Lin Pictures, Warner Bros. TelevisionЖанр: боевик, триллер, драма, криминалРежиссер: Стив Бойум, МакДжиАктеры: Клейн Кроуфорд, Дэймон Уайанс, Джордана Брюстер, Данте Браун, Джонатан Фернандес, Чандлер Кинни, Кевин Рам, Киша Шарп, Флориана Лима и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4BE8866F2BA28CDDB0E658F1F37B1A38F4D2F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

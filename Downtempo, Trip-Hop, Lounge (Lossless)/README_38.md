@@ -1,3 +1,264 @@
+###  Публикация: 1799840   (16222) от 30.05.2025
+
+VA - Maretimo Chill Radio - Best of Vol.4 - Positive Summer Vibes (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Cinematic - Costa Soleada (4:38)
+02. Vladi Strecker - Good Morning (4:17)
+03. DJ Maretimo - Pure Destination (5:09)
+04. Airstream - The Art of Lounge (4:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B965B9B6F07DAC2A0071D2D01F032334B5399E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800411   (15827) от 02.06.2025
+
+VA - Chill Out Paradise, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Steen Thottrup - A Arte De Viver (04:13)
+ 02.  Lemongrass; Keisuke Sakai - Natsu No Yo (Lemongrass Midsummer Remix) (03:13)
+ 03.  Lounge Groove Avenue - Kiss Me (03:14)
+ 04.  Bazille Noir - Mutualism (03:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CC1E7C6741EE2B5FD511B3F139AD01DC1A5B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800765   (15576) от 05.06.2025
+
+VA - Peaceful State: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Pier-O - Coral Reef (5:44)
+02. Fake and True - Sleep Therapy 3 (10:07)
+03. sarosa - First Gate of Dreaming (5:56)
+04. Dellasollounge - Fantasy Flute (2:59)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28095E03F8C6D65F0F09996DC2E05B6BA07B820E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801691   (14830) от 12.06.2025
+
+V.A. - Cafe del Mar Ibiza Chillout Mix VI (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Brixton Underground & Cafe Del Mar - Can I Change Your Mind (Mixed)
+02. The Variable Club & Cafe Del Mar - Golden Sand (Mixed)
+03. A Vision Of Panorama & Cafe Del Mar - Neon Whispers (Mixed)
+04. Pig&Dan - Can't Do it on My Own (Mixed)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB44D489604182F35B946452451DB23EA3DB20D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802516   (14305) от 17.06.2025
+
+VA - Lounge Avenue, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Five Seasons - Hope (Original Mix) (04:08)
+ 02.  Living Room - Surfing on a Karma Wave (03:41)
+ 03.  Weathertunes - Flying Birds (Original Mix) (04:59)
+ 04.  Luis Hermandez - Toxic (03:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF2A9BBD33D30CBFB160825F873EC16CD5E9D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802512   (14302) от 17.06.2025
+
+VA - Lounge Avenue, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Living Room - Getting High (04:57)
+ 02.  Chris Le Blanc - Stranded (05:09)
+ 03.  Five Seasons - It's All Good, Man (Original Mix) (04:17)
+ 04.  Calmabohain - Calma (@Sunset Mix) (04:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7832EBA70BADE5134BC63469E85D7B37FE9FFFF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802955   (14010) от 20.06.2025
+
+V.A. - Cafe del Mar 45th Anniversary (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1. Jakatta, David Lee – American Dream (Tranquilo's Remix)
+2. Bent – I Love My Man (Lazyboy's Anyone for Tennis Mix)
+3. Spiller – Cry Baby (Röyksopp's Malselves Memorabilia Mix)
+4. DJ Trax – Southern Breeze(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2114F54DB2B4D8448FD7A94A0B0195AB9782162A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802978   (13986) от 20.06.2025
+
+VA - Midnight Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Autonne - Adrift (3:26)
+02. Marie Therese - I See You (Houie D`s Chill Remix) (4:05)
+03. Gian Delly - Chill Experience (4:41)
+04. Ian Otta - Relaxed Day (3:33)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215ACA2B0E26AD36BE65B9A6658819CD50F22677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804029   (13349) от 26.06.2025
+
+V.A. - Vintage Cafe: Lounge and Jazz Blends (Special Selection), Vol. 25 (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Beluga's Trio - Down Under (Acoustic Version)
+02. Banda Do Sul - Strange Magic
+03. Nenei - L'AMOUR DE MA VIE
+04. Stella Starlight Trio - People From Ibiza(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABF1AAD21D6F07F8C32D46FD74F1324BEC3430E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804611   (12967) от 30.06.2025
 
 VA - Bloomscape: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +267,7 @@ VA - Bloomscape: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balear
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +296,7 @@ VA - Skin to Skin Chillout & Lounge for Lovers (2025) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +325,7 @@ V.A. - Buddha-Bar - Summer Sessions Monte-Carlo (2025) 2CD [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +354,7 @@ VA - Intimate Hours - Best Chillout for Late Evenings (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +383,7 @@ VA - Best of Label Cantroll, Pt. 7-9 (2023-2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +412,7 @@ VA - Chill Out Paradise, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +441,7 @@ VA - Chill Mode On: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +470,7 @@ VA - Electronic Garden, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +499,7 @@ VA - Lounge Obsession, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +528,7 @@ VA - Lounge Obsession, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +557,7 @@ VA - Ibiza Afterlight - Chillout Soundscapes (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +586,7 @@ VA - A Spa & Wellness Chill Experience (2025) [FLAC|Lossless|WEB-DL|tracks] <Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

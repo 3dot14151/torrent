@@ -1,3 +1,59 @@
+###  Публикация: 312329   (818611) от 28.03.2011
+
+The Curse of monkey Island  / Проклятие острова обезьян [Ru] (P) 1997
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бежав от ЛеЧака в прошлой серии, Гайбраш Трипвуд оказывается на Plunder Island, где вновь встречается с Элейн Марли. Вместе с ним приплыло и кольцо с огромным бриллиантом, которое Гайбраш выкрал из сокровищницы пирата. Он делает Элейн предложение, даря это кольцо, но..., едва оно оказывается на пальчике возлюбленной, она превращается в золотую статую. Оставив возлюбленную на берегу, Гайбраш бросается искать средство как избавиться от проклятия. Но, вернувшись, не находит статуи - её похитила ужасная орда пиратов...
+Продолжение MI получилось изумительным, переплюнув кое в чём первые части. В то же время не потеряв обаяния, юмора и романтики. Отменная графика, сюжет, музыка - всё это как бальзам после шести лет ожидания.Тип издания: ПираткаЖанр: QuestЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32D4A85893DBE86C726B2A847AEC6C33EC178FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 315380   (818609) от 28.03.2011
+
+Вьетконг Антология / Vietcong Anthology [Ru] (L) 2003-2008
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+* Vietcong 2 — продолжение знаменитого Vietcong, успевшего стать классикой жанра командного боевика.
+    * Две военные кампании предоставят возможность посмотреть на события вьетнамской войны как глазами солдата оккупационных сил США, так и бойца освободительных сил Северного Вьетнама.
+    * Впечатляющий искусственный интеллект противника и проработанная система повреждений: любое неосторожное движение, любая метко пущенная пуля способны принести здесь смерть.
+    * Обширный арсенал оружия — от М-16 и М-60 до автомата Калашникова.Тип издания: LЖанр: Action (Tactical / Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFE546855C9DF4B8AC0F0E77DD2906E5EAD8BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117513   (818552) от 22.03.2017
 
 Alone in the Dark 2 (1993) [En] (1.0) License GOG
@@ -6,7 +62,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +88,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +114,7 @@ Alone in the Dark 3 (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +140,7 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +166,7 @@ Army Men RTS / Вояки: RTS (2002) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +192,7 @@ Red Orchestra: Ostfront 41–45 (2006) [Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +220,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +246,7 @@ Delta Force (1998) [En] (1.00.03.03p) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +272,7 @@ Delta Force 2 (1999) [En] (1.06.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +298,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +324,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +350,7 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +376,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +402,7 @@ Planescape: Torment (1999) [Ru/En] (1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +428,7 @@ Terminus (2000) [Ru] (1.1) Unofficial
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +454,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +480,7 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +506,7 @@ Return to Mysterious Island / Возвращение на таинственны
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +532,7 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +558,7 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +584,7 @@ Carmageddon TDR 2000 / Кармагеддон. Колеса смерти (2000) 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +610,7 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +662,7 @@ Alien Shooter 2 - Survive Mod (2006) [Ru] (1.6.1 Alpha) Unofficial [Модифи
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +673,6 @@ Alien Shooter 2 - Survive Mod (2006) [Ru] (1.6.1 Alpha) Unofficial [Модифи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DB4B184CEDBC525765FB9B401866097FAAA486E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508992   (795294) от 11.11.2021
-
-King's Bounty: Armored Princess / King's Bounty: Принцесса в доспехах (2009) [Ru] (1.2) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795294.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли принцессы Амели игроку предстоит отправиться в странствие по Теане, чтобы отыскать прославленного рыцаря и наставника принцессы Билла Гилберта. При этом, чтобы найти героя, героиня должна отыскать все 8 Камней Богов Теаны. На пути героини станут армии ужасных монстров, огромные чудовища и раса кровожадных ящеров. Но у игрока найдется, что противопоставить (   Читать дальше...   )Тип издания: LicenseРазработчик: Katauri InteractiveЖанр: Add-on (Standalone), RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB81A68CA1E73611B287D5CB6C58D6912E4EA392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200942   (794586) от 22.01.2018
-
-Carmageddon Max Pack (1997) [En] (1.0/dlc) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Садитесь за руль и крушите машины неудачников, оказавшихся, на вашем пути. Вместо саундтрека вы услышите скрежет металла, брызги машинного масла о лобовое стекло и визг покрышек на поворотах. Крепче держитесь за руль, ведь перед вами на выбор 23 крэшмобиля (от жуткого монстр-трака до сверхскоростного дрэгстера) и более 30 уровней, полных адовой ярости и ужаса на (   Читать дальше...   )Тип издания: LicenseРазработчик: Stainless SoftwareЖанр: Экшн, Сражения, РаллиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8A557E81319DCA3C122230109DC182089B91F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

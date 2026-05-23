@@ -1,113 +1,3 @@
-###  Публикация: 1455196   (1025834) от 18.03.2021
-
-Софья Прокофьева | Лоскутик и Облако (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлая и поучительная сказка Софьи Прокофьевой «Лоскутик и Облако» познакомит читателей с очаровательной девочкой по имени Лоскутик и её другом Облаком. Их дружба и самоотверженность спасла целый город от козней злого короля, который захватил себе источник воды и продавал её людям!
-Книга выходит с новыми иллюстрациями Натальи Салиенко.
-Для среднего школьного возраста.Жанр: Сказки, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B728C0C8E26870D7C09634D0CDE13DB0B609956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455337   (1025830) от 18.03.2021
-
-Сергей Михалков | Читаем сами без мамы. Три поросёнка (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга С. Михалкова «Три поросёнка» отлично подойдёт для первого самостоятельного чтения. Три розовых поросёночка и другие герои сказок научат детей бегло читать, ведь в книге большие буквы, слова с ударениями и много цветных иллюстраций. Книжки серии «Читаем сами без мамы» можно взять с собой в дорогу, на прогулку и читать вместе с друзьями!
-
-Для дошкольного возраста.Жанр: Детская литература/СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C3796BE37692C31CE2901B13A1697F47741BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455895   (1025487) от 20.03.2021
-
-Джоэль Чандлер Харрис | Я читаю сам! Сказки дядюшки Римуса (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрый дядюшка Римус расскажет ребятам весёлые сказки о похождениях неунывающего Братца Кролика. Никто из зверей, даже сам Братец Лис, не мог потягаться с ним в хитроумии!
-
-"Сказки дядюшки Римуса" американского писателя Дж.Ч. Харриса - классика мировой детской литературы. Забавные истории сопровождаются крупными цветными иллюстрациями. Книга отлично подходит (   Читать дальше...   )Жанр: Детская литература/СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5E03090A26469A1E52415F5D2E552EC94ECFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455802   (1025449) от 20.03.2021
-
-Аркадий Гайдар | Тимур и его команда. Все произведения для детей (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аркадий Гайдар рассказывает жизненные истории о войне, о подвиге, об отваге, о людях, которые делают свое дело и помогают родине, как умеет только он. Тимур, Мальчиш-Кибальчиш, Чук и Гек, Сережа из «Судьбы барабанщика» – имена героев давно стали именами-символами, знаковыми для страны и эпохи. Меняются политические декорации, совершенствуется техника, наука завоевывает (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3211C19CFD70A2BE0AE4FE67E008AE029244A7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456180   (1025317) от 21.03.2021
 
 Наринэ Абгарян, Валентин Постников | Все приключения Шоколадного дедушки (2021) [EPUB]
@@ -116,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -461,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -544,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -625,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -654,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -683,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -697,6 +587,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38E15D1085EC6CE749F547FD14A70D938534232C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746947   (1023304) от 01.04.2021
+
+Евгений Иванов | Кот-колоброд и крысы (1928) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В те дни революция разгоралась в городах и селах. Всех захватила и человека и зверя--каждого по своему.
+Воевали долго. Все шли на войну, все везли в армию. А в городах без хлеба и дров был холод и голод....Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF9B5C750D265A4DCD04A191713F566A9295C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746934   (1023151) от 02.04.2021
+
+А. Гарри | Снег на крыльях (1935) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Соль, которую люди употребляют в пищу, как известно, запаха не имеет. Тем не менее ветер, дующий с моря, безусловно пахнет солью. Ноздри ненца Ийши, почуяв острый запах морского ветра, жадно вздрогнули, а скуластое лицо его осветилось хитрой усмешкой....
+
+Повесть для детей среднего и старшего возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE1A96E34FF0F47CF5794D58270940189725526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746932   (1023001) от 03.04.2021
+
+Лев Гумилевский | Некоторые случаи из жизни Гриньки (1925) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Оставаться дома становилась невозможным. Тогда Гринька, Вернувшись со двора в избу, решительно нахлабучил свою шапочку, похожую на колпак, схватил в левую руку полушубок, в правую--ломоть хлеба и сказал:
+--Мамка, я пойду запишусь...Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5825F271FEF359BCC975E5EF4899E925E47C98DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459941   (1022996) от 03.04.2021
+
+Виктор Драгунский, Эдуард Успенский, Михаил Зощенко | Читаем сами без мамы. Смешные истории (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга «Смешные истории» прекрасно подходит для первого самостоятельного чтения. Ведь в этом сборнике удобного формата весёлые истории для детей самых известных детских писателей - В. Драгунского, Э. Успенского, В. Голявкина и других.
+
+В книге большие буквы, слова с ударениями и цветные иллюстрации. Книжки серии «Читаем сами без мамы» можно взять с собой в дорогу, (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2433D37CB06A3D2C7A8CC9711FD492601C3C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

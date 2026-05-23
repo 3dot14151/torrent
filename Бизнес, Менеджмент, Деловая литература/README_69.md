@@ -1,3 +1,81 @@
+###  Публикация: 1588075   (191970) от 02.11.2022
+
+Брайан Трейси | Не тормози! Контроль над временем – контроль над жизнью (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Мы живем в самый технологически развитый век. У нас есть навороченные мобильные телефоны, убойные приложения, быстрый интернет и возможность получить практически любую информацию за несколько секунд. Так почему же сохранить оптимальную продуктивность всё сложнее? Мы слишком сильно отвлекаемся! Брайан Трейси детально разбирает эту проблему, принимающую множественные (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаПеревод: Екатерина БакушеваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E2B7FF483E1D7A05C22C6987E47F7E3C8F996A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588212   (191806) от 03.11.2022
+
+Дмитрий Симоненко | Управляя кризисом. Как выращивать успешные компании (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что вам 30 лет и вы только что продали свой стартап, которому нет и года, за несколько десятков миллионов дол-ларов. Контракт лежит у вас в кармане? вы? «чертов гений», жизнь удалась! Здесь бы «пустить титры» и объявить хэппи-энд, но у судьбы всегда есть способы сделать жизнь интереснее. 20 лет назад Дмитрий Симоненко праздновал победу, не зная, что (   Читать дальше...   )Жанр: Стартапы и создание бизнесаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEC996D7F41C176B77C52B4777836B18D1E72BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588190   (191787) от 03.11.2022
+
+Эдуард Трымбовецкий | PROзакупки (2022) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Отдел закупок отвечает не только за приобретение товаров и услуг, необходимых предприятию. Специалисты этого направления выстраивают долгосрочные партнерства, привлекают инновации, управляют рисками и отвечают за имидж и доброе имя организации. Эдуард Трымбовецкий, профессиональный переговорщик и консультант по закупкам, написал фундаментальную работу о роли закупочного (   Читать дальше...   )Жанр: Бизнес-процессыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A184C6B1EE832EFE5E076363179B01063819FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588215   (191698) от 03.11.2022
 
 Игорь Манн и др. | Слайдхаки. 84 рабочих приема для лучших презентаций (2021) [EPUB]
@@ -6,7 +84,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -378,7 +456,7 @@ Harvard Business Review (HBR) | Трансформация бизнес-моде
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,7 +667,7 @@ ITIL. Поддержка Услуг [Service Support]
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -600,85 +678,6 @@ ITIL. Поддержка Услуг [Service Support]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F61C6DCCDFE259847508B2A50413C6F494F0D5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428307   (180583) от 01.12.2020
-
-Алексей Савченко | Игра как бизнес. От мечты до релиза (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, любой геймер хоть раз мечтал создать собственную игру. Конечно же, в большинстве случаев все заканчивалось на стадии этой самой мечты. Но всегда были и будут те, кто идет дальше. И эта книга – для них!
-Алексей Савченко работает в этой индустрии уже более двадцати лет. Он популярный спикер на крупнейших игровых мероприятиях и просто значимый человек в современном (   Читать дальше...   )Жанр: Просто о бизнесе, Игровая индустрияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD03C79E5AC2BD1321CD80FAF27F1E5BB9580A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594118   (179064) от 29.11.2022
-
-Джек Швагер | Великие маги хедж-фондов : Трейдеры, которые не проигрывают (2022) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперт по инвестициям и автор культовой книжной серии «Маги рынка» Джек Швагер приоткрывает завесу тайны над миром хедж-фондов и предлагает взглянуть на него глазами выдающихся трейдеров. Автор умело пользуется ставшим уже привычным для него инструментом — интервью, он исследует философию и методы торговли своих собеседников в поисках ответа на вопрос, как им удалось (   Читать дальше...   )Жанр: ФинансыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A28E3B9DA9843B78303F535C0D524BBBB10E478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428633   (178940) от 03.12.2020
-
-Роберт Россман, Мэтью Дюрден | Дизайн впечатлений. Инструменты и шаблоны создания у клиента положительных эмоций от взаимодействия с компанией и продуктом (2021) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Термин «впечатление» уже взяли на вооружение самые разные компании: Adobe призывает потребителя «сделать впечатления своим бизнесом», а авиакомпания Delta расхваливает «уникальные впечатления от полета с Delta». Впечатления – самое важное, что получают потребители, совершая покупку, заключая сделку или иным способом взаимодействуя с бизнесом. Если они будут положительными, (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаПеревод: Евгений ДеревянкоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4542324D5055C498A03A244AC21AB3BEB09188EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

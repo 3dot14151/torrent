@@ -1,3 +1,107 @@
+###  Публикация: 1320025   (175345) от 07.12.2020
+
+DARQ (2019) [Ru/Multi] (1.3/dlc) Repack Other s [Complete Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+DARQ — это игра про мальчика по имени Ллойд, который осознаёт, что спит. Сон стремительно превращается в кошмар, а все попытки проснуться оборачиваются неудачей. Исследуя тёмные уголки своего подсознания, Ллойд учится контролировать свой сон. Он ходит по стенкам, по потолку, скрывается от монстров и разгадывает невероятные головоломки чтобы не только остаться в живых (   Читать дальше...   )Тип издания: RepackРазработчик: Unfold GamesЖанр: Adventure (Horror), Puzzle, 3DЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A372AA6D469F0F3AE3D2ED3C8D9EB1571505E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509085   (174698) от 08.12.2020
+
+Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-2011 | SashHD
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Главным героем игры является маленькая девочка Лилли, ученица монастыря, прилежно и добросовестно исполняющая все свои обязанности, какими бы они не были несправедливыми. Она не знала, что такое детство, любые свои ребячества она старалась удерживать в глубине своей души. Как долго это могло продолжаться? Положение усугублялось присутствием строгой и невозмутимой (   Читать дальше...   )Тип издания: RePackРазработчик: Daedalic EntertainmentЖанр: Adventure / 3rd PersonЯзык озвучки: НемецкийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673639FE770857905E2D37D9270F19B49376F084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429569   (174025) от 09.12.2020
+
+Tell Me Why / Скажи мне, почему (2020) [Ru/Multi] (5510896) Repack CoD - MW2 [18+]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Эпизодическая приключенческая игра, посвященная Тайлеру и Элисон Ронан, двум близнецам и их проблемам. События игры разворачиваются на Аляске, где близнецам предстоит разобраться в рядом проблем - как семейных, так и окружающих их людей. Взаимодействуя с воспоминаниями о прошлом, вы сделаете судьбоносный выбор, который определит силу уникальной связи, объединяющей (   Читать дальше...   )Тип издания: RepackРазработчик: Dontnod EntertainmentЖанр: Adventure (Interactive drama), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CD84F335CD536B29F2F8DA619569AB58371DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668350   (173603) от 12.10.2023
+
+Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В темном, забытом лесу стоит заброшенный дом, где проводились эксперименты над людьми. Злой доктор Вилли испытывал вещество, которое превращало людей в монстров. Теперь эти монстры прячутся в этом доме и ждут, когда туда придут люди, чтобы забрать свои души и снова почувствовать себя живыми. Сам Вилли тоже превратился в монстра, он прячется в подвале и ждет новых (   Читать дальше...   )Тип издания: SceneРазработчик: Too ProductionЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F826FF93F6E6B66BEE147F389BFBF4D55F67315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668429   (173543) от 12.10.2023
 
 Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Other s
@@ -6,7 +110,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Supper: New Blood (2025) [En] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Supper (2020) [En] (1.01a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Storyteller (2023) [Ru/Multi] (20230927) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Aka Manto (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Stigmatized Property (2019) [Ru/Multi] (1.0) Scene PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Windy Meadow A Roadwarden Tale (2023) [En] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Gap (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Under The Waves (2023) [Ru/Multi] (1.0.5) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Under the Waves – это повествовательная приключен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CE204A751DA055C23D3F04E6EDA5FEB406F95F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826706   (170947) от 19.10.2025
-
-Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warcraft Adventures: Lord of the Clans — отменённая компьютерная игра в жанре графического квеста, которую совместно разрабатывали американская компания Blizzard Entertainment и американо-российская студия Animation Magic с 1996 по 1998 год. Действие Warcraft Adventures происходит в вымышленной вселенной Warcraft вскоре после событий игры Warcraft II: Beyond the (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard Entertainment, Animation MagicЖанр: Приключенческая игра, КвестЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6191B91FD343355D5F64493AD9700AC244DA8F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515086   (170792) от 05.12.2021
-
-Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поздравляем. Тебя приняли на работу в ночную смену. Больше никого ночью не будет. Думаем, ты справишься. Ты будешь жарить котлетки, смотреть за фритюрницами и разливать напитки в тихом ресторанчике на окраине города. Посетителям ну очень нравится меню, и они просят еще вкуснейших сэндвичей Happy’s Deluxe, Fantastic Fowl и Poppin’ Pork. Картофель фри и наггетсы из (   Читать дальше...   )Тип издания: LicenseРазработчик: Scythe Dev TeamЖанр: Экшн, Симулятор, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9354533CE2E09BFF3B987B367F08266D44BD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514958   (170688) от 05.12.2021
-
-Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некогда лучший боец Круга, теперь она стала самым страшным его противником. Присоединяйтесь к Наре (Nara) и «Форсейкену» в их путешествии, сплотите силы Сопротивления, вступите в бой с Пророком и спасите Вселенную от тирании.Тип издания: RepackРазработчик: Deep Silver FishlabsЖанр: Adventure, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C041C9A8E2338E635930091440D82A0E70384BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486673   (170646) от 05.12.2021
-
-Machinarium / Машинариум (2009) [Ru/Multi] (4041) License GOG [Collector's Edition / Коллекционное издание]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы играете за робота, которого отправили на свалку. Вам предстоит думать логически, собирать важные предметы и решать головоломки, логично встроенные в игровой мир. Помогите роботу вернуться в родной Машинариум, где он должен спасти мэра города и свою подружку-робота, а заодно одолеть злодеев из Банды Черных Шляп. «Машинариум» – прекрасное доказательство того, что (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Приключение, Квест, ФэнтезиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2C00629436E8F1F1EBA750CD85473F79A9D06A
 ```
 
 https://mybot314.ru/tekegram_catalog/

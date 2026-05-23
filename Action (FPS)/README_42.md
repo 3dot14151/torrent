@@ -1,3 +1,107 @@
+###  Публикация: 477825   (86236) от 03.04.2012
+
+Painkiller: Recurring Evil / Painkiller: Абсолютное зло (2012) [Ru] (1.0.0.43) Repack R.G. UniGamers
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Painkiller: Recurring Evil продолжает события аддона Painkiller: Resurrection. Главный герой Билл Шерман становится хозяином Чистилища, наделенный силой Меча Серафима. Однако, падший ангел Самаэль (потерявший свои крылья после битвы с Белиалом в Painkiller: Overdose), который стал новым правителем Ада вместо Евы, крадет меч Билла и отправляет его в неизведанные места (   Читать дальше...   )Тип издания: RePackРазработчик: Med-ArtЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EFD21B08BF5669E9A31462FBED35C8539FD0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476457   (85785) от 01.04.2012
+
+World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L) 2002
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Игра "Коммандос: в тылу врага" - первый серьезный проект французской компании "4X Studio". Разработчики не стали брать на вооружение чей-то лицензированный движок, а представили свой, Phoenix 3D - вполне достойный конкурент большинству шутеров прошлого года. Оригинальный сюжет игры основан на альтернативной истории Первой мировой войны, сочетающей достоверные и вымышленные события.Тип издания: ЛицензияЖанр: Action, ArcadeЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD53F5E19B9AB7C4343F8DBBB3D9C3C547B9CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475274   (85191) от 29.03.2012
+
+Vietcong / Вьетконг [Ru/En] (RePack) 2003 | Pilotus
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте во "Вьетконг" и ощутите опасность, страх и непредсказуемость смертельной схватки в джунглях. Действие этого шутера от первого лица разворачивается во время печально известного вооруженного конфликта в Юго-Восточной Азии. Войдите в ряды бойцов высокопрофессиональных Специальных подразделений Армии США. Под вашим командованием - группа самых лучших солдат из всех, существовавших в истории. Пора показать миру, из чего вы сделаны!Тип издания: RePackЖанр: Action (Tactical / Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский (Фаргус)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF816BC0ABDB0C48DA95EB7EB3C108CA72F7CB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475292   (85187) от 29.03.2012
+
+FireStarter [Ru] (RePack) 2003 | Pilotus
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры переносит игрока в 2010 год, где его сознание попадает в ловушку новейшего автомата виртуальной реальности FireStarter, пораженного компьютерным вирусом. Вызванный вирусом сбой привел к тому, что компьютер изменил правила игры - для того, чтобы выбраться из ловушки, игроку необходимо пройти игру за 48 часов. Погрузитесь в невероятный мир, созданный суперсовременным игровым автоматом, где Вам предстоит выйти победителем в переполняющем кровь адреналином действии...Тип издания: RePackЖанр: Трехмерный шутер от первого лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99E7981DED0D700F9F09ED63BCF28E5DF345DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473228   (84806) от 27.03.2012
 
 Warhammer 40 000: Fire Warrior [Ru] (L) 2003
@@ -6,7 +110,7 @@ Warhammer 40 000: Fire Warrior [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +139,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +165,7 @@ Battlefield Vietnam [En/Ru] (P) 2004
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +191,7 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Left 4 Dead 2  [Ru/En] (Steam-Rip/2.1.0.2 build 4777) 2009 l R.G. Origins
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +271,7 @@ Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +297,7 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +323,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +349,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +375,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +427,7 @@ STAR WARS: Dark Forces Remaster (2024) [Ru/En] (1.0.1308.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +453,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/Multi] (3.12/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +479,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +505,7 @@ Bulletstorm (2017) [Ru/Multi] (1.0upd2/dlc) Repack dixen18 [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +583,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +609,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +635,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (1.1.2952) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +661,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,110 +672,6 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E348610FC941A2FFFABC29DA0004C090B2DCB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499393   (58730) от 24.04.2024
-
-INDUSTRIA (2021) [Ru/Multi] (1.3.2) License GOG
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58730.jpg" />
-</div>
-
-
-###  Подробнее
-
-INDUSTRIA – шутер от первого лица, который переносит вас из Восточного Берлина в параллельную реальность незадолго до окончания холодной войны. В поисках пропавшего коллеги по работе вы раскрываете тёмное прошлое мистического и сюрреалистического мира стимпанка.Тип издания: LicenseРазработчик: BleakmillЖанр: Action, Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533F5A930691CA221FAA3A6425210B25A27DF4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718525   (58574) от 25.04.2024
-
-Rise of the Triad: Ludicrous Edition (2023) [Multi] (11830638) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rise of the Triad: Ludicrous Edition – эпическая реинкарнация культового шутера 90-х годов, который привносит в мир игр невиданный взрыв черного юмора и смертельно захватывающих перестрелок. События разворачиваются в закатах 20 века, когда ваша корпорация получает тревожные сообщения о таинственной организации, спасшейся от кары в 40-х и теперь, зловеще улыбаясь, (   Читать дальше...   )Тип издания: RepackРазработчик: Nightdive Studios, Apogee Software, New Blood InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830154EA4F7DDEC8CFECA53B1A646285E9B4D154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768774   (58527) от 26.04.2024
-
-Return to Castle Wolfenstein (2001) [Ru/En] (1.42c) Rip R.G. Механики
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Return To Castle Wolfenstein разворачивается в 1943 году во время Второй Мировой Войны, когда Третий Рейх любой ценой пытался повернуть ход войны в свою пользу. Немецкие специалисты из секретных подразделений СС ставили жестокие эксперименты над людьми, пытаясь использовать магию и науку в одном флаконе. Самым масштабным проектом нацистов стала операция (   Читать дальше...   )Тип издания: RepackРазработчик: Gray Matter Studios и Nerve SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C76C6D8350B8CB56CE3DE86F9A674C7EF92E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675952   (58518) от 26.04.2024
-
-Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный жесткий шутер от первого лица перенесет вас в кибер-город будущего Парадайз. Джонни Турбо, наполовину человек, наполовину машина, предстоит очистить город от андроидов, которыми управляет передовой искусственный интеллект Син, решивший захватить мировое господство. Остановите его здесь и сейчас, иначе человечество полностью исчезнет с лица Земли.Тип издания: SceneРазработчик: Trigger Happy InteractiveЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B32D7C6AC7C77154D040BA8CDCAA9A86382B96B
 ```
 
 https://mybot314.ru/tekegram_catalog/

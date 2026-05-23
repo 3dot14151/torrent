@@ -1,3 +1,87 @@
+###  Публикация: 1368231   (36084) от 26.11.2024
+
+CERERA - CERERA pres Echo Of The Universe #022 Live @Zig Zag 25 Years 14 02 (2020) [MP3|320 Kbps|image + .cue] <House, Disco House, Soulful House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. CERERA - (Intro Speech)
+02. Birdee - Dinamo
+03. Birdee - Song for Francesca
+04. T.Markakis - We Call It Music(   Читать дальше...   )Жанр: House, Deep House, Disco House, Future House, Garage HouseПродолжительность: 02:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922A4B1381A36B9FFE8B4BD24B9EE5022BD07A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762626   (36031) от 26.11.2024
+
+Korolova - Live @ Bali, Indonesia (2024-11-22) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. RÜFÜS DU SOL - Pressure
+02. Argy & Omiki & Son Of Son - RITMO
+03. Rivo - Last Night
+04. Korolova & EYNKA - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2547BF00B17D64EA13CBB50B98DDE66E79B7A280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763813   (35319) от 03.12.2024
+
+VA - Amsterdam Music Festival, Johan Cruijff ArenA, Netherlands (2024-10-19) [MP3|320 Kbps] <Progressive House, Hard Dance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive House, Hard Dance, TechnoПродолжительность: 08:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791920F9D9BCF48871ADEA2DC802F359A7B03316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763877   (35204) от 04.12.2024
 
 David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <Dance, Electro Pop>
@@ -6,7 +90,7 @@ David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +119,7 @@ GOODBOYS - GOODBOYS Pres. LINKED (001-006) (2023-2024) [MP3|320 Kbps] <Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +148,7 @@ VA - Armin van Buuren - A State Of Trance 1207 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -93,7 +177,7 @@ Markus Schulz - Global DJ Broadcast World Tour (DPRTMNT Toronto, Canada) (2025-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -122,7 +206,7 @@ VA - Armin van Buuren - A State Of Trance 1209 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -151,7 +235,7 @@ Tiesto - Live @ Quasar Stage, Coachella Festival Weekend 1, United States (2025-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -180,7 +264,7 @@ Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -209,7 +293,7 @@ DJ Suhov - Fantazia Mix (2004) Promo CD [MP3|image+*.CUE|320 Kbps] <House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -238,7 +322,7 @@ VA - Armin van Buuren - A State Of Trance 1221 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -267,7 +351,7 @@ VA - Tomorrowland Winter (2025) [MP3|320 Kbps] <Trance, Tech House, Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -296,7 +380,7 @@ VA - So you... (Mixed and compiled by Kaatée) (2022) [MP3|320 Kbps] <Deep House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +409,7 @@ VA - Armin van Buuren - A State Of Trance 1223 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +438,7 @@ VA - Ori Uplift - Uplifting Only Episode 652 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -383,7 +467,7 @@ VA - Armin van Buuren - A State Of Trance 1237 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -412,7 +496,7 @@ VA - Armin van Buuren - A State Of Trance 1228 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +525,7 @@ VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +554,7 @@ ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +583,7 @@ VA - Ori Uplift - Uplifting Only Episode 646 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +612,7 @@ VA - Armin van Buuren - A State Of Trance 1231 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +641,7 @@ Tiesto - Live @ PRISMATIC, Palacio De Los Deportes Mexico City (2025-06-14) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +670,7 @@ VA - Armin van Buuren - A State Of Trance 1232 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +699,7 @@ VA - Armin van Buuren - A State Of Trance 1238 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,7 +728,7 @@ VA - Ori Uplift - Uplifting Only Episode 653 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -658,92 +742,6 @@ VA - Ori Uplift - Uplifting Only Episode 653 (2025) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A54C3FD9A8DC13268D3E5A46A3147919A936B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813923   (6406) от 22.08.2025
-
-VA - Armin van Buuren - A State Of Trance 1239 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hardwell played:
-01. UUFO & Shogun – Seven Days And One Week
-02. Armin van Buuren & Hardwell – Follow The Light
-03. Alex Gaudino ft. Crystal Waters – Destination Calabria (Hardwell Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE698948C1E87727AE8E7660827A277BF951DC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771651   (6319) от 23.08.2025
-
-Dirty South - Live Mixtape 001-006 (2025) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HotLap ft. Sophie Saint - Blue Moon
-02. SKALA - Eclipse
-03. Macadamia & Albert Marzinotto & Pakkio Sans - Mon Amour (Leo Gira Remix)
-04. Radiohead - Everything In Its Right Place (SCRIPT Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 07:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939C93D2EF445BB192A7791425E6417004052868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814303   (6111) от 24.08.2025
-
-Two Friends - Big Bootie Mix Vol. 26 (2025-06-05) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nirvana - Smells Like Teen Spirit w/Dillon Francis & Julian Jordan - The Sound w/Nelly - Hot In Herre
-02. David Guetta ft. Sia - Titanium (TWINSICK 2023 Remix) w/Metro Station - Shake It w/Sabrina Carpenter - Taste w/Kendrick Lamar & SZA - All The Stars
-03. Skrillex ft. Sirah - Bangarang w/Justin Bieber ft. Nicki Minaj - Beauty And A Beat w/Benny Benassi (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6A87B015B9EB0CFD85EDB147C977B586712FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

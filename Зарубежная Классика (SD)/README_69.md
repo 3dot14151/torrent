@@ -1,3 +1,110 @@
+###  Публикация: 930407   (515209) от 23.08.2015
+
+Легенда о потерянном / Legend of the Lost (1957) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пол Боннард приезжает в Тимбукту и начинает искать проводника, который сопроводил
+бы его по африканской пустыне. Проводник находится в лице американца Джо, которому
+правда не сильно по душе маршрут, который избрал Боннард. Тем не менее в пустыне
+они и последовавшая за ними проститутка Дита обнаруживают руины древнего храма, где(   Читать дальше...   )Производство: США, Италия / Metro-Goldwyn-Mayer, Batjac ProductionsЖанр: Драма, ПриключенияРежиссер: Генри ХэтауэйАктеры: Джон Уэйн, Софи Лорен, Россано Брацци, Курт Казнар, Соня Мосер, Анжела Портулари, Ибрагим Эль Хадиш, Марша ХантПеревод: Одноголосый закадровый - Сергей КузнецовПродолжительность: 01:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF7D177456E8D88141D5D19A173DBD811F0BD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193665   (514932) от 18.07.2019
+
+Джихад / Khartoum (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Масштабное столкновение между английским генералом Чарльзом Гордоном и объявившим чуждым пришельцам-захватчикам священную войну «джихад» мусульманским лидером Махди, одно имя которого говорит о непокорности и мистических тайнах.Производство: Великобритания / Julian Blaustein Productions Ltd.Жанр: Боевик, Военный, Драма, ПриключенияРежиссер: Бэзил Дирден, Элиот ЭлисофонАктеры: Чарлтон Хестон, Лоуренс Оливье, Ричард Джонсон, Ральф Ричардсон, Александр Нокс, Джонни Секка, Майкл Хордерн, Зия Мухеддин, Марн Мэйтленд, Найджел ГринПеревод: Многоголосый х3, АвторскийСубтитры: Русские, АнглийскиеПродолжительность: 02:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62CDF8C457C3C5DA0B2591BF8803FC568F65658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241807   (514894) от 22.08.2018
+
+Диана / Diane (1956) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает историю любви французского короля Генриха II и его фаворитки Дианы де Пуатье. Их встреча произошла, когда Генрих вместе со своим братом Франциском отправлялся в качестве заложников вместо своего отца ко двору Карла V. Уже с той поры сердце юного героя оказалось во власти очаровательной красавицы фрейлины Дианы. Однако по политическим соображениям (   Читать дальше...   )Производство: США. Metro-Goldwyn-MayerЖанр: Драма, историческийРежиссер: Дэвид МиллерАктеры: Лана Тернер, Педро Армендарис, Роджер Мур, Мариса Паван, Седрик Хардвик, Торин Тэтчер, Тайна Элг, Джон Луптон, Генри Дэниелл, Рональд ГринПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7415D306B813BA6042D367236E120637936B55C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315185   (514659) от 18.07.2019
+
+Странные супруги / Strange Bedfellows (1965) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лондон соединяет двух непохожих друг на друга людей, он симпатичный американец, она художница итальянка. В первый же вечер они успевают влюбиться и оформить отношения. Но с приходом нового дня, стало ясно о том, что они поторопились, между ними происходит размолвка. По прошествии семи лет, пара снова встречается, дабы оформить развод, но за это время ситуация изменилась, (   Читать дальше...   )Производство: США / Fernwood Productions Inc., Franic Production, Panama ProductionЖанр: КомедияРежиссер: Мелвин ФрэнкАктеры: Рок Хадсон, Джина Лоллобриджида, Гиг Янг, Эдвард Джадд, Ховард Ст. Джон, Дейв Кинг, Пегги Ри, Джозеф Сирола, Нэнси Калп, Люси ЛандауПеревод: Авторский (А. Яковлев)Субтитры: Английские (SDH)Продолжительность: 01:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8B9C87AF523C70FB6766D2F7C2873BE9EE5204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561584   (514576) от 05.07.2022
 
 Воспитание Крошки / Bringing Up Baby (1938) BDRip [H.264]
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,112 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C21A0E2F9FCE9A2DC4809A04C44819F8593CB63B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929175   (509081) от 29.08.2015
-
-Человек в хранилище / Man in the Vault (1956) IPTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преступник Уиллис Трент хочет ограбить сейф, в котором лежит 200 тысяч долларов. Фло Рендалл, двуличная подружка хозяина сейфа, согласна выведать комбинацию. Дело за малым - найти умельца, который изготовит ключ...Производство: Batjac ProductionsЖанр: Фильм-нуар, криминалРежиссер: Эндрю В. МакЛагленАктеры: Уильям Кэмпбелл, Карен Шарп, Анита Экберг, Берри Крёгер, Пол Фикс, Джеймс Сиэй, Майк МазуркиПеревод: Многоголосый закадровыйПродолжительность: 01:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFD8B92CEEA538E6CDD78F557C1E746B19669C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932776   (508046) от 30.08.2015
-
-Обнаженная шпора / The Naked Spur (1953) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крепкий парень по имени Ховард Кэмп уже много дней идет по следу убийцы и преступника Бена Вандергрота. Его цель получить за поимку злодея награду в 5000 долларов и купить ранчо. В пути он встречает старого золотоискателя Джеса, который вызывается помочь в поиске следа преступника за награду в двадцать долларов, через некоторое время к ним присоединяется бывший солдат (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Триллер, ВестернРежиссер: Энтони МаннАктеры: Джеймс Стюарт, Джанет Ли, Роберт Райан, Ральф Микер, Миллард Митчелл, Денвер ПайлПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A633652559A9913E78A80506CA205CEF6DF62C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232470   (508032) от 01.09.2010
-
-Небо над Берлином / Крылья желания / Der Himmel uber Berlin / Wings of Desire (1987) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невидимые людям ангелы планируют по разделенному стеной Берлину, заглядывая в дома, мысли и души его обитателей. Один из них готов променять вечность в раю на любовь акробатки из цирка. Но по силам ли небесному созданию выдержать земные чувства?...
-
-"Небо над Берлином" стал фильмом-легендой, породил волну римейков, сиквелов и клипов, но остался непревзойденным. (   Читать дальше...   )Производство: Германия (ФРГ), Франция / Road Movies Filmproduktion, Argos Films, Westdeutscher Rundfunk (WDR)Жанр: Фэнтези, Драма, МелодрамаРежиссер: Вим ВендерсАктеры: Бруно Ганц, Солвейг Доммартин, Отто Зандер, Питер Фальк, Курт Боис, Ганс Мартин Штир, Эльмар Вильмс, Зигурд Рахман, Беатрис Мановски, Ник Кейв, Лайош КовачПеревод: Русский многоголосыйСубтитры: отсутствуютПродолжительность: 02:07:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929367   (507974) от 30.08.2015
-
-Кольт сорок пятого калибра / Colt .45 (1950) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стив Фаррелл, являясь торговым представителем Кольта, ездит по стране и продает блюстителям порядка новейшую разработку — шестизарядный револьвер сорок пятого калибра. В одном из округов из конторы шерифа совершает побег из под стражи Джесон Бретт, захватывая при этом пару .45-х, и ловко подставив Форрелла. Отсидев четыре месяца по ложному обвинению, Стив Фаррелл (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: ВестернРежиссер: Эдвин Л. МаринАктеры: Рэндольф Скотт, Рут Роман, Захари Скотт, Ллойд Бриджес, Алан Хейл, Йен МакДональд, Чиф Тандерклауд, Виктор Адамсон, Карл Андре, Стэнли ЭндрюсПеревод: Одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21647F189716047D2516986356E64B4E8BC23CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

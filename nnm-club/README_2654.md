@@ -1,257 +1,31 @@
-###  Публикация: 604622   (996222) от 18.01.2013
+###  Публикация: 599248   (999433) от 06.01.2013
 
-VA-Попсовая Тусовка Зимы (2013) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maximus & Michael Retouch - Город устал
- 002. DJ Nejtrino & Nikita Malinin - С Новым Годом (С.Н.Г) (Radio Mix)
- 003. Андрей Бандера - Метелица
- 004. ДиО.Фильмы - Медляк (DJ Dan Vovan Radio Mix)
- 005. Варвара и Бурановские Бабушки - А не пойду замуж я
- 006. Айшат Айсаева - Оп-Оп-Оп (DJ Nariman Mix)
- 007. Анастасия Стоцкая - Преступник
- 008. Дрей Сонгз - Часовые пояса
- 009. Dan Balan - Не любя
- 010. DJ Slon feat. Katya - Эгоистка (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D978D2FDFC7957575209C47208DBEC530F7B66AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604681   (996217) от 18.01.2013
-
-Everything Everything - Arc (2013) [FLAC|Lossless]<Indie-Rock, Indie-Pop, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cough Cough - 3:42
-02. Kemosabe - 3:44
-03. Torso Of The Week - 4:34
-04. Duet - 3:42
-05. Choice Mountain - 3:24
-06. Feet For Hands - 3:56
-07. Undrowned - 3:01
-08. _Arc_ (Album Version) - 1:29
-09. Armourland - 3:41
-10. The House Is Dust - 3:29(   Читать дальше...   )Жанр: Indie-Rock, Indie-Pop, ExperimentalПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604754   (996216) от 18.01.2013
-
-Журнал | Тайны ХХ века [Украина] №2 (январь 2013) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E37426C0B241DE5192C5DDA70AFEE5C82963D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603698   (996215) от 18.01.2013
-
-Paul Ramirez Band - Sex With A Dragon (2012) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Right Where I Belong (3:50)
-2.  For Loving You (3:45)
-3.  Down Slow (4:27)
-4.  Gypsy Woman (3:37)
-5.  Sex With A Dragon (4:11)
-6.  Your Time (3:44)
-7.  You Are The Light (5:18)
-8.  Be Free (5:03)
-9.  See That My Grave Is Kept Clean (2:36)Жанр: Blues RockПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D2B94A49F4E3B5805226C970CCA1C8B95D19E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605032   (996213) от 18.01.2013
-
-Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys Born in Confident Times
-02. Modern European
-03. Lifeline
-04. Nathaniel
-05. Armajaro
-06. I Tried So Hard
-07. The Eveningtime
-08. Share the Weather
-09. Riches (Vocal Dub)
-10. Long Forgotten Boy(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9C9CF47E504B8CA0B8634A67D55FF5425A0360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604852   (996210) от 18.01.2013
-
-Infernal Poetry - Paraphiliac (2013) [MP3|320 кб/с]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996210.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Preliminaries 01:09
-2. Stumps 03:20
-3. In Glorious Orgy 04:07
-4. Hypertrophic Jellyfish 04:27
-5. Everything Means "I" 03:54
-6. Barf Together 04:22
-7. Cartilages 03:49
-8. The Copy / Paste Syndrome 03:44
-9. The Miss-Treated 03:00
-10. Paraphilias 04:30Жанр: Death MetalПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C646F93AD3D7762903B0648EF48D9FD186B2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604932   (996208) от 18.01.2013
-
-Софи / Sophie (2010) BDRip [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь 17-летней Софи (Бриттани Бристоу), главной героини фильма «Софи» (Sophie) всегда была сконцентрирована на двух вещах – животных и балете. Девушка выросла в семейном зоопарке, которым управляли ее родители, и в тоже время всегда мечтала о том, как поступит учиться в престижную балетную школу.
-Однако, высокая плата за обучение и все возрастающие затраты на содержание животных в зоопарке вынуждают ее родителей продать любимицу девушки, Сабу, пятитонного слона и верного друга Софи, в странствующий цирк. Узнав об этом, Софи бросает свои мечты о балете и отправляется вслед за цирком, ища способы вернуть себе любимого слона. В цирке героиня картины знакомится с Блэйком (Август Прю), цирковым артистом, окруженным ореолом таинственности.Жанр: СемейныйРежиссер: Лейф БристоуАктеры: Бриттани Бристоу, Эрика Дюранс, Туре Райфенштайн, Август Прю, Фэйт Курнью, Тайлер Курнью, Уильям Курнью, Эйдан Дивайн, Дилан Майлз, Натали РедфордПеревод: ОтсутствуетПродолжительность: 01:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00DEE4B242DCC9141C1D89022421B967512DED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604591   (996207) от 18.01.2013
-
-Stained Blood - One Last Warning (2013) [MP3|320 kbps] <Melodic Death Metal>
+Second Hand Stereo - Travelers (2012) [MP3|320 кб/с]<70's Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Vulcan (01:19)
-02. Mind Control (04:04)
-03. Close Horror (03:49)
-04. The Loser (04:20)
-05. Monster Inside (03:56)
-06. One Last Warning (03:49)
-07. Another Test In The 4th Stage (03:33)
-08. Rotten Roots (02:44)
-09. Shadows Throne (04:17)Жанр: Melodic Death MetalПродолжительность: 00:31:55
+01.  Bankrupt (4:32)
+02.  Tied Up (3:44)
+03.  Die Singing (3:23)
+04.  The Guilt (4:52)
+05.  Hello Animosity (4:38)
+06.  Travelers (4:40)
+07.  Live And Let Live (4:10)
+08.  Keep Thinking (5:11)
+09.  All We Need (3:38)
+10.  Uneasy Chair (3:45)(   Читать дальше...   )Жанр: 70's RockПродолжительность: 00:47:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16D32834228A88CF42AD0D9C292DB63C52C5A8DC
+magnet:?xt=urn:btih:A3B2CD18DA222E8096D87DEFC4B2E9A5F33DF383
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +33,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605003   (996206) от 18.01.2013
+###  Публикация: 599386   (999432) от 06.01.2013
 
-Журнал | Домой. Строительство и ремонт №2 (Екатеринбург) [2013] [PDF]
+[Wallpapers] Compilation of anime Pack 6
 
->>Журналы
->>Домоводство (журналы)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-«Домой. Строительство и Ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере. Аудитория журнала: частные лица, предприниматели и организации, планирующие строительство, ремонт и обустройство жилья, загородных домов, участков, офисов и других помещений.Формат: PDF
+[Wallpapers] Compilation of anime Pack 6
+Название: Compilation of anime Pack 6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A652026B4C48DEA09F83E62A7C3AD429FEFD2F1D
+magnet:?xt=urn:btih:707989E3C14D64CFD51743484D3FA589045A52CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +63,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604711   (996205) от 18.01.2013
+###  Публикация: 599428   (999431) от 06.01.2013
 
-Newsted - Metal (2013) EP [MP3|320 kbps] <Metal>
+Фотография - Фотограф Anna Bodnar
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Soldierhead (04:16)
-02. Godsnake (05:16)
-03. King of the Underdogs (06:00)
-04. Skyscraper (06:37)Жанр: MetalПродолжительность: 00:22:11
+Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C931F9EE2F4B5AAC36C6A54D8F4F19006205561
+magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,30 +89,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604849   (996204) от 18.01.2013
+###  Публикация: 598136   (999429) от 06.01.2013
 
-Infernal Poetry - Paraphiliac (2013) [FLAC|Lossless]<Death Metal>
+Kaizen - Любим делать красиво (2011) [MP3|320 кб/с]<Alternative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Любим делать красиво (4:27)
+02. Поколение Пох*й (3:36)
+03. Саломея (3:15)
+04. Я люблю с тобой молчать (3:35)
+05. Все Мы Гоним (3:07)
+06. По слогам (3:35)
+07. Web-Dr'Ocher (3:39)
+08. Шаг За Край (3:45)
+09. Шум inc (2:29)
+10. Dolphin (5:14)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68541AB594C2588717CC0E6141DEB5937D01B958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599198   (999428) от 06.01.2013
+
+Sothis - De Opresso Liber (2008) [WavPack|Lossless]<Symphonic Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-1. Preliminaries 01:09
-2. Stumps 03:20
-3. In Glorious Orgy 04:07
-4. Hypertrophic Jellyfish 04:27
-5. Everything Means "I" 03:54
-6. Barf Together 04:22
-7. Cartilages 03:49
-8. The Copy / Paste Syndrome 03:44
-9. The Miss-Treated 03:00
-10. Paraphilias 04:30Жанр: Death MetalПродолжительность: 00:36:22
+01. Of Night And Silence [03:57]
+02. De Opresso Liber [05:30]
+03. Beneath A Black Sky [05:49]
+04. Lunar Descent [04:49]
+05. Obsidian Throne [05:30]
+06. Defiance [06:55]
+07. The Cold Disconnection [04:20]
+08. Lair Of The Benighted  [05:29]
+09. Perpetual [05:58]Жанр: Symphonic Black MetalПродолжительность: 00:48:21
 
 ## Скачать торент
 ```bash
@@ -349,34 +158,348 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604588   (996200) от 18.01.2013
+###  Публикация: 599161   (999424) от 06.01.2013
 
-Mutiny Within - Mutiny Within 2: Synchronicity (2013) [MP3|320 kbps] <Metal>
+Aeternitas - Requiem (2000) [WavPack|Lossless]<Gothic Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Introitus [03:29]
+02. Kyrie [01:53]
+03. Graduale [04:12]
+04. Tractus [03:13]
+05. Sequenz - Dies Irae [04:38]
+06. Sequenz - Mors Stupedit [05:54]
+07. Sequenz - Rex Tremendae [02:59]
+08. Sequenz - Confutatis [04:45]
+09. Sequenz - Lacrymosa [03:24]
+10. Offertorium [04:29](   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599670   (999416) от 06.01.2013
+
+[Wallpapers] Car wallpapers (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpapers (06.01.13)
+Название: Car wallpapers (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8557FCCAD1B0EE814702E4DA48AAD21A459ED4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599388   (999415) от 06.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 16
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 3000х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F561B7002D26EE37C2277B8D549FD52B99DF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599165   (999413) от 06.01.2013
+
+Robert Monroe - Tales Of Power (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Hypnosis
+02. Sonora Trip
+03. Magic World
+04. Night Walking
+05. The Power of Silence
+06. Mescalito
+07. Welcome To Astral World
+08. Unreal
+09. Salvia Dream
+10. Tales of Power(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3D161E7E0EA5EE6F55DC2F661E02C0747CE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599442   (999411) от 06.01.2013
+
+VA - Paradise Islands (Mykonos Beach - Chillhouse Lounge Edition) (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Monodeluxe - Look At Me Again
+02. H&H Soulsurvivors - Brazil
+03. Larse - Close Eyed Dancer
+04. Alex Douche - Stories (feat. Martin Landa)
+05. Deejay Lesa - Waves
+06. Neo Mind - Your Eyes (Original Mix)
+07. Sharon Phillips - Touch Me (Kenny Blake's Uplifting Remix)
+08. Paolo Madzone Zampetti - A2s
+09. Fast Vision Soul - Babatunde
+10. Demie - Alone in the Sunset(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B6A0C3DFC6F85BC2BFEC64F2D0DCFB85B9BA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599410   (999410) от 06.01.2013
+
+Фотография - Фотограф Daria Endresen
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Daria Endresen
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CE11FA1A28BAAD6AC021C9EC981E2AB44CDB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599135   (999409) от 06.01.2013
+
+Coffin Texts - The Tomb of Infinite Ritual (2012) [FLAC|Lossless]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01 Atum (Into the Divine Sphere) 00:54
+02 To Manifest 05:54
+03 Final Transformation 04:47
+04 The Sacred Eye 06:43
+05 Divination 08:01
+06 Throne of Genocide 06:04
+07 Dieties of the Prime Evil Chaos 05:21Жанр: Death MetalПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599664   (999408) от 06.01.2013
+
+[Wallpapers] World of Animals (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] World of Animals (06.01.13)
+Название: World of Animals (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 4200х2800
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB32A28C65C02DFDA71AA1898CD784EA7FF4E624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599258   (999406) от 06.01.2013
+
+Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  Fall From The Grace Of Love (3:44)
+02.  Girls In Black (3:36)
+03.  Wash Away (4:16)
+04.  I Believe In You (3:56)
+05.  You Don't Have Me (3:45)
+06.  Money (4:09)
+07.  Someday (4:10)
+08.  Heal Me (7:21)
+09.  Over You (4:06)
+10.  Road To Forever (4:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23A721D4A75EF2F81AB79BB4F0098095ED83DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599382   (999405) от 06.01.2013
+
+[Wallpapers] Art collection (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Art collection (06.01.13)
+Название: Art collection (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C282D38980A37BAAB71B899518087C27DF9DFCAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598651   (999404) от 06.01.2013
+
+Gehenna - 10 альбомов (1994 - 2012) Дискография [MP3|CBR:320, VBR:~280]<Atmospheric Black Metal, Death Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Embers (02:57)
-02. In My Veins (03:25)
-03. In a Moment (03:20)
-04. Falls to Pieces (04:05)
-05. Machines (03:54)
-06. Never (03:08)
-07. Become (04:22)
-08. Lights (04:24)
-09. Balance (04:26)
-10. Life to Dust (04:08)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:45:48
+Норвежская блэк металлическая группа. В начале играла очень спокойный, мелодичный и мрачный атмосферный метал (до 1996 года, включительно), более тяготеющий к жанру Dark metal, а не к типичным представителям атмосферного блэка.
+Позже был переходный период к дэт-блэку, который, с альбома 2000 - Murder, приобрёл очень жёсткое, дэт-блэковое, даже, скорее, трешевое звучание.
+Поначалу лирика была посвящена средневековой мистики, черной магии и жизненному пути во тьме и среди зла. Позже она приобрела явный сатанинский и современный апокалипсический окрас, чаще всего присущий обычному блэк/дэт металлу, и несколько утратила свою первоначальную красоту.1 Grenade Prayer.mp3
+2 Death to Them All.mp3
+3 New Blood.mp3
+4 Flames of the Pit.mp3
+5 Silence the Earth.mp3
+6 Werewolf.mp3
+7 Abattoir.mp3
+8 Pallbearer.mp3Жанр: Death Black Metal (Trash metal)Продолжительность: 00:36:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62783DE404EEFA5DFF50CF4C2315AE8FAEE554DA
+magnet:?xt=urn:btih:38C9DB7C8C7499CE4D5FCF45FF7482350489573C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,51 +507,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604875   (996193) от 18.01.2013
+###  Публикация: 599438   (999402) от 06.01.2013
 
-Н.А.Шварев | Разведчики-нелегалы СССР и России [2011] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разведка - самая закрытая область человеческой деятельности. Но в настоящее время такое понятие о разведке в значительной степени изменилось. Появилось много книг, вышли фильмы и сериалы. И все же разведка и сегодня является самой таинственной областью работы спецслужб. Недаром разведчики-нелегалы - люди необыкновенной судьбы. Такими их делает специфика их опасной деятельности, тайная жизнь под чужими именами и с фиктивными документами. Разведчики-нелегалы - золотой фонд внешней разведки. Это, можно сказать, "штучный товар". На их подготовку уходят годы. И готовят их для весьма серьезной, сложной и ответственной работы за рубежом. Эта книга о них - "бойцах невидимого фронта", подвиг которых не должен быть забыт никогда.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4995A33D3F1C20C026C0538502C4C493BB23D316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602969   (996192) от 18.01.2013
-
-HQ Wallpapers Perfect Women (13.01.13) [Wallpapers 16+]
+Фотография - Фотограф Michael G. Magin
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1660 x 1024 ~ 3000 x 1920
+Фотография - Фотограф Michael G. Magin
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E98B28C195574EE9F46A6675C82AA11B060BD08
+magnet:?xt=urn:btih:22BB094D67A0A9CA4A491CAC37AD0E44F95E1A0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,112 +533,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604704   (996190) от 18.01.2013
+###  Публикация: 599415   (999401) от 06.01.2013
 
-Волчий острог - Багряный восход возрождения (2012) [MP3|219-269 kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лишь эта земля (02:03) [219kbps]
-02. Змея тетивы (05:21) [262kbps]
-03. Воители луны (04:43) [263kbps]
-04. Волчий острог (03:29) [269kbps]
-05. По деяниям тропа (02:19) [232kbps]
-06. Наши мечи (06:48) [253kbps]
-07. Вены взрывает звериная кровь (05:37) [260kbps]
-08. Багряный рассвет возрождения (04:51) [245kbps]
-09. На руинах Аркаима (03:29) [246kbps]
-10. Потомки хранителей воли Богов (03:20) [264kbps](   Читать дальше...   )Жанр: MetalПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F369B299FC62604A90BCE22BCD8C16593DECB97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604053   (996189) от 18.01.2013
-
-Каждому можно любить / Każdemu wolno kochać (1933) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Качественно отреставрированая известная польская комедия с Адольфом Дымшей и Мариушом Машуньски в главных ролях. Бедный музыкант Алойзи Кеджорек, влюбляется в Ренату, дочь мещанина Саганкевича. Однако родители хотят выдать дочь за богатого мясника-предпринимателя Балерона. Влюблённый Алойзи сочиняет удачную песню, которую, волей обстоятельств, его приятель Хипек (Адольф Дымша) продаёт директору театра. По ошибке, Кеджорека зымыкают в провинциальный сумасшедший дом, а Хипека принимают за автора песни, которая производит большой фурор. Однако пройдя ряд занимательных ситуаций, музыкант Алойзи, благодаря своёй песни «Каждому можно любить», обретает свою возлюбленную.Жанр: КомедияРежиссер: Мечислав Кравич, Януш ВарнецкиАктеры: Адольф Дымша, Мариуш Машуньски, Мира Зиминьска, Лилиана Зелиньска, Станислава Кавиньска, Станислав Лапиньски, Михал ХаличПеревод: Одноголосый закадровыйПродолжительность: 1:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA0DD842EE37E4463B84536A04B5417EA74A168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604000   (996188) от 18.01.2013
-
-Меридиан / Meridian (1990) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средневековый замок, мрачные подземелья с разверзающимися стенами, божественные напитки с подмешанными снадобьями, артисты цирковой труппы, среди которых самая загадочная фигура — человек в черном плаще и маске, наглухо закрывающей лицо… И неземной красоты девушка по имени Кэтрин не находит в себе сил сопротивляться колдовскому обаянию незнакомца…Жанр: Ужасы, Триллер, МелодрамаРежиссер: Чарльз БэндАктеры: Шерилин Фенн, Малкольм Джемисон, Чарли Спрэдлинг, Хилари Мейсон, Фил Фондакаро, Вернон Добчефф, Алекс Дэниелс, Вито Пассери, Анджело Де Бьянчи, Salem Badr ...Перевод: Одноголосый закадровыйПродолжительность: 01:22:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602926   (996187) от 18.01.2013
-
-Sexy Girls Wallpapers (2/2013) [Wallpapers 16+]
+Фотография - Фотограф Norbert Bares
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельный сборник обоев для рабочего стола от FedExe ®Разрешение файлов: 1600x1200 - 5100x2700
+Фотография - Фотограф Norbert Bares
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:276F654A73E0F941E4E49C05A1D988C2173F90A3
+magnet:?xt=urn:btih:D31D9420C6A4891C2898AA5706679124B851F35B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,138 +559,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604565   (996185) от 18.01.2013
+###  Публикация: 599417   (999399) от 06.01.2013
 
-Coheed and Cambria - The Afterman: Descension (2013) [MP3|320 kbps] <Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretelethal (03:21)
-02. Key Entity Extraction V: Sentry The Defiant (05:44)
-03. The Hard Sell (05:10)
-04. Number City (03:48)
-05. Gravity's Union (06:45)
-06. 06 Away We go (03:55)
-07. Iron Fist (04:45)
-08. Dark Side Of Me (05:02)
-09. 2's My Favorite 1 (04:54)Жанр: Alt. RockПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D46C0D914E76D9305FBB56C9429CCA7B2DB9BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604685   (996184) от 18.01.2013
-
-Everything Everything - Arc (2013) [MP3|320 кб/с]<Indie-Rock, Indie-Pop, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cough Cough - 3:42
-02. Kemosabe - 3:44
-03. Torso Of The Week - 4:34
-04. Duet - 3:42
-05. Choice Mountain - 3:24
-06. Feet For Hands - 3:56
-07. Undrowned - 3:01
-08. _Arc_ (Album Version) - 1:29
-09. Armourland - 3:41
-10. The House Is Dust - 3:29(   Читать дальше...   )Жанр: Indie-Rock, Indie-Pop, ExperimentalПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB740502B1BD782E5A7763084D2E5D7EAA5FC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602925   (996180) от 18.01.2013
-
-Sexy Girls Pack Wallpapers (2/2013) [Wallpapers 16+]
+Wide Wallpapers - cities - Paris (06.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельный сборник обоев для рабочего стола от FedExe ®Разрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3074C5B0935C73B092E8C335EDF62E069D647031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604746   (996178) от 18.01.2013
-
-Михаил Таубе | Аграфа [2007] [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга профессора M. А. Таубе была издана в Варшаве в 1936 году в серии «Библиотека братства православных богословов в Польше». Работа посвящена рассмотрению достоверных, хотя и незаписанных в Евангелии изречений Христа Спасителя, сохранившихся в древнейших памятниках письменности первых веков христианства, a также в церковном предании. Уже на рубеже XIX - XX столетий по этому вопросу появилось большое количество исследований на иностранных языках, использованных автором.
- В основу монографии были положены материалы, частично разработанные автором еще до революции 1917 года и изложенные в устном докладе в Петрограде в присутствии митрополита Киевского Владимира (Богоявленского). Ознакомившись с ходом исследования, митрополит одобрил работу и благословил автора на ее продолжение, Плодом многолетних научных трудов M. А. Таубе стала предлагаемая читателям книга.
- В России книга публикуется впервые. Издание рассчитано на священнослужителей и мирян, интересующихся богословием и историей Церкви, учащих и учащихся духовных (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D045686A3089022F5A16EF5A9291EA608989C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602954   (996175) от 18.01.2013
-
-Interior Wallpapers (13.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -690,7 +577,7 @@ Interior Wallpapers (13.01.13) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A64F8EAD388F2C6A508CF30F8F8CCFFE18DFED22
+magnet:?xt=urn:btih:0F8C46E704CEDB959B9E92AAA80880D405E945FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,25 +585,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602917   (996172) от 18.01.2013
+###  Публикация: 599411   (999397) от 06.01.2013
 
-Winter Wallpapers (2/2013) [Wallpapers]
+Фотография - Фотограф Andreas Kock
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельный сборник обоев для рабочего стола от FedExe ®
+Фотография - Фотограф Andreas Kock
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC94EBEDF76586C9EA835762E00C8722C23B7E6D
+magnet:?xt=urn:btih:CD92E1DF4735B9C991EFD1424E4B30EFF7CFE155
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -724,25 +611,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604727   (996171) от 18.01.2013
+###  Публикация: 599436   (999394) от 06.01.2013
 
-Святитель Григорий Двоеслов | Диалоги. Собеседования о жизни Италийских отцов и о бессмертии души. (2012) [FB2]
+Фотография - Фотограф Christian Kettiger
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Творение свт. Григория Великого, Двоеслова, папы Римского, «Собеседования о жизни Италийских отцов», или «Диалоги», представляет собой ценнейший памятник западнохристианской древнецерковной письменности эпохи неразделенной Церкви. Его можно назвать «Древним латинским патериком», ибо это произведение посвящено описанию житий подвижников IV–VI веков, живших в Италии (   Читать дальше...   )Формат: FB2
+Фотография - Фотограф Christian Kettiger
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F681F6024BAA8E2366FB8E7553E6047153345A4
+magnet:?xt=urn:btih:09AED8D1A744C7BAAB4E7BD2C71C2E59A09EFC5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -750,34 +637,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604592   (996170) от 18.01.2013
+###  Публикация: 599545   (999393) от 06.01.2013
 
-The Courteeners - ANNA (2013) [MP3|320 kbps] <Indie Rock>
+Ростислав Плятт | Ростислав Плятт. Без эпилога [2000] [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Are You In Love With A Notion (04:15)
-02. Lose Control (03:48)
-03. Van Der Graaff (03:40)
-04. Push Yourself (03:25)
-05. When You Want Something You Can 't Have (04:06)
-06. Welcome To The Rave (04:07)
-07. Save Rosemary In Time (03:27)
-08. Sharks Are Circling (04:16)
-09. Marquee (03:58)
-10. Money (03:23)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:42:09
+Много блестящих ролей сыграл в театре и кино Ростислав Янович Плятт. Зрители разных поколений помнят его в спектаклях «Дни нашей жизни», «Нора», «Госпожа министерша», «Бунт женщин», «Леший», «Шторм», «Милый лжец», «Дальше - тишина», в фильмах «Подкилыш», «Весна», «Семнадцать мгновений весны» и др. Актер рассказывает о своей многолетней работе на московских сценах - в Театре-студии под руководством Ю. Завадского, в Театре имени Моссовета. О режиссере Ю. Завадском, актерах В. Марецкой, Н. Мордвинове, О. Абдулове, Ф. Раневской, Л. Орловой. В портретную галерею входят видные деятели советской и зарубежной культуры - А. Попов, М. Ромм, К. Симонов, Ч. Чаплин.Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B05D57336F791482C762D692BC3FEE36C9DCA01
+magnet:?xt=urn:btih:F4FC4289EB7F16D70C8C0FA91B911CC85513F54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599418   (999392) от 06.01.2013
+
+Wide Wallpapers - waterfalls (06.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93837390EB06CD24529D45C2A054A3C5855D8631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598780   (999391) от 06.01.2013
+
+VA - Pure Trance Bliss (2013) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Juventa - 405 (Original Mix)
+02. Jaco - Malaysia (Original Mix)
+03. Temple One - Aquamarine (Original Mix)
+04. LTN - Never Let Me Go (Anhken Sunset Remix)
+05. Jan Martin - Exemption (The Madison Remix)
+06. Jjoo - One Night In Seoul (Original Mix)
+07. Juventa & Answer42 - Like These Eyes (Answer42 Remix)
+08. Audien - Keep This Memory (Johan Malmgren Remix)
+09. Estiva & Tania Zygar - Death Of Me (Original Mix)
+10. Juventa - Roadtest (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F56C526884BC8E642D04C3AEB39444750E50B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599385   (999390) от 06.01.2013
+
+[Wallpapers] Abstract Wallpapers (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Abstract Wallpapers (06.01.13)
+Название: Abstract Wallpapers (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5BD0B05920B929B6ECF48E6F358B931E29420A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599577   (999387) от 06.01.2013
+
+Вячеслав Шпаковский, Светлана Шпаковская | Бронетехника гражданской войны в Испании 1936–1939 гг. [1999] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о танках и бронеавтомобилях, примененных в ходе гражданской войны в Испании 1936–1939 гг. — первой «пробы сил» ведущих европейских держав перед Второй мировой войной. Рассмотрены особенности боевого применения бронетехники воюющими сторонами, вопросы противотанковой обороны, а также организации, униформы, знаках различия танковых формирований. (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B63D4F626EF2E82F2C4A45FDFB59BCC56E4D75D
 ```
 
 https://mybot314.ru/tekegram_catalog/

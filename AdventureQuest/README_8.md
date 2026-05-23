@@ -1,3 +1,107 @@
+###  Публикация: 1473480   (1013612) от 29.05.2021
+
+The Company Man (2021) [En] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сразитесь с рабочей рутиной в The Company Man! Это приключенческая 2D-игра, где вы можете бить безумных коллег клавиатурой и стрелять в злых боссов электронными письмами. Выживите на работе и исполните свою давнюю мечту стать гендиректором! Джим наконец окончил университет и готов начать свою грандиозную карьеру в Good Water Company.Тип издания: LicenseРазработчик: ForustЖанр: Action, Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AF825CEBB33541F7344AC614FFB4E77973672E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473694   (1013453) от 30.05.2021
+
+Little Misfortune (2019) [Ru/Multi] (1.0) License GOG [Fancy Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Little Misfortune - это интерактивная история, основное внимание в которой уделено исследованиям и персонажам, одновременно тёмным и милым; история, в которой Ваш выбор имеет последствия. В главной роли Неудача Рамирес Эрнандес, восьмилетний ребёнок с богатым воображением, который ищет приз Вечное Счастье, чтобы подарить своей маме. Во главе со своим новым другом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Killmonday GamesЖанр: Adventure, Horror, Puzzle, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4A7E0FAD30DBC3626233D98A949A2B8FE75023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473832   (1013444) от 30.05.2021
+
+Creepy Tale (2020) [Ru/Multi] (1.0.2b) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Беспечный поход за грибами вместе с братом оборачивается ужасом и затягивает героя в череду жутких событий. Брат похищен, а Вы остаётесь один на один со зловещим лесом, наполненным опасностями и странными существами. Решайте головоломки, которые встречаются на пути, не дайте себя поймать и спасите брата из лап нечистой силы! Узнайте тёмную историю, которая постигла (   Читать дальше...   )Тип издания: LicenseРазработчик: Deqaf StudioЖанр: Adventure, Horror, PuzzleЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6A7B1CC241D741EDFE7512B68855DB0497D98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473670   (1013442) от 30.05.2021
+
+Retro Machina (2021) [Ru/Multi] (1.02) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Откройте новое приключение в мире, населенном роботами. Наша планета застряла в стиле “ретро”, поскольку все разумные существа таинственным образом исчезли раньше, чем сумели изобрести телевизоры с плоским экраном. Зато они сумели изобрести сотни видов роботов, которые стали выполнять за людей всю работу. Но теперь некогда зеленая планета — это безжизненная пустыня, (   Читать дальше...   )Тип издания: LicenseРазработчик: Orbit StudioЖанр: Приключение, Экшн, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547167F36463A51C23F295C84A33F19DD9266F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473838   (1013436) от 30.05.2021
 
 Tasomachi: Behind the Twilight (2021) [Multi] (20210422/dlc) License GOG
@@ -6,7 +110,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20210422/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Bad Dream: Coma (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Bad Dream: Fever (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Room 54 (2021) [Multi] (1.0) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Ultreïa / Ultreia (2021) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Rusty Lake Hotel (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Cube Escape Collection (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Rusty Lake: Roots (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Röki / Roki (2020) [Ru/Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Sludge Life (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Backbone (2021) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Pacify (2019) [Ru/Multi] (4.24) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Visage (2020) [Ru/Multi] (3.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Minute of Islands (2021) [Multi] (6616315) License Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Paradise Lost (2021) [Ru/Multi] (cl12558.1414.shipping) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Exit From (2021) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +553,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (47726) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +579,7 @@ Minute of Islands (2021) [Multi] (1.0) License GOG [Digital Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +605,7 @@ Overboard! (2021) [En] (1.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +631,7 @@ Wonhon: A Vengeful Spirit (2021) [Ru/Multi] (1.0.4r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Lona: Realm of Colors (2021) [En] (0.1.23) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,110 +668,6 @@ Lona: Realm of Colors – это приключение в естественн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E69B8FE485EEE5558116003DEEA3A86F96019E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484229   (1006238) от 18.07.2021
-
-Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая и исследовательская игра со сказочной и удивительной вселенной. В глубинах бездны всемирной паутины расцвела новая жизнь. Вы - первый человек, который оказался в этой таинственной экосистеме. Странная сила, очевидно, влияет на её равновесие. Объедините усилия с интригующими и очаровательными существами, чтобы разгадать загадки Paper Beast.Тип издания: LicenseРазработчик: Pixel ReefЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык интерфейса: Русский, Английский, Испанский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D2BE4781D30DAACDDA7244C46E99391CEE4AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485006   (1005650) от 23.07.2021
-
-Last Stop (2021) [Ru/Multi] (7027314) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Last Stop – приключенческая игра от третьего лица, действие которой происходит в наши дни в Лондоне. Написанная и разработанная студией Variable State, создателями удостоенной наград игры Virginia, игра Last Stop рассказывает три взаимосвязанные истории трёх главных героев, которыми управляет игрок.Тип издания: LicenseРазработчик: Variable StateЖанр: Adventure, Sci-Fi, Mystery, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB580B8B163BD48733EDC3BFEF95B595915ECBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485168   (1005539) от 24.07.2021
-
-Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Summer of '58 — это психологический триллер от первого лица. Действие игры разворачивается в заброшенном здании советского лагеря. Пионерский лагерь «Юность» обычное место, где родители оставляли детей на лето из года в год. Пока в один день 1958 года не случился кошмар, который оказался намного страшнее рассказов у костра. На этом месте были убиты проживающие и (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDC640CCA76B8FC3CC2FCAC33DE0F2DEE5E25A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485777   (1005034) от 28.07.2021
-
-Creepy Tale 2 (2021) [Ru/Multi] (1.1.7) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creepy Tale 2 — это жуткая мультяшная головоломка, вдохновлённая древними европейскими сказками. Одержите верх над своими страхами, разгадайте множество увлекательных загадок и спасите свою семью в этом насыщенном событиями приключении! Настали темные времена. Таинственное зло наводит ужас на королевство, похищая детей и жестоко расправляясь с беззащитными жителями (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy BrothersЖанр: Adventure (Horror), Puzzle, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C9B4601063831416055DF2ABE1CBE4B31BD4F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 782588   (746479) от 03.05.2014
+
+Нимфоманка: Часть 1, 2 / Nymphomaniac: Vol. I, II (2013) BDRip [720p] [Line]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это светлая и поэтичная история эротических переживаний женщины от рождения до пятидесятилетия, рассказанная от лица главной героини, женщины по имени Джо, поставившей себе диагноз — нимфомания...Производство: Дания, Германия, Франция, Бельгия, ВеликобританияЖанр: Драма, эротикаРежиссер: Ларс фон ТриерАктеры: Шарлотта Генсбур, Стэйси Мартин, Стеллан Скарсгард, Шайа ЛаБаф, Кристиан Слэйтер, Ума Турман, Софи Кеннеди Кларк, Йенс Альбинус, Николас Бро, Фелисити Гилберт, Джейми Белл, Уиллем Дефо, Миа Гот, Жан-Марк Барр, Майкл Пас, Морган Хартли...Перевод: Дублированный (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH), ФранцузскийПродолжительность: 01:57:20 + 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBAC5D5A96DBF15B915FA9244D7D094BDE04C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522572   (746032) от 14.01.2022
+
+Властелин колец: Трилогия / The Lord of the Rings: Trilogy (2001, 2002, 2003) BDRip [H.264/1080p-LQ] [Расширенная версия] [Ремастер]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сказания о Средиземье - это хроника Великой войны за Кольцо, войны, длившейся не одну тысячу лет. Тот, кто владел Кольцом, получал власть над всеми живыми тварями, но был обязан служить злу.
+Тихая деревня, где живут хоббиты. Волшебник Гэндальф, придя на 111-й день рождения к своему старому другу Бильбо Бэггинсу, начинает вести разговор о кольце, которое Бильбо нашел (   Читать дальше...   )Производство: США, Новая Зеландия / New Line Cinema, WingNut Films, The Saul Zaentz CompanyЖанр: Фэнтези, приключения, драмаРежиссер: Питер ДжексонАктеры: Элайджа Вуд, Иэн Маккеллен, Шон Эстин, Вигго Мортенсен, Билли Бойд, Доминик Монахэн, Джон Рис-Дэвис, Орландо Блум, Шон Бин, Иэн Холм, Лив Тайлер, Кейт Бланшетт, Бернард Хилл, Кристофер Ли, Энди Серкис, Миранда ОттоПеревод: Дублированный, Профессиональный многоголосый, АвторскийСубтитры: Русские, английскиеПродолжительность: 03:48:19 | 03:55:32 | 04:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B21E3E7448586679F569C33251C415F86245BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 781960   (742176) от 06.05.2014
 
 Бум [дилогия] /La boum [dilogy] (1980,1982) BDRip [H.264/720p-LQ]  [Hi10P]
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_712809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +378,7 @@ Kingsman / Kingsman (2014-2021) BDRip [H.264/720p] [Трилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +430,7 @@ Kingsman: Трилогия / Kingsman: Trilogy (2014-2021) BDRip [H.264] [AVO]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -629,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93F442EE7E173F0B5F929F6F29A318FC3A14049C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030807   (671727) от 01.07.2016
-
-Ларго Винч: Начало / Largo Winch (2008), Ларго Винч 2: Заговор в Бирме / Largo Winch 2 (2011) BDRip [H.264/1080p-LQ] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671727.jpg" />
-</div>
-
-
-###  Подробнее
-
-После убийства приёмного отца Ларго Винч становится президентом группы компаний «W Group». Но роль управленца огромной корпорации не подходит Ларго. Он объявляет о продаже «W Group» и создании гуманитарного фонда, который возглавит старый друг его отца. В день, когда договор подписан, Ларго обвиняют в преступлениях против человечества и финансировании режима бирманского (   Читать дальше...   )Производство: ФранцияЖанр: Триллер, ПриключенияРежиссер: Жером СалльАктеры: Томер Сислей, Шэрон Стоун, Ульрих Тукур, Напакпапха Накпраситте, Оливье Бартелеми, Николас Воде, Клеменс Шик, Дмитрий Назаров, Лоран Терзиефф, Франсуа МонтагюПеревод: ДублированныйПродолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC81098D6408092925F837E3C45F722AAB2AC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897992   (669118) от 21.05.2015
-
-Сокровище нации / National Treasure (2004-2007) [H.264/1080p] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения охотников за сокровищами, потерянные нацией, привлекают многих, но есть те, кто решился их найти. И это Бен Гейтс со своими друзьями. Интриги, провалы, предательства — на каждом шагу. Но это их не останавливает!..Производство: США / Walt Disney Pictures, Jerry Bruckheimer Films, Junction EntertainmentЖанр: боевик, триллер, детектив, приключенияРежиссер: Джон ТёртелтаубАктеры: Николас Кейдж, Дайан Крюгер, Джастин Барта, Шон Бин, Джон Войт, Харви Кейтель, Кристофер Пламмер, Дэвид Дайан Фишер, Стюарт Финлэй-МакЛеннан, Олег Тактаров, Стефен А. Поуп, Энни Париссе, Марк Пеллегрино, Армандо Риско, Эрик Кинг, Дон МакМанус, Рон Канада, Хантер Гомез, Дебора Йэтс, Арабелла Филд, Шарон Уилкинс, Хелен Миррен, Эд Харрис, Брюс Гринвуд, Ти Баррелл, Майкл (   Читать дальше...   )Перевод: профессиональный (полное дублирование), профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 02:11:06 | 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA8A952B9B5E47D5AEEED23543FEA1B792C5194
 ```
 
 https://mybot314.ru/tekegram_catalog/

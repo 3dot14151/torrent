@@ -1,3 +1,82 @@
+###  Публикация: 1534036   (699050) от 27.02.2022
+
+ELDEN RING (2022) [Ru/Multi] (1.02/dlc) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: LicenseРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32330D8FDF90C52A825AC36B898C1B3443EB677F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269639   (698909) от 09.03.2019
+
+BELOW (2018) [Ru/Multi] (1.0.0.36) License CODEX
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Below – процедурно генерируемое приключение в открытом мире, где вам предстоит столкнуться с Тьмой. Возьмите на себя роль крошечного героя и отправляйтесь исследовать случайно генерируемые подземные лабиринты отдаленного острова, кишащие смертоносными монстрами, ловушками и различными опасностями.Тип издания: LicenseРазработчик: Capybara GamesЖанр: Adventure, RPG, IndieЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594AF829884D7BD5B2C48D642B1098686F0FDEA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027444   (697682) от 18.06.2016
+
+Rebel Galaxy (2015) [Ru/Multi] (1.08) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Rebel Galaxy – это удалое приключение в открытом космосе, где игроков ждут яростные перестрелки, новые горизонты, бескомпромиссная торговля и "переговоры" со всякого рода сбродом, населяющим космический фронтир.
+Вам предстоит занять кресло капитана яростного крейсера и отправиться показывать кузькину мать пиратам, исследовать космические аномалии, водить (   Читать дальше...   )Тип издания: RepackРазработчик: Double Damage GamesЖанр: RPG (Rogue, Action), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BA28A832FDCBBD61FA68236523EF1DE921773D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027388   (697559) от 18.06.2016
 
 Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +85,7 @@ Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +142,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +170,7 @@ Quest Hunter (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +196,7 @@ Demon's Rise - Lords of Chaos (2018) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +222,7 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +248,7 @@ The Caligula Effect: Overdose (2019) [En/Ja] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +274,7 @@ Sanctuary RPG (2015) [En] (2.3.1) License GOG [Black Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +300,7 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +326,7 @@ Might and Magic - Clash of Heroes (2011) [Ru/Multi] (1.0.1.1) Repack R.G. Origam
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +352,7 @@ Hammerting (2020) [Ru/Multi] (1.2.39.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +378,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +404,7 @@ Goliath (2016) [Ru/En] (1.04/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +430,7 @@ Fate/EXTELLA LINK (2019) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +456,7 @@ Submerged: Hidden Depths (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +482,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (1.0.6e-fix/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -455,7 +534,7 @@ We. The Revolution (2019) [En/Po/Fr] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +560,7 @@ Monster Hunter: World (2018) [Ru/Multi] (1.0 build 166925/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +612,7 @@ StarCrawlers (2017) [En] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +638,7 @@ HordeCore (2022) [Ru/Multi] (1.06.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +664,7 @@ Telepath Tactics (2015) [En] (1.051) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,84 +675,6 @@ Telepath Tactics от независимых разработчиков Fire Emb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:176D5912E97A4EC4C9680BC68E8B7598E1B42161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291464   (670014) от 24.03.2019
-
-The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru] (1.32.0/dlc) Repack Other s [Game of the Year Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670014.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ведьмак: Дикая Охота" — это ролевая игра нового поколения с глубоким сюжетом, действие которой происходит в открытом мире. Огромная и потрясающе красивая игровая вселенная заставит игрока принимать непростые решения, каждое из которых будет иметь свои последствия. В "Ведьмаке" вы играете за Геральта из Ривии — профессионального убийцу чудовищ, (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86AA19D0EA72B4D39E5A52BE1EE237A2C42DC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224530   (665820) от 10.05.2018
-
-City of Brass (2018) [Ru/Multi] (1.0) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665820.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Медный город» - это беспощадная rogue-lite игра в восточной стилистике «1001 ночи». Ваш герой вооружен саблей и кнутом. С помощью кнута можно цепляться и задействовать механизмы, обезвреживать ловушки и оглушать врагов, разбивать предметы и просто атаковать врагов. Бейте и рубите, побеждайте толпы мертвецов силой и хитростью.Тип издания: RepackРазработчик: Uppercut Games PtyЖанр: 3rd Person, Adventure, 1st Person, ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B4AD4AFA35E5C3E3E80BE68954E54478352F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072906   (663586) от 12.05.2018
-
-Agarest: Generations of War (2014) [En] (1.0) License GOG [Collector's Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это классическая JRPG, в котором игроку предстоит объединить силы с мистической сущностью, обретя силы Богов, и пройти по пяти континентам, побеждая своих врагов. Сюжет основан на Record of Agarest War, системе «размножения душ». На практике это будет выглядеть так: мы должны будем добыть сердце одной из героинь и создать из него своего потомка.Тип издания: LicenseРазработчик: Compile HeartЖанр: RPG (Japanese-style), 3DЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F5BC031809E6DE5CF656162F7238184904E663
 ```
 
 https://mybot314.ru/tekegram_catalog/

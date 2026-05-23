@@ -1,191 +1,23 @@
-###  Публикация: 1273923   (795037) от 05.01.2019
+###  Публикация: 1508756   (796874) от 09.11.2021
 
-Журнал | Good Woodworking №313 (2016) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Good Woodworking — издание, целиком посвященное столярному делу, в каждом номере предлагает обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража. Все изделия, модели и поделки представлены понятными схемами и чертежами, практически не требующими (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36C227743B512E0C296E7120E8477B4441699A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274038   (795036) от 05.01.2019
-
-VA - Independent Pop Rock (2019) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dystopia - Living For Summer
-002. Róisín Murphy - Jacuzzi Rollercoaster
-003. David Kitt - Like Lightning
-004. Foster The People - Pay The Man(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991CC872FA1592706C4264A3D65A1EAA743CBF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274195   (795035) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. Россия — Словакия (02.01.2019) IPTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795035.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 06:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-Россия — Словакия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA529C2E7E58319A3DBF2469F9A8F1BD0055BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274073   (795034) от 05.01.2019
-
-Mode-One - Коллекция (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of My Heart (8:36)
-02. Heaven Is Waiting (5:56)
-03. I Wanna Feel You (7:24)
-04. Game Of Love (Extended Mix) (feat. Lian Ross) (6:01)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA394FCDF694BA2CE237CEEEE68AA54118F3300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274101   (795033) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. Швеция — Казахстан (2018) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 января 2019, вторник. 02:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа B.
-Швеция — Казахстан(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1816BA416A05A77FD09D337268A9DF7F955ADA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274029   (795032) от 05.01.2019
-
-С. Д. Сказкин и др. (ред.) | История Италии [3 тома] (1970-1971) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том "История Италии" освещает события с V до XVIII в. В нем рассказывается о средневековом городе и деревне, о развитии феодализма и появлении в его недрах первых ростков капиталистических отношений, о периоде Ренессанса, с которым связан невиданный расцвет науки, искусства, литературы. Однако вслед за блестящим взлетом эпохи Возрождения наступает (   Читать дальше...   )Жанр: История, политология, экономика, культурология, этнография, искусство, археологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB61A0BC7733A20C3CDD2B513F0863FB624158EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273990   (795031) от 05.01.2019
-
-Classic Weather Premium 4.0 [Multi/Ru]
+ToothFairy 2.7.4 fix [Multi]
 
 >>Программы для macOS
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Виджеты, погода в доке и в строке меню.
-Mac-версия любимого приложения с прогноза погоды ClassicWeather созданного для iOS.Тип издания: macOS SoftwareРелиз состоялся: 03.01.2019Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+ToothFairy - это небольшое приложение позволяет всего лишь одним кликом управлять любым устройством посредством Bluetooth.
+ToothFairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2021Разработчик: © 2021 Lu YibinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7095F21487B2572E1876E0E658B4F96185D95256
+magnet:?xt=urn:btih:03C5FB8ACECC10A1C1A3015F6D69194B303E1805
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,57 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274099   (795030) от 05.01.2019
+###  Публикация: 1508620   (796873) от 09.11.2021
 
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа A. Дания — Чехия (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 января 2019, вторник. 00:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа A.
-Дания — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04C7AB292B48243A600402093D61BAF533F2F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273811   (795029) от 05.01.2019
-
-Taylor Swift - Essentials (2018) [MP3|320 Kbps] <Pop>
+Tower 7 v7.2 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1. Delicate
-2. Blank Space
-3. Shake It Off
-4. Call It What You Want(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:50
+Tower - мощный и элегантный Git клиент для Mac
+Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: fournova Software GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07FA510837ED252A15846901603D23F2CFBE6F2D
+magnet:?xt=urn:btih:EB09E0595C03E9C0438BDE87379C60829A80BCEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274116   (795028) от 05.01.2019
+###  Публикация: 1508737   (796872) от 09.11.2021
 
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа A. Россия — Канада (2018) HDTV [H.264/1080i-LQ]
+Павел Крапчитов | Дороги, которые мы выбираем (2021) [MP3, Павел Крапчитов]
 
->>Спорт и активный отдых
->>Хоккей
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 января 2019, вторник. 04:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа A.
-Россия — Канада(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:49:49
+Обычная человеческая жизнь. За деревьями и кустарником мы не замечаем леса. Но судьба дает нам шанс. Слишком поздно и слишком мало. Или в самый раз?Жанр: Проза, РассказПродолжительность: 00:19:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED6F275AF547C9D9F005862494EE1B5785670353
+magnet:?xt=urn:btih:C05C8731FAF85F5F5305750AB2D0F8BDBAB04270
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +78,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200556   (795027) от 22.01.2018
+###  Публикация: 1508613   (796871) от 09.11.2021
 
-Горные лыжи. Кубок мира 2017–2018. Бад-Кляйнкирхайм (Австрия). Женщины. Супергигантский слалом (13.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+Existance - Wolf Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-13 января 2018 года, суббота. 12:45 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Бад-Кляйнкирхайм (Австрия).
-Женщины. Супергигантский слаломТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:39
+01. Highgate Vampire
+02. Deathbringer
+03. Power Of The Gods
+04. Rock'N Roll(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EB336802C75B3677E11395EFB782CAB4C18CC8A
+magnet:?xt=urn:btih:C236591A903271E1149046DFD3C5D9993F4F44A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,27 +107,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200754   (795026) от 22.01.2018
+###  Публикация: 1508793   (796870) от 09.11.2021
 
-Биатлон. Кубок Мира 2017-2018. 6-й Этап. Антхольц-Антерсельва (Италия). Мужчины. Масс-старт (21.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Memoria Avenue - Memoria Avenue (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-21 января 2018 года, воскресенье. 14:30 МСК
-6-й этап Кубка Мира по биатлону 2017-2018. Антхольц-Антерсельва (Италия)
-Мужчины. Масс-старт 15 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:13
+01. Stuck
+02. Stranded
+03. Can't Blame It On The Rain
+04. The Air That Breath(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:55:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C4CFA8AB0BD15DCB2454C389E27286FC34F3DFF
+magnet:?xt=urn:btih:138700E917FC504FC32295231B52B976042F181D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +136,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200795   (795025) от 22.01.2018
+###  Публикация: 1508565   (796869) от 09.11.2021
 
-Baby Laurence - Dancemaster (1959, 1960) 2008, Classic Jazz [FLAC|Lossless|image + .cue] <Tap Dance, Swing>
+В МГУ ввели межфакультетские курсы по искусственному интеллекту
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+МОСКВА, 7 ноября. /ТАСС/. Межфакультетские курсы по искусственному интеллекту для всех студентов вуза введены в Московском государственном университете имени М. В. Ломоносова в 2021 году, сообщил ректор МГУ Виктор Садовничий в воскресенье в ходе Дня открытых дверей, который проходил в онлайн-формате."Студент имеет право выбирать эти курсы, и они засчитываются (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508757   (796868) от 09.11.2021
+
+Алиса пожарный / Alice the Fire Fighter (1926) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разухабистый мультик о тушении пожара, где Кот Джулиус (и его клоны) пожарные, а Алиса их брандмайорПроизводство: США, Walt Disney ProductionsЖанр: Рисованная анимация, ДетскийПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F3D4FB992127B3347A313DCEAE3CD8B66D6F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508583   (796867) от 09.11.2021
+
+Ростовская-на-Дону епархия (изд.) | Наследие Кирилла и Мефодия в наши дни (2008) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кириллицей, по имени святого учителя славян, мы сегодня называем азбуку, которая и поныне употребляется для письма на церковнославянском языке. Однако неверно было бы назвать святого Кирилла творцом одной лишь азбуки: то, что он придумал буквы для славянской речи, есть меньшая из его заслуг. Гораздо важнее то, что, осуществив перевод Священного Писания и Богослужебных (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6186098C1B604EBA4979E8CE8F316560E32854B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508567   (796866) от 09.11.2021
+
+t.A.T.u. - 200 KM/H In The Wrong Lane (10th Anniversary Edition) (2012) [AAC|~331 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. A Simple Motion (Album Version) (2:48)
+02. Not Gonna Get Us (4:22)
+03. All The Things She Said (3:34)
+04. Show Me Love (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A3780A80D7F0F349E458369F88C27A5EB3105F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508557   (796865) от 09.11.2021
+
+AIR - 10 000 Hz Legend (2021) [AAC|~343 Kbps] <Leftfield, Downtempo, Experimental>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1.01. Electronic Performers (5:36)
+1.02. How Does It Make You Feel? (4:38)
+1.03. Radio #1 (4:27)
+1.04. The Vagabond (5:37)(   Читать дальше...   )Жанр: Leftfield, Downtempo, ExperimentalПродолжительность: 01:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F54BA9121074FE08BC4115F4DF54677B2D6D3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508776   (796864) от 09.11.2021
+
+HitPaw Watermark Remover 1.2.1 fix [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Когда вам нужно быстро удалить водяной знак с одного из ваших изображений или видео, лучше всего прибегнуть к специализированным программным решениям, чтобы гарантировать получение высококачественных результатов. HitPaw Watermark Remover - одна из таких утилит. В общем, HitPaw Watermark Remover может пригодиться, когда вам нужно «стереть» водяной знак с ваших изображений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2021Разработчик: HitPaw. Co., Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53D8540E1B8F35F6A3ECEBB555A5BBCE7441E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508707   (796863) от 09.11.2021
+
+John Coltrane with The Red Garland Trio & Quintet - Four Classic Albums (1957, 1958) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Baby at Birdland [04:29]
-02. The Sand [04:50]
-03. Buck Dance [05:06]
-04. Mall March [03:50](   Читать дальше...   )Жанр: Tap Dance, SwingПродолжительность: 00:46:12
+CD1:
+01. Traneing In [12:34]
+02. Slow Dance [5:27]
+03. Bass Blues [7:46](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:38:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD88958746FD8984A1DA71156277296EFAB1706D
+magnet:?xt=urn:btih:50F0C4FE5C46422EED4A6FDBC59070ACE84004DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +327,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200794   (795024) от 22.01.2018
+###  Публикация: 1508726   (796862) от 09.11.2021
 
-Frankie   Newton - 1937 - 1939 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+PD (Progressive Downloader) 5.0 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. You Showed Me The Way [02:47]
-02. Please Don't Talk About Me When I'm Gone [02:37]
-03. Who's Sorry Now? [02:48]
-04. I Found A New Baby [02:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:48
+Progressive Downloader — теперь уже платный менеджер закачек под Mac.Тип издания: macOS SoftwareРелиз состоялся: 08.11.2019Разработчик: macpsdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AED8F56B541B2F15C9954B6909E200B25F305C1E
+magnet:?xt=urn:btih:7CD06FFDED9062373C6BD067762C0B07B6B01043
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,27 +353,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200752   (795023) от 22.01.2018
+###  Публикация: 1508754   (796861) от 09.11.2021
 
-Биатлон. Кубок Мира 2017-2018. 6-й Этап. Антхольц-Антерсельва (Италия). Женщины. Масс-старт (21.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+RAW Power 3.4 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-21 января 2018 года, воскресенье. 14:30 МСК
-6-й этап Кубка Мира по биатлону 2017-2018. Антхольц-Антерсельва (Италия)
-Женщины. Масс-старт 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:50:36
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2021Разработчик: © 2021 Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEE80B1EE871404BAA65D83EE37ACAB0094B1CDA
+magnet:?xt=urn:btih:2945177529BE403AA2D4D764C7C561BF7FDA5DC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,57 +380,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200791   (795022) от 22.01.2018
+###  Публикация: 1508642   (796860) от 09.11.2021
 
-Cody Moffett - Evidence (1993) Telarc Jazz [WavPack|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melodic Drum March I [01:37]
-02. Blues Connotation [04:54]
-03. Evidence [05:21]
-04. Equinox [08:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B138D9073D7A89F8B228EBABC76F76F2180A110C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200787   (795021) от 22.01.2018
-
-VA - Clubbers Culture: Trancefields 003 (2018) [MP3|320 Kbps] <Trance>
+The Digital Blonde - N3ON (2021) [MP3|320 Kbps] <Trance, Progressive House>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Emre Yildiz - Escape (Original Mix)
-02. Nanven - Aren (Original Mix)
-03. ER7E - Revelation (Original Mix)
-04. Dave - Flying (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:24
+01. Balerika (Original Mix) (17:27)
+02. Age Of Confusion (Original Mix) (13:27)
+03. Plutox (Original Mix) (10:31)
+04. Synthdrive (Original Mix) (10:12)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 03:29:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EADBE20161591E43AF29400C6899757D5236050
+magnet:?xt=urn:btih:1540F2359FAA8302C528C2A587951FF55618DCA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,26 +409,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200757   (795020) от 22.01.2018
+###  Публикация: 1508634   (796859) от 09.11.2021
 
-Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. 8-й Выпуск (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Nik Kershaw - The Works (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. One Step Ahead
+02. Elisabeth's Eyes
+03. Take My Place
+04. Wounded Knee(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4219C17C4441EF350106B2D1011E01D51035626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508618   (796858) от 09.11.2021
+
+The Dark Horde - The Calling (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction
+02. Mask
+03. Childhood
+04. Victim(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08094090B2DDAF8176F75AF50EDA484ED8360A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508694   (796857) от 09.11.2021
+
+Wraith - Danger Calling (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Hungry (Shot Of Your Love)
+02. Crazy
+03. One Foot In The Grave
+04. Breakin' All The Rules(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E5A23731E90F75DC46C3AE937F816FB37E3146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508732   (796856) от 09.11.2021
+
+BurnAware Free 14.9 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Эфир от: 21.01.2018
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:39
+BurnAware Free - бесплатная и простая в использовании программа для записи CD, DVD и Blu-ray дисков. Позволяет выполнять все основные задачи по записи: создание и прожиг образов, запись аудио дисков из файлов WAV, MP3, и WMA, запись DVD-Video и дисков с данными, поддержка мультисессии, проверка записанных данных и многое другое.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39299EFBE5C9258185331BF165A6529F6ECE7757
+magnet:?xt=urn:btih:A3C11240390123DEBEC6546E5F23CCDB1795D42E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,26 +522,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200766   (795019) от 22.01.2018
+###  Публикация: 1508644   (796855) от 09.11.2021
 
-IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Dark Ambient>
+Полоскать горло сладким саке / Amai osake de ugai / My Sweet Grappa Remedies (2019) WEB-DL [H.264/1080p-LQ] [DVO]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Random Walker (10:50)
- 02. Pulses (09:22)Тип издания: WEBЖанр: Techno/MinimalПродолжительность: 00:20:12
+История Кавасима Ёсико (Мацуюки Ясуко), 40-летней одинокой женщины. Она счастливо проводит время со своей коллегой Вакабаяси-тян (Куроки Хару). Но однажды в жизни Ёсико происходят неожиданные изменения - она влюбляется в Окамото-куна (Симидзу Хироя) - парня, который в два раза младше нее.Производство: Япония, TV Asahi, Yoshimoto Kogyo Co. Ltd.Жанр: Драма, мелодрамаРежиссер: Акико ОкуАктеры: Ясуко Мацуюки, Кандзи Фурутати, Макото Идзубути, Кацуя Коисо, Хару Куроки, Томоя Маэно, Кадзухиро Накахара, Кодзо Сато, Хироя Симидзу, Даити ВатанабэПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайскиеПродолжительность: 01:47:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1595A8CA37D9E28916613C880AED9B8389D5E92E
+magnet:?xt=urn:btih:3466F7EC38741585FC5EE899F64B8C8D4EA3AD77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,28 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200997   (795018) от 22.01.2018
+###  Публикация: 1011272   (796854) от 27.04.2016
 
-Brien Hindman - Cognitive Buffer Hypothesis (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+Cyberfox 46.0 for Intel + Portable [Ru/En]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Holocene (07:51)
- 02. Trophic Cascade (04:28)
- 03. Shinrin Yoku (04:07)
- 04. The Veil (07:58)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:56:12
+Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры Intel. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA8D0CD87B5D3BCD6A0122F73EB35590C7969AB3
+magnet:?xt=urn:btih:9BC4B3187F220A52FBD77FA7B4828DEEDB107593
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,28 +574,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509512   (795017) от 12.11.2021
+###  Публикация: 1011213   (796853) от 27.04.2016
 
-Sandstone - Epsilon Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Проекты - VideoHive - Catch your network [AEP]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. I Know Why (03:59)
-02. Cuts to You (04:23)
-03. Worn Soul (05:52)
-04. Fractured Time (05:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:41
+Проект для создания презентации различного рода, будь-то бизнес или веб, компании или продукта и т.д. Шаблон проекта доступен в двух цветах: чёрный и белый.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34F65AE6C2D24A5C4AF6575DE94375ABFAEDFE62
+magnet:?xt=urn:btih:25729CEE069F9DAD540ACE2DBA9F55FB458590AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +600,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509309   (795016) от 12.11.2021
+###  Публикация: 1011180   (796852) от 27.04.2016
 
-VA - Deep House Relief, Vol. 2: Best of Chill & Deep Atmospheric House Music (2019) [AAC|~296 Kbps] <Chill House, Deep House>
+Михаил Барятинский | Т-34 в 3D – во всех проекциях и деталях (2013) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Gary B - Afterglow (Original Mix) (4:30)
-02. Zinner & Orffee - Passengers (Abendrot Remix) (5:14)
-03. Gary B - No Secrets (Original Mix) (5:36)
-04. Marga Sol - Crystal Light (Original Mix) (5:48)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:25:59
+От издателя: Принципиально новая книга ведущего историка бронетехники! Свежий взгляд на главный танк XX века, ставший символом Великой Победы! Мы помним легендарный Т-34 в основном по черно-белой хронике и выцветшим фотографиям. В этой книге прославленная "тридцатьчетверка" впервые предстает не только в цвете, но и в 3D!  Эксклюзивные архивные материалы (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56F5E3F4E74F9466A93A4595774242F4195F2A79
+magnet:?xt=urn:btih:E4A8EADC56E95768BA816F778484350D555208DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,28 +626,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509310   (795015) от 12.11.2021
+###  Публикация: 1011227   (796851) от 27.04.2016
 
-VA - Deep House Relief, Vol. 3: Best of Chill & Deep Atmospheric House Music (2020) [AAC|~327 Kbps] <Chill House, Deep House>
+Mozilla Firefox ESR 45.1.0 Portable by Sitego [Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Christoph Kardek, Iris Onica - Terra (Alveol Dub Remix) (7:40)
-02. Magmatunes - Sunset Lovers (Original MIx) (5:22)
-03. Nova Casa - Ocean Drive (Original Mix) (6:24)
-04. Moe Turk - Dreamer (Original Mix) (5:54)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:42:46
+Mozilla Firefox - очень быстро работающий браузер, причём быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном окне с большим количеством вкладок, а также обладает множеством других полезных опций, включая способность значительного (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0455BCD93A79C2D97812E4306CB96F548DB30B78
+magnet:?xt=urn:btih:A2BF4332716D3169EB335654403D7A5267F39E8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,28 +652,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509333   (795014) от 12.11.2021
+###  Публикация: 1011042   (796850) от 27.04.2016
 
-VA - Quiet Day: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+Format Factory 3.9.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Martin Hiska, Michael Moses - Sandy (4:48)
-02. Michael e - Wanderlust (Original Mix) (5:28)
-03. Patiotic - Timeless (Original Mix) (4:06)
-04. Lemongrass - Sur La Mer (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:28
+Format Factory - многофункциональный конвертер различных файлов мультимедиа. Имеет ряд дополнительных функций, превращающих FormatFactory в универсальный инструмент для работы с мультимедийными файлами разных форматов. Поддерживается конвертация популярных видеоформатов в MP4, 3GP, MPG, AVI, WMV, FLV, SWF, а также конвертация аудиоформатов в MP3, WMA, MMF, AMR, OGG, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBA0A2580F867C50B0E93DCE4FABCC81489F818B
+magnet:?xt=urn:btih:2916EF7A8C067DE239E8C39134103C30B2CAAB58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,57 +678,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509416   (795013) от 12.11.2021
+###  Публикация: 1198909   (796849) от 19.01.2018
 
-Knights Of The Realm - Knights Of The Realm (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Гнездо шершней / Hornets’ Nest (1970) BDRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. An August Play
-02. Into The Void
-03. Heavy Metal
-04. Fields Of Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:16
+Диверсионная группа высажена за линией фронта, её задача взорвать стратегическую дамбу. Однако, группа попадает в засаду, и только её лидер выживает. Его подбирает группа молодых людей, которые заключают с ним сделку — что они помогут ему снести дамбу, если он поможет им отомстить немцам, захватившим их деревню и убившим их родителей.Производство: Италия, США / Produzioni Associate Delphos, Triangle ProductionsЖанр: Боевик, Драма, ВоенныйРежиссер: Фил Карлсон, Франко КириноАктеры: Рок Хадсон, Сильва Кошина, Серджо Фантони, Джакомо Росси Стюарт, Жак Серна, Марк Коллеано, Мауро Гравина, Джон Фордайс, Джузеппе Кассуто, Амедео Кастракане, Джанкарло КоломбайониПеревод: Двухголосый закадровый (НТВ+)Субтитры: АнглийскиеПродолжительность: 01:49:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3A49C8D45DB788F8A28956A188923ECE8F37E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509523   (795012) от 12.11.2021
-
-Insania - V (Praeparatus Supervivet) (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeparatus Supervivet
-02. Solur
-03. Prometheus Rise
-04. Moonlight Shadows(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61770ECC1DDCB371ED8BAC24200913E746740F32
+magnet:?xt=urn:btih:A52261F32448C9C2E99C851969621949271FF57C
 ```
 
 https://mybot314.ru/tekegram_catalog/

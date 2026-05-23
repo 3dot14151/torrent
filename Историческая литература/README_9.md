@@ -1,3 +1,82 @@
+###  Публикация: 609786   (991142) от 28.01.2013
+
+Анатолий Терещенко | Наследники СМЕРШа. Охота на американских "кротов" в ГРУ [2010] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+История легендарного СМЕРШа, по праву считающегося лучшей военной контрразведкой в мире, не закончилась в 1946 году, когда ГУКР "Смерть шпионам!" было официально расформировано, - ветераны этого грозного ведомства и их молодые коллеги, сотрудники Третьего управления и Особых отделов КГБ, продолжили тайную войну против нового противника - спецслужб США. В последующие годы нашим военным чекистам удалось нейтрализовать и обезвредить фактически всех американских "кротов" в ГРУ.
+Автор этой книги, ветеран военной контрразведки, лично участвовал в операциях по разоблачению кадровых сотрудников ГРУ, вставших на путь предательства, и в своем уникальном исследовании подробно и точно, в мельчайших деталях, рассказал об этой сложнейшей работе, многие нюансы которой рассекречены лишь теперь. Здесь впервые раскрыты подробности охоты на главного американского "крота" - агента "Бурбона", генерал-майора ГРУ Д.М.Полякова, который сотрудничал с ЦРУ более четверти века, но в конце концов был (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA87275ACD858F35385436AF6E7013DAF2698B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609833   (991113) от 28.01.2013
+
+Николай Андреев | Священные войны или Крестовые походы (1937) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Крестовые походы – один из самых интересных периодов истории Средневековья. Священные войны, санкционированные, как считалось, самим Богом, оказали заметное влияние на характер политических процессов в Европе. В этой книге отображён взгляд российских историков на события той эпохи.Жанр: Раритеты, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C643E153E9E20CC75E2D6C8F7020BE74BAE12332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593962   (990885) от 28.01.2013
+
+Книжная серия "Тайны истории в романах, повестях и документах" (49 томов) [1994 – 2011] [FB2, PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вам представлена интересная книжная серия исторической литературы "Тайны истории в романах, повестях и документах". В этой серии присутствует часть исторических романов, часть - мемуаров, записок свидетелей исторических событий. Попадаются также и комбинированные книги, в которых художественная часть дополняется документальной.Формат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF31E9E1C5B66E0801BC6267A5D539051E209A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354253   (988932) от 21.01.2020
 
 Джулия Бойд | Записки из Третьего рейха. Жизнь накануне войны глазами обычных туристов (2020) [FB2]
@@ -6,7 +85,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,89 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A24023588EEC54F04E5C216B94C1E386EC559D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972025   (983499) от 05.01.2016
-
-К. Валишевский | Смутное время (1989) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Репринтное воспроизведение издания 1911 года.
-По данным Всесоюзного социологического исследования ’’Книга в современном обществе”, проведенного Институтом книги в 1988 году, большой интерес у читателей вызывает историческая литература, особенно по истории Отечества, как русских, советских, так и зарубежных авторов.
-В этом плане для массового читателя представляют (   Читать дальше...   )Жанр: ИсторияПеревод: Е. Н. ЩепкинаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231C8635875D7C690AD5AD15412809FC4524FEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972046   (983433) от 05.01.2016
-
-Руслан Скрынников | Три Лжедмитрия (2003) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983433.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале XVII века Россия переживала трагедию Смутного времени. Это была первая в истории нашей страны гражданская война.
-Три самозванца в течение одного десятилетия принимали имя царевича Дмитрия и пытались сесть на царский трон.
-Кем были эти исторические персонажи, которые принесли государству неисчислимые бедствия?
-Какие условия придали «самозванщине» такую страшную (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101D26A91634748B3413EF2A9D156FCB04F56596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972176   (983427) от 05.01.2016
-
-М. Ю. Павлов | Анастас Микоян. Политический портрет на фоне советской эпохи (2010) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателя книга молодого историка из Краснодарского края, безусловно, заинтересует тех, кому небезразличны недавняя история и нынешняя судьба нашей страны. Анастас Иванович Микоян, главный персонаж книги, - одна из знаковых фигур советской истории. Яркая и самобытная личность, он на протяжении полувека был неразрывно связан со всеми ее важнейшими (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CCC8929CE2CC7C432B146392FA66996EC7D93F
 ```
 
 https://mybot314.ru/tekegram_catalog/

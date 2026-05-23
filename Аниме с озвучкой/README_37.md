@@ -1,3 +1,109 @@
+###  Публикация: 1335412   (286904) от 02.11.2019
+
+Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в далекой-далекой галактике... человечество вышло за пределы галактики и расселилось по другим планетам. Организация, называющая себя "Крушители", согласна взяться за любую работу. Нет-нет, не подумайте, это не пираты или какие другие плохие ребята, они хорошие, это просто те, кто возьмется за такие задания, от которых уже отказались другие. (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастикаРежиссер: Ясухико ЁсикадзуПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 132 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41CB545F9DB06511F2178B43A1A9C18B7141227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335410   (286903) от 02.11.2019
+
+Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая лисичка Сэнко-сан! [2019, TV, 12] HDTV 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каждый день славного парня Накано проходит по одному сценарию. У него практически никогда нет свободного времени. Вся его жизнь — это сплошная работа. Герой работает в огромной корпорации обычным клерком. Такая жизнь кажется ему скучной и однообразной. По возвращению домой на его плечи падают домашние заботы. Но молодой человек не перестает верить в настоящую любовь. (   Читать дальше...   )Производство: Япония, Dogakobo / 動画工房Жанр: комедия, романтика, повседневностьРежиссер: Косида ТомоакиПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A4FA2AAC91DC850CECF5158910323E5E95AF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335621   (285226) от 03.11.2019
+
+Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в далекой-далекой галактике... человечество вышло за пределы галактики и расселилось по другим планетам. Организация, называющая себя "Крушители", согласна взяться за любую работу. Нет-нет, не подумайте, это не пираты или какие другие плохие ребята, они хорошие, это просто те, кто возьмется за такие задания, от которых уже отказались другие. (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастикаРежиссер: Ясухико ЁсикадзуПеревод: русские субтитрыЯзык озвучки: Японский, английский и русский
+Многоголосая, студияПродолжительность: 132 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D2C9DD07935F5BB89345C01B17642ACFFF2A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263758   (283844) от 21.11.2018
+
+Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Учёные обнаружили субстанцию, которая способна напрямую взаимодействовать с человеческим мозгом. Оказалось, что эта субстанция, названная «экзотическая материя» с древних времён оказывала влияние на прогресс человечества. Вскоре после открытия началась борьба среди могущественных наций и гигантских корпораций. Организации по всему миру стали тайно пытаться использовать (   Читать дальше...   )Производство: Япония / CraftarЖанр: Детектив, фантастикаРежиссер: Сакураги Юхэй (Yūhei Sakuragi)Язык озвучки: Русский (Xelenum, одноголосный)Субтитры: ОтсутствуютПродолжительность: 11 эпизодов, 25 мин./серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E396EABDB35870299C85178723C510EF8B03751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963894   (281511) от 11.12.2015
 
 Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в повседневности [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x3(ext)
@@ -6,7 +112,7 @@ Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в по�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ Bounen no Xamdou | Xam'd: Lost Memories | КсамД: Позабывший не�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +167,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou / Волейбол!! С
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +193,7 @@ Jack to Mame no Ki / Jack and the Beanstalk / Джек в Стране Чуде�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +220,7 @@ Steins;Gate 0 | Врата Штейна 0 [TV, 2018, 23] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +246,7 @@ Gyakusatsu Kikan | Орган геноцида | Genocidal Organ [2017, Movie + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -166,7 +272,7 @@ Gyakusatsu Kikan / Genocidal Organ / Орган Геноцида [2017, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -192,7 +298,7 @@ Gekijouban Sword Art Online: Ordinal Scale / Мастера Меча Онлай�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Robomasters / Робомастера [2017, TV, 6 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -270,7 +376,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [TV-1] [2017, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +403,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken / My Girlfriend is Shobitch / М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +429,7 @@ Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito / Sailor Moon S Movie: Hea
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -349,7 +455,7 @@ Enmusubi no Youko-chan / Сводники Духов: Лисьи Свахи [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -375,7 +481,7 @@ Ballroom e Youkoso / Welcome to the Ballroom / Добро пожаловать �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -401,7 +507,7 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +533,7 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -510,7 +616,7 @@ Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -536,7 +642,7 @@ Shinseiki Evangelion Gekijouban: The End of Evangelion | Neon Genesis Evangelion
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -562,7 +668,7 @@ Memories / Воспоминания о будущем [1995] BDRip 720 raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -573,113 +679,6 @@ Memories / Воспоминания о будущем [1995] BDRip 720 raw + rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD965C8A971B0350CE7EBE67F78584D2032C3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536853   (250244) от 13.03.2022
-
-Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8] WEBRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонусы к эксклюзивным ограниченным изданиям 12, 13, 14, 15, 16, 24, 25, и 26 томов манги.
-
-1 серия «Дневник Ильзе: Воспоминания члена разведотряда».
-Ханджи во время очередной операции за стенами находит странный дневник, озаглавленный как «Дневник Ильзе». В книге подробно описан последний поход Ильзе за стены от её же имени. Найденные записи ставят ещё больше вопросов (   Читать дальше...   )Производство: Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Тэцуро АракиЯзык озвучки: Японский и русскийСубтитры: Русские, АнглийскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B698085E43381FD3EEB053AB5D9A3A8A9A8EB2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537132   (250129) от 15.03.2022
-
-Что вы здесь делаете, сэнсэй? | Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? [2019, TV, 13 из 13] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ичиро Сато самый обычный старшеклассник, однако его повседневную жизнь разбавляют неловкие и даже непристойные ситуации, которые происходят с ним и самой строгой учительницей школы Каной Коджимой. Именно за этими нелепыми взаимоотношениями ученика и учителя нам предстоит наблюдать. На протяжении всего сезона герои будут попадать в курьёзные ситуации и пытаться их (   Читать дальше...   )Жанр: Комедия, романтика, этти, сэйнэнРежиссер: Канэко ХиракуПеревод: Наталия ИшоваЯзык озвучки: ЯпонскийСубтитры: Русские (софтсаб полные), ASS | внешними файлами | с 1-13 сериюПродолжительность: 13 серий по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AA52F908836464682452C33C87703C19DA2E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494367   (249317) от 09.05.2012
-
-Kore ga Watashi no Goshujin-sama / He is my master / Он мой хозяин [2005, TV, 12] DVDrip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две сестрички Изуми (14) и Мицуки (13) Саватари удирают из родительского дома, прихватив с собой любимое домашнее животное по кличке Почи (яп. аналог "Шарика" и "Тузика"). Ну, достали их предки по самое "не могу"! Но первый же вечер им захотелось кушать, а еще надо где-то жить и как-то добывать средства на пропитание. Вот и постучались (   Читать дальше...   )Жанр: комедия, романтика, эротика, сёнэнРежиссер: Саэки СёдзиПродолжительность: ТВ (12 эп.), 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573680   (247535) от 17.06.2023
-
-Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастера Меча Онлайн: Прогрессив — Ария в беззвёздной ночи [2021, Movie] BDRip 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вспомним, как все начиналось... Полнометражный фильм рассказывает о событиях первых двух эпизодов самого первого сезона (вплоть до победы над босом первого уровня), при чем с точки зрения Асуны. Зрители узнают, как она попала в САО, каковы были её первые шаги, впечатления, разочарования. Наконец, мы узнаем, что с Кирито она повстречалась гораздо раньше, чем мы все (   Читать дальше...   )Производство: A-1 PicturesЖанр: приключения, фэнтези, экшнРежиссер: Коно АякоЯзык озвучки: Японский, русский (AniLibria)Субтитры: Японские, английские, русские (AniLibria)Продолжительность: 1 эп. по 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF5C18862A6954126BF51FE49902BD025077FF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

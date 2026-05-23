@@ -1,3 +1,55 @@
+###  Публикация: 1847152   (1051961) от 17.01.2026
+
+Jingai Kyoushitsu no Ningengirai Kyoushi / A Misanthrope Teaches a Class for Demi-Humans / Учитель-мизантроп в классе нелюдей [2026, TV, 1 из 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Я Рей Хитома, самопровозглашенный мизантроп из-за перенесенной в прошлом травмы. Как раз когда я подумал, что моя новая работа учителя в горах станет для меня спокойной и восстанавливающей силы средой, оказалось, что эта школа на самом деле предназначена для полулюдей, которые хотят стать полноценными людьми! Здесь есть русалка, оборотень, кролик и птица... и все (   Читать дальше...   )Жанр: приключения, повседневность.Режиссер: Иванага АкираЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 минут.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B307198E93E4D79B29363B01971A30E7E480BA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847168   (1051942) от 17.01.2026
+
+Yuusha no Kuzu / Scum of the Brave / Герой-мерзавец [2026, TV, 1 из 24] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+К середине XXI века преступный мир Токио находится под властью Демонов-Лордов — криминальных боссов, прошедших операцию по усилению эфира, которая наделила их ужасающими сверхспособностями. Единственные, кто может их победить, — это Герои, охотники за головами, которые усиливают свои эфирные способности с помощью препарата E3 (E-Three). Поскольку убийство в рамках (   Читать дальше...   )Жанр: экшн, фантастика.Режиссер: Усиро СиндзиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 24 серий по 25 минут.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D447009564ECCEF18DE5280AF6AB63460A1A6E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847175   (1051938) от 23.01.2026
 
 Kuro no Tsuki: Tsuki no Saidan | Dark Moon: The Blood Altar Animation | Тёмная луна [2026, TV, 1 из 12 эп.] WEBRip 720p raw
@@ -6,7 +58,7 @@ Kuro no Tsuki: Tsuki no Saidan | Dark Moon: The Blood Altar Animation | Тёмн
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Dead Account | Мёртвый аккаунт [2026, TV, 1 из 12 эп.] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кая не боится [2026,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Champignon no Majo | Champignon Witch | Шампиньонная ведьма [2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Enen no Shouboutai San no Shou (2026) | Fire Force (2026) | Пламенная �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Douse, Koishite Shimaunda. 2 | Anyway, I`m Falling in Love with You. (2026) | В
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +218,7 @@ Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen | Jujutsu Kaisen: The Culling Game Part
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +244,7 @@ Eris no Seihai / The Holy Grail of Eris / Святой Грааль Эрис [20
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +270,7 @@ Toumei Otoko to Ningen Onna: Sonouchi Fuufu ni Naru Futari / The Invisible Man a
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +296,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na to Yuusha Party o Tsuihou Sareta node, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +322,7 @@ Champignon no Majo / Champignon Witch / Грибная ведьма [2026, TV, 2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +349,7 @@ Shibou Yuugi de Meshi o Kuu. | Playing Death Games to Put Food on the Table | С
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +375,7 @@ Shibou Yuugi de Meshi o Kuu. / Playing Death Games to Put Food on the Table / И
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +401,7 @@ Arne no Jikenbo | The Case Book of Arne | Дело Арне [2026, TV, 1 из 12
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +427,7 @@ Okiraku Ryoushu no Tanoshii Ryouchi Bouei |  Весёлая защита вла�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +479,7 @@ Isekai no Sata wa Shachiku Shidai | Isekai Office Worker: The Other World's Book
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +505,7 @@ Maou no Musume wa Yasashi Sugiru!! / The Daughter of the Demon Lord is Too Kind!
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +532,7 @@ Mayonaka Heart Tune / Tune In to the Midnight Heart / Полуночный мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +558,7 @@ Yuusha Party ni Kawaii Ko ga Ita no de, Kokuhaku Shite Mita. / There Was a Cute 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +584,7 @@ Vigilante: Boku no Hero Academia Illegals 2 | Моя геройская акад
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +610,7 @@ Kirei ni Shite Moraemasu ka. / Wash It All Away / Можете постират�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -584,7 +636,7 @@ Osananajimi to wa Lovecome ni Naranai / You Can't Be In a Rom-Com with Your Chil
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -610,7 +662,7 @@ Golden Kamuy Saishuushou | Golden Kamuy Final Season | Золотое божес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -623,59 +675,6 @@ Golden Kamuy Saishuushou | Golden Kamuy Final Season | Золотое божес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2390A32E5B34E750B77B0BB307EA8942D6F15BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845976   (1051058) от 23.01.2026
-
-Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku / Sentenced to Be a Hero / Наказание для храброго героя: Тюремная запись корпуса девять тысяч четыре [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051058.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Герой» — это самое страшное наказание в мире. Лица, осужденные за тяжкие преступления, приговариваются к статусу «героя» и принудительно зачисляются на обязательную военную службу в войне против демонов. Этим осужденным даже не позволено умирать — если их убьют, они воскреснут, чтобы сражаться дальше.
-Герой Ксило Форбартц, бывший глава Ордена Святых Рыцарей, возглавляет (   Читать дальше...   )Жанр: фэнтези.Режиссер: Такасима ХироюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 1-ая серия по 58 минут, 11-ть серий по 25 минут.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FF6D2CB532AD1BD3F0A3621BFFA0FC92AE2606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846002   (1051045) от 18.01.2026
-
-Majutsushi Kunon wa Miete Iru | Kunon the Sorcerer Can See Through | Волшебник Кунон всё видит [2026, TV, 2 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кунон слеп от рождения, но у него есть цель: стать первым в мире, кто создаст себе новые глаза с помощью магии воды. Спустя пять месяцев обучения, он уже превосходит учителя и продолжает развивать свой талант. Его магия не только позволяет чувствовать цвета, но с помощью неё он также может изготавливать полезные предметы и даже наколдовать целого котёнка! Слава о (   Читать дальше...   )Производство: PlatinumvisionЖанр: фэнтезиРежиссер: Ooba HideakiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66165F39A36207C8999CCA30E8C2131254C2A4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

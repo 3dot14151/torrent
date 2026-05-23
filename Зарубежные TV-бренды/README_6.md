@@ -1,3 +1,57 @@
+###  Публикация: 1347319   (987707) от 22.01.2020
+
+Расшифрованные сокровища / Treasures Decoded (2018) IPTVRip [H.264] (сезон 5, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сокровища прошлого хранят секреты, написанные золотом, камнем и кровью. Мы можем их разгадать. Это секреты величайших сокровищниц истории.
+Научно-документальный проект начинает новый сезон своего любопытного повествования и расскажет нам еще больше о тех древних сокровищах, которые были не только открыты учеными и тщательно ими изучены, но и о таких, которые до сих (   Читать дальше...   )Производство: Канада / Blink FilmsЖанр: Документальный, ИсторияРежиссер: Christopher PuttockАктеры: Pedro Lloyd GardinerПеревод: Двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3052912BE57C014A9DC1648812B30BF86A767A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971073   (987402) от 02.01.2016
+
+NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Каждый день миллионы людей обращаются с молитвами к Богородице. Многие из них утверждают, что видели её собственными глазами. Среди них так называемые шесть провидцев из Меджугорья в Боснии и Герцеговине, где - как они утверждают, - с 1981 года регулярно появляется Богородица. Хотя откровения не были подтверждены, он привлекают толпы паломников в эти места. В этом (   Читать дальше...   )Телекомпания: National Geographic StudiosЖанр: Документальный, религияРежиссер: Brooke RunnetteПеревод: Одноголосый закадровый, профессиональный
+Озвучено на студии Велес, текст читал Борис ХасановПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C471AC64A885D95CF912153AFDD3DFB83A51568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971125   (987160) от 02.01.2016
 
 BBC: Сокровища Древней Греции / Treasures of Ancient Greece (2015) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
@@ -6,7 +60,7 @@ BBC: Сокровища Древней Греции / Treasures of Ancient Greec
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +87,7 @@ Viasat History: Как климат изменил ход истории / How C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +114,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +140,7 @@ Discovery: Выживание в засуху / Surviving The Drought (2008) Blu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +192,7 @@ Discovery: Смертельный улов / Deadliest Catch (2011) SATRip (Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +218,7 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +297,7 @@ NG: Снежный барс Афганистана / NG: Snow Leopard of Afghani
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +323,7 @@ NG. Мухи и пиявки (мерзкие существа) / Flies and leech
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +377,7 @@ Discovery: Дикая кухня / Kings of the Wild (2015) HDTVRip (сезон 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +403,7 @@ National Geographic: Сканеры древнего мира. Египетск�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +431,7 @@ NG. Семейное оружие: Ковбойская перестрелка /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +457,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +509,7 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +535,7 @@ PBS: Сканеры древнего мира / Time scanners (2013) HDTVRip [H.
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +561,7 @@ History Channel: Вселенная. Звуки из космоса / The Univer
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +587,7 @@ History Channel: Вселенная. Микровселенна / The Universe. 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +639,7 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +665,7 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -622,58 +676,6 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1733026EE283C0324613ABC23DAC5E581A0592D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 353379   (974283) от 13.01.2016
-
-NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974283.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Исландии употребляется в пищу тухлое акулье мясо как дань наследию викингов.В Индии считается деликатесом козий зародыш, а в Того очень любят есть крыс.Узнайте о разных вкусах, существующих в мире.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE87598BC452B4C87F9C68AE735103AE0F0BD74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270127   (974271) от 13.01.2016
-
-NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откровенный документальный фильм об обрядах и обычаях, которые одни народы считают приемлемыми, а другие – нелегальными и запретными. Мужчины Папуа Новой Гвинеи заглатывают острые тростники и окровавливают языки в удостоверение своей мужественности. Мусульмане-шииты кроят свою плоть ножами, мачете и бритвами. В США живые кровопьющие вампиры собираются на конвенцию (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85AC908930A3A1AB6FBB769F1FDD37EE6CFAEFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

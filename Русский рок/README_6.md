@@ -1,3 +1,516 @@
+###  Публикация: 1444667   (1034427) от 02.02.2021
+
+Николай Гринько и группа Green - Стивен Хокинг (2019) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Спецэффекты
+02. Выше
+03. Бетонное небо
+04. Допустим(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E103444AECC8CE1DF244D41FC7F15F4F81DE246C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617911   (1034400) от 10.03.2023
+
+Ничего Хорошего - 2 Albums (2008-2022) [MP3|320 Kbps] <Alternative, RAC>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Уличная Драка [00:02:22]
+02. Вставай, Гетто! [00:02:44]
+03. В Моей Стране [00:02:02]
+04. Завод [00:02:34](   Читать дальше...   )Жанр: Alternative, RACПродолжительность: 2 CD, 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F70B9CC50EADAF354D1B60553232D51AE29F424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251576   (1034320) от 02.02.2021
+
+Суп Харчо - 4 альбома (2013 - 2020) [MP3|320 Kbps] <Alternative Rock, Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+CD1. 2013 - Эта штука:
+01. Эта штука
+02. Куба
+03. Румба(   Читать дальше...   )Жанр: Alternative Rock, Rock, Blues RockПродолжительность: 02:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B50B994AE2D3F424417533CF4146ECB36E0BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445285   (1033762) от 05.02.2021
+
+Ploho - Фантомные чувства (2021) [MP3|320 Kbps] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Между нами
+2. Прости
+3. Добрые люди
+4. Камни(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FD652F3F513D68F254ACD63E7FA5FE413CE423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445286   (1033735) от 05.02.2021
+
+Виталий Дубинин, Сергей Маврин - Герой асфальта 2021 (2021) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Герой асфальта 2021Жанр: RockПродолжительность: 00:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6D139C6364BEC077EEA2CE04E467B75AC2C957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445229   (1033719) от 05.02.2021
+
+ЧайФ - Оранжевое настроение-III (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Чудесные тихие песни
+2. Слишком много джаза, мама
+3. Планета секонд-хенд
+4. Нарисуй(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425DB66064D170329E6CDF12807EB211EF3A9014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445688   (1033466) от 06.02.2021
+
+VA - Трибьют Сергей "Чиж" Чиграков (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Василий Уриевский - День рождения
+2. Мураками - О.К.
+3. РокфоР - Скучная история (Крокодил)
+4. Дядя Ваня - Я подобно собаке(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A129A44F67E02FEE578BF26D2D643A5FF44FAA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619574   (1032968) от 16.03.2023
+
+Константин Арбенин и Вадим Курылёв - Двое в городе (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Город-стол [00:05:21]
+02. Малиновка летит на север [00:04:20]
+03. Джин и Тоник [00:04:44]
+04. Колесо Сансары [00:04:25](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B6A9BCA1F017C78C23B98F3B3E1029A7D038E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619641   (1032773) от 17.03.2023
+
+Константин Ступин и Алексей Ракитин - Когда я умер (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Когда я умер
+2. Ночная трость
+3. Гром
+4. Пушистый хвост лисицы(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0FB44542F186F2958E9FE28FB9BF7CA3164897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619820   (1032529) от 18.03.2023
+
+Молот Родины - Ретроспекция, том 1-2 (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Как Революция [00:06:07]
+02. С Нами Бог [00:03:38]
+03. Нация,Кровь и Раса [00:03:12]
+04. На Войну [00:02:43](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 02:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4901B5DEACD2E609D14CF6AFA4EA8A4053267193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446980   (1032277) от 11.02.2021
+
+Гран-Куражъ - Эпохи, Герои И Судьбы (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Царство диких людей (05:01)
+ 02. Эра пустоты (05:43)
+ 03. Без потерь (04:46)
+ 04. Город-призрак (04:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFA9ED10D22504BEB440C74BC6ED0AB165399AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447026   (1032274) от 11.02.2021
+
+МАЧЕТЕ - News Time (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Мистика
+2. Взрослые и дети
+3. Ангелы
+4. Рассвет(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50D0D114E66042D89DA07E00596992E252A5739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447201   (1032125) от 12.02.2021
+
+Теуникова и КоМПОзит - Один страшный день (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Катится
+2. Wi-Fi
+3. Введи войска
+4. Сверхъестественный отбор(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1A003DBB162C37B9F1FC091A3E86F172E3B985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447194   (1032079) от 12.02.2021
+
+Операция Пластилин - Грустные песни для уставших людей (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Чёрный факел
+2. Ашан (письмо Саше Г.)
+3. Моя провинция
+4. Все взрослые(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CDD1975B351B7BAC470E534F06B359D36A2208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447198   (1032042) от 12.02.2021
+
+Сплин - Вирус (2021) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. ВирусЖанр: RockПродолжительность: 00:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1071F6A582238394862804B9A3C435FD0A5BEC2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447384   (1031845) от 13.02.2021
+
+Ёк-Макарёк - Домашний лад (2020) [MP3|320 Kbps] <Ethno Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Тихий Островок
+2. Вечерняя Тишь
+3. Ладога
+4. Мир в Дому(   Читать дальше...   )Жанр: Ethno PunkПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81682A3397980E46A4A1D177DE4824E2B4A5AE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448848   (1030478) от 19.02.2021
+
+Земфира - остин (2021) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. остинЖанр: RockПродолжительность: 00:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701BEEF82881F3B06F2C95FBDD276257D6BC168C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448784   (1030449) от 19.02.2021
+
+Вася Обломов - The Best (2021) [MP3|320 Kbps] <Rock, Rap, Alternative Сhanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Магадан (TV Version)
+2. Начальник
+3. С чего начинается Родина
+4. Кто хочет стать милиционером?(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 02:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E698F63DC63B848445E4BF499EAFC51E1E3654C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449203   (1030239) от 20.02.2021
 
 Кровавый Риф - Африказия (2021) EP [MP3|320 Kbps] <Folk Punk, Art Punk>
@@ -6,7 +519,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +664,7 @@ Alan Waters - Пластилин: первый набор цветов (2021) [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,528 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:284856F5B0B8726B6930FD325D46D69070A5D994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450124   (1029224) от 25.02.2021
-
-Кайтэн - Рейс №8 (2021) EP [MP3|320 Kbps] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Рейс №8 [00:02:42]
-02 - Искать [00:04:47]
-03 - Цветы [00:03:36]
-04 - Город спит [00:03:12](   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B882844D0408169ED25946D87F7B5CEF61C5C775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450287   (1029202) от 25.02.2021
-
-Mr. Hide - Правда жизни (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Punk Rock [00:02:48]
-02 - Твои друзья [00:02:43]
-03 - Лошадиное лицо [00:02:27]
-04 - Covid [00:02:22](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8A32A946538BBA910293816CBD62B0AAE5EF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450123   (1029199) от 25.02.2021
-
-Адаптация Пчёл - Горький драйв (2021) [MP3|320 Kbps] <Alternative, Cyber-Grunge, Electro Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мир товаров и услуг [00:03:56]
-02 - Не сомневайся [00:03:34]
-03 - Гады [00:03:40]
-04 - Круговорот [00:03:42](   Читать дальше...   )Жанр: Alternative, Cyber-Grunge, Electro RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B509249DE96EF835BF9CFC4FC910880B38037F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450261   (1029180) от 25.02.2021
-
-Слот - Инстинкт выживания (2021) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. Инстинкт выживания
-03. Норма
-04. 17 лет(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0333FC2F807B5105D0A06AF1142F3E4151D884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451295   (1028528) от 01.03.2021
-
-Ангел НеБес - Невидимый Фронт (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028528.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Птица
-2. Перезвон
-3. Белым Светом
-4. Делай Шаг(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE710DB4E136787D022E653D06379F6A9E017DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450213   (1028499) от 01.03.2021
-
-TattooIN (Татуин) - Татуин-21 (2021) [MP3|320 Kbps] <Alternative Rock, Space Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Особое мнение
-02. Движение частиц
-03. Волки
-04. Суперплащ(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Pop RockПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872B8D520EC5BAFEB33D996DA0F5ADF194FBD5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451141   (1028377) от 02.03.2021
-
-SmartFartBand - Речь не о том (2021) [MP3|320 Kbps] <rap thrash core>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:00:41]
-02 - Добро Пожаловать [00:02:30]
-03 - Алово [00:03:40]
-04 - Ёжик [00:03:48](   Читать дальше...   )Жанр: rap thrash coreПродолжительность: 00:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8233C5CF269310FAEAFDD2D89719D2EE034358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451538   (1028229) от 03.03.2021
-
-Ртуть79 - 2 Albums (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мотыльки [00:02:54]
-02. Пассажир [00:03:36]
-03. Последний герой [00:04:00]
-04. Ртуть [00:03:45](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455B6D2D8CC66E0869F13D3DCC8E3DA238674BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451744   (1028226) от 03.03.2021
-
-Tabasco Band - Песни свободного племени (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028226.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Актриса
-2. Ничего не бойся
-3. До потери сознания
-4. Мама(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580E9B0378787B56500458B59DFE10FB615193A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451553   (1028153) от 03.03.2021
-
-Кино - Кино В Севкабеле (2021) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Песня без слов [00:04:48]
-02 - Мама мы все тяжело больны [00:04:07]
-03 - В наших глазах [00:03:45]
-04 - Электричка [00:04:55](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C25A27C97EDD81FCC2590754EC7A3492DE3576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451897   (1028074) от 04.03.2021
-
-Zero People - The Best: Очевидное (2021) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028074.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Маятник
-2. Джедай
-3. Стена
-4. Ремесло(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076F756326C52A2028E951F00585902D76A71B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452982   (1027412) от 08.03.2021
-
-Днепровский Берег - Случай (2021) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Случай [00:03:32]
-02 - На работу [00:03:06]
-03 - Будем умирать [00:04:14]
-04 - Синдром счастья [00:03:22](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2319D51F0E953AC269E30DC6D9B978D5B62C5C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452970   (1027381) от 08.03.2021
-
-Fun Mode - Я Буду Здесь (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027381.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вор И Принцесса
-2. Змеи
-3. Дворфы
-4. Стены Цитадели (Акустическая Версия)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276EED99C1341D19CFAFB79873AA617CF05FD0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453348   (1027100) от 10.03.2021
-
-Рок-орден "Тампль" - Финрод-Зонг (2002) [MP3|192 Kbps] <рок-опера>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Амариэ [1:35]
-02. Баллада Галадриэли [3:26]
-03. Первый дуэт Феанорингов [2:51]
-04. Первый дуэт Тингола и Мелиан [2:17](   Читать дальше...   )Жанр: рок-операПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C860E5AB50974DFAF5A963A9BCD233C3B8E14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453372   (1027078) от 10.03.2021
-
-Год Змеи - Перегруз (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027078.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выбираю
-2. Паучок
-3. Капли
-4. Против или за(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3701E67AFBF865C5F83E2EB912C65016223D3D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453373   (1027075) от 10.03.2021
-
-Андрей Лефлер - Свобода (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Двоичный код [00:03:44]
-02 - Правда, Надежда и Ложь [00:05:22]
-03 - Не медлить и не ждать [00:05:26]
-04 - Четыре зверя [00:04:35](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E6060BBF2EB66B4968C62E79A041532E81CB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453370   (1027051) от 10.03.2021
-
-Прологъ - Так пусть будет (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Кёрлинг [00:02:33]
-02 - Дождь [00:03:59]
-03 - Ночь в Парадайз [00:04:18]
-04 - МКК [00:03:45](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAEE4DA300BB3C1B6AF4197A4BF030BD6A4FB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453594   (1026948) от 11.03.2021
-
-Смех - Аминь (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026948.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Когда тебе за сорокет
-2. Дошик или сено
-3. Ничто не забыто
-4. Твою мать(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8952E8B351C6F34431BC09F8115B68442B95E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

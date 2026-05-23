@@ -1,3 +1,55 @@
+###  Публикация: 443136   (72735) от 28.01.2012
+
+Как приручить дракона [3в1] / How to Train Your Dragon [3in1] (2010) [1080p] Blu-ray 3D  [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете историю подростка Иккинга, которому не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Мир Иккинга переворачивается с ног на голову, когда он неожиданно встречает дракона Беззубика ("ночная фурия"), который поможет ему и другим викингам увидеть привычный мир с совершенно другой стороны...Жанр: Мультфильм, Фэнтези, ПриключенияПерсонажи: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг Робин Аткин Даунс, Филип МакГрэйдПеревод: ДублированныйЯзык субтитров: (PGS): Английский, Русский (Full-length), Русский (PiP / Commentary), Украинский (Full-length)Продолжительность: 01:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF9B71865E8860F71A33B8268A67A8DF94A16A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782017   (70137) от 26.02.2025
+
+Холодное сердце 2 / Frozen II (2019) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Анна, Эльза, Кристоф, его верный олень Свен и никогда не унывающий снеговик Олаф должны будут покинуть уютное королевство Эренделл и отправиться ещё дальше на север, в путешествие, которое приведет их к истокам древних легенд и поможет раскрыть тайны, касающиеся прошлого их родной страны.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, драма, комедия, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиАктеры: Идина Мензел, Кристен Белл, Джонатан Грофф, Джош Гэд, Стерлинг К. Браун, Эван Рэйчел Вуд, Альфред Молина, Марта Плимптон, Джейсон Риттер, Рэйчел МэттьюзПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (forced, full, SDH), украинские (forced), английские (full, SDH)Продолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1F1BFB88A7511C8C683CC22A7F1EE98AC2F326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782016   (70119) от 26.02.2025
 
 Холодное сердце / Frozen (2013) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -6,7 +58,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22E4F9D35187C15D381BFEE0C7329A050E74C24D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813649   (6762) от 20.08.2025
-
-Тролли 3 / Trolls Band Together (2023) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Розочка узнает, что её возлюбленный Цветан когда-то был частью её любимого бойз-бэнда «Братаны» вместе со своими четырьмя братьями. Группа распалась, когда Цветан был ещё младенцем, и с тех пор он не видел своих братьев, но когда одного из них похищают неизвестные злодеи, Цветан и Розочка отправляются в путешествие, чтобы наконец-то воссоединить семью с помощью волшебной (   Читать дальше...   )Производство: США / DreamWorks Animation, Universal PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Уолт Дорн, Тим ХейцВ ролях: Анна Кендрик, Джастин Тимберлейк, Камила Кабейо, Эрик Андре, Кид Кади, Кенан Томпсон, Уолт Дорн, Андерсон Паак, Рон Фанчес, Кунал НайярПеревод: дублированный (Bravo Records Georgia / Movie Dubbing)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D847B96F4247F24B4DEA754971058DC3CC0BA73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814410   (6097) от 24.08.2025
-
-Смурфики / The Smurfs (2011 - 2017) BDRip 3D [H.264/1080p] [Коллекция] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6097.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету, спасаясь от злого волшебника Гаргамеля, крошечные смурфики оказываются за пределами родной деревни. Из своего волшебного мира они попадают прямиком в наш мир, а именно в Центральный парк города Нью-Йорк. Теперь маленьким отважным смурфикам предстоит отыскать дорогу домой и не попасть в лапы Гаргамеля.Производство: США, Бельгия, Канада, Гонконг, Китай, Чехия, Великобритания / Columbia Pictures, Sony Pictures AnimationЖанр: мультфильм, фэнтези, комедия,приключения, семейныйРежиссер: Раджа Госнелл, Келли ЭсбёриАктеры: Хэнк Азария, Нил Патрик Харрис, Джейма Мейс, София Вергара, Джонатан Уинтерс, Алан Камминг, Кэти Перри, Фред Армисен, Джордж Лопес, Антон Ельчин, Брендан Глисон, Джейма Мейс, Кристина РиччиПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:42:43 / 01:44:54 / 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FF368A5B8BDEB346D52008AB4AC75E41A9E06A
 ```
 
 https://mybot314.ru/tekegram_catalog/

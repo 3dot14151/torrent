@@ -1,3 +1,86 @@
+###  Публикация: 1543977   (216201) от 26.10.2022
+
+Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (2022) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Вас, наверное, учили, что лепка головы начинается со сферы и заканчивается головой. Это все равно что читать книгу без глав! Такой неорганизованный подход затрудняет понимание и запоминание информации.
+Этот курс использует другой подход, разбивая процесс на 8 управляемых уровней. Вы можете думать об этих уровнях как о контрольных точках, и каждый из них основывается (   Читать дальше...   )Производство: GumroadЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 04:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DD871EB947983E3CF81F70A0BE0FDB071B7896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586287   (216129) от 26.10.2022
+
+Bestblendercourse, Mad Rabbit | Самый лучший курс по Blender (2022) WEB-DL [AD] [RU]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Самый лучший курс по Блендеру — это продукт, название которого говорит само за себя. Задача курса сделать обучения 3д иллюстрации и графике настолько простым, веселым и доступным насколько это возможно.
+
+Цель курса: научить студента создавать 3D графику для иллюстрации, анимации и игр
+(   Читать дальше...   )Производство: BestblendercourseЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 31:46:13Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E435FD10D8EF6F21D16E2B7BB5D52124E004E506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425592   (215444) от 23.11.2020
+
+The Gnomon Workshop, Madeleine Scott-Spencer | Введение в ZBrush 2020 / Introduction to Zbrush 2020  PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Обновленный курс по ZBrush 2020 от Мадлен Скотт-Спенсер. Курс предназначен в первую очередь для только начинающих свой путь 3D-артистов. В курсе вы познакомитесь со всеми базовыми и продвинутыми инструментами и функционалом ZBrush.
+Курс состоит из 54 глав и включает в себя 21 час и 30 минут лекций. Вы начнете изучение курса с руководства по быстрому старту для новичков, (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D-графикаЯзык озвучки: АнглийскийПродолжительность: 21:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DC046DEB14D88C31F49694B81D0ED1A071F15A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586443   (215053) от 27.10.2022
 
 The Gnomon Workshop, Kat Unsworth | Modeling a Stylized Character for Games (2022) PCRec [EN]
@@ -6,7 +89,7 @@ The Gnomon Workshop, Kat Unsworth | Modeling a Stylized Character for Games (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +142,7 @@ Yiihuu, Xara Mahmoudi | The Dwarf Warrior II: from rigging to animation and engi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +168,7 @@ designonline, Александр Шуняев | Постановка PRO осв�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +195,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -138,7 +221,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -164,7 +247,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +273,7 @@ Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +300,7 @@ Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +326,7 @@ Gumroad, Flycat | Blender 3.0 - JinX Modeling – Full process video and 3D mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +352,7 @@ Flycat | Blender 3.1 – Tracer Character Modeling – Full process videos and 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +378,7 @@ Amlab, Каюрова Наталия | Как рисовать в Photoshop (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +404,7 @@ Gumroad, Flycat | Create an MMORPG character style in Blender – Real-time proc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +430,7 @@ Gumroad, Flycat | Blender – Bunny Girl – Full process videos by Flycat (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +456,7 @@ Samouchka School, Алексей Меркулов, Максим Маркевич
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +511,7 @@ Rebelway, Saber Jlassi | Transferring High-Res Assets from Houdini to Unreal Eng
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -483,7 +566,7 @@ Rebelway, Urban Bradesko | CG Cinematography 101 (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -510,7 +593,7 @@ Rebelway, Saber Jlassi | Mastering Destruction And FX In Houdini (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -536,7 +619,7 @@ Rebelway, Jayden Paterson | Master The Art of Magical FX in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -565,7 +648,7 @@ Udemy, Victor Yamakado | Master Character Modeling with Victor Yamakado (2020) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -593,7 +676,7 @@ Rebelway, Corbin Mayne | Math for fx Artists (2020) PCRec [EN/ RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -604,87 +687,6 @@ Rebelway, Corbin Mayne | Math for fx Artists (2020) PCRec [EN/ RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7E1F3DFD23F521C5C164B39DB04B51DCD4CB948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563580   (212587) от 14.07.2022
-
-CGcircuit, VFX Magic | Houdini Crack Effect (2021) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212587.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уроке я объясняю, как создать эффект трещины в Houdini 18.5 с использованием кривых и RBD солвера. Полный файл проекта доступен вместе с уроком. Для понимания вам потребуется знание RBD в Houdini.Производство: CGcircuitЖанр: Houdini 18.5Язык озвучки: Русский (отдельным файлом)Продолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CAE2E3402517EF68C12BC15798B7FCB96833A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563478   (212582) от 14.07.2022
-
-Rebelway, Saber Jlassi | Mastering Pyro FX In Houdini Level 1 (2018) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это глубоко проработанный курс по созданию эффектов Pyro FX в Houdini, а также о создании своего солвера, чтобы получить уникальный вид.
-Курс сфокусирован на рендере высококачественных вольюмов и взрывов в Arnold.
-На первой неделе мы начнем разбор работы солвера дыма и создадим две симуляции. Ударную волну от танка и лого Rebelway.
-На второй неделе мы научимся пользоваться (   Читать дальше...   )Производство: RebelwayЖанр: Houdini 17 & 16.0 , Arnold 5.0 & 5.2Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 25:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FED9735C4E2A7D9512B54D00D0918960515551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563818   (212506) от 16.07.2022
-
-Yiihuu, Jungwon Park | “Liu yifei likeness as Mulan” for Photorealistic rendering (2018) PCRec [CN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструктаж проводит Jungwon Park, старший художник LookDev из Южной Кореи, имеющий многолетний опыт разработки ролей в играх, фильмах и на телевидении. Он работал разработчиком внешнего вида во многих играх, включая «AION», «Lineage» и «Blade and Soul». В этом уроке вы узнаете, как создать реалистичную текстуру кожи и технику высококачественного рендеринга для ролевых (   Читать дальше...   )Производство: YiihuuЖанр: 3D моделированиеЯзык озвучки: КитайскийСубтитры: АнглийскиеПродолжительность: 18:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70305ED73870B9AA325953F1B5ABE4DCB5E7ABEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

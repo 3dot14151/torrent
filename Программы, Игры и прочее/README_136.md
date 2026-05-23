@@ -1,3 +1,81 @@
+###  Публикация: 1784212   (69654) от 09.03.2025
+
+PianoMeter – Piano Tuner v3.4.2 Mod by Alex.Strannik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мощный и удобный инструмент для настройки фортепиано. Оригинальный дизайн. Есть заранее заготовленные параметры по моделям. Полезная вещь... и не только для настройщиков.Тип издания: ProРелиз состоялся: 09.03.2025Разработчик: Willey PianoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEE020242E67AB9C632A9AEECF73B4E76B98F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785170   (69437) от 14.03.2025
+
+Атомные часы - время ntp v2.1.7 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сверхточные часы для вашего устройства. Берёт данные с интернет-сервиса. В наличии виджет и немалое количество настроек. Вы когда-нибудь хотели узнать точное время, чтобы отпраздновать чей-то день рождения или Новый год? Или просто синхронизировать часы? AtomicClock обеспечивает точное время с серверов NTP, которые получают время непосредственно с атомных часов!Тип издания: PremiumРелиз состоялся: 11.03.2025Разработчик: Timo PartlПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BC5D8CB2B2BA578F233857F035C2FD3407DC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785159   (69421) от 14.03.2025
+
+DailyArt - Daily Dose of Art v3.4.3 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+DailyArt — приложение №1 для изучения истории искусства. Каждый день черпайте вдохновение в прекрасных шедеврах классического и современного искусства и читайте короткие рассказы о них. Присоединяйтесь к сообществу любителей искусства, для которых DailyArt — это то, что освещает их день, каждый день.Тип издания: PremiumРелиз состоялся: 13.03.2025Разработчик: MoiseumПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EBD9D108F8C50D9C6E267026A334D56802289EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785309   (69382) от 15.03.2025
 
 TuneIn Radio v37.7 Paid [Ru/Multi]
@@ -6,7 +84,7 @@ TuneIn Radio v37.7 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +112,7 @@ Lighting calculations / Расчеты освещения v6.1.0 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +138,7 @@ TrackChecker Mobile v2.28.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +164,7 @@ Picture Bird - Bird Identifier v2.9.32 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +190,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.0 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +242,7 @@ TikTok 39.1.3 Mod by Dmitry Nechiporenko + Plugin 2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +268,7 @@ CastBox - Популярные подкасты v11.21.1 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +294,7 @@ Unit Converter Pro / Конвертер Единиц Pro v2.6.3 Mod by Balatan [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +348,7 @@ Resize Me! Pro v2.4.1 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +401,7 @@ KineMaster - Video Editor & Maker v7.6.16.34690.GP Mod by Shadow_Patcher [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +427,7 @@ Smart AudioBook Player Pro v11.2.8 (A8.0+) Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +479,7 @@ Easy Voice Recorder - Pro / Простой диктофон Про v2.9.9 Mod by
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +505,7 @@ VN - Video Editor / VN - Видеоредактор v2.6.0 Mod by PieMods [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +531,7 @@ VivaCut v4.2.0 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +557,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.3 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +583,7 @@ Display Tester v5.35.5 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +609,7 @@ Photo Studio PRO v2.8.2.4354 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +661,7 @@ Screenshot touch v2.5.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,84 +672,6 @@ Screenshot Touch – это удобное и простое приложени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807569   (65262) от 19.07.2025
-
-Picsart AI Photo Editor, Video v27.9.8 Final Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к сообществу Picsart, насчитывающему более 150 миллионов авторов по всему миру. С помощью фоторедактора и видеоредактора Picsart AI вы сможете воплотить свои творческие идеи в жизнь. Создавайте с помощью инструментов искусственного интеллекта, создавайте коллажи профессионального уровня, создавайте и добавляйте наклейки, быстро удаляйте и меняйте (   Читать дальше...   )Тип издания: Full / GoldРелиз состоялся: 19.07.2025Разработчик: PicsArt, Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0527AB024325C5F6B694ECA470E923E989FFE5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807562   (65256) от 19.07.2025
-
-Gaia GPS (Topo Maps) v2025.5 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планируйте путешествия и исследуйте мир с Gaia GPS на телефоне, планшете и компьютере. Широко признано, что Gaia GPS является лучшим приложением с картами для использования на открытом воздухе, оно было продемонстрировано в историях Apple "Your Verse", и о нем писали в бесчисленном количестве крупных изданий, от Outside и TrailRunner, до New York Times (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.07.2025Разработчик: TrailBehind Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B77E6DC39DB606F75355EDD485A15B12EC27348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807463   (65252) от 19.07.2025
-
-Speedtest от Ookla v6.2.1 Mod by Balatan [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: ModРелиз состоялся: 19.07.2025Разработчик: OoklaПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1481EC5308CB8C4A6CA91752BF0BD855A98E194E
 ```
 
 https://mybot314.ru/tekegram_catalog/

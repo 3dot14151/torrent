@@ -1,3 +1,55 @@
+###  Публикация: 1359927   (58478) от 26.04.2024
+
+BBC: По странам и континентам. Дикая Африка / Wild Africa (2001) DVDRemux (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Африка — это старейший континент нашей планеты, колыбель цивилизации. Несмотря на свой почтенный возраст, более 270 миллионов лет, этот омываемый океанами материк является пожалуй единственным, сохранившим гармонию с природой и не подвергшимся разрушительному влиянию человеческой деятельности.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, природа, флора, фаунаРежиссер: Мартин Колбек, Оуэн НьюманУчастники: Фергал КинПеревод: Одноголосый закадровый, профессиональный (Фортуна-Фильм)Субтитры: РусскиеПродолжительность: серии x ~00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248A667D851FB6CDE1DF7B30D4FED376BC470282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418840   (58466) от 26.04.2024
+
+BBC: Волшебные числа: таинственный мир математики с Ханной Фрай / Magic Numbers: Hannah Fry's Mysterious World of Maths (2018) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Наша Вселенная таит в себе секрет, загадку, которую до сих пор никто не сумел разгадать... Вопрос: почему математические правила и законы присутствуют практически везде, в каждом аспекте нашей жизни? Многие называют математику основополагающим языком нашей Вселенной. Но откуда она взялась? Даже спустя тысячелетия, ответ на этот вопрос неоднозначен. Мы до сих пор (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC), Windfall FilmsЖанр: Документальный, познавательный, научно-популярныйРежиссер: Грэм Томсон, Джиллз ХаррисонУчастники: Ханна ФрайПеревод: Двуголосый закадровый, профессиональный (Da Vinci Learning)Субтитры: АнглийскиеПродолжительность: 3 x ~00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFB3297C3F01369A44684B8643604EB01A0AB2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110877   (58434) от 26.04.2024
 
 BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest Spectacles) (2016) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
@@ -6,7 +58,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +85,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +137,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Discovery. Железная дорога Австралии / Railroad Australia
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +424,7 @@ NG: Самые страшные стихийные бедствия: Земле�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +450,7 @@ NG: Самые страшные стихийные бедствия: Торна�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +476,7 @@ BBC: Луи Теру. Разговоры с анорексией / Talking to An
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +502,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +528,7 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +580,7 @@ PBS. Величайшие природные памятники планеты /
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +606,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -618,58 +670,6 @@ TikTok-танцоры присоединяются к церковной ком�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1FD8DB6D2BF264FBAA6070F128CBA2ED262F454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734124   (51323) от 02.07.2024
-
-Объясняя необъяснимое / Files of the Unexplained (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Red Head Sound
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал из восьми эпизодов исследует загадочные происшествия, с которыми сталкивались обычные люди. Среди них — встречи с пришельцами, появление призраков и таинственные исчезновения. Один из эпизодов посвящён случаю обнаружения отрубленных ступней на берегу моря Салиш.Производство: США / NetflixЖанр: документальный, криминал, детективУчастники: Тихуана Рикс, Майкл Слэйд, Паркер Маккриди, Шарлотта Стефенс, Марк Стефенс, Сильви Борежар, Джон Кирк, Гэйл Андерсон, Брэд Уолватн, Деррел В. СимсПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, английские (SDH)Продолжительность: ~00:35:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157655428D171C1A6E89CB15A49913399CAB4820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200876   (50624) от 09.07.2024
-
-Animal Planet & BBC: Сурикаты / The Meerkats (2008) BDRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50624.jpg" />
-</div>
-
-
-###  Подробнее
-
-На земле, обладающей волшебной красотой, где правила диктуют сильнейшие, маленькие создания построили свои дома. Для одного из молодых сурикатов приключения только начинаются. Он научится защищаться и поймет, что великая сила заключена в сплоченности и взаимовыручке.Жанр: ДокументальныйУчастники: Пол Ньюман, Руфус БекПеревод: Одноголосый профессиональныйСубтитры: РусскиеПродолжительность: 1:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF06527D9AA60A49F86D91F5BB951CC42477DF5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

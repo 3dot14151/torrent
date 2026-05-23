@@ -1,22 +1,22 @@
-###  Публикация: 991661   (905656) от 28.02.2016
+###  Публикация: 1368501   (909191) от 20.03.2020
 
-Виктор Франкенштейн / Victor Frankenstein (2015) BDRip
+Подшивка журналов | Britain at War (2019) [PDF] [En]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Новый взгляд на фантастическую историю Виктора Франкенштейна, на этот раз — с точки зрения его помощника Игоря.Производство: США / 20th Century Fox Film Corporation, Davis Entertainment, Moving Picture Company, TheЖанр: ужасы, фантастика, драмаРежиссер: Пол МакГиганАктеры: Дэниэл Рэдклифф, Джессика Браун-Финдли, Бронсон Уэбб, Джеймс МакЭвой, Дэниэл Мейс, Спенсер Уидлинг, Робин Пирс, Эндрю Скотт, Каллум Тернер, Ди БотчерПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:49:50
+Журнал «Britain at War» - история конфликта. Представлено Key Publishing Ltd, ведущим издателем авиации в Европе. Британия «Britain at War», ставшая самой продаваемой военной историей Великобритании, посвящена изучению всех аспектов участия Британии в конфликтах с начала XX века до наших дней. От Первой мировой войны до Фолклендов, Второй мировой войны до Ирака читатели (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB1AE5403BE52EFD4A4F6BF791DB6A1DD0B23A56
+magnet:?xt=urn:btih:468A22DFF18AB0471D7F78150BB18258C0D3A916
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368781   (905655) от 22.03.2020
+###  Публикация: 1368596   (909190) от 20.03.2020
 
-VA - German Top 100 Single Charts 20.03.2020 [MP3|320 Kbps] <Pop>
+Pop Smoke - Meet The Woo 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Weeknd - Blinding Lights
-02. Samra & Capital Bra - Berlin
-03. Loredana - Angst (feat. Rymez)
-04. UFO361 - Bad Girls, Good Vibes(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:37
+01. Invincible [02:08]
+02. Shake The Room (feat. Quavo) [02:46]
+03. Get Back [01:48]
+04. Christopher Walking [03:11](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:34:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49473A52F1FDF0B48FC8A8771965EE5896E85053
+magnet:?xt=urn:btih:EC01567B3805E720ABECE551979DE9B6F55B6094
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369167   (905654) от 22.03.2020
+###  Публикация: 1368631   (909186) от 20.03.2020
 
-!Бум! - Kanikuly (2007) [MP3|320 Kbps] <Pop>
+Anarchic System - 3 Albums (1974, 1975) [MP3|320 Kbps] <Electronic, Pop Rock, Pop, Space Rock>
 
 >>Pop
->>Отечественная поп-музыка
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Kanikuly 2007 (Каникулы 2007) (3:42)
-02. Starsheklassnitca (Старшеклассница) (3:58)
-03. Poezd (Поезд) (3:53)
-04. Ne uletai (Не улетай) (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:12
+Французский студийный проект под руководством Оливье Туссена и Поля де Сенневиля. Состав группы: Christian Lerouge, Gilles Devos, Jacques Deville, John Turton, Michel Dhuy, Patrick Verette  был собран в 1972г. из друзей и участников других групп с рок-сцены Северной Франции для записи некоторых синглов, в.ч."Pop Corn", принесших огромную популярность и спрос (   Читать дальше...   )Список альбомов:
+1974 - Cherie Sha La La (R-CD 2009)
+1974 - Pussy Cat C'est La Vie
+1975 - Generation (R-CD 2009)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Pop, Space RockПродолжительность: 02:15:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B49F0D532EC7CC4200AB4F277F6E4726561D286E
+magnet:?xt=urn:btih:AE706BEAEECB71A26EC2FC3D8B18B9687C0FD199
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368876   (905653) от 22.03.2020
+###  Публикация: 1368626   (909179) от 20.03.2020
 
-VA - The Official UK Top 40 Singles Chart 20.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+Vivaldi 2.11.1811.49 [Multi/Ru]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. SAINt JHN - Roses (Imanbek Remix)
-02. The Weeknd - Blinding Lights
-03. Aitch & AJ Tracey - Rain (feat. Tay Keith)
-04. Roddy Ricch - The Box(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:44
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71DEB5B063F2CE825F09004F55B8565973DEE773
+magnet:?xt=urn:btih:3B7B54EA8EC24350E56C74B1E861F59398F3E229
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,172 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369155   (905652) от 22.03.2020
+###  Публикация: 1368544   (909178) от 20.03.2020
 
-Турбомода - Виноват Не Я (2002) [MP3|320 Kbps] <Pop, Europop>
+PDF Expert 2.5.2 [Multi/Ru]
 
->>Pop
->>Отечественная поп-музыка
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Виновата школа (3:52)
-02. Армейская (4:24)
-03. Белое платье (3:43)
-04. На память о тебе (3:46)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536606E70749E1E375A07ED3CF90BF798E8861D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369247   (905651) от 22.03.2020
-
-Phanatic - Bounce Showcase (Phanatic) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905651.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mind Control (6:46)
-2. Phanatic; Delirious - Lucid Dreaming (7:15)
-3. Phanatic; Electro Sun; Bizzare Contact - Trilodyne (8:10)
-4. Phanatic; Spade - Mandala (7:18)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154BBE9445CADC6D312E56F37C6802A1B2F6D8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369164   (905650) от 22.03.2020
-
-!Бум! - Опять Идет Дождь (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Море (4:04)
-02. Роза (4:08)
-03. Опять идёт дождь (3:49)
-04. Жди (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A8A0B5D0494A6A848186FC50BDF34F1DD6B24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369043   (905649) от 22.03.2020
-
-Quincy Jones - Four Classic Albums Plus 1953 - 1961 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905649.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Walkin' [10:49]
-02. A Sleepin' Bee [4:43]
-03. Sermonette [5:59](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 02:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577E9292D5042C8A237000EB1A6B3B9D6F8C96A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368954   (905648) от 22.03.2020
-
-VA - Record Super Chart 630 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
-02. Anthony Keyrouz - Love Yourself 2:56
-03. SAINt JHN - Roses (Imanbek Remix) 3:58
-04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D27132AB59FCA54D307BF2262671018C9CA7564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369255   (905647) от 22.03.2020
-
-Архимандрит Андрей (Конанос) | Неисчерпаемый источник. Беседы о единстве с Богом и ближними (2020) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905647.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге архимандрита Андрея (Конаноса) «Неисчерпаемый источник» собраны беседы известного современного проповедника, которые учат, как найти источник любви, как прийти в единение с Богом, собой и ближними, как это единение может наполнить сердце радостью и утешением.
+PDF Expert - редактор  PDF
+Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому!
 
-«Минуты любви наполняют сердце счастьем и утешением, потому что ты возвращаешься в своё реальное (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: FB2, EPUB
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2020Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71D74A1875A14173B05F9414EB617F787B0DA8F0
+magnet:?xt=urn:btih:E522BC88578DF300A24EB4FEEDD029F22ADB4320
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,28 +137,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369135   (905646) от 22.03.2020
+###  Публикация: 1368577   (909173) от 20.03.2020
 
-VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House, Club House, Progressive>
+Подшивка журналов | Steam Days (2019) [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Steam Days - это полный ностальгии и воспоминаний о золотом веке паровозов, в первую очередь, связанных с локомотивами. Каждый выпуск содержит личную информацию и воспоминания о знаменитых и не очень известных железных дорогах, поездах и паровых двигателях и наполнен прекрасными старинными фотографиями, как черно-белыми, так и цветными. Вы можете почувствовать страсть (   Читать дальше...   )Жанр: Железнодорожный транспортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2CCCC22DA6CCD004CEF4A23899A76D38519074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368180   (909169) от 20.03.2020
+
+Дженни Хендрикс, Тэд Каплан | Небеременная (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатилетняя Вероника внезапно узнает о своей беременности. И как «вовремя»: на носу выпускные экзамены и поступление в престижный университет.
+Она решает уехать в соседний штат, чтобы понять, как же быть дальше. Что может пойти не по плану? Не так уж и много, если не считать угона тачки, сумасшедшего бывшего, пришельцев и… агрессивного хорька по кличке Малачи. (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Ольга СолнцеваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94735852F6022724FB89F77676F9DCDC18840E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368587   (909165) от 20.03.2020
+
+DJ Valium - The Album (2003) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro-House>
 
 >>Electronic
->>House
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Jerome - Take My Hand (Extended Mix) 3:33
-02. Dimitri Vegas & Like Mike vs. Timmy Trumpet - The Anthem (Der Alte) (Extended Mix) 3:50
-03. W&W x Timmy Trumpet & Will Sparks feat. Sequenza - Tricky Tricky (Extended Mix) 3:37
-04. Armin van Buuren feat. Ne-Yo - Unlove You (Nicky Romero Extended Remix) 4:22(   Читать дальше...   )Жанр: House, Club House, Progressive, Hardstyle, ElectronicПродолжительность: 07:35:05
+01. Intro (1:41)
+02. Bring the Beat Back (3:15)
+03. Let's All Chant (3:34)
+04. Free (3:02)(   Читать дальше...   )Жанр: Trance, Euro-HouseПродолжительность: 02:05:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C38F271A98F0789AED0B8B953FC80C097EA36EB7
+magnet:?xt=urn:btih:319B68F24794B4BB296F9B89433151CCC7BA10CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,57 +219,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369162   (905645) от 22.03.2020
+###  Публикация: 1368087   (909160) от 20.03.2020
 
-Турбомода - Улицы Центральные (2004) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улицы центральные (4:24)
-02. Не целуй её (4:05)
-03. Дождь (4:11)
-04. Не плачь (3:59)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F22C5E29D8A823E30DAEB93B3E25CFBD09F137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368449   (905644) от 22.03.2020
-
-Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC|Lossless|image + .cue] <New Age>
+Gordon Giltrap - Pofacetilly (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 
 >>Other Styles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01.Beyond Infinity (10:06)
-02.Green Planet (10:04)
-03.Milky Way (10:11)
-04.Deep Probe (10:37)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:27
+01. Cathy's Waltz
+02. Pofacetilly
+03. I Heard You Smiling
+04. Winter Magic(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
+magnet:?xt=urn:btih:0689E485DBB663440A13621132DC035AE56B6784
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,28 +248,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369048   (905642) от 22.03.2020
+###  Публикация: 634535   (909155) от 26.03.2013
 
-Илья Снегов - Судьба (1996) [FLAC|Lossless|tracks + .cue]<Pop>
+Wolfgang Amadeus Mozart-The Symphonies: The English Concert conductor Trevor Pinnock authentic execut 11CD (1992-1995)/2002 Archiv Produktion/[FLAC|Lossless]<Classical>
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Классика
+>>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Вспомни
-02. Поговорим о любви
-03. Судьба
-04. Устало сердце(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:40
+CD1Жанр: ClassicalПродолжительность: 01:12:32
+01	Symphonie n.40 in G minor, K.550 Molto Allegro	00:07:23
+02	Andante	00:11:21
+03	Menuetto Allegretto - Trio	00:04:48
+04	Allegro assai	00:09:28
+05	Symphony n.41 in C, K.551 Jupiter Allegro	00:11:16
+06	Andante cantabile	00:11:22
+07	Menuetto Allegretto - Trio (2)	00:05:27
+08	Molto Allegro	00:11:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C3A93A1B9850D7584A0A9F7DEBC11009979ED04
+magnet:?xt=urn:btih:AF90990D559A3EE313020A2067E051931C258190
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,112 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369144   (905640) от 22.03.2020
+###  Публикация: 1368523   (909153) от 20.03.2020
 
-Турбомода - Затурбись! (2001) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Позови (4;15)
-02. Турболюбовь (ла-ла-ла) (4:32)
-03. Ты забудешь меня (4:16)
-04. Чонкин (3:37)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58AE2352B3D0D2F245258B10657ABCF0BCCC363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369059   (905638) от 22.03.2020
-
-Хаим Соколин | И сотворил Бог нефть... (2015) [PDF, FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о поисках нефти, личного богатства и любви. Современный роман на актуальную тему, наполненный динамичными событиями и невыдуманными историями.Жанр: Современные детективыФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8743D04D8D5CDEBDE8E4A56FF7C9B2B5B90E1BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369156   (905636) от 22.03.2020
-
-Burning Witches - Dance with the Devil (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Incantation (0:57)
-02. Lucid Nightmare (4:50)
-03. Dance with the Devil (4:26)
-04. Wings of Steel (4:29)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34ECA20158132F23474B55A7C4B992DDC825A899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369200   (905634) от 22.03.2020
-
-VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kbps] <Progressive House, House>
+VA - Armada Music Miami (2020) Extended Versions [MP3|320 Kbps] <House, Progressive, Deep House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. Phil Collins - In The Air Tonight (Kluster Dark Mix) (8:50)
-02. J Groove's - Beginning To Believe (Original Mix) (6:08)
-03. Rephlex One - Pulse (Coming Soon Remix) (6:38)
-04. UDG - Workshop Of Devil (5:24)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:15:53
+01. Loud Luxury - Cold Feet (Extended Mix) 3:52
+02. Armin van Buuren & Matluck - Don't Let Me Go (Extended Mix) 3:57
+03. Tensnake feat. Fiora - Automatic (Extended Mix) 5:08
+04. Dennis Kruissen & Drew Love - Falling In Love (Original Mix) 2:55(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 03:27:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3B25C891A7D3CACCD2CBE1F8ABA0C48AA24ECE6
+magnet:?xt=urn:btih:1D75ED17EF263EB90231DED3E2F03B55F30A4AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,109 +311,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369166   (905632) от 22.03.2020
+###  Публикация: 291973   (909152) от 06.02.2011
 
-Протоиерей Олег Стеняев | Воздушные мытарства, или Экзамен, которого нельзя избежать (2019) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами книга, основу которой составили лекции, прочитанные в разное время протоиереем Олегом Стеняевым – известным проповедником, миссионером, богословом, публицистом – в Троице-Сергиевой лавре, в других монастырях и приходских храмах. В ней идет речь о ценности земной жизни, о смерти, освещается библейское и святоотеческое обоснование учения о мытарствах – своего (   Читать дальше...   )Жанр: Духовная литература, ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7891AC655CAF053CEB1C478721938C664DF23E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369004   (905630) от 22.03.2020
-
-В. П. Полонский | Марксизм и критика [Из литературных споров последних лет] (1927) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы спорим для того, чтобы найти общую почву для совместной работы, а не для того, чтобы вызвать восторг у беспартийной „галерки", которая будет визжать от удовольствия при виде взаимной трепки коммунистов. Неуважение к противнику есть неуважение к самому себе, пользование „недозволенными" приемами — есть расписывание в собственном бессилии.
-
-В конце концов, (   Читать дальше...   )Жанр: История, политология, социология, литературоведение, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35A9C105141039222B0EDA8EBF9668EC49CA862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369116   (905627) от 22.03.2020
-
-VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj SanNny - Ghost Ship 06:24
-02. Dj Mig - Relax 06:10
-03. Jean Luvia - Remembrance (Extended Mix) 06:55
-04. Crying Mask - Back Home 08:00(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26EE892997C78D8381AAEFE9A33AD0AEAD6A802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636280   (905606) от 28.03.2013
-
-Сюжет видеоприложения к альбому "Рыбалка нового поколения " Ловля карпа. (2013) WEB-DLRip
+VA - Record Super Chart № 176 (2011) [MP3|320 kbps]<House, Electro House, Trance, Dance>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Сюжет видео приложения к иллюстрированному альбому о современной рыбалке «Рыбалка нового поколения - Next Generation Fishing». Сюжет посвящен ловле карпа и амура в коммерческом водоеме.
-Действие происходит на озере "Медвежка" в Донецкой области.Жанр: Документальный, Видовой, СпортПеревод: ОтсутствуетПродолжительность: 00:50:55
+01. Tiesto vs Diplo - CMon (Original Mix) (5:14)
+02. Swedish House Mafia and Tinie Tempah - 02. Swedish House Mafia feat. Tinie Tempah - Miami 2 Ibiza (2:49)
+03. Skrillex - Kill Everybody (Original Mix) (4:57)
+04. Nadia Ali - Rapture (Avicii New Generation Extended Mix) (7:08)
+05. Deadmau5 & Wolfgang Gartner - Animal Rights (6:15)
+06. Black Eyed Peas - The Time (The Dirty Bit) (2010) (5:10)
+07. Matisse & Sadko - Hi Scandinavia! (2:11)
+08. Barbra Streisand (Original Mix) (4:54)
+09. Rihanna & David Guetta - Whos That Chick (3:42)
+10. DJ Smash - From Russia With Love (Extended Mix) (5:47)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 02:50:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84CC0ECBFD86B2294448E9A48738A76308DEEE56
+magnet:?xt=urn:btih:BB160B56926386667C2AF8CEAABF4EC25C2D969C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,25 +346,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 636212   (905600) от 28.03.2013
+###  Публикация: 1368681   (909149) от 20.03.2020
 
-Апокалипсис сегодня / Apocalypse Now (1979/2001) BDRip [720p] ATV [Redux version]
+Кэтрин Эллисон | Мамин интеллект: Как рождение детей делает нас умнее (2017) [PDF, FB2, EPUB, MOBI]
 
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Во время войны во Вьетнаме спецагент отправляется вверх по реке в Камбоджу с приказом найти и убить полусумасшедшего полковника, создавшего в отдаленном районе нечто вроде собственного королевства насилия. По пути мы видим почти сюрреалистический мир ужасов войны.Производство: США / © Zoetrope StudiosЖанр: драма, военныйРежиссер: Френсис Форд КопполаВ ролях: Мартин Шин, Марлон Брандо, Фредерик Форрес, т Сэм Боттомс, Лоренс Фишбёрн, Роберт Дювалл, Деннис Хоппер, Харрисон Форд, Скотт Гленн, Альберт ХоллПеревод: Русский многоголосый закадровый (Союз), многоголосый закадровый (Киномания), многоголосый закадровый (Позитив), одноголосый закадровый (Goblin)Субтитры: Русские (Союз, Goblin), Английские, Английские (SDH)Продолжительность: 03:16:10
+Молодых матерей не берут на работу, просто потому, что у них есть маленькие дети; их окружают стереотипы вроде «все женщины глупеют в декрете»; а хуже всего, они сами уверены: материнство губительно сказывается на уме. Но так ли это? Современные исследования утверждают: материнство делает нас умнее. Когда мы общаемся с малышом, у нас развивается сообразительность, (   Читать дальше...   )Жанр: Зарубежная прикладная литератураПеревод: Анастасия КазаковаФормат: PDF, FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:841165E98100D5441131B4AADB6FAAB62400CAF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,25 +372,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635563   (905596) от 28.03.2013
+###  Публикация: 634911   (909147) от 26.03.2013
 
-Азбука смерти / The ABCs of Death (2012) HDRip
+Адское наследие / Bundy: An American Icon (2008) DVDRip
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Производство: США, Новая Зеландия / Drafthouse Films, Magnet Releasing, Nishimura EizoЖанр: УжасыРежиссер: Кааре Эндрюс, Анджела Беттис, Элен КаттеАктеры: Ингрид Болсай Бердал, Эрик Од, Иван Гонзалез, Даллас Маллой, Кира Загорский, Фрейзер Корбетт, Матч, Питер Педреро, Сара Бонрепо, Ли ХардкэслПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:09:17
+История жизни Тэда Банди, человека образованного и обаятельного, но оказавшегося самым страшным маньяком-некрофилом и серийным убийцей в истории США. Его преступления были настолько ужасны, а количество жертв столь велико, что Теодор Банди стал настоящей легендой Америки.Жанр: Ужасы, Триллер, ДрамаРежиссер: Майкл Фейфер / Michael FeiferАктеры: Корин Немек, Джен Николайсен, Дэвид ДеЛуис, Шеннон Пирс, Фэй Болдуин, Джуди Бичер, Дэниэл Бонжур, Йен Бойд, Лиана Брайер, Брок БарнеттПеревод: Многоголосый закадровыйПродолжительность: 01:35:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:749CE1731641F0E019570CE324A578E5D9A8535C
+magnet:?xt=urn:btih:0D0F13EF69F30691EA4F5A772212FBC1BA52E73C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,26 +398,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492221   (905595) от 28.08.2021
+###  Публикация: 1368546   (909145) от 20.03.2020
 
-Марина Серова | Древнее хобби (2019) [MP3, Татьяна Слепокурова]
+SoundSource 4.2.3 [Multi]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Хозяин колбасного завода Епифанцев отказался заплатить Игнату Ремезову за пруд, который тот для него сделал. В итоге фирма Ремезова обанкротилась. На этом беды враз обедневшего Игната не кончились: с его беременной женой случилось несчастье, ребенка она потеряла. И, похоже, здесь тоже не обошлось без чьего-то злого умысла.
-Полина Казакова, известная в городе как (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:20:28
+SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
+
+Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2020Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA5C5AF228AE723B1FC0BF70E2FC4B3E8C32F3CC
+magnet:?xt=urn:btih:A9E941958CB8E313B0CC53ADD94DEC04ECE4989E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,26 +426,303 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492208   (905594) от 28.08.2021
+###  Публикация: 1368676   (909141) от 20.03.2020
 
-Марина Серова | Невеста года (2021) [MP3, Кристина Парфионова]
+GPS Track Editor 1.15.141 beta [En]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-Полина Казакова, известная в городе как Мисс Робин Гуд, считает: зло обязательно должно быть наказано, особенно причиненное ни в чем не повинному, благородному человеку – такому, как Юрий Бобров. О том же радеет и друг Боброва – Юрий Ростов.
-По его версии, Боброва довела до самоубийства группа одноклассников, которым даже теперь, по прошествии двадцати пяти лет, (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:55:25
+GPS Track Editor — графическое приложение для анализа и редактирования GPS треков, позволяющее их фильтровать, структурировать, объединять и разбивать на части. Не все координаты, полученные из GPS приемника являются точными. GPS ошибки зависят от целого ряда причин, которые не могут быть устранены. Приложение может помочь вам очистить ваши GPS треки и некоторые (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EF02D093CD9672BF5ACEA62BDA3772919DCBAB7
+magnet:?xt=urn:btih:F115CD8EF503F98707940841FC2668ECF399AE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368528   (909138) от 20.03.2020
+
+JRiver Media Center 26.0.35 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBF624D30B2CEDD2E6DC98183C0BAABBCF9D384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368005   (909135) от 20.03.2020
+
+Александр Рябцев - Сквозь вечность (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Между небом и землёй (1:42)
+02. Первое свидание (3:07)
+03. Сон во сне (3:38)
+04. Контакт (4:25)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0F44E57FEB4A2EE1A2A8C68910889870A2369C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368655   (909129) от 20.03.2020
+
+Harem Scarem - Change The World (2020) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Change the World [4:08]
+ 2. Aftershock [3:16]
+ 3. Searching for Meaning [3:52]
+ 4. The Death of Me [4:07](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA88ECE6C62DAC8934E0493D5B19C0DAF9CDE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368608   (909126) от 20.03.2020
+
+Яндекс.Браузер 20.3.1.197 Portable by Cento8 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6052EA37ED14DEA58E32949D7A326D6BD112EF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759260   (909124) от 21.02.2014
+
+Sinepearl - Cycles Within Cycles Within (2014) [FLAC|Lossless|WEB-DL]<Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Wobble (14:28)
+ 02. Miryjudi Goes South (10:05)
+ 03. Illusion Of Control (8:52)
+ 04. Light Of The First Quarter (6:48)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46EAF7806353C888A1628662CADDFFB8B51CE395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368006   (909122) от 20.03.2020
+
+Александр Рябцев - Между прошлым и будущим (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Между прошлым и будущим (4:45)
+02. Листопад (3:59)
+03. Скажи своё имя (4:00)
+04. Полнолуние (5:55)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BC1E3DFCB01036BE79E84D07027C841E9419B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759397   (909102) от 21.02.2014
+
+Журнал | Stereo & Video [Россия] №3 (229) (март 2014) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0972422818DE0267E18C38B0587294ECDC4D289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368279   (909101) от 20.03.2020
+
+VA - Electronic Fantasy Box (2020) [MP3|320 Kbps] <Electronic, Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Tourist - Wild
+002. Alogique - Clockwork
+003. Dj Oil - Addis
+004. Boss Axis - Goliath(   Читать дальше...   )Жанр: Electronic, SyntheticПродолжительность: 12:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5174FB27A12FCC132F9A146B0F00E6E9B8D13D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368614   (909097) от 20.03.2020
+
+Opera 67.0.3575.97 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36F65076C7C9ECEDEA92C9157A970B0E74E9E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367998   (909095) от 20.03.2020
+
+Александр Рябцев - Дайте мне крылья (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Дайте мне крылья (5:04)
+02. Пробуждение (4:02)
+03. В вечность (3:34)
+04. Ледяной замок (4:27)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9595C13C65D03205E6BAE235B266986D8A26630
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,218 @@
+###  Публикация: 1341804   (228730) от 29.11.2019
+
+White String Orchestra - Traumhafte Balladen im modernen Streichersound - Vol.3 (1997) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe I Can Fly (4:18)
+02. Lonely (3:51)
+03. Time To Say Goodbye (4:05)
+04. When I Die (4:34)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DE4D18573BEC545054E8B6888B149057DAA0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586391   (228439) от 08.12.2012
+
+Дидюля - Орнаментальный (2012) [MP3|320 кб/с]<Instrumental, Flamenco, World>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Греческая (03:23)
+02. Сербская (02:35)
+03. Арабское танго (03:33)
+04. Алегрия в танце (03:36)
+05. Шапито (03:46)
+06. Игрушечный злодей 03:32
+07. Линия огня (04:06)
+08. Базара нет (04:23)
+09. Вольный ветер (04:05)
+10. Охота на волка (03:18)(   Читать дальше...   )Жанр: Instrumental, Flamenco, WorldПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B4B81DA19A00FDAB8ACA8E7643D3F89A3A6542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649741   (228302) от 29.07.2023
+
+VA - Late Night Piano Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy listening, Lounge>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Café Milieu - Corcovado (4:23)
+02. Café Milieu - Água de Beber (4:13)
+03. Café Milieu - They Say It's Spring (4:53)
+04. Café Milieu - Bewitched, Bothered And Bewildered (4:56)(   Читать дальше...   )Жанр: Instrumental, Easy listening, LoungeПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2851C47D9AB1658B4EAD8113ACA70700378896F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424682   (227805) от 17.11.2020
+
+Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Музыка из моей любимой игры в детстве01. Intro
+02. Ice World
+03. Jungle World
+04. Dream World(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20FCB57CDDE32F241BC607C16A98CB620554DF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341646   (227411) от 30.11.2019
+
+Gene Autry's - Christmas Cracker (2009) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+1. Rudolph The Red Nosed Reindeer
+2. Nine Little Reindeer
+3. Jingle Bells
+4. Here Comes Santa Claus(   Читать дальше...   )Жанр: CountryПродолжительность: 00:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B384CD382E9C91593D0965F3AEDD72C0799075CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513062   (227376) от 27.11.2021
+
+Gary Ryan - Midnight Guitar (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Mallorca Op.202 (6:45)
+02. Recuerdos De La Alhambra (4:35)
+03. Lute Suite No. 4 in E Major (BWV 1006a) - Prelude (4:45)
+04. Lute Suite No. 4 in E Major (BWV 1006a) - Gavotte En Rondeau (2:54)(   Читать дальше...   )Жанр: Instrumental, Guitar, ClassicalПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401CDCD016800A0848B0FB71C0DB7680B8F044A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586661   (227334) от 09.12.2012
+
+A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+(09:21) 01. Cerca Del Arroyo IV
+(05:18) 02. Bonshai
+(04:54) 03. Lacricum
+(03:16) 04. El Jardin De Las Esencias
+(04:11) 05. Asia Lounge
+(04:47) 06. Dreams
+(05:53) 07. Crystal
+(10:24) 08. Otro Dia
+(10:09) 09. Anestes I
+(08:47) 10. Anestes II(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3999ED2BC3E9F5C4C31D002B28E73B7047FC407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513159   (227324) от 27.11.2021
 
 Blackmore’s Night - Here We Come A-Caroling (2020) EP [FLAC|Lossless|tracks + .cue] <Folk Rock>
@@ -6,7 +221,7 @@ Blackmore’s Night - Here We Come A-Caroling (2020) EP [FLAC|Lossless|tracks + 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +250,7 @@ VA - Piano Relaxation Covers (2022) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -64,7 +279,7 @@ Grand Theft Auto IV - Vladivostok FM (2008) [FLAC|Lossless|tracks+ .cue] <Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -93,7 +308,7 @@ Willie Nelson - For the Good Times: A Tribute to Ray Price (2016) [FLAC|Lossless
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +337,7 @@ Laura Sullivan - Serenity: Music for Meditation and Inner Peace [FLAC|Lossless|W
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +366,7 @@ Laura Sullivan - A Magical Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +395,7 @@ Gente de Zona - En Letra de Otro (2018) [MP3|320 Kbps] <Reggaeton, Cubaton>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +424,7 @@ Goran Bregovic - Music Inspired And Taken From Underground (1995) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +453,7 @@ Georg Philipp Telemann, Markus Kuikka - Fantasias For Viola Da Gamba (2021) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +482,7 @@ Collapse Under The Empire - 7 Albums, 4 EP, 3 Singles (2009-2020) [MP3|320 кб/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +511,7 @@ Blizzard Composer - Starcraft / Starcraft II OST (2007-2015) 5 CD [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +540,7 @@ Kevin Braheny - Secret Rooms (1990) [FLAC|Lossless|tracks + .cue] <Electronic, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -354,7 +569,7 @@ Dr. Jeffrey Thompson - Theta Meditation System 2.0 (1999) [FLAC|Lossless|tracks 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -381,7 +596,7 @@ Karamazov Twins - Шапито-Шоу (2011) [FLAC|Lossless|image + .cue] <OST, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +627,7 @@ Yanni - Live at The Acropolis (1994) [APE|Lossless|image + .cue] <New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +656,7 @@ James Last - Gold: Greatest Hits (2003) [APE|Lossless|image + .cue] <Instrumenta
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +685,7 @@ Pam Asberry - Thankful Heart, Joyful Mind (2018) [FLAC|Lossless|WEB-DL|tracks] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -499,7 +714,7 @@ Painted Water - Forever With You (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +743,7 @@ Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -542,209 +757,6 @@ Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0CCAD6B6F05A0E9840734500201043684ADF53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342386   (221561) от 04.12.2019
-
-Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Zahn - Music to Hide Corpses To (Main Menu Theme)
-02. Robert Purzycki - No Sweat
-03. Jan Sanejko - Sucker Punch
-04. Jan Sanejko - Horoscope Date(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730133466277A06E9A1261695214BED2E6B51CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965217   (221537) от 16.12.2015
-
-VA - Grand Theft Auto San Andreas Official Soundtrack (2004) 8CD, Box Set [FLAC|tracks]<Electronic, Hip Hop, Jazz, Rock, Reggae, Latin, Funk / Soul, Non-Music>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221537.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Playback FM & Radio Los Santos (Hip Hop):
-
-01. Public Enemy – Rebel Without A Pause
-02. Brand Nubian – Brand Nubian(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, Rock, Reggae, Latin, Funk / Soul, Non-MusicФормат: 8  CD, Compilation Box SetПродолжительность: 06:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839B7F2B976EE9F827E0B35E5030267A0E7158DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342405   (221520) от 04.12.2019
-
-7th Sector - Soundtrack (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to The Game
-02. Outdoors
-03. Reference Point
-04. Potential Capacity(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D38B8AF61EB8205B5A36258EA85463F731FA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667310   (221377) от 20.11.2020
-
-VA - Sweet Saxophone (2000) 3 CD [FLAC|Lossless|image + .cue] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите погрузиться в атмосферу неги и удовольствия и захватить с собой любимую девушку, то этот дисксет для вас. Саксофон обладает магическим сексуальным (уж извините за каламбур) притяжением. Испытайте на себе и убедитесь в этом.CD-1
-1. Caeptn Coock - Auch Matrosen Haben Heimweh (2:58)
-2. Bill Anderson - My Happyness (2:24)
-3. Billy Vaughn - Morgen (2:29)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CFBFC8BC97DEC78A809584E35D641650086A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342774   (221373) от 04.12.2019
-
-Amure (Alexey Khatsko) - Geo (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221373.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-01. Birds (6:49)
-1-02. Fall in love (5:10)
-1-03. After the rain (6:19)
-1-04. Inspiration (5:28)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAFB477885A7B964656228CFE2F5874D8CE0887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269285   (221207) от 14.12.2018
-
-Хелависа - Люцифераза (2018) Deluxe Edition [MP3|320 Kbps] <Folk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кракатук
-2. Поверь
-3. Шей
-4. Дорога в огонь(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188892C453E405F28819EAD8EEFAC9AD8F341AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966159   (221064) от 17.12.2015
-
-Tom Barabas - Sedona Suite (1992) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. More than Words 4:16
- 2. Free Spirit 5:35
- 3. Moon Dust 5:28
- 4. Sedona Suite (Sunrise/Prayer/Joy/Sunset) 12:23(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAADF2E89100C4632778ECE748E06277EEE5CD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

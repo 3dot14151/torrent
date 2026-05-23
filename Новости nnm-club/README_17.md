@@ -1,3 +1,185 @@
+###  Публикация: 1479544   (1009499) от 24.06.2021
+
+Opera 77.0.4054.146 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB15446C935697F3B0D6CD0AB8D8633335EC547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381413   (1009353) от 25.06.2021
+
+Звездный путь: Дальний космос 9 / Star Trek: Deep Space Nine (1993-1999) DVDRip (сезон 1-7, серии 1-173 из 173) FUNTik, Yrich&Natasha
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в 2369—2375 годах на космической станции «Дальний Космос 9» , находящейся на орбите только что освобожденной от оккупации Кардассианской Империи планеты Бэйджор. Волею случая в непосредственной близости от станции обнаруживается пространственная аномалия — коридор, связывающий Бэйджор с Гамма-квадрантом галактики. Это открытие превращает (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: фантастика, боевик, драма, приключенияРежиссер: Дэвид Ливингстон, Лес Ландау, Уинрих КольбеАктеры: Эйвери Брукс, Рене Обержонуа, Сиррок Лофтон, Александр Сиддиг, Колм Мини, Нана Визитор, Армин Шимерман, Терри Фаррелл, Майкл Дорн, Рэнди ДжеймсПеревод: Одноголосый любительский (с 20 серии 6 сезона двуголосый) - FUNTik, Yrich&NatashaЯзык озвучки: Русский, английскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E452EF61D0C2E1AB407FA217757806A1493B138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479808   (1009223) от 26.06.2021
+
+С устройств Western Digital My Book NAS по всему миру загадочно исчезают данные
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Владельцы сетевых накопителей (NAS) Western Digital My Book по всему миру столкнулись с неприятной проблемой – их устройства таинственным образом вернулись к заводским настройкам, все файлы были удалены, а авторизация через браузер или приложение оказалась заблокирована.WD My Book представляет собой внешний жесткий диск, снабженный приложением WD My Book Live, с (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 689316   (1009054) от 27.06.2021
+
+Во все тяжкие / Breaking Bad (2012-2013) WEB-DLRip (сезон 5, серии 1-16 из 16) Кубик в Кубе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель химии Уолтер Уайт узнаёт, что болен раком лёгких. Учитывая сложное финансовое состояние дел семьи, а также перспективы, Уолтер решает заняться изготовлением метамфетамина. Для этого он привлекает своего бывшего ученика Джесси Пинкмана, когда-то исключённого из школы при активном содействии Уайта. Пинкман сам занимался варкой мета, но накануне, в (   Читать дальше...   )Производство: США / High Bridge Productions, Gran Via Productions, American Movie Classics (AMC)Жанр: триллер, криминал, драмаРежиссер: Мишель МакЛарен, Адам Бернштейн, Винс ГиллиганАктеры: Брайан Крэнстон, Анна Ганн, Аарон Пол, Дин Норрис, Бетси Брандт, АрДжей Митти, Боб Оденкёрк, Джанкарло Эспозито, Джонатан Бэнкс, Стивен Майкл КесадаПеревод: Двуголосый профессиональный (Кубик в Кубе)Язык озвучки: Русский, английскийПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A432E04EFBFE953A4D54125767BF77732F0F0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480465   (1008910) от 28.06.2021
+
+Microsoft призналась в подписании вредоносного драйвера
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Драйвер Netfilter оказался руткитом, нацеленным на игровой сектор.Компания Microsoft признала, что подписала вредоносный драйвер, который теперь распространяется в игровой среде. Драйвер под названием Netfilter на самом деле является руткитом, подключающимся к C&C-инфраструктуре с китайскими IP-адресами.Специалист по вредоносному ПО компании G Data Карстен Хан (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480317   (1008897) от 28.06.2021
+
+Космическое управление Китая опубликовало видео с Марса
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Национальное космическое управление Китая опубликовало видео хода миссии аппарата «Тяньвэнь-1» на Марсе. Соответствующий ролик появился на YouTube.На кадрах можно увидеть бескрайнюю пустыню желтовато-коричневого цвета, а также марсианские долины и мелкие кратеры. Кроме того, там есть момент раскрытия парашюта спускаемого аппарата, а также пересечение поверхности (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 688010   (1008874) от 28.06.2021
+
+Сборник | Учебники СССР (1925-1993) [PDF, DJVU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Раньше всё было по-другому, и школьные учебники тоже были совсем другими. Теперь мало у кого сохранились старые советские учебники и они уже стали настоящим раритетом. Если вам интересно, какими же были эти учебники или вы хотите, чтобы ваш ребёнок учился не только по современным учебникам, но черпал знания и из уже устаревших, но по прежнему умных (в отличии от (   Читать дальше...   )Жанр: УчебникиФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F932036A092D785AD2629666FE0206748C45F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480323   (1008792) от 29.06.2021
 
 Полвека Илона Маска: за что хакеры объявили войну миллиардеру
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +214,7 @@ Hige o Soru. Soshite Joshikousei o Hirou. / What Happened When I Shaved My Beard
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +266,7 @@ Royal Quest: Тьма наступает (2012) [Ru] (1.2.095) License (обно
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +318,7 @@ Topaz Video Enhance AI 2.3.0 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +422,7 @@ Ventoy 1.0.46 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +502,7 @@ Solar Fields - Discography 40 Releases (2001-2021) Ultimae Records, E.A.R.S, Sid
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +531,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.17.07.21) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -493,188 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:214C29CC8F070F33FF72AD5C516915F3D1E0D315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475090   (1005624) от 23.07.2021
-
-Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (1.0.7026711/dlc) Repack Other s [Deluxe Arsenal Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sniper Ghost Warrior Contracts 2 — самая сложная игра в прославленной серии, ведь вам придется поражать цели на невероятном расстоянии больше 1000 метров. Вас ждет захватывающая одиночная кампания, действие которой проходит в наши дни на Ближнем Востоке, и динамичные тактические бои в глубине вражеской территории. Вы — Raven, наемный киллер-снайпер, взявшийся за (   Читать дальше...   )Тип издания: RepackРазработчик: CI GamesЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F0DEF7C4202221DA6D53E3C4AE95D0294BC46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548820   (1005353) от 25.07.2021
-
-Left 4 Dead (2008) [Ru/En] (1.0.3.8/dlc) Repack l4dzone.ru
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический survival-horror, действие которого разворачивается в современном мире, пораженном смертельным вирусом. В режиме совместного прохождения четверо «Выживших» будут сражаться с полчищами плотоядных зомби и боссами-мутантами. В игре доступно четыре больших кампании, нежно называемых разработчиками "Кино".Тип издания: RepackРазработчик: Valve SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EDC3A895BC36A4A665A5B7F0904B07B073E13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485742   (1005059) от 28.07.2021
-
-Intel объявила новый план: переименовать техпроцессы и перегнать TSMC за четыре года
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005059.jpg" />
-</div>
-
-
-###  Подробнее
-
-На прошедшем  мероприятии Intel Accelerated компания Intel объявила о масштабном переименовании разрабатываемых техпроцессов, а также представила форсированный план по возвращению себе лидерства в сфере полупроводникового производства. Среди прочего в плане фигурируют производственные нормы с размерностью узлов, которые впервые в отрасли заданы в ангстремах, а не (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485830   (1004914) от 29.07.2021
-
-VPN-сервис Windscribe не использовал шифрование для своих VPN-серверов, изъятых СБУ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря отсутствию шифрования, СБУ удалось подделать серверы Windscribe, перехватывать и расшифровывать трафик.Канадский производитель VPN-сервиса Windscribe не использовал шифрование для защиты своих VPN-серверов, недавно изъятых Службой безопасности Украины (СБУ). Именно благодаря отсутствию шифрования СБУ удалось подделать серверы Windscribe, перехватывать и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484196   (1004781) от 30.07.2021
-
-Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 07.2021 by OVGorskiy 1DVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004781.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновленные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей максимально возможно приближенные к оригиналу. Образ содержит в себе 9 редакций ОС на 1 DVD (x86 и x64). Включает в себя "чистые", минимально модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42677070BA677BFEB95A4457C38A5F0E61C36B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486314   (1004780) от 30.07.2021
-
-The Ascent (2021) [Ru/Multi] (Build 7106737/dlc/tr) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004780.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Ascent — экшн-RPG в духе киберпанка с режимами одиночной и кооперативной игры. Добро пожаловать на Велес! Вы — подневольный «Асцент Груп», крупнейшей корпорации на планете, которая владеет здесь всем и вся. Внезапно «АГ» прекращает свое существование, и вы попадаете в водоворот опасных событий. Системы безопасности выходят из строя, конкуренты стремятся захватить (   Читать дальше...   )Тип издания: RepackРазработчик: Neon GiantЖанр: RPG, Action (Top-Down), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8EF603843CE9C72B6BBC24C1D9041B2E32A656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348812   (1004417) от 01.01.2020
-
-Инженерные образцы процессоров Intel Comet Lake-S замечены в Китае
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Характеристики инженерных образцов процессоров Comet Lake-S в последние дни активно обсуждаются по мотивам появления слайдов из официальных презентаций Intel, но фотографии реальных экземпляров воодушевляют аудиторию гораздо сильнее. По крайней мере, можно убедиться, что подготовка к анонсу процессоров в исполнении LGA 1200 действительно ведётся. К выходным упоминания (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

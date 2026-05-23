@@ -1,3 +1,84 @@
+###  Публикация: 1072827   (349237) от 14.11.2016
+
+ProgTV Android 2.26.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ProgTV - простое, но удобное и универсальное приложение для просмотра TV и прослушивания радио через Internet или локальную сеть.Тип издания: бесплатноРелиз состоялся: 04.11.2016Разработчик: Andrey Borodin (Prog)Поддерживаемая ОС: Android 4.0.3 и вышеЯзык интерфейса: русский, английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A8228814458C8CF048D2EAED94B3659E804254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314113   (348234) от 24.10.2020
+
+OpenVPN v0.7.21 [En/Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Создание и использование виртуальных приватных сетей на Android. OpenVPN для Android является клиентом с открытым исходным кодом. Он использует VPNService API из Android 4.0+ и не требует ни Jailbreak, ни прав root в телефоне. OpenVPN является клиентским программным обеспечением для подключения к серверу с установленным и настроенным OpenVPN. Поддерживается только (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 26.09.2020Разработчик: Arne SchwabeПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF448F011B5A0D4DC03028711861EB4138F148B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073301   (347396) от 15.11.2016
+
+Prisma 1.1.63 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Prisma превращает ваши фотографии в произведения искусства, используя стили популярных художников: Ван Гога, Пикассо, Левитана, а также известных узоров и орнаментов.
+
+Уникальное сочетание нейронных сетей и искусственного интеллекта поможет превращать ваши памятные моменты в настоящие шедевры.
+(   Читать дальше...   )Тип издания: бесплатноРелиз состоялся: 06.11.2016Разработчик: Prisma Labs, inc.Поддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: русский, английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649E14920F5CF2B212CA766CE8FC479EFB39B013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394262   (347222) от 22.09.2022
 
 ImageMeter - photo measure v3.6.2 (1) Mod by Kirlif' [Ru/Multi]
@@ -6,7 +87,7 @@ ImageMeter - photo measure v3.6.2 (1) Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Manual Camera Pro : DSLR Camera HD Professional v2.9D [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +139,7 @@ SkySafari 6 Pro v6.7.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +165,7 @@ TikTok v17.7.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +191,7 @@ InstaSave v1.3.3 [Ru/Multi] - загрузки фото и видео из Insta
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +217,7 @@ Boat Browser 8.7.6; Mini 6.4.6 [Ru] - Браузер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +245,7 @@ Ace Stream Media 3.1.11.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +299,7 @@ Barcode Scanner v4.7.4 / Barcode Scanner+ v1.12.2 [Ru/Multi] - Сканер шт
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +325,7 @@ Learn Languages with Music 2.1.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +353,7 @@ Business English by BEP 1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +379,7 @@ Fluenz 2.6.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +405,7 @@ Comica v1.41 [En] - превратить фотографии в комиксы 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +431,7 @@ Forvo Pronunciation Guide 4.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +459,7 @@ Meditopia: Сон и Медитация v3.7.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +486,7 @@ Zello рация v4.75 [Ru/Multi] - Интернет-рация
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +565,7 @@ AR Plan 3D Ruler v3.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +593,7 @@ zetaTorrent Pro 3.7.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +619,7 @@ En16 2019.819.2020.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A340B304F37DC25E67D9E76F3456B51A2A65AC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420550   (332049) от 01.11.2020
-
-Яндекс Go v4.0.1 [Ru/En] — Такси, Доставка, Драйв, Продукты, Еда (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яндекс Go - приложение для заказа такси, еды, продуктов, доставки посылок, аренды машин и просмотра расписания транспорта. Это единое приложение, которое помогает людям решать повседневные задачи в городе — быстро и точно в срок. Поехать, отправить, забрать, заказать — раньше на каждое действие нужно было открывать разные сервисы, а теперь вы сможете делать всё это (   Читать дальше...   )Тип издания: Пиратка (Mod: удалена лишняя аналитика. Работает быстрее)Релиз состоялся: 15.08.2020Разработчик: Yandex AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610EA904330B94D16C2A3F68CE2073B4BF6E587A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886339   (331799) от 12.11.2015
-
-Orbot 15.0.1 RC-3 [Ru/Multi]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Защита конфиденциальных данных в сети Интернет.
-Tor – это кросс-платформенное ПО с открытым исходным кодом, задачей которого является защита от «прослушивания» и обеспечение конфиденциальности персональных и деловых данных, передаваемых в глобальной сети. Продукт обеспечивает полную анонимность клиентов при посещении веб-сайтов, публикации материалов, отправке сообщений (   Читать дальше...   )Тип издания: лицензияРелиз состоялся: 2014Разработчик: The Tor ProjectПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский, английский, итальянский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7F635B95318B07B02A488C2DEF6381CB03A5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944994   (330104) от 14.11.2015
-
-tTorrent Pro 1.5.4.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330104.jpg" />
-</div>
-
-
-###  Подробнее
-
-tTorrent Pro - популярный торрент-клиент для вашего андроид устройства. С помощью которого вы получаете возможность как раздавать, так и скачивать файлы.Тип издания: ПираткаРелиз состоялся: 11 ноября 2015 г.Разработчик: tagsoftПоддерживаемая ОС: Android Зависит от устройстваЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA9EBFEFDA449EF1E3A281AA03801F1E46ACF77
 ```
 
 https://mybot314.ru/tekegram_catalog/

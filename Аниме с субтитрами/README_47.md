@@ -1,3 +1,110 @@
+###  Публикация: 1510035   (732591) от 06.02.2022
+
+Blade Runner: Black Lotus | Бегущий по лезвию: Чёрный лотос [2021, TV, 13 эп.] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Девушка по имени Эль оказывается в Лос-Анжелесе будущего, она помнит лишь своё имя и адрес дома, но город изменился до неузнаваемости. Единственная зацепка - странное устройство у неё в руках, но и оно не торопится раскрывать свои секреты.
+
+Перед просмотром рекомендуем сперва посмотреть спешел.Производство: Студия Sola Digital ArtsЖанр: приключенияРежиссер: Арамаки СиндзиПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5207610B95F30DD6E98DD4217B992CD66D31E3D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529908   (731875) от 08.02.2022
+
+Bakuon!! | Мотоклуб [2016, TV, 12 эп.+2OVA+4SP] BDRip 720p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сакура Ханэ - самая обычная ученица женской школы. Ей надоело каждый день преодолевать на велосипеде крутые подъёмы, и вот - совершенно случайно! - она знакомится со своей одноклассницей Амано Онса, лихо гоняющей по дорогам на мотоцикле. А в школе обнаруживается старый мотоклуб, которым руководит странная Райму-сэмпай, никогда не снимающая свой шлем. Сакура с энтузиазмом (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: комедия, повседневностьРежиссер: Нисимура ДзюндзиПеревод: Elven_TankmanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 2OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD82972CF384908C5C617DC966792D93C767F6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127244   (731724) от 21.04.2017
+
+Bishoujo Senshi Sailor Moon R / Sailor Moon R Movie: Promise of the Rose + SP / Красавица-воин Сейлор Мун Эр Фильм + SP [1993, Movie] BDRip 1080p 10bit HEVC raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Когда Мамору был маленьким, он дал розу маленькому мальчику по имени Фиоре. Фиоре пообещал, что однажды он принесет Мамору много цветов. Теперь Фиоре вернулся на землю, но его намерения состоят не только в том, чтобы выполнить обещание...
+Отреставрированная не стареющая классика аниме.Производство: Студия Toei Animation / 東映アニメーションЖанр: приключения, романтика, махо-сёдзёРежиссер: Икухара КунихикоПеревод: Dr.Bars; iншыЯзык озвучки: Японский и английскийСубтитры: Английские, РусскиеПродолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9600F3CADC0D217B6CC1E7C6B2DFD2F16297E9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 666494   (731673) от 09.06.2013
+
+Kazemakase Tsukikage Ran / Carried by the Wind: Tsukikage Ran / Перекати-поле Цукикагэ Ран [2000, TV, 13] DVDRip 527p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Два персонажа: пьяница-самурай Цукикагэ Ран и ее взбалмошная подруга Мяу "Кошачья лапка" - ходят по Японии и из серии в серию напарываются на всяческие переделки. В основном переделки заключаются в том, что герои становятся свидетелями грязных делишек разбойников, грабителей, воров, похитителей и прочих подобных деятелей. А уж став свидетелями, обе героини (   Читать дальше...   )Жанр: комедия, самурайский боевикРежиссер: Дайти АкитароСубтитры: •Продолжительность: 13 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3F8C5AF140CE2A3D93D325EB980EEB8C9D445E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602051   (731391) от 08.02.2022
 
 Amnesia / Амнезия [2013, TV, 12] HDTV 720p raw
@@ -6,7 +113,7 @@ Amnesia / Амнезия [2013, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ Haitai Nanafa | Привет Нанафа [ТВ-2]  [2013, TV, 13 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ Fate/Kaleid Liner Prisma Illya Zwei! | Судьба: Девочка-волшеб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +217,7 @@ Classroom Crisis | Кризис в классе [2015, TV, 13 + 1sp] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +243,7 @@ Kuma miko | Kumamiko: Girl Meets Bear | Жрица и медведь [2016, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +269,7 @@ E's Otherwise / Зовите меня Е [2003, TV, 26] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +295,7 @@ Hamatora The Animation / Хаматора [2014, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +321,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +347,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +373,7 @@ Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +399,7 @@ Kotoura-san | Котоура [2013, TV, 12 эп. + 6SP] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +425,7 @@ Gin no Saji | Silver Spoon | Серебряная ложка [2013, TV, 22] BDRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +451,7 @@ Miyakawa-ke no Kuufuku | The Miyakawa Family's Hunger | Голодные сёс�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +477,7 @@ Sakurasou no Pet na Kanojo | The Pet Girl of Sakurasou | Кошечка из С�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +503,7 @@ Mahou Shoujo Lyrical Nanoha Vivid | Magical Girl Lyrical Nanoha Vivid | Лири
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +529,7 @@ Tokusou Senshatai Dominion / New Dominion Tank Police / Доминион: Сок
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +555,7 @@ Radiant | Радиант [2018, TV, 21] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +581,7 @@ Ensemble Stars! | Звёзды ансамбля! [2019, TV, 24 эп.] WEBRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +607,7 @@ Hakkenden: Touhou Hakken Ibun 2 / Hakkenden - Eight Dogs of the East S2 / Хак
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +633,7 @@ Kidou Senshi Gundam 00 | Mobile Suit Gundam 00 | Мобильный воин Г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +659,7 @@ Slow Start / Медленный старт [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,112 +670,6 @@ Slow Start / Медленный старт [2018, TV, 12] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:342D696483CBCF6ED90D5643309BCF28C09E2ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399867   (724851) от 02.08.2020
-
-Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020, Movie] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гоблины слывут лёгкой добычей не просто так — размерами, силой и умом они практически не отличаются от детей. Именно поэтому охота на них считается отличным способом набить руку в авантюрном деле. Этим и руководствуется Жрица, присоединяясь к отряду новичков, чтобы отправиться в пещеру гоблинов. Впрочем, вскоре новоиспечённые авантюристы осознают, как жестоко они (   Читать дальше...   )Производство: студия White FoxЖанр: приключения, фэнтезиРежиссер: Одзаки ТакахаруПеревод: CrunchyRoll; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: РусскиеПродолжительность: 60 мин. + 25 мин. пересказа сериала
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54872DDB9C48E50DF921CF7B253A211C17F7B54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399868   (724706) от 02.08.2020
-
-Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гоблины слывут лёгкой добычей не просто так — размерами, силой и умом они практически не отличаются от детей. Именно поэтому охота на них считается отличным способом набить руку в авантюрном деле. Этим и руководствуется Жрица, присоединяясь к отряду новичков, чтобы отправиться в пещеру гоблинов. Впрочем, вскоре новоиспечённые авантюристы осознают, как жестоко они (   Читать дальше...   )Производство: студия White FoxЖанр: приключения, фэнтезиРежиссер: Одзаки ТакахаруПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2C7553EA12161E53F7528BD01FD3633FA52FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531284   (724574) от 14.02.2022
-
-Dororon Enma-kun: Meeramera | Ghastly Prince Enma Burning Up | Доророн Енма-кун зажигает [ТВ-2] [2011, TV, 12 эп.] BDRip 720p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему по Японии должны гулять и наводить собственный порядок только синтоистские или христианские силы зла? В позднюю эпоху Сёва (1970-е гг.) Энма-О, повелитель буддийского мира мертвых, решил восстановить равновесие и направить в Мир Людей собственный Адский патруль, который будет ловить демонов-отщепенцев и отправлять их обратно. Так как дело это серьезное, то (   Читать дальше...   )Производство: Студия Brains Base / ブレインズ・ベースЖанр: приключения, комедия, этти, фэнтезиРежиссер: Ёнэтани ЁситомоПеревод: Ruswar & RiseЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0D2EE2F0B4CF8D65D853D0A4621E5761FC3271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601150   (723974) от 14.02.2022
-
-Hakkenden: Touhou Hakken Ibun / Хаккенден: Легенда о восьми псах востока [2013, TV, 13 из 13] WebRip 720p Raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демоны, мистика, церковь, кланы, проклятье, псы-воины и некий таинственный клинок "Мурасамэ". Мне уже хватило этих слов, чтобы заинтересоваться данным аниме. Кроме того, автор использует ту же основу, что и в "Хаккэндэн: Легенда о Псах-Воинах" (The Hakkenden: Shin Shou) - интересные романы писателя периода Эдо Такидзавы Бакина.
-
-Мурасамэ - неприкосновенный (   Читать дальше...   )Жанр: приключенияРежиссер: Ямасаки ОсамуПеревод: АманриСубтитры: Тип субтитров: Raw
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494B2D06B0712C8F423F5AE450415624E04AC46C
 ```
 
 https://mybot314.ru/tekegram_catalog/

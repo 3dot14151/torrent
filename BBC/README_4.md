@@ -1,3 +1,29 @@
+###  Публикация: 1380671   (830948) от 04.05.2020
+
+BBC. Нас уже 7.7 миллиардов человек. Дальше - больше / 7.7 Billion People and Counting (2020) HDTV [H.264/1080i]
+
+>>След.
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+По прогнозам ООН, при существующих темпах рождаемости и повышении продолжительности жизни, к 2050 году на Земле будет проживать 10 млрд человек. Сможет ли наша планета обеспечить ресурсами такое количество людей? Сможем ли мы при такой численности вести образ жизни, к которому привыкли развитые страны и стремятся развивающиеся?Производство: Великобритания, Curious Films, BBC Two - HorizonЖанр: Документальный, научно-популярныйРежиссер: Чарли РасселПеревод: Одноголосый закадровый, профессиональный (Русская служба BBC News)Субтитры: отсутствуютПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3426EF355F60417D1E55957FF228B0CCAACC28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544455   (830588) от 05.04.2014
 
 BBC: Живая Природа. Райские птицы / BBC: Natural World. Birds of Paradise (2010) BDRip [H.264/1080i]
@@ -6,7 +32,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Планета Земля / BBC: Planet Earth (2006) [1080p] Blu-ray [4-Dis
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -85,7 +111,7 @@ BBC: Горизонт. Плутон. Восставший из мёртвых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC: Парк извращенцев / Pervert Park (2014) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +243,7 @@ BBC: Факты о вымирании видов с Дэвидом Аттенб�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +271,7 @@ BBC: 9/11. Я там был / 9/11: I Was There (2021) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +299,7 @@ BBC Horizon: Вкусная еда без вреда для планеты / Fea
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +327,7 @@ BBC: Содержанки: настоящая цена спонсорских о
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +353,7 @@ BBC. Панорама: Неонацизм в Германии. Новая вол
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +406,7 @@ BBC: Жизнь / Life (10 серий из 10) (2009) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +435,7 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +461,7 @@ BBC. "Испанка". Грипп, унесший 50 миллионов жизн
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +487,7 @@ BBC. Полиамория: Любовь без границы / Louis Theroux's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +513,7 @@ BBC: Планета Земля / Planet Earth (2006) [HDRip] [11 серий из
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +542,7 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +568,7 @@ BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +596,7 @@ BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,7 +622,7 @@ BBC. Тропические островки Земли / Earth's Tropical Islan
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,7 +648,7 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +674,7 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -668,32 +694,6 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CA308C0AC4DAA2DED5F1DBF19E3986DF008BD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198104   (809988) от 10.01.2018
-
-BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017) DVB [H.264/1080i]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых больших музыкальных фестивалей Европы, организованный BBC Radio 1. С каждым годом звездный лайнап растет, хотя куда уж дальше. В 2017 на фестивале выступили Кэти Перри, Kings of Leon, Clean Bandit, The Chainsmokers, Эмели Санде, Рита Ора, Лорд, Kasabian, Bastille, Шон Пол, Imagine Dragons и многие другие.Телекомпания: Великобритания / BBC Music, BBC Radio 1, BBC Visual RadioЖанр: Документальный, МузыкаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: РусскиеПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA562569CF76B1E7741675791699C55E52741BB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

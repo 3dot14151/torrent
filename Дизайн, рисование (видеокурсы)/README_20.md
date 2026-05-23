@@ -1,3 +1,86 @@
+###  Публикация: 1492741   (900455) от 31.08.2021
+
+Rohan Dalvi | Ornamental Designs in Houdini Part 1 (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы рассмотрим различные процедурные методы создания декоративных паттернов и элементов в Houdini. Это и стандартное процедурное моделирование, и использование L-систем, и разрушение по Вороному.
+Основная цель обучения - попробовать процедурно создать разнообразные декоративные элементы, чтобы облегчить процесс моделирования сложных паттернов.Жанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 02:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C815388BA50B19F6EE21340DDCFD108849D0C4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492728   (900335) от 31.08.2021
+
+School of Motion, Joey Korenman | FreelanceU (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Курс «Стань фрилансером» - это 4-х часовая презентация, в которой я подробно рассказываю об инструментах работы фрилансера. Даю пошаговую инструкцию, как начать собственный бизнес в качестве независимого специалиста и получить возможность самостоятельно распоряжаться своим временем.
+
+Фрилансу можно научиться. Существуют разные инструменты и приемы, которые позволяют (   Читать дальше...   )Производство: School of MotionЖанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A322A6C1FF25E904D1AF699F427BAC1E72600C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369698   (899893) от 25.03.2020
+
+Udemy | Секреты фотореализма в Blender 2.8 / The Secrets to Photorealism: The PBR Blender 2.8 Workflow (2019) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В Blender 2.8 есть множество опций доступных художникам для рендеринга. Однако большинство новичков не понимают, как использовать эти возможности в полной мере. Ваши материалы выглядят плоскими или однообразными? Вот некоторые причины, по которым этот курс был бы очень полезен для вас:
+- Улучшите качество ваших рендеров
+- Создайте любой материал, которое вы можете (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат VTT)Продолжительность: 02:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E97D95A715CE1C06E36C88C7AA8A2FBB8BF9843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492957   (898758) от 01.09.2021
 
 SVS, Will Terry | Draw 50 Things (2017) PCRec [En, Ru]
@@ -6,7 +89,7 @@ SVS, Will Terry | Draw 50 Things (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +116,7 @@ The Art Of Aaron Blaise, Ronnie Williford | Taking Control of Color with Ronnie 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +143,7 @@ Andy Anderson | Adobe Photoshop CC Tutorials for Beginners (2014) PCRec [H.264] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +171,7 @@ Rohan Dalvi | Houdini 17 New Erosion node (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +197,7 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +224,7 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 1 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +251,7 @@ Allegorithmic, Wes McDermott | Substance in Unreal Engine 4 (2015) PCRec [En, Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +278,7 @@ Rohan Dalvi | Introduction to Vex for Visual Effects in Houdini (2017) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +304,7 @@ Udemy, Erindale Woodford | Procedural Materials in Blender 2.9 (2021) PCRec [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -249,7 +332,7 @@ Digital Tutors, Joshua Kinney | Creating Animal Fur for Games in Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +360,7 @@ Digital Tutors, Alex Tuzhikov | Modeling an Interior Scene from Photo Reference 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +386,7 @@ ArtClever, Тина Хабарова | Курс «Декоратор» [LITE в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -330,7 +413,7 @@ Lynda.com | Основные принципы дизайна логотипа (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +439,7 @@ Udemy | Архитектурный дизайн и анимация в Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +465,7 @@ Rohan Dalvi | Shader building in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +492,7 @@ CG Cookie | Понимание данных Blender / Understanding Blender Data
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +519,7 @@ CG Cookie | Производственный дизайн в Blender 2.8 и  Eev
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +546,7 @@ CG Cookie | Основы анимации в Blender 2.8 / Fundamentals of Anima
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +574,7 @@ CG Cookie | Анимация пламени с помощью Grease Pencil в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +600,7 @@ CG Cookie | Создание и анимация низкополигональ�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -544,7 +627,7 @@ CG Cookie | Создание анимированного игрового Sci-F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,7 +653,7 @@ ArtStation, Bailey Facer | Violent Seduction – Tempeste Set Creation (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -599,7 +682,7 @@ Domestika, Karmen Loh | Lighting and Color for Digital Portraits in Photoshop (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -611,84 +694,6 @@ Domestika, Karmen Loh | Lighting and Color for Digital Portraits in Photoshop (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D1929D54AA5DD23AC182D21D6375A4AF2C779C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371659   (888149) от 01.04.2020
-
-CG Cookie | Создание процедурных песчаных дюн в Blender 2.8 / Creating Procedural Sand Dunes with Blender 2.8 (2019) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершите путешествие в пустыню с помощью этого видеокурса Blender 2.8. Вы узнаете гибкий рабочий процесс для создания реалистичных песчаных дюн. Пусть Blender сделает моделирование за вас с помощью процедурного смещения текстуры и адаптивным подразделением (микро-смещением).Производство: CG CookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BA764A9C954537B660F97B4611F4464217BE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371661   (888107) от 01.04.2020
-
-CG Cookie | Риггинг трансформирующейся винтовки в Blender 2.8 / Rigging a Transforming Rifle in Blender 2.8 (2019) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте как настроить риг для сложной винтовки в Blender, которая превращается в снайперскую винтовку! Весь эффект полностью контролируется одной костью, так что его будет очень легко анимировать. Если вы можете настроить эту винтовку, вы можете настроить почти любое оружие, которое вы можете придумать. Здесь вы узнате много об арматуре, осях вращения, костных ограничениях, (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделирование, АнимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EE70461426C54E18FF3D8F2785D915DB23A2DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371663   (888092) от 01.04.2020
-
-CG Cookie | Анимация оружия персонажей от первого лица в Blender 2.8 / Animating First Person Character Weapons in Blender 2.8 (2019) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот учебный курс по Blender покажет вам как именно анимировать оружие для шутера от первого лица, от простого стояния до сложных действий, таких как перезарядка и превращение винтовки в снайперскую.Производство: CG CookieЖанр: 3D моделирование, АнимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 05:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6D154CE66773924934B5F2F9A0921D4E745FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

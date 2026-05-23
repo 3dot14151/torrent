@@ -1,3 +1,30 @@
+###  Публикация: 1462277   (1021259) от 13.04.2021
+
+BBC. Уродливая красота / Ugly Beauty (2009) DVB
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+"Красота есть во всем, но не всем дано это видеть". (Конфуций)
+Влиятельные арт-критики утверждают, что красота исчезает из современного искусства. Это побудило их на публикации целого цикла книг, в которых говорится, что современное искусство уже не в состоянии продемонстрировать настоящую красоту. Искусствовед Вальдемар Янушчак категорически не согласен (   Читать дальше...   )Производство: Великобритания, ZCZ Films, British Broadcasting Corporation (BBC)Жанр: Документальный, арт-хаус, концептуальное искусствоРежиссер: Вальдемар ЯнушчакПеревод: Двуголосый закадровый, профессиональный (Селена интернешнл)Субтитры: отсутствуютПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668D8091F84E7BE58CE965FC7826460EC57D1425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463124   (1020535) от 17.04.2021
 
 BBC. Идеальная планета / A Perfect Planet (2021) UHD BDRip [H.265/2160p] [HDR, 10-bit] (сезон 1, серии 1-5 из 5)
@@ -6,7 +33,7 @@ BBC. Идеальная планета / A Perfect Planet (2021) UHD BDRip [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +60,7 @@ Discovery. Автомир Майка Брюера / Mike Brewer's World of Cars 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +86,7 @@ BBC. Шпион в снегах: Тайны снежных обитателей 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +112,7 @@ BBC. Экватор с Воздуха / Equator from the Air (2020) HDTV [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +139,7 @@ BBC. Google и всемирный мозг / Google and the World Brain (2013) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +165,7 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +191,7 @@ BBC: Горизонт. Хаббл. Открытие тайн космоса / Ho
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +243,7 @@ BBC. Тайные правила современной жизни: Алгори
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +269,7 @@ BBC. Королева Виктория и её девять детей / Queen V
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +295,7 @@ BBC. Связанные: Шесть ступеней отдаления / Connec
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +322,7 @@ BBC: Не могу выбросить тебя из головы / Can't Get You
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +348,7 @@ BBC: Винсент Ван Гог. Живопись в словах / Vincent Va
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +374,7 @@ BBC: Глобальное потепление: факты / Climate Change: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +400,7 @@ BBC: Серенгети / Serengeti (2019) WEB-DL [H.264/1080p] (сезон 1, �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +426,7 @@ BBC: Серенгети / Serengeti (2019) BDRemux [H.264/1080i] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +452,7 @@ BBC: Жизнь / Life (2009) BDRip [H.264/1080p] (серии 10 из 10)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +478,7 @@ BBC: История Шотландии с Нейлом Оливером. Пос�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +505,7 @@ BBC: История Шотландии с Нейлом Оливером. Мол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +532,7 @@ BBC: История хирургии. Обретение лица [4 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +559,7 @@ BBC: Сокровища Древней Греции / Treasures of Ancient Greec
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +612,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -637,7 +664,7 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -648,32 +675,6 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:921DBF5CC3D09E0CBD9442ED9CE0DC0D6D4164F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358635   (968560) от 08.02.2020
-
-BBC: Живой мир: Бегемоты - жизнь в воде / Natural World: Hippos: Africa's River Giants (2019) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бегемот - воплощенное противоречие. Большую часть времени он проводит в воде. Не хищник, но, в то же время, самое опасное животное в Африке, которого опасаются даже львы. Двухтонный гигант, способный бежать со скоростью оленя. С виду наивный и безмятежный, на самом деле коварен и агрессивен. Бегемоты шумны, враждебны, но в то же время смелы, чувствительны и забавны... (   Читать дальше...   )Производство: Icon Films, Natural History FilmЖанр: Документальный, ФаунаРежиссер: Брэд БестелинкПеревод: Одноголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7F71BAED8D9C1329F917D987B084FCD6901126
 ```
 
 https://mybot314.ru/tekegram_catalog/

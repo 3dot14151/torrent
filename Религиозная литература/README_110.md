@@ -1,3 +1,109 @@
+###  Публикация: 1433410   (156947) от 21.12.2020
+
+Ю. Коннова (сост.) | Брак - пристань целомудрия. По творениям святителя Феофана Затворника (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой сборник изречений святителя Феофана Затворника, относящихся к семейной жизни христианина. В своих творениях святитель Феофан учит нас тому, какие должны быть побуждения при создании семьи; на каких основах она должна созидаться и каковы должны быть взаимоотношения супругов с Богом, друг с другом, с родителями и со своими детьми. Те (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A807248A9691D8DC29059EF3734A856CED09E30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269644   (156772) от 19.12.2018
+
+Юлия Латынина | Иисус. Историческое расследование (2018) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Иисус Христос был. Сам факт его существования не выдумка, не миф. Его существование доказывает множество документов. Но насколько реальный Иисус соответствовал образу, старательно создававшемуся библеистами в течение без малого двух тысяч лет?
+
+Известный журналист и публицист Юлия Латынина провела собственное историческое расследование, которое перевернет ваши представления (   Читать дальше...   )Жанр: Религия, СамопознаниеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8E174B7ABF06BADFA592407B87B0BF0E501B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085625   (156518) от 22.12.2016
+
+Юрген Ролофф | Введение в Новый Завет (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Книга известного немецкого библеиста Юргена Ролоффа – одно из лучших современных введений в Новый Завет. В сжатой форме она знакомит с ранними преданиями об Иисусе, легшими в основу евангельских сюжетов, дает уникальную информацию о литературном своеобразии, содержании и богословском значении новозаветных писаний. Особую задачу автор видит в том, чтобы сделать понятными (   Читать дальше...   )Жанр: БиблеистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7731F86D16ABC1B3BE81E95D0F46DCF00C13B8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193869   (155886) от 25.12.2017
+
+Праведный Алексей Мечёв, Священномученик Сергий Мечёв | Духовный азбуковник. Благодать посреди ада (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Алфавитный сборник вошли высказывания и поучения двух святых, двух московских священников, отца и сына: праведного Алексия Мечёва (1829-1923) и священномученика Сергия Мечёва (1892-1942). Отец Алексий, известный московский священник начала XX века, проповедник, пастырь, при жизни почитался как старец. Скончался в 1923 г. Попечение об общине о. Алексия перешло к (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB559E54452338D1B320613BDC5758C8181F514F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518460   (155872) от 19.12.2021
 
 Прп. Исаак Сирин | Слова подвижнические (2012) [PDF, DJVU]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -302,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -330,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -358,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -387,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -415,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -467,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -493,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -519,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -545,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -571,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,112 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD0D246BDB04AD40941FFD4408F5860CCF76CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738948   (151069) от 26.12.2013
-
-Сергей Сергеевич Глаголев | Материя и дух (1906) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об цели написания книги «Материя и дух» автор говорит так: «Люди принимают материалистический или спиритуалистический взгляд по многообразным и сложным причинам. Рассматривать всю эту сложность условий, определяющих мировоззрение людей, мы не будем. Мы ограничимся более узкою задачею. Мы попытаемся исследовать: для какого мировоззрения—материалистического или спиритуалистического (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD43A9B6DE3335CCD3415CA354C855A8A6061A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738655   (150941) от 26.12.2013
-
-Прот. И.Н. Бухарев | Книга для начального обучения Закону Божию (1905) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для начального обучения Закону Божию дома и в начальных училищах. С приложением самых программ и при этом объяснительных записок, способов преподавания и отдела по церковно-славянскому чтению, с словарем.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FCA667515DA72BBE11CA763C599F08AD633EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738965   (150930) от 26.12.2013
-
-Митрофан Дмитриевич Муретов | Философия Филона Александрийского в отношении к учению Иоанна Богослова о Логосе (1885) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальный труд М. Д. Муретова «Философия Филона Александрийского в отношении к учению Иоанна Богослова о Логосе» показал, что взгляды знаменитого александрийского мыслителя послужили «пред-уготовлением к христианскому теизму». В то же время в работе отмечается, что сходство между учением о Логосе у Филона и Иоанна Богослова лишь внешнее. «Иоанновская идея самооткровения (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3879E7FFE7E28BF9024851EF5037C88E68C70D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677685   (150563) от 18.11.2023
-
-Благовест | Канон святому мученику Уару (2013) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Церковь издревле почитает святого мученика Уара. К его предстательству прибегают, испрашивая ходатайства о здравии младенцев и малолетних детей, а также, и особенно, испрашивая облегчения участи душ умерших родственников, не сподобившихся Святого Крещения, и младенцев, умерших во чреве матери или при родах.
-
-Брошюра будет полезна для всех, кто имеет любовь и дерзновение (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A80C26B1AD3DE1BF57684E58FD5BD432EB06417
 ```
 
 https://mybot314.ru/tekegram_catalog/

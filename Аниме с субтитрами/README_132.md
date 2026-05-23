@@ -1,3 +1,107 @@
+###  Публикация: 1805422   (1738) от 21.09.2025
+
+Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Обморочный герой и принцессы-убийцы [2025, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Герой по имени Тото сильный, но очень застенчивый, и поэтому у него вечные проблемы с созданием команды, отчего он никак не может покинуть стартовый город. А в присутствии женщин он и вовсе падает в обморок при первых признаках флирта. Но однажды три красавицы — Силь, Анемона и Гор — сами предлагают ему объединиться с отряд. Только вот на самом деле каждая из коварных (   Читать дальше...   )Жанр: комедия, приключения, фентези.Режиссер: Акитая НориакиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57199210AB537B99DE9D92F33EE590093C9B063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804330   (1716) от 21.09.2025
+
+Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтный peпeтитop гepцoгини [2025, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+He пoлyчив paбoтy cвoeй мeчты пpи кopoлeвcкoм двope, мнoгooбeщaющий мaг Aллeн xoчeт вepнyтьcя к пpocтoй жизни в ceльcкoй мecтнocти. K нecчacтью, y нeгo нeт дeнeг дaжe нa дopoгy. Чтoбы пoдзapaбoтaть, oн пpинимaeт caмoe oчeвиднoe peшeниe — ycтpoитьcя нa paбoтy, нo нe нa aбы кaкyю, a peпeтитopoм дoчepи гepцoгa Гoвapдa, oднoгo из caмыx влиятeльныx двopян кopoлeвcтвa. (   Читать дальше...   )Жанр: фентези.Режиссер: Нагаяма НобуёсиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E134A72F00FA5E2483A5C7BBC04AE54B7F1AF0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805734   (1687) от 21.09.2025
+
+Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Одним дождливым днём девушка встречает странное животное на обочине дороги, немного похожее на собаку, но не совсем. Чтобы доказать дружелюбие и милоту, существо предлагает девушке зонтик. Заинтригованная, она берёт зверька домой, и они начинают жить вместе…Производство: LespritЖанр: повседневностьРежиссер: Tsukimisato TomohiroПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9861B750DF33C696543F3022B5EB75C4E969F698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805200   (1542) от 22.09.2025
+
+Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Момо Аясэ верит в духов и призраков, но считает, что НЛО и пришельцы — полнейшая чушь и выдумки. Однажды она заводит дружбу с парнем из школы по прозвищу Окарун (настоящее его имя вслух лучше не произносить), который уверен в прямо противоположном. Чтобы доказать друг другу, что оппонент неправ, оба отправляются в знаковые для противных лагерей места: Момо — в точку, (   Читать дальше...   )Производство: Студия Science Saru / サイエンスSaruЖанр: Экшен, приключения, комедияРежиссер: Ямасиро ФугаПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC15C3CD06D88A596134D179C789A84C7AEDD60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805710   (1530) от 22.09.2025
 
 Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +110,7 @@ Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, T
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Uglymug, Epicfighter | Busamen Gachi Fighter | Всё тот же невзрач
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Nyaight of the Living Cat / Night of the Living Cat / Ночь живых кош
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Hotel Inhumans | Отель для нелюдей [2025, TV, 12 из 13] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 (2025) | �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +271,7 @@ Kakkou no Iinazuke Season 2 | A Couple of Cuckoos Season 2 | Обручённы�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +297,7 @@ Turkey! / Turkey! Time to Strike / Tёpки! [2025, TV, 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +323,7 @@ Osomatsu-san (2025) | Осомацу-сан [ТВ-4] [2025, TV, 12 из 13 эп.
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +350,7 @@ Dr. Stone: Science Future | Доктор Стоун [ТВ-4] [2025, TV, 24 эп.
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +376,7 @@ CITY the Animation | Город [2025, TV, 12 из 13] WebRip 1080p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +402,7 @@ Mizu Zokusei no Mahou Tsukai / The Water Magician / Маг воды [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +428,7 @@ Bad Girl / Плохая девочка [2025, TV, 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +454,7 @@ Mushoku no Eiyuu: Betsu ni Skill Nanka Iranakattanda ga / Hero Without a Class: 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +480,7 @@ Silent Witch: Chinmoku no Majo no Kakushigoto / Secrets of the Silent Witch / М
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +506,7 @@ Anne Shirley | Энн Ширли [2025, TV, 24 эп.] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +532,7 @@ Yofukashi no Uta Season 2 | Песнь ночных сов [ТВ-2] [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +558,7 @@ Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +584,7 @@ Isekai Mokushiroku Mynoghra / Apocalypse Bringer Mynoghra / Апокалипси
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Game Center Shoujo to Ibunka Kouryuu / Cultural Exchange with Game Center Girl /
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +663,7 @@ Seishun Buta Yarou wa Santa Claus no Yume o Minai / Этот глупый сви
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -572,59 +676,6 @@ Seishun Buta Yarou wa Santa Claus no Yume o Minai / Этот глупый сви
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:651882BDEE403DF28CB0D85F2F7B7D7745A41B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820582   (311) от 28.09.2025
-
-Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ [2025, TV, 0 из 13] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проснувшись после долгого криогенного сна, старшеклассник Акира Химегами оказывается в мире, который он больше не узнает. Город лежит в руинах после войны, обществом теперь управляет организация под названием OWEL, а традиционный брак заменен новой системой, известной как «Элси».
-Пока Акира пытается понять это радикально изменившееся будущее, перед ним появляется (   Читать дальше...   )Производство: P.A. Works / ピーエーワークスЖанр: приключенияРежиссер: Цуда НаокацуПеревод: DonateЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE0F66FB6C7B6ED9D22918F0AF8B1786E095025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820521   (286) от 28.09.2025
-
-Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шальной последний босс явился! [2025, TV, 1 из 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луфас Мафаал правит землей Мизгарз железной рукой. Человечество не имеет никаких шансов победить самое могущественное существо в мире и ее армию верных слуг — пока группа героев не побеждает ее в эпической битве, запечатывая ее душу на всю вечность. Но это всего лишь еще один день в Exgate Online. Луфас — аватар игрока и легенда среди фанатов. Она даже затмевает (   Читать дальше...   )Производство: студия Wao World / ワオワールドЖанр: приключения, фэнтезиРежиссер: Хориути ЮяПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C02F67FDEBAB5648F105A77B2315A9CE01F0556
 ```
 
 https://mybot314.ru/tekegram_catalog/

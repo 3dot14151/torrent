@@ -1,3 +1,110 @@
+###  Публикация: 616817   (969261) от 14.02.2013
+
+Угнать за 60 секунд / Gone in 60 Seconds (1974) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Его работа — кража автомобилей. Его последний контракт: угнать 40 машин за одну неделю. Но полицейские не желают мириться с ролью статистов — захватывающая гонка начинается!Жанр: Боевик, Драма, КриминалРежиссер: Г.Б. ГалицкиПродюсер: Г.Б. ГалицкиАктеры: Г.Б. Галицки, Мэрион Бусиа, Jerry Daugirda, Джеймс Макинтайр, Джордж Коул, Рональд Галицки, Батч Стоктон, Фил ВудсПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB12A98751E772D99BBDFDAB5FBDF097A9D73EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976701   (968707) от 18.01.2016
+
+Кольт-за-подвязкой / Giarrettiera Colt (1968) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Авантюристка Лулу по прозвищу «Кольт-за-подвязкой» приезжает в маленький техасский городок на границе с Мексикой, рассчитывая хорошенько поживиться с помощью карточного шулерства. Тем временем, здесь разворачиваются нешуточные страсти. Местный бандит, по кличке «Рыжий», держащий в страхе все окрестное население, обещает генералу мексиканских повстанцев партию оружия. (   Читать дальше...   )Производство: Италия / Columbus CinematograficaЖанр: ВестернРежиссер: Джан РоккоАктеры: Николетта Макиавелли, Клаудио Камазо, Уолтер Барнс, Мариса Солинас, Джаспер Зоула, Сильвана Баччи, Франко Буччери, Эльвира Кортезе, Изабелла ГидоттиПеревод: Одноголосый закадровый (erogg)Субтитры: ОтсутствуютПродолжительность: 01:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140020232FDE73366889E689CEC516065B3151DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355612   (968627) от 08.02.2020
+
+Белые ночи / Le notti bianche (1957) BDRip H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной повести Ф.М. Достоевского.
+Молодой итальянец Марио встречает русскую девушку Наталью с удивительно милым лицом и светлым взором и безумно влюбляется в нее. Бабушка Натальи, почти слепая содержательница меблированных комнат, неусыпно и очень строго следит за внучкой. К разочарованию влюбленного Марио, девушка помолвлена с мужчиной средних лет, (   Читать дальше...   )Производство: Италия, Франция / Cinematografica Associati (CI.AS.), Rank Film, Vides CinematograficaЖанр: Драма, мелодрамаРежиссер: Лукино ВисконтиАктеры: Мария Шелл, Марчелло Мастроянни, Жан Маре, Елена Фанчера, Анджело Галасси, Ренато Терра, Коррадо Пани  и др.Перевод: Многоголосый профессиональныйСубтитры: Русские, английские, итальянскиеПродолжительность: 01:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8B9065A261803D59B890FA31C0D1656D4C00D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443091   (968014) от 14.01.2014
+
+Крупный калибр / Tony Arzenta (1973) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Тони Ардзента — хладнокровный и неуловимый наемный убийца, работающий на могущественный криминальный синдикат, «лучший» в кровавом «бизнесе». Когда Тони неожиданно сообщает своим боссам, что очередной заказ — его последнее дело, после которого он планирует завязать, они, недолго посовещавшись, выносят ему смертный приговор.
+
+Но по трагической случайности вместо Тони (   Читать дальше...   )Жанр: Боевик, Триллер, ДрамаРежиссер: Дуччо ТессариАктеры: Ален Делон, Ричард Конте, Карла Гравина, Марк Порель, Роже Анен, Николетта Макиавелли, Гуидо Альберти, Лино Троизи, Сильвано Транквилли, Коррадо Гайпа...Перевод: Многоголосый закадровыйПродолжительность: 01:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F666E99E25AFDAB8560FDCBE274F9C5BF6173F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971260   (967757) от 19.01.2016
 
 В укрытии / Run for Cover (1955) DVDRip [H.264] [AVO]
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -572,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:148E98B91C55D928CB49FE1CF8904FD20C167009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972031   (959528) от 26.01.2016
-
-Петулия / Petulia (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959528.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Джона Хааса в адаптации Барбары Тёрнер. Немолодой хирург из Сан-Франциско Арчи Боллен, намедни бросивший жену и двоих детей, встречает на скучной ему вечеринке смешную девчонку с лепестковым именем Петулия, также утомленную своим шестимесячным замужеством. Она тащит его в мотель. Говорит, что должны пожениться. Экспериментирует с жизнью, пока наконец богатый (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Драма, мелодрама, экранизацияРежиссер: Ричард ЛестерАктеры: Джули Кристи, Джордж К. Скотт, Ричард Чемберлен, Артур Хилл, Ширли Найт, Пиппа Скотт, Кэтлин Уиддоуз, Роджер Боуэн, Ричард А. Дайсарт, Рут Кобарт, Джозеф Коттен, Эллен Гир, Лу Гилберт, Нэйт Эсформс, Мария Вэл, Винсент Ариас, Эрик УайссПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2623606C73F842E5FC56E0471D5E15E874580A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453231   (959417) от 26.01.2016
-
-Дорогой мамочке в день рождения / Alla mia cara mamma nel giorno del suo compleanno (1974) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959417.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме показана трагедия богатого аристократического семейства, в центре которой графский сын — Дидино, уже зрелый мужчина вечно опекаемый мамой. Ее любовь к нему настолько велика что она готова контролировать любой его шаг, не желая понимать что мальчик уже давно созрел и готов и хочет любить. Да еще и в доме появляется новая служанка. Тут то и все и начинается.Производство: Италия / Rusconi Film S.p.a.Жанр: КомедияРежиссер: Лучано СальчеАктеры: Паоло Вилладжо, Лиля Кедрова, Элеонора Джорджи, Антонино Фаа Ди Бруно, Ренато Кьянтони, Орхидея Де Сантис, Гуидо Чернилья, Кармине Феррара, Карла Манчини, Энцо СпиталериПеревод: Одноголосый закадровыйПродолжительность: 01:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3D18C12F980EA413D1F83AD7DB6E0342376ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748274   (958456) от 22.01.2014
-
-Тройной крест / Triple Cross (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учтивый, остроумный, смелый, красивый и крайне аморальный английский взломщик сейфов Эдди Чапман берется за самые невероятные дела и с блеском их проводит. Он грабит дворцы и замки богатых вельмож с такой легкостью и выдумкой, что, кажется, любой желающий может сделать так же. Он ведет красивую жизнь плейбоя, общается с самыми изысканными красавицами Старого и Нового (   Читать дальше...   )Жанр: Приключения, Военный, ДрамаРежиссер: Теренс ЯнгАктеры: Кристофер Пламмер, Роми Шнайдер, Тревор Ховард, Герт Фрёбе, Клодин Оже, Юл Бриннер, Жорж Ликан, Джесс Хан, Гарри Мейен, Джил БарберПеревод: Одноголосый закадровыйПродолжительность: 02:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFD652CAAA36832A66917B15CEE008E5AF63C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748480   (958453) от 22.01.2014
-
-Гром небесный / Le tonnerre de Dieu (1965) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бриссак, старый нотариус и по совместительству ветеринар, который одинаково любит и животных и напитки, мизантроп и анархист, живет в своем загородном особняке вместе с женой, незаметной, тихой, привыкшей к странностям и капризам мужа.
-Бриссак любит приводить в свой дом бродячих собак, грязных мусорщиков, уличных девчонок — одним словом, чуть ли не всех несчастных (   Читать дальше...   )Жанр: Комедия, ДрамаРежиссер: Дени де Ла ПательерАктеры: Жан Габен, Мишель Мерсье, Робер Оссейн, Лилли Палмер, Жорж Жере, Эмма Даниели, Эллен Швирс, Нино Винджелли, Даниэль Секкальди, Луи АрбесьеПеревод: ДублированныйПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05086F62BC5E46E06FB20BA1998D2933F9F2D389
 ```
 
 https://mybot314.ru/tekegram_catalog/

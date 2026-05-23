@@ -1,3 +1,107 @@
+###  Публикация: 1785115   (9501) от 03.08.2025
+
+Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+От создателей культового хита Scratches и мистической Serena - новое леденящее душу путешествие в самые тёмные глубины вашего разума. ASYLUM - это амбициозное хоррор-приключение от первого лица, погружающее вас в психоделическую атмосферу Психиатрической Лечебницы Ханвелл. В роли бывшего пациента, страдающего от странных видений, вам предстоит исследовать запутанную (   Читать дальше...   )Тип издания: LicenseРазработчик: SenscapeЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F2D47C86267001A451237FDFC72D13DF8F09AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810287   (9459) от 03.08.2025
+
+One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Лихо одноглазое» - это мистический хоррор от первого лица по мотивам мрачной народной сказки. Исследуйте таинственный мир игры и разгадывайте загадки, чтобы скрыться от своей лихой доли. Отправляйтесь в захватывающее путешествие по сказочным царствам и изучите странный мир забытых преданий. Погрузитесь в завораживающий кинематографичный черно-белый мир.Тип издания: RepackРазработчик: MorteshkaЖанр: Приключенческие игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31BA18C12082D08A659EF39A9696A8F7A7E94DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810112   (9438) от 03.08.2025
+
+South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Создатели игр Contrast и We Happy Few представляют South of Midnight - захватывающее приключение от третьего лица, разворачивающееся среди пейзажей Глубокого Юга США. Играя за Хейзел, вы погрузитесь в мифы и легенды и познакомитесь с таинственными созданиями южного фольклора в этом мрачном и причудливом мире. Когда на ее родной город обрушивается катастрофа, Хейзел (   Читать дальше...   )Тип издания: RepackРазработчик: Compulsion GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BB50294C7BE7BAF1EA88577866A638FB551ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808738   (9433) от 03.08.2025
+
+Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Еще на заре времен народы Башни перестали понимать друг друга и утратили единство. Согласно преданию, однажды некий Путник найдет в себе мудрость разрушить барьеры и восстановить баланс. Изучайте загадочный мир, давно забывший свое прошлое, и откройте для себя его тайны. Действие игры происходит в красочном поэтичном антураже, навеянном мифом о Вавилонском столпотворении. (   Читать дальше...   )Тип издания: LicenseРазработчик: RundiscЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A279299A2B4EF72C7484FDF9721123048CF467EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810254   (9419) от 03.08.2025
 
 Forest 6174 (2025) [Ru/Multi] (build 19378140) Repack seleZen
@@ -6,7 +110,7 @@ Forest 6174 (2025) [Ru/Multi] (build 19378140) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Copycat (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ PEAK (2025) [Ru/Multi] (1.11.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Echo Paradox (2025) [En] (19081580) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Sou
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Lucy Dreaming (2022) [Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Tall Trails (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Necrophosis (2025) [Ru/Multi] (Build 19486897) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Luto (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Forgotten 23 (2025) [Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.06.18.12/dlc) Repack Fit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Roottrees are Dead (2025) [Multi] (20250717) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.48) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Cabernet (2025) [Multi] (1.1.19) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Cabernet - ролевая 2D-игра в антураже Восточной Е�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FC97676327EB19B5C8458A2ED060D741C50B888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753815   (7956) от 14.08.2025
-
-Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучайте новые здания и локации – в некоторые из них нельзя было попасть в оригинальной игре, а некоторые впервые появились в ремейке. Насладитесь знаменитым сюжетом, взглянув при этом на Сайлент Хилл по-новому благодаря расширенной карте.Тип издания: RepackРазработчик: Bloober Team SAЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F301152E03740EB4AD9F57BFEF708433C8B50495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799045   (7940) от 14.08.2025
-
-Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7940.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли Кулебры (Kulebra) вы исследуете Лимбо (Limbo, так же "Чистилище"), яркую загробную жизнь с латиноамериканским нотками, полную опасностей, интриг, юмора, коварства и глубоких, мрачных тайн. Вы будете использовать множество приемов и навыков, чтобы помочь разноцветным (в буквальном смысле) обитателям Лимбо принять их проблемы, связанные с потерями, (   Читать дальше...   )Тип издания: LicenseРазработчик: GallaЖанр: Приключенческие игры, ИндиЯзык интерфейса: Английский, Испанский (Латинская Америка)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72D87B63C9D602B6964BB3EA32B2F3181C30403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812335   (7931) от 14.08.2025
-
-BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжетная приключенческая игра, сочетающая в себе экшен и расследования так, как никогда ранее. Используешь ли ты свой острый ум или кулаки? В футуристичном мире, где животные заняли место людей, привилегированные горожане живут под Куполом, защищающим их от загрязненной окружающей среды, в то время как остальные изо всех сил борются за выживание.Тип издания: RepackРазработчик: COWCATЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80E9B4663D472151823D2BA95B30FD27E44F6B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812515   (7754) от 15.08.2025
-
-Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за глобального катаклизма портовая служба решает расконсервировать старый маяк, чтобы сохранить судоходство. Герой отправляется на остров, чтобы стать смотрителем маяка. От его решений зависит судьба кораблей и города. Дома его ждут жена и дочь. С каждой ночью служба на маяке становится всё хуже.Тип издания: RepackРазработчик: solarsuit.gamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C560C51B13BE5023BF5E2E0D254C6E5B318C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

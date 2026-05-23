@@ -1,3 +1,83 @@
+###  Публикация: 1834488   (250429) от 03.11.2025
+
+HiPER Calc Pro v11.2.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Мощный и стильный научный калькулятор с обширными настройками внешнего вида. В наличии несколько удобных тем оформления, построение графиков и возможность поделиться подробным результатом вычислений в виде изображения. Поддерживается смена системы счисления. Реализовано вычисление превеликого числа функций.Тип издания: Pro / ModРелиз состоялся: 02.11.2025Разработчик: HiPER LabsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44918A2E95B0525C0932774186A77699ADDFEF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834394   (250404) от 03.11.2025
+
+Sky Words: Слова из Букв v1.4.1 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Sky Words – это игра в слова, которая приглашает вас в расслабляющее путешествие по миру слов! Отдохните от стресса и решите каждый кроссворд бесплатно! Угадай слово и прими настоящий вызов на каждом уровне игры! 🧠 Ваша задача – искать слова из букв! Звучит просто, не так ли? Однако игра приготовила для вас немало сюрпризов. Готовы к ментальному вызову?Тип издания: ModРелиз состоялся: 01.11.2025Разработчик: Malpa GamesПоддерживаемая ОС: Android 8.0+Жанр: Словесные игрыЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B407A5BAD5D7F9CD13D6C06E0CA551E3015965F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834478   (250403) от 03.11.2025
+
+Zoo Match / Три в Ряд: Зоопарк и Животные v1.9.5 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+🐻 Добро пожаловать в совершено новую и бесплатную игру Три в Ряд: Зоопарк и Животные!
+🐼 Как вам идея открыть собственный зоопарк? Здесь вас ждут интересные головоломки три в ряд и множество необычных красочных животных!
+Комбинируйте предметы в игре три в ряд, чтобы создать идеальный зоопарк для милых животных!Тип издания: ModРелиз состоялся: 02.11.2025Разработчик: LinkDesks Daily PuzzleПоддерживаемая ОС: Android 5.1+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE397BBC6581DC12DD6FF02F7721E5DFE8D9851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834476   (250402) от 03.11.2025
 
 OsmAnd+  Карты & GPS Офлайн v5.2.7 Mod by Balatan [Ru/Multi]
@@ -6,7 +86,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +112,7 @@ Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +138,7 @@ Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +164,7 @@ Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +190,7 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -162,7 +242,7 @@ GO Weather EX Premium 6.162 Mod by Balatan, tasker67 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -214,7 +294,7 @@ Meditopia: Сон и Медитация 3.24.0 Mod by ApkDone Team [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +320,7 @@ Screen Stream Mirroring Pro 2.7.0c Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +346,7 @@ PhotoLayers v4.0.0 [En/Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +372,7 @@ Garmin: TOPO Sweden v6 PRO [Sv]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +398,7 @@ Garmin: TrekMap Italia v6 PRO [It]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -370,7 +450,7 @@ Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) 3.8.0.101 Mod by Valik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +476,7 @@ OD VPN - Fast & Stable Server Premium v3.5.1 b3501 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -423,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -449,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -475,7 +555,7 @@ Seven / 7 Минут Упражнение v9.24.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -501,7 +581,7 @@ Gallery - Photo Gallery, Album (XGallery) v2.0.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -527,7 +607,7 @@ AirBrush: ИИ Фоторедактор v7.19.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -553,7 +633,7 @@ BikeComputer Pro v9.2.4 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -579,7 +659,7 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -590,84 +670,6 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDF509C0DEB89392F51EF0B974E9B34B3A2CD04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834360   (249046) от 03.11.2025
-
-Цифровое ТВ v4.3.4 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66F88CCC2213F8691903DD86F9814D80EAC382B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833974   (248601) от 02.11.2025
-
-Ventusky: Прогноз погоды v48.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A5B4F7E5A4EF46FDE10920EBB05D3BC8966A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833984   (248599) от 02.11.2025
-
-BlockSudoku / Кудоку-Вуди Блок v2.6.3 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Wood Block Sudoku Game – игра судоку с использованием кубиков. Игра сочетает в себе классическую головоломку и судоку. Простая и вместе с тем захватывающая игра. Кубики можно располагать не только по рядам, но также и по секторам 3 на 3. Wood Block Sudoku Game предлагает самые разные варианты сбора кубиков.Тип издания: ModРелиз состоялся: 02.11.2025Разработчик: Oakever GamesПоддерживаемая ОС: Android 7.0+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B174B9D9220CCD1BA05BBFAD799D4D0FFE0752C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

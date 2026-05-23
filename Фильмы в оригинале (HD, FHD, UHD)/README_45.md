@@ -1,3 +1,81 @@
+###  Публикация: 1258428   (335994) от 30.10.2018
+
+Царь Скорпионов: Книга Душ / The Scorpion King: Book of Souls  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Царь Скорпионов объединяется с женщиной-воином Талой, сестрой Короля Нубии. Вместе они ищут легендарную Книгу Душ. Эта книга поможет им положить конец господству Лорда Войны.Производство: США / Universal 1440 EntertainmentЖанр: фэнтези, боевик, приключенияРежиссер: Дон Майкл ПолАктеры: Зэк МакГоун, Нэйтан Джонс, Питер Менса, Кэти Луиз Саундерс, Перл Туси, Ховард Чарльз, Нг Мэйлин, Инге Бекманн, Стефани Шилдкнект, Такс Тэд Лунгу, Мэттью Ван ЛеевеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F1B4DB5BD8679F60B01B5781110DF24AB8BCFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181352   (334941) от 06.11.2017
+
+Взрывная блондинка / Atomic Blonde  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Агент Лоррейн Бротон, бриллиант в короне Секретной разведывательной службы Ее Величества, не просто мастер шпионажа: она бомбически сексуальна, взрывоопасна и использует весь арсенал своих уникальных умений во время невыполнимых миссий. В неспокойном Берлине, куда ее направляют с заданием вернуть бесценное досье, она вынуждена объединиться с агентом под прикрытием (   Читать дальше...   )Производство: Германия, Швеция, США / 87Eleven, Closed on Mondays Entertainment, Denver and Delilah Productions, Film i Väst, Focus Features, Sierra, Affinity, T.G.I.M FilmsЖанр: боевик, триллер, детективРежиссер: Дэвид ЛитчАктеры: Шарлиз Терон, Джеймс МакЭвой, Эдди Марсан, Джон Гудман, Тоби Джонс, Джеймс Фолкнер, Роланд Мюллер, София Бутелла, Билл Скарсгард, Сэм Харгрейв, Йоуханнес Хёйкьюр Йоуханнессон, Тиль ШвайгерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EEF2972E22163A5DF5A84D1A7282D9A57E31D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180489   (334769) от 06.11.2017
+
+Валериан и город тысячи планет / Valerian and the City of a Thousand Planets (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2700 год. Валериан и Лорелин — космические спецагенты, которые по долгу службы впутались в подозрительное дело и стали невольными участниками то ли межгалактического заговора, то ли аферы причудливых поселенцев планеты Альфа, прибывших туда из различных миров со всех уголков галактик.Производство: Франция, Китай, Бельгия, ОАЭ, США, Германия, Великобритания, Канада / EuropaCorp, Fundamental Films, Grive Productions, Gulf Film Novo Pictures, Orange Studio, River Road Entertainment, TF1 Films Production, Universum Film (UFA)Жанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Люк БессонАктеры: Дэйн ДеХаан, Кара Делевинь, Клайв Оуэн, Рианна, Итан Хоук, Херби Хэнкок, Крис У, Сэм Спруэлл, Ален Шаба, Рутгер ХауэрПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (форсированные, полные (отдельным файлом))Продолжительность: 02:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC6A5EB2795EDA8272EBCA7F911A11AA2172B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257023   (334116) от 31.10.2018
 
 Царь скорпионов 5: Книга душ / The Scorpion King: Book of Souls (2018) WEBRip [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:679AD064CA844A722F995A59468671FE347381A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260275   (311622) от 07.11.2018
-
-Мег: Монстр глубины / The Meg  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоководный батискаф, осуществляющий наблюдение в рамках международной программы по изучению подводной жизни, был атакован огромным существом, которое все считали давно вымершим. Неисправный аппарат теперь лежит на дне глубочайшей впадины Тихого океана... с оказавшимся в ловушке экипажем. Их время на исходе. Китайский океанограф-новатор, несмотря на протесты его (   Читать дальше...   )Производство: США, Китай / Apelles Entertainment, Di Bonaventura Pictures, Flagship Entertainment Group, Gravity Pictures, Maeday ProductionsЖанр: ужасы, фантастика, боевик, триллерРежиссер: Джон ТёртлтаубАктеры: Джейсон Стэйтем, Ли Бинбин, Рэйн Уилсон, Клифф Кёртис, Уинстон Чао, Шуя Софиа Цай, Руби Роуз, Пейдж Кеннеди, Роберт Тейлор, Оулавюр Дарри Оулафссон, Джессика МакНэми, Маси ОкаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, португальские, испанскиеПродолжительность: 01:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F171325141273A611C5BFBECF83EB1E29965B509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260512   (311384) от 07.11.2018
-
-Окончательный счёт / Final Score  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311384.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о бывшем солдате, которому предстоит спасти многотысячный стадион зрителей, собравшихся на футбольном матче и взятых в заложники вооружёнными бандитами. Герою придётся вспомнить своей военный опыт, чтобы обезвредить преступников и исполнить долг перед павшим товарищем, чья дочь также оказалась среди возможных жертв.Производство: Великобритания / Signature Films, Drybake Final Score, Highland Film Group, Ingenious Media, thefyzzЖанр: боевик, триллерРежиссер: Скотт МаннАктеры: Дэйв Батиста, Пирс Броснан, Рэй Стивенсон, Мартин Форд, Аарон МакКаскер, Ральф Браун, Амит Шах, Люси Гаскелл, Крэйг Конуэй, Виктория Брум, Лара ПикПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE375A079E409F8C4AB4E25CD3C0C9407A11B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260414   (311180) от 07.11.2018
-
-Миссия невыполнима: Последствия / Mission: Impossible - Fallout (2018) WEB-DL [H.264/1080p-LQ] [IMAX, EN , EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итан Хант и его команда, а также недавно примкнувшие к ним союзники, вынуждены действовать наперегонки со временем, когда новая миссия идет не по плану.Производство: США, Bad Robot, Paramount Pictures, Skydance Productions, TC ProductionsЖанр: Боевик, Триллер, ПриключенияРежиссер: Кристофер МакКуорриАктеры: Том Круз, Ребекка Фергюсон, Генри Кавилл, Мишель Монахэн, Ванесса Кирби, Уэс Бентли, Саймон Пегг, Анджела Бассетт, Алек Болдуин, Винг РеймзПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6470FB8A083FB2E2CBD5C3468DFF8F1C69879CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

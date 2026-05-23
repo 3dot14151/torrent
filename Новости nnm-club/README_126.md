@@ -1,3 +1,190 @@
+###  Публикация: 908546   (631123) от 15.06.2015
+
+Дмитрий Рус | Исход (2015) [MP3]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Человечество заигралось с виртуальностью, и виртуальность стала играть людьми…
+Земля дорого платит по счетам и щедро умывается кровью — опустела Африка, обезлюдела Австралия. Границы обитаемых анклавов стремительно сжимаются. Мир дрожит под поступью демонов, вторгшихся на нашу планету из трех реальностей – «Друмира», «Дьябло» и «Героев Меча и Магии».
+Как поступить (   Читать дальше...   )Жанр: Фантастический боевик, ЛитРПГПродолжительность: 09:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4428D83BD2CD6A2356D315D6ACDB956770F4DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908733   (631102) от 15.06.2015
+
+Adobe Muse CC 2015.0.0.597 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse CC – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, English и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48DDE0796E9D3173B95ACFED3BF00651FCBCF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912097   (630917) от 10.04.2022
+
+Последний корабль / The Last Ship (2015) WEB-DLRip (сезон 2, серии 1-13 из 13) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экипаж эсминца ВМС США «Натан Джеймс» с двумя первоклассными микробиологами на борту долгое время находился в море с важной миссией. Благодаря этой вынужденной изоляции от остального мира команда корабля избежала заражения смертельным вирусом, который вырезал больше половины населения земного шара. Когда эта новость достигла «Натана Джеймса», среди членов экипажа (   Читать дальше...   )Производство: США, Channel Road Productions, Platinum Dunes, TNT OriginalsЖанр: фантастика, боевик, триллер, драмаРежиссер: Пол Холахан, Джек Бендер, Питер УэллерАктеры: Эрик Дэйн, Адам Болдуин, Чарльз Парнелл, Трэвис Ван Винкл, Марисса Нейтлинг, Джоко Симс, Кевин Майкл Мартин, Кристина Элмор, Michael Curran-Dorsano, Бен ЧоПеревод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3A6212CB7E80696269B79EC325CBE298DA8AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520447   (630353) от 09.07.2012
+
+Test Battlefield BC 2 Multiplayer only [Ru] (Rip) 2010 | Nexus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Тестовая версия игры для открытой тест группы.
+
+Только для владельце аккаунта, которые успели зарегистрироваться по ссылке http://sso.emulatornexus.com/register.php или http://emulatornexus.com/forum/ucp.php?mode=register
+Для желающих протестировать, комментарии (без флуда) просьба сразу в тему.(   Читать дальше...   )Тип издания: RipЖанр: Action, 3D, 1st persoonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035088   (629807) от 15.07.2016
+
+Adobe Media Encoder CC 2015.3 (v10.3) Multilingual
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Media Encoder CC 2015.3 - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Язык интерфейса: Английский / Голландский / Испанский / Итальянский / Китайский (упрощенный) / Китайский (традиционный) / Корейский / Немецкий / Польский / Португальский / Русский / Турецкий / Французский / Чешский / Шведский / Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91D0D17C13436D7957C09814A529686C7243C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952964   (629792) от 15.07.2016
+
+Singularity (2010) [Ru] (1.1) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каторга-12 — советский научный центр, расположенный на небольшом острове у побережья Камчатки. В результате неудачного эксперимента остров попал во временную ловушку и теперь постоянно перемещается между 1950 и 2010 годами. Оказавшись в этом странном, постоянно меняющемся месте, где внезапно происходят скачки во времени, игроки пройдут серьезные испытания. Используя (   Читать дальше...   )Тип издания: RepackРазработчик: Raven SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E696B20CF8333EA9474138E5E869DD291AF043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035213   (629790) от 15.07.2016
+
+Navitel / Навител Навигатор v9.6.2674 Full и другие  [Ru/Multi] - только программа навигации
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 15.07.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B77F3862654BF10B7E2BEFB619448F48857E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909007   (629129) от 16.06.2015
 
 Kerish Doctor 2015 4.60 DC 20.04.2015 RePack by D!akov (Upd. 16.06.2015) [Multi/Ru]
@@ -6,7 +193,7 @@ Kerish Doctor 2015 4.60 DC 20.04.2015 RePack by D!akov (Upd. 16.06.2015) [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +219,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +246,7 @@ ELEX II (2022) [Ru/Multi] (1.03) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +272,7 @@ CyberLink PowerDVD Ultra 17.0.1808.60 RePack by qazwsxe [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +298,7 @@ Adobe After Effects CC 2017 (v14.2.1) Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +376,7 @@ Profileschool | Adobe Photoshop. Коммерческая ретушь (2013) PC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +430,7 @@ Ryse: Son of Rome (2014) [Ru] (1.0.0.153/upd3/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +456,7 @@ Navitel / Навител Навигатор v9.6.2674 RePack [Ru/En] - толь�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_627387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +562,7 @@ Phase One Capture One Pro 12.0.3.22 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +588,7 @@ Norton Security 22.5.0.120 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +616,7 @@ Realtek High Definition Audio Driver 6.0.9273.1 WHQL (x64) (Unofficial) [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +642,7 @@ Hearthstone Heroes of Warcraft-v2.7.9166 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +668,7 @@ Garmin: City Navigator Europe NT 2016.10 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,198 +679,6 @@ Garmin: City Navigator Europe NT 2016.10 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33181FC2EFBFFA09B505CA561546E2629995209D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909452   (627038) от 17.06.2015
-
-System Shock 2 (1999) [Multi] (2.4) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе ситуацию: вы один. Вокруг вас — тёмные коридоры огромного космического челнока, на стенах и полу которых кровь, трупы. Женский безэмоциональный голос приказывает вам следовать дальше, но что может ждать вас за поворотом? Спасение, или смертельная ловушка вышедших из под контроля мутантов? Как бы там ни было, спасения не откуда ждать, и в этой ситуации (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Irrational Games,	Looking Glass StudiosЖанр: Ролевой шутер от первого лица, классика киберпанкаЯзык озвучки: Английский, немецкийЯзык интерфейса: Английский, немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91618429E0C5EC281B0D924A0CAE02C139570DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909027   (627033) от 17.06.2015
-
-Pybursa.com | Профессиональные Python курсы online (2014) PCRec+CamRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наибольшей проблемой всех учебников и статей, по которым начинают
-изучать Python - это отсутствие практики с освоенным материалом.
-Можно читать тонны ресурсов по веб-программированию на Python - и
-не научиться ничему, потому что знания, которые вы не успели применить,(   Читать дальше...   )Жанр: Разработка, ПрограммированиеПродолжительность: 35:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0461CF11D75192B1F33B62A66507C06BEDBC1655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889424   (627027) от 17.06.2015
-
-Игра престолов / Game of Thrones (2015) WEBRip (сезон 5, серии 1-10 из 10) (RG.paravozik)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война умыла кровью семь королевств. Победители ликуют, а проигравшие оплакивают близких и готовят план мести. Жестокой и коварной мести, которая страшнее даже самых свирепых драконов.Производство: США, Великобритания / Bighead Littlehead, Created By, Generator Entertainment, Home Box Office (HBO), Television 360Жанр: фэнтези, драма, приключенияРежиссер: Алан Тейлор, Даниэль Минахан, Дэвид НаттерАктеры: Лина Хиди, Питер Динклэйдж, Мишель Фэйрли, Эмилия Кларк, Кит Харингтон, Николай Костер-Валдау, Иэн Глен, Эйден Гиллен, Элфи Оуэн-Аллен, Мэйси Уильямс, Софи Тёрнер, Джек Глисон и др.Перевод: Двуголосый закадровый, любительский - RG.paravozikОзвучка / Автор перевода: Валерий Смекалов, Екатерина КостинаПродолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA94BCB311EA6CF76B87E8FFDFBEA7EABDF3C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144456   (626912) от 22.06.2017
-
-V-Ray 3.50.04 for 3ds Max 2015-2017 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626912.jpg" />
-</div>
-
-
-###  Подробнее
-
-V-Ray — мощный инструмент визуализации, поддерживающий Depth of Field (глубина резкости), Motion Blur (эффект «размытия» в движении), Displacement (карта смещения, с увеличением детализации трехмерных объектов). Кроме этого, V-ray имеет собственные источники освещения, систему солнце-небосвод для реалистичного освещения естественным светом, и физическую камеру с (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5FE998289A964B2FF8BD107FB66058E46E2685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349852   (626873) от 14.06.2011
-
-Юрий Петухов | Сборник произведений (1983-2009) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_626873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Петухов родился в Москве. В 1969—1971 гг. служил в Советской армии в Южной группе войск (Венгрия). В 1971 году вышел из рядов ВЛКСМ по идейным соображениям. В 1972—1985 гг. работал в НИИ оборонных отраслей. В 1983 году вышла первая книга Петухова «Через две весны».
-
-В 1990—1991 гг. романами-антиутопиями «Бойня» и «Сатанинское Зелье» Петухов открывает (по собственным (   Читать дальше...   )Жанр: Фантастика, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350832   (626861) от 14.06.2011
-
-Alice: Madness Returns [Multi6-] (DL) 2011
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alice: Madness Returns является сиквелом первой части игры, в котором вас ждет захватывающий сюжет, увлекательный игровой процесс и красивая графика.
-
-События в Alice: Madness Returns развернутся спустя 10 лет после окончания сюжета оригинала. Проведя 10 лет в психиатрической лечебнице, Алиса наконец-то выходит на свободу. Под надзором психиатра она должна избавиться (   Читать дальше...   )Тип издания: Лицензия (цифровая)Разработчик: Spicy HorseЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский, Итальянский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6759D158F7BC59A6C7524511B65E91586286BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 134098   (626792) от 17.07.2010
-
-Бумбокс - 7 Альбомов + Графiт + DJ Valik + Acoustic Swing Band (2003 - 2010) [MP3|128 - 320 kbps]<Reggae>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_626792.jpg" />
-</div>
-
-
-###  Подробнее
-
-История группы Бумбокс начинается, конечно, не в Киеве, а в Черкассах. В 1999 году я, Алексей Согомонов и Андрей Хлывнюк познакомились при смешных обстоятельствах.Список альбомов:
-2005 - Меломанія
-2006 - Family Бiзнес
-2007 - Тримай(   Читать дальше...   )Жанр: ReggaeПродолжительность: Кодек: MP3
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

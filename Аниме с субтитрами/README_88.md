@@ -1,3 +1,107 @@
+###  Публикация: 1333306   (305253) от 24.10.2019
+
+Akage no Anne | Anne of Green Gables | Энн из Зеленых Мезонинов | Энн из Зеленых Крыш [1979, TV, 50 из 50] BDRip 720p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Энн — сирота и большая фантазёрка. Обретя новый дом, она показывает всем его обитателям, что в каждом взрослом всегда теплится детская непосредственность. История охватывает период становления героини из одиннадцатилетней девочки в семнадцатилетнюю барышню. За то время, что она посещает школу, заводит друзей, бесконечно исследует окружающий мир, её уникальный характер (   Читать дальше...   )Производство: Nippon Animation / 日本アニメーションЖанр: повседневность, драмаРежиссер: Такахата ИсаоПеревод: Music Cat + LanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4AC5FD3469A6B7A426D70E0CE0674E908F76A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 419158   (304218) от 06.12.2011
+
+Hoshi o Ou Kodomo | Hoshi wo Ou Kodomo | Children Who Chase Lost Voices | Ловцы забытых голосов [2011, Movie] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Асуна - школьница, которая очень рано потеряла отца и теперь живет с мамой. Дома большую часть времени она проводит сама, так как мама работает в госпитале на ночных сменах. В школе у нее очень хорошая успеваемость, но друзей не так уж и много. Вечера она проводит на склоне холма, слушая старое радио с помощью кристалла, который достался ей в память о папе. Однажды (   Читать дальше...   )Производство: студия CoMix Wave Inc. / コミックス・ウェーブ・フィルムЖанр: приключения, фэнтези, романтикаРежиссер: Синкай МакотоПеревод: Lighter235 & Octagon (Advantage)Язык субтитров: Русский, АнглийскийПродолжительность: 1 эп. по 116 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F681EFD947D701903E17BB0E086459FC71A3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261658   (303276) от 11.11.2018
+
+Clione no Akari | Lights of the Clione | Свет морского ангела [2017, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История рассказывает о больной и постоянно подвергающейся унижениям сироте Минори. Одним дождливым днём она не появляется в школе, потому что её поместили в больницу в другом городе. Проходит два месяца, и двое школьных друзей Минори - Такаси и Кёко - получают по электронной почте письмо без указания отправителя. В письме содержится лишь информация о летнем фестивале, (   Читать дальше...   )Жанр: повседневностьРежиссер: Исикава НаояПеревод: AniPlay; BOOMКарамельЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 9 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F07FA0EA8C9CF1CA0C44BDD6AA8E2F340FB97CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183824   (303207) от 16.11.2017
+
+Love Live! The School Idol Movie | Живая любовь! (фильм) [2015, MV, 1] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма разворачивается во времена, следующие после событий второго сезона, на церемонии вручения дипломов третьегодкам. Зная, что выпускной влечёт за собой завершение существования группы школьных идолов, девять девочек-идолов решают прогуляться вокруг школы, хранящей множество воспоминаний. Но, покидая ворота школы, они получают сообщение на электронную почту, (   Читать дальше...   )Жанр: музыкальный, повседневностьРежиссер: Кёгоку Такахико / Kyougoku Takahiko / 京極尚彦Перевод: YakuSub StudioЯзык озвучки: ЯпонскийПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31BDDF70E79CB191944E6AF1A7534A190329E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261657   (303104) от 11.11.2018
 
 Абсолютная белизна: Девочки-волшебницы | Absolute Whiteness: Magical Girl | Zettai Junpaku: Mahou Shoujo [2012, OVA] BDrip 1080p raw
@@ -6,7 +110,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Eiga Chuunibyou demo Koi ga Shitai! Take on Me | Чудачество любви
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Trinity Seven / Святая Семёрка [2015, OVA, 1] BDRip 720p Hi10P raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ THE iDOLM@STER SHINY FESTA | The Idolmaster: Shiny Festa [2012, OVA, 3 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Frame Arms Girl | Боевые куколки | Вооружённая малы�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Uta Kata | Ута-Ката [2004, TV, 12 эп. + 1 OVA] DVDRip 576p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Slee
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1991-2008
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ The Idolm@ster Xenoglossia | Idolmaster Xenoglossia | Idol Master Xenoglossia | 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ Taboo-Tattoo | Запретная татуировка [2016, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ Slayers Return | Slayers Return | Рубаки (фильм второй) | Ру�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +501,7 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ Alice to Zouroku | Алиса и Дзороку [2017, TV, 12 эп.] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Mugen no Ryvius / Infinite Ryvius / Бесконечное путешестви�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +609,7 @@ Onii-sama e... | Dear Brother | Уважаемый старший брат [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +635,7 @@ DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +661,7 @@ Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Lov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,111 +672,6 @@ Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Lov
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41FD565DD65DEB2D274450E9CCABF529CB18E37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330933   (283911) от 04.11.2019
-
-Be-Bop High School / Старшая школа Би-Боп [1990, OVA 7 эп.] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для двоих хулиганистых задир Хироси и Тору обычные школьные будни мало связаны с учебой. Кому нужна эта скукота? Завести себе подружку — вот действительно важная цель, с которой никак не сравнится получение образования. Проблемы? Нет, эти парни не знают такого слова. Возникли какие-то вопросы? Решение всегда найдется — ведь пара железных кулаков всегда при них. Они (   Читать дальше...   )Жанр: комедия, школа, сёненРежиссер: Арисако Тосихико / Arisako ToshihikoПеревод: 1-3 перевод - hSa / 5-7 перевод - Переводилдо & M3LYN
-4 перевод - Hokuto-san, редакторы: Переводилдо & M3LYN.Язык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (7 эп.), 50 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF0E986E46F8168FB49720E4F39794E469D2771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915532   (283280) от 10.12.2015
-
-Charlotte | Шарлотта [2015, TV, 13 эп.] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие развернётся в мире, где у небольшого процента детей при достижении пубертата обнаруживаются сверхспособности. Главные герои «Шарлотты» состоят в студсовете академии Hoshi No Umi, предназначенной для таких вот юных дарований. Впрочем, самое интересное заключается в другом — каждая сверхспособность поставляется в комплекте с каким-нибудь изъяном. Видимо, чтобы (   Читать дальше...   )Производство: Студия P.A. WorksЖанр: повседневность, сверхъестественноеРежиссер: Асай ЁсиюкиПеревод: 1) Shift (01-09) + I.D.A. (10-13); 2) HorribleSubsЯзык субтитров: 1) Русский; 2) АнглийскийПродолжительность: 13 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F008B56B3D7A701251D8D71653115BB1EA1D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249185   (282479) от 22.11.2018
-
-Rerided: Tokigoe no Derrida | РЕридеД: Деррида, что путешествует во времени [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 2050. Юный инженер-разработчик Деррида Ивэйн получает известность благодаря разработке «автономной машины DZ» в основанной его отцом корпорации «Ребилд». Увы, однажды Деррида и его коллега Натан находят в DZ фатальную ошибку, однако когда они пытаются предупредить начальство об этом, их игнорируют. Зная об опасности, двое друзей всё же решают отложить решение (   Читать дальше...   )Производство: Geek ToysЖанр: приключенияРежиссер: Сато ТакуяПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Немецкие, Испанские, Французские, Итальянские, ПортугальскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B91B82F1BE149F800FEEFA5755C702EC05345A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186916   (282177) от 27.11.2017
-
-Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Confess Your Love Committee | Исполнительный комитет признаний в любви [2016, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нацки Эномото вдруг признается в любви Ю Сэтогути. Но смутившись, забирает свои слова назад и говорит, что это была лишь репетиция перед настоящим признанием.Производство: Qualia AnimationЖанр: повседневность, романтика, школа, комедияРежиссер: Янагисава ТэцуяПеревод: AleX_MytHЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F31B3F4AA7067D52E83FEF29A8F9BDDA19A1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

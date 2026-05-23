@@ -1,3 +1,82 @@
+###  Публикация: 1370797   (894812) от 28.03.2020
+
+Александр Никонов | Экономика на пальцах. Научно и увлекательно (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мы живем, когда согласованно функционируют все клетки нашего организма, когда их слаженная работа дает нам возможность чувствовать себя здоровым и полным сил. Вот и наше общество – такой же социальный организм, где все роли взаимосвязаны и все винтики образуют открытую систему, которую называют экономикой!
+Экономика – это способ жизни общества. Неудивительно в таком (   Читать дальше...   )Жанр: Экономика и правоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A21D913CF18B467E223B83548C70F50EBFBBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370848   (894617) от 28.03.2020
+
+Валентин Витковский | Трейдинг для начинающих. Как стабильно зарабатывать на бирже (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Успешный трейдинг – это стратегия, которую легко адаптировать под рынок. Подход Витковского – математика из трех слагаемых: понимание рынка, психология трейдера и управление капиталом.Жанр: Трейдинг, Ценные бумаги, ИнвестицииФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3381B6867968461B860C077C530B3862228064B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101643   (894144) от 07.02.2017
+
+Сергей Барамба | Крестовый поход ИТ-руководителя (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Тот, кто становится руководителем ИТ-подразделения, начинает своего рода "крестовый поход". У каждого свои собственные цели, но всех объединяет постоянное ощущение череды битв и краткосрочных стычек с пользователями, вечная нехватка времени и ресурсов и маневры элементов вверенной инфраструктуры. Каждый день становится испытанием веры, и только (   Читать дальше...   )Жанр: Информационные технологииФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEA71A405598D23F0B499588609C9C045A4581D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993673   (893453) от 06.03.2016
 
 Е.П. Гарина, В.П. Кузнецов | Разработка сложного высокотехнологичного продукта в промышленности (2015) [PDF]
@@ -6,7 +85,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -300,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -380,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -436,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -464,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -492,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -518,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -544,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -600,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -612,86 +691,6 @@ Apple, Facebook, Microsoft, Samsung, Amazon, Google… Эти компании �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC23133D18E3A074B964ECD307C7CC570789FBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372233   (886895) от 02.04.2020
-
-Прийя Паркер | Мастер ивентов (2019) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посиделки в семейном кругу, утренники в детском саду, классные собрания, школьные вечеринки, свадьбы, корпоративы, международные конференции, деловые презентации, городские ярмарки, похороны… Мы участвуем в мероприятиях всю свою жизнь. Но, к сожалению, многие из них не оставляют в нашей душе никакого следа, не делают нас лучше и не сближают друг с другом. Эта книга (   Читать дальше...   )Жанр: Организационный менеджментФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5FFAB8A7292FF3B08BD925BB21E85687A119B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372050   (886838) от 02.04.2020
-
-Гейл Рэдли | FACEBOOK. Как построить мир, который нам нужен (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apple, Facebook, Microsoft, Samsung, Amazon, Google… Эти компании плотно вошли в нашу жизнь. Мы гуглим все и вся, выстраиваемся в бешеные очереди за яблочными новинками, пропадаем в недрах амазона, лайкаем и репостим на фейсбуке. Технологические компании играют все большую роль в нашей жизни, поглощая умы, время, деньги и человеческие ресурсы.
-В серии «Титаны Успеха» (   Читать дальше...   )Жанр: Просто о бизнесе, Истории успехаПеревод: Д.Е. КасянчукФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E87DC486176D89A5C7ACDE32FDE07DCE201130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372054   (886813) от 02.04.2020
-
-Ив Доз, Кили Уилсон | Nokia. Весь невероятный опыт компании в одной книге (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь опыт компании Nokia в одной книге. Путешествие от крошечной бумажной фабрики до техногиганта, совершившего революцию на рынке мобильных телефонов.
-Узнайте, как оставаться в тренде, развивать продукт в темпе со временем и сделать качество неизменной составляющей восприятия вашего бренда.Жанр: Инновации в бизнесе, Истории успехаПеревод: А. КалининаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA355438494BF6778C1EF9FE6AD396718569E41
 ```
 
 https://mybot314.ru/tekegram_catalog/

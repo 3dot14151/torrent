@@ -1,3 +1,81 @@
+###  Публикация: 1633050   (198443) от 13.05.2023
+
+Air: Большой прыжок / Air (2023) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+1980-е. Продавец кроссовок из фирмы Nike Сонни Ваккаро и соучредитель Nike Фил Найт пытаются подписать контракт с многообещающим спортсменом Майклом Джорданом.Производство: США / Amazon Studios, Artists Equity, Mandalay Pictures, Skydance ProductionsЖанр: драма, спортРежиссер: Бен АффлекАктеры: Мэтт Дэймон, Джейсон Бейтман, Бен Аффлек, Крис Мессина, Виола Дэвис, Джулиус Теннон, Дэмиэн Янг, Крис Такер, Мэттью Мехер, Густаф СкарсгардПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские (SDH) и др.Продолжительность: 01:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB739FBCF5DD07C6AD1FFA1FF74C29E213BAD21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635012   (198040) от 24.05.2023
+
+Король комедии / Hei kek ji wong / King of Comedy (1999) WEB-DLRip [H.264/1080p] [CHI / RUS, ENG, KOR, CHI Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Талантливый актёр никак не может найти признание в профессии и вынужден прозябать в эпизодических ролях. Чтобы дать выход бурлящей творческой энергии, парень даёт уроки актерского мастерства проституткам и решает снять фильм с участием местных гопников.Производство: Гонконг / Star OverseasЖанр: комедия, драма, мелодрамаРежиссер: Стивен Чоу, Ли Лик-ЧиАктеры: Стивен Чоу, Карен Мок, Сесилия Чун, Нг Ман-Тат, Рэймонд Тинь, Алекс Лам, По Чун Чан, Джо Чэн, Ман-Фай Чэн, Винсент ЧикПеревод: ОтсутствуетЯзык озвучки: КитайскийСубтитры: Русские, Английские, Корейские, КитайскиеПродолжительность: 01:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE243F8431B8D2305998E5A432DC8472F17BD962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638851   (197225) от 10.06.2023
+
+Форсаж 10 / Fast X (2023) WEB-DL [H.264/1080p] [EN / RU, EN, Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Семья Доминика Торетто вновь попадает под удар. Сайфер объединяет усилия с Данте, который желает отомстить.Производство: США, Китай / Universal Pictures, One Race Films, Original FilmЖанр: боевик, криминал, детективРежиссер: Луи ЛетерьеАктеры: Вин Дизель, Мишель Родригес, Джейсон Момоа, Тайриз Гибсон, Лудакрис, Джон Сина, Джордана Брюстер, Натали Эммануэль, Сон Ган, Джейсон СтэйтемПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (full, SDH)Продолжительность: 02:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73ACC5C0618837B26B2CC161F4A0DCAEE1B18ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640157   (196943) от 16.06.2023
 
 Тайлер Рейк: Операция по спасению 2 / Extraction 2 (2023) WEB-DL [H.264/1080p] [EN / RU, UKR, EN, Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33A5799F8408F5BFA3ED98BBCCF5A8108FFA8500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591379   (187014) от 18.11.2022
-
-Ламборгини: Человек-легенда / Lamborghini / Lamborghini: The Man Behind the Legend (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187014.jpg" />
-</div>
-
-
-###  Подробнее
-
-История самого дерзкого стартапа в мире суперкаров. Путь страсти, проб и ошибок Ферруччо Ламборгини и его превращения из сына фермера, мастерившего тракторы, в создателя легендарной машины, бросившего вызов самому Энцо Феррари.Производство: Италия, США / Ambi Pictures, Grindstone Entertainment Group, Iervolino & Lady Bacardi EntertainmentЖанр: биография, спорт, драмаРежиссер: Роберт МорескоАктеры: Фрэнк Грилло, Мира Сорвино, Гэбриел Бирн, Элиана Джонс, Ханна ван дер Вестхойзен, Джорджа Пальяччи, Джорджо Кантарини, Франческа Тиццано, Леонардо Чекки, Патрик БреннанПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH)Продолжительность: 01:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E415037468D8BB1960F46F9941180BB9EE256638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827420   (186089) от 21.10.2025
-
-Долгая прогулка / The Long Walk (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186089.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стране проводится ежегодное соревнование «Долгая прогулка», в котором участвуют пятьдесят молодых людей. Они должны идти со скоростью выше пяти километров в час, после трёх нарушений участник выбывает. Главный приз — крупная сумма и исполнение всех желаний до конца жизни.Производство: США / Lionsgate UK, Media Capital Technologies, Vertigo EntertainmentЖанр: триллер, драмаРежиссер: Фрэнсис ЛоуренсАктеры: Купер Хоффман, Дэвид Джонссон, Гарретт Вэрэйнг, Тат Ньюот, Чарли Пламмер, Бен Ван, Джордан Гонсалес, Джошуа Оджик, Марк Хэмилл, Роман Гриффин ДэвисПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F7A5C838D778EC9AA7D4BF2C37C45D2D27F27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664580   (185142) от 26.09.2023
-
-Гран туризмо / Gran Turismo (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заядлый геймер Янн Марденборо, несостоявшийся автогонщик Джейк Солтер и идейный маркетолог Дэнни Мур вместе рискнут всем, чтобы найти своё место в самом элитном виде спорта.Производство: США, Япония / Columbia Pictures, PlayStation Productions, 2.0 EntertainmentЖанр: боевик, драма, приключения, спортРежиссер: Нил БломкампАктеры: Арчи Мадекве, Орландо Блум, Дэвид Харбор, Никхил Пармар, Мэйв Куртье-Лилли, Дэниэл Пуиг, Джимон Хонсу, Джери Халлиуэлл, Даррен Барнет, Джоша СтрадовскиПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full), французские, испанские и др.Продолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11B46D67ED04AA58D74C74F5C807E418EB821AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

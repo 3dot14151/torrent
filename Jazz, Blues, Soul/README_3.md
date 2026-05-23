@@ -1,3 +1,351 @@
+###  Публикация: 1861902   (1062752) от 27.03.2026
+
+Gabe Stillman - What Happens Next? (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  What Happens Next? (3:25)
+02.  Yesterday’s Donuts (3:54)
+03.  The Man I’m Supposed To Be (7:16)
+04.  Someone In My Mirror (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1E94EC16EEAD3235592F6DC256BB77B9A079FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861904   (1062751) от 27.03.2026
+
+Selwyn Birchwood - Electric Swamp Funkin' Blues (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  The Eagle Has Landed (1:28)
+02.  The Church Of Electric Swamp Funkin' Blues (5:05)
+03.  Damaged Goods (6:30)
+04.  All Hail The Algorithm (4:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729A6619EB3BD656D9F1C3EF5B91ED62CA3C4B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861905   (1062750) от 27.03.2026
+
+Mick Kolassa - Blue To The Bone (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  This Getting Old is Getting Old (3:12)
+02.  Bourbon and You (3:00)
+03.  All It Takes is Blues (3:21)
+04.  For Better or For Worse (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0486C4B29E151691FB81DD0217A45E1FBC88272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861907   (1062749) от 27.03.2026
+
+Willie and the Bandits - Salt Roots (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.  Wheal Jane (Full Album version) (4:33)
+02.  Trouble round the bend (3:42)
+03.  King Kong (3:24)
+04.  Style Thing (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFAFA781658162472449197BC15C8892187A362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861309   (1062573) от 25.03.2026
+
+VA - The Detective's Tears (Noir Jazz Compilation) (2026) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Ambient Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Marlowe Dies - Stray Bullets (3:02)
+02. Doomachine Orchestra - Anima Obscura (3:31)
+03. MJJ Jones - Neon Damnation (5:38)
+04. Ancient Talking - No Rest In Past (5:09)(   Читать дальше...   )Жанр: Dark Jazz, Noir Jazz, Ambient JazzПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E00F135D108919C13ED19EDEE51C5C2AB5ACA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861403   (1062507) от 25.03.2026
+
+Ariel Posen - Bannatyne (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Roots Rock, Americana>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  Future Present Tense (3:48)
+02.  Surrender (4:24)
+03.  No Way Out (3:57)
+04.  Dead To Me (3:44)(   Читать дальше...   )Жанр: Blues, Roots Rock, AmericanaПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA9B45A3FC3A1988C13B3A15CEB8DA79959F38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861406   (1062506) от 25.03.2026
+
+Brother James Anderson - My Soul Needs Resting: Great Gospel Blues (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Gospel>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  My Soul Needs Resting (2:23)
+02.  Do Lord (3:06)
+03.  Nobody's Blood Stains (2:51)
+04.  Where Could I Go (3:13)(   Читать дальше...   )Жанр: Blues, GospelПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2F49470A955A65EAB98A2E6D821826B82E84AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861407   (1062505) от 25.03.2026
+
+Doctor´s Order - Good News (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Rock & Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  Come On Everybody (3:48)
+02.  Dangerous Critter (4:25)
+03.  Everyday I Have The Blues (4:46)
+04.  Woke Up This Morning (2:20)(   Читать дальше...   )Жанр: Blues,  Rock & RollПродолжительность: 00:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFF073B0C9B21CFB49934F3EE58BF2EE5FE2CBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861409   (1062503) от 25.03.2026
+
+Kevin & JD - 10 From Another 5 - The Best Of Kevin & JD - Vol. 3 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  The First Stone (4:18)
+02.  Son Of A Gun (3:11)
+03.  Too Much Blues (3:37)
+04.  Dog Gone Blues (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C50488990DA57FCA968B280163356165020FE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861412   (1062500) от 25.03.2026
+
+Matt Backer - Red Guitars (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  Red Guitars (3:26)
+02.  I Can't Stop Myself (3:37)
+03.  Sugar and Cotton (2:54)
+04.  Lord of the Things (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A9A166B17AE870E0CBA4E20B7D91A3D34E079E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861413   (1062499) от 25.03.2026
+
+The BFH Blues Band - Against the Odds (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  Baby (4:22)
+02.  Dyslexic Blues (4:14)
+03.  Doin' Time (4:58)
+04.  Long Gone Train (5:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFFC26B0AC0736AFE185AFF283A4F8EA475B6B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861415   (1062497) от 25.03.2026
+
+Tony Vani - Dawg Gone Blues (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  WILLOW (3:07)
+02.  KOOL KAT HOT DOG (2:27)
+03.  FINALLY HOME (3:07)
+04.  CHI CHI BOBBA LURI (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAA2310033D6DEB32FA1B5CC55F2E14E102C971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861418   (1062496) от 25.03.2026
 
 Vincent J. Rigney - Songs from the Water Tower (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +354,7 @@ Vincent J. Rigney - Songs from the Water Tower (2026) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +383,7 @@ Vandell Andrew - 2.14 (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +412,7 @@ Blues Delight - Nostalgia Notes (2025) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +441,7 @@ Norman Brown - Authentically Norman (2026) [FLAC|Lossless|WEB-DL|tracks] <Smoth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +470,7 @@ Chris Standring - Time of Change (2026) [FLAC|Lossless|WEB-DL|tracks] <Smoth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +499,7 @@ Blues Nation Radio - Rainy Night Delta Blues Guitar (2026) [MP3|320 Kbps] <Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +528,7 @@ Neal Black & The Healers - Number 3 Monkey (2026) [FLAC 24/96|Lossless|WEB-DL|tr
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +557,7 @@ The Dibs - Just For You (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +586,7 @@ illo.trio - Wandering (2025) [MP3|320 Kbps] <Jazz, Contemporary Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +615,7 @@ Blues Nation Radio - Dark Blues Midnight on State Street (2026) [MP3|320 Kbps] <
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +644,7 @@ Spencer Mackenzie - Empty Chairs (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +673,7 @@ The Mood Mosaic, Fausto Papetti - Bеsame (Y Haz De Mi Cuerpo Tu Reino) (2026) [
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +702,7 @@ Tim Easton - fIREHORSE (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Folk
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +731,7 @@ Tinsley Ellis - Labor Of Love (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,354 +745,6 @@ Tinsley Ellis - Labor Of Love (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCC654424782093300E4AC465FFF26E5F1EB64A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859948   (1061357) от 18.03.2026
-
-Trudy Lynn - Turning the Same Ole Corners (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can't Even Get the Blues No More (3:55)
-02.  Turning the Same Ole Corners (5:28)
-03.  Snatching it Back (5:35)
-04.  Do Ya (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11887F5348BC40E7828AE177F3F82467972F01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859604   (1061323) от 16.03.2026
-
-Marc Broussard - S.O.S. V: Songs of the '50s (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hallelujah, I Love Her So (2:32)
-02.  Dream Lover (2:32)
-03.  Unchained Melody (3:39)
-04.  Lucille (2:32)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532A6C42D2ABB1218DE997DDA86D682979EEE97C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859609   (1061314) от 16.03.2026
-
-Mikel Bluni - Just Now! (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Crossing The Line (4:31)
-02.  Rivers Of Hope (4:36)
-03.  Walk On Holy Water (3:53)
-04.  Mother, Mother (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED902B5781CB9AFD2D50EAA2EB47789A12E0172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859611   (1061312) от 16.03.2026
-
-Mudslide Blues Band - Mudslide Blues Band (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shake 'Em On Down (4:05)
-02.  Whisky Head Woman (Tommy McClennan Cover) (7:46)
-03.  Kindhearted Woman Blues (Robert Johnson Cover) (3:39)
-04.  Last Picture (4:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134C04D16827624E384F8E1142329EC6F89DD3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859612   (1061300) от 16.03.2026
-
-Nacho Valenciaga - Fifteen Years (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Playing with the Light (4:20)
-02.  Somewhere Ahead (4:48)
-03.  I Keep Drawing You (4:31)
-04.  Just Love (4:54)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal, SoulПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6BABD6F1DBB3C58BB8D7BC0C9554852B441D9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859614   (1061293) от 16.03.2026
-
-Noel Evans - Out Of The North (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Out of the North (5:02)
-02.  CELEBRATE AND WONDER WHY (4:35)
-03.  NO WASTED TIME (4:39)
-04.  LAND OF THE FREE (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E2C19B460D4E37B6C330FBA574923697031C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859619   (1061290) от 16.03.2026
-
-Omar Coleman & Igor Prado - Old, New, Funky & Blue (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Leaving My No Good Woman (5:27)
-02.  I Only Have Love (4:14)
-03.  Cut You Loose (4:54)
-04.  Moving on to Better Days (5:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F453EA486B7CEA8C488358642DA712C31D186D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859621   (1061289) от 16.03.2026
-
-Patrick Tayol - Patrick Tayol , Music and Friends (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It Makes Me Cry (4:49)
-02.  Will You Be My Girl (3:54)
-03.  Open This Bottle of Wine (3:21)
-04.  Leaving Home (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E8860A07E539EF9C84CE0D3D596B25E3E06E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859622   (1061287) от 16.03.2026
-
-Ruby Blu - BLU FLAME (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blu Flame Intro (1:54)
-02.  Don’t Start Nothin’, Won’t Be Nothin’ (3:30)
-03.  FROM MISSISSIPPI (5:54)
-04.  Pay Me My Peace (2:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37EE9966F8F9BB47127D6ADFE58CEB76B2A80B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859429   (1061199) от 15.03.2026
-
-Laurence Jones - On My Own (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One Life (3:16)
-02.  Life I Made (2:40)
-03.  On My Own (3:29)
-04.  Get Back Up (2:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3541CC1F544D7B7C01ACD68FA5B6CFCBD333043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859432   (1061196) от 15.03.2026
-
-Leon Bibb - Those Bittersweet Songs From My Land (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues,  Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rocks and Gravel (3:32)
-02.  Black is the Color (2:47)
-03.  Turtle Dove (2:34)
-04.  East Virginia (1:36)(   Читать дальше...   )Жанр: Blues,  CountryПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E030D88032858685BE36C68098DBB1F9A2ED5774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859435   (1061194) от 15.03.2026
-
-Malted Milk - Time Out (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  What a night (4:02)
-02.  Marco Cinelli - I feel numb (3:31)
-03.  Benin International Musical - Time Out (3:18)
-04.  Superchild (2:51)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926FE59639FB239DC73CE68F78D76B4BE4FC8670
 ```
 
 https://mybot314.ru/tekegram_catalog/

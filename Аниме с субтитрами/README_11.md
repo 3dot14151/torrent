@@ -1,3 +1,107 @@
+###  Публикация: 1456314   (1025071) от 22.03.2021
+
+Elf Seventeen | Эльф 17 [1987, OVA] VHSRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Маскат Тайлер - 108-й принц Галактической Империи, известный как чудак. Он путешествует по вселенной в сопровождении Ходячего Арсенала, К.К. и Лу из Легкокрылой расы, самого сильного существа во вселенной. Куда они пойдут - там случится катастрофа.Производство: Студия Animate Film / アニメイトフィルムЖанр: приключения, комедияРежиссер: Саката ДзюнъитиПеревод: RaymanMЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5473BFA4289FB72CC22ADF17523B1AE374B1A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446085   (1024859) от 23.03.2021
+
+Majo no Tabitabi | Wandering Witch: The Journey of Elaina | Странствия ведьмы: Путешествие Элейны [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ведьма по имени Элейна странствует, посещает самые разные места и встречает разных людей. Иногда весёлая, иногда фантастическая, иногда даже немного мрачная — это история Элейны и её долгого путешествия.Производство: студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26141DD9BC9DFEB47A1FCE990E3A0465D78251B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439160   (1024519) от 25.03.2021
+
+I-Chu: Halfway Through the Idol | Айчу: На полпути к айдолу [2021, TV, 12] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Школа «Звёздная жизнь». Здесь оттачивают свои таланты все, кто желает стать поп-звёздами. Всем айчу предстоит достичь своей цели и узнать, что же значит быть звездой.Производство: Студия Lay-duceЖанр: повседневность, музыкальныйРежиссер: Намба ХитосиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A826F9E0AA96AE92A4248E1DCFB50918A3213D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438316   (1024496) от 25.03.2021
+
+Hortensia Saga | Сага о гортензии [2021, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+На плодородные земли королевства Гортензия многие годы точат зубы соседние страны, которые нет-нет, да пытаются оторвать себе кусочек… Но путь вражеским войскам всегда преграждают два герцогства — Оливье и Камелия. Они являются верным мечом и надёжным щитом древнего государства и всегда верой и правдой служат своему протектору. Но однажды в герцогстве Камелия вспыхивает (   Читать дальше...   )Производство: Япония / Liden FilmsЖанр: приключения, фэнтезиРежиссер: Нисиката ЯсутоПеревод: Wakanim (дехардсаб, лирика - ваш покорный слуга), FunimationЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: ТВ, 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285571DABC7D29339F5D029C0D121734E36C282A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438167   (1024495) от 25.03.2021
 
 LBX Girls | Soukou Musume Senki | Бронированные девушки [2021, TV, 12 эп.] WebRip 720p raw
@@ -6,7 +110,7 @@ LBX Girls | Soukou Musume Senki | Бронированные девушки [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Di Gi Charat | Ди Джи Карат [ТВ-1] [1999, TV, 16 эп.] BDRip 576p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Call Me Tonight | Позвони мне вечером [1986, OVA] LDRip 480p 10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Show by Rock!! Stars!! | Рок-шоу! Звёзды [2021, TV, 12] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Kai Byoui Ramune | Dr. Ramune Mysterious Disease Specialist | Доктор Ра�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +297,7 @@ Ore dake Haireru Kakushi Dungeon / The Hidden Dungeon Only I Can Enter / Скр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +323,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +349,7 @@ Beastars 2 | Выдающиеся звери [ТВ-2] [2021, TV, 12] HDTVRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +375,7 @@ Yakusoku no Neverland (2021) | Обещанный Неверленд [ТВ-2] [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +404,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 1st | Magical Girl Lyrical Nanoha The Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +430,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 2nd A's | Лиричная волшебн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +456,7 @@ Mahou Shoujo Lyrical Nanoha A's | Magical Girl Lyrical Nanoha A's | Лиричн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +482,7 @@ Mahou Shoujo Lyrical Nanoha StrikerS | Magical Girl Lyrical Nanoha StrikerS | Л
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +508,7 @@ Mahou Shoujo Lyrical Nanoha | Magical Girl Lyrical Nanoha | Лиричная в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +534,7 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка на час [ТВ-1] [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +560,7 @@ Wave!! Surfing Yappe!! | На волне! Сёрфинг! [2020, TV, 12] WEB-DL 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Toji no Miko + Mini Toji | Katana Maidens | Жрицы-мечницы + Мини
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +638,7 @@ Trinity Seven | Святая семёрка [2014, TV 12 эп. + 1 OVA + 2 Movie
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +664,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren'ai Zunousen | Кагуя: В л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,110 +675,6 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren'ai Zunousen | Кагуя: В л�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6422F3B7595C06181720ED9385AEFBBF2CB53551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302973   (1023383) от 31.03.2021
-
-Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love is War | Кагуя: В любви как на войне [ТВ-1][2019, TV, 12 эп.] BDrip 1080 raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высокое происхождение, привлекательная внешность, учёба в академии для будущей элиты страны… У Миюки и Кагуи было всё. Когда их избрали главой и заместителем главы ученического совета, только ленивый не говорил, что молодые люди будут чудесной парой. И хотя втайне герои считали так же, за целых полгода ни Миюки, ни Кагуя не открылись друг к другу — гордость мешала (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: комедия, романтикаРежиссер: Омата СинъитиПеревод: 1) Cqur Far; 2) SovetRomantica; 3) WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E6AB3880001739DA52B83448696D2CBF8A14B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381812   (1023353) от 31.03.2021
-
-Black Clover (2017) | Чёрный клевер [2017, TV, 91-170 из 170 + 8SP] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демоны никогда не сулили ничего хорошего. Издавна все твердят беречься от них, люди создают различные обереги, чтобы спасти свою душу. Но однажды демоны и вовсе распоясались, и начали представлять собой нешуточную угрозу для всего человечества, да такую, что вся раса людей оказалась под угрозой вымирания. Но спасение пришло, откуда не ждали. Один волшебник решил (   Читать дальше...   )Производство: Студия Studio Pierrot / studioぴえろЖанр: приключения, фэнтезиРежиссер: Ёсихара ТацуяПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 170 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614C686E30214980368545774939724118F78F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439170   (1023210) от 01.04.2021
-
-Tenchi Souzou Design Bu | Heaven's Design Team | Небесное бюро дизайна [2021, TV, 13] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бог сотворил свет, небо и землю и собирался сотворить животных... Но ему быстро надоело, и он нанял для этого подрядчика. Небесное бюро дизайна — агентство, которое создаёт жизнь по заказу своего клиента, Бога. Почему этот зверь выглядит так? Следите за поисками и успехами дизайнеров и инженеров, которые должны исполнять сумасбродные заказы Господа!Производство: Студия Asahi Production / 旭プロダクションЖанр: комедияРежиссер: Масуй СойтиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A428C8649FAC5A7393711EABA392DB58CE8CD2F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441327   (1023208) от 01.04.2021
-
-Kemono Jihen | Инцидент с монстром [2021, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Инугами, специализирующийся на паранормальных явлениях, прибывает из Токио в одну отдалённую деревню для расследования череды странных инцидентов. Там убитые кем-то животные необъяснимым образом очень быстро гниют. В деревне Инугами знакомится со странным пареньком по имени Кабанэ, которого избегают окружающие. Инугами и Кабанэ вместе предстоит расследовать (   Читать дальше...   )Производство: Студия Ajia-dou / 亜細亜堂Жанр: Приключения, мистика, демоныРежиссер: Фудзимори МасаяПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CEBB3DA3C73A12A04415C0F2C3382F7280D8E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

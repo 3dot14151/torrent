@@ -1,3 +1,352 @@
+###  Публикация: 1785888   (24254) от 18.03.2025
+
+Сборники - Pixflow - Animated Kodak and Fuji Film Frames [PSD, AEP, MOGRT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Пакет Film Frames оживляет стили пленочных камер Kodak и Fuji в динамичном анимированном формате. Создавайте потрясающие фильмы, фотографии, презентации и многое другое без усилий с помощью этого универсального инструмента.Формат: PSD, AEP, MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62277D16BC25388058B5EDF460E0123B5A69E345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786174   (24184) от 19.03.2025
+
+Пресеты - PRO EDU - Master Collection | 100 3D LUT Profiles for Adobe [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Master Collection — лучшее из лучшего, содержащее 100 профилей 3D LUT для Adobe Camera RAW, Photoshop и Lightroom. С профилями для определенного типа изображения или кроссовера для работы с широким спектром типов изображений, этот пакет содержит все необходимое для получения идеального вида ваших фотографий.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C710B3A0F1D9C5859C99E06D20D7AE998408FD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786237   (24170) от 19.03.2025
+
+Пресеты - benj Ceremony x Film Look Presets Pack [XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+От автора: "Это наборы пресетов, которые я использую для свадеб и помолвок, которые, конечно, можно применять и в других жанрах, таких как портреты, улица и т. д. Тона соответствуют моему кинематографическому и мрачному стилю, но с заметным отличием от моих прошлых релизов."
+В комплекте идет краткое общее руководство по эффективной настройке пресета.Формат: XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DBA034F1A4D596564A0731777613436C05C6D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786182   (24165) от 19.03.2025
+
+Шрифты - Gotham Bundle - 12 Families [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Каждый дизайнер восхищался практичным шрифтом американского языка, этими буквами из краски, гипса, неона, стекла и стали, которые так заметно выделяются в городском ландшафте. Из этих скромных начинаний рождается Gotham, трудолюбивый шрифт на века.
+
+Кириллица поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC2283B11678EFA5AF5F8B166E3A2B7F52DDCA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786232   (24153) от 19.03.2025
+
+Шрифты - Monotype Imaging Inc. - Apercu [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Apercu был запущен в декабре 2009 года и был опробован и протестирован в ряде дизайнерских комиссий, принятых Антантой до 2010 года. Идея Aperçu заключалась в создании синопсиса или объединения классических реалистических шрифтов: Johnston, Gill Sans, Neuzeit и Franklin Gothic.
+
+Pro версии шрифта поддерживают кириллицу.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33E8EFBCE9CC7200D853A816A4B79508AD1A0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786216   (24146) от 19.03.2025
+
+Шрифты - Denis Serebryakov - MyFonts - Nekst [TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD15345914844D1FF5A61E3026661DA2928B138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786675   (23986) от 21.03.2025
+
+Шаблоны - Portrait Layers 2 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Супер-премиум, художественная текстурированная фоновая сцена в формате PSD, содержащая несколько слоев, включая текстуры, освещение и цвета. Просто перетащите ваш замаскированный объект и настройте по своему вкусу. Слои освещения, цвета и виньетки настраиваются и не являются деструктивными. Включает премиум-текстуры от 2 Lil' Owls и референсное изображение от Шона (   Читать дальше...   )Формат: PSDРазрешение файлов: 6000х4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9B8DF0BD9786D846C25F1DF88D67A943A08E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786551   (23950) от 21.03.2025
+
+Шрифты - Monotype Imaging Inc. - Basis Grotesque [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Первоначально нарисованный в едином стиле Regular для всеобъемлющего редизайна журнала о фотографии Hotshoe. Basis был исчерпывающе доработан и расширен до выводка из семи стилей, и при этом был протестирован в многочисленных итерациях и подитерациях на бесчисленных платформах, печатных и других.
+
+Кириллица поддерживается в Pro и Variable версиях шрифта.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F307394DF29C0529A5C5E9C7AE9232C08F9381BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786637   (23943) от 21.03.2025
+
+Шрифты - Dmitry Chekanov - Behance - Driagwa Typeface (Free Variable Font) - 217563519 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей под старославянский стиль.
+Разработчик: Dmitry ChekanovФормат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39672FA8B1CBF9C305B99BAC8A10EDD0ED68AD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786554   (23941) от 21.03.2025
+
+Пресеты - benj - Photography - BAGUIO [XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+От автора: "Коллекция пресетов Lightroom и Photoshop, которые я использовал в своей недавней съемке в Багио. Различные места и условия освещения подтолкнули меня к созданию новых тонов, которые дополняли бы каждую обстановку."Формат: XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDF96616DC381C4128889972CCE7087AADFCA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786760   (23881) от 22.03.2025
+
+Пресеты - Presets.IO - The Master Preset Bundle [CUBE, XMP, LRTEMPLATE, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+С Master Preset Bundle вам не нужно просматривать пакеты с тысячами предустановок.  Мы отобрали только лучшие  и самые универсальные  предустановки, поэтому вы можете легко найти идеальную для своей фотографии, не чувствуя себя подавленным из-за слишком большого количества вариантов.
+
+Несмотря на описание от автора, релиз содержит 56 коллекций с 603 пресетами. А так (   Читать дальше...   )Формат: CUBE, XMP, LRTEMPLATE, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCDD982645458367B91E065F3F4A8B991154160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786889   (23828) от 22.03.2025
+
+Пресеты - Creative Market - 50 Horror Film Lightroom Presets - 4457132 [XMP, DNG, 3DL, CUBE, LOOK, MGA]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в другой мир с этими пресетами для фильмов ужасов. Этот пакет дает вам 50 пресетов различных стилей, вдохновленных популярными фильмами ужасов.Формат: XMP, DNG, 3DL, CUBE, LOOK, MGA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B890FB52F5EF1FB6D78B638E7A2FED02F230614D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786768   (23825) от 22.03.2025
+
+Шаблоны - Christmas Collage - Greeting Card Templates for Photoshop [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Неплохой набор новогодних поздравительных открыток, чтобы порадовать родных и близких вам людей.Формат: PSDРазрешение файлов: Разное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42E0239ECB4A8D17092EA5A7DB1D14A474F47EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786992   (23761) от 23.03.2025
 
 Экшены - GraphicRiver - Aquarelle Photoshop Action - 22415568 [ATN, ABR, PAT]
@@ -6,7 +355,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -86,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -112,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -138,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -164,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -190,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -216,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -242,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -269,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -298,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -325,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -336,354 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:348050827320199EC331BF14CEF12DDB5D86B7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787601   (23458) от 26.03.2025
-
-Пресеты - PhotoWhoa - 5000+ Best Photography Lightroom Presets Bundle [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23458.jpg" />
-</div>
-
-
-###  Подробнее
-
-От эстетичных осенних красок до теплых летних ощущений — придайте своим фотографиям необходимую атмосферу с помощью этих пресетов.Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4540233EAF69E4FCC32955AACC2E0D54131837F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787564   (23436) от 26.03.2025
-
-Пресеты - Creative Market - Lightroom Presets-Entire Collection - 3516459 [XMP, DNG, LRTEMPLATE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23436.jpg" />
-</div>
-
-
-###  Подробнее
-
-2067 пресетов премиум-класса: B&W Essential, Chocolate Effect, Dark Film, Film Effect, Newborn Pro, Matte Dream, Matte Portrait, Matte Effect, пресеты для предметной фотографии, Real Estate Exterior, Real Estate HDR, Interior Photography, Sepia Fantasy, Vintage Love, Wedding Classic.
-
-Бонус - кисти Lightroom для создания идеальных портретов.Формат: XMP, DNG, LRTEMPLATE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0D05B09644E33C9E95A96249DF4D8297B25D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787636   (23434) от 26.03.2025
-
-Растровый клипарт - PhotoWhoa - 500+ Magical Overlays Bundle [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте идеальное сочетание фэнтези и фотографии с помощью этих 500+ волшебных наложений.Формат: JPG, PNGРазрешение файлов: Разное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A58C618F31039C1CC273E53134C5B9DE599F1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787605   (23419) от 26.03.2025
-
-Шрифты - MyFonts - Polin Sans [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Строгий шрифт поддерживающий кириллицу.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58C53C7F0F4576B13083A0A489C9FDB64572834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787581   (23415) от 26.03.2025
-
-Растровый клипарт - Creative Market - Wounds and Scars Overlays - 5326626 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти наложения с высоким разрешением идеально подходят для фотографов, дизайнеров и художников, которые хотят добавить немного подлинности в свои работы. Работаете ли вы над фильмом или проектом видеоигры или просто хотите создать более реалистичный портрет, эти наложения выведут вашу работу на новый уровень.
-
-С широким спектром типов ран и шрамов, от порезов и синяков (   Читать дальше...   )Формат: PNGРазрешение файлов: 933x845 - 4000x2799
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF717A510076DA440F3723698CA62080E534D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787531   (23409) от 26.03.2025
-
-Шрифты - Alexander Shimanov - Behance - Free font ST-NIZHEGORODSKY - 114774303 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт c кириллицей - Нижегородский.
-Разработчик: Alexander ShimanovФормат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBCAEEF80BA1B87917B04635ECC9261C9F09A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787952   (23214) от 28.03.2025
-
-Шрифты - Mark Dubonosov - Behance - Belozersk Font - Free (Cyrillic and Latin) - 107142323 [TTF, OTF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт c кириллицей - Белозерск.
-Разработчик: Mark Dubonosov
-Материал раздается с официальной документацией.Формат: TTF, OTF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556316F06250929B97EE067CC973C7E7898241B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787998   (23200) от 28.03.2025
-
-Пресеты - DVLOP - Sonder [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый пакет SONDER Гейба отражает эволюцию почти двух десятилетий фотографирования свадеб. Это кульминация путешествия, отмеченного бесконечным творчеством, совершенствованием и экспериментированием. На протяжении многих лет Гейб всегда возвращается к тому, что кажется естественным. Как в фотографии, так и в редактировании он обнаружил, что наилучшие результаты достигаются (   Читать дальше...   )Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89BFAF2CB5432FFD5C4DA7A612A304F042F5AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788273   (23108) от 29.03.2025
-
-Растровый клипарт - Creative Market - Hyper Marker - 1000+ Marker Elements - 10285021 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте самую обширную коллекцию маркерных элементов в мире графического дизайна и позвольте вашим проектам превзойти все остальные. Здесь собрано более 1000 элементов, здесь можно найти всевозможные элементы. Суперпакет текстур маркеров Hyperpix включает в себя множество элементов, нарисованных от руки: круги, квадраты, галочки, каракули, сердечки, завитки, (   Читать дальше...   )Формат: PNGРазрешение файлов: Разное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334D008FFF4BC8108E4820EC1C7F5C3E096283FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788395   (23033) от 30.03.2025
-
-Футажи - FootageCrate - Animated Typekits Collection [MOV, JSX]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот релиз включает в себя набор TypeKit с дополнительными вариациями букв, цифрами и символами, а также скрипт AE, чтобы сделать написание и стилизацию пользовательского текста быстрым и простым.Формат: MOV, JSXРазрешение файлов: 1920X1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8FEE38562F9AC9EE7C1B5875F181125EBC3250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788402   (23010) от 30.03.2025
-
-Футажи - ActionVFX - Bullet Hits [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23010.jpg" />
-</div>
-
-
-###  Подробнее
-
-45 настоящих пылевых и бетонных элементов для имитации попаданий пуль. Включает 3 ракурса съемки.
-Доступно в разрешении 2K и 4K. 60 кадров в секунду. 10-битное Prores 422.
-Поставляется без кеинга на черном фоне. Снято камерой RED Epic Dragon с частотой 100 кадров секунду и глубиной в 10 Бит.Формат: MOVРазрешение файлов: 4096x2160, 4096x2160 (4K)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7565A39FAE25F92D32E10A6EB08C161ED36247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788368   (23006) от 30.03.2025
-
-Шрифты - Dmitri Zdorov - Dimka - Dimica [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri ZdorovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46709F4BC0B46DB9A30B30B0B835DBE269F8AF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788458   (22986) от 30.03.2025
-
-Пресеты - Creative Market - ESSENTIALS Lightroom Preset Bundle - 290439887 [XMP, DNG, LRTEMPLATE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премиум-пресеты, художественно созданные для сияющей кожи, точных цветовых тонов и золотистого тепла.Формат: XMP, DNG, LRTEMPLATE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311129A0100DD5065C6CFD7DC4B2E51D6CAB97E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,86 @@
+###  Публикация: 972025   (983499) от 05.01.2016
+
+К. Валишевский | Смутное время (1989) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Репринтное воспроизведение издания 1911 года.
+По данным Всесоюзного социологического исследования ’’Книга в современном обществе”, проведенного Институтом книги в 1988 году, большой интерес у читателей вызывает историческая литература, особенно по истории Отечества, как русских, советских, так и зарубежных авторов.
+В этом плане для массового читателя представляют (   Читать дальше...   )Жанр: ИсторияПеревод: Е. Н. ЩепкинаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231C8635875D7C690AD5AD15412809FC4524FEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972046   (983433) от 05.01.2016
+
+Руслан Скрынников | Три Лжедмитрия (2003) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В начале XVII века Россия переживала трагедию Смутного времени. Это была первая в истории нашей страны гражданская война.
+Три самозванца в течение одного десятилетия принимали имя царевича Дмитрия и пытались сесть на царский трон.
+Кем были эти исторические персонажи, которые принесли государству неисчислимые бедствия?
+Какие условия придали «самозванщине» такую страшную (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101D26A91634748B3413EF2A9D156FCB04F56596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972176   (983427) от 05.01.2016
+
+М. Ю. Павлов | Анастас Микоян. Политический портрет на фоне советской эпохи (2010) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателя книга молодого историка из Краснодарского края, безусловно, заинтересует тех, кому небезразличны недавняя история и нынешняя судьба нашей страны. Анастас Иванович Микоян, главный персонаж книги, - одна из знаковых фигур советской истории. Яркая и самобытная личность, он на протяжении полувека был неразрывно связан со всеми ее важнейшими (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CCC8929CE2CC7C432B146392FA66996EC7D93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972282   (983421) от 05.01.2016
 
 Стефан Кларк | Самый французский английский король. Жизнь и приключения Эдуарда VII (2016) [FB2]
@@ -6,7 +89,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -118,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -144,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -170,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -197,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -251,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -492,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -521,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -547,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -610,89 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFF47D1A1D1E85CDF915D2AB888723408A7FCCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973255   (980104) от 08.01.2016
-
-Александр Фомич Петрушевский | Генералиссимус князь Суворов [том I, том II, том III, современная орфография] (1884) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три тома в одной книге.
-
-Перед вами книга, не издававшаяся в России более 100 лет.
-Это удивительно потому, что интерес к Суворову во все времена велик, а данная книга, состоящая из 3 томов общим объемом почти в полторы тысячи страниц, признана историками лучшей биографией величайшего русского полководца. И неудивительно, потому что по прочтении этой книги складывается (   Читать дальше...   )Жанр: История, Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C913C23F8760D4D18FEF582AD95073DF60A518F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614545   (979404) от 06.02.2013
-
-"Вече" | Книжная серия "Тайны Земли Русской" (61 том) [2001-2011] [FB2, DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайны Земли Русской - серия произведений, исследующих темные пятна, загадки и тайны нашей истории. Иногда выдвигаются прямо-таки "дикие" гипотезы, иногда - просто альтернативная фантастика.
-Но всё это интересно и познавательно.Формат: FB2 (26 книг), DJVU (26 книг), PDF (9 книг)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C624E5B829CB5EBDDCEFB86251F840728FBAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973579   (979259) от 09.01.2016
-
-Виталий Вульф | Серебряный шар: Преодоление себя. Драмы за сценой (2003) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ему есть что рассказать... Виталий Вульф был не только лично знаком, но и дружен со многими звездами отечественной сцены. Блестящий дар рассказчика превращает жизненные коллизии в захватывающие своим драматизмом сюжеты.
-Бабанова, Сухаревская, Степанова, Кторов, Тарасова, Серова, Еланская, Коренева, Андровская, Пилявская, Уланова, Нуреев, Кшесинская, Гердт, Бриннер, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941C5182463E05DD7147ABCBC6216EE37709130F
 ```
 
 https://mybot314.ru/tekegram_catalog/

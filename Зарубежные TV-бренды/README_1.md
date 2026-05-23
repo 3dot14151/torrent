@@ -1,3 +1,55 @@
+###  Публикация: 1438059   (1041246) от 07.01.2021
+
+Полезные советы от Джона Уилсона / How to with John Wilson (2020) WEB-DL [H.264/720p] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал «встревоженного жителя Нью-Йорка» Джона Уилсона из самого сердца США. Вас ждут увлекательные истории и неожиданные культурные наблюдения, которые покажут, как непредсказуема и горяча жизнь в центре Америки. Это полностью авторский проект: Уилсон выступает здесь в качестве сценариста, режиссера, оператора и продюсера.Производство: США, Blow Out Productions, John's MoviesЖанр: Документальный, познавательныйРежиссер: Джон М. УилсонПеревод: Двуголосый закадровый, профессиональный (Amedia)Субтитры: Русские (Amedia), английскиеПродолжительность: 6 x ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7426F50398B320D7765EA0F440B7790CA01C7D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842998   (1040764) от 09.01.2021
+
+Полет Земли / Мир с высоты птичьего полета / Earthflight (2011)  Blu-ray [1080i] [2-Disc Edition]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В "Полете Земли", вы увидите удивительные достопримечательности со всех пяти континентов будут показаны в новом свете, как шесть частей серии объединяет путешествие гусей, журавлей, соколов, альбатросов, орлов и других птиц. Используя передний край новых методов съемки, чтобы показать все в мельчайших деталях, зрители имеют уникальную возможность пролететь (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскийПродолжительность: 6 x ~ 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DED35B2B630F8A743777D7CB6B348DF3ED29535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439156   (1040275) от 11.01.2021
 
 NG: Самые страшные стихийные бедствия: Извержения вулканов / Ultimate Disaster: Volcano (2006) HDTVRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@ NG: Самые страшные стихийные бедствия: Извер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC: Земля Один потрясающий день / Earth One Amazing Day
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ BBC - Великие мастера: Загадки Иеронима Босха 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ BBC. Идеальная планета / A Perfect Planet (2021) WEBRip [H.265/2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +189,7 @@ NG. Опасные встречи / Dangerous Encounters (2006-2011) DVDRip (24 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -610,7 +662,7 @@ BBC. Тело на продажу: как живут секс-работницы
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -621,58 +673,6 @@ BBC. Тело на продажу: как живут секс-работницы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6E2457705F6340733FEACED7F58271FE96DF5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443046   (1033866) от 04.02.2021
-
-Знаете ли вы, что? (2021) SATRip (выпуски 1-3) (Обновляемая)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярное шоу, которое рассказывает о судьбоносных изобретениях человечества, которые подсказала сама природа. В каждом выпуске зрителей ждут встречи с самыми редкими и необычными обитателями нашей планеты, чьи навыки и способности взяли на вооружение инженеры и конструкторы. Ведущий программы - инженер и изобретатель Алексей Иванченко - в легкой и доступной (   Читать дальше...   )Производство: Россия, Рен ТВЖанр: Документальный, познавательный, научно-популярныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: выпуски x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654C09E14088C6CD62B92971516810ED7611E0EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448339   (1030858) от 17.02.2021
-
-Короли разрушения / Scrap Kings (2017) HDTVRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взрывной сериал о работе специалистов по сносу и переработке рассказывает о том, как они взрывают, ломают и рушат здания, корабли, автобусы и мосты. Короли разрушения взрывают, разбивают и прокладывают себе путь сквозь различные объекты, которые отжили свое. От гигантских башен и заводов металлопроката до самолетов, поездов и автомобилей. Каждый дюйм материала разбирается, (   Читать дальше...   )Производство: Великобритания, back2back Productions LtdЖанр: Документальный, познавательный, научно-популярныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422B5E7900877842EAF693D4BE69612243C747B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

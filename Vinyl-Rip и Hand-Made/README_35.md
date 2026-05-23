@@ -1,3 +1,148 @@
+###  Публикация: 950683   (367881) от 27.10.2015
+
+Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Rock'n'Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Can Can You Party
+02. Best Of British
+03. Still In Love
+04. Sounds Like Fun(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 01:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327959   (367684) от 28.09.2019
+
+The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1. Need Some1 (2:43)
+A2. Light Up The Sky (3:20)
+A3. We Live Forever (3:43)
+B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328054   (367505) от 28.09.2019
+
+Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sekai Wa Futari No Tameni
+02. Kitaguni No Aoi Sora
+03. Koi
+04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255147   (365728) от 17.10.2018
+
+Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rapid Fire (4:08)
+02. Metal Gods (4:00)
+03. Breaking The Law (2:36)
+04. Grinder (3:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416428   (364973) от 17.10.2020
+
+Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 Batuka
+A2 No One To Depend On
+A3 Taboo
+A4 Toussaint L'Overture(   Читать дальше...   )Жанр: Psychedelic Rock, LatinПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576418   (364260) от 15.09.2022
 
 Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Blues, Rhythm & Blues>
@@ -6,7 +151,7 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +180,7 @@ Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +209,7 @@ Within Temptation - Black Symphony (2008) [FLAC 5.1 24/96|tracks (Blu-ray rip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +238,7 @@ The Alan Parsons Project - I Robot (1977) Reissue /1982, Arista Records/ [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +267,7 @@ Emigrate (Rammstein, Richard Kruspe) - Studio Albums (4 releases) (2007 - 2021) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +296,7 @@ Placido Domingo - Placido Domingo And Friends (2000) [FLAC 2.0|48/24|image+.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +325,7 @@ Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +354,7 @@ Three Dog Night - Coming Down Your Way (1975) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +383,7 @@ The Music Of San Marco/Soloist Di Zagreb - Vivaldi - The Four Seasons/Concerto G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +441,7 @@ Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +476,7 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Хри
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +502,7 @@ Wishbone Ash - Front Page News (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -444,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -472,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +646,7 @@ Klaus Schulze & Rainer Bloss - Dziekuje Poland Live '83 (1985) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +675,7 @@ Sting - 57TH & 9TH (2016) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +704,7 @@ Yes - Time And A Word (1970) 1991 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +733,7 @@ Manfred Mann's Earth Band - Somewhere In Afrika (1982) [FLAC 2.0|192/24|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,148 +747,6 @@ A4. Demolition Man (3:46)(   Читать дальше...   )Производс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDFA27E225714123D416437C9B764AC46FC405C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419412   (339855) от 28.10.2020
-
-Маркиза - Маркиза (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339855.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 220 Вольт
-A2 Спи, Дитя
-A3 Зря Ты Пришел
-A4 Все Мы Верим(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8C96644EC00ECE51D19B47E1268D09DAF7D075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074195   (337859) от 19.11.2016
-
-Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Vinyl-Rip] <Progressive & Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Shine on You Crazy Diamond  11:46
-02. Learning to Fly 5:22
-03. Yet Another Movie & Round and Around 7:10(   Читать дальше...   )Жанр: Progressive & Art RockПродолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6718A21081EAFCC78388CE02D30DC97CABBBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179381   (337196) от 05.11.2017
-
-Поет Аида Ведищева (1969, 1974)  [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:56:40 (общая)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B7FD7C0169F91B5DA4FF5384A9B47ECA989B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181277   (335358) от 06.11.2017
-
-Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335358.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Atomic (4:06)
-A2. Some Other Place, Some Other Time  (4:52)
-A3. Star Vision (5:51)
-A4. Run To The Stars (4:39)(   Читать дальше...   )Производство: Rockland Records - RKL 20323Жанр: Space RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953999   (335158) от 10.11.2015
-
-VA - Добрые колыбельные для сладких снов (3) в исполнении В. Толкуновой, О. Анофриева и И. Суриной (2000) [FLAC 2.0 16/44,1|tracks+.cue (MC-Rip)]<Lullaby>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В. Толкунова - Наступил час ночной
-02. О. Анофриев - Баю баюшки баю, не ложися на краю
-03. И. Сурина - Спи, малютка
-04. Оркестр - Вечером(   Читать дальше...   )Жанр: LullabyПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BFB381C53A6131C9A0A4AFD1D2BCBAA6174DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 864381   (916385) от 31.01.2015
+
+Багровые реки: Дилогия / Les Rivieres pourpres: Dilogy (2000-2004) BDRip [720p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В округе продолжаются убийства: таинственные монахи, обладающие сверхъестественной силой, убивают случайных встречных и исчезают бесследно. При помощи Мари, специалистки по истории религий, полицейские Ниман и Реда пытаются найти ответы на все вопросы…Производство: Франция, Италия, ВеликобританияЖанр: Триллер, боевик, детективРежиссер: Оливье ДаанАктеры: Жан Рено, Венсан Кассель, Надя Фарес, Доминик Санда, Карим Бельхадра, Жан-Пьер Кассель, Дидье Фламан, Франсуа Леванталь, Франсин Берже, Филипп Наон, Бенуа Мажимель, Кристофер Ли, Камилль Натта, Джонни Халлидей, Габриель Лазюр, Огустен Легран, Серж Рябукин, Андре Пенверн, Франсис РеноПеревод: ДублированныйЯзык субтитров: Русский , АнглийскийПродолжительность: 01:46:11 / 01:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73110D212E6D6B2C5511EF9D2375B609E189E7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990158   (912987) от 24.02.2016
+
+Мы из будущего: Дилогия (2008-2010) DVDRip/HDRip
+
+>>Коллекции / *логии
+>>Отечественное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Они встретились на поле «реконструкции военных событий» и хотели поиграть в войну. Но война решила поиграть с ними…
+Герои первой части фильма, Борман и Череп, попадают в 1944 год, и вместе с ними в прошлом оказываются еще двое — молодые украинцы Таран и Серый, «игравшие » в войну на другой стороне. Каждый из них совершит свой подвиг, чтобы вернуться домой и сберечь (   Читать дальше...   )Производство: Россия, Компания "А-1 КИНО ВИДЕО"Жанр: Фантастика, ВоенныйРежиссер: Александр Самохвалов, Борис РостовАктеры: Игорь Петренко, Владимир Яглыч, Алексей Барабаш, Дмитрий Ступка, Екатерина Климова, Владислав Резник, Денис Карасев, Иван Краско, Остап Ступка, Кирилл ПолухинПродолжительность: 01:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B8A6903B67B9ACE6C8894900A9C9471EDAFCE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366563   (911882) от 18.03.2020
 
 Железный человек / Iron Man (2008, 2010, 2013) BDRemux [H.264/1080p] [Трилогия] [PR]
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +137,7 @@ Zомбилэнд / Zombieland (2009, 2019) UHD BDRemux [H.265/2160p] [4K, HDR, 
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1963584E0B5EF29A780F51D670826C0B451D2122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875797   (855593) от 07.03.2015
-
-Операция «Мертвый снег»: Дилогия / Dod sno: Dilogy (2009,2014) BDRip [H.264]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855593.jpg" />
-</div>
-
-
-###  Подробнее
-
-После встречи в горах с нацистами-зомби лишь Мартину удалось добраться до цивилизации, в то время как все его приятели погибли. Однако парень забыл о маленьком подарке, который он получил от своей возлюбленной Ханны, золотой монете, которую та нашла в старом доме. Эта монета - часть клада, который подчиненные штандартенфюрера Герцога собирали для своего фюрера. Но (   Читать дальше...   )Производство: Норвегия, Исландия | Saga Film, Tappeluft Pictures, thefyzz, XYZ FilmsЖанр: Ужасы, Комедия, БоевикРежиссер: Томми ВирколаАктеры: Вегар Хоел, Мартин Старр, Жослин ДеБоэр, Ингрид Хаас, Стиг Фроде Хенриксен, Кристиан Фидженшоу, Амрита Ачария, Кристоффер Йонер, Халлвард Холмен, Орхан Гамст, Дерек МирсПеревод: Профессиональный многоголосый, любительский двухголосый, любительский одноголосыйЯзык субтитров: Русский, английскийПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB87A88820B58108940C9938B4FF4E5D2BFA4A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191143   (849859) от 13.04.2010
-
-Лара Крофт - Дилогия / Lara Croft (2001 / 2003) 2*DVD-9
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй серии приключений прекрасной расхитительницы гробниц Лары Крофт география действия становится ещё более обширной и экзотичной. Ей предстоит побывать в Греции, Кении, Танзании, Гонконге и Китае, и разумеется не для того, чтобы оценить местные красоты. Наследница археологических исследований Индианы Джонса будет противостоять злодею-интеллектуалу Чену Ло, (   Читать дальше...   )Производство: Жанр: Боевик, Приключения, ФантастикаПеревод: Многоголосый закадровый + одноголосый (Гаврилов)Язык субтитров: Продолжительность: 01:57:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

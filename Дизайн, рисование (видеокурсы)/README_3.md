@@ -1,3 +1,83 @@
+###  Публикация: 1439653   (1039491) от 14.01.2021
+
+Chung Kan | 3D Creature Modeling for Production (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке вы узнаете, как моделировать и скульптить бюст трехмерного существа, используя методы скульптинга и полигональное моделирование, которые используется в профессиональной среде для игр и кино. Вы не только узнаете, технические аспекты моделирования трехмерного существа, но и свой подход к творческому дизайну.Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 8:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430C141DA4300C1E063E9D601AE91232F3E775F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439651   (1039450) от 14.01.2021
+
+Kent Trammell | Short Film Character Production in Blender (2013) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Полный курс по моделированию, текстурированию, риггингу, анимации и пост-процессингу птички Пьеро в Blender и Photoshop.
+Кто такой Пьеро?
+Пьеро - это отставной курьер, птичка малиновка, высочайшим достижением чьей жизни стала передача сообщений своим пернатым союзникам во время Великой Голубиной Войны 98 года. После неё он вышел в отставку и поселился на радующем (   Читать дальше...   )Производство: CGCookieЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 18:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB908C5DFF0B60000A1DB1CD9D3DF81E98A8404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439655   (1039434) от 14.01.2021
+
+James Paick | Environment Design 1 James Paick (2012) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе рассматриваются основы создания окружения в иллюстрации и концепт дизайне для видеоигр и киноиндустрии. Акцент в этом курсе сделан на создании миниатюр и завершенных иллюстраций, на композиции, оттенках, перспективе и техниках цифровой живописи в Photoshop.Производство: CGMAЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 12:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB3F317A16DF7D5D232418479B88B848B1B9BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439756   (1039433) от 14.01.2021
 
 Олег Герт | Коммерческая иллюстрация (2020)
@@ -6,7 +86,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +141,7 @@ Blender Cloud | Процедурный шейдинг в Blender 2.8 и 2.9 / Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +167,7 @@ Michael Rigley | Design for Production: Workflow (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +193,7 @@ Adam Swaab | Houdini Particles (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +219,7 @@ CG Cookie, Kent Trammell, Jonathan Lampel | Основы шейдинга в Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +246,7 @@ CG Cookie, Kent Trammell | Шейдинг кожи в Cycles в Blender 2.69 / S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +299,7 @@ James Paick | Vehicle/Mech Design Workshops (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +325,7 @@ Carlo Arellano | Character Design for Games Workshops (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +351,7 @@ Ryan Lang | The Art of Color And Light (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +377,7 @@ Jason Scheier | Fundamentals for Creative Environment Design (2015) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +403,7 @@ Darren Kwach | Environment Design: Sci-Fi World Workshops (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +429,7 @@ Ash Thorp | UI and Data Design for Film (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +482,7 @@ CGCookie | Concept Art Fundamentals (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +508,7 @@ CG Cookie, Kenan Proffitt | Создание VFX видеоролика в Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +534,7 @@ Jama Jurabaev | Narrative Concept Art Part 1,2 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +563,7 @@ David Connely | Texturing a Game Character in Substance Painter and Designer (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +590,7 @@ Udemy, Sixon C Sunny | Архитектурный дизайн в Blender 2.82 �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +617,7 @@ Marco Bucci | The Art Of Color And Light with (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +669,7 @@ CG Cookie, Jonathan Lampel | Основы создания материалов 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -601,85 +681,6 @@ CG Cookie, Jonathan Lampel | Основы создания материалов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4113CB3B11E526042CAFBB9D77A151F23A3F9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440886   (1038151) от 19.01.2021
-
-Иоанн Диков и др. | SketchUp. Связки. Пoдaчa c Illustrаtоr + Photoshop (2020)
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038151.jpg" />
-</div>
-
-
-###  Подробнее
-
-SketchUp умеет многое, но не всё. Этот онлайн-курс — о связке трёх программ: SketchUp, Photoshop и Illustrator, и о том, как сделать подачу эффектной, а рабочий процесс — максимально бесшовным.Производство: Софт КультураЖанр: ГрафикаПродолжительность: 06:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7490F605B9FDDB84027A9FABA1B340A683477C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441148   (1037882) от 20.01.2021
-
-Юлия Романова | Основы рисования (2017)
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс - настоящая находка для тех, кто давно хотел научиться рисовать, но не знает с чего начать! Также подойдет тем, кто хочет углубить свои знания и улучшить качество работ.
-Курс ведет Юлия Романова. С детства занимается рисованием в различных стилях. В 2016 году закончила обучение в Новосибирской Архитектурно-художественной академии с красным дипломом. С 2012 (   Читать дальше...   )Производство: highlightsЖанр: РисованиеПродолжительность: 24:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A51AFFB97435EA618056E668B370B553344EE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441153   (1037880) от 20.01.2021
-
-highlights | Цифровой рисунок в Photoshop (2018)
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс идеален для тех, кто хочет научиться рисовать в Photoshop! Преподаватель с огромным опытом Анастасия Васильева объяснит и покажет, как рисовать в программе Adobe Photoshop, даже если до этого вы никогда не открывали эту программу. За 2 месяца вы не только узнаете основы основ рисунка, работы с инструментами, применения референсов, но и примените на практике (   Читать дальше...   )Жанр: РисованиеПродолжительность: 12:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F9BC94DEF23A9702908BA8F1F6CCC47802B57C
 ```
 
 https://mybot314.ru/tekegram_catalog/

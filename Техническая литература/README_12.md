@@ -1,3 +1,109 @@
+###  Публикация: 1221671   (692985) от 25.04.2018
+
+Г.Ф. Быстрицкий, Э.А. Киреева | Справочная книга по энергетическому оборудованию предприятий и общественных зданий (2012) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является первым полным справочным материалом по электротехническому и теплотехническому оборудованию. Основная задача авторов состояла в том, чтобы оказать действенную помощь эксплуатационному персоналу в его практической работе в выборе целесообразных решений, которые бы не только отвечали современным требованиям по экономичности и надежности систем (   Читать дальше...   )Жанр: Электротехника, энергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2054F58C9AC03FAF55E6A533F198E0A7A00E0248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133689   (692955) от 13.05.2017
+
+С.Л. Корякин-Черняк | Спутниковое телевидение в доме и на даче (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спутниковое телевидение появилось тридцать лет назад. Теперь оно уверенно вошло в нашу жизнь, предлагает сотни каналов разных жанров и направлений. Стали доступны и пакеты телевидения высокой четкости, и спутниковый Интернет. Книга станет прекрасным путеводителем в спутниковый мир цифрового телеприема и надежного Интернета.
+   Рассмотрены популярные пакеты российских (   Читать дальше...   )Жанр: ТелевидениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9EC94227E62071F6454DD27378F9E03041457BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133669   (692840) от 13.05.2017
+
+С.Л. Корякин-Черняк | Квартирный вопрос. Домашняя электросеть, шпионские штучки, освещение, сварка и не только... (2009) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В популярной форме рассмотрены практические работы домашнего электрика в городской квартире или офисе. Эти работы связаны не только с электричеством, но и с электроникой в широком смысле. Основная цель книги - помочь каждому желающему приобрести навыки в ремонте электросети, организации освещения, изготовлении простых радио- и электроустройств для домашнего хозяйства (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22E0568762DBF69A7E3D10934C8929160AA6CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133646   (690997) от 14.05.2017
+
+Ю.К. Розанов (ред.) | Справочник по силовой электронике (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Силовая электроника является одной из наиболее быстро развивающихся областей науки и техники. Её достижения получают широкое практическое применение во многих областях техники, связанных с использованием электрической энергии, — электроэнергетике, электромеханике, транспорте, электротехнологиях и др.
+Она позволяет существенно повышать эффективность использования (   Читать дальше...   )Жанр: Силовая электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66711C32923D3731417A4910F1813B0C99DB880B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 896670   (689617) от 11.05.2015
 
 Г.Г. Гинкин | Справочник по радиотехнике (1948) [DJVU]
@@ -6,7 +112,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +220,7 @@ Texas Instruments | Руководство по выбору компонент�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,113 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25F8C7AD96C33A5BCB43D7C2A41B6019E9446218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899193   (675033) от 18.05.2015
-
-В.Г. Важенин и др. | Аналоговые устройства на операционных усилителях (2014) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен материал, необходимый для изучения операционных усилителей: структура, элементы схемотехники, основные характеристики и параметры. Рассмотрены вопросы построения аналоговых устройств на операционных усилителях с резистивной и комплексной обратной (   Читать дальше...   )Жанр: Электроника, радиоэлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30E51DE996E7E4FF9F12FEA577988717825A6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136295   (674752) от 22.05.2017
-
-В.И. Гуревич | Уязвимости микропроцессорных реле защиты. Проблемы и решения (2016) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674752.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно рассмотрены проблемы уязвимости микропроцессорных устройств релейной защиты (МУРЗ) к естественным и преднамеренным деструктивным воздействиям, включающим кибернетические и электромагнитные воздействия. Описаны современные технические средства, с помощью которых могут осуществляться преднамеренные дистанционные деструктивные воздействия на МУРЗ.
-  Рассмотрены (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EC40218FCF120EFAEFB8D8CD4C1053AD78CAAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136544   (672874) от 23.05.2017
-
-Т.Н.  Васильева | Надежность электрооборудования и систем электроснабжения (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены вопросы надежности электрооборудования и систем электроснабжения, основные термины и определения теории надежности, элементы математических методов планирования, обработки и анализа результатов эксперимента.
-Изложены методы расчета надежности систем электроснабжения, дано технико-экономическое обоснование ее повышения для электрооборудования и систем (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7C7E75A471F4E43E25582C33960EB852AC9765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136462   (672631) от 23.05.2017
-
-Р.С. Хансен | Фазированные антенные решетки (2012) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672631.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дается всесторонний анализ особенностей проектирования и исследования характеристик фазированных антенных решеток и входящих в них систем. Особое значение придается рассмотрению алгоритмов, пригодных для использования на ПК.
-  Книга предназначена научным работникам и инженерам, занимающимся исследованиями и разработками фазированных антенных решеток, а также (   Читать дальше...   )Жанр: Радиотехника, антенныФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F45C92E57D7A1BF6157BBB954C2E3B61323F0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

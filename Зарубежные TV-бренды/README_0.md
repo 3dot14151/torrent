@@ -1,3 +1,55 @@
+###  Публикация: 1848686   (1052936) от 18.01.2026
+
+NG. Гепарды: лицом к лицу с Берти Грегори / Cheetahs Up Close with Bertie Gregory (2025) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Берти Грегори прибывает в Серенгети как раз в разгар миграции зебр и антилоп гну. Он приехал сюда, чтобы снять на видео самое быстрое наземное животное на Земле: гепарда. Приближаясь к матери, заботящейся о своих крошечных детенышах, и к группе молодых самцов, совершающих феноменальную охоту сообща, он узнает о неожиданных трудностях, с которыми сталкивается этот (   Читать дальше...   )Производство: Великобритания, Wildstar FilmsЖанр: документальный, природа, фауна, флораРежиссер: Джигар ГанатраУчастники: Берти ГрегориПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A931449EA236B6DE3FE64EBF0B7B96C18CE2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847535   (1052150) от 13.01.2026
+
+NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) HDTVRip [H.264/1080p] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Фильм исследует богатое биоразнообразие и устойчивость древних лесов Австралии, где обитает крупнейшая в мире разновидность попугаев и знаковых видов, таких как утконос. Эти леса охватывают обширные регионы и поддерживают разнообразную дикую природу, от красных кенгуру до пресноводных крокодилов. Фильм демонстрирует редкое поведение сумчатых и птиц, подчеркивая угрозы (   Читать дальше...   )Производство: Австралия | Geoff Spanner ProductionЖанр: документальный, природаРежиссер: Джефф СпаннерПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, АнглийскийПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D26288EF130A4B793427DE4DEE0B3AAF9C6B6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847287   (1051867) от 11.01.2026
 
 NG. Незабываемые дорожные приключения Криса Хемсворта / Chris Hemsworth: A Road Trip to Remember (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
@@ -6,7 +58,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG: Чудища морей: Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG. Дикая природа Центральной Америки / Wild Centr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Discovery: Сражение динозавров / Clash of the dinosaurs (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ PBS Nature: Сокровище Карибского моря / Treasure of the C
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +346,7 @@ NG: Планета рептилий / Planet Reptile (2025) HDTVRip [H.264/720p-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +372,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.265/2160p] [4K, SD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +398,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.264/1080p] (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +424,7 @@ PBS Nova: Загадка пустыни Наска / Nazca Desert Mystery (2022)
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +450,7 @@ NG. Акулий рай / Shark Eden (2010) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +528,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Horizon: Do You See 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +554,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRemux (сезон 1, се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +580,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +632,7 @@ NG. Доисторические хищники / Prehistoric Predators (2007-20
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,7 +658,7 @@ NG: Малика, королева львов / Malika: The Lion Queen (2022) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -617,58 +669,6 @@ NG: Малика, королева львов / Malika: The Lion Queen (2022) HD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464414D0F6F06A5853E0FB753209D35D9661AC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438059   (1041246) от 07.01.2021
-
-Полезные советы от Джона Уилсона / How to with John Wilson (2020) WEB-DL [H.264/720p] (сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал «встревоженного жителя Нью-Йорка» Джона Уилсона из самого сердца США. Вас ждут увлекательные истории и неожиданные культурные наблюдения, которые покажут, как непредсказуема и горяча жизнь в центре Америки. Это полностью авторский проект: Уилсон выступает здесь в качестве сценариста, режиссера, оператора и продюсера.Производство: США, Blow Out Productions, John's MoviesЖанр: Документальный, познавательныйРежиссер: Джон М. УилсонПеревод: Двуголосый закадровый, профессиональный (Amedia)Субтитры: Русские (Amedia), английскиеПродолжительность: 6 x ~ 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7426F50398B320D7765EA0F440B7790CA01C7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842998   (1040764) от 09.01.2021
-
-Полет Земли / Мир с высоты птичьего полета / Earthflight (2011)  Blu-ray [1080i] [2-Disc Edition]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040764.jpg" />
-</div>
-
-
-###  Подробнее
-
-В "Полете Земли", вы увидите удивительные достопримечательности со всех пяти континентов будут показаны в новом свете, как шесть частей серии объединяет путешествие гусей, журавлей, соколов, альбатросов, орлов и других птиц. Используя передний край новых методов съемки, чтобы показать все в мельчайших деталях, зрители имеют уникальную возможность пролететь (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскийПродолжительность: 6 x ~ 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DED35B2B630F8A743777D7CB6B348DF3ED29535
 ```
 
 https://mybot314.ru/tekegram_catalog/

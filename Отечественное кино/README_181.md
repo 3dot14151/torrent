@@ -1,3 +1,109 @@
+###  Публикация: 476247   (263421) от 24.11.2019
+
+Мамы (2012) [720p] BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Каждый год в день 8-го марта телефонные сети России передают миллионы звонков и смс-сообщений. Трудолюбивые аналитики подсчитали, что абсолютное большинство телефонных звонков адресовано самым главным женщинам в жизни каждого человека — мамам.
+
+Мы выросли, и заготовленные заранее аппликации и букеты цветов, купленные до маминого пробуждения, — давно забытые детские (   Читать дальше...   )Производство: Кинокомпания "Enjoy Movies", РоссияЖанр: Мелодрама, КомедияРежиссер: Евгений Абызов, Сарик Андреасян, Алан БадоевАктеры: Сергей Безруков, Дмитрий Дюжев, Михаил Пореченков, Егор Бероев, Гоша Куценко, Петр Федоров, Федор Добронравов, Иван Добронравов, Игорь Верник, Александр ОлешкоПеревод: OригиналСубтитры: ОтсутствуютПродолжительность: 01:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26F7A1C12DB54A4A6E69D451DCAF02A272BD48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192020   (263330) от 16.12.2017
+
+Последний романтик (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В одном провинциальном городке живёт Борис. Он мастер на все руки и единственный мужчина во всем доме, который может починить все что угодно. Конечно, все одинокие женщины пытаются обратить на себя его внимание. Но увы, он абсолютно непроницаем к женским уловкам, и все их попытки обречены на провал. Но однажды в его дворе появляется таинственная незнакомка, которая (   Читать дальше...   )Производство: РоссияЖанр: Мелодрама, комедияРежиссер: Иван КульневАктеры: Андрей Некрасов, Юлия Куйкка, Надежда Толубеева, Людмила Исакова, Наталья Ермолина, Александра Анискина, Любовь Копылова, Леонид Прокофьев, Виктория Федорова, Александр ДовбняПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAF3FF776AE21ACCCD97595E69C1718C759D75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192526   (263109) от 17.12.2017
+
+Верочка (2016) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Верочка — это фильм о любви. Любовь, создала искусство. Искуство, запечитляющее нашу неземную тоску по идеалу. Это фильм исчезающий мир чувств. Про нежность, родство души, внезапно рождающую между незнакомыми людьми.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Екатерина МазухинаАктеры: Александра Шитикова, Рустам Камачков, Марина Суворова, Денис НазаренкоСубтитры: ОтсутствуютПродолжительность: 00:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE108D255653E2BB7F3976D35660915CF9A821D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192585   (263047) от 17.12.2017
+
+Артистка (2007) HDTVRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Анна не очень удачлива в жизни, она работает в театре актрисой, но ей достаются всего лишь второстепенные незначительные роли, да к тому же и на личном фронте у неё не всё в порядке. Не сдаваться и пережить все неприятности доведённой до отчаяния женщине помогает её лучшая подруга, которая живёт с ней по соседству…Производство: Россия. ВертикальЖанр: Комедия, МелодрамаРежиссер: Станислав ГоворухинАктеры: Евгения Добровольская, Мария Аронова, Юрий Степанов, Александр Абдулов, Дмитрий Певцов, Михаил Ефремов, Фёдор Бондарчук, Ирина Скобцева, Светлана Немоляева, Кира Головко, Анжелика ВолчковаПродолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C83DE7F7050E20D0793BC6E01389A88477C81D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192817   (262756) от 18.12.2017
 
 Не обмани (2010) TVRip
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -318,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -344,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -398,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -424,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -450,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -476,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -528,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -554,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -565,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC63ACDE4A9562C221A7984903D732FE529CF8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556028   (260815) от 23.11.2025
-
-За тобой (2011) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воспитывающая в одиночку младшего брата-инвалида, двадцатилетняя Кира однажды оказывается перед выбором: спасти жизнь чужого человека или уберечь свою. На принятие решения ей отведено лишь мгновение. И за это время девушка успевает совершить долгое путешествие по иллюзорным мирам своих фантазий и воспоминаний. Что ждет ее в конце пути? Освобождение? Надежда? Чья-то (   Читать дальше...   )Производство: Россия, Студия Легкие ЛюдиЖанр: ДрамаРежиссер: Татьяна ИвашкинаАктеры: Светлана Ходченкова, Максим Колесников, Алексей Серебряков, Владислав Ветров, Анна Алексахина, Андрей Шибаршин, Мария КурденевичСубтитры: отсутствуютПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CC15F7FA895606F38354D2C19CEFF2408E9891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838566   (260788) от 23.11.2025
-
-Шпион (2012) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна 1941 года. В центре Москвы разворачивается напряжённый поединок двух разведок. Цель тайной операции Гитлера - дезинформировать Сталина о планах нападения Германии на Советский Союз.
-Старший майор Октябрьский и лейтенант Дорин против гения фашистского шпионажа. Схватка на фоне большой истории, освещенной заревом грядущей войны.Производство: Россия, Канал Россия, Студия ТритэЖанр: триллер, детектив, приключенияРежиссер: Алексей АндриановАктеры: Данила Козловский, Федор Бондарчук, Владимир Епифанцев, Сергей Газаров, Виктор Вержбицкий, Виктория Толстоганова, Анна Чиповская, Алексей Горбунов, Алексей Гаврилов, Екатерина МельникСубтитры: отсутствуютПродолжительность: 01:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F027C6060F5C93D6B0B87063473E0F5462E62D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838592   (260739) от 23.11.2025
-
-Slove. Прямо в сердце (2011) BDRip [AV1/1080p] [10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260739.jpg" />
-</div>
-
-
-###  Подробнее
-
-«SLOVE» — soldieroflove. Он был солдатом чести, а стал солдатом удачи. Он хотел справедливости, а стал оружием в руках коррупционеров. Он хотел любви, но любовь не может быть рядом со смертью. «SLOVE» — оперативный позывной Алексея Ронина, младшего из трех братьев, выросших в семье военного. Руководствуясь обостренным чувством справедливости, которое воспитал в них (   Читать дальше...   )Производство: Россия, США, Германия / At GroupЖанр: боевик, триллерРежиссер: Юрий КоролёвАктеры: Алексей Чадов, Игорь Жижикин, Сергей Юшкевич, Андрей Чадов, Олег Шеремет, Карина Хидэкель, Павел ДеревянкоСубтитры: ОтсутствуютПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFFB1FE317A8AF680FFDE5F21FC4F4861263D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556298   (260583) от 23.11.2025
-
-Обреченные на войну (2008) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовь — чувство, возникающее, независимо от времени и возраста. Только в экстремальных обстоятельствах, обстоятельствах войны, любовь может пройти все стадии развития за рекордно короткий срок в четыре дня. Герои фильма как Ромео и Джульетта полюбили друг друга и хотят быть вместе, но разные взгляды и задачи, в итоге приводят их к конфликту и непониманию. Он хочет (   Читать дальше...   )Производство: Россия, КинопродвижениеЖанр: Драма, Мелодрама, ВоенныйРежиссер: Ольга ЖулинаАктеры: Нина Лощинина, Юрий Колокольников, Андрей Панин, Дарья Михайлова, Федор Добронравов, Елена ДубровскаяПродолжительность: 01:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF74B836683BBC278D80E19D456AD02DA4121A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

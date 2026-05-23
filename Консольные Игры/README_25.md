@@ -1,29 +1,3 @@
-###  Публикация: 515042   (656310) от 25.06.2012
-
-[Xbox 360] Madagascar 3: The Video Game (XGD2) (RegionFree) [ENG] (2012)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые герои возвращаются в новой игре Madagascar 3: The Videogame и теперь хотят вернуться обратно в свой любимый зоопарк в Нью-Йорке. Единственное решение к которому они пришли – примкнуть к бродячему цирку, в надеждe, что он когда-нибудь доедет и до Нью-Йорка. Масса веселых заданий, увлекательные мини-игры и совместное прохождение заданий любимыми героями – что еще нужно?Тип издания: ЛицензияРазработчик: Monkey Bar GamesЖанр: Action / ArcadeЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C3DF1F69C856E5339C5CF488AA95B0FC70FF5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514804   (656306) от 25.06.2012
 
 [Xbox360] Brave: The Video Game [ENG] (XGD2) (RegionFree) [+KINECT] (2012)
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +60,7 @@ DOOM Eternal (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.23 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +86,7 @@ Dead Nation + Road of Devastation DLC (2014) [PSVita] [EUR] 3.60 [HENkaku] [PSN]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +112,7 @@ NASCAR: The Game 2011 [Wii] [NTSC] [Eng] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +138,7 @@ LEGO Star Wars: The Force Awakens / LEGO Звездные войны: Пробу
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +164,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Xbox360] [RegionFree]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +190,7 @@ Test Drive: Ferrari Racing Legends (2012) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +216,7 @@ YouTube v.1.11 для PS3 (2015) [PS3] [Repack]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +243,7 @@ Batman: Arkham City Armored Edition / Batman: Arkham City Armoured Edition (2012
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +271,7 @@ Ice Age 4: Continental Drift - Artic Games [Wii] [PAL] [Multi 6] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +298,7 @@ Battlefield Hardline (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +326,7 @@ Bassmaster Fishing 2022 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.19] [Ru/Multi
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +352,7 @@ LEGO Star Wars: The Force Awakens / LEGO Звездные войны: Пробу
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +404,7 @@ ExerBeat: Gym Class Workout [Wii] [PAL] [Multi 3] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +491,7 @@ Cave Story [WiiWare] [RegionFree] [RUS] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,7 +601,7 @@ Trilogy Agarest: Generations of War 1, Zero, 2 (2009-2012) [PS3] [EUR] 2.76, 3.6
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -655,7 +629,7 @@ Lego Jurassic World / LEGO Мир Юрского Периода (2015) [PS4] [EU
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -681,7 +655,7 @@ Madagascar Kartz [Multi5] [PAL] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -692,6 +666,35 @@ Madagascar Kartz [Multi5] [PAL] (2009)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2149B123A35A84326F71498210DDE9D7405D9537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517666   (644556) от 02.07.2012
+
+[PS2] Ratchet & Clank [PAL] [RUS] (2002)
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ratchet & Clank — это серия игр жанра платформер, разработанная компанией Insomniac эксклюзивно для приставок Sony PlayStation. Игры повествуют о космических приключениях двух героев: Рэтчета — последнего представителя расы Ломбакс во вселенной — и Кланка — маленького робота и напарника Рэтчета, обладающего кучей технических свойств и хорошим чувством юмора.
+Главными «фишками» игры являются большой арсенал самого невообразимого и разнообразного оружия, необычные приспособления-гаджеты, и искромётный юмор, в том числе и пародийный.
+
+В данном релизе представляется первая часть саги, где Рэтчет работает над постройкой межзвёздного корабля. На одной из соседних планет на фабрике роботов Chairman Drek случился брак. Вместо огромного верзилы, готового исполнять приказания хозяина, с конвейера слез маленький добрый робот. Мало того — он случайно натолкнулся на дерзкий план Дрека по захвату власти. Схватив видеобота с описанием плана, он крадёт космический корабль, но в процессе погони совершил аварийную посадку на (   Читать дальше...   )Жанр: 3D Action/PlatformerЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC562CFF46FE19E073530CFB229A9E66462C398
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1827438   (186077) от 21.10.2025
+
+Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Геймплей состоит в том, что главному герою нужно выжить, выполняя задания от режиссёра и убивая встречающихся ему головорезов. В игре всего 20 эпизодов. Сама Manhunt представляет собой стелс-хоррор с элементами экшена от третьего лица. Игроку нужно управлять Кэшем и перемещаться по различным локациям, выполняя поставленные задачи, которые обычно сводятся к тому, (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшен, Стелс, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED421416E1BABB4DD9195D5BA851836F877C14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827345   (185655) от 21.10.2025
 
 FlatOut (2004) [Ru/En] (1.1) Repack Necros
@@ -6,7 +32,7 @@ FlatOut (2004) [Ru/En] (1.1) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +162,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Game
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Still Life (2005) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Monkey Island 2: LeChuck’s Revenge (2010) [Multi] (2.0.0.10) License GOG [Spec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +318,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Tales of Monkey Island: Complete Season (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Search and Rescue: Vietnam Med Evac / Вьетнамский апокалипс�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +475,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +501,7 @@ Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +527,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +553,7 @@ Elasto Mania Remastered (2000) [En] (1.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +579,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +605,7 @@ StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -605,7 +631,7 @@ Quake II (1997) [Ru/Multi] (5984/dlc) License GOG [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,7 +657,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -642,32 +668,6 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7023EAE2F6C0BD840731B3B8DEB49D4D0F68BDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194378   (156455) от 24.12.2017
-
-Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы Вернер фон Валленрод, сирота, живущий в ярком фантастическом мире, затерянном во времени. Ваш отец погиб при загадочных обстоятельствах, когда вы были еще младенцем. Теперь, когда вы достигли совершеннолетия, вам пора узнать правду о своем происхождении. Вы не обучены, не закалены в битве, но теперь вам предстоит взять меч, щит, булаву и боевой топор, чтобы занять (   Читать дальше...   )Тип издания: LicenseРазработчик: Cryo InteractiveЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCCDB66126AECE6A958AA9EE8E42566389640A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

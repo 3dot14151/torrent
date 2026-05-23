@@ -1,3 +1,134 @@
+###  Публикация: 1817265   (3601) от 09.09.2025
+
+Xfer Records - Serum 2 2.0.21 VSTi 3 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Xfer Records представили обновленную версию своего флагманского таблично-волнового синтезатора. Это не просто очередной апдейт — нововведений действительно много.
+Serum 2 открывает перед вами широчайшую звуковую палитру, предлагая пользователю невероятную мощь, контроль и выразительность в работе со звуком. Благодаря множеству типов осцилляторов, гибкой маршрутизации (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D073068DB780D849BC31EB38DC6E48AD02A248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818407   (2505) от 16.09.2025
+
+Ashampoo Music Studio 12.0.3.3 (x64) Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Music Studio – это зарекомендовавшая себя программа для редактирования, конвертирования, организации и записи музыки и звука. Вы даже можете создавать обложки для Ваших проектов, совместимые с различными устройствами списки воспроизведения или превращать Ваши песни в крутые миксы для Ваших вечеринок!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97096CD87C5BAB3C26BE8CA4A9D2832221B95E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818871   (2029) от 19.09.2025
+
+CyberLink AudioDirector 2026 16.0.5703.0 Ultra (x64) [Multi]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+CyberLink AudioDirector Ultra – мощный инструментарий для обработки музыки. AudioDirector позволяет создавать собственные саундтреки с помощью многодорожечной записи, использовать средства микширования, автоматически удалять шумы и помехи и выполнять восстановление аудио. Благодаря возможности воспроизведения видео параллельно с редактированием звука пользователи (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др. (Русского нет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55353670A043255DD69858A8E7CB48DCCE99161E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819524   (1485) от 22.09.2025
+
+iZotope - RX 11 Audio Editor Advanced 11.3.0 STANDALONE, VST 3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Компания iZotope выпускает обновлённую версию софта для восстановления звука, который может похвастать инновационными возможностями машинного обучения и инструментами, предназначенными для потоковой передачи музыки.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB983C9EC8AD9E1ADE1A1750AD0B63F92111201C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819523   (1461) от 22.09.2025
+
+iZotope - Ozone 12 Advanced 12.0.2 VST 3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ozone — это универсальный набор из 20 профессиональных инструментов, предназначенных для современного мастеринга, с ускоряющим работу помощником на базе искусственного интеллекта, который экономит время. Ozone 12, созданный на основе более чем двадцатилетних передовых инноваций, отмеченных наградами, позволяет вам полностью контролировать процесс мастеринга, предлагая (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC7167288A0C5D4AC99BDFCE35CDEA81C08A9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819525   (1441) от 22.09.2025
 
 Overloud - TH-U Slate Edition 2.0.3 STANDALONE, VST, VST 3, AAX (x64) RePack by R2R [En]
@@ -6,7 +137,7 @@ Overloud - TH-U Slate Edition 2.0.3 STANDALONE, VST, VST 3, AAX (x64) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +163,7 @@ Exacoustics - GHOST 1.1.8 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +191,7 @@ HOFA - Colour Delay 1.0.4 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +217,7 @@ FL Studio Producer Edition 25.1.6.4997 - All Plugins Edition + Addons (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +243,7 @@ FL Studio Producer Edition 25.1.6.4997 - All Plugins Edition + Addons [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +269,7 @@ Reveal Sound - Spire 1.5.19 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +296,7 @@ iZotope - VEA 1.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +322,7 @@ iZotope - Trash 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +349,7 @@ Native Instruments - Kontakt 8.7.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +375,7 @@ Cockos REAPER 7.47 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

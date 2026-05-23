@@ -1,3 +1,32 @@
+###  Публикация: 1498119   (830650) от 13.10.2021
+
+VA - Before Sunset: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska, Michael Moses - Sandy (4:48)
+02. Dacosta - Sunset Boulevard (4:16)
+03. Matej Blanusa - Beginning (Medani Pieck) (3:58)
+04. Digby Jones - El Corazon (3:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D8A586830D046AFD9A4D047E588BE391FD709C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774090   (830528) от 05.04.2014
 
 Сквозь снег / Snowpiercer (2013) BDRip [1080p] ATV
@@ -6,7 +35,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +87,7 @@ VA - Relaxing Room: Chillout Your Mind (2021) [AAC|~329 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -116,7 +145,7 @@ Röyksopp - Lost Tapes (2021) [AAC|~330 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -145,7 +174,7 @@ VA - Lounge Philosophy, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -174,7 +203,7 @@ VA - Erotic Stories (Suite 01) (2021) [AAC|~291 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -203,7 +232,7 @@ VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 4 (2021) [AAC|~323 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -232,7 +261,7 @@ VA - The World Series of Lounge, Vol. 3 (2021) [AAC|~338 Kbps] <Balearic, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -261,7 +290,7 @@ VA - The Spirit of Lounge Music (2021) [AAC|~297 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -290,7 +319,7 @@ Chillout Music Masters - Flow Beats 2021 – Magical Electro Lounge (2021) [AAC|
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -319,7 +348,7 @@ VA - The World Series of Lounge, Vol. 1 (2021) [AAC|~325 Kbps] <Balearic, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -348,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -377,7 +406,7 @@ VA - Chill out Mood, Vol. 1 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -406,7 +435,7 @@ VA - Winter Lounge (Destination Aspen) (2021) [AAC|~325 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -435,7 +464,7 @@ Chris de Burgh - The Legend of Robin Hood (2021) [AAC|~330 Kbps] <Classical, Ear
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -464,7 +493,7 @@ VA - The History of Lounge Music (2021) [AAC|~289 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -493,7 +522,7 @@ VA - The Chill Side of Underground (2021) [AAC|~291 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -522,7 +551,7 @@ Röyksopp - Melody A.M. (2003) [AAC|~300 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -551,7 +580,7 @@ VA - 100% Relaxation (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -580,7 +609,7 @@ VA - Café Deluxe Chillout - Nu Ibiza / Lounge (2016) [AAC|~314 Kbps] <Easy List
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -609,7 +638,7 @@ OneRepublic - Human (2021) [AAC|~303 Kbps] <Pop, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -638,7 +667,7 @@ VA - Global Chill Out Masters, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -667,7 +696,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 1 (2021) [AAC|~306 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -696,7 +725,7 @@ VA - Relax Your Base, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -710,35 +739,6 @@ VA - Relax Your Base, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEBBB7DB8695E601FD9382A7141007993A1BA793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501924   (830290) от 13.10.2021
-
-Billy Esteban, Rialians on Earth, Cafe De Anatolia - Around the World (2020) [AAC|~338 Kbps] <Chillout, Ethno Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe De Anatolia - Mediterraneo (5:15)
-02. Billy Esteban - Eagea (4:26)
-03. Cafe De Anatolia - Ozora (4:50)
-04. Billy Esteban - Heraclea (6:42)(   Читать дальше...   )Жанр: Chillout, Ethno Lounge, DowntempoПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C32D6D0BDB24B1205825C23D4C2BD8197076DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

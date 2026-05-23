@@ -1,3 +1,107 @@
+###  Публикация: 1727716   (54514) от 03.06.2024
+
+BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+BioShock Infinite - продолжение атмосферного шутера с видом от первого лица, который повествует о события до первой BioShock. Игра перенесет вас в Америку 1912 года - в удивительный летающий город Колумбию. В роли сыщика Букера Де Витта вы займетесь поиском и спасением девушки Элизабет, которая обладает уникальными способностями. Выбраться из Колумбии, которая ежесекундно (   Читать дальше...   )Тип издания: RepackРазработчик: Irrational GamesЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Польский, Корейский и другиеЯзык интерфейса: Русский, Английский, Польский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C84D572ACB00353AF6C6F62F3D2069CA5170DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727492   (54512) от 03.06.2024
+
+Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Borderlands 2 - это приключенческий ролевой экшен, продолжающий сюжет оригинального Borderlands. С момента событий оригинальной игры прошло 5 лет. Мужчина по прозвищу Красавчик Джек, глава корпорации "Гиперион", присвоил себе заслуги Охотников за Хранилищем и объявил себя Диктатором Пандоры.Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Action (Shooter)Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD97F660F1A7B94D7CA418B6EA8054D8D905ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727773   (54438) от 04.06.2024
+
+Titanfall 2 (2016) [Ru/En] (2.0.11.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Titanfall 2 - соревновательный экшен с видом от первого лица в футуристическом сеттинге. В продолжении вас ожидают новые виды титанов и оружия, а также драматический сюжет, главной темой которого является связь между человеком и роботом. Главный герой - новобранец сил Ополчения. Он и его товарищи борются за независимость от «злой» корпорации IMC, которая уже долгие (   Читать дальше...   )Тип издания: RepackРазработчик: Respawn EntertainmentЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821256A5B3CFCBFA92E13BCF25867897F28FA47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727746   (54437) от 04.06.2024
+
+Crysis: Remastered (2020) [Ru/En] (1.2.0) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Crysis Remastered - Вы суперсолдат Пророк, облаченный в нанокостюм и намеревающийся спасти человечество, используя самое смертоносное оружие на свете. Crysis сочетает в себе потрясающую графику и игровой процесс в жанре "песочницы", что делает его уникальным шутером.Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFA43CCACA4C1B448CA9DA021144136A41EEE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727892   (54408) от 04.06.2024
 
 Quake: Enhanced (2021) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +110,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Succubus (2021) [Ru/Multi] (14521061/dlc) Repack FitGirl [Ultimate Edition] [18+
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0u9/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Comp
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Call of Duty: Black Ops (2010) [Ru/En] (0.305-05.125430.1/dlc) Repack FitGirl [C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack FitGirl [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Far Cry 3 Дилогия (2012-2013) [Ru/Multi] (1.05/1.02/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Left 4 Dead 2 (2009) [Ru/Multi] (2.2.3.0/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (0.40570.441/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Escape from Hata / Побег из Хаты (2024) [Ru/Multi] (1.0) Repack FitGi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.9.1@143028/dlc) Scene FAiRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.21.67207.27/dlc) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A5FD06351B94841B711B85229C43F747A54BE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732793   (52001) от 26.06.2024
-
-Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда человечество оказалось перед угрозой уничтожения от столкновения Земли с гигантским астероидом, лидеры всех наций приняли решение создать специальные ковчеги, в которых избранные нашли бы убежище глубоко под поверхностью планеты... Именно они должны возродить жизнь на Земле, после того как минует опасность.Тип издания: RepackРазработчик: id SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA49D6618A875C69D628A19AE0351276EAD53BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733399   (51745) от 28.06.2024
-
-Diatomic (2024) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diatomic - непринужденный аркадный шутер, где вам необходимо просто убивать врагов любыми способами. Постоянное движение – это секрет победы, ведь только так можно выжить, отталкивайтесь от стен, скользите, уворачивайтесь, используйте спринт, а также свой абордажный крюк, который поможет перемещаться буквально по воздуху. Вас будет ждать немногим более тридцати разнообразных (   Читать дальше...   )Тип издания: LicenseРазработчик: DiatomicStudiosЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C279FCED825B824986EF53B962EDEF9BD6F66562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693771   (51574) от 30.06.2024
-
-Generation Zero (2019) [Ru/Multi] (2780013/dlc) Scene Tenoke
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра, где выжить - означает победить. Проект, который приносит реалии того, что было бы, если человечество создало роботов, способных использовать оружие так, как им вздумается. Generation Zero показывает нам Швецию 1980 года. На всей планете случился апокалипсис, а по улицам теперь ходят неизвестные машины, которые уничтожают всё на своём пути.Тип издания: SceneРазработчик: Systemic ReactionЖанр: Экшены, Выживание, ШутерыЯзык озвучки: Английский, ШведскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4ADC039FD06D0412AA2556450ABE88E8E73E203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733656   (51558) от 30.06.2024
-
-Doom 3: BFG Edition (2012) [Ru/En] (1.14) Repack dixen18
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doom 3: BFG Edition - это переиздание Doom 3. Жанр и смысл переизданий очень темны. Но интуитивно понятно, что новая версия - это как встретить очень старого друга после долгой разлуки. Игра та же, но где-то что-то подшили, что-то подлатали, что-то добавили. Из образцовых проектов реанимации классики вспоминается Baldur’s Gate 2 Big World Project, в которую помимо (   Читать дальше...   )Тип издания: RepackРазработчик: id SoftwareЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC92894D236577BE9B17EC3FD7A3E1C135E3280
 ```
 
 https://mybot314.ru/tekegram_catalog/

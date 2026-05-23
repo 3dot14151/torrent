@@ -1,3 +1,109 @@
+###  Публикация: 1634661   (198196) от 21.05.2023
+
+КВН-2023. Высшая лига. 1/4 финала, игра 3 (2023) HDTV [H.264/1080i]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Третья игра 1/4 финала, сезона 2023 года Высшей лиги КВН.
+Играют команды: «Красный лис» (Владивосток), «Ровеньки» (Орёл), «Зелёный чемодан» (Кемерово), «Джентльмены удачи» (Курганская обл.).
+В жюри: Константин Эрнст, Александр Олешко, Дмитрий Хрусталев, Сергей Жилин, Вадим Галыгин, Екатерина Стриженова.Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882E5874EBC8B6539B29D0F57713DDE698058320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634741   (198155) от 22.05.2023
+
+Однажды в России (21.05.2023) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371799BDB802CA253B5987A4C68004A802560D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642634   (196387) от 28.06.2023
+
+Концерты (2023) WEBRip [H.264/1080p] (сезон 2, выпуски 1-14 из 14)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Вы об этом мечтали, но боялись произнести вслух. Чистый юмор в эфире ТНТ! В рамках этого проекта профессиональные юмористические коллективы будут выступать со специальными часовыми перфомансами. Никаких судей или оценок – только юмор – это и есть «КОНЦЕРТЫ». Самый отвязный юмор во всём его жанровом и смысловом разнообразии, без запретов и ограничений. В каждом выпуске (   Читать дальше...   )Телекомпания: АО «ФМП Групп» по заказу АО «ТНТ-Телесеть»Жанр: ТВ-шоу, юморРежиссер: Роман НовиковУчастники: Азамат Мусагалиев, Алексей Щербаков, Рустам Рептилоид, Тамби Масаев, Дмитрий Кожома, Айдар Гараев, Артём Муратов, Иван Абрамов, Илья Макаров, Варвара Щербакова, Елена Гущина и др.Продолжительность: ~00:45:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CE638A44FA2E27B8997FB18F3CACEFAC858513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627058   (196148) от 03.07.2023
+
+Концерты (2023) SATRip (сезон 2, выпуски 1-14 из 14)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Вы об этом мечтали, но боялись произнести вслух. Чистый юмор в эфире ТНТ! В рамках этого проекта профессиональные юмористические коллективы будут выступать со специальными часовыми перфомансами. Никаких судей или оценок – только юмор – это и есть «КОНЦЕРТЫ». Самый отвязный юмор во всём его жанровом и смысловом разнообразии, без запретов и ограничений. В каждом выпуске (   Читать дальше...   )Телекомпания: АО «ФМП Групп» по заказу АО «ТНТ-Телесеть»Жанр: ТВ-шоу, юморРежиссер: Роман НовиковУчастники: Азамат Мусагалиев, Алексей Щербаков, Рустам Рептилоид, Тамби Масаев, Дмитрий Кожома, Айдар Гараев, Артём Муратов, Иван Абрамов, Илья Макаров, Варвара Щербакова, Елена Гущина и др.Продолжительность: ~00:42:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6F937DF13113F029CAAA34012258FFCAA9AFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652762   (194343) от 13.08.2023
 
 Ирина Приходько — Адаптация (2023) WEB-DL [H.264/1080p]
@@ -6,7 +112,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -570,114 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7A05B625FBFC13E1808C4F23807F329FF0FFA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661632   (188162) от 16.09.2023
-
-Уральские пельмени. Дырка от рублика (2023.09.15) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рубль – друг человека! Деньги – братья наши меньшие, а у кого-то и большие! А тыщщи – людям дружищщи! Граждане! Тратьте деньги на билеты на новую программу «Дырка от рублика» от Шоу «Уральские Пельмени»!Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1952D131BB38CFCF344C95BEC76BAD31CFF1120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661609   (188157) от 16.09.2023
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2023.09.15) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188157.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97D09A3736DD024BED95808B634C869D5BEEEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662275   (187967) от 17.09.2023
-
-КВН-2023. Встреча выпускников (2023) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы начинаем «Встречу выпускников 2023», в которой принимают участие команды из Дагестана, Москвы и Самары.
-Играют команды: Сборная Дагестана, «СОК» (Самара), «Станция Спортивная» (Москва)
-В жюри:  Вадим Галыгин, Сергей Жилин, Эдгард Запашный, Алла Михеева, Андрей РожковТелекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5945C7E8296BF3ADFA4D1F9178E59805E66936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662360   (187947) от 17.09.2023
-
-КВН-2023. Встреча выпускников (2023) WEBRip [H.264/720p]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы начинаем «Встречу выпускников 2023», в которой принимают участие команды из Дагестана, Москвы и Самары.
-Играют команды: Сборная Дагестана, «СОК» (Самара), «Станция Спортивная» (Москва)
-В жюри:  Вадим Галыгин, Сергей Жилин, Эдгард Запашный, Алла Михеева, Андрей РожковТелекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC81839BF6779246ED506D68047F09733B372C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

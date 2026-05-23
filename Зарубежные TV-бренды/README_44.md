@@ -1,3 +1,55 @@
+###  Публикация: 1219983   (708105) от 17.04.2018
+
+NGW: Самые странные в мире питомцы / World's weirdest pets (2013) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Когда речь заходит о домашних питомцах, никакие правила не действуют. Познакомьтесь с самыми необычными в мире домашними животными от самых маленьких до просто громадных.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид М. ФрэнкПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CE4FE84C28381829F7843DE0BF89461E090697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025784   (707722) от 13.06.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) SATRip (Сезон 16, эпизод 11) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый -Субтитры: ОтсутствуютПродолжительность: ~ 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650A137F8F5A70E1C9D80B6C7E6297FAE0EB96A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 329210   (707634) от 30.04.2011
 
 Animal Planet. Чернобыль - Жизнь в смертельной зоне / Chernobyl Life in the Dead Zone (2007) HDRip
@@ -6,7 +58,7 @@ Animal Planet. Чернобыль - Жизнь в смертельной зон�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC. Horizon. Почему мы говорим? / Horizon. Why Do We Talk? (2009
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NGW: Смертоносная Африка. Калахари / Africa's Deadly K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ BBC: Horizon. Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NGW: Первая тройка самых опасных животных. Ма�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ NGW: Хищники Аляски. Царство китов-убийц / Alaska'
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ NGW: Укусить. Ужалить. Убить. Монстры в тени / Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ NGW: Самые странные животные в мире. В толще м�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ NGW: Самые опасные убийцы. Ночные сталкеры / Wor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ NGW: Заклятые враги. Кошки против собак / Ultimate 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Discovery: Почему? Вопросы мироздания. Существую
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ NGW: Дикая Монголия: страна крайностей. Выжив�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ Animal Planet: Живой или вымерший. Тайваньский дым
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ BBC. Как устроена природа / How Nature Works (Secrets of Our L
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ NGW: Человек против животного / Man V. animal (2017) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ NGW: Южная Африка. Колыбель убийц / South Africa. Cradle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ NGW: Хищники Аляски. Поле боя гризли / Alaska's Deadli
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ NGW: Африка. Убийцы с фантазией / Africa's Creative Killer
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +659,7 @@ Animal Planet: Cинее царство (Лазурная страна). Щуп�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,58 +670,6 @@ Animal Planet: Cинее царство (Лазурная страна). Щуп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9105A3D3DA43871B25D409BBFDA84C0298E8D532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397950   (703134) от 13.08.2020
-
-Discovery. Легендарные места / Legendary Locations (2019) HDTVRip (сезон 2, серии 1-4 из 13) (Обновляемая)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одолевает жажда приключений? Присоединяйтесь к Джошу Гейтсу, который исследует легенды и истории, связанные с самыми разными местами по всему миру. Он отправляется в проклятую крепость в индийских горах Аравали, обнаруживает каменные лабиринты (включая древний город в каньоне иорданской пустыни) и путешествует по опасной Дороге смерти в Боливии в компании других (   Читать дальше...   )Производство: США, Ping Pong Productions, Discovery Channel HDЖанр: Документальный, путешествии, историяПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE8CB0BA2E31B7AE5C7D4F9EE6B310F92370F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287548   (703108) от 07.03.2019
-
-Animal Planet: Земля снежного человека. Затерянное королевство йети / The Lost Kingdom of the Yeti (2018) HDTVRip [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703108.jpg" />
-</div>
-
-
-###  Подробнее
-
-С давних пор жители Гималаев верят, что в их горах обитает чудище. Учёный и охотник за снежным человеком Марк Эванс регулярно получает сообщения о новых наблюдениях и загадочных следах на снегу из горного королевства Бутан. Опираясь на последние научные данные и данные генетических анализов, которые, возможно, позволят идентифицировать загадочное существо, Марк организует (   Читать дальше...   )Производство: США, Icon Films, Animal PlanetЖанр: Документальный, история, исследованияРежиссер: Джеймс МайрПеревод: Одноголосый закадровый, профессиональный (Мобильное ТВ)Субтитры: отсутствуютПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6F1159643ECE4924EE13D632A00FAC61490765
 ```
 
 https://mybot314.ru/tekegram_catalog/

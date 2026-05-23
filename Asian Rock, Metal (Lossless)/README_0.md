@@ -6,7 +6,7 @@ Concerto Moon - Rain Fire (2020) 2xCD, Japanese Edition [WavPack|Lossless|image 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ignus-Fatuus — Through Darkened Days (2016) /Doujin/ [FLAC|Lossless|tracks]<Me
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +64,7 @@ ArsMagnA: Ariabl'eyeS | -LostFairy- | Seraph - 22 альбома (2011-2016) [FL
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +93,7 @@ Babymetal - Metal Resistance (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal,
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +122,7 @@ Serenity in Murder - The Eclipse (2017) [FLAC|Lossless|image + .cue] <Melodic De
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +151,7 @@ Babymetal - Metal Resistance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, J
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +180,7 @@ Galneryus - Union Gives Strength (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lovebites - Clockwork Immortality (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +238,7 @@ Galneryus - Union Gives Strength (2021) Japanese Edition, EP [FLAC|Lossless|imag
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +268,7 @@ Loudness - Sunburst~我武者羅 (2021) 2xCD, Japanese Edition [FLAC|Lossless|im
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +299,7 @@ Mari Hamada - 9 albums (1983-1993) [FLAC|Lossless]<Japanese, heavy metal,AOR, 80
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -328,7 +328,7 @@ Mono - 9 albums (2001-2010) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -362,7 +362,7 @@ SawanoHiroyuki[nZk] - 2 альбома + 7 синглов (2014-2018) (FLAC|trac
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -391,7 +391,7 @@ Adrastea - The Ruins Of Reminiscence (2016) Japanese Edition [FLAC|Lossless|imag
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -420,7 +420,7 @@ MinstreliX - Chronostrings (2014) [FLAC|Lossless|image + .cue] <Neoclassical Pow
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +449,7 @@ Minstrelix - Reflections (2009) [FLAC|Lossless|tracks + .cue] <Neoclassical Powe
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +478,7 @@ MinstreliX - Tales Of Historia (2012) [FLAC|Lossless|image + .cue] <Neoclassical
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +507,7 @@ MinstreliX - Memoirs (2007) [FLAC|Lossless|tracks + .cue] <Neoclassical Power Me
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +536,7 @@ Shogo Hamada - selected discography[9 albums] (1982-2005) [FLAC|Lossless]<JRock,
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_637177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,7 +571,7 @@ Band-Maid - Brand New MAID (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -600,7 +600,7 @@ Loudness - Samsara Flight: 35th Anniversary (2016) [WavPack|Lossless|image + .cu
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,7 +629,7 @@ UVERworld - 7 albums + 16 singles (2005-2011) [FLAC|Lossless]<JRock, Pop Rock>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -655,7 +655,7 @@ Dexcore - -18- (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore, J-Roc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -684,7 +684,7 @@ Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -713,7 +713,7 @@ Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -742,7 +742,7 @@ One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternati
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 

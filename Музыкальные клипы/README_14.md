@@ -1,3 +1,116 @@
+###  Публикация: 1210810   (778460) от 04.03.2018
+
+Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 5) [hand made реставрация]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+201 Van halen - Poundcake
+202 Winger - Seventeen
+203 Ugly Kid Joe - I'm Alright(   Читать дальше...   )Жанр: Rock, MetalФормат: MKVПродолжительность: 03:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2980DE9A09A2F44AD85A4928EC8BC2F44F1527A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012953   (777212) от 05.05.2016
+
+Everest of Rock - 1 (1980) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кто то считает , что в семидесятые Рок превратился в лавку экзотических товаров с витриной во всю стену , что Рок стал коммерческой музыкой, произошел полный отход от духовных корней рока, рожденного и созданного для бунта . А кто то возразит ; как раз в семидесятых Рок достиг таких высот , преодолеть которые оказалось не под силу следующим поколениям ( уж слишком (   Читать дальше...   )01 Black Sabbath - N.I.B. (1970)
+02 Deep Purple - Black Night (1970)
+03 Deep Purple - Child in time (1970)
+04 Free - All right now (1970)(   Читать дальше...   )Жанр: Rock, Classic RockФормат: MatroskaПродолжительность: 02:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84A24860B1B24E1DD58123E551D2245A0F675E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012675   (777139) от 05.05.2016
+
+Wax Audio - Mashopolos (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отличные аудиомиксы из композиций разных рок- и поп-групп (Led Zeppelin vs. Black Sabbath, Metallica vs. AC/DC, Metallica vs. Michael Jackson, Bee Gees vs. Pink Floyd и т.д.). Это не разные исполнители, а парень его зовут Артём он из Сидней (Австралия) делает ремиксы на известные всем треки, начал Wax Audio в 2003 г. в рамках антивоенного движения, выпуская явно (   Читать дальше...   )01. MASHOPOLOS - The Movie [01:48]
+02. Lady Judas (Lady Gaga vs Judas Priest ) [04:13]
+03. Maiden Goes To Bollywood (Iron Maiden vs Dhoom 2) [04:07]
+04. Master Of Doin' It (Metallica + Herbie Hancock) [04:40](   Читать дальше...   )Жанр: Mix, Rock, Pop, Metall, Glam RockПродолжительность: 01:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C846256536A949984F1C58CDBBD54334272B528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211501   (777078) от 08.03.2018
+
+Ленинград / Не Париж  (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа «Ленинград» выпустила клип на новую песню «Не Париж». В восьмиминутном ролике, больше похожем на фильм (у него даже есть полноценные финальные титры), рассказывается история ижевской семьи: домохозяйка Юля втайне от своего мужа облачается в костюм супергероини и борется с преступностью.Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389220E935F42ED35E4A40DE4BA4B4F1AA837713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211731   (776783) от 09.03.2018
 
 Фабрика / Вова Вова (2018) WEBRip [H.264/1080p-LQ]
@@ -6,7 +119,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +145,7 @@ VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +174,7 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +229,7 @@ Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +258,7 @@ VA - Весенний марафон № 229: (Новые Лучшие Зару�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +287,7 @@ Everest of Rock - 2 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -203,7 +316,7 @@ Bon Jovi - Music Video (51 клип) (1985-2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -229,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -258,7 +371,7 @@ Everest of Rock - 3 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -287,7 +400,7 @@ Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -315,7 +428,7 @@ VA - Весенний марафон № 163 / Видеоклипы (Заруб�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +485,7 @@ Everest of Rock - 4 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +512,7 @@ Lindsey Stirling ft. Lzzy Hale - Shatter Me (2014) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +538,7 @@ Coldplay - Higher Power (2021) WEBRip [VP9/1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +564,7 @@ VA - Official UK Top 40 Video Chart (Febr, 2019) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +622,7 @@ Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +648,7 @@ The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,113 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:087A024763672B1F59F6A639B9991C0991A7DC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323682   (746871) от 15.04.2011
-
-[FR] Zaz - Zaz / Limited Special Edition (Интервью + Концерт + Видеоклипы) (2010) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Интервью + Концерт + ВидеоклипыСубтитры: НемецкиеПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940C19D5E2073CC2A6EBD37CB6B5622A414FEC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664518   (745685) от 05.06.2013
-
-Мираж - Музыка нас связала (1989) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745685.jpg" />
-</div>
-
-
-###  Подробнее
-
-клип на песню "Музыка нас связала"Жанр: МузыкаПродолжительность: 00:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9EB6F1765988A20A6CB47AA56AED3B43EE3244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216387   (744439) от 03.04.2018
-
-Океан Эльзы - Без тебя / Океан Ельзи - Без тебе (2018) WEBRip [H.264/2160p] [4K]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Украинская группа Океан Эльзы выпустила новую песню и клип под названием Без тебе.
-– Весна всегда приходит неожиданно, – прокомментировала группа Океан Эльзы премьеру клипа на официальной странице в Facebook.
-Слова песни принадлежат Святославу Вакарчуку.
-В клипе главный герой путешествует на машине по малым городам, встречая много близнецов, ищет свою родственную (   Читать дальше...   )Производство: УкраинаЖанр: RockРежиссер: Анна БурячковаСубтитры: отсутствуютПродолжительность: 00:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528C9AF85A91804ACE23C5682F31C0B9DD6D915E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785644   (738913) от 11.05.2014
-
-Lindsey Stirling - Child of Light (2014) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, Dubstep, RockПродолжительность: 00:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F263E3E7BD5462C3595927370F0FBA1DF2F737
 ```
 
 https://mybot314.ru/tekegram_catalog/

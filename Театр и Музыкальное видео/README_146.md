@@ -1,3 +1,173 @@
+###  Публикация: 608235   (49358) от 21.07.2024
+
+Ария - Сделано В России (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта сделана в 1997 году, на VHS выпушел в 1998, DVD диск был выпущен в 2004 году.01. Рабство иллюзий
+02. Раскачаем этот мир
+03. Король дороги
+04. Антихрист(   Читать дальше...   )Издательство: Мороз Рекордс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB3F67EECF62A209294B8C394B1580906305B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690827   (49357) от 21.07.2024
+
+Григорий Лепс - Полный Вперед! (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Полный вперед! LIVE, 2012. Презентация альбома «Полный вперед!» Концерт в КЗ Crocus City Hall 5 декабря 2012 года.
+
+За предоставленный DVD Спасибо brigadir200201. Безопасность
+02. Берега
+03. Люди
+04. Он был старше ее(   Читать дальше...   )Жанр: Концерт, Поп, рок, шансонПродолжительность: 02:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED8A794F8A7B78A56E8F3665388F29EFD10B442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138228   (49349) от 21.07.2024
+
+Крематорий - 20 ЛЕТ [2003, Rock, DVD9]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Треклист:Жанр: RockКачество: DVD9Продолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F601403F7AB408B2E2ECEC8429823F750FA570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 191562   (49344) от 21.07.2024
+
+Пикник - Железные мантры (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Данный DVD содержит концерт в поддержку альбома (теперь уже предпоследнего) "Железные мантры". Также на нём вы найдете 8 видео новелл (очень даже "в стиле" группы на мой взгляд) и немного видео с тура "Железные мантры".Жанр: Art RockЯзык: Продолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A2849D13F6A65D71310EA337B57ADF5D92A76B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606840   (49336) от 21.07.2024
+
+Александр Башлачёв - Рокси 87 (2007) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Рокси 87
+02. Время Колокольчиков
+03. Все От Винта!
+04. Лихо(   Читать дальше...   )Издательство: Отделение ВЫХОД ‎– В 167
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3722149F46F736712BC46A5B9A8D30444FEE60CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730139   (49282) от 21.07.2024
+
+BAND-MAID - LIVE at AKASAKA BLITZ (2017) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Band-Maid — японская хард-рок группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.01. REAL EXISTENCE
+02. Before Yesterday
+03. the non-fiction days
+04. Take me higher!!(   Читать дальше...   )Производство: ЯпонияЖанр: Hard RockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306F2FD6482809458CE435CE6B989C1114137DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486294   (49276) от 22.07.2024
 
 Этот фантастический мир. Выпуск 6 (1981) SATRip
@@ -6,7 +176,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +335,7 @@ Janis Joplin / The Kozmic Blues (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -279,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -308,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -334,7 +504,7 @@ George Thorogood And The Destroyers / 30th Anniversary Tour: Live (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -363,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -389,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -418,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -445,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -472,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -498,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -525,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,173 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A4F9E97992610903371B0177B4F35553256B382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415620   (49151) от 23.07.2024
-
-Чеховские страницы / МХАТ им. Горького (1977) VHSRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация спектакля "Чеховские страницы" в постановке МХАТа им. М.Горького по одноактным пьесам и рассказам А.П.Чехова: "Канитель", "Лекция о вреде табака", "Юбилей", "Печенег", "Рассказ госпожи N.N.", "Лебединая песня".Жанр: комедия, спектакльРежиссер: Евгений Радомысленский, Николай АлександровичАктеры: Виктор Сергачёв, Анастасия Зуева, Анатолий Кторов, Павел Массальский, Ирина Мирошниченко, Михаил Болдуман, Анастасия Георгиевская, Борис Петкер, Ангелина Степанова, Марк Прудкин, Николай Шавыкин, Александр Михайлов (II), Нина ЗасухинаПродолжительность: 02:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C11F8BFA93DB09568A8C53E5A7D35967B8D1EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550699   (49148) от 23.07.2024
-
-Supertramp - Live in Paris '79 (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Supertramp’s “Breakfast In America” был самым продаваемым альбомом в 1979 году, было продано более 20 миллионов копий, Supertramp получают две премии Грэмми. После выхода альбома последовал 10-месячный тур группы... Итак Supertramp прибывают в Париж и дают потрясающий концерт! Аудио запись с него - это знаменитый двойной альбом "Париж". И вот только теперь (   Читать дальше...   )1. French Touch (intro)
-2. School
-3. Bloody Well Right
-4. The Logical Song(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7B5A4401D2452AFB891AE97715697D5F6B8485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648329   (49143) от 23.07.2024
-
-Whitesnake - Made In Japan (2013) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Британской рок группы Whitesnake был записан 15 октября 2011 года во время Японского Loud Park Фестиваля на Saitama Super Arena в Saitama City. Этот концерт группы Кавердейла прошёл в рамках их "Forevermore World Tour". Первоначально представление было записано для Японского телевидения и последующей рекламной компании Loud Park, однако после трансляции (   Читать дальше...   )01. Best Years
-02. Give Me All Your Love Tonight
-03. Love Ain't No Stranger
-04. Is This Love(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: 01:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773177F7A16AC555444AEEA7E1BF61607C753B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 122610   (49140) от 23.07.2024
-
-Marc Bolan And T.Rex - "Born To Boogie" (2005) 2xDVD9 (Special Edition)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный фильм о концерте легендарных T.Rex, состоявшемся на пике их славы, в 1972-м году, вскоре после выхода альбома «Electric Warrior». «Born To Boogie» был отснят от начала до конца самим Ринго Старом. Это издание включает множество ранее не изданных видеоматериалов, а изображение и звук были отреставрированы, чтобы соответствовать современным стандартам.T. Rex In Concert 5.30pm, 18th March 1972, Wembley Afternoon Concert
-01.  Rosko's Intro
-02.  Cadilac
-03.  Jeepster(   Читать дальше...   )Жанр: RockРежиссер: Ринго Старр / Ringo StarrВ ролях: Марк Болан, Ринго Старр, Элтон ДжонСубтитры: Английские / Французские / Итальянские / Немецкие / ИспанскиеФормат: DVD VideoКачество: DVD9Продолжительность: 02:14:13 + 03:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B480AD53FA30D30D20F25E3780A0684CB56AD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172512   (49136) от 23.07.2024
-
-Этот фантастический мир. Выпуск 8 (1983) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49136.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске популярного теле-альманаха были инсценированы фрагменты рассказов: Р.Брэдбери "О теле механическом я пою" (о работе электронной бабушки, которая, обладая человеческими качествами, дарит нежность детям, лишенным материнской ласки) и И.Варшавского "Тревожных симптомов нет" о профессоре Кларенсе, который соглашается на операцию, лишающую (   Читать дальше...   )Жанр: Фильм-спектакльРежиссер: Виктор СпиридоновАктеры: Юозас Будрайтис, Ромуальдас Раманаускас, Э. Романаускас, Лаймонас Норейка, Хенрикас Кураускас, Моника Миронайте, Елена Морозова, Вайва Вида Майнелите, Гедиминас Гирдвайнис, Витаутас ТомкусПеревод: ОригинальныйПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844D2C9CCC6C6A2BEA6FFB960CB180D905F4F69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464409   (49134) от 23.07.2024
-
-Этот милый старый дом / Ленинградский театр комедии (1983) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-спектакль Ленинградского Государственного Академического театра комедии. Постановка Петра Фоменко по одноименной пьесе Алексея Арбузова.
-
-В гостинице в одном номере поселяют двух женщин. Одна из них приехала, чтобы выйти замуж за человека, которого любит. Другая - чтобы навестить мужа и детей, которых когда-то бросила. Они не предполагают, что скоро обе появятся (   Читать дальше...   )Жанр: мелодрама, спектакльРежиссер: Петр ФоменкоАктеры: Геннадий Воропаев, Майя Тупикова, Виктор Гоголев, Владимир Котов, Ирина Коровина, Николай Павлов, Светлана Карпинская, Ольга Антонова, Аркадий Коваль, Анжелика НеволинаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E51EABDA567BE1FD248C19948053D401AF9BD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 975951   (969659) от 17.01.2016
+
+Яков Брафман | Книга Кагала [2 книги] (1882 - 1888) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Брафман, Яков Александрович - известный в дореволюционной России литератор. Дед русского писателя Владислава Ходасевича. Родился в еврейской семье; на 34-м году жизни принял православие. В 1858 г., при проезде императора Александра II через Минск, подал ему записку, для объяснения которой был вызван в Санкт-Петербург; в 1866 г. напечатал в "Виленском Вестнике" (   Читать дальше...   )Жанр: История России, этнография, документыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6EDDC8EDBC76D8223FA920BAC931CC53C0E6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358629   (968690) от 08.02.2020
+
+Джошуа Правер | Королевство крестоносцев (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся израильский историк Джошуа Правер на страницах своей книги воссоздает жизнь и уклад средневекового общества на Ближнем Востоке в эпоху Крестовых походов. Профессор Правер описывает историю создания крестоносцами Иерусалимского королевства, рассматривает его устройство, систему управления, политические и общественные институты, привнесенные европейцами (   Читать дальше...   )Жанр: История Древнего мираПеревод: В.С. МухинФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3281526908579C1C58DF46FA477B66F92DD9301A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358627   (968688) от 08.02.2020
+
+Вольфганг Акунов | Сказание о наших готских предках (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Во второй половине IV в. п. Р. Х. Римская «мировая» держава была потрясена вторжением германского племени готов, едва не приведшим ее к гибели. Но со временем именно готам было суждено не только вписаться в античный мир, но и стать решающим фактором его выживания и подготовки к переходу в мир феодализма. О судьбе готов, внесших свой вклад и в создание древнерусской (   Читать дальше...   )Жанр: История Древнего мираФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B46AEC532C4B83E85B823E7BA9F63E1F3D02DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358625   (968678) от 08.02.2020
 
 Ангелос Ханиотис | Эпоха завоеваний. Греческий мир от Александра до Адриана (336 г. до н.э. — 138 г. н.э.) (2020) [EPUB]
@@ -6,7 +84,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -594,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -605,88 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28787AA0C846D782B2FAB781882188014DED43D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978413   (962291) от 24.01.2016
-
-А. И. Герцен, Н. П. Огарев (ред.) | Колокол. Газета А. И. Герцена и Н. П. Огарева [11 выпусков] (1962-1964) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание представляет факсимильное воспроизведение замечательного памятника русского революционного движения - газеты А. И. Герцена и Н. П. Огарева "Колокол", выходившей в Лондоне, а затем и Женеве в 1857-1867 гг. "Колокол" был первой бесцензурной русской газетой. Со страниц "Колокола" Герцен и Огарев выступили как выразители (   Читать дальше...   )Жанр: История, политология, экономика, журналистика, документалистика, философия, литературоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316B0AF5FA5A4C5CC299AC2902FDFAF6A46F71F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978418   (962166) от 24.01.2016
-
-А. И. Герцен, Н. П. Огарев | Исторический сборник Вольной русской типографии в Лондоне А. И. Герцена и Н. П. Огарева [3 книги] (1971) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Факсимильное воспроизведение издания 1859 года.
-
-Вольная Русская Типография издавала в Лондоне Исторический Сборник разных документов и статей, актов и писем, невозможных для печатания в России.
-(   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BEAAC1300AC5E516CCE322DDF599F60C95B6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360292   (960737) от 15.02.2020
-
-Константин Носов | Гладиаторы: История. Вооружение. Организация зрелищ (2019) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ave, Caesar, morituri te salutant. «Славься, Цезарь, идущие на смерть приветствуют тебя» – именно так гладиаторы приветствовали римского императора, отправляясь на арену.
-На протяжении восьми столетий, вплоть до IV в. нашей эры, гладиаторские игры были любимым кровавым развлечением римлян. Слава этих бойцов была сродни славе нынешних олимпийцев. Их увековечивали (   Читать дальше...   )Жанр: История Древнего мираФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42469A92852B86D72F11FA0ABD515BA47BD29B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

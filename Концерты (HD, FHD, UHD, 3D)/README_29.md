@@ -1,3 +1,60 @@
+###  Публикация: 1416093   (369117) от 15.10.2020
+
+Pink Floyd - Delicate Sound Of Thunder (1989) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отреставрированная и перемонтированная версия знаменитого фильма-концерта 1989 года с ремастированным и пересведенным звуком. Съемки происходили с 19 по 23 августа в Нью-Йорке на арене Nassau Coliseum во время тура A Momentary Lapse of Reason. Режиссером был Уэйн Ишам. Для переиздания 2019 года была оцифрована 35мм пленка съемки концерта и ремикширован звук. Выпущенный (   Читать дальше...   )Производство: США, CBS/SONY JapanЖанр: Концерт, прогрессивный рок, арт-рокРежиссер: Уэйн ИшэмАктеры: Дэвид Гилмор, Ник Мейсон, Ричард Райт, Джон Карин (клавишные, вокал), Тим Ренвик (гитары, вокал), Гай Пратт (бас, вокал), Гэри Уоллис (перкуссия), Скотт Пейдж (саксофоны, гитара), Маргрет Тейлор (бэк-вокал), Рэйчел Фьюри (бэк-вокал), Дурга МакБрум (бэк-вокал).Язык: АнглийскийПродолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4932A3572FEDEAA325BB6CFE3E68E5FB89D4B67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254732   (367924) от 16.10.2018
+
+Ханс Циммер - Live in Prague / Hans Zimmer - Live in Prague (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Известный кинокомпозитор Ханс Циммер и его первоклассные музыканты исполнили перед многотысячной публикой знаменитую музыку из голливудских блокбастеров. Это уникальный шанс увидеть художника во всем великолепии его музыкального дара и насладиться прекрасными мелодиями в кругу семьи и друзей.
+Концертные съёмки проходили в Праге,<Чехия>.
+Выход Ханса Циммер на (   Читать дальше...   )1. Medley: Driving / Discombobulate / Zoosters Breakout
+2. Medley: Crimson Tide / 160 BPM
+3. Gladiator Medley: The Wheat / The Battle / Elysium / Now We Are Free
+4. Chevaliers De Sangreal(   Читать дальше...   )Производство: Великобритания / Eagle Rock Film Productions, Remote Control ProductionsЖанр: МузыкальныйРежиссер: Tim Van SomerenПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6488C20EB72E764620FA78BB54D70CB2D8F187BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401705   (366936) от 16.10.2020
 
 Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custom]
@@ -6,7 +63,7 @@ Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custo
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +92,7 @@ Coldplay - Live 2012 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -71,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -98,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -124,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -153,7 +210,7 @@ Metallica и Симфонический оркестр Сан-Франциско
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -179,7 +236,7 @@ Tarja Turunen - Act 1 (2012) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -206,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -261,7 +318,7 @@ Gregorian - Live! Masters of Chant  Final Chapter Tour (2016) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -291,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +378,7 @@ Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +407,7 @@ Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +436,7 @@ Anthrax - Chile On Hell 2013 (2014) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +465,7 @@ Megadeth - Rust In Peace Live (2010) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +494,7 @@ Eric Clapton's: Crossroads Guitar Festival (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +523,7 @@ Roger Waters -The Wall Show ( London O2 Arena 5/02/2011 )(Pink Floyd Reunite) (2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -494,7 +551,7 @@ Hugh Laurie: Let Them Talk. A Celebration of New Orleans Blues (2011) [1080i] HD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +580,7 @@ U.D.O. - Live in Sofia (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +641,7 @@ Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +670,7 @@ Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +699,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +728,7 @@ Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,58 +742,6 @@ Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB0CD784865A2500B33D1FCAA0D92225CFEB0DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725021   (347464) от 21.11.2013
-
-Joe Cocker / Fire it Up Live (2013) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Германия / Sony BMG Music EntertainmentЖанр: Rock, Blues-RockРежиссер: Nick WickhamАктеры: Joe Cocker (vocals), Nick Milo (keyboards), Jack Bruno (drums), Gene Black (guitar), Oneida James-Rebeccu (bass), Herman Jackson (Hammond B3), Norberto Fimpel (sax, percussion), Nichelle Tillman, Laura Jane Jones (background vocals)Перевод: ОтсутствуетПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E556B7E210737DD49AFCEA1D16B4AC3E6889723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418658   (346683) от 25.10.2020
-
-Квартирник НТВ у Маргулиса. Хибла Герзмава. Классика и Джаз (24.10.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346683.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сцене «Квартирника» — атмосферный концерт народной артистки России, оперной дивы Хиблы Герзмава. Ее называют золотым сопрано России, она — уникальное явление на отечественной оперной сцене и одна из самых востребованных российских певиц в мире. Хибла выступала в Мариинском театре в Петербурге, в Бунка Кайкан в Токио, в Шатле и Шанз-Элизе в Париже, в театре Коммунале (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF12B4849ED8749E4F2D80E53C1800D5DEF08C22
 ```
 
 https://mybot314.ru/tekegram_catalog/

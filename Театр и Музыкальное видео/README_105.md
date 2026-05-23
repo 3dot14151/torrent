@@ -1,3 +1,171 @@
+###  Публикация: 1077840   (302413) от 30.11.2016
+
+Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концерт записан в августе 2015 года во время тура "3 KINGS TRIBUTE", посвященного трем королям блюза, и состоит преимущественно из музыки Альберта Кинга, Фредди Кинга и Би Би Кинга. Причем, вещи Элберта Кинга Джо играл на собственной гитаре гиганта, купленной у Стивена Сигала. Концерт был построен как помпезное представление в духе эстрадных шоу 90-х Эрика (   Читать дальше...   )01. Beginnings
+02. See See Baby
+03. Some Other Day, Some Other Time
+04. Lonesome Whistle Blues(   Читать дальше...   )Производство: Mascot Music ProductionsЖанр: BluesРежиссер: Philippe KloseАктеры: Joe Bonamassa & BandПеревод: ОтсутствуетПродолжительность: 02:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077946   (302216) от 30.11.2016
+
+Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard RockПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E5E0FDF772D65D9BF64586D03A5F721383B5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078204   (302184) от 30.11.2016
+
+The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В ноябре 2016 года The Rolling Stones на лейбле Eagle Rock выпускают «HAVANA MOON (LIVE)» сразу в нескольких форматах: на Blu-ray, DVD, CD и в цифровом виде. 25 марта 2016 года состоялось уникальное событие - знаменитая британская группа The Rolling Stones приехала на Кубу, чтобы сыграть первый рок-концерт на Острове свободы. Тысячи людей собрались, чтобы послушать (   Читать дальше...   )01. It's About Time...
+02. Jumpin' Jack Flash
+03. It's Only Rock 'N Roll (But I Like It)
+04. Out Of Control(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Clasic Rock, КонцертРежиссер: Paul DugdaleСубтитры: Английские, немецкие, испанские, французские, итальянские, португальские, нидерландскиеПродолжительность: 01:50:05 + 00:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD9844E8AA4695A815803048B93D6A6B9A24562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077848   (302159) от 30.11.2016
+
+Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard RockПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342A984C2061BC82B4097B5D41442ABC753C62A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075986   (302092) от 30.11.2016
+
+Избранные моменты оперных и балетных спектаклей / The Blu-Ray Experience: Opera & Ballet Highlights (2008) Blu-Ray [1080i] [EN]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот диск представляет из себя подборку классических оперных арий и балетных партий из известнейших спектаклей разных театров Мира. Музыка Верди, Чайковского, Моцарта, Бизе в исполнении Bryn Terfel, Cecilia Bartoli, Anne Sofie von Otter, Jose Cura, Simon Keenlyside and Agnes Letestu. Потрясающее качество видео и окружающий звук не оставит равнодушным истинного почитателя (   Читать дальше...   )01. Giuseppe Verdi: Il Trovatore
+Act II: Gypsy Chorus
+The Royal Opera Chorus
+Orchestra of the Royal Opera House(   Читать дальше...   )Производство: США, Opus ArteЖанр: Опера, вокальная, балет, симфоническая музыкаПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968220E73E5D2488689DB3DF763304B258177448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844988   (302045) от 02.12.2014
+
+A Classic Rock Tribute To Led Zeppelin (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Classic Rock Quartet представляет композиции Led Zeppelin01. Dazed And Confused
+02. Thank you
+03. Tangerine
+04. That’s The Way(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9584438C90D7B2FF9C6C63A1BE91B10FBFE30917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846283   (301703) от 02.12.2014
 
 Золотой граммофон. 19-я Церемония вручения народной премии (Полная версия)  (2014.11.29) WEBRip
@@ -6,7 +174,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -36,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -66,7 +234,7 @@ Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -92,7 +260,7 @@ Dio - Evil Or Divine (Live in New York City) (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -121,7 +289,7 @@ New Order, Live In Glasgow (2008) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +319,7 @@ Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +348,7 @@ Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +377,7 @@ Slipknot - Day Of The Gusano (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +406,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) WEBRip 
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +464,7 @@ Queen – A Night At The Odeon (2015) (Recorded Live At The Hammersmith 1975) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +493,7 @@ VA - Осенний марафон № 208: Хиты с доставкой на 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +682,7 @@ U.D.O. – Steelhammer: Live from Moscow (2014) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,170 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D036DA8714045C8F86EAEE45121324161AA15F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961336   (298805) от 02.12.2015
-
-АукцЫон - В Багдаде всё спокойно (Live) (1987/2015) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298805.jpg" />
-</div>
-
-
-###  Подробнее
-
-V Фестиваль Ленинградского рок-клуба. Ленинградский Дворец Молодёжи, 06 июня 1987 года. Впервые издающаяся съёмка этого концерта помещена на DVD издания. Судьба видео, включённого в издание, - запутанная и почти детективная история. В ходе работы издательство «ГЕОМЕТРИЯ» разместило в сети Интернет объявление о поиске записи. Она была найдена в США и переправлена (   Читать дальше...   )01. Пролог
-02. Путь в Джинистан
-03. Банзай
-04. Водяная дисциплина(   Читать дальше...   )Производство: ГеометрияЖанр: КонцертПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387258F4FCDAE1F93EB351B96874EDCE0E152EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334032   (298734) от 27.10.2019
-
-Квартирник НТВ у Маргулиса. Группа Сурганова и Оркестр (26.10.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298734.jpg" />
-</div>
-
-
-###  Подробнее
-
-На свой сольный квартирник в гости к Евгению Маргулису пришла певица, автор песен и скрипачка Светлана Сурганова. Она рассказала о неизданном сольном альбоме, работе в театре и о том, что она делает во время поездок за рулем. Вместе со своей группой певица исполнила всеми любимые хиты «Мураками», «Весна», «Белая песня» и новые композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B5308711432228008326B351EE2FC9ADAF0041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317716   (298646) от 27.10.2019
-
-Дом окнами в поле (1979) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298646.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Александра Вампилова.
-Нерешительность и застенчивость сельского учителя Третьякова мешает ему объясниться в любви заведующей молочной фермой колхоза Астафьевой. Не понимая, что его любовь взаимна, Третьяков намерен уехать из села. Однако героиня сама приходит ему на помощь…Производство: СССР / Главная редакция литературно-драматический программ ЦТЖанр: Телеспектакль, короткометражный, мелодрама, экранизацияРежиссер: Геннадий ПавловАктеры: Станислав Любшин, Ирина КупченкоСубтитры: ОтсутствуютПродолжительность: 00:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9799C8E995ACE457709BFBD5A84690E16153EF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184597   (298529) от 18.11.2017
-
-Black Sabbath - The End (Live In Birmingham) (2017) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись последнего концерта в истории BLACK SABBATH, состоявшегося 4 февраля в зале "Genting Arena" в Бирмингеме (Англия), издана лейблом Eagle Vision 17 ноября под названием "The End". На концерте в крайне эмоциональной атмосфере звучали такие хиты как "Iron Man", "Paranoid", "War Pigs" и мн. др. Также для выступления (   Читать дальше...   )01. Black Sabbath
-02. Fairies Wear Boots
-03. Under The Sun / Every Day Comes And Goes
-04. After Forever(   Читать дальше...   )Производство: Eagle VisionЖанр: Hard RockПродолжительность: 01:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D836FF04C43789EAF0EDBDF571E499B3E344D851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055609   (298479) от 27.10.2019
-
-Рональд Харвуд - Костюмер (1987) DVDRip (2 части) (Театр имени М.Н. Ермоловой)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298479.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Р. Харвуда в постановке Московского театра имени М.Н. Ермоловой.
-Костюмер Норман 20 лет верой и правдой служит своему хозяину - актеру сэру Джону. Каждый вечер он гримирует сэра Джона, повторяет с ним роль и помогает выйти на сцену. Старый актер поверяет костюмеру тайну - он пишет книгу о своей жизни в театре. Неожиданно сэр Джон умирает. Норман (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программ Гостелерадио СССРЖанр: Спектакль, драма, экранизацияРежиссер: Евгений Арье, Алина КазьминаАктеры: Зиновий Гердт, Всеволод Якут, Наталья Архангельская, Татьяна Щукина, Татьяна Аргунова, Владимир Васильев (II), Николай Макеев, Павел МахотинПродолжительность: 2 x ~ 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B836D2D462A4ECA83D2E5683B424DB5D1C6060E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078766   (297929) от 02.12.2016
-
-Джоаккино Россини - Севильский цирюльник / Gioachino Rossini - Il Barbiere di Siviglia (2005) BDRip (2 части) [H.264/720p] [IT]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297929.jpg" />
-</div>
-
-
-###  Подробнее
-
-XVIII век, Севилья. Граф Альмавива влюблен в прекрасную Розину, которую неусыпно охраняет от чужих взглядов ее опекун - доктор Бартоло. Старик мечтает сам жениться на Розине - богатой наследнице. Цирюльник Фигаро, мастер на все руки (и парикмахер, и хирург, и ветеринар, и почтальон) готов помочь графу в его сердечных делах за определенную плату. Тем более, что Розина (   Читать дальше...   )Производство: Испания, Opus Arte, Teatro Real, Mediapro MMVЖанр: ОпераРежиссер: Анхель Луис Рамирес, Эмилио СахиАктеры: Хуан Диего Флорес, Бруно Пратико, Мария Байо, Пьетро Спаньоли, Руджеро Раймонди, Марко Монклоа, Сусана Гордон, Энрике Санчез Рамос, Антонио Ортега, Хосе Антонио СангиноСубтитры: Английские, немецкие, французские, испанскиеПродолжительность: 2 x ~ 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3945897EB397C8AD24D31F2AE9C235A33DF308
 ```
 
 https://mybot314.ru/tekegram_catalog/

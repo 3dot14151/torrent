@@ -1,3 +1,55 @@
+###  Публикация: 1139471   (659820) от 02.06.2017
+
+Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город - Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, ДанияЖанр: Приключения, Детский, КукольныйРежиссер: Крис МакКейПерсонажи: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Сири, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (iTunes)Субтитры: русские (форсированные, полные), английские (полные)Продолжительность: 01:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D78372C7185984A514FFD66F189F23AEFB859C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139585   (658883) от 03.06.2017
+
+Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [handmade 16:9]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город - Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, ДанияЖанр: Приключения, Детский, КукольныйРежиссер: Крис МакКейПерсонажи: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Сири, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (iTunes)Субтитры: русские (форсированные, полные), английские (полные)Продолжительность: 01:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6568E17ABDE1CF3FB9C03C324E2884593473033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539559   (657141) от 26.03.2022
 
 Красавица и чудовище / Beauty and the Beast (1991) BDRip 3D [H.264/1080p] [Theatrical cut] [Вертикальная анаморфная стереопара]
@@ -6,7 +58,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:096BA29238FBE8E9736804EB11344B9DC6CDC3D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802968   (620739) от 09.07.2014
-
-Храброе сердце / Ritter Rost - Eisenhart und voll verbeult (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620739.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном сказочном королевстве, где есть мудрый король, прекрасная принцесса и храбрый рыцарь, как это всегда бывает в сказках, появился хитрый и коварный злодей, задумавший стать новым правителем. Единственный кто может помешать его планам — находчивый рыцарь Расти. Пусть пока у него не все получается, и многие не воспринимают его всерьез, он обязательно станет настоящим (   Читать дальше...   )Жанр: Мультфильм, Приключения, СемейныйРежиссер: Томас Боденштайн, Хьюберт Вейланд, Нина ВелсПерсонажи: Рик Каваниан.  Каролин Кебекус.  Кристоф Мария Хербст.  Том Герхардт.  Детлеф Редингер.  Дастин Земмельрогге.  Хартмут Нойгебауер.  Ульрих Фрэнк.  Пьер Питерс-Арнольдс.  Анита ХёферПеревод: Дублированный (R5)Продолжительность: 01:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB70CE359D699CD4BF7E2F2E4DE783ACFB2106B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544608   (619906) от 16.04.2022
-
-ЛЕГО Ниндзяго Фильм / The Lego Ninjago Movie (2017) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ниндзяго-сити призывает на свою защиту юного Ллойда, он же Зеленый ниндзя, и его друзей, тайных воинов и Великих мастеров ЛЕГО. Под предводительством кунг-фу мастера Ву, столь же умного, сколь и остроумного, они должны одолеть злобного диктатора Гармадона, Самого Злодейского Злодея, который оказывается отцом Ллойда. Роботы против роботов, сын против отца; эпическое (   Читать дальше...   )Производство: США, Дания, Австралия / Animal Logic, LEGO System A/S, Lin PicturesЖанр: мультфильм, фантастика, фэнтези, боевик, триллер, драма, комедия, приключения, семейныйРежиссер: Чарли Бин, Пол Фишер, Боб ЛоганПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (forced), английские (full, SDH)Продолжительность: 01:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0392A8D076E66DFDD0ED632D4CF27414E979553C
 ```
 
 https://mybot314.ru/tekegram_catalog/

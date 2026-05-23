@@ -1,3 +1,185 @@
+###  Публикация: 1203222   (787904) от 02.02.2018
+
+KMS Tools Portable 01.02.2018 by Ratiborus [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F43BBAD9FCB4279E395BCD6132C0FBAF79A55F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801130   (787867) от 16.01.2019
+
+Василий Звягинцев | Бульдоги под ковром (2019) [MP3]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уже несколько тысячелетий сверхцивилизации аггров и форзейлей воюют друг с другом, избрав ареной тайных битв Землю. Перемещения во времени и «переписывание» прошлого — один из приемов этой войны. Но история творится руками самих землян, и именно затем нужны пришельцам Андрей Новиков и его друзья. Герои романа В.Звягинцева не желают быть слепым орудием инопланетного (   Читать дальше...   )Жанр: Альренативная история, ФантастикаПродолжительность: 13:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26AFD5A874857CA1254746E66A9AE6D6F7D749E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276207   (787860) от 16.01.2019
+
+Хантер Киллер / Hunter Killer (2018) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Американская атакующая субмарина «Хантер Киллер» вместе с подразделением Военно-Морских сил США вступает в крайне рискованную боевую авантюру по спасению мира от катастрофы. Когда время на исходе и каждая минута на счету, элитной команде придется совершить невозможное, чтобы предотвратить конфликт мирового масштаба.Производство: США | Hunter Killer Productions, Millennium FilmsЖанр: Боевик, триллерРежиссер: Донован МаршАктеры: Джерард Батлер, Гари Олдман, Коммон, Зейн Холц, Микаэл Нюквист, Тоби Стивенс, Линда Карделлини, Этан Бейрд, Джейкоб Скипио, Демпси БовеллПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67445775C6B3411EFA3F74A12724179019BEE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511548   (787736) от 23.11.2021
+
+Need for Speed Anthology (1997-2017) [Ru/En] Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed™, одна из ведущих игровых серий возвращается ради мести в новой Need for Speed Payback - Эксклюзивное издание. Действие происходит в теневом мире Фортуна-Вэлли. Вы и ваша команда разделены предательством и объединены заново местью.Тип издания: RepackРазработчик: Ghost GamesЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39866CAE38E44ACA3BC1514D4D7A1225A1529D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203583   (787533) от 03.02.2018
+
+День разгрома немецко-фашистских войск в Сталинградской битве
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+2 февраля отмечается День воинской славы России — День разгрома советскими войсками немецко-фашистских войск в Сталинградской битве (1943), установленный в соответствии с Федеральным законом от 13 марта 1995 года "О днях воинской славы и памятных датах России".Сталинградская битва — одна из крупнейших в Великой Отечественной войне 1941-1945 годов. Она началась (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276426   (787435) от 17.01.2019
+
+Звезда родилась / A Star Is Born (2018) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кантри-музыкант Джексон Мейн, чья карьера быстро катится под откос, однажды знакомится с никому не известной талантливой певицей Элли. Между героями вспыхивает страстный роман. Джек помогает Элли добиться успеха. Но чем стремительнее набирает обороты музыкальная карьера Элли, тем сложнее ему мириться со своей увядающей славой.Производство: США | Warner Bros. Pictures, Metro-Goldwyn-Mayer, Thunder RoadЖанр: Мелодрама, музыкаРежиссер: Брэдли КуперАктеры: Леди Гага, Брэдли Купер, Сэм Эллиотт, Эндрю Дайс Клэй, Рафи Гаврон, Энтони Рамос, Дэйв Шаппелл, Алек Болдуин, Марлон Уильямс, Брэнди КарлайлПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 02:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6617C0C337E03BF47F073667B05967FFA34CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203518   (787416) от 03.02.2018
+
+Windows 7 SP1 x86 x64 AIO Release by StartSoft 05-2018 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры операционной системы Windows 7 SP1 с разной разрядностью. В ее состав входит образ ISO который предназначен для записи на флешку от 16 Гигабайт и выше. В сборке поддерживается установка системы с языковыми интерфейсами на английском, русском и украинском языках. Операционная система  устанавливается на том языке, который (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA7467ADB1453293B59B713A105EF8E7CB117EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203524   (787412) от 03.02.2018
 
 loftschool | Комплексное обучение JavaScript (2017-2018) PCRec [H.264]
@@ -6,7 +188,7 @@ loftschool | Комплексное обучение JavaScript (2017-2018) PCRe
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +240,7 @@ Constructor Paravis Flash ver:Beta 01.2019 [UEFI | x86/x64 | RU/EN]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +269,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 01.2019 1DVD v
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +348,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +374,7 @@ qBittorrent 3.3.12 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +452,7 @@ Navitel / Навител Навигатор v9.8.2 Full для карт рели
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +504,7 @@ Far Cry 2: The Fortune’s Pack (2008) [En] (1.03/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +608,7 @@ Corel VideoStudio Ultimate X10 20.1.0.14 (x64) RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,188 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B6479A7241EE34590C040A64F8A2E467301BE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124465   (785691) от 11.04.2017
-
-Acronis True Image 2017 New Generation 21.0.6206 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E45F69628B12C42D7C0A1C191E6C52BEE2B372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123640   (785679) от 11.04.2017
-
-KMSAuto Net 2016 1.5.0 Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785679.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSAuto Net — автоматический KMS-активатор для операционных систем Windows VL-редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, а также Office 2010, 2013, 2016. Дополнительно программа активирует: Windows 8.1 Single Language; Windows 8.1 Core; Windows 8.1 Core N; Windows 8.1 Pro WMC; Windows Embedded 8.1 Industry Pro; Windows Server 2012 R2 Standard; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4E4ACC839A9CF485E990766330F84864EB2126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124739   (785492) от 12.04.2017
-
-Демон внутри / The Autopsy of Jane Doe (2016) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой девушки без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: Великобритания, СШАЖанр: Ужасы, детективРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Паркер Сойерс, Джейн Перри, Ив О’ХараПеревод: Профессиональный многоголосый (AlexFilm)Субтитры: ОтсутствуютПродолжительность: 01:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA6DA2B87D2B0F333A0B1508E79E76B06A036C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124713   (785489) от 12.04.2017
-
-Adobe Photoshop Lightroom CC 2015.10 (6.10) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD63C25328D1BFE22F5C348B8611BEB4996094E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918776   (785488) от 12.04.2017
-
-Assassin's Creed 3 (2012) [Ru/En] (1.06/dlc) Repack =nemos= [Ultimate Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полноценная третья часть серии Assassin's Creed. Нам предстоит сыграть роль полукровки – британца по отцовской линии и индейца-мохока по материнской – со странным для нашего уха именем Ratohnaké:ton. События Assassin’s Creed 3 будут развиваться во времена Войны за независимость США. Вы – ассасин Коннор, поклявшийся сохранить свободу и безопасность своего народа (   Читать дальше...   )Тип издания: RepackРазработчик: UbisoftЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4BC7E82F917F0AC9996D5EC5AC0FE437FE12CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124829   (785486) от 12.04.2017
-
-Телейос / Teleios (2017) HDRip [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее. Ученые создали технологию модификации молекул днк и спроектировали генетически совершенного человека. Экипаж из таких безупречных людей направляется к Титану, чтобы забрать критически важный для выживания человечества груз. Но прибыв к месту назначения, они сталкиваются с множеством тайн, оставшихся после гибели предыдущего экипажа. Что же на самом деле (   Читать дальше...   )Производство: СШАЖанр: ФантастикаРежиссер: Йен ТрюйтнерАктеры: Санни Мабри, Лэнс Бродвэй, Т.Дж. Хобан, Кристиан Питре, Майкл Шеннон Дженкинс, Урсула Миллс, Weetus Cren, Майкл Нури, Лейла Бирч, Бретт Роберт КулбертПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: отсутствуют.Продолжительность: 01:30:35Реклама: присутствуют аудио и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB58B0E8B2C1D21D4CDB8A8D7A1D50F3D2EB1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276800   (785299) от 20.01.2019
-
-Ученые впервые вырастили кровеносные сосуды человека в лаборатории
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команде британских и австрийских биоинженеров впервые удалось вырастить кровеносные сосуды человека. Результаты эксперимента публикует журнал Nature.Вырастить сосуды удалось из органоидов — специальной структуры, культивированной из стволовых клеток.«Наши органоиды напоминают человеческие капилляры, даже на молекулярном уровне. Теперь мы можем использовать их, чтобы (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

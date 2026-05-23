@@ -1,3 +1,206 @@
+###  Публикация: 1079331   (294007) от 04.12.2016
+
+Michael McCann, Sascha Dikiciyan, Ed Harrison - Deus Ex: Mankind Divided (Original Soundtrack) (2016) Extended Edition [MP3|320 кб/с]<Soundtrack, Ambient>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Mayhem - Martial Law (03:10)
+02. Sonic Mayhem - Prague (04:11)
+03. Sonic Mayhem - The Orchid (04:16)
+04. Sonic Mayhem - Apex Towers (02:39)(   Читать дальше...   )Жанр: Soundtrack, Score, AmbientПродолжительность: 01:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6818EB1D9EFEFCC23B09CC4613B1B8AC08CB9D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079518   (293897) от 04.12.2016
+
+VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector's Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
+02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
+03. Twenty One Pilots - Heathens (03:16)
+04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF0E024FEDC734C5F1D15E115BC59AE7067822A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079334   (293889) от 04.12.2016
+
+Michael McCann, Sascha Dikiciyan, Ed Harrison - Deus Ex: Mankind Divided (Original Soundtrack) (2016) Extended Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Mayhem - Martial Law (03:10)
+02. Sonic Mayhem - Prague (04:11)
+03. Sonic Mayhem - The Orchid (04:16)
+04. Sonic Mayhem - Apex Towers (02:39)(   Читать дальше...   )Жанр: Soundtrack, Score, AmbientПродолжительность: 01:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6C027B7431AAF2445DA047384279E91DF65D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079517   (293759) от 04.12.2016
+
+VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector's Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
+02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
+03. Twenty One Pilots - Heathens (03:16)
+04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BC3A1568DFAD78765FCF58CE34C328A728EE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421265   (293728) от 11.12.2011
+
+Ритмы мира - Космический транс (2002) [FLAC|Lossless|tracks] <Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Создание (9:24)
+02. Эдем (8:28)
+03. Танец Огня (5:14)
+04. Синяя Планета, Часть Первая (8:36)(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C2ECF2FBAF88D49A52D6E5C0B0A4A3418A1DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962515   (293513) от 05.12.2015
+
+VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Crab Nebula - Indira Bula
+02. Ishtar's Song - Barenan
+03. Aldebaran Eye of the Taurus - Gita Davi
+04. The Pleiads - Sarala Rati(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF590ED2A910EC6E5185EBAD021D5F6C3A33D75F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962523   (293504) от 05.12.2015
+
+VA - Ethereal Dreams Vol. 2 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Jekha - Light of Fire
+02. Albena - Alnasi
+03. Sangmo - Chort
+04. Dalai Surama - Mystic Gold(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB3B73E35B110DDC53D48159F35C90A82654D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185483   (293491) от 21.11.2017
 
 Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
@@ -6,7 +209,7 @@ Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +264,7 @@ Chilly Gonzales - Solo Piano (2004) [FLAC|Lossless|image + .cue] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +293,7 @@ Chilly Gonzales - Solo Piano II (2012) [FLAC|Lossless|image + .cue] <Instrumenta
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +322,7 @@ Glen Campbell - Sings For The King (2018) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +351,7 @@ Byron Metcalf - Inner Rhythm Meditations Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tra
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +380,7 @@ VA - Fifty Shades Of Grey (Original Motion Picture Soundtrack) (2015) Target Exc
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +409,7 @@ Greg Maroney - The Light Within (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +438,7 @@ VA - Los clasicos argentinos - Tango - Vol.13 - Julio De Caro: El gran melodioso
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -264,7 +467,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +496,7 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +525,7 @@ Andreas - Magickal Nights (2011) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +554,7 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +583,7 @@ PJ Harvey - All About Eve (2019) (Original Music) Soundtrack [FLAC|Lossless|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +612,7 @@ Celtic Woman - The Magic of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +641,7 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +670,7 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +699,7 @@ Gregorian - The Platinum Collection (2017) [MP3|320 Kbps] <New Age, Medieval, Ot
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +728,7 @@ VA - Acoustic Songs About Love (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,215 +742,6 @@ VA - Acoustic Songs About Love (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B62BD7D952648AF83900E703B26844A99CDDD2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080323   (290145) от 06.12.2016
-
-Armik - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Dreams (4:54)
-02. Moonlight Cafe (4:45)
-03. Mar De Suenos (4:58)
-04. Morning Sun (5:15)(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 02:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F6C6AB723B77E55B9D5BD8CF71B9DB9C1BB3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262843   (289910) от 18.11.2018
-
-Chilly Gonzales - Solo Piano III, 2CD (2018) Japan Edition [FLAC|Lossless|tracks + .cue] <Instrumental, Piano, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом "Solo Piano III" завершает соло-фортепианную трилогию  от Chilly   Gonzales. "Музыкальная чистота соло-фортепиано III не является противоядием для нашего времени", - говорит он, "это отражение всей красоты и уродства вокруг нас. "
-
-Бонусный CD2 включает композиции исполненные совместно с  "Kaiser Quartett"01. Treppen
-02. Pretenderness
-03. Prelude In C Sharp Major
-04. Famous Hungarians(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A50A5439789AE77A0A2C4FF7EBF2F895812A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185957   (289825) от 23.11.2017
-
-Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming Flutes
-02. Pride & Reign
-03. Deep Celtic
-04. Reprise(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFDB2173AE41472B0FA48F2EA9662856037EE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185690   (289660) от 23.11.2017
-
-Bill Yeats - Relaxing Spanish Guitar (2008) [APE|Lossless|WEB-DL|tracks] <Instrumental, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I'm With You 3:47
-02 - Piazza Garibaldi 4:26
-03 - Midday On The Promenade 3:40
-04 - Sangria 4:47(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4368A9E0EE6085BFA845E37ED1BEB00AA5837FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080057   (289650) от 06.12.2016
-
-Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music from the HBO Series) (2016) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Theme – Westworld (01:42)
-02. Sweetwater (02:53)
-03. Black Hole Sun (02:29)
-04. Paint it Black (05:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9302430A8375FE582615373228F7C06B43EFE2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335266   (289579) от 01.11.2019
-
-Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1m1 Logos (00:41)
-02. 1m1a The Opening (03:18)
-03. 1m1a The Opening (Alternate) (03:24)
-04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B5DC23CFEC91A2812BED54669F85490475A686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379695   (289510) от 08.12.2014
-
-Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Nature>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2002 - Musica, Natureza & Cia
-2010 - Melodias da Natureza, Vol. 2
-2011 - Relaxing Melodies of Nature
-2012 - Piano Impressions, Vol. 1
-2012 - Spirit Of Nature
-2013 - Piano Impressions, Vol. 2Жанр: New age, Relax, NatureПродолжительность: 05:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A901E234E9D555F8E4FC0C386DC3D0DC3FF46C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

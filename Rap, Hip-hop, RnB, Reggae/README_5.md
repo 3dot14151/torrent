@@ -1,3 +1,119 @@
+###  Публикация: 1365583   (929024) от 08.03.2020
+
+VA - Ingenious Pleasure, Vol. 4 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Sofasound - Low Low [02:06]
+02. AedFX - Strive [03:08]
+03. Fungi - Rhealest [02:28]
+04. capshun - Ode to Sammy G [04:04](   Читать дальше...   )Жанр: Rap, Hip-Hop, InstrumentalПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8383305770704041AB0A7F67911FFB21F2EF09E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365595   (929018) от 08.03.2020
+
+BONES - BRACE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. 1WayTicket [02:30]
+02. Suffer [02:10]
+03. SpeedOfLight [02:18]
+04. HappensToTheBestOfUs [02:30](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A24E3D60B7C1CF78ECA8E96F3C29CB59667268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365585   (928907) от 08.03.2020
+
+Lil Uzi Vert - Eternal Atake (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Pluto [03:30]
+02. Lo Mein [03:15]
+03. Silly Watch [03:16]
+04. Pop [03:48](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9633E272CDA03DA31D8EFB0FA155072E90F84E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286017   (928477) от 25.01.2011
+
+KREC - 8 Альбомов + 3 Компиляции (2001-2010) [FLAC|Lossless]<Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+KREC — российская рэп-группа из Санкт-Петербурга. Название группы — сокращение от kitchen-records. Название обусловлено тем, что первые треки ребята записывали прямо на своей кухне. Группа определяет свой стиль как «добрая грусть».Список альбомов:
+2001 - Вторжение
+2004 - Нет волшебства
+2005 - Другие Берега (соло Ассаи)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 10:51:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094754   (927616) от 19.01.2017
 
 Кажэ Обойма - Г.Р.У.Б.О.Р. Выпуск 2 (2017) EP [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -6,7 +122,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +151,7 @@ Kanye West - The Life of Pablo (2016) [FLAC|Lossless|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +180,7 @@ BONES - OFFLINE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +209,7 @@ Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +267,7 @@ Twista - Lifetime (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +296,7 @@ $uicideBoy$ - STOP STARING AT THE SHADOWS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +325,7 @@ Usher - Confessions (2004) [FLAC|Lossless|tracks + .cue] <RnB, Swing>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +354,7 @@ Noize MC - Царь Горы (2016) [FLAC|Lossless|image + .cue] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +383,7 @@ King Iso - World War Me (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +412,7 @@ Creation Rebel - Close Encounters Of The Third World (1978) LP [MP3|320 Kbps] <D
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +441,7 @@ Tveth - Caps Lokk (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +470,7 @@ Redo - Underated 2 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +499,7 @@ VELIAL SQUAD - Голову на плаху (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +528,7 @@ Jeembo & Tveth - PAINKILLER III (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +557,7 @@ XIII - Город 13 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +586,7 @@ DOPE D.O.D. - Do Not Enter (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +615,7 @@ Token - Between Somewhere (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +644,7 @@ Muppy - Burn This Place (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +673,7 @@ Lord Infamous x T-Rock x C-Rock - Scarecrow & Da Roc-a-Fellaz (2020) [MP3|320 Kb
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +702,7 @@ GSPD - Музло (2019) [MP3|320 Kbps] <Rave, Dance, Pop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ghostemane - N / O / I / S / E (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ghostemane - N / O / I / S / E (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6DF4960A7B3D08D14CEBFDFFB40C7B0E04C372D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367591   (915821) от 16.03.2020
-
-SharOn - Шарашка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Динамит [03:22]
-02. Монолог [04:35]
-03. Бобби Фишер [03:14]
-04. Топчем [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA801DB4B12E0E3387017F4EEA23C343D2B163E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367269   (915793) от 16.03.2020
-
-P Money - Money Over Everyone 3 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Grime>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One [02:44]
-02. Where & When [03:23]
-03. About Grinding [04:07]
-04. Lose My Cool [04:21](   Читать дальше...   )Жанр: Rap, Hip-Hop, GrimeПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846ABED00A317388379A3E14617991FAC45D83E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367614   (915783) от 16.03.2020
-
-Slimus x ВесЪ - Улей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:57]
-02. Сектор Приз [03:29]
-03. Улей [02:54]
-04. Обарщение Перзидента [01:30](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59383BEF75BFFD0466547437772422247E6F57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367549   (915561) от 16.03.2020
-
-RAM (Грязный Рамирес) - Traumatix (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мертвецы (prod. Mj Free) [02:54]
-02. Deep Throat (prod. Boris Redwall) [03:23]
-03. Mr. Sinister feat. Killa Sof (prod. MINIGUNPUNK) [02:34]
-04. Doping (prod. Boris Redwall) [02:43](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC6368AFC3819C61C9C284158C8DD4A34BAF561
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1299113   (599589) от 01.05.2019
+
+Gegege no Kitarou (2018) | Китаро из леса Гегеге [ТВ-6] [2018, TV, 50 из 100] WEB-Rip raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шестая аниме-адаптация по мотивам манги гениального иллюстратора и признанного мастера жанра фольклорных историй из жизни ёкаев Сигэру Мидзуки, скончавшегося в 2015 году в возрасте 93 лет, приуроченная к пятидесятилетию оригинального сериала «Щелкунчик Китаро».
+В XXI веке с ростом технологического прогресса люди, окружённые больше не считающимися фантасмагорией девайсами (   Читать дальше...   )Производство: Япония, студия Toei AnimationЖанр: приключения, фэнтезиРежиссер: Огава КодзиПеревод: Русские - Crunchyroll до 37 серии (Внешние отдельным файлом .ass)Язык озвучки: Японский и русский (Профессиональный (Многоголосый) Studioband / Wakanim)Субтитры: РусскиеПродолжительность: 50 эп. по ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EC0066FECFD2BDB302CBBAF54FC6F2BDF1E1CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198091   (597601) от 25.06.2018
+
+Grancrest Senki / Record of Grancrest War / Легенда о Гранкресте [2018, TV, 24 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+У жителей континента, где происходят события аниме, есть общий враг, и это демоны, называемые Хаосом, которые неустанно угрожают континенту бедствиями, разрушениями и смертями. Конечно, наличие общего врага обычно объединяет, так и было в самом начале, когда Правители этого континента отбивали атаку Хаоса с помощью Гербов, дающих им сверхъестественные силы. Но жадность (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Омата СинъитиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C2D5CCB24E363053FD50AFE424879CCF0887D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039265   (597362) от 31.07.2016
+
+Cowboy Bebop: Tengoku no Tobira / Ковбой Бибоп: Достучаться до небес (2001) HDRip [H.264] (ВидеоСервис ) [MP4|720x552@1024x552]
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Марс, 2071 год. В самый канун Хэллоуина, когда на Земле по улицам ходят ряженые, а дети украшают дом тыквенными головами со свечками внутри, Красную планету постигает страшная трагедия. В результате теракта с применением биохимического оружия массового поражения погибают сотни колонистов. Тот, кто совершил это злодеяние должен понести заслуженную кару, поэтому за (   Читать дальше...   )Производство: Япония, США / Sunrise Inc., Bandai Visual Co. Ltd., BonesЖанр: Аниме, Мультфильм, Фантастика, Боевик, Триллер, КомедияРежиссер: Синъитиро Ватанабэ, Хироюки ОкиураАктеры: Коити Ямадера, Унсё Исидзука, Мэгуми Хаясибара, Аой Тада, Юсаку Яра, Кадзухико Иноэ, Дзюрота Косуги, Кинрю Аримото, Хидэкацу Сибата, Юдзи УэдаПеревод: Многоголосый закадровый - ВидеоСервисЯзык субтитров: РусскийПродолжительность: 01:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425D3A3B3CB23E1E6CB8B1B220AC07F4DFD9B4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 676697   (597196) от 02.05.2019
+
+Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпион [2012, TV, 13] BDrip 720p Hi10P raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Самое страшное существо во Вселенной – японский школьник, вступивший в пору весны юности! Потому 16-летний Годо Кусанаги ничуть не удивился, когда чудаковатый дедушка послал его, не знающего ни дороги, ни языка, в Италию - вернуть старой знакомой некую каменную табличку. Бравый парень тем более не потерялся, когда узнал, что кругом бродят маги, чудища и древние боги – ведь в аниме, манге и ранобэ все рецепты давно расписаны! Потому, победив с помощью чудесной таблички и резковатой красотки Эрики Бланделли персидского бога Веретрагну, Кусанаги спокойно принял божественные способности, став одним из семи «кампионе» - супервоинов, способных поражать даже небожителей. После этого, как и положено, герой вернулся домой и поступил в старшую школу.
+
+Разумеется, Эрика, оказавшаяся рыцарем-магом из тайной организации «Черный крест», последовала за «любимым» в Японию, ибо не хотела терять из виду перспективного парня. Только в стране Ямато тоже не дураки живут, и к Кусанаги соответствующие структуры мастерски «подвели» Юри (   Читать дальше...   )Жанр: приключения, экшенРежиссер: Кусакава КэйдзёПродолжительность: 13 серий по 24 минуты
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561037   (597191) от 02.05.2019
 
 Mobile Police Patlabor: The Movie / Полиция Будущего (фильм первый) [1989, MV] BDRip 720p raw + rus
@@ -6,7 +113,7 @@ Mobile Police Patlabor: The Movie / Полиция Будущего (фильм 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ Pokemon: Black and White. Rival Destinies / Покемон: Чёрное и Бе
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ Ryuu no Haisha | The Dragon Dentist | Драконий зубной [2017, Speci
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +218,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +271,7 @@ Grisaia no Rakuen / The Eden of Grisaia / Эдем в серых тонах [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +297,7 @@ Fantastic Children / Фантастические дети [2004, TV, 26] DVDrip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +323,7 @@ Trinity Blood / Кровь Триединства [2005, TV, 24 серии] BDri
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +349,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 720p Hi10p raw
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +376,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +402,7 @@ Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +429,7 @@ Samurai Seven | Семь Самураев | 7 самураев [2004, TV, 26] HD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +455,7 @@ Galilei Donna | Девы Галилея [2013, TV, 01-11 из 11] BDRip 400p raw
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +481,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 01-24 из
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +507,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +533,7 @@ Pokemon: Advanced (6 Season) / Покемон: Новое поколение (6 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +559,7 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +586,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25] BDRip 400
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +612,7 @@ Psycho-pass | Психопаспорт (два сезона) [2012-2014, TV, 22 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +638,7 @@ Pandora Hearts / Сердца Пандоры [2009, TV, 25] DVDrip raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +666,7 @@ Aoki Hagane no Arpeggio: Ars Nova / Arpeggio of Blue Steel / Арпеджио г
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,114 +677,6 @@ Aoki Hagane no Arpeggio: Ars Nova / Arpeggio of Blue Steel / Арпеджио г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E26A51DC974D6B693382A20FB920453F01D4579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303146   (575543) от 19.05.2019
-
-Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [2001, Movie] DVDRip 576p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запертая отцом-королём до замужества в высокой башне замка, принцесса Аритэ коротает дни, созерцая мир, открывающийся из окна. Иногда она украдкой ускользает из дворца, чтобы понаблюдать простой люд в его обыденных трудах. Рыцари королевства соперничают за право жениться на ней и править подвластными землями, пытаясь добыть для неё самые ценные сокровища магии, созданные (   Читать дальше...   )Производство: Япония,Жанр: фэнтези, драма, приключенияРежиссер: Катабути СунаоПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 115 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4CF3CB5303F88C32C4FD5B859063557C5FD6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303239   (575542) от 19.05.2019
-
-Rean no Tsubasa | The Wings of Rean | Крылья Рин [2005, ONA, 6 эп.] DVDRip 720p Hi10p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судзуки усиленно разыскивался Американской армией и полицией, поскольку его недоделанные друзья, развлекаясь запусканием ханаби с тротилом, разнесли к чёрту американскую военную базу. Судзуки же, уйти не успел. И вот улепётывая со всех ног по-пляжу от разъярённой американской военщины явилось ему виденье чудное. Разверзлись хляби морские, и снизошёл на них свет божественный (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастика, мехаРежиссер: Томино ЁсиюкиПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 6 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4AEEE902165116C62C8B78E51C495D2B164559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300100   (575541) от 19.05.2019
-
-Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивительный мир Эль-Хазард OVA-1 [1995, OVA, 7 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575541.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом, в параллельном мире «Эль Хазард» обитала высокоразвитая цивилизация, войны которой затрагивали даже соседние миры. В итоге эта цивилизация уничтожила сама себя. Однако, после неё сохранилось множество артефактов и в частности, орбитальное орудие «Око Бога». Коренное население Эль Хазарда — люди и разумные жуки, багромы, с ужасом вспоминают древние войны (   Читать дальше...   )Производство: Япония,Жанр: приключения, комедия, романтика, фэнтезиРежиссер: Хаяси ХирокиПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 7 эп. по 29 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302C33E061B532D7108F2B9413E0A1364236A405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303199   (575540) от 19.05.2019
-
-Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [2017, TV, 12 эп.] HDTVRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название аниме довольно прозрачно отражает его суть: оно повествует о мести парня по имени Макабэ Масамунэ. А месть, как говорится, - это блюдо, которое подают холодным. Своё блюдо наш герой готовил и планировал в течение нескольких, а точнее, восьми лет! Но зачем же идеальному, накачанному красавчику, спортсмену, отличнику, любимчику всех девушек заниматься такими (   Читать дальше...   )Производство: Япония,Жанр: комедия, романтикаРежиссер: Минато МирайПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Одноголосая, студияПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC44AEE5EF4273082AD6A8E709ED74AC1810242
 ```
 
 https://mybot314.ru/tekegram_catalog/

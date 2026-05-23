@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1871703   (1070001) от 
+
+Mahou Shoujo ni Akogarete | Становясь волшебницей [2024, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Утэна Хираги всегда восхищалась девушками-волшебницами и мечтала стать крутой героиней, которая борется со злом. Поэтому когда она встречает существо, утверждающее, что у Утэны есть скрытая магическая сила, тут же решает, что её мечта сбылась. Но всё рушится из-за внезапного поворота событий: она превращается в злодейку! Не заинтересованная в союзе с силами зла, (   Читать дальше...   )Производство: Asahi ProductionЖанр: комедия, фэнтези, эттиРежиссер: Оцуки АцусиПеревод: AniLibria (полные и надписи)Язык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30F8AA712282951E1469289363A32AE55A092FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870455   (1069102) от 
+
+Elfen Lied | Эльфийская песнь [2004, TV 13 эп. + SP] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Диклониусы — побочная, мутировавшая ветвь людей, избранная, кажется, самим Богом, чтобы положить конец человечеству. От обычных людей их отличают небольшие рожки на голове и то, что они владеют как бы «шестым чувством», дающим им способность к телекинезу. Именно из-за этой опасной силы правительство отлавливает их и помещает в специальные лаборатории, где они подвергаются (   Читать дальше...   )Производство: ArmsЖанр: триллер, фантастика, драма, эттиРежиссер: Камбэ МаморуПеревод: Robin & Yellow Horror (полные и надписи)Язык озвучки: Японский и русскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. + спэшл по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C44A2F83D0A2EEE4779CDD9393A52CE31B7FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870689   (1068956) от 
+
+School Days | Школьные дни [2007, TV 12 эп. + OVA 1-2] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+н даже не может заговорить с симпатичной Котонохой, с которой часто встречается в утреннем поезде. Так бы все и кончилось, если бы не бойкая одноклассница Сэкай Сайондзи, что, увидев страдания соседа, по доброте душевной решила помочь ему устроить сердечные дела. Вот только не слишком ли далеко заходит эта помощь? И почему к Ито начинает проявлять нездоровый интерес (   Читать дальше...   )Производство: TNKЖанр: романтика, драма, эттиРежиссер: Мотонага КэйтароПеревод: Hollow & Willy (полные и надписи); Матадор (полные)Язык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. + OVA 1-2 по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D982A013EF6EBF402C6BA9652307033635EDA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554633   (1068810) от 
+
+Hotaru no Haka / Grave of the Fireflies / Могила светлячков [1988] BDRip 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Последние дни Второй Мировой войны. Американская авиация бомбит беззащитные японские города. В водоворот людского каждодневного кошмара попадают 14-летнии Сэйта и его сестренка Сэцуко. Понеся самую горькую утрату - потерю близких, они остались совсем одни. Юный мальчик в одночасье становится взрослым, столкнувшись с жестокостью мира. Он осознаёт, что от него зависит (   Читать дальше...   )Жанр: аниме, драма, военныйРежиссер: Исао ТакахатаАктеры: Тсутому Татсуми, Аяно Шираиши, Йошико Синохара, Акеми Ямагучи, Рода Цроситэ, Шеннон Конли, Криспин Фриман, Дэн Грин, Эми Джонс, Джордж ЛиверПеревод: Многоголосый закадровый, Одноголосый закадровыйСубтитры: Английские, Русские (МС Entertainment)Продолжительность: 01:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD0E469F9106616499FCFB18CE8AE613BAF3919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867183   (1066803) от 04.05.2026
 
 Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de | Богиня: «В каком виде ты хочешь переродиться в другом мире?» Я: «В ребро героя» [2026, TV, 02 из 12] WEBRip 1080p Raw+Rus
@@ -7,7 +111,7 @@ Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de | Бо�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +137,7 @@ Lupin the IIIrd the Movie: Fujimi no Ketsuzoku | Люпен III: Бессмер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Kuro Neko to Majo no Kyoushitsu | Чёрная кошка и класс ведь
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Ichijouma Mankitsu Gurashi! | Жизнь в манга-кафе на одном 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика зака�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Tsue to Tsurugi no Wistoria TV-2 | Меч и жезл Вистории [ТВ-2] 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 3rd Season | Orejihanki |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Isekai Nonbiri Nouka 2 | Фермерская жизнь в ином мире [�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +533,7 @@ Hitoribocchi no Isekai Kouryaku | Нападение одиночки на ин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь ночных
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +613,7 @@ Mamonogurai no Boukensha | Авантюрист, пожирающий демон
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Reincarnation no Kaben | Лепестки реинкарнации | Petals of R
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,113 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62BCC3A805939DDE94901FDCEBC461FD19E1CBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863734   (1063270) от 05.04.2026
-
-Kanan-sama wa Akumade Choroi | Канан до чёртиков проста | Mistress Kanan Is Devilishly Easy [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канан — демон, спустившийся в мир людей с единственной целью: насладиться самым сладким лакомством из всех — молодыми человеческими душами. Приняв облик старшеклассницы, она выбирает свою первую жертву — неприметного мальчика по имени Ёдзи Кёги. Но как раз в тот момент, когда она готовится приступить к трапезе, события принимают совершенно неожиданный оборот.Производство: Япония, студия Studio KaiЖанр: приключения, комедияРежиссер: Муроя ЯсусиЯзык озвучки: Русский дублированный (Deep), русский закадровый (AniStar)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E111739C27398526D1BE787B29957C9D680DD81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863751   (1063264) от 05.04.2026
-
-Доктор Стоун [ТВ-4, часть 3] | Доктор Стоун: Научное будущее | Dr. Stone: Science Future (2026) [2026, TV, 1 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подготовка к самому дерзкому проекту в истории человечества завершена: Царство науки начинает строительство ракеты для полета на Луну. Чтобы навсегда покончить с угрозой окаменения, Сэнку и его команда должны преодолеть земное притяжение и встретиться лицом к лицу с таинственным Вопрошателем.
-В этом решающем финале наука станет мостом между прошлым и будущим. Героям (   Читать дальше...   )Производство: Япония / Студия TMS EntertainmentЖанр: комедия, приключения, сёнен, фантастикаРежиссер: Мацусита СюхэйЯзык озвучки: Русский (AniLibrety); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1FACF464099B529A6E2EEF9D7F391088DCB692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863849   (1063188) от 06.04.2026
-
-Похоже, сильнейшая профессия это не герой или мудрец, а (временный) инспектор? | Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii Desu yo? [2026, TV, 2 из 12] WEBRip 1080 ...
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный старшеклассник Хибики Манабэ неожиданно оказывается в чужом мире. Вокруг него — бескрайние равнины, где рыщут монстры, а у него нет ни оружия, ни каких-либо магических способностей, только один навык — "Оценка". Безнадёжная ситуация, правда?
-Но как бы не так! Встречи с неожиданными союзниками — такими как эльфийка Эмалия Стейнбарт и грозный Клод (   Читать дальше...   )Производство: Япония / Студия Studio FladЖанр: Комедия, приключения, фэнтезиРежиссер: Хосино МакотоЯзык озвучки: Русский (AniLiberty), (Dream Cast), (SHIZA Project); ЯпонскийСубтитры: Русские (надписи и полные) / Английские (полные) CrunchyrollПродолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A92A88BAE016A914A84AFCE8D39937EB8FD9AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863823   (1063178) от 06.04.2026
-
-Virgin Punk | Невинный панк [2025, Movie] BDRip HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая охотница за головами, зарабатывающая на жизнь в опасном и непредсказуемом мире. Выбирая эту стезю, сталкивается не только с внешними угрозами, но и с глубокими внутренними переживаниямии, заставляющими её подвергнуть сомнению собственный выбор и моральные принципы.
-Профессиональная деятельность неизбежно сталкивает героиню с могущественными и эксцентричными (   Читать дальше...   )Производство: SHAFTЖанр: боевик, киберпанкРежиссер: Умэцу ЯсуомиПеревод: AniSlovoЯзык озвучки: Русский (KAIJU SOUND, HikkiDub, GoLTFilm, Youkai Studio, AniLiberty, OnWave), ЯпонскийСубтитры: Русские (Полные + Надписи)Продолжительность: 35 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3CA9DA102EE9BF6479A0B9360A75F58B8533A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

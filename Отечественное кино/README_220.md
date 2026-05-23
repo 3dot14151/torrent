@@ -1,3 +1,107 @@
+###  Публикация: 1432965   (161763) от 19.12.2020
+
+Девятая (2019) BDRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Петербург конца XIX века охвачен массовым увлечением оккультными науками и эзотерикой. Британка-медиум Оливия Рид приезжает в столицу Российской империи с гастролями и собирает на своих публичных спиритических сеансах толпы людей. В это время в городе происходит серия загадочных убийств - изувеченные тела девушек находят в разных концах города. Расследованием занимаются (   Читать дальше...   )Производство: Россия / Non-Stop Productions, Central Partnership Productions, KIT Film StudioЖанр: Детектив, триллер, криминалРежиссер: Николай ХомерикиАктеры: Евгений Цыганов, Дэйзи Хэд, Дмитрий Лысенков, Джонатан Солвей, Юрий Колокольников, Евгений Ткачук, Игорь Черневич, Иван Решетняк, Мария Скуратова, Анна ХристичСубтитры: отсутствуютПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B908EAB8022CF41F6CC90C7D0F0AA2FCCEB7FA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674127   (161733) от 04.11.2023
+
+Последнее дело Вареного (1994) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Проработав четыре года, молодой экспедитор Сизухин неожиданно узнает, что под видом перевозок детского питания его фирма занимается контрабандой наркотиков. Решив разобраться в этом деле, он начинает борьбу с мафией и обращается за помощью к профессиональному вору по кличке «Вареный».Производство: Россия, Голос, РоскомкиноЖанр: комедия, криминалРежиссер: Виталий МельниковАктеры: Виктор Степанов, Ольга Машная, Виталий Скворкин, Андрей Ургант, Елена Драпеко, Галина Гудова, Эра Зиганшина, Вера Карпова, Виктор Мелихов, Алла Одинг, Гелий Сысоев, Галина Баранова, Лев Елисеев, Ольга Самошина, Валерий СмоляковСубтитры: отсутствуютПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566530D939E7310A49DA88CEE24961176CEC4303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333292   (161542) от 20.12.2022
+
+День радио (2008) BDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Один день из жизни модной московской радиостанции. Не самый лучший день – рушатся все планы, все валится из рук… И именно в тот момент, когда на станции в прямом эфире вот-вот должен начаться «живой» марафон, а популярные российские рок-группы придут в эфир, чтобы поддержать… впрочем, это уже неважно, потому что тема марафона перехвачена конкурентами и активно обсуждается (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Михаил Козырев, Леонид Барац, Ростислав Хаит, Александр Демидов, Камиль Ларин, Михаил Полицеймако, Нонна Гришаева, Максим Виторган, Дмитрий Марьянов, Анна Касаткина-Барац, Федор Добронравов, Амалия Мордвинова, Алексей Хардиков, Георгий Мартиросян, Эммануил ВиторганПродолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E8AD09B0A3A77BB12A865A8857849BF43B7972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433015   (161533) от 19.12.2020
+
+Кольская сверхглубокая (2020) WEB-DLRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Кольская сверхглубокая скважина - самый масштабный секретный объект страны. В 1984 году на глубине более 12 километров были записаны необъяснимые звуки, похожие на крики множества голосов. После этих событий объект закрывают. Небольшая исследовательская группа отправляется под землю, чтобы узнать, какую тайну скрывает глубочайшая скважина в мире. То, что они обнаружили, (   Читать дальше...   )Производство: Россия, Трио ФильмЖанр: Триллер, ужасыРежиссер: Арсений СюхинАктеры: Милена Радулович, Сергей Иванюк, Николай Ковбас, Вадим Демчог, Кирилл Ковбас, Никита Дювбанов, Виктор Низовой, Артём Цуканов, Илья Ильиных, Владимир КолидаПеревод: Не требуется (русский) (iTunes)Субтитры: ОтстуствуютПродолжительность: 01:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEA1DA35BF582F026AFD59C4E4AD0309FDEE455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517983   (161411) от 17.12.2021
 
 С днём рождения (2020) WEBRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FA22845EAB6C3C60C4BE49A6B1744688DC83F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675569   (160035) от 09.11.2023
-
-Интим не предлагать (2016) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ловелас Иван ведёт беззаботную холостяцкую жизнь, что очень не нравится его отцу. Игорь Петрович устал наблюдать, как сын бездарно и бесцельно прожигает жизнь, и хочет проучить его. Иван привык жить на всём готовом, так что отец решает оставить его без домработницы: сын, наверняка, не справится с домашними обязанностями и, может быть, это наконец-то заставит его (   Читать дальше...   )Производство: Россия / Akvilon MediaЖанр: мелодрамаРежиссер: Олег ШтромАктеры: Станислав Бондаренко, Анастасия Савосина, Сергей Чонишвили, Галина Петрова, Антон Сёмкин, Анна Носатова, Дмитрий Бурукин, Юлия Маргулис, Ксения Кубасова, Юлия Кокрятская и др.Продолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548EE792FF4D4E88FE2E1AD9E2DA5332C8DB5891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674582   (160032) от 09.11.2023
-
-Нога (1991) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма Валера - веселый парень из Москвы, который в свои 19 лет познал весь ад афганской войны, на которой он потерял ногу. Вернувшись с войны, он и не подозревал, что настоящий кошмар для него только начинается...Производство: СССР / 12АЖанр: боевик, драма, военныйРежиссер: Никита ТягуновАктеры: Иван Охлобыстин, Петр Мамонов, Иван Захава, Наталья Петрова, Фархад Махмудов, Людмила Ларионова, Шерали Абдулкайсов, Оксана Мысина, М. Айнетдинова, Дмитрий АндриановЯзык озвучки: русский (присутствует нецензурная брань)Продолжительность: 01:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D00753DB18BC77064512F79E119B1A14FEB547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599081   (159980) от 22.12.2022
-
-Мажор в Сочи (2022) WEBRip [H.265/2160p] [4K, HDR, 10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московские массивные здания и оживлённые дороги Мажор сменит на живописные курортные виды, домик в горах и извилистые серпантины. Туда он перебирается вместе с дочерью Соней, где у них появился свой семейный бизнес — эко-отель. Но ещё до открытия всё идёт наперекосяк. Вначале в гостинице устраивают погром, затем Соколовский наткнётся на местного мажора и перейдёт (   Читать дальше...   )Производство: Россия, Плюс Студия, Продюсерская компания «Среда»Жанр: приключения, комедияРежиссер: Никита ВласовАктеры: Павел Прилучный, Павел Чинарёв, Виталия Корниенко, Роман Евдокимов, Павел Майков, Елена Полякова, Елизавета Шакира, Владимир Афанасьев, Магомед Муртазаалиев, Борис ДергачевПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30DC12EA75C51789180AE2F2E89BB40E249BFBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599109   (159947) от 22.12.2022
-
-Мажор в Сочи (2022) WEBRip [H.265/2160p] [4K, SDR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московские массивные здания и оживлённые дороги Мажор сменит на живописные курортные виды, домик в горах и извилистые серпантины. Туда он перебирается вместе с дочерью Соней, где у них появился свой семейный бизнес — эко-отель. Но ещё до открытия всё идёт наперекосяк. Вначале в гостинице устраивают погром, затем Соколовский наткнётся на местного мажора и перейдёт (   Читать дальше...   )Производство: Россия, Плюс Студия, Продюсерская компания «Среда»Жанр: Приключения, комедияРежиссер: Никита ВласовАктеры: Павел Прилучный, Павел Чинарёв, Виталия Корниенко, Роман Евдокимов, Павел Майков, Елена Полякова, Елизавета Шакира, Владимир Афанасьев, Магомед Муртазаалиев, Борис ДергачевПеревод: Не требуется (Русский)Субтитры: Русские (full, SDH)Продолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1920128F66363FECE89155F2C97D1D50C9A8A6BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

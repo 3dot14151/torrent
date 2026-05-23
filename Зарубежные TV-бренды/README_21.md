@@ -1,3 +1,57 @@
+###  Публикация: 1503573   (819248) от 19.10.2021
+
+BBC Horizon: Вкусная еда без вреда для планеты / Feast to Save the Planet (2021) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+5 июня отмечается Всемирный день окружающей среды. В 2021 году девизом праздника стали слова «Воссоздать. Переосмыслить. Восстановить». В этом фильме мы расскажем, как каждый из нас может переосмыслить свой рацион, чтобы снизить его негативное воздействие на природу.
+
+На продукты питания приходится треть всего объёма выбросов парниковых газов. Многие готовы делать (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC) StudiosЖанр: ДокументальныйРежиссер: Линдон БрюсПеревод: Многоголосый профессиональный (BBC News Русская служба)Субтитры: ОтсутствуютПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F67FD0D413BB947AA65BA200C41F21D0AB878CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858258   (819162) от 16.04.2016
+
+NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия из 4]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тайны Креста - это цикл из четырех программ о христианских секретах, которые веками будоражили умы людей. Истории, которые повлияли на формирование западной культуры, скрупулезно изучаются в виду выявления новых исторических фактов. Передачи представляют собой анализ Евангелие, на который авторов подвигла книга . Всем известные рассказы из воскресной школы будут (   Читать дальше...   )Жанр: Документальный, религия, история, археология, исследованиеПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 4 x ~ 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8160DD8DA9487F961685BE62FDC6EFF919C65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503599   (819087) от 19.10.2021
 
 BBC: Содержанки: настоящая цена спонсорских отношений / Secrets of Sugar Baby Dating (2019) WEBRip [H.264/1080p]
@@ -6,7 +60,7 @@ BBC: Содержанки: настоящая цена спонсорских о
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ BBC. Панорама: Неонацизм в Германии. Новая вол
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +139,7 @@ NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +166,7 @@ Discovery: Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +192,7 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +218,7 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +244,7 @@ History Channel. Островное помешательство Гитлера 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +270,7 @@ History Channel. Наследие кельтов / The Celtic Legacy (2011) HDTV
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +296,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +323,7 @@ NGW: Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +349,7 @@ Discovery. Северная Америка / North America (2013) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +375,7 @@ BBC. "Испанка". Грипп, унесший 50 миллионов жизн
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +401,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +427,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +453,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +505,7 @@ BBC. Полиамория: Любовь без границы / Louis Theroux's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +531,7 @@ Discovery. Аполлон: найденные видео / Apollo: The Forgotten
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +583,7 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +609,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +635,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +661,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,60 +672,6 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0D6C0A43105A42B93179540CF1894B3504AC86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504479   (811699) от 23.10.2021
-
-BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [H.264/1080p-LQ] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811699.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале тридцатых годов ХХ века Германия была парламентской республикой, где действовали демократические институты, была развитая судебная система и свободная пресса. В 1933 году власть перешла в руки диктатора, под чьим руководством совершились худшие зверства в истории, свободе слова пришел конец, а большая часть оппозиции оказалась за решеткой.
-
-В документальном (   Читать дальше...   )Производство: Великобритания / BBC Studios, 72 FilmsЖанр: Документальный, ИсторияРежиссер: Джулиан ДжонсПеревод: Многоголосый профессиональный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 3 х ~ 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883B02F047AE64D55B12AD2F0BBE25E3041699E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008879   (811639) от 20.04.2016
-
-BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научные идеи изменяют наш мир с поразительной скоростью и эффективностью. Специальный выпуск документального цикла Horizon от телекомпании BBC посвящен четырем направлениям науки, которые сулят человечеству неслыханные блага: освоение ближнего космоса, нанотехнологии, биоинженерия, альтернативная энергетика. Ведущая программы Лиз Бонин познакомит нас с удивительными (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйРежиссер: Грехам Стронг / Graham StrongПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74193EAE96B21CFF1CEA6D6C885FAF8DB279F67
 ```
 
 https://mybot314.ru/tekegram_catalog/

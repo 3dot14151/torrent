@@ -1,3 +1,55 @@
+###  Публикация: 1766146   (33892) от 17.12.2024
+
+Расследование о пришельцах / Investigation Alien (2024) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Джордж Нэпп — известный репортер, тележурналист и исследователь паранормальных явлений с 30-летним стажем. Он ездит по миру, чтобы обнаружить новые свидетельства существования НЛО и найти следы пребывания инопланетян на Земле.Производство: СШАЖанр: документальныйРежиссер: -Актеры: Джордж Напп, Вернис Армор, Дуглас Локс, Крис Меллон, Rory J. Kremer, Jeremy Kenyon Lockyer Corbell, Gary Nolan, Thiago Luiz Ticchetti, Линн Китей, Jhonny Monteiro и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D5730520F1BBAEFB9FF4223A4141598A880110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120753   (33319) от 23.12.2024
+
+Тайные знаки. Коллекция программ. Часть 2 (2008) SATRip [55 фильмов]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Популярный цикл «Тайные знаки» телеканала ТВ-3 в новом сезоне открывается премьерным показом документальных фильмов. Четверо ведущих: Александр Резалин, Дмитрий Комов, Михаил Волков и Андрей Раннев продолжают разгадывать тайные знаки в жизни великих людей, открывать новые грани знакомых событий и неизвестные стороны в судьбах знаменитых личностей и исторических персонажей. (   Читать дальше...   )Жанр: Документальная передача, журналистское расследование.Перевод: ОригинальныйПродолжительность: 55 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB570F33CF983B88C7ED9BBFB3E424120033C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 120803   (33317) от 23.12.2024
 
 Тайные знаки. Коллекция программ. Часть 3 (2009) SATRip [41 фильм]
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

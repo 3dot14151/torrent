@@ -1,3 +1,162 @@
+###  Публикация: 875046   (859118) от 05.03.2015
+
+Microsoft Windows 7 Enterprise with SP1 x64 Updated (12.05.2011) Оригинальные образы от Microsoft MSDN [Multi/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 с интегрированным пакетом обновления SP1. Пакет обновления 1 (SP1) для Windows 7* и содержит ранее выпущенные обновления, распространявшиеся через Центр обновления Windows, а также добавочные обновления для указанных платформ. Что такое "U" в названиях образов? Почему появились новые образы? Это обновленные образы. Отличие: "This media refresh (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870DF4BF35A4210F259306BA18690685E4441EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497345   (857404) от 26.09.2021
+
+Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1237.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0468724FFBEE764520D44DE4A787B929105102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500116   (842210) от 05.10.2021
+
+Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 11 Build 22000.194.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4486AACD85D222740875F7A1031017BE7C0EE5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500118   (842207) от 05.10.2021
+
+Microsoft Windows 11 IoT Enterprise [10.0.22000.194] - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 IoT Enterprise - это полная версия Windows 11, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 11 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 11 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432A5D312F3C960FA6016CB275A3C7433FD9EBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868660   (837507) от 06.04.2016
+
+Windows 8.1 with Bing OEM (x86 x64) 6.3.9600 [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+При помощи Windows 8.1 с Bing изготовители оборудования (OEM) могут установить Windows на недорогие устройства и предоставить пользователям доступ к службам Майкрософт, таким как Bing и OneDrive.
+В данном выпуске Windows компонент Bing устанавливается в Internet Explorer в качестве поисковой системы по умолчанию. Пользователи смогут вручную изменить параметры поиска (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FBEDA79D6143E099463D1CE774BB326A8FA401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004387   (835745) от 07.04.2016
+
+Microsoft Windows 8.1 Pro for Education with Update [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 (ранее известная как «Windows Blue») является комплексным обновлением для Windows 8. В новой версии Microsoft не отступается от интерфейса Modern UI (правильное название интерфейса, ранее называемого Metro). Windows 8.1 добавляет в пользовательский интерфейс множество настроек, наряду с некоторыми новыми и обновлёнными приложениям – и всё для того, чтобы (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5356D672026189DCAEEDB18B1ECB1DF2EF4738DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500117   (834742) от 10.10.2021
 
 Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы от Microsoft MSDN [Ru]
@@ -6,7 +165,7 @@ Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы о
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +192,7 @@ Microsoft Windows 7 SP1 Updated (12.05.2011) - Оригинальные обра
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +218,7 @@ Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +245,7 @@ Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +272,7 @@ Microsoft Windows 10.0.19042.1288, Version 20H2 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +299,7 @@ Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +326,7 @@ Microsoft Windows 10.0.19042.1288, Version 20H2 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +353,7 @@ Microsoft Windows 10.0.19043.1288, Version 21H1 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +380,7 @@ Microsoft Windows 10.0.19043.1288, Version 21H1 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +407,7 @@ Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +434,7 @@ Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные обр�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +487,7 @@ Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные обр�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +514,7 @@ Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные об�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +541,7 @@ Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальны
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +567,7 @@ Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +596,7 @@ Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +625,7 @@ Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -495,7 +654,7 @@ Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -524,7 +683,7 @@ Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,165 +697,6 @@ Windows 10 May 2020 Update (также известное как версия 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E764DD3E1486C3CB772A9114F671FD1BCB4B1145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510544   (790718) от 17.11.2021
-
-Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD452B94B2B48B8A13326E132C13B67B452A0224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510546   (790705) от 17.11.2021
-
-Microsoft Windows 10 IoT Enterprise, Version 21H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 IoT Enterprise - это полная версия Windows 10, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 10 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 10 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3A0618E1CDF4BCF1147B6F62950FA8C9F5E4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510548   (790699) от 17.11.2021
-
-Microsoft Windows 11 IoT Enterprise [10.0.22000.318] (Updated November 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 IoT Enterprise - это полная версия Windows 11, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 11 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 11 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41904BC0B3288162184E9844AA4019BB1063927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510543   (790697) от 17.11.2021
-
-Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1348.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B8AD47F4E814442D2698C031F09F92229922C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510545   (790693) от 17.11.2021
-
-Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38EBD7A563937EBE123EB7D8720B52F7E95A001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510547   (790689) от 17.11.2021
-
-Microsoft Windows 10 IoT Enterprise LTSC 2021, Version 21H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 IoT Enterprise LTSC 2021 основана на Windows 10 Pro версии 21H2 (выпущена в ноябре 2021 года), добавляя дополнительные функции, предназначенные для удовлетворения потребностей крупных и средних организаций (включая крупные академические учреждения), такие как расширенная защита от современных угроз безопасности, полная гибкость развертывания ОС, возможности (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E10FD1688E053AA6A311C31847503BA730772E
 ```
 
 https://mybot314.ru/tekegram_catalog/

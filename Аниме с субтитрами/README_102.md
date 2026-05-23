@@ -1,3 +1,107 @@
+###  Публикация: 1588366   (191333) от 05.11.2022
+
+3D Kanojo: Real Girl | Реальная девушка [2018, TV, 24 из 24] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Хикари Цуцуи — старшеклассник-отаку, с трудом способный общаться с другими людьми; его социальные и романтические потребности вполне удовлетворяют девушки из игр и аниме. Единственный его друг в школе — такой же отаку, как и он сам, которого одноклассники постоянно задирают, считая странным и жутковатым. Но однажды всё меняется: Хикари опаздывает на урок и в качестве (   Читать дальше...   )Производство: Hoods EntertainmentЖанр: Романтика, сёдзё, комедияРежиссер: Наоя ТакасиСубтитры: РусскиеПродолжительность: 24 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E0E5CC23958650F3DABC94265FA18A80ECF233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588519   (191312) от 05.11.2022
+
+86 | Eighty-Six | Восемьдесят шесть [2021, TV, 23 из 23] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Республика Сан-Магнолия. Долгое время на эту страну нападала соседняя империя Гиадэ, которая создала серию беспилотных военных машин под названием «Легион». После многих лет кропотливых исследований республика смогла разработать свои автономные беспилотники и теперь способна отражать нападения без потерь. Во всяком случае, так заявляет правительство. Но такой вещи, (   Читать дальше...   )Производство: A-1 PicturesЖанр: приключения, фантастика, драмаРежиссер: Исии ТосимасаСубтитры: РусскиеПродолжительность: 23 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6C8BC027DE904640EB532C43D3918EB4DA40EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560583   (191218) от 05.11.2022
+
+Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | Ублюдок!! Темный бог разрушения [2022, Web, 24 из 24] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Королевство Металликана подвергается нападению четырех лордов хаоса, которые стремятся освободить Бога тьмы. Чтобы спасти страну и весь мир от пришествия зла, первосвященник выпускает на волю некогда заточенного в тело простого паренька бывшего предводителя лордов Дарка Шнайдера. Но тот, оказавшись на свободе, вовсе не горит желанием убивать своих бывших союзников, (   Читать дальше...   )Производство: Liden FilmsЖанр: Приключения, фэнтези, комедияРежиссер: Одзаки ТакахаруСубтитры: Русские, Английские и другиеПродолжительность: 24 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8AFD615F2F8099C95CA6A2FB4B0B219C6928A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588923   (190827) от 07.11.2022
+
+Eiga Yuru Camp | Лагерь на свежем воздухе (фильм) [2022, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В аниме-фильме будут представлены знакомые персонажи из франшизы, которые теперь выросли и воссоединяются, чтобы построить лагерь.Производство: Студия C-StationЖанр: комедия, повседневностьРежиссер: Кёгоку ЁсиакиПеревод: SerickЯзык озвучки: ЯпонскийСубтитры: Русские, японскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D6CECD3DBA1F6F76608EAE44DEDFD8DFB26314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588927   (190820) от 07.11.2022
 
 Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный [2021, TV, 20 из 20] BDRip 1080p 10-bit raw
@@ -6,7 +110,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -33,7 +137,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren`ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Saint Seiya | Рыцари Зодиака [1986, TV, 114 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Exception | Ошибка [2022, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Kimi ni Todoke 2nd Season | Дотянуться до тебя [ТВ-2] [2011, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Momoiro Sisters | Розовые сёстры [1998, TV, 23 + SP] DVDRip 480p 10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Gekijouban Hana yori Dango | Цветочки после ягодок (филь�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -244,7 +348,7 @@ Hana yori Dango | Boys Over Flowers | Цветочки после ягодок [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -272,7 +376,7 @@ Alien Nine | Чужой 9 [2001, OVA, 4 эп.] DVDRip 480p 10-bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -298,7 +402,7 @@ Tezuka Osamu no Don Dracula | Дон Дракула [1982, TV, 4 эп + 4 SP] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -326,7 +430,7 @@ Ayaka | Ayaka: A Story of Bonds and Wounds | Аяка [2023, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -352,7 +456,7 @@ Liar Liar / Лжец Лжец [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -378,7 +482,7 @@ Genjitsu no Yohane: Sunshine in the Mirror / Yohane the Parhelion: Sunshine in t
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -404,7 +508,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -430,7 +534,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY Ледяное короле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -456,7 +560,7 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Mononogatari (2023) | Malevolent Spirits (2023) | Истории нечисти 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -534,7 +638,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -560,7 +664,7 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -571,112 +675,6 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFC9ADAB9B8DB11EB6BC9B092E5E25B52E6F1D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591170   (187418) от 17.11.2022
-
-Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Истребитель демонов [ТВ-2] [2021, TV, 11 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории.
-
-Эпоха Тайсё. Ещё с древних времён ходят слухи, что в лесу обитают демоны, которые питаются людьми и выискивают по ночам новых жертв. Однажды Тандзиро Камадо уходит в соседний город, чтобы продать древесный уголь. Вернувшись утром, парень обнаруживает перед собой страшную картину: вся родня зверски убита, а единственная выжившая - младшая сестра (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: 1) AniLibria; 2) CrunchyRoll; 3) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 11 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148F43712403DF2CDF4F426C8A274366A35C5A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563789   (187401) от 17.11.2022
-
-Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimashita | Жизнь перерождённого мудреца в другом мире [2022, TV, 12 из 12] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187401.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так часто работающий сверхурочно, трудоголик Юдзи Сано заканчивал принесённую домой работу, когда был призван в другой мир. Оказавшись вдруг посреди леса, Юдзи решил, что всё это — любопытный сон, которым он может насладиться, пока его не разбудит будильник. Успокоившись на этой мысли, Юдзи, который любил в свободное время играть в компьютерные игры, спокойно воспринял (   Читать дальше...   )Производство: RevorootЖанр: Приключения, фэнтези, исекайРежиссер: Кодзима КэйсукэСубтитры: РусскиеПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4904C3FC5E1D6D952B9A20FE601B2BD2CFE07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332330   (187368) от 17.11.2022
-
-Machikado Mazoku | The Demon Girl Next Door | Городская дьяволица [2019, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юко Ёсида, обычная 15-летняя девочка, проснувшись однажды утром, обнаруживает, что обладает демонической силой. И теперь ей надо победить местную девочку-волшебницу, только так она сможет снять проклятие «40 000 иен за один месяц жизни». Да, теперь у неё есть рога и хвост, но по правде говоря, её сила даже меньше, чем у обычной девочки.Производство: студия J.C. StaffЖанр: повседневность, комедияРежиссер: Сакурай ХироакиПеревод: Apostol & ED_SlnЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2A690B3C34E4303DEBCAF5836ACC14B420024A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644998   (186937) от 20.09.2023
-
-Yumemiru Danshi wa Genjitsushugisha / The Dreaming Boy is a Realist / Из мечтателя в реалиста [2023, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ватару Садзё влюблён в свою одноклассницу Айку Нацукаву, постоянно пытается сблизиться с ней и мечтает о взаимности. Но однажды он просыпается с мыслью: «Похоже, это бесполезно, и я никогда не буду вместе с такой прекрасной девушкой, как она». После этого Ватару начинает держаться от неё на расстоянии, к большому удивлению Айки... «Неужели он теперь ненавидит меня (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Кога КадзуомиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D3CC87035EFEEBEAC6FF200D3B67F1AABE4A46
 ```
 
 https://mybot314.ru/tekegram_catalog/

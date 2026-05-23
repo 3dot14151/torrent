@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1871619   (1070038) от 
+
+Troubleshooter: Abandoned Children (2020) [Ru/Multi] (Build 23246651/dlc) Repack Let'sРlay [Complete Collection]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Troubleshooter: Abandoned Children - это первый сезон пошаговой стратегии SRPG, действие которой разворачивается в мире Troubleshooter. В параллельной анимешной вселенной, в недалёком будущем правительство начинает терять контроль над улицами. Экономика в упадке, количество преступных группировок растёт, рутиной становятся террористические атаки, а полиция не успевает (   Читать дальше...   )Тип издания: RepackРазработчик: DandylionЖанр: Казуальные игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1E165D187CABBD2E863E528DDD5C244E414334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871400   (1069739) от 
+
+Desynced (2023) [Ru/Multi] (1.0.17871) Repack Let'sРlay
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У вас на корабле авария, и нужно отправить ботов на поверхность неизвестной планеты, чтобы возвести сооружения, необходимые для ремонта. Вас курирует бортовой ИИ по имени ЭЛЕЙН, так что стройте, выживайте и процветайте. Но так ли прост этот неизведанный мир? В Desynced полная автоматизация и нет конвейеров. В вашей логистической сети работают боты: они автоматически (   Читать дальше...   )Тип издания: RepackРазработчик: Stage Games Inc.Жанр: Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A819DB1DA6930DB8DE615E8659B57B2982CB1B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869606   (1068389) от 07.05.2026
 
 Europa Universalis V (5) (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Premium Edition]
@@ -7,7 +59,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Premium E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.6.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Heroes of Science and Fiction (2026) [Ru/Multi] (1.0.5rc1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Europa Universalis V (2025) [Ru/Multi] (1.1.10/dlc) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Old World (2022) [Ru/Multi] (1.0.83082/dlc) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +189,7 @@ War Mongrels (2021) [Ru/Multi] (42052) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.08/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Brigador (2017) [Ru/Multi] (1.63/dlc) Repack Let'sРlay [Up-Armored Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +267,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.22/dlc) Repack Necros [Advanced Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Victoria 3 (2022) [Ru/Multi] (1.12.4/dlc) Repack Wanterlude [Ultimate Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +319,7 @@ RuneQuest: Warlords (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +345,7 @@ They Are Billions (2019) [Ru/Multi] (1.0.14) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +371,7 @@ Toads of the Bayou (2024) [Ru/Multi] (20.51) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +397,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +423,7 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (08102025) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +449,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +475,7 @@ The Troop (2023) [Ru/Multi] (Build 20251216/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +501,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893v2/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.r40893.f/dlc) Repack L
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Chaos Galaxy (2020) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ Master of Command (2025) [Ru/Multi] (Build 20565020) Repack FitGirl [Supporter E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.3.8.103102/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.3.4.102350/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -616,58 +668,6 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4FA6CF7E2A9A9028FA5A814447AEC2D62DD7A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840062   (1047036) от 02.12.2025
-
-Outpost: Infinity Siege (2024) [Ru/Multi] (2.0/dlc) Repack Let'sРlay [Vanguard Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outpost: Infinity Siege - это гибридная игра, сочетающая в себе кооперативный шутер от первого лица с элементами стратегии, управлением базой и защитой башен. Игроки управляют мобильной заставой, отправляясь в запретные зоны для сбора ресурсов, при этом им нужно отбиваться от бесконечных волн врагов, строить оборонительные сооружения и улучшать свое снаряжение.Тип издания: RepackРазработчик: Team RangerЖанр: Экшены, СтратегииЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA81430E55AC6ED3A41452E98C5437E1DA813AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839720   (1046826) от 30.11.2025
-
-Broken Arrow (2025) [Ru/Multi] (1.0.11.2/dlc) Repack Wanterlude
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broken Arrow - это масштабная военная тактическая игра реальном времени, где сочетается комплексный подход варгеймов, в которых используются разные рода войск, с динамичным, тактическим игровым процессом. В игре насчитывается более 300 реалистичных военных подразделений и технологий, а каждая битва дает полное погружение в процесс и имеет бесконечное множество вариантов (   Читать дальше...   )Тип издания: RepackРазработчик: Steel BalalaikaЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2717E2DBA41A5F362D66BDB36748C7A66FF70070
 ```
 
 https://mybot314.ru/tekegram_catalog/

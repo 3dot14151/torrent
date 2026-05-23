@@ -1,3 +1,183 @@
+###  Публикация: 1556340   (156808) от 27.12.2022
+
+Кипелов: Концерт с симфоническим оркестром (2020) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Группа Кипелов представляет вашему вниманию "Концерт с симфоническим оркестром", который прошел в Москве в марте 2020 года в Crocus City Hall. Это шоу, которое прошло с аншлагом, стало концом большого тура по 2019-2020. Всё действие снималось на 21 видеокамеру и записывалось для последующего микширования звука, как в стерео, так и в многоканальном окружающем (   Читать дальше...   )Производство: РоссияЖанр: Heavy Metal, SymphonicРежиссер: Александр МаковПеревод: ОтсутствуетЯзык озвучки: русскийПродолжительность: 02:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87D653D1B14E0E9AA882841EBFFD5DF9D9FF8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588262   (156800) от 13.12.2012
+
+Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сто тридцати пяти минутное шоу, которое группа дала 28 июля в честь своего пятнадцатилетия в Шведской деревушке Rattvik снял Шведский режиссер Patric Ullaeus.01. Patient Zero
+02. Heeding The Call
+03. Any Means Necessary
+04. B.Y.H.
+05. Riders Of The Storm
+06. Let's Get It On
+07. Crimson Thunder
+08. Renegade
+09. Blood Bound (special guest: Stefan Elmgren)
+10. Last Man Standing (special guest: Stefan Elmgren)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:21:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967790   (156609) от 23.12.2015
+
+Квартирник у Маргулиса - Александр Ф. Скляр (2015) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - Александр Ф. Скляр. Дата эфира: 12.12.2015.01. Ад-и-Рай
+02. На кухне
+03. Босиком по луне
+04. Не надо так(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34931F950715188986AE15404ACE3728767C3686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588773   (156516) от 13.12.2012
+
+DJ Tiesto in Concert 2003 (2012) BDRip 720p
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Отличный концерт DJ Tiesto. Впечатляет девушка - вокалистка. Tiesto был первым DJ электронной танцевальной музыки (EDM), который столько заполнил стадион. Это произошло  в 2003 году Gelredome в городе Арнем на голландско-немецкой границе. 25000 восторженных фанатов DJ Tiesto.01 Tiesto - Magik Journey (Intro)
+02 Tiesto - Adagio For Strings
+03 Ernesto & Bastian - Wo's The Starter?
+04 Skin - Faithfullness (Tiesto Remix)
+05 Andain - Beautiful Things feat. Mavie Marcos
+06 Brotherhood - Samba in the Wood
+07 Cave - Carnival
+08 Roc Project feat. Tina Arena - Never (Filterheadz Luv Tina Remix)
+09 David Forbes - Answers
+10 Mojado feat. Mr. Sam - Naranja (Dimitri Andreas Vision)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 3:29:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967602   (156504) от 23.12.2015
+
+На два часа раньше (новогодний фильм-концерт) (1967) TVRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новогодний музыкальный фильм с участием ВИА-66 (Вокально-инструментальный ансамбль при Росконцерте), квартета "Аккорд"...Производство: СССРЖанр: Фильм-концертАктеры: М. Марсо, А. Райкин, Е. Шаврина, В. Макаров и другиеПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8814EE002C691747DA86281DC2D4E832C8A77F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588186   (156501) от 13.12.2012
+
+Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+27 июля 1986г. Queen дали крупнейший концерт из когда-либо проходивших на Nepstadium в Будапеште перед лицом восьмидесятитысячной толпы ликующих фанатов. Венгрия всё ещё оставалась за «железным занавесом», до падения Берлинской стены оставалось три года, и концерт имел настолько большое значение для руководства страны, что была собрана группа из лучших венгерских (   Читать дальше...   )1. One Vision
+2. Tie Your Mother Down
+3. In The Lap Of The Gods... Revisited
+4. Seven Seas Of Rhye(   Читать дальше...   )Производство: Венгрия, Канада, СШАЖанр: RockСубтитры: English, Français, Deutsch, Español, Portugês, ItalianoФормат: DVD videoПродолжительность: 01:31:15 + 00:26:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967642   (156471) от 23.12.2015
 
 Квартирник у Маргулиса. 7 выпуск. Ундервуд (2015) WEBRip
@@ -6,7 +186,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +244,7 @@ ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +270,7 @@ Europakonzert 2015 from Athens BDRip [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -121,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -147,7 +327,7 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -176,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -203,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -230,7 +410,7 @@ MTV Video Music Awards 2015 (2015) HDTVRip[H.264-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -259,7 +439,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -288,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -314,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -343,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -369,7 +549,7 @@ Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +633,7 @@ George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +687,7 @@ Unheilig - Lichter Der Stadt Live (2012) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -539,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -550,171 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:925C764DB601A8FFE0D3652EAB7FC6402C0A451D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600949   (153879) от 29.12.2022
-
-Хелло, Долли! / Hello, Dolly! (1969) BDRip [H.264]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам одноимённой бродвейской постановки 1964 года по пьесе Торнтона Уайлдера "Сваха". Действие фильма происходит в Нью-Йорке в 1890 году. Овдовевшая сваха Долли Галлагер Леви, известная как знаменитая сводница, знакомится однажды с богатым холостяком Хорасом Вандергелдером, но вскоре понимает, что не стоит искать ему жену, потому что сама (   Читать дальше...   )Производство: США, 20th Century Fox Film Corporation, Chenault ProductionsЖанр: мюзикл, мелодрама, комедия, приключенияРежиссер: Джин КеллиАктеры: Барбра Стрейзанд, Уолтер Мэттау, Майкл Кроуфорд, Марианн МакЭндрю, Дэнни Локин, Э.Дж. Пикер, Джойс Амес, Томми Тьюн, Джуди Кнейз, Дэвид Херст...Перевод: профессиональные многоголосые (20 Век Фокс СНГ; DVD Магия; Светла), авторский (Григорий Либергал)Субтитры: русские (на песни и полные), английские SDHПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BE998A2F14C6A7987664764EF70A44CBFAFE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600986   (153820) от 29.12.2022
-
-Хелло, Долли! / Hello, Dolly! (1969) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам одноимённой бродвейской постановки 1964 года по пьесе Торнтона Уайлдера "Сваха". Действие фильма происходит в Нью-Йорке в 1890 году. Овдовевшая сваха Долли Галлагер Леви, известная как знаменитая сводница, знакомится однажды с богатым холостяком Хорасом Вандергелдером, но вскоре понимает, что не стоит искать ему жену, потому что сама (   Читать дальше...   )Производство: США, 20th Century Fox Film Corporation, Chenault ProductionsЖанр: мюзикл, мелодрама, комедия, приключенияРежиссер: Джин КеллиАктеры: Барбра Стрейзанд, Уолтер Мэттау, Майкл Кроуфорд, Марианн МакЭндрю, Дэнни Локин, Э.Дж. Пикер, Джойс Амес, Томми Тьюн, Джуди Кнейз, Дэвид Херст...Перевод: профессиональные многоголосые (20 Век Фокс СНГ; DVD Магия; Светла), авторский (Григорий Либергал)Субтитры: русские (на песни и полные), английские SDHПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821ADBD33324750A772C9677A2CC4206EEA1EC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600935   (153708) от 29.12.2022
-
-VK под шубой (2022) WEBRip [H.246/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В преддверии Нового года телеканал НТВ покажет телевизионную версию новогоднего шоу «VK под шубой», которая зарядит зрителей новогодним настроением. В шоу примут участие звезды VK: 10AGE, Andro, IOWA, ELMAN, escape, Клава Кока, Konfuz, Люся Чеботина, Мари Краймбрери, NЮ, RASA, Тося Чайкина и The Hatters. Все они исполнят популярные новогодние хиты с известными представителями (   Читать дальше...   )Производство: РоссияЖанр: ПопРежиссер: Рома ГловаПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01271E718EF8953279EE2569E1080767A8CBA92E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347209   (153577) от 22.12.2019
-
-Квартирник НТВ у Маргулиса. Игорь Растеряев (21.12.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153577.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришел автор и исполнитель песен, актер театра и кино Игорь Растеряев. Игорь, не имея музыкального образования, но будучи одаренным от природы, сам научился играть на гитаре, а затем освоил гармонь и стал сочинять саркастические композиции. Размещенная в 2010 году на YouTube песня «Комбайнёры» принесла создателю славу — ролик стал одним (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3445E3BFAFC0EB62DED55CDF60BF3CBABC069A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194834   (153164) от 26.12.2017
-
-Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153164.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-103 Rod Stewart - Rhythm Of My Heart
-104 Richard Marx - Right Here Waiting
-105 Александр Иванов - Ну и пусть(   Читать дальше...   )Жанр: Pop, RockФормат: MKVПродолжительность: 03:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F21EDBA2632A9A87ABD47320CB1743FD0D4103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677116   (152960) от 16.11.2023
-
-Hammerfall - Live! Against The World (2020) BDRemux [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152960.jpg" />
-</div>
-
-
-###  Подробнее
-
-HammerFall — группа из Швеции, играющая в стилях хеви-метал и пауэр-метал. Основана гитаристом Оскаром Дроньяком в 1993 году01. Never Forgive, Never Forget
-02. One Against The World
-03. Heeding The Call
-04. The Way Of The Warrior(   Читать дальше...   )Производство: ГерманияЖанр: Power MetalУчастники: Йоаким Канс (вокал)
-Оскар Дроньяк (гитара, бэк-вокал)
-Фредерик Ларссон (бас-гитара, бэк-вокал)
-Понтус Норгрен (гитара)(   Читать дальше...   )Перевод: ОтсутствуетПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E3012457584CC6012E58C555A399E1849362D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

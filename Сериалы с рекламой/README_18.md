@@ -1,3 +1,55 @@
+###  Публикация: 1301152   (575866) от 19.05.2019
+
+Падение Ордена / Knightfall (2019) WEBRip [H.264/720p-LQ] (сезон 2, серия 1-8 из 8) JimmyJ [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается вокруг самой драгоценной и загадочной реликвии христианства — Святого Грааля, бесследно утерянного в результате падения города Акры, последнего оплота тамплиеров. Существование Ордена теперь под угрозой и зависит от того, будет ли найден Кубок Христа. На поиски Грааля отправляется предводитель тамплиеров — храбрый воин сэр Лэндри, (   Читать дальше...   )Производство: США / A+E Studios, Midnight Radio, Stillking FilmsЖанр: Боевик, драма, приключенияРежиссер: Дуглас Маккиннон, Метин Хусейн, Дэвид ПетраркаАктеры: Том Каллен, Падрейк Делани, Саймон Мерреллс, Оливия Росс, Джулиан Овенден, Эд Стоппард, Сабрина Бартлетт, Бобби Шофилд, Сара-Софи Бусснина, Нассер Мемарзиа и др.Перевод: Двуголосый любительский (JimmyJ)Субтитры: ОтсутствуютПродолжительность: ~00:45:00Реклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8922357B233F805393725A06AF8EFBD1B84CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301151   (575744) от 19.05.2019
+
+Падение Ордена / Knightfall (2019) WEBRip [H.264/1080p-LQ] (сезон 2, серия 1-8 из 8) JimmyJ [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается вокруг самой драгоценной и загадочной реликвии христианства — Святого Грааля, бесследно утерянного в результате падения города Акры, последнего оплота тамплиеров. Существование Ордена теперь под угрозой и зависит от того, будет ли найден Кубок Христа. На поиски Грааля отправляется предводитель тамплиеров — храбрый воин сэр Лэндри, (   Читать дальше...   )Производство: США / A+E Studios, Midnight Radio, Stillking FilmsЖанр: боевик, драма, приключения, историяРежиссер: Дуглас Маккиннон, Метин Хусейн, Дэвид ПетраркаАктеры: Том Каллен, Падрейк Делани, Саймон Мерреллс, Оливия Росс, Джулиан Овенден, Эд Стоппард, Сабрина Бартлетт, Бобби Шофилд, Сара-Софи Бусснина, Нассер Мемарзиа и др.Перевод: Двуголосый любительский (JimmyJ)Субтитры: ОтсутствуютПродолжительность: ~00:45:00Реклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588CBCBBDA480C7AFA82096E890A8C0D820066FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301153   (575548) от 19.05.2019
 
 Падение Ордена / Knightfall (2019) WEBRip (сезон 2, серия 1-8 из 8) JimmyJ [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:103BAF23DB633C033DC024343ABF638B13E33367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228235   (540077) от 04.08.2018
-
-Шеcть / Шестой oтряд / Siх (2018) WEB-DL [H.264/1080p] (сезон 2, серии 1-10 из 10) ОmskBird [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный сериал «Six» рассказывает о деятельности т.н. «SEAL Team Six» - «морских котиках» ВМС США и вдохновлён славной историей этого специального подразделения. Эта группа быстрого развёртывания принимает участие в самых сложных антитеррористических операциях, проводимых Америкой в различных частях света. В том числе, её бойцы участвовали в уничтожении Бен Ладена. (   Читать дальше...   )Производство: США / A+E Studios, The Weinstein CompanyЖанр: боевик, драма, военный, историяРежиссер: Микаэл СаломонАктеры: Бэрри Слоун, Кайл Шмид, Хуан Пабло Раба, Эдвин Ходж, Брианна Дэвис, Надин Веласкес, Доминик Адамс, Джессика Гарза, Джошуа Кейдж, Эрик Ладин и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:45:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D42BAC22C37E5B3941BF2A6C6468AD74EBC5E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557642   (537308) от 17.06.2022
-
-Обвинение / Ferdinand von Schirach - Glauben / The Allegation (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-7 из 7) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537308.jpg" />
-</div>
-
-
-###  Подробнее
-
-В провинциальном городке Оттерн врач-педиатр осматривает девочку и находит следы изнасилования. Это не похоже на единичный случай — более того, детей, очевидно, систематически подвергали жестокому обращению и снимали в порнографических фильмах. Прокурор Корделис выдвигает обвинения против 26 человек. Одного из обвиняемых в суде представляет адвокат по уголовным делам (   Читать дальше...   )Производство: Германия / MOOVIE, MOOVIE the art of entertainment GmbHЖанр: драмаРежиссер: Дэниэл ПрохаскаАктеры: Петер Курт, Наргес Рашиди, Себастьян Урцендовски, Катарина М. Шуберт, Михаэль Пинк, Юлика Йенкинс, Дезире Носбуш, Петер Йордан, Сабрина Рейтер, Фальк Рокштрох и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:35:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B063FDA87CD8A471EE775AC0D4B1533C01C4FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

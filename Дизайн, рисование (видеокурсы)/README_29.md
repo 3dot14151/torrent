@@ -1,3 +1,85 @@
+###  Публикация: 1013340   (777427) от 04.05.2016
+
+W.D.I | Типографика в веб (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите прокачать свой навык в веб-дизайне, один из разумных шагов на пути к этому — прокачать навык в типографике.
+
+На мастер-классе вы приобретете фундаментальное понимание и познакомитесь с практическими инструментами типографики, которые в разы улучшат качество вашей работы.
+(   Читать дальше...   )Жанр: Web, дизайнПродолжительность: 03:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C70B4DB6C45A49E785884874B6A0F7BD93FB1A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391642   (772791) от 21.06.2020
+
+CG Cookie | Создание воксельного арта в Blender 2.8 / Creating Detailed Voxel Art in Blender 2.8 (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Blender укладка блоков - это серьезный вид искусства!
+Воксель - это точно такой же пиксель, но с тремя измерениями вместо двух, и построение сцен с ними приводит к действительно забавному стилю, который стал популярным благодаря таким вещам, как Lego и Minecraft. Этот курс покажет вам, как максимально использовать этот стиль, преобразуя сетки с помощью модификатора (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5026047F9412524D394F16055A6202BF37A9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391639   (772625) от 21.06.2020
+
+CG Cookie | Основы цифрового скульптинга в Blender 2.8 / Fundamentals of Digital Sculpting with Blender 2.8 (2020) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Изучите все основные инструменты, функции и методы скульптинга в Blender 2.8. Этот учебный курс заложит основу использования режима скульптинга в Blender, применяя эти знания для лепки акулы, так что затем вы сможете лепить всё, что захотите.Производство: CG CookieЖанр: 3D моделирование, СкульптингПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB88D1452810F92726CD4B5283FD441491B93F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391419   (772495) от 21.06.2020
 
 Victory3D | Создание игрового окружения "Античные руины" в Blender 2.81 / Ancient Ruins Game Environment in Blender 2.81 (2020) PCRec [H.264/720p-LQ] [EN]
@@ -6,7 +88,7 @@ Victory3D | Создание игрового окружения "Античны
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +115,7 @@ CG Cookie | Создание игры Portalethium часть 2: Дизайн у
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +167,7 @@ Polygon Runway | Создание 3D леттеринга в Blender 2.82 / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +194,7 @@ Polygon Runway | Стань 3D иллюстратором в Blender 2.8 / Becom
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +222,7 @@ CGMA | Mastering Destruction in Houdini (2019) PCRec[En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +302,7 @@ Allan McKay | FX Technical Director Transformation Module 6 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +330,7 @@ VideoSmile, Артём Слаква | Мини-курс «Blender для нов�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +358,7 @@ CG Masters | Мастер создания автомобиля в Blender / Mas
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +384,7 @@ Michael Pavlovich | Creature Production by Michael Pavlovich (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +412,7 @@ Krita Foundation | Тренинг по Krita №2: Музы / Krita Training Vol
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +439,7 @@ Beonmax | Курс Photoshop для начинающих Веб-дизайнер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +466,7 @@ CG Cookie | Моделирование и анимация Sci-Fi люка в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +492,7 @@ CG Cookie | Моделирование мотоцикла в Blender 2.69 / Mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +519,7 @@ FlippedNormals, Henning Sanden | Switching to Blender for Experienced Artists (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +545,7 @@ CtrlPaint.com | Arena Design. Portfolio Builder (2016) PCRec [H.264/1080p-LQ] [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +574,7 @@ Udemy.com | Introduction to 3D Coat (2015) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -520,7 +602,7 @@ Lynda.com | 3D Printing with ZBrush (2014) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -549,7 +631,7 @@ Allan McKay | FX Technical Director Transformation Module 9 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,7 +659,7 @@ Grant Warwick | Hard Surface Modeling Lessons 1 - 14 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,87 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CD91B24659CC044285ACE3BDD4A454B783FD36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523873   (747633) от 13.01.2022
-
-Gumroad, Josh Gambrell and Ponte Ryuurui | The ULTIMATE Guide to Hard Ops and Boxcutter (2020) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное руководство по работе сПроизводство: GumroadЖанр: 3D-моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 10:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADABAA42AB66CD3EB5E6501D02DF08DE89162B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524077   (746153) от 14.01.2022
-
-Udemy, Scott Harris | Character Art School: Complete Coloring and Painting Course (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа рисования персонажей — это 6-недельный видеокурс, где вы сможете научиться раскрашивать и рисовать профессиональных персонажей. Я вручную разработал курс «Школа рисования персонажей: полное раскрашивание и рисование», чтобы он был единственным курсом, который вам нужен, чтобы изучить все основные и передовые методы правильного раскрашивания и рисования персонажей. (   Читать дальше...   )Производство: UdemyЖанр: Цифровая живописьЯзык озвучки: АнглийскийСубтитры: Английские (отдельными файлами)Продолжительность: 19:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D33F13668A473723B4259179C08899393FB198C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020003   (745940) от 25.05.2016
-
-Гузель Зартдинова | Мастер интерьеров в 3ds max (2016) WEBRip [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте востребованным дизайнером интерьера в 3ds max уже через неделю
-Этот видеокурс для Вас, если:
-1.Вы хотите начать зарабатывать на визуализации интерьера от 60 000 руб. в месяц, даже если сейчас боитесь 3ds max
-2.У Вас мало свободного времени, но есть желание освоить эту высокодоходную профессию с нуля(   Читать дальше...   )Жанр: Проектирование, дизайн, 3ds maxПродолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D917604950DC091CCBA359EE4074FE0D8556334C
 ```
 
 https://mybot314.ru/tekegram_catalog/

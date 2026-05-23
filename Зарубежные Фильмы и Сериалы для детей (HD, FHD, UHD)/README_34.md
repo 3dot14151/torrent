@@ -1,3 +1,56 @@
+###  Публикация: 1773115   (31091) от 13.01.2025
+
+Вайлет в стране чудес / Колодец чудес / Wonderwell (2023) BDRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Вайолет обнаруживает в окрестностях итальянской деревни портал в волшебный мир. Там она встречает ведьму Хейзел, которая делит власть над миром с другой волшебницей. Как выясняется, за жизнь в городе отвечает колдунья, знакомая девочке как всемирно известный дизайнер Яна. Пасынок модельера Даниэль предупреждает Вайолет об опасности Хейзел.
+Однако Вайолет сближается (   Читать дальше...   )Производство: Италия, США, Strange Quark FilmsЖанр: фэнтези, драма, семейныйРежиссер: Влад МарсавинАктеры: Кэрри Фишер, Рита Ора, Kiera Milward, Нелл Тайгер Фри, Себастьян Крофт, Винсент Спано, Меган Доддс, Ллойд Оуэн, Никколо Бесио, Romany Gilmour и др.Перевод: Дублированный (СиПиАй Филмз / CPI Films), Многоголосый (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3297E9B8F65884348C14CB821C72892FA6DFE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238654   (30710) от 17.01.2025
+
+Мио, мой мио / Mio in the Land of Faraway / Mio min Mio (1987) WEB-DL [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Однажды жизнь сироты Боссе, живущего в доме у своих приемных родителей, волшебным образом изменилась. С помощью сказочного духа он оказался в прекрасной стране, где встретил своего отца-короля и стал принцем Мио. Но этой чудесной стране грозит опасность: жестокий рыцарь Като похищает детей и превращает их в птиц, обреченных вечно кружиться над Мертвым озером. Вместе (   Читать дальше...   )Производство: Швеция, СССР, Норвегия / Filmhuset AS, Киностудия им. М. Горького, Nordisk Tonefilm InternationalЖанр: Сказка, приключения, детский, экранизацияРежиссер: Владимир ГрамматиковАктеры: Кристиан Бэйл, Кристофер Ли, Тимоти Боттомс, Сюзанна Йорк, Николас Пиккард, Игорь Ясулович, Свере А. Усдал, Гунилла Ниросс, Линн Стокке, Андрей Петров (I), Андрей Сергеев, Стиг Енгстрем, Жоффрей СтейнсПеревод: Профессиональный дублированныйСубтитры: русскиеПродолжительность: 01:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229681ED007DE9D85CF9AD0D612F57751C1A7C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738716   (30607) от 18.01.2025
 
 Бандиты во времени / Time Bandits (2024) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-10 из 10) HDRezka, TVShows, Кубик в Кубе, LE-Production
@@ -6,7 +59,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -617,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FCA08F246DD65C4CD98B9CA03B88D5E6DB8F492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782342   (26168) от 28.02.2025
-
-Питомец Юрского периода. Возвращение домой / The Adventures of Jurassic Pet: Return to the Wild (2024) WEB-DL [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебный портал в страну динозавров забрасывает в наш мир динозаврика Спайка, чем спешат воспользоваться корыстные киношники. Они планируют использовать Спайка в своих целях, стремясь получить славу и богатство. Но, к счастью, об этом узнают юные Итан и Мэдисон. Брату с сестрой предстоит вернуть Спайка домой и защитить тайный портал от посягательств злодеев.Производство: США / Ace Entertainment FilmsЖанр: фантастика, приключения, семейныйРежиссер: Райан Беллгардт, Крис ХойтАктеры: Ава Торрес, Марила Ломброзо, Джоби Джеймс, Нэнси Хардинг, Брукс Райан, Дрю Поллок, Софи Проктор, Крис Хойт, Бен Холл, Бронсон ТейлорПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, английскийСубтитры: русские (forced), английские (full, SDH)Продолжительность: 01:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3096D25306C77F7F9D16A44BF522FB72935B3C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781837   (25333) от 08.03.2025
-
-Приключения Паддингтона 3 / Paddington in Peru (2024) BDRemux [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паддингтон, ставший полноправным членом семьи Браунов и гражданином Великобритании, отправляется в гости к тетушке Люси на свою далекую родину — в Перу.Производство: Великобритания, Франция, Япония, США / Studio Canal, Columbia Pictures, Stage 6 FilmsЖанр: Фэнтези, комедия, детектив, приключения, семейныйРежиссер: Дагал УилсонАктеры: Бен Уишоу, Хью Бонневилль, Эмили Мортимер, Мадлен Харрис, Сэмюэл Джослин, Джули Уолтерс, Оливия Колман, Антонио Бандерас, Карла Тоус, Джим Бродбент, Имелда СтонтонПеревод: Дублированный (Мосфильм-Мастер), Профессиональный многоголосый (Jaskier, TVShows, HDRezka Studio, 1WinStudio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (2-x Forced, Full), Английские (Full, SDH)Продолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3449DD1260FA332F6AC0F83178F9C988B5EFF686
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 832438   (409702) от 19.10.2014
+
+Как приручить дракона 2 / How to Train Your Dragon 2 (2014) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время, соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест. Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США / DreamWorks Animation, Mad Hatter EntertainmentЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дин ДеБлуа / Dean DeBloisАктеры: Джей Барушель, Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг, Джимон ХонсуПеревод: ДублированныйЯзык субтитров: Русский, украинский, английский (full, SDH)Продолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3528F204D9937CD9C5083561062F98D9D8377817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067032   (409620) от 27.10.2016
+
+Спецзадание Дага / Dug's Special Mission (2009) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Короткометражка рассказывает предысторию знакомства Дага — лохматого пса с Карлом и Расселом.Производство: США | Walt Disney | Pixar Animation StudiosЖанр: Короткометражный, Фентези, СемейныйРежиссер: Роналдо Дель КарменПеревод: Дублированный / Любительский одноголосыйСубтитры: Русские, Английские (вшитые, отключаемые)Продолжительность: 00:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0031667AE43CAD60F29B0C81C441CAC9AF50088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559189   (409493) от 12.10.2012
+
+Мадагаскар 3 / Madagascar 3: Europe's Most Wanted (2012) [H.264/720p-LQ] HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лев Алекс, зебра Марти, жираф Мелман и бегемот Глория присоединяются к бродячему цирку, в надежде вернуться в Нью-Йорк.Производство: СШАЖанр: МультфильмРежиссер: Эрик Дарнелл, Том МакГрат, Конрад ВернонАктеры: Бен Стиллер, Крис Рок, Дэвид Швиммер, Джада Пинкетт Смит, Саша Барон Коэн, Седрик «Развлекатель», Энди Рихтер, Фрэнсис МакДорманд, Брайан Крэнстон, Мартин ШортПеревод: Дублированный |Язык субтитров: АнглийскийПродолжительность: 01:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE27CB3A2E0D09836D985749B06C75974463EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559319   (409479) от 12.10.2012
 
 Мадагаскар 3 / Madagascar 3: Europe's Most Wanted (2012) [1080p] Blu-Ray
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,86 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:481D929FB9C17FD6624D4A11C5215C055A212EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713110   (402249) от 20.10.2013
-
-Гадкий я 2 / Despicable Me 2 (2013) Blu-Ray [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402249.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как Грю, бывший суперзлодей, приспосабливается к семейной жизни и пытается честным трудом зарабатывать в сфере бизнеса, тайные лаборатории Арктики оказываются украденными. Анти-Злодейская лига решает, что она нуждается в помощи Грю и его новобранцев в расследовании.Производство: США / Illumination Entertainment, Universal PicturesЖанр: Мультфильм, Фантастика, Комедия, Криминал, Приключения, СемейныйРежиссер: Пьер Соффин / Pierre Coffin, Крис Рено / Chris RenaudАктеры: Стив Карелл, Кристен Уиг, Бенджамин Брэтт, Миранда Косгров, Расселл Брэнд, Кен Жонг, Стив Куган, Элси Фишер, Дэна Гайер, Мойзес АриасПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, португальский, испанский, тайский, китайский, эстонский, латышский, литовскийПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4289EEC9B57EF879F4984D25C115B5EFB3345AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712910   (402189) от 20.10.2013
-
-Гадкий я 2 / Despicable Me 2 (2013) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимание — они приближаются! Контакт неизбежен. Знаменитый шпион, крутое оружие и отвязные миньоны снова в деле. Роковая красотка,
-модные гаджеты и классная тачка — всё включено.Производство: США | Universal Pictures, Illumination EntertainmentРежиссер: Пьер Соффин, Крис РеноАктеры: Стив Карелл, Кристен Уиг, Бенджамин Брэтт, Миранда Косгров, Расселл Брэнд, Кен Жонг, Стив Куган, Элси Фишер, Дэна Гайер, Мойзес Ариас, Назим ПэдрадПеревод: ДублированноеСубтитры: Вшитые отключаемыеЯзык субтитров: РумынскийПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAEACBF4AB9906100A0A786F00EB01E210F30FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713116   (402175) от 20.10.2013
-
-Гадкий я 2 / Despicable Me 2 (2013) BDRip [1080p]
-
->>След.
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимание — они приближаются! Контакт неизбежен. Знаменитый шпион, крутое оружие и отвязные миньоны снова в деле. Роковая красотка,
-модные гаджеты и классная тачка — всё включено.Производство: США | Universal Pictures, Illumination EntertainmentЖанр: Мультфильм, Комедия, Семейный, КриминальныйРежиссер: Пьер Соффин, Крис РеноАктеры: Стив Карелл, Кристен Уиг, Бенджамин Брэтт, Миранда Косгров, Расселл Брэнд, Кен Жонг, Стив Куган, Элси Фишер, Дэна Гайер, Мойзес Ариас, Назим Пэдрад ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), Английский (Full, SDH, SDH-Colored)Продолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF4398DF10440C823B1F53B75FC7BDFAD9A91B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

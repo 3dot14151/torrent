@@ -1,3 +1,83 @@
+###  Публикация: 1544414   (234562) от 18.05.2022
+
+iScanner - Сканер Документов v3.68.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Ищете портативный сканер документов?
+Попробуйте iScanner — мощный сканер и редактор документов, который умеет распознавать текст и добавлять электронную подпись. Наше приложение сэкономит вам время и станет незаменимым помощником.
+С помощью приложения вы сможете сканировать документы одним касанием. Мобильный сканер поможет в работе, учебе и домашних делах. Бухгалтеры, (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 14 мая 2022 г.Разработчик: BP Mobile LLCПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D4C0664A29AFD1ED34434E0268E2297DEA4274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563385   (234455) от 18.09.2022
+
+Briar v1.4.11 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Briar - это приложение для обмена сообщениями, предназначенное для активистов, журналистов и всех, кому нужен безопасный, простой и надежный способ общения. В отличие от традиционных приложений для обмена сообщениями, Briar не зависит от центрального сервера - сообщения синхронизируются непосредственно между устройствами пользователей. В случае отсутствия интернета (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 06.09.2022Разработчик: Briar ProjectПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2A32464076BF3ABDFBA0A9F9F20C855885D8E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643816   (234383) от 03.07.2023
+
+BimmerCode for BMW and MINI 4.13.2-11165 Mod by derrin [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+BimmerCode for BMW and MINI - приложение, что пригодится всем автовладельцам отдающим предпочтений двум популярным маркам машин. С помощью данного программного обеспечения они смогут взаимодействовать с настройками и определять параметры работы электронных составляющих под свои требования и пожелания. Так же можно получить доступ к различным режимам системы, что (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.05.2023Разработчик: SG Software GmbH & Co. KGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E5075BCA017D74BDA1C097CB5591178A5A4C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552128   (234317) от 19.05.2022
 
 Librera PRO: Читалка для книг 8.4.56 Mod by foobnix [Ru/Multi]
@@ -6,7 +86,7 @@ Librera PRO: Читалка для книг 8.4.56 Mod by foobnix [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +112,7 @@ SmartOffice Pro 3.13.10 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +138,7 @@ AirBrush: ИИ Фоторедактор 5.8.0 Mod by 0x7d, alenka_persikova [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +164,7 @@ Pocket 8.1.1.0 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +190,7 @@ KineMaster - Видеоредактор 7.1.0.30516.GP Mod by Shadow_Patcher, ba
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +216,7 @@ Music Editor / Музыкальный редактор 5.8.1 Mod by maxi123444 [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +242,7 @@ GeoZilla v6.36.12 [Ru/Multi] – найти мой телефон. Семейн�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +268,7 @@ BimmerLink for BMW and MINI 2.29.0-5264 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +294,7 @@ RAR for Android v6.22 build 115 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +320,7 @@ ElectroBox - Electronics 15 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +348,7 @@ Bright - учить английский язык 1.4.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +377,7 @@ Spelling Master: Spell & Vocab 2.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +406,7 @@ English Pronouncing Dictionary 5.6.60 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -379,7 +459,7 @@ Urban VPN proxy Unblocker 1.0.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +485,7 @@ Erudite v12.10.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -431,7 +511,7 @@ Universal Copy v6.3.3 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +537,7 @@ InShot v1.950.1411 Mod by Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -483,7 +563,7 @@ DOG VPN-Unlimited freedom VPN 3.8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -509,7 +589,7 @@ VPN Russia - VPN сервера в России v1.136 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -535,7 +615,7 @@ Made - Редактор и коллаж 1.2.14 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -561,7 +641,7 @@ Locus Map 4 v4.10.0 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -600,86 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0076A44FCDE3DA994D33F4B2C16D9870D6F5C016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648277   (230948) от 22.07.2023
-
-Mivo - Видеоредактор 3.34.619 Mod by AppModz [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mivo - лучший инструмент для создания музыкальных видеоклипов в HD и создания слайд-шоу из фотографий с эффектами изменения лица, модными шаблонами смены лица с помощью ИИ. Популярная музыка, потрясающие переходы, анимированные, неоновые, 3D, мультяшные видеоэффекты. Mivo поможет вам легко добавлять музыку к видео, редактировать видео с музыкой и фотографиями для (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 20.07.2023Разработчик: Mivo studioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637234   (230924) от 03.06.2023
-
-SMD info v1.39 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение позволит Вам раскодировать номинал SMD элемента (сопротивление, ёмкость), а также цветовую кодировку резистора.
-
-Сохраняется история расшифровок по каждому элементу и обратная конвертация сопротивлений - Вы вводите сопротивление и приложение подбирает SMD-кодировку и цветную кодировку.Тип издания: AdfreeРелиз состоялся: 09.05.2023Разработчик: Alexandr11997755Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AC35914576E7BA282C639A4FC0E5FD0E42EBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649145   (230879) от 26.07.2023
-
-MediBang Paint Pro 25.1 Mod by srajawwal09 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230879.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediBang Paint - одно из самых удобный и популярных приложений для мобильных платформ, что предоставляет пользователям отличную возможность для рисования в любое время и месте. И при этом им обеспечивают впечатляющий уровень комфорта. Что очень им пригодится при работе со сложными проектами, что они хотят воплотить в жизнь. Ну а более 1000 видов инструментов дадут (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.11.2022Разработчик: MediBang Inc.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE1D5CC48F71023038F294F218F210B9747DE4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

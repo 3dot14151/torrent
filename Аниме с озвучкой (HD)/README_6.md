@@ -1,3 +1,29 @@
+###  Публикация: 1281322   (619926) от 12.04.2019
+
+Yakusoku no Neverland / The Promised Neverland / Обещанный Неверленд [2019, TV, 12 ep] WEB-DL 720p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В приюте «Грейс Филд» под чутким взором «Матери» живут трое подростков — Эмма, Норман и Рэй. Окружённые младшими братьями и сёстрами они не знают бед и невзгод. Но в одну ночь их идиллия оборачивается кошмаром. Они считали приют раем. Но теперь, когда они знают правду, у них остался один выход: сбежать или... умереть!Жанр: приключения, фантастика, драмаРежиссер: Камбэ МаморуЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35C90B5699E248FE00CCE5A8495864D8DCA596C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136412   (617568) от 27.06.2017
 
 Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+Rus
@@ -6,7 +32,7 @@ Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Renai Boukun / Love Tyrant / Любовь тирана [2017, TV, 12 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kakegurui XX | Безумный азарт XX [2019, TV, 12] HDTV 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ ID-0 / Идентификатор - ноль [2017, TV, 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Beatless / Мёртвый ритм [2018, TV, 20 ep + 4 sp] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +190,7 @@ Tsuki ga Kirei / Какая красивая луна! [2017, TV, 12 ep] HDTV 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +216,7 @@ Grancrest Senki / Record of Grancrest War / Легенда о Гранкрест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +242,7 @@ Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +270,7 @@ Mobile Police Patlabor: The Movie / Полиция Будущего (фильм 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +296,7 @@ Pokemon: Black and White. Rival Destinies / Покемон: Чёрное и Бе
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +322,7 @@ Grisaia no Rakuen / The Eden of Grisaia / Эдем в серых тонах [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +348,7 @@ Trinity Blood / Кровь Триединства [2005, TV, 24 серии] BDri
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +374,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 720p Hi10p raw
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +401,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +427,7 @@ Aoki Hagane no Arpeggio: Ars Nova / Arpeggio of Blue Steel / Арпеджио г
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +453,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +480,7 @@ Gekijouban Hunter x Hunter: Phantom Rouge / Охотник х Охотник (ф
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +507,7 @@ Sword Art Online II / Мастера Меча Онлайн (ТВ-2) [2014, TV, 2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +534,7 @@ Isshuukan Friends / One Week Friends / Друзья на неделю [2014, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +561,7 @@ Sasameki Koto / Whispered Words / Я тихо прошепчу [2009, TV, 13 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +588,7 @@ Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +614,7 @@ Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +641,7 @@ Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Маги�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +668,7 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель вол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,33 +679,6 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель вол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455D8C5CDB863ED1D0D15277F7E00D8D9BCE56A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307972   (554279) от 12.06.2019
-
-Ginga Eiyuu Densetsu | Legend of the Galactic Heroes | Легенда о героях Галактики OVA-1 [1988, OVA, 110 эп.] BDRip 720p Hi10p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554279.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Легенда о героях Галактики» представляет собой экранизацию цикла романов популярного писателя-фантаста Ёсики Танаки. История человечества всегда была историей войн, во все времена, во все эпохи. И во все эпохи находятся люди, оставляющие след в истории, чьи имена выжжены на ее скрижалях. Этих людей называют героями, и их судьба - изменить мир. Сюжет переносит нас (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастика, драмаРежиссер: Исигуро НоборуПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Одноголосая, студияПродолжительность: 110 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C292A956B98ADEC16118DDAF3CD4A2906A8D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

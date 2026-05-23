@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1870257   (1069229) от 
+
+Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack Wanterlude
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Самостоятельное приключение Dishonored: Death of the Outsider использует фирменный игровой процесс и художественный стиль Dishonored 2 и наследует все характерные черты игр знаменитой серии: убийственные боевые приемы, уникальный дизайн уровней и увлекательное повествование, реагирующее на каждый сделанный вами выбор. Ваша цель – Чужой, подобное богам могущественное (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: Экшены, СтелсЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EC2F5383EACC061250AC33CE69F61E3A7CB01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870626   (1068988) от 
+
+Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Scene Rune [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Гнилые стены заброшенной фермы на американском Юге порождают чувство страха и одиночества. Седьмая часть игры с пугающей «изолированной камерой» - это новый подход к survival horror. С современным движком RE Engine ужас достигает невиданной реалистичности. Переживите новый чудовищный кошмар.Тип издания: SceneРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E836AE834CD13B08D86642AD5705E48450B2D92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870624   (1068987) от 
+
+Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Repack Let'sРlay [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Гнилые стены заброшенной фермы на американском Юге порождают чувство страха и одиночества. Седьмая часть игры с пугающей «изолированной камерой» - это новый подход к survival horror. С современным движком RE Engine ужас достигает невиданной реалистичности. Переживите новый чудовищный кошмар.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C453ADCBE84EEABFF1F38FE3B2D27EB751DED0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870202   (1068666) от 
+
+Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack Wanterlude
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры Dishonored 2 разворачивается спустя пятнадцать лет после победы над лордом-регентом и избавления от ужасной крысиной чумы. Необычный враг отнял трон у императрицы Эмили Колдуин, и мрачная тень злого рока нависла над Островами. Играя за Эмили или Корво, вы окажетесь на легендарных улицах Дануолла и в Карнаке - некогда прекрасном портовом городе, который (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: Экшены, СтелсЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012C668045447DC27ECBABA6341A80CF4E74596A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869563   (1068406) от 06.05.2026
 
 Mob Enforcer / Я, гангстер (2004) [Ru] (1.0) License
@@ -7,7 +111,7 @@ Mob Enforcer / Я, гангстер (2004) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +137,7 @@ DeadHunt / DeadHunt: Охотник на Нежить (2005) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack seleZen [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Wanterlude [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Turok 2: Seeds of Evil (1998) [Multi] (3.0.1336) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +267,7 @@ DOOM Eternal (2020) [Ru/Multi] (20260319-122157/dlc) License GOG [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.123) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +319,7 @@ BioShock Remastered (2016) [Ru] (Build 8552765) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +345,7 @@ BioShock (2007) [Ru] (Build 11242) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +371,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack HardwareMining
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +397,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +423,7 @@ BioShock 2 (2010) [Ru] (Build 789537) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +449,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +475,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (20760608/dlc) Repack Wanterlude [Premium 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +501,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Premium E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +527,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +553,7 @@ Ready or Not (2023) [Ru/Multi] (112610/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +579,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (3.0.8.39/dlc) Repack W
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -501,7 +605,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.8.39/dlc) Repack W
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -527,7 +631,7 @@ Thief (2014) [Ru/Multi] (1.7/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -564,110 +668,6 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:349DCBD51B44A3DAEF5A9C0B9C0B1BB350041C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858455   (1060429) от 11.03.2026
-
-Metro: Last Light Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metro: Last Light Redux – самая лучшая и полная версия классической игры Metro: Last Light, обновленная с применением последней, самой совершенной версии графического ядра 4A Engine для игровых систем последнего поколения. Игроки, не знакомые с серией, получат один из лучших сюжетных шутеров за всю историю жанра – эпическое приключение, сочетающее в себе захватывающий (   Читать дальше...   )Тип издания: RepackРазработчик: 4A GAMESЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6F1EE330CD7A5D33C43DF480D5091A54A11F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857195   (1059297) от 04.03.2026
-
-Half-Life: Alyx (2020) [Ru/Multi] (1.5.4/dlc) Repack FitGirl [VR, NoVR]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Half-Life: Alyx - это возвращение Valve во вселенную Half-Life в виртуальной реальности. Это история невозможной борьбы с жестокой расой пришельцев, известной как Альянс. События происходят между Half-Life и Half-Life 2. Вы играете за Аликс Вэнс, и вы - единственный шанс человечества на спасение. Контроль Альянса за планетой после инцидента в Чёрной Мезе только усилился: (   Читать дальше...   )Тип издания: RepackРазработчик: ValveЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE93745071C5294900404B53771D5CFE3F8C643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856920   (1059265) от 03.03.2026
-
-BioShock Infinite (2013) [Ru] (1.0.1643565/dlc) Repack seleZen
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059265.jpg" />
-</div>
-
-
-###  Подробнее
-
-BioShock Infinite – шутер от первого лица, с множественными механиками ролевого приключения в стилистике научной фантастики и стимпанка. Игра будет происходить в 1912 году в альтернативной вселенной, в летающем городе Соединенных Штатов Америки - Колумбия. Управлять необходимо частным детективом Букером Девиттом, имеющим задание по поиску милой девушки по имени Элизабет. (   Читать дальше...   )Тип издания: RepackРазработчик: Irrational GamesЖанр: ЭкшеныЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840AC74BADC085934634CB8CFB60BBC33F2AA04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856970   (1059231) от 03.03.2026
-
-BioShock 2 Remastered (2016) [Ru] (Build 8552776) Repack seleZen
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059231.jpg" />
-</div>
-
-
-###  Подробнее
-
-BioShock 2 идеально сочетает взрывную динамику боевика от первого лица и убедительную историю. На улицах города Rapture снова раздается эхо прошлых грехов. По всему атлантическому побережью чудовище ворует девочек и утаскивает их в подводный город. Игрокам предстоит играть за самого узнаваемого обитателя города - Big Daddy, который в поисках ответов преследует незримого (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Marin, 2K China, Digital Extremes, 2K Australia, Blind SquirrelЖанр: Экшены, ШутерыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4D8D9DFE4FAD0618201B33A3A5B721B422FB83
 ```
 
 https://mybot314.ru/tekegram_catalog/

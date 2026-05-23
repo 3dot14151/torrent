@@ -1,3 +1,81 @@
+###  Публикация: 1732585   (52180) от 25.06.2024
+
+ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack dixen18 [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6AB86AFA86DCE8BE48FB37D5CED98E152E552E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732583   (52110) от 25.06.2024
+
+Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Reverse Collapse: Code Name Bakery - тактическая RPG, события которой происходят в далеком будущем. Мир страдает от глобального кризиса, вызванный загрязнением, именуемым Collapse Fluid. Находясь в послевоенном состоянии, две фракции решили вступить в противостояние за сферу влияния. Конфликт произошел между Антарктическим союзом и Коалицией Наций Роксатеризма. Им (   Читать дальше...   )Тип издания: SceneРазработчик: Shanghai Sunborn Network Technology Co., Ltd.Жанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский и другиеЯзык интерфейса: Английский, Японский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62168075F11EAF25DAB8E76630921B4C3313F3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630517   (51880) от 27.06.2024
+
+Dungeon Drafters (2023) [Ru/Multi] (1.1.1.6) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Dungeon Drafters – это пошаговый рогалик с видом сверху и упором на тактические бои. Проект использует анимешную стилистику и механики карточных игр. Под управление выдается искательница приключений с красными волосами. Она перемещается по клеткам. В инди-продукте есть мини-игры. Например: рыбалка. В тайтле можно разблокировать новых персонажей.Тип издания: LicenseРазработчик: Manalith StudiosЖанр: Ролевая игра, ПриключениеЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B233DF202F4116B0888FEC40B9576BCFC4CA8DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733390   (51720) от 28.06.2024
 
 Russian Village Simulator / Симулятор русской деревни (2023) [Ru/Multi] (2.0.2) Scene Tenoke
@@ -6,7 +84,7 @@ Russian Village Simulator / Симулятор русской деревни (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Ludus Mortis (2024) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Islands of the Caliph (2023) [En] (1.2.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.1.4/dlc) Scene Tenoke [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (2.01.31.01) Scene DINOByTES
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0.2/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Clash II (2) (2022) [Multi] (497) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Dark Envoy (2023) [Ru/Multi] (1.5.2.73561) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45DCB626E7D42AA6720B4A79B259EBEFF98E7E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706639   (49477) от 20.07.2024
-
-The Thaumaturge (2024) [Ru/Multi] (73424/dlc) License GOG [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49477.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Thaumaturge - изометрическая ролевая игра с глубоким сюжетом, уникальной тактической системой боя, развитием персонажа, детективными элементами и непростыми моральными дилеммами в мире загадочных потусторонних сил и таинственных существ, салюторов. Варшава, 1905 год. Город живет под гнетом Российской империи. На его улицах сталкиваются люди множества судеб, взглядов (   Читать дальше...   )Тип издания: LicenseРазработчик: Fool's TheoryЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69CA39B82D4AC9D8282254E225A3C4F2B4932C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737974   (49450) от 20.07.2024
-
-Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.52-267364) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flintlock: The Siege of Dawn с головой окунает вас в огромный открытый мир, пылающий мечами и заклинаниями. Вы возьмете под свой контроль Нор Ванек, крутую воительницу с таинственным лисом-компаньоном по имени Энки. Вместе они - последняя надежда человечества, противостоящая ужасной ситуации - в буквальном смысле этого слова. Сами боги стали злыми, выпустив на землю (   Читать дальше...   )Тип издания: RepackРазработчик: A44 GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и дугиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB2919DF41F3C5B83729DB58EC49B78821C17BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737894   (49437) от 20.07.2024
-
-Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пробивайтесь через врагов в совершенно новой динамичной игре во вселенной Minecraft по мотивам классических подземных приключений! Покоряйте подземелья в одиночку или объединяйтесь с друзьями! До четырех игроков могут вместе эпично сражаться на динамичных и разнообразных уровнях с сокровищами, чтобы спасти селян и победить Архизлодеянина!Тип издания: SceneРазработчик: Mojang Studios, Double ElevenЖанр: RPG, ActionЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792C4429EC23C73BC50E25AA594EEAECDCA7E08E
 ```
 
 https://mybot314.ru/tekegram_catalog/

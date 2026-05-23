@@ -1,3 +1,55 @@
+###  Публикация: 1528556   (734426) от 02.02.2022
+
+Не лги / Du sollst nicht lugen (2021) HDRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После ночи с Хендриком жизнь Лауры изменилась. На самом деле она даже не хотела встречаться с Хендриком, потому что совсем недавно пережила тяжёлый разрыв отношений. Кроме того, одинокий врач является отцом одного из ее учеников. И после волшебного вечера они оказываются в постели у Лауры дома. Однако на следующее утро следует тяжёлое пробуждение: у Лауры провал (   Читать дальше...   )Производство: Германия / Filmpool FictionЖанр: драма, криминалРежиссер: Йохен ФрейданкАктеры: Фелицитас Волль, Барри Атсма, Sophie Pfennigstorf, Шенке Мёринг, Фредерике Бехт, Гуннар Хельм, Стефани Хёнер, Джессика Макинтайр, Altamasch Noor, Тино Мевес и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео (2 бегущих строки), аудио вставки (2 короткие) рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CAC4722D316716E0B901C78D59CFCD0A1F5A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528975   (733489) от 04.02.2022
+
+Джек Ричер / Jack Reacher / Reacher (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ColdFilm [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Бывший военный полицейский Джек Ричер (Алан Ричсон) прибывает в провинциальный городок Маргрэйв в штате Джорджия. По приезде его тут же арестовывают по подозрению в убийстве местного музыканта. Ричеру придётся доказать невиновность и найти реальных преступников в городе, который насквозь прогнил от коррупции.Производство: США / Amazon Studios, Blackjack Films Inc., Paramount TelevisionЖанр: Боевик, триллер, драма, криминалРежиссер: Норберто Барба, М. Дж. Бассетт, Сэм ХиллАктеры: Алан Ричсон, Малкольм Гудвин, Уилла Фицджералд, Хью Томпсон, Кристофер Уэбстер, Брюс МакГилл, Макс Дженкинс, Гэвин Уайт, Лесли Фрэй, Джонатан КёнсгенПеревод: Многоголосый любительский (ColdFilm)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серияРеклама: Присутствуют рекламные вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BE810851E26CBD3BF30FD083D2C7AA83C497F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398202   (733306) от 31.07.2020
 
 Дивный новый мир / Brave New World (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6C53465EEDFB94045D849DC09FB29390771DCB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400440   (718860) от 05.08.2020
-
-Маленькие пташки / Little Birds (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718860.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух совершенно не похожих друг на друга женщин, оказавшихся в международной зоне Танжер в 1955 году – накануне ее ликвидации, после которой Танжер стал частью Королевства Марокко. Молодая американка Люси Сэвидж путешествует в уникальное место у Гибралтарского пролива в надежде разобраться как в собственной сексуальной и личной жизни, так и в грядущих общественно-политических (   Читать дальше...   )Производство: Великобритания / Warp FilmsЖанр: мелодрама, драмаРежиссер: Стэйси ПассонАктеры: Джуно Темпл, Рафаэль Аклок, Жан-Марк Барр, Дэвид Костабайл, Фейди Эльсайед, Камель Лабруди, Эми Ландекер, Мэтт Лауриа, Росси де Пальма и др.Перевод: Двуголосый любительский (LakeFilms)Продолжительность: ~00:50:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD90F81266102C0583EA9346974CA7CB1F9D0CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400441   (718631) от 05.08.2020
-
-Маленькие пташки / Little Birds (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718631.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух совершенно не похожих друг на друга женщин, оказавшихся в международной зоне Танжер в 1955 году – накануне ее ликвидации, после которой Танжер стал частью Королевства Марокко. Молодая американка Люси Сэвидж путешествует в уникальное место у Гибралтарского пролива в надежде разобраться как в собственной сексуальной и личной жизни, так и в грядущих общественно-политических (   Читать дальше...   )Производство: Великобритания / Warp FilmsЖанр: мелодрама, драмаРежиссер: Стэйси ПассонАктеры: Джуно Темпл, Рафаэль Аклок, Жан-Марк Барр, Дэвид Костабайл, Фейди Эльсайед, Камель Лабруди, Эми Ландекер, Мэтт Лауриа, Росси де Пальма и др.Перевод: Двуголосый любительский (LakeFilms)Продолжительность: ~00:50:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6365A045FD5DA51E1E37C203198710B51186AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

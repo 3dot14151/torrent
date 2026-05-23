@@ -1,3 +1,55 @@
+###  Публикация: 1646159   (61467) от 29.03.2024
+
+Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] WebRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+2222 год. Год назад на Землю пролились «Слёзы Новой Луны» — загадочный ядовитый ливень, который стёр с лица планеты почти всё человечество. Зато он породил отвратительных монстров-людоедов, и выжившим пришлось спасаться бегством. Они построили подземное убежище и назвали его Амазия. Однако там они столкнулись с новыми трудностями: необходимостью уживаться с искусственным (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: фантастикаРежиссер: Ямамото ЮсукэПеревод: Funimation; AniLibriaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D468F040F96329ECD6395C867073A1E6E298C455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666549   (61229) от 31.03.2024
+
+Ragna Crimson | Рагна Багровый [2023, TV, 24 эп.] WEBRip 1080p raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В мире, где драконы правят на земле, в воздухе и даже на море, где им совершенно нет равных, существуют те, кто ищет возможность бросить вызов этим убийственным созданиям. Для того, чтобы одержать над ними победу, требуется начать с малого — превзойти предел человеческой силы. Спустя долгие годы тренировок и сражений это удалось сделать охотнику на драконов Рагне, (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, фэнтeзиРежиссер: Такахаси КэнПеревод: YakuSubsЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 23 эп. по 25 мин, 1ый эп. 48 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E221977C5B4EE6879F30D9D98C0C6165CD5E0BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712097   (61073) от 01.04.2024
 
 Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы и Терезы [2023, Movie] WebRip 1080p raw+eng
@@ -6,7 +58,7 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +86,7 @@ Undead Unluck | Undead Unluck | Нежить и Неудача [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +113,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +139,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Final | Девушки и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +167,7 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +193,7 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +219,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +246,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +272,7 @@ Ninja Kamui | Ниндзя Камуи [2024, Web, 13] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +299,7 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +326,7 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +352,7 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +378,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +404,7 @@ Kurokami The Animation / Темная богиня [2009, TV,   23 серий] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +430,7 @@ Campione! Matsurowanu Kamigami to Kami Koroshi no Maou | Чемпион! ~Шко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +456,7 @@ Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +482,7 @@ Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +508,7 @@ Garouden: The Way of the Lone Wolf | Легенда о голодных волк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +534,7 @@ Omamori Himari / Защитница Химари [2010, TV, 12 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +560,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +586,7 @@ Mahou Shoujo ni Akogarete | Gushing over Magical Girls | Становясь во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +612,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +641,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +667,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -627,61 +679,6 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29430D65FE2295A8759AF3EFF8760D03DBFC2D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637389   (47144) от 11.08.2024
-
-Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 | Не люблю боль, поэтому собираюсь вложить всё в защиту [ТВ-2] [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu.
-Описание на первый сезон:
-
-По приглашению подруги Каэде Хондзё погружается в VRMMO-игру New World Online, даже не представляя, как в неё играть. Все очки навыков девушка тратит на защиту своего персонажа Мейпл, из-за чего она становится медленной и не может использовать магию. Но теперь (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, комедия, фэнтезиРежиссер: Онума СинПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258D32466B60B35F36F468E4E20E1178CBDF2B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742471   (47123) от 11.08.2024
-
-Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Another World with Level 2 Super Cheat Powers | Беззаботная жизнь в ином мире [2024, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банадза жил спокойной жизнью торговца, пока однажды его внезапно не перенесло в другой мир. В царстве Клайрод ожидали, что он окажется великим героем, однако юноша получил первый уровень без каких-либо особых способностей. За это его изгнали в далёкий лес, где на Банадзу напали слаймы. Победив их, парень достиг второго уровня и обрёл безграничную мощь. Взяв себе (   Читать дальше...   )Производство: студия J.C. StaffЖанр: комедия, романтика, фэнтезиРежиссер: Ивасаки ЁсиакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FE4F07AFE1871592B23A4DA4B7FC0C13EF25F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

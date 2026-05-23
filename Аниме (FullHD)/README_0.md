@@ -1,3 +1,55 @@
+###  Публикация: 1855147   (1057983) от 22.02.2026
+
+Alma-chan wa Kazoku ni Naritai | Alma-chan Wants to Be a Family! | Альма хочет стать семьёй [2025, TV, 11 эп.] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Альма, автономный самообучающийся робот с передовыми боевыми способностями, была создана двумя гениальными учеными, Энджи Камисато и Сузуме Йобане, которые разработали искусственный интеллект и робототехнику Альмы соответственно. После того, как их бывшие знакомые высмеяли их, дуэт начал работать вместе, чтобы показать миру свои истинные таланты. Но даже несмотря (   Читать дальше...   )Производство: Studio FladЖанр: комедия, повседневностьРежиссер: Кобаяси КосукэПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (11 эп.), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743D25D0B5B9F425C425800F3C9DF7E08F86D12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855333   (1057947) от 22.02.2026
+
+Attack No.1 | Attack Number One | Mila Superstar | Лучшая подача [1969, TV, 104 из 104] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Кодзуэ - старшеклассница и увлечённая волейболистка. Её мечта - играть в сборной Японии по волейболу. Она с усердием проходит путь от школьной окружной лиги, подбираясь ближе к международному чемпионату по волейболу. Но чем быстрее и выше Кодзуэ поднимается по карьерной лестнице вверх, тем больше она сталкивается с тёмной стороной успеха: слишком высокие ожидания, (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: спортРежиссер: Курокава ФумиоПеревод: GeraleЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 104 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8ACE5552DC9822BAEF71535DF34611712D9B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852272   (1055859) от 11.02.2026
 
 Tensei Akujo no Kurorekishi | The Dark History of the Reincarnated Villainess | Тёмное прошлое перевоплощённой злодейки [2025, TV, 7 из 12] WebRip 1080p raw
@@ -6,7 +58,7 @@ Tensei Akujo no Kurorekishi | The Dark History of the Reincarnated Villainess | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Little Witch Academia | Академия ведьмочек (фильм перв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Momotarou: Umi no Shinpei | Momotaro Sacred Sailors | Momotaro's Divine Sea Warr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Kumo to Tulip | Spider and Tulip | Паук и тюльпан [1943, Movie] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +166,7 @@ Eiga Kobayashi-san Chi no Maidragon: Samishigariya no Ryuu | Miss Kobayashi's Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +192,7 @@ Undead Unluck: Winter Hen | Undead Unluck: Winter Arc | Нежить и Неуд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +218,7 @@ Tasokare Hotel | Отель Тасокарэ [2025, TV, 1 из 12] WEB-DL 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +244,7 @@ Nukitashi the Animation - Special | Нукитаси - Спэшл [2025, SP, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +273,7 @@ Shuumatsu no Walkure III | Record of Ragnarok III | Повесть о конце
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +299,7 @@ New Panty and Stocking with Garterbelt | Панти, Стокинг и Гарт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +325,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +351,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +377,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +403,7 @@ Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex | Доч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +429,7 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +455,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +481,7 @@ Eiga Go-Toubun no Hanayome | Пять невест (фильм) [2022, Movie] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +507,7 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +533,7 @@ Hatena Illusion | Иллюзия Хатэны [2020, TV, 12 эп.] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +559,7 @@ Soredemo Ayumu wa Yosetekuru | When Will Ayumu Make His Move? | Аюму всё 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +585,7 @@ Strike the Blood Final | Удар крови OVA-5 [2022, OVA, 4 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +613,7 @@ Itou Junji: Maniac | Junji Ito Maniac: Japanese Tales of the Macabre | Дзюн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -587,7 +639,7 @@ Gekijouban Karakai Jouzu no Takagi-san | Озорная Такаги (фильм
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -613,7 +665,7 @@ Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | League of Nations Air Fo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -624,58 +676,6 @@ Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | League of Nations Air Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0D0EC2BF66210B4C3A6CD434A09DF8EAB6722A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587146   (1043887) от 27.01.2023
-
-Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ко Ямори — обычный подросток, которого неимоверно бесит его повседневная жизнь, из-за чего он страдает бессонницей. Однажды во время ночной прогулки он встречает чудаковатую девушку по имени Надзуна Нанакуса. Она приглашает его к себе в гости в заброшенное здание, обещая, что там он сможет спокойно поспать, пока она будет рядом с ним. Так, в общем, и получается, (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: комедия, романтикаРежиссер: Итамура ТомоюкиПеревод: ShikimoriЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A936F920F68F7CC9F3ABB7522F628E01E5DE137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436852   (1042780) от 02.01.2021
-
-Lapis Re:LiGHTs | Лазурные огни [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в городе Мармкестл, в котором в качестве энергии используется сверкающая пыль. Девушки, умеющие творить магию с помощью заклинаний и мелодий, зовутся здесь ведьмами. Жители обожают их за песни и за то, что они борются с монстрами. Главная героиня Тиара, мечтающая стать лучшей ведьмой на свете, отправляется поступать в школу ведьм Флора. «Я (   Читать дальше...   )Производство: Yokohama Animation Lab / 横浜アニメーションラボ, Tri-Slash / トライスラッシュЖанр: повседневность, музыкальныйРежиссер: Хата ХироюкиПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F376C476EB95371863B4492C4A61664D9EC394E
 ```
 
 https://mybot314.ru/tekegram_catalog/

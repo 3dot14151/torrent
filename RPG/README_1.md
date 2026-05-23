@@ -1,3 +1,81 @@
+###  Публикация: 1853663   (1056620) от 14.02.2026
+
+Vagrus: The Riven Realms (2020) [Ru/Multi] (1.2.80.0211V/dlc) Repack Let'sРlay [Praetor Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Vagrus: The Riven Realms – ролевая игра с элементами стратегии, где потребуется взять контроль над лидером каравана и выживать в темном сюрреалистическом мире. Возглавьте туристическую компанию, набирайте в свои ряды мощных воинов и путешествуйте по большой земле, сражаясь с врагами и зарабатывая полезные материалы. Исследуйте огромный континент, вмещающий уникальные (   Читать дальше...   )Тип издания: Let'sРlayРазработчик: Lost Pilgrims StudioЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB2E2140658A34ECBAEEDDD1EB3D034CDE3D3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853258   (1056375) от 13.02.2026
+
+Back to the Dawn (2023) [Ru/Multi] (2.0.0.30-RC/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Back to the Dawn - это сюжетная ролевая игра, действие которой разворачивается в тюрьме строгого режима, управляемой фракциями и хранящей скрытые секреты. Расследуйте два заговора изнутри, собирайте доказательства и перехитрите систему, созданную для того, чтобы заставить вас замолчать. Заведите друзей (или врагов) среди других заключенных и с их помощью совершите (   Читать дальше...   )Тип издания: RepackРазработчик: Metal Head GamesЖанр: Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1454735A3719970183E7F5F44AB8874D942D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852603   (1055945) от 08.02.2026
+
+Nioh (2017) [Ru/Multi] (1.24.8/dlc) Repack Let'sРlay [Complete Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Готовьте клинки – в этой ролевой игре на территории огромной страны, охваченной гражданской войной, изнурительные бои поджидают за каждым углом. Чтобы побеждать, вам нужно набраться терпения, внимательно изучая сильные стороны своих врагов – будь то люди или демоны, – и воспользоваться их уязвимыми местами. Каждое поражение следует воспринимать как очередной шаг (   Читать дальше...   )Тип издания: RepackРазработчик: KOEI TECMO GAMESЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AB44D9086AFA0718230055D090AE31106762D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852613   (1055938) от 08.02.2026
 
 Nioh 2 (2021) [Ru/Multi] (1.28.8/dlc) Repack Let'sРlay [The Complete Edition]
@@ -6,7 +84,7 @@ Nioh 2 (2021) [Ru/Multi] (1.28.8/dlc) Repack Let'sРlay [The Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Flowstone Saga (2024) [Multi] ((163f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Cosplayer’s Quest (2026) [Multi] (1.0.1/dlc) License GOG [16+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Ephemeral / 蜉蝣之国的囚徒 (2026) [Multi] (Build 21423814) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (2.4.8/dlc) Repack FitGirl [Digital D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-27) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Disco Elysium (2019) [Ru/Multi] (Build a0a063ab) Repack FitGirl [The Final Cut B
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Let'sРlay [Collectors
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.006/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ DuneCrawl (2026) [Ru/Multi] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/dlc) Repack seleZe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Night Swarm (2025) [Ru/Multi] (1.1.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Stone of Madness (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay [Special Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Dreamscaper (2020) [Ru/Multi] (1.1.7.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Sacred 2 Remaster (2025) [Ru/Multi] (CL16601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Persona 5 Royal (2022) [Ru/Multi] (1.03B) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Chronicon (2020) [Multi] (1.54.1/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Len's Island (2021) [Ru/Multi] (1.1.43/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Len's Island (2021) [Ru/Multi] (1.1.43/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BDB3E99F2923B3B6C8900E0B0C7CCF0CECF82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848334   (1052747) от 17.01.2026
-
-CENTUM (2025) [Ru/Multi] (2.4445.1138) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Centum - это повествовательное приключение, которое увлекает игрока в мир, где все не так, как кажется. Сюжет разворачивается в тюремной камере, но цель далеко не ясна. Действительно ли вы попали в ловушку? Или ситуация сложнее? Игра переворачивает традиционное повествование с ног на голову, бросая вас в паутину неопределенности, где стирается грань между правдой (   Читать дальше...   )Тип издания: RepackРазработчик: Hack The PublisherЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F8CA1B1094DFB39B3DA9693DA2DB57DED38546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847738   (1052344) от 14.01.2026
-
-Земский Собор (2025) [Ru] (1.1.0) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русь после Смуты на пороге нового испытания. Казак Кирша, прошедший не одну битву, оказался втянут в водоворот событий, разворачивающихся вокруг борьбы за трон. Земский собор обещает порядок, но путь к нему - через интриги и предательство. Вас ждёт приключенческий экшен в сеттинге Руси XVII века, сражения и атмосфера тревожного времени.Тип издания: RepackРазработчик: Cyberia NovaЖанр: Экшен, Ролевая играЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6FCCA34E96D129828D6244F62EB3A05AE6A240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847455   (1052240) от 12.01.2026
-
-UnderRail (2015) [Ru/En] (1.3.0.17/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052240.jpg" />
-</div>
-
-
-###  Подробнее
-
-UnderRail – изометрическая пошаговая ролевая игра в классическом стиле, действие которой разворачивается в далеком будущем. Жизнь на поверхности Земли давно уже стала невозможной, и остатки человечества теперь обитают в Подрельсовье – огромной системе станций метро, ставших государствами. Похоже, они являются последними бастионами исчезающей расы.Тип издания: RepackРазработчик: Stygian SoftwareЖанр: Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD6E0FBADE43CA331DF4275FE636EE0321BAC89
 ```
 
 https://mybot314.ru/tekegram_catalog/

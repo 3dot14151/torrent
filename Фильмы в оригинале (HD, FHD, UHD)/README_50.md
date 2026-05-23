@@ -1,3 +1,81 @@
+###  Публикация: 1192741   (262716) от 18.12.2017
+
+Оно / It (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Когда в городке Дерри, штат Мэн, начинают пропадать дети, несколько ребят сталкиваются со своими величайшими страхами и вынуждены помериться силами со злобным клоуном Пеннивайзом, чьи проявления жестокости и список жертв уходят в глубь веков.Производство: США, Канада / New Line Cinema, KatzSmith Productions, Lin PicturesЖанр: Ужасы, ТриллерРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, Софиа Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Дилан Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк Сим ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 02:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757515ACA568A4FCD2120ED26349BE1DA6D825B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193016   (262431) от 19.12.2017
+
+Оно / It  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Когда в городке Дерри, штат Мэн, начинают пропадать дети, несколько ребят сталкиваются со своими величайшими страхами и вынуждены помериться силами со злобным клоуном Пеннивайзом, чьи проявления жестокости и список жертв уходят в глубь веков.Производство: США, Канада / KatzSmith Productions, Lin Pictures, New Line Cinema, RatPac-Dune Entertainment, Vertigo EntertainmentЖанр: ужасы, триллерРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, Софиа Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Дилан Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк Сим, Логан Томпсон, Оуэн ТигПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 02:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEBADB0852A1B4E1BE133433E8F74F6C7F40AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192886   (262375) от 19.12.2017
+
+Коматозники / Flatliners  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Пятеро студентов-медиков, одержимых желанием узнать, что происходит с человеком после смерти, решаются на рискованный эксперимент: на время они останавливают друг другу сердце, чтобы погрузиться в состояние клинической смерти и на собственном опыте понять, что происходит с человеком по ту сторону. Но они забывают, что, переступив черту, нужно быть готовым к последствиям.Производство: США, Канада / Cross Creek Pictures, Furthur Films, Laurence Mark Productions, The Safran Company,  Screen GemsЖанр: ужасы, фантастика, триллер, драмаРежиссер: Нильс Арден ОплевАктеры: Эллен Пейдж, Диего Луна, Нина Добрев, Джеймс Нортон, Кирси Клемонс, Кифер Сазерленд, Мэдисон Бриджес, Джейкоб Соли, Анна Арден Оплев, Мигель Энтони, Дженни Рэйвен, Бо МирчоффПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, португальские, испанские, французскиеПродолжительность: 01:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBBD82A694F01742601B4F7916C7FDF835F8960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193814   (261879) от 22.12.2017
 
 Драка в блоке 99 / Brawl in Cell Block 99  (2017) BDRip [H.264/1080p] [EN]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE19F1AFE025174C5B1D30B9B36D263B89534A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626899   (240066) от 16.04.2023
-
-Свадебный коттедж / The Wedding Cottage (2023) WEBRip [H.264/1080p] [En / En Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатель свадебного путеводителя должен убедить не имеющего вдохновения художника и владельца специального свадебного коттеджа отремонтировать запущенный коттедж, чтобы принять победившую в конкурсе пару для свадьбы их мечты.Производство: США / Hallmark ChannelЖанр: комедия, драма, мелодрамаРежиссер: Terry IngramАктеры: Erin Krakow, Brendan Penny, Aaron Douglas, Drew Henderson, Lauren Akemi Bradley, Mariesa Crouse, Annabel Kershaw, Brent Stait, Vincent Gale, Melanie ReesПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302D854528DB5D80C4BEFD670FF6B5ABFCCFBCDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546437   (239541) от 24.04.2022
-
-Анчартед: На картах не значится / Uncharted (2022) WEB-DL [H.264/1080p] [EN / RU, EN, MultiSub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два искателя приключений Нейтан Дрейк и Виктор Салливан по прозвищу Салли отправляются на поиски величайшего сокровища мира. Кроме того, они надеются найти улики, которые приведут их к давно потерянному брату Нейтана.Производство: США / Atlas Entertainment, Avi Arad Productions, LStar CapitalЖанр: Боевик, приключенияРежиссер: Рубен ФляйшерАктеры: Том Холланд, Марк Уолберг, Антонио Бандерас, София Тейлор Али, Тати Габриэль, Стивен Уоддингтон, Пинги Моли, Tiernan Jones, Руди Панкоу, Jesús EvitaПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские, Датские, Голандские, Финские, Французкие, Немецкие, Исландские, Итальянские, Португальские, Сербские, ЯпонскиеПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D0094D1D362EDE4174180A5387AFB7D6B92F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547495   (237144) от 06.05.2022
-
-Задница зомби: Туалет живых мертвецов / Zonbi asu / Zombie Ass: The Toilet of the Dead (2011) BDRip [AV1/1080p-LQ] [10-bit] [Extended Cut] [JPN / RU, JPN, EN, FR Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня — молодая и красивая каратистка Мегуми. Ее сестренка Аи покончила с собой, устав от издевательств в школе. Чтобы развеяться, Мегуми собирается в лес в компании старых друзей. С ней идут: ее бывший парень Так, большегрудая модель Маки и Наои. Дела складываются неплохо, пока Маки не обнаруживает во внутренностях пойманной рыбы червяка-паразита. Экскременты, (   Читать дальше...   )Производство: Япония / Arcimboldo Y.K., GambitЖанр: Ужасы, КомедияРежиссер: Нобору ИгутиАктеры: Ариса Накамура, Маю Сугано, Асана Мамору, Юки, Дэнни, Кэнтаро Киси, Дэмо Танака, Асами, Хару СийнаПеревод: отсутствуетЯзык озвучки: японскийСубтитры: русские, японские, английские, французскиеПродолжительность: 01:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70B160FB85F89A7C04274A9D39123563CB535BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

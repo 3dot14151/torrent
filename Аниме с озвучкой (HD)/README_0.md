@@ -1,3 +1,29 @@
+###  Публикация: 975201   (972799) от 14.01.2016
+
+Ansatsu Kyoushitsu / Assassination Classroom / Класс убийц [ТВ-1] [2015, TV, 22 из 22] HDTVRip 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Осьминогоподобное существо, позднее получившее имя Коро взорвало Луну и уничтожило 70 % от нее. Теперь на небе всегда полумесяц. Также Коро обещает что через год взорвет и Землю. Что либо сделать с ним не представляется возможным так как от атак он уходит на скорости в двадцать махов, стандартное оружие против него не эффективно и кроме того, он крайне быстро регенерирует. (   Читать дальше...   )Производство: LercheЖанр: комедия, школаРежиссер: Киси СэйдзиПродолжительность: 22 серии по 23 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480DE6A244749596913DA136C656079341A97885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959300   (965240) от 21.01.2016
 
 Gochuumon wa Usagi Desuka? / Кролика заказывали? [TV-2] [2015, TV, 12] HDTV 720p rus
@@ -6,7 +32,7 @@ Gochuumon wa Usagi Desuka? / Кролика заказывали? [TV-2] [2015, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Baccano! / Шумиха! [2007, TV, 13] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +85,7 @@ B Gata H Kei / Размер - второй, характер - извращен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +113,7 @@ Maken-ki! / Не проиграю! [2011, TV, 12 ep] BDRip 720p Hi10p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +139,7 @@ Keijo!!!!!!!! / Кэйджо!!!!!!!! [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +165,7 @@ Tokyo Ghoul / Токийский гуль [ТВ-1] [2014, TV, 12 ep] BDRip Hi10p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +191,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +217,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Последняя ведьма �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +244,7 @@ Black Bullet / Черная пуля [2014, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +270,7 @@ Rinne no Lagrange / Lagrange: The Flower of Rin-ne / Цветок вечност
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +296,7 @@ Shingeki no Bahamut: Genesis / Rage of Bahamut: Genesis / Ярость Баха�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +322,7 @@ No Game No Life / Игра на выживание [2014, TV, 12 ep] BDRip Hi10p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +348,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +375,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +401,7 @@ Kyoukai no Kanata / Beyond the Boundary / За гранью [2013, TV, 12 ep + S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +427,7 @@ Ao no Exorcist / Blue Exorcist / Синий Экзорцист [2011, TV, 25 и�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_912175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +454,7 @@ Chaos Dragon: Sekiryuu Seneki / Драконий хаос: Война красн
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +480,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +506,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и Гроб [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +532,7 @@ Shinryaku! Ika Musume / Invasion! Squid Girl / Вторжение Кальмар
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_888976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +560,7 @@ Ixion Saga DT / Ixion Saga: Dimension Transfer / Иксион сага: Прос
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -560,7 +586,7 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +612,7 @@ Mangaka-san to Assistant-san to The Animation / The Comic Artist and His Assista
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -614,7 +640,7 @@ Hacka Doll The Animation / Цифровые куклы [2015, TV, 13] HDTV 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -640,7 +666,7 @@ Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -651,32 +677,6 @@ Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FD55559B666BB6DDDE81022233EC13B3F35A61D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871912   (873473) от 25.02.2015
-
-Shin Gekijouban Initial D / New Initial D / Новый Инициал Ди [2014, MV, 1 из 3 ep] BDRip 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уличные гонщики RedSuns вызывают на дружественную гонку местную команду г. Акина SpeedStars. Увидев способности RedSuns, гонщики SpeedStars задумались о том, как быть не униженными на домашней трассе. SpeedStars попали в безвыходное положение, когда их гонщик попал в аварию во время тренировки. Икэтани услышал от своего оффисного менеджера о том, что быстрейшей на спуске Акины является AE86 владельца магазина тофу. Также он узнал, что владелец магазина, Фудзивара Бунта, был уличным гонщиком с великой репутацией (   Читать дальше...   )Жанр: спортРежиссер: Хидака МасамицуПеревод: SibVic & mutagenbФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7FA6CF8199C87A2DB606511A24ED447AF06091
 ```
 
 https://mybot314.ru/tekegram_catalog/

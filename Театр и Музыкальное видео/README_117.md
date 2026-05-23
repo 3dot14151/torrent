@@ -1,3 +1,171 @@
+###  Публикация: 1452921   (214765) от 04.12.2021
+
+Малыш и Карлсон, который живет на крыше (1971) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Озорной Карлсон и доверчивый Малыш — герои всем известной сказки. Карлсон очень любит пошалить, а на все последствия шалостей у него есть «фирменная» отговорка: «Пустяки, дело то житейское!». Правда, родители Малыша так не считают, но все равно, скучать со своим летающим другом ему не приходится. То, лазая по крышам, друзья предотвращают крупную кражу (в роли жулика (   Читать дальше...   )Производство: СССР / ТО ЭкранЖанр: Телеспектакль, детский, комедияРежиссер: Маргарита Микаэлян, Валентин ПлучекАктеры: Спартак Мишулин, Татьяна Пельтцер, Михаил Защипин, Юрий Соковнин, Андрей Миронов, Наталья Защипина, Полина Казакевич, Елена Юргенсон, Константин РайкинСубтитры: ОтсутствуютПродолжительность: 01:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A958328CEF1C61F68505E7B20ED27E3CA65283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343889   (214707) от 08.12.2019
+
+Квартирник НТВ у Маргулиса. Zventa Sventana (07.12.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Zventa Sventana — музыкальный проект российской певицы Тины Кузнецовой и продюсера Юрия Усачёва. Он разбивает стереотипы о народной музыке и сплетает танцевальную электронику с фольклором, инди-попом и даже неоклассикой. Музыканты стремятся показать современному миру, что народная музыка при правильной музыкальной подаче может быть интересна и за пределами конкурсов (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D008B3812B43E9CB7D38A8713338EAA42FFF26CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514545   (214661) от 04.12.2021
+
+Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. L'ame-stram-gram
+02. Je te rends ton amour
+03. Souviens-toi du jour...
+04. Optimistique-moi(   Читать дальше...   )Жанр: PopПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 02:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CDC377455F76BD9B2825BB519F3AD2E944595A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371898   (214554) от 16.08.2023
+
+Солярис (1968) DVD5 [Custom]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного романа известного польского писателя Станислава Лема.
+«Солярис» — телеспектакль в 2-х сериях.
+Малоизвестный ныне киноматериал, поскольку его полностью заслонил вышедший на несколько лет позже знаменитый фильм Андрея Тарковского (но как знать, не натолкнул ли Тарковского именно этот спектакль на мысль о своем фильме?). Однако, если не сравнивать (   Читать дальше...   )Производство: СССР / Iz Sobraniya Gosteleradio, Studio "Orlenok", Central Television USSRЖанр: фантастика, драмаРежиссер: Б.Ниренбург, Л.ИшимбаеваАктеры: Василий Лановой, Владимир Этуш, Антонина Пилюс, Владимир Зозулин, Вячеслав ДугинСубтитры: ОтсутствуютПродолжительность: 02:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614F0DE7E7884A15D546023B1B1C616D5162BF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426305   (214309) от 24.11.2020
+
+Пласидо Доминго и звезды мировой оперы в Москве (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Гала-концерт Пласидо Доминго, состоявшийся на Исторической сцене Большого театра 24 октября 2020 года, стал уникальным событием, объединившим весь цвет мировой оперы. Для гала-концерта знаменитый певец выбрал свои самые любимые арии. В этот вечер звучат лучшие оперные голоса со всех концов света.
+За дирижерским пультом – прославленный дирижер Большого театра Туган (   Читать дальше...   )I ОТДЕЛЕНИЕ
+01. Джузеппе Верди Увертюра к опере "Сила судьбы"
+02. Умберто Джордано Ария Жерара "Nemico della patria" из оперы "Андре Шенье" Пласидо Доминго
+03. Джоаккино Россини Каватина Розины "Una voce poco fa" из оперы "Севильский цирюльник" Притти Йенде(   Читать дальше...   )Производство: РоссияЖанр: Опера, концертПродолжительность: 02:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B45BCB298389BCD9243359C28F02DF8CCC845A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085339   (214188) от 21.12.2016
+
+Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Диск записан в известном клубе Joint в Лас-Вегасе в честь 25-летия выпуска аудио-диска "Pornograffitti".01. Decadence Dance
+02. Li'l Jack Horny
+03. When I'm President
+04. Get the Funk Out(   Читать дальше...   )Производство: США | Loud & Proud RecordsЖанр: Rock, Hard Rock, Glam MetalПеревод: ОтсутствуетПродолжительность: 01:29:24 + 01:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943DBE19E8F7E1897C856A4D4F64429536631E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270277   (214055) от 18.12.2018
 
 Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
@@ -6,7 +174,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +226,7 @@ JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +252,7 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +278,7 @@ SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +304,7 @@ Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +330,7 @@ Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +356,7 @@ aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +469,7 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -328,7 +496,7 @@ Gary Moore. Live at Monsters of Rock (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -357,7 +525,7 @@ THE JEFF HEALEY BAND «SEE THE LIGHT» (1989) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +551,7 @@ Bonnie Tyler - Live In Germany (1993/2011) DVD5 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +580,7 @@ Blue Cheer: Rocks Europe (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +609,7 @@ Depeche Mode - Live at VOLT Festival, Sopron, Hungary (2018) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -499,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -542,175 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3D6A5D1040F3367C2DF2D4FB8EDDC965253A6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582325   (210363) от 28.06.2023
-
-Квартирник у Маргулиса. Zero People (09.10.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zero People — это сайд-проект музыкантов популярной рок-группы Animal ДжаZ Александра Кросовицкого и Александра Заранкина. За 11-летнюю историю они выпустили шесть альбомов, стали одной из самых популярных и востребованных групп в стране и доказали, что «пиано-рок» с исповедальными текстами может собирать многотысячные залы. В гостях у Евгения Маргулиса Zero People (   Читать дальше...   )00:00:06 Квартирник у Маргулиса - Zero People
-00:00:06 Ремесло
-00:07:32 Человек
-00:14:04 Беда(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Пиано-рокПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E457D138C7D53D8D222AFB530BFE455CC74AD7D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603522   (210238) от 11.01.2023
-
-Bollywood: новогодний киноконцерт / Bollywood Mix Video (2023) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов из индийских фильмов таких как: PK (ПиКей), Dhoom-2, Dhoom-3, 3 Idiots (Три идиота), Bajirao Mastani, Bang Bang и другие известные кинокартины.Производство: ИндияЖанр: Pop, DanceРежиссер: Аамир КханАктеры: Аамир Кхан, Каджол, Варун Дхаван, Шах Рукх Кхан, Карина Капур, Приянка Чопра, Дипика Падуконе и др.Продолжительность: 01:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9A21E845A2FE8B8051CBE540DAC2CC174F6FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642108   (210129) от 30.06.2023
-
-eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись дебютного концертного тура «The Live Experience» группы eRa, прошедшего в конце 2019 года под руководством автора проекта Эрика Леви.
-Музыкальная программа первых европейских гастролей включает пару десятков лучших композиций, накопившихся за четверть века существования eRa.
-Относительно студийных/альбомных версий, живое выступление имеет (   Читать дальше...   )01) Agnus Deorem
-02) Enae Volare (Remix)
-03) Nomen AdoreЖанр: Нью-эйдж, Симфоник-металПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFD4B8E5C9FA7642C0097AAB37C52650CBF068C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571433   (209961) от 22.08.2022
-
-Вячеслав Бутусов – Юбилейный концерт (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет телеверсию концерта одного из самых известных представителей отечественной рок-сцены. В программе — лучшие хиты Nautilus Pompilius и презентация альбома «Аллилуйя»: «Эта музыка будет вечной», «Одинокая птица», «Тутанхамон», «Взгляд с экрана», «Люди», «Бриллиантовые дороги», «Элизобарра», «Чудное мгновенье», «Идиот», «Если я стану рыбой», (   Читать дальше...   )Производство: РоссияЖанр: Концерт, шоуСубтитры: ОтсутствуютПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69140B865CD8ABF0C5E6458DC9FAFF8C226A416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643524   (209944) от 02.07.2023
-
-Квартирник у Маргулиса. Юта (12.03.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она подкупает своей искренностью и многогранностью. В своем творчестве она сочетает несочетаемое: поп, рок, шансон, фольклор, романсы и панк-гранж. Тексты ее песен — это истории, знакомые людям разных возрастов. А еще ее песни звучали в многих популярных сериалах.00:00:06 Первое свидание
-00:08:31 Мама
-00:14:26 Тополя
-00:20:06 Любимый мой(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Поп-рок, лайт-рокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6136A331BF96EFA39F28C4486F543BC17B233F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604629   (209822) от 16.01.2023
-
-Фестиваль российского рока SNC 35 (2022) HDTV [H.264/1080i] (части 1-9 из 9)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия фестиваля российского рока «SNC 35 лет». В Зелёном театре парка Горького, где ровно 35 лет назад лидер рок-группы «Цветы» Стас Намин создал первый в России продюсерский центр SNC, выступят музыканты и группы, чьи альбомы были записаны на студии SNC и стали классикой русского рока: «Моральный кодекс», «7Б», «Калинов мост», «Чайф», «Парк Горького», Стас (   Читать дальше...   )01. Моральный Кодекс - Первый снег
-02. Моральный Кодекс - До свидания, мама
-03. Группа 7Б - Молодые ветра (feat. Влад Демьян)
-04. Группа Калинов Мост - Родная(   Читать дальше...   )Производство: Россия / НТВЖанр: RockПродолжительность: 01:48:00 + 00:38:47 + 00:23:24 + 01:05:11 + 00:30:49 + 00:56:26 + 00:26:08 + 01:04:50+01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076F2ED32244304B680D1AD9234EEDCD452F0F71
 ```
 
 https://mybot314.ru/tekegram_catalog/

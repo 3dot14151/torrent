@@ -1,3 +1,59 @@
+###  Публикация: 482324   (88313) от 13.04.2012
+
+Dungeon Keeper 2 {1.7} (RePack) [Ru/En] 1999 | Sash HD
+
+>>След.
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это действительно очень приятно – быть плохим, так сказать, “понарошку”, когда гадость кому-нибудь сделать можно, а за это ничего не будет. Именно поэтому серия DK и пользуется такой сумасшедшей популярностью: максимум, что вам может грозить за преступления против человечности и “монстрячности”, совершенные в игре, это перезагрузка. В Dungeon Keeper 2 вам доверяется роль могучего Колдуна, который явно страдает манией величия. Вместо того, чтобы мирно сидеть в своем погребе и мучить своих подопечных, Колдун стремится завоевать все новые и новые земли. Насколько он преуспеет в своем начинании, зависит от вас, ибо он – это вы! Игра делится на миссии. У каждой миссии есть конкретное задание: как правило, надо найти и уничтожить того или иного Колдуна, а также выполнить несколько второстепенных квестов. В игре превалирует взгляд на место событий “сверху-сбоку”, хотя камеру можно перемещать почти как угодно. Так же существует режим игры “от первого лица”: вселившись в одного из ваших монстров, вы получаете возможность (   Читать дальше...   )Тип издания: RePackЖанр: StrategyЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EA0C57A3ABEC4FDB3B6DF058B3C0A1B6779B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479293   (87080) от 07.04.2012
+
+Tropico 4: Modern Times [Ru/1.5] (Р) 2012
+
+>>След.
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Tropico 4
+В бурно изменяющемся мире, где от империй остаются лишь тени их былого величия, а новые игроки поигрывают мускулами, где-то посреди океана житейских невзгод затерялся крохотный островок невезения. Превратите нищую банановую республику в процветающий морской курорт, сделайте своих граждан счастливыми, расстреляйте тех, кто с вами не согласен, и не забудьте о собственном счете в оффшорном банке
+
+Modern Times4
+Аддон градостроительного и политического симулятора Tropico 4, в котором Эль Президенте предстоит достраивать коммунизм на райском острове в наше время интернета и айфонов. Разработчики предлагают пройти новую кампанию из 12 миссий, 10 новых зданий в числе которых есть космодром и оффисные здания, а так же 10 президентских указов, демократичных и не очень, позволяющих решить различные социальные проблемы граждан Эль Тропико.Тип издания: ПираткаРазработчик: Haemimont GamesЖанр: Strategy (Manage/Busin. ,/ Real-time) / 3DЯзык озвучки: Русский \ DLC: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBF1D723B1AD15C3A69CFD0A08EE7A150D77F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475732   (85425) от 30.03.2012
 
 Tropico 4: Modern Times [Ru/En] (RePack/1.5) 2012 l z10yded
@@ -6,7 +62,7 @@ Tropico 4: Modern Times [Ru/En] (RePack/1.5) 2012 l z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +89,7 @@ Tropico 4: Modern Times [En] (L) 2012 l RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +117,7 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +144,7 @@ Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +170,7 @@ Synergy (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +196,7 @@ Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +222,7 @@ Beneath the Mountain (2024) [En] (1.3) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +248,7 @@ United Penguin Kingdom (2024) [Ru/Multi] (1.001) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +274,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +300,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +326,7 @@ Millennia (2024) [Ru/Multi] (1.0.1.F/dlc) Scene FAiRLIGHT
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +352,7 @@ CD 2: Trap Master (2024) [Ru/Multi] (13869660) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +378,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +404,7 @@ The Immortal Mayor (2023) [Multi] (1.0.14/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +430,7 @@ Necrosmith 2 (2024) [Ru/Multi] (1.0.0.262) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +456,7 @@ Tempus Rail (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +482,7 @@ SteamWorld Build (2023) [Ru/Multi] (13541592/dlc) Repack FitGirl [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +508,7 @@ Barn Finders (2020) [Ru/Multi] (25372/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +534,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.17) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +560,7 @@ Open Transport Tycoon Deluxe / OpenTTD (2004) [Ru/Multi] (14.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +586,7 @@ Farmer's Dynasty (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +612,7 @@ Jonesville (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +638,7 @@ World Turtles (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,7 +664,7 @@ Galactic Ruler Enlightenment (2024) [Multi] (11.2.1286) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -619,58 +675,6 @@ Galactic Ruler Enlightenment – окунитесь с головой в нев�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B537750E493DDB701671013CC81A542CA467F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718080   (58826) от 23.04.2024
-
-Sweet Transit (2022) [Ru/Multi] (1.0.38) Scene Skidrow
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sweet Transit – это градостроение, где все во многом будет зависеть от системы железнодорожных путей. Ведь только с их помощью можно продавать товары, которые создаются в городке и в обмен завозить новое продовольствие или необходимое жилье. Именно от начальника транспортной компании зависит благосостояние горожан, а также экономика всего города.Тип издания: SceneРазработчик: Ernestas NorvaišasЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07440E101CE9B114DBC0136813D36E72A2E78518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651493   (58747) от 24.04.2024
-
-Lakeburg Legacies (2023) [Multi] (1.1.4.4/dlc) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lakeburg Legacies - это крайне необычный симулятор управления деревней-королевством. А особенность игры заключается в том, что процветание и успех вашего королевства зависит от любви! Любовь - ваш главный ресурс и именно поэтому вы играете роль свахи. Ваша задача создавать эффективный браки, которые станут двигателем развития вашего королевства. Этот социальный симулятор (   Читать дальше...   )Тип издания: LicenseРазработчик: Ishtar GamesЖанр: Стратегия, Симулятор, МенеджментЯзык субтитров: Английский, Немецкий, Французский, КитайскийЯзык интерфейса: Английский, Немецкий, Французский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E4580670C065508EBF6D48096328BDAB90B02A
 ```
 
 https://mybot314.ru/tekegram_catalog/

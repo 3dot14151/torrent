@@ -1,3 +1,29 @@
+###  Публикация: 1770514   (32341) от 01.01.2025
+
+Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Легендарная серия Snow Bros. появилась более 30 лет назад. Snow Bros. Wonderland – новая её глава, и за последние пару десятилетий многое изменилось! Прежде всего, графика больше не двухмерная – в новой игре она выполнена в великолепном изометрическом 3D. Вооружённые бесконечными ледышками, игроки могут превращать монстров в снежные комья – пиная их, можно уничтожать (   Читать дальше...   )Тип издания: SceneРазработчик: Tatsujin, Bitwave Games, ToaplanЖанр: Arcade, Jump and run, Side, 3DЯзык озвучки: Английский, Испанский, Японский, Корейский и другиеЯзык субтитров: Английский, Испанский, Японский, Корейский и другиеЯзык интерфейса: Английский, Испанский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B517DFEE37436DAA3AC88F6FDD95D22A35E27879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770425   (32282) от 01.01.2025
 
 Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
@@ -6,7 +32,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack seleZen [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Adventure Allies (2025) [Ru/Multi] (build 16612391) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +370,7 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +396,7 @@ My Memory of Us (2018) [Ru/Multi] (Build 16287132) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +422,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +500,7 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Retro City Rampage DX (2014) [Multi] (2.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -604,7 +630,7 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F485B81835F350D9F0492C6B921D2288C9B0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764594   (28729) от 04.02.2025
-
-River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушки из Ривер-сити готовы ко второму раунду! Извечный враг возвращается, чтобы отомстить, а к Мисако, Кёко, Кунио и Рики присоединяются новички: Мариан и Прови. Подруги отправляются на улицы в поисках новых приключений в стиле beat'em-up. Игровой мир кишит новыми врагами, союзниками, локациями, боевыми приемами и не только! Играйте с друзьями локально или по сети (   Читать дальше...   )Тип издания: RepackРазработчик: WayForwardЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D678441EF4E29CCF79AEA4BD174E2787C00B86D
 ```
 
 https://mybot314.ru/tekegram_catalog/

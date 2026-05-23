@@ -1,3 +1,55 @@
+###  Публикация: 1654749   (202298) от 22.08.2023
+
+TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 88888888/dlc) Repack Other s
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+TROUBLESHOOTER: Abandoned Children — это первый сезон пошаговой стратегии SRPG с системой боя в духе "XCOM" и планировкой боя в духе "Final Fantasy Tactics", действие которой происходит в мире Troubleshooter.Тип издания: RepackРазработчик: DandylionЖанр: Strategy (TBS), RPG, Casual, 3DЯзык субтитров: Русский (Beta), Английский, Корейский и другиеЯзык интерфейса: Русский (Beta), Английский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58144E7313C0E9B178A172E4F3E4D7C54701CC21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635232   (197906) от 25.05.2023
+
+Miasma Chronicles (2023) [Ru/Multi] (11294956) Repack DjDI
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В не таком уж далеком будущем Америку разрушила дикая сила, которую называют «Миазма». Элвис - молодой мужчина, которого еще ребенком привезли в шахтерский городок Застойтаун. Мать оставила его на няньку-робота, которую он называет старшим братом, и оставила ему загадочную перчатку, с помощью которой он может управлять «Миазмой». Вместе с «братьями» отправляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: The Bearded LadiesЖанр: Action, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75389AB34E04718D33DA849ECF22B0AA1A023323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645470   (195890) от 09.07.2023
 
 Adeptus Titanicus: Dominus (2021) [Multi] (1.0) License GOG
@@ -6,7 +58,7 @@ Adeptus Titanicus: Dominus (2021) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Phoenix Point (2020) [Ru/Multi] (1.9.3/dlc) Repack xatab [Year One Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Scene Rune [Deluxe Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Valor & Victory (2021) [Ru/Multi] (1.07.06/dlc) Scene Skidrow
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Hexarchy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.f
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Phoenix Point (2019) [Ru/Multi] (1.0.54518) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Order of Battle: World War II (2) (2015) [Ru/Multi] (10.0.6.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Everyone Must Die: A Western Standoff (2023) [En] (1.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Nantucket (2018) [En] (1.4.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Warhammer 40,000: Dawn of War II Chaos Rising (2009-2010) [Ru/Multi] (2.6.0.1024
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Tooth and Tail (2017) [Ru/Multi] (1.8.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Worms Revolution (2012) [Ru/En] (1.0.140/dlc) Repack Mizantrop1337 [Gold Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] ( 2.2.10.f) License PROPH
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Shadow Tactics: Blades of the Shogun, основанная на скрытнос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CCB6D1364075943BD50281E7CC94D793D8A548A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180271   (138328) от 30.12.2018
-
-Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.10.f) Repack R.G. Catalyst
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Tactics: Blades of the Shogun, основанная на скрытности игра, в которой вам предстоит выполнять нелегкие поручения во главе отряда наемных убийц. Shadow Tactics – изометрическая тактическая стратегия, в которой вам предстоит провести свой отряд по Японии начала XVII века, выискивая самые изощренные способы убийства высокопоставленных жертв.Тип издания: RepackРазработчик: Mimimi ProductionsЖанр: Strategy (Real-time, Tactical), 3D, Isometric, StealthЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D69E1C1F72E2E6687C44D82B51213109825176F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196079   (137521) от 31.12.2017
-
-Helldorado (2009) [Multi] (2.00) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1883 год, Санта-Фе. Покой городка нарушен шокирующим похищением. Соберите своих людей и выполните ряд сложных заданий, чтобы остановить вероломных преступников в этой истории, полной шантажа и мести. Захватывайте поезда с трофеями, участвуйте в салунных потасовках, совершайте побеги из тюрем и побеждайте в перестрелках! Все готово к приключению на Диком Западе.Тип издания: LicenseРазработчик: Spellbound Entertainment AGЖанр: Стратегия, В реальном времени, ТактическаяЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DEABBCDFDFE1D3816437CE0E4F42B8A35B8DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

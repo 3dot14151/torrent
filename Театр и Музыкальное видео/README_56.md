@@ -1,3 +1,169 @@
+###  Публикация: 1401275   (699693) от 15.08.2020
+
+Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Производство: MyGoodEyeЖанр: Black Metal, GrindcoreРежиссер: David BrodskyАктеры: Anaal NathrakhПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1141B903DA7A6AD07330B137CCE10293C73F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 331787   (699526) от 04.05.2011
+
+Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADD91DFA5D21456D273FD65BC6390C32065FEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534010   (699419) от 27.02.2022
+
+Квартирник у Маргулиса. Татьяна Зыкина (26.02.2022) WEBRip [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Атмосферный камерный концерт рок-певицы, резидента крупнейших музыкальных фестивалей. Татьяна Зыкина стала известна в конце нулевых. С момента выхода первого альбома прошло больше 10 лет, но ее чувственный соул-рок по-прежнему невероятно подкупает публику и поклонников артистки. В феврале 2022 года вышел новый альбом певицы под названием «Седьмой альбом». Как отметила (   Читать дальше...   )0:00:00 Квартирник
+0:00:05 Химия
+0:06:28 Пока ты снишься
+0:12:36 Водопадами(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, Pop-Rock, Soul-RockЯзык озвучки: РусскийПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B84CF4B1D7EE524D3E04D4106601E2D70C94D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332050   (699290) от 04.05.2011
+
+Концерт Федерико Мондельчи - Волшебный саксофон (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+29.04.2011 в эфире телеканала «Культура» прозвучали произведения Роберто Молинелли и Астора Пьяццоллы в исполнении Федерико Мондельчи, популярнейшего саксофониста из Италии, и Государственного камерного оркестра России под управлением дирижера Константина Орбеляна.
+Имя Федерико МОНДЕЛЬЧИ, самобытного музыканта из Италии, прочно ассоциируется у слушателя с музыкой (   Читать дальше...   )Жанр: Концерт, ClassicПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32413312DD5278305C836FDCBF23B0D88DED958E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894429   (698849) от 06.05.2015
+
+ZZ Top - Stagecoach - California's Country Music Festival (2015) HDTV [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выступление ZZ Top На California's Country Music Festival01. Got Me Under Pressure
+02. Waitin' for the Bus
+03. Jesus Just Left Chicago
+04. Gimme All Your Lovin'(   Читать дальше...   )Производство: Страна: США, Axs.TVЖанр: Rock, Hard Rock, Blues RockФормат: MPEG-TSПродолжительность: 01:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BB81A979DAE2047A331AAF0AEE8B9EC96E199C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332426   (697615) от 05.05.2011
+
+Весь этот рок (Живой звук) - группа "ЦВЕТЫ" (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3 марта 2011 года в «Ритм-н-блюз кафе» состоялась презентация нового альбома легендарной группы01. Я не сдаюсь
+02. Ветка жасмина
+03. Такая жизнь
+04. Однажды ночью(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3922457AA88364CB8897BBE09CF7F31DE1F49DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073574   (697160) от 10.03.2019
 
 Жан-Батист Мольер - Мещанин во дворянстве (1977) SATRip (2 части) (Театр им. Е. Вахтангова) [H.264]
@@ -6,7 +172,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +199,7 @@ Beth Hart - Live From New York (Front And Center) (2018) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +257,7 @@ Lemonade / Beyonce: Lemonade (2016) HDTV [H.264/1080i] [EN/RU Sub]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -120,7 +286,7 @@ Lady Gaga - Judas (2011) HDTVRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -172,7 +338,7 @@ Axel Rudi Pell - Magic Moments/25th Anniversary Special Show (2014) BDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -202,7 +368,7 @@ Uriah Heep - Easy Livin' (A History Of)'1986 DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -231,7 +397,7 @@ Brian Setzer - Brian Setzer's Rockabilly Riot! Osaka Rocka! Live In Japan (2016)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -260,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -288,7 +454,7 @@ Status Quo - Aquostic! Live At The Roundhouse (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -317,7 +483,7 @@ Dio - Holy Diver Live (2006) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +512,7 @@ David Garrett - Rock Symphonies (Open Air Live) (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +541,7 @@ Quiet Riot - One Night in Milan (2019) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +570,7 @@ AC/DC - Stiff Upper Lip Live (2001) DVDRip [H.264] [PR]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +625,7 @@ Uriah Heep - Live At Koko (2014)  Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +710,7 @@ VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,179 +724,6 @@ VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E9627B31D1B45A709CB7709DC86BCB9FBFF5307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334514   (687640) от 10.05.2011
-
-Песни Весны и Победы (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная видеозапись – компиляция двух концертов, посвященных Дню Победы, проходивших в Государственном Кремлевском дворце в 2008 и 2009 годах.  Часть песен, представленных здесь, имеется в этой раздаче.  Однако, есть песни, которые не вошли в соответствующие телеверсии. В любом случае, это еще один подарок всем ко Дню Победы. Эфир программы: 8 мая 2011 года (Первый (   Читать дальше...   )01.	Иосиф Кобзон - Поклонимся великим тем годам
-02.	Александр Маршал - На безымянной высоте
-03.	Татьяна Буланова - Синий платочек
-04.	Дмитрий Билан - Тёмная ночь(   Читать дальше...   )Производство: Первый каналЖанр: КонцертПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B89461F1990A8469C75C47BE507E0F8272C668F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897268   (687415) от 12.05.2015
-
-Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uriah Heep выпускают концертный альбом Live At Koko, London 2014. Диск поступил в продажу 20 февраля в Европе и 24 февраля в Северной Америке, причем в разных форматах, как на обычном CD, так и на DVD/Blu-ray.01. Against The Odds
-02. Overload
-03. Traveller In Time
-04. Sunrise(   Читать дальше...   )Жанр: Rock, Prog Rock, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7172A9357F3EED5726FB1554E741A510BFFF71FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506462   (687404) от 06.06.2012
-
-30 seconds to Mars - Rock am Ring 2010 (Comlpete) HDTV [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт группы 30 seconds to Mars 5 июня 2010 года в Германии в рамках фестиваля Rock am Ring.Жанр: Alternative RockПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222126   (687246) от 28.04.2018
-
-Thunder - Stage (2018) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления британской блюз-рок-группы Thunder в зале The Cardiff Motorpoint Arena 24.03.2017г. в рамках тура в поддержку их 11-го альбома Rip It Up.В шоу прозвучали как новые вещи из новогого альбома,так и лучшие номера из 29-летней карьеры группы.
-Состав:
-Danny Bowes – lead vocals;
-Luke Morley – guitar,backing vocals;(   Читать дальше...   )01 No One Gets Out Alive
-02 The Enemy Inside
-03 River Of Pain
-04 Ressurection Day(   Читать дальше...   )Производство: Ear MusicЖанр: рокРежиссер: Tim SidwellАктеры: ThunderСубтитры: отсутствуютПродолжительность: 01:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B616FC67C75287944DB1B3C52BD696404A8173FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028869   (686091) от 24.06.2016
-
-Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление легендарной группы "Scorpions" на фестивале "Hellfest" во Франции 20 июня 2015 года. Hellfest Open Air - один из крупнейших летних фестивалей heavy metal rock в Европе - 3 дня, 6 сцен, около 160 групп, свыше 100 тысяч посетителей ежегодно.
-
-Выложено для ознакомления, до появления более качественного релиза.01. Going Out with a Bang
-02. Make It Real
-03. The Zoo
-04. Coast to Coast(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADE02540611DA40FE3D86D85ADB8C857C48BFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506715   (685990) от 07.06.2012
-
-Иракли - Я тебя люблю (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77592CC08E89CB3D9E08F62CA747FDA26B57B599
 ```
 
 https://mybot314.ru/tekegram_catalog/

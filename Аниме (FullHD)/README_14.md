@@ -1,3 +1,55 @@
+###  Публикация: 1091673   (848050) от 05.03.2017
+
+Chain Chronicle (2016) / Цепные хроники [2016, Movie, 3 из 3] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жители Югуто думали, что земля, где они живут, является размером с мир, но это на самом деле она была разделена на несколько областей, у каждой из которых был свой король. Даже при том, что были небольшие войны среди областей, короли встречались за круглым столом, чтобы поддержать мир и баланс. Это продолжалось до тех пор, пока не появилась группа тёмных монстров...Производство: Telecom Animation Film, GraphinicaЖанр: приключения, фэнтезиРежиссер: Кудо МасасиПеревод: AOS (rus), HorribleSub (eng)Язык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 3 эп. по 90 мин. (каждый эпизод по 4 части)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2892205A1A0A9EA46203939BB5ACD27AA047AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378175   (847945) от 24.04.2020
+
+Hello World | Здравствуй, мир! [2019, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Япония, Киото. 2027 год. Старшеклассник Наоми Катагаки сталкивается со странным парнем, который внешне похож на него. Более того, незнакомец утверждает, что он тоже Наоми, но прибыл из будущего, 2037 года. Разобравшись в ситуации и объединив свои силы, эта парочка должна изменить будущее и спасти одноклассницу Рури Итигё, с которой нынешний Наоми начнёт встречаться (   Читать дальше...   )Производство: студия Graphinica / グラフィニカЖанр: фантастика, романтикаРежиссер: Ито ТомохикоПеревод: NaikoSubsЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ~100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFA902D62445DB6AA2031F52B1018133626F0E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378149   (847654) от 24.04.2020
 
 Koukaku Kidoutai: SAC_2045 | Ghost in the Shell: SAC 2045 | Призрак в доспехах: Комплекс одиночки 2045 [2020, Web, 12 эп.] WebRip 1080p raw
@@ -6,7 +58,7 @@ Koukaku Kidoutai: SAC_2045 | Ghost in the Shell: SAC 2045 | Призрак в д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ GJ-bu | Good Job Club | Клуб добрых дел [2013, TV, 12 ep.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ Uchuu Patrol Luluco / Space Patrol Luluco / Космический патрул�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Love Hina | Любовь и Хина [2000, TV, 25 TV + 3 OVA + 2 SP] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Виолетта Эве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Zegapain | Дзэгапэйн [2006, TV, 26 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ God Eater / Пожиратель Богов [2015, TV, 13 из 13] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Kami nomi zo Shiru Sekai: Megami Hen | The World God Only Knows: Goddesses Arc |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ Majimoji Rurumo: Kanketsuhen | Magimoji Rurumo: The Conclusion | Ведьмоч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Furuba / Fruits Basket / Корзинка фруктов [2001, TV, 26 из 26] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ Megazone 23 | Мегазона 23 OVA-1,2,3 [1985, OVA, 3 эп.] BDRip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ Cencoroll | Сэнкоролл [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ Ookami-san to Shichinin no Nakama-tachi / Волчица и семеро дру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -374,7 +426,7 @@ Bright: Samurai Soul | Яркость. Душа самурая [2021, Movie] WEB
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Ikkitousen: Great Guardians / Школьные войны (сезон трети
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Senki Zesshou Symphogear GX | Последняя Песня Боевых При�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -452,7 +504,7 @@ Dog Days'' | Собачья Жизнь 3 [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -478,7 +530,7 @@ Fate/Kaleid Liner Prisma Illya Zwei Herz! | Судьба: Девочка-вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -504,7 +556,7 @@ Ikki Tousen: Dragon Destiny / Ikkitousen: Dragon Destiny / Школьные во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -530,7 +582,7 @@ Himouto! Umaru-chan | Beautiful Little Sister! Umaru-chan | Моя двулич�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -556,7 +608,7 @@ Psycho-pass New Edit | Психо-паспорт: Новое издание [TB-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -582,7 +634,7 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 эп. + 1 OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -608,7 +660,7 @@ Houkago no Pleiades | Wish Upon the Pleiades | Внеклассные плеяд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -619,58 +671,6 @@ Houkago no Pleiades | Wish Upon the Pleiades | Внеклассные плеяд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F81A174457ADD2166BB22DEEF70F9390A2F320D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196120   (825975) от 01.01.2018
-
-Souryo to Majiwaru Shikiyoku no Yoru ni... | Жаркая ночка с монахом [2017, TV-версия, 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горячая романтическая история начинается с того, что молодая девушка, только что пережившая тяжёлый разрыв отношений, вновь видится со своей первой любовью на школьной встрече выпускников. За годы Куджо превратился в красавца-мужчину… который, правда, является бритоголовым монахом и главным жрецом в семейном храме. Героиня думала, что монахам не позволено иметь романтических (   Читать дальше...   )Производство: Студия Seven / セブンЖанр: романтикаРежиссер: Араки ХидэкиПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1AA258FE11D5D82E90086F77DB9CF750D61619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381811   (824100) от 08.05.2020
-
-Black Clover (2017) | Чёрный клевер [2017, TV, 1-90 из >141 + OVA] BDRip 1080p 10bit raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демоны никогда не сулили ничего хорошего. Издавна все твердят беречься от них, люди создают различные обереги, чтобы спасти свою душу. Но однажды демоны и вовсе распоясались, и начали представлять собой нешуточную угрозу для всего человечества, да такую, что вся раса людей оказалась под угрозой вымирания. Но спасение пришло, откуда не ждали. Один волшебник решил (   Читать дальше...   )Производство: Студия Studio Pierrot / studioぴえろЖанр: приключения, фэнтезиРежиссер: Ёсихара ТацуяПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: >141 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F9AC4E6E8516F8233A7FCE566E16A8859B6D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1714819   (51948) от 26.06.2024
+
+Seiyuu Radio no Uraomote/ The Many Sides of Voice Actor Radio / Другая сторона paдиocэйю [2024, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Яcyми Утaтaнэ и Юxи Югypэ — cэйю-шкoльницы, вeдyщиe eжeнeдeльнyю paдиoпpoгpaммy. Kaк oднoклaccницы и cэйю, oни дeмoнcтpиpyют cлyшaтeлям cвoю бoльшyю дpyжбy. Пo кpaйнeй мepe, тaк кaжeтcя нa пepвый взгляд. Ha caмoм дeлe cпoкoйнaя дeвyшкa Чикa и вызывaющaя гяpy Юмикo — пoлныe пpoтивoпoлoжнocти и coвepшeннo нe вынocят дpyг дpyгa. Bнe эфиpa cыплютcя пocтoянныe ocкopблeния, (   Читать дальше...   )Жанр: комедия, повседневность.Режиссер: Татибана ХидэкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC33EECECE2BDC547C799D4AA5326EB38E178137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714273   (51944) от 26.06.2024
+
+Yoru no Kurage wa Oyogenai / Jellyfish Can't Swim in the Night / Медуза не может плавать ночью [2024, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ёру Мицуки — иллюстратор, бросившая рисование, Нонока Тачибана — бывшая айдол, которая пытается заново найти себя в пении, Нокс Рюгасаки — самопровозглашенная «лучшая в мире» VTuber и Кимура-тян — загадочная композитор, желающая поддержать любимого человека. Они объединяются в анонимную арт-группу JELEE.Жанр: повседневность, музыкальный.Режиссер: Такэсита РёхэйЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9BBC04D6E6CB287C232AF76136E79B7C484C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714976   (51868) от 27.06.2024
+
+Kenka Dokugaku | Viral Hit | Борьба в прямом эфире [2024, TV, 12 эп.] WEBRip 720 raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В эру компьютерных технологий блогеры с каждым днём обретают всё больше и больше популярности, зарабатывая на этом немалые деньги. Ю Хобин, неказистый старшеклассник, над которым издеваются в школе, в тайне завидует таким людям, а в особенности своим одноклассникам, известным в интернете. Всего один стрим или видео, и они могут позволить себе брендовую одежду, дорогую (   Читать дальше...   )Производство: студия Okuruto Noboru / オクルトノボルЖанр: приключенияРежиссер: Хисида МасакадзуПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; Другие(CrunchyRoll Multisub)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5173AA3590EA92B0DD5216A7FDF743F3DA76CB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713106   (51770) от 28.06.2024
+
+Wind Breaker | Ветролом [2024, TV, 13 эп.] WEBRip 720 raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Харука Сакура терпеть не может слабаков. Именно поэтому он поступил в старшую «Фурин», заработавшую себе репутацию школы с боями без правил, где ученики каждый день дерутся по причине и без. Его единственная цель — встать во главе этой полукриминальной школы. Какого же было удивление Сакуры, когда оказалось, что ученики здесь — всеми любимые защитники города, каждый (   Читать дальше...   )Производство: студия CloverWorksЖанр: приключенияРежиссер: Акай ТосифумиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A22AF536EB1D19118717481EE26BF014539428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713410   (51769) от 28.06.2024
 
 Mahouka Koukou no Rettousei (2024) | Непутевый ученик в школе магии [ТВ-3] [2024, TV, 13 эп.] WEBRip 720p raw
@@ -6,7 +110,7 @@ Mahouka Koukou no Rettousei (2024) | Непутевый ученик в школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The New Gate | Новые врата [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Tonari no Youkai-san | Ёкаи по соседству [2024, TV, 13 эп.] Web
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +216,7 @@ Boukyaku Battery | Oblivion Battery | Забвение баттери [2024, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +271,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +297,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +323,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +350,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -275,7 +379,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Anot
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +405,7 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +431,7 @@ Isekai Suicide Squad | Отряд самоубийц в другом мире [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +457,7 @@ Bye Bye, Earth / Пока, Земля [2024, TV, 10] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +483,7 @@ Mob kara Hajimaru Tansaku Eiyuutan / A Nobody's Way Up to an Exploration Hero / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +509,7 @@ Megami no Cafe Terrace 2 / The Cafe Terrace and Its Goddesses 2 / Терраса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +538,7 @@ Gimai Seikatsu / Days with My Stepsister / Жизнь со сводной сес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +564,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -486,7 +590,7 @@ Ore wa Subete o Parry Suru: Gyaku Kanchigai no Sekai Saikyou wa Boukensha ni Nar
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +616,7 @@ Madougushi Dahlia wa Utsumukanai / Dahlia in Bloom: Crafting a Fresh Start With 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +642,7 @@ Karasu wa Aruji o Erabanai | Yatagarasu: The Raven Does Not Choose Its Master | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,7 +669,7 @@ Nanare Hananare / Narenare: Cheer for You! / Слушайте Хананарэ [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -576,110 +680,6 @@ Nanare Hananare / Narenare: Cheer for You! / Слушайте Хананарэ [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4689AF3735B7BBF9AB3C6B1EAB536AA0C620367F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735513   (42775) от 22.09.2024
-
-VTuber Nanda ga Haishin Kiriwasuretara Densetsu ni Natteta / Легенда о витюбере: Как я завирусилась, забыв выключить стрим [2024, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцатилетняя бывшая офисная служащая Юки Танака теперь работает среди своих кумиров – стримеров Live-On, одной из крупнейших витюберских компаний Японии. Изображая прекрасную и безупречно вежливую Аваюки Кокоронэ, она производит только самый изысканный великосветский контент. Который, правда, не приносит ни подписчиков, ни денег. Как-то вечером после стрима она (   Читать дальше...   )Жанр: комедия.Режиссер: Асаока ТакуяЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09DEBFA2189890EDCA1DE8794DB173693CD23797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734054   (42700) от 23.09.2024
-
-Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru. / Невероятный новичок средних лет, прошедший тренировки на грани смерти [2024, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oбщeизвecтнo, чтo лyчшe вceгo cтaнoвитьcя aвaнтюpиcтoм, кoгдa вы мoлoды, и чeм paньшe, тeм лyчшe, пoтoмy чтo ypoвeнь мaгичecкoй cилы лyчшe вceгo pacтёт в юнocти. Oднaкo Pик Глaдиaтop peшил cтaть aвaнтюpиcтoм, кoгдa eмy былo yжe зa тpидцaть, и, чтo yдивитeльнo, oкaзaлcя нa ypoвнe aвaнтюpиcтoв S-paнгa, caмoгo выcoкoгo в миpe. Ha caмoм дeлe Pик пpoжил yдивитeльнyю жизнь (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Катагай СинЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45707C4EA8D7FBD6F71D6F1F6BFCB582B1EF0FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737806   (42679) от 23.09.2024
-
-Mayonaka Punch | Полуночный удар [2024, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масаки трудилась в ньютуб-трио "Сёстры на хайпе" со школы, пока её не выгнали за лень, плохой контент и грубость в эфире. Потеряв аудиторию и напарниц, Масаки встречает настоящую вампиршу и решает вместе с ней собрать миллион подписчиков в обмен на свою жизнь.Производство: Студия P.A. Works / ピーエーワークスЖанр: комедияРежиссер: Хомма СюПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2649EFBC4745606BD30B66502CEAC13153244719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735782   (42599) от 24.09.2024
-
-Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evil Lieutenant Used to Be Archenemies | Девушка-волшебница и злой офицер [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мира — правая рука злого короля и «мозг» организации злодеев, которая уничтожает всё на своем пути. Однажды девушка-волшебница Бьякуя Мимори решает покончить со всеми злодеями, но Мира влюбляется в свою противницу с первого взгляда.Производство: студия Bones / ボンズЖанр: романтика, фэнтезиРежиссер: Охаси АкиёПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; MultiSubПродолжительность: 12 эп. по 13 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532DE0FC199E30A53D6A73C100A630C90C2CF230
 ```
 
 https://mybot314.ru/tekegram_catalog/

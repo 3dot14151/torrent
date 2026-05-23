@@ -1,3 +1,29 @@
+###  Публикация: 935396   (498121) от 09.09.2015
+
+ПланКад 2.5.1185.918 Portable by alexbogus237 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ПланКАД — универсальная программа, включающая в себя все возможности системы автоматизированного проектирования, для создания и оформления параметрических поэтажных планов (квартир, индивидуальных жилых строений, промышленных объектов) и редактора сканированных (растровых) изображений: чертежей, карт, схем, набросков и других графических материалов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA58EE44BAAB954A9A057DAFC44F86481C4F123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938079   (483170) от 17.09.2015
 
 Макросы для Sprint-Layout 6.0 00001 [Ru/En]
@@ -6,7 +32,7 @@
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Autodesk AutoCAD 2013 SP1.1 x64 + автономная справка [Русс�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Autodesk AutoCAD 2013 LT SP1.1 x64 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +114,7 @@ Multisim & Ultiboard (Circuit Design Suite) PowerPro 12.0.1 [Английски�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -118,7 +144,7 @@ solidThinking Inspire and Evolve Suite 2016.1 Build 5559 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +171,7 @@ Home Plan Pro 5.5.1.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +197,7 @@ CorelCAD 2016 Build 16.0.0.1079 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +223,7 @@ Global Mapper 14.0.2 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -223,7 +249,7 @@ CorelCAD 2017.0 Build 17.0.0.1310 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +275,7 @@ CSoft Project StudioCS R6.0.028 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +301,7 @@ COMSOL Multiphysics 6.4 Build 293 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -301,7 +327,7 @@ Pythagoras CAD + GIS 12.26 [ENG + RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -327,7 +353,7 @@ Realtime Landscaping Architect 2023 v23.02 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -381,7 +407,7 @@ Trimble Tekla Structures 2023 SP3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -407,7 +433,7 @@ Wing Helper 1.50 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -433,7 +459,7 @@ Altair Compose 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -459,7 +485,7 @@ Altair SimSolid 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -487,7 +513,7 @@ Altair Flux & FluxMotor 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -514,7 +540,7 @@ Altair Activate 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -540,7 +566,7 @@ Altair SimLab 2022.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -566,7 +592,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -595,7 +621,7 @@ Geomagic Control X 2020.1.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -621,7 +647,7 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -647,7 +673,7 @@ CSoft WiseImage Pro Standalone 22.0.1741 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -658,32 +684,6 @@ WiseImage — мощный интеллектуальный редактор и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D32DA658165E4A249D85D333D42857010DE1471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567066   (211397) от 01.08.2022
-
-Cabinet Vision 2021.1.0.571 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211397.jpg" />
-</div>
-
-
-###  Подробнее
-
-CABINET VISION — это решение для проектирования и производства корпусов и мебели в промышленности. Это наиболее широко используемое программное обеспечение для профессионалов в области деревообработки, признанное крупным технологическим достижением отрасли. Продукты CABINET VISION используют технологию твердотельного моделирования для создания реалистичных трехмерных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F8E0F56401BC39F4E0D7AB8813588CBB907016
 ```
 
 https://mybot314.ru/tekegram_catalog/

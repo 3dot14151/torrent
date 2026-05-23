@@ -1,109 +1,3 @@
-###  Публикация: 1022783   (727771) от 03.06.2016
-
-Саша Черный и др. | Сказки про собак (антология) (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727771.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник «Сказки про собак» вошли как авторские, так и народные сказки. Многим из нас эти сказки знакомы еще с детства. Их юмор, фантазия и мудрость не оставит равнодушными ни взрослого, ни ребенка. Чтение этой книги отправит вас в замечательное путешествие по удивительному миру, созданному братьями Гримм, Редьярдом Киплингом, Сашей Черным и др. Герои этих захватывающих (   Читать дальше...   )Жанр: Детская проза, сказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52F6ED174D10437DCAB5257C34281B0939BEC4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022777   (727691) от 03.06.2016
-
-Шарль Перро и др. | Сказки о принцах и принцессах (антология) (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727691.jpg" />
-</div>
-
-
-###  Подробнее
-
-На страницах этой книги со сказочными принцами и принцессами можно встретиться в трактире у края дороги, на площади города, в замке или же в лесу… Разными бывают принцессы и принцы – богатые и нищие, красивые и нет, умные и глупые. В сборник вошли такие известные и замечательные сказки как «Аленький цветочек», «Золушка», «Русалочка», «Спящая красавица» и другие произведения (   Читать дальше...   )Жанр: Детская проза, сказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5965B0BDA00F00892FF31EE8BD65BDFA52296D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667439   (726817) от 13.06.2013
-
-Григорий Остер | Вредные сочинения [1996-2010] [FB2, DJVU, PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Григорий Остер родился в Одессе не зря.
-Его книги одинаково интересны и родителям и детям. Хохочут все, только иногда — в разных ситуациях (когда хохочут дети - родители плачут)!..
-В книгах очень много рисунков.Формат: FB2, DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFAEB51B7E8A29D468BF1ACF420AC4C187F102E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531046   (726692) от 13.02.2022
-
-Доминик Валенте | Старфелл. Ива Мосс и Утраченное Заклинание. Книга 2 (2022) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726692.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как Ива Мосс спасла мир и вернула пропавший вторник, она не стала знаменитой. Даже её родные по-прежнему думают, что её магический дар – самый слабый в семье. Но хуже всего, что магия Ивы вдруг перестала её слушаться. Теперь из-за девочки пропадают вещи – уже вся деревня осталась без чайных ложек. И эта беда приключилась именно в тот момент, когда магия (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: В.А. ИоноваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEB5BE867CA112687EA7D3F17CEE7032BA43270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531074   (726691) от 13.02.2022
 
 Мария Голикова | Часы рождественского эльфа (2022) [FB2, EPUB, MOBI]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -639,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -667,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -680,6 +574,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C16004BE865B3C6E595318EC7227B1873C7E37A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129255   (722130) от 28.04.2017
+
+Кир Булычев | Приключения Алисы [16 книг] (1997-1999) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Повести и рассказы о девочке из будущего — Алисе Селезнёвой. Один из самых популярных циклов Кира Булычёва в жанре фантастики для детей, подростков и взрослых. Необыкновенные чудовища, настоящие космические пираты, воинственные лилипуты, путешествия во времени и многое другое ждёт вас на страницах удивительных историй, которые происходят с Алисой и её друзьями.Жанр: ФантастикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459CC3D09C145F374B44F91B539B5CFBC3CEF857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218368   (721737) от 10.04.2018
+
+Приход храма Святаго Духа сошествия (изд.) | Пасха, двери Райские нам отверзающая (2017) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наш небольшой сборник рассказов и стихов посвящён Празднику праздников — Пасхе, той пасхальной радости, которая объединяет в эти светлые дни всех верующих на земле и на Небе. Надеемся, что, познакомившись с героями рассказов и узнав их судьбу, юный читатель станет хотя бы чуточку добрее и милостивее, чуточку внимательнее к ближним, чтобы им стало теплее и отраднее, (   Читать дальше...   )Жанр: Православие. Религиозное духовно-просветительское издание для детейФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136583785DEBAD7552852BBC812A0F59F23E4279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218329   (721729) от 10.04.2018
+
+Детские альманахи [2 книги] (1917) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок, рассказов и стихов для детей младшего и среднего школьного возраста.Жанр: Детская проза, Сказки, СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF695626EF355587951F9083D0C7597576F57C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790668   (720600) от 28.05.2014
+
+Мария Лялина | Братишки и сестренки (1892) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для детей младшего возраста.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA861D032FED2AD5AB138B905219BEC03338876F
 ```
 
 https://mybot314.ru/tekegram_catalog/

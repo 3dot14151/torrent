@@ -1,3 +1,55 @@
+###  Публикация: 1670098   (172180) от 19.10.2023
+
+Голяк / Без гроша / Brassic (2023) WEBRip [H.264/1080p] (сезон 5, серии 1-8 из 8) Kerob [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мелкий воришка Винни и его друзья живут в английской глубинке и ежедневно промышляют нелегальными делами, приносящими небольшой доход. Все меняется, когда компания переходит дорогу местному криминальному авторитету.Производство: Великобритания / Calamity FilmsЖанр: комедия, криминалРежиссер: Ричард Стоддард, Джон Райт, Джордж КэйнАктеры: Мишель Кигэн, Райан Сэмпсон, Том Хэнсон, Джозеф Гилган, Дэмиен Молони, Аарон Хеффернан, Парт Такерар, Стив Эветс, Брона Галлахер, Джоанна ХигсонПеревод: Двуголосый любительский (Kerob) (ненормативная лексика 18+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:43:00 серияРеклама: Присутствует видео и аудио.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EFCCE80433EB099373A60E9304A31103C51D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670224   (172108) от 20.10.2023
+
+Энтревиас / Entrevias / Wrong Side of the Tracks (2022) WEB-DLRip [H.264/1080p] (сезон 2, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в Энтревиасе, беднейшем районе Мадрида. Сериал рассказывает о Тирсо Абантосе, бывшем военном, управляющем хозяйственным магазином, чей монотонный распорядок дня нарушается, когда его неуправляемая и непокорная приемная внучка-подросток Ирен, уговаривает своего парня Нельсона украсть героин у наркодилера Сандро. В то время как молодая (   Читать дальше...   )Производство: Испания / Alea Media, Mediaset EspañaЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Iñaki Mercero, Альберто Руис Рохо, Ориоль Феррер и дрАктеры: Хосе Коронадо, Нона Собо, Felipe Londoño, Лаура Рамос, Маноло Каро, Мануэль Тальяфе, Ицияр Атьенца, Мария де Нати, Луис Саэра, Мария Молинс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, испанскийСубтитры: отсутствуютПродолжительность: ~01:15:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2353538E736E438E4495867C44A5855CB7299022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670212   (172090) от 20.10.2023
 
 Энтревиас / Entrevias / Wrong Side of the Tracks (2021) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251B0B13F8977FF46358834A15F83F0C2204C97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431942   (166002) от 15.12.2020
-
-Северяне / Vikingane (2020) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в 790 году н. э. в вымышленном норвежском поселке Нурхейм, куда из очередного набега возвращается к женам и детям дружина викингов. Среди родных фьордов их ждут не только пиры и здравицы, но и бытовые заботы, семейные дрязги и назревающие политические проблемы.Производство: Норвегия / Viafilm, Sagveien Resort, Norsk Rikskringkasting (NRK)Жанр: комедияРежиссер: Jon Iver Helgaker, Йонас ТоргерсенАктеры: Каре Конради, Нильс Йорген Каалстад, Йон Ёигарден, Bjørn Myrene, Силье Торп, Тронд Фауса Аурвааг, Ёйстейн Мартинсен, Мариан Саастад Оттесен, Кристин Риис, Миккель Братт Сильсет и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:30:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6218981579B8267989905BCE9BB04878F9544D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431890   (165937) от 15.12.2020
-
-Северяне / Norsemen / Vikingane (2016) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в 790 году н. э. в вымышленном норвежском поселке Нурхейм, куда из очередного набега возвращается к женам и детям дружина викингов. Среди родных фьордов их ждут не только пиры и здравицы, но и бытовые заботы, семейные дрязги и назревающие политические проблемы.Производство: Норвегия / Viafilm, Sagveien Resort, Norsk Rikskringkasting (NRK)Жанр: комедияРежиссер: Jon Iver Helgaker, Йонас ТоргерсенАктеры: Каре Конради, Нильс Йорген Каалстад, Йон Ёигарден, Bjørn Myrene, Силье Торп, Тронд Фауса Аурвааг, Ёйстейн Мартинсен, Мариан Саастад Оттесен, Кристин Риис, Миккель Братт Сильсет и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские, английские (SDH)Продолжительность: ~00:30:00 серияРеклама: Присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0FC7E43B50BD2CF2B06607F132761CAD3CA975
 ```
 
 https://mybot314.ru/tekegram_catalog/

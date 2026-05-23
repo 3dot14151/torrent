@@ -1,3 +1,81 @@
+###  Публикация: 1520974   (49475) от 20.07.2024
+
+Книга Бобы Фетта / The Book of Boba Fett (2021) WEBRip (сезон 1, серии 1-7 из 7) HDRezka
+
+>>Зарубежные сериалы
+>>Звездные войны / Star Wars (сериалы по франшизе)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Боба Фетт вместе с напарницей Феннек Шанд пытается завоевать авторитет в преступном мире, захватив территорию, когда-то принадлежавшую Джаббе Хатту.Производство: США / Lucasfilm LtdЖанр: Фантастика, боевик, приключенияРежиссер: Роберт Родригес, Джон Фавро, Дэйв ФилониАктеры: Темуэра Моррисон, Мин-На Вэнь, Мэтт Берри, Дэвид Паскуэзи, Дженнифер Билз, Дэниэл Логан, Уэсли Киммел, Джоэнна Беннетт, Доун ДининжерПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: РусскийСубтитры: Русские (форсированные hardsub)Продолжительность: ~00:38:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FA4FBBCEBE67BA55F61C2666338A77CF6DD49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728167   (49377) от 21.07.2024
+
+Аколит / The Acolyte (2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) NewComers, TVShows, Jaskier, Lostfilm, LE-Production
+
+>>Зарубежные сериалы
+>>Звездные войны / Star Wars (сериалы по франшизе)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в последние дни Расцвета Республики — эпохи, когда деятельность джедаев была значительно расширена по всей Галактике. Сюжет сконцентрирован вокруг Темных сил и их мрачных секретов. В центре сюжета — бывший падаван, которая воссоединяется со своим мастером-джедаем, чтобы расследовать серию преступлений. В ходе изысканий герои сталкиваются (   Читать дальше...   )Производство: США / The Walt Disney Company, Lucasfilm Ltd.Жанр: фантастика, боевик, драма, детектив, фэнтезиРежиссер: Ханель М. Кулпеппер, Алекс Гарсия Лопес, Лесли ХэдландАктеры: Амандла Стенберг, Дафни Кин, Джоди Тёрнер-Смит, Ли Джон-джэ, Чарли Барнетт, Ребекка Хендерсон, Леа Брэйди, Йонас Суотамо, Эми Цан, Мэнни ХасинтоПеревод: Многоголосый профессиональный (NewComers, TVShows, Jaskier, Lostfilm, LE-Production)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6396FDEE57B52FAE4CD9CAC4B7698E26FE545761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728790   (49269) от 22.07.2024
+
+Аколит / The Acolyte (2024) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-8 из 8) RHS, NewComers, TVShows, Jaskier, Цiкава Iдея
+
+>>Зарубежные сериалы
+>>Звездные войны / Star Wars (сериалы по франшизе)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в последние дни Расцвета Республики — эпохи, когда деятельность джедаев была значительно расширена по всей Галактике. Сюжет сконцентрирован вокруг Темных сил и их мрачных секретов. В центре сюжета — бывший падаван, которая воссоединяется со своим мастером-джедаем, чтобы расследовать серию преступлений. В ходе изысканий герои сталкиваются (   Читать дальше...   )Производство: США / The Walt Disney Company, Lucasfilm Ltd.Жанр: фантастика, боевик, драма, детектив, фэнтезиРежиссер: Ханель М. Кулпеппер, Алекс Гарсия Лопес, Лесли ХэдландАктеры: Ли Джон-джэ, Амандла Стенберг, Мэнни Хасинто, Чарли Барнетт, Дафни Кин, Ребекка Хендерсон, Йонас Суотамо, Леа Брэйди, Джоди Тёрнер-Смит, Дин-Чарльз ЧепменПеревод: Дублированный (Red Head Sound), многоголосый профессиональный (NewComers, TVShows, Jaskier, Цiкава Iдея)Язык озвучки: русский, английский, украинскийСубтитры: русские, английские (SDH), украинскиеПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB220BBE64F33D1DEDCE0CCC9DBD832D9F186095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728213   (49263) от 22.07.2024
 
 Аколит / The Acolyte (2024) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-8 из 8) Jaskier, NewComers, LostFilm, HDRezka, TVShows, Red Head Sound
@@ -6,7 +84,7 @@
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

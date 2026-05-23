@@ -1,3 +1,108 @@
+###  Публикация: 1360156   (961779) от 14.02.2020
+
+А.П. Цой и др. | Монтаж, эксплуатация и ремонт холодильного оборудования (2018) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Пособие составлено в соответствии с учебным планом по специальности «Холодильно-компрессорные машины и установки», содержит расширенное описание монтажа оборудования холодильных установок. Разделы пособия посвящены описанию организации монтажных работ, фундаментов для холодильного оборудования, монтажа холодильных установок малой производительности и компрессоров, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279531772D7B8CEAAA511680281145981F3B85DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978654   (960870) от 25.01.2016
+
+В.П. Дьяконов | Сверхскоростная твердотельная электроника [2 тома] (2013) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В первом томе описана элементная база твердотельных электронных устройств общего назначения нано- и пикосекундного диапазона времен - от туннельных и диодов с накоплением заряда, биполярных, полевых и лавинных транзисторов до новых S-диодов, лавинных обострителей, дрейфовых диодов с резким восстановлением, SOS-диодов и интегральных микросхем.
+Во втором томе описаны (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF99AFC576948D3D459F026E5120C691C323380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978738   (960599) от 25.01.2016
+
+Марк Е. Хернитер | Электронное моделирование в Multisim (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой подробное руководство по моделированию электрических и электронных схем в программе Multisim компании Electronics Workbench. В ней на примерах из области электротехники и электроники демонстрируется методика построения схем и проведения различных типов анализа в программе.При описании методик приводится вид экрана компьютера после проведения (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3C61A43315881A6D0B4E84C856E562860A4F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979364   (959689) от 26.01.2016
+
+В.П. Бадялик | Основы телевизионного вещания со спутников (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены принципы построения систем для приема телевизионного вещания через спутники-ретрансляторы. Даны сведения об антеннах различных типов, первичных облучателях, поляризаторах электромагнитных волн, малошумящих усилителях сигналов СВЧ, частотных преобразователях (конвертерах). Рассмотрены факторы, оказывающие влияние на качество приема и способы снижения помех.Жанр: ТелевидениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93373D29058B684E190D5D07CF8FA1FBC676FDB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979057   (959646) от 26.01.2016
 
 В.А. Галкин | Основы программно-конфигурируемого радио (2015) [DJVU]
@@ -6,7 +111,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +375,7 @@ Baxi | Газовые котлы BAXI, инструкции. [2010] [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -576,112 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B55AAE79E75C9AE00314EDD9D0FE58B98429341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288294   (921356) от 29.01.2011
-
-И.П.Шелестов | Радиолюбителям: полезные схемы (книги 1-6) [1998-2005] [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для любителей-конструкторов радиоэлектронной техники, занимающихся самостоятельным техническим творчеством, приведены практические схемы различных устройств, которые могут быть полезны дома. Все они выполнены на доступных элементах и легко могут быть изготовлены самостоятельно. Кроме подробного описания принципа работы и методики настройки, к большинству схем дается топология печатной платы в масштабе 1:1, что облегчит их изготовление.
- При этом не потребуется применять дорогостоящее оборудование и сложные промышленные технологии.
- Эта серия книг будет интересна всем, кто увлекается радиоэлектроникой.Жанр: РадиоэлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC0C99CE168662B0DA9B6AE276A60D9929D5335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288923   (919627) от 30.01.2011
-
-А. Ф. Зюзин | Монтаж, эксплуатация и ремонт электрооборудования промышленных предприятий и установок [1986] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919627.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрены монтаж, эксплуатация и ремонт электрооборудования промышленных предприятий и электроустановок, внутренних электрических сетей, кабельных и воздушных линий электропередачи напряжением до 110кВ, распределительных устройств и трансформаторных подстанций, защитного заземления, электродвигателей и аппаратов управления, контроля, защиты, наладки и испытания электрооборудования.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A7F38B24204D23C41B563CEE9E9895B9D141C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096525   (911935) от 28.01.2017
-
-Ю.С. Краснов | Системы вентиляции и кондиционирования: рекомендации по проектированию для производственных и общественных зданий (2006) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочное пособие построено на самой современной методологической и нормативной базе и предназначено для специапистов, занимающихся широким кругом вопросов по проектированию систем вентиляции и кондиционирования воздуха, а также для студентов специальных вузов. Приведены сведения о внутреннем микроклимате и наружных метеорологических условиях, теплотехническом расчете (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5D5E2788A9744803B8000D4DE21EE56B083D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096724   (911917) от 28.01.2017
-
-С.М. Афонин | Создание акустических систем в домашних условиях (+CD) (2008) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что вам потребуется для создания акустической системы, - это компьютер, некоторое программное обеспечение и вера в успех. Обо всем остальном рассказывается в этой книге. Даже если вы не намерены что-либо разрабатывать, эта книга все равно будет вам полезна. Вы узнаете принципы построения акустических систем, что позволит не ошибиться при покупке. Если у вас (   Читать дальше...   )Жанр: Компьютерная литература, электроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7486E2C05CFBFC88AF0071992AB22E7F03880DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,110 +1,3 @@
-###  Публикация: 1570648   (440799) от 18.08.2022
-
-Анна Кравченко | Про высокую гору и маленькие ручейки (1925) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ про то, как свободолюбивый ручеек смог проложить путь сквозь каменную гору.
-Для детей младшего школьного возраста.Жанр: Сказка, РассказФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B043448F8DA84B2D668761927B133B91081991B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570638   (440794) от 18.08.2022
-
-Вацлав Ян Станек | Львёнок Симба (1956) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440794.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказана жизнь льва Симбы, начиная с момента, когда он сам был львёнком и заканчивая рождением своего потомства.
-Богатая иллюстрациями и фотографиями книга. Для детей младшего школьного возраста.Жанр: Рассказ, ПовестьПеревод: Д.И.МейснерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A64B562FD7E20A8911490CA0F344BF9BBC6802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944485   (440671) от 07.10.2015
-
-Вера Глинка | Малышка Маша и ее каша (1927) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка для малышей.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E38F6E22CCC533834083660E9C2F04FD6E43398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570649   (440641) от 18.08.2022
-
-Валько | Сказки волшебного леса [4 книги] (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валько – немецкий художник и иллюстратор, автор детских книг, среди них серия детских сказок «Сказки волшебного леса». Настоящее имя – Вальтер Кесслер. Сотрудничал с кинокомпанией Disney и со студией Стивена Спилберга London Amblimation Studio.
-Серия  «Сказки волшебного леса» это  весёлые истории о жизни обитателей Волшебного леса – Медведя-лакомки (большого любителя (   Читать дальше...   )Жанр: Детская литература, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8477A73BF7DEECC424B8E358F43C6FA8760B15EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944488   (440373) от 07.10.2015
 
 Г. Котельников | История одного изобретения (1939) [DJVU]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -599,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -628,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -654,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -680,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -691,6 +584,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0310D7311849A046ED28FE00FF08A548AB7775BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062950   (436787) от 15.10.2016
+
+"Рипол Классик" | Шедевры книжной иллюстрации - детям! [22 книги] (2010-2011) [PDF, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия «Шедевры книжной иллюстрации – детям» появилась в 2009 году. Идея была задумана и воплощена в жизнь Сергеем Тишковым, руководителем направления детской литературы издательства "Рипол Классик". Его стараниями к российским детям пришли книги великолепного книжного мастера Геннадия Спирина: «Каштанка», «Нос», «Сказка о царе Салтане». Впервые в России (   Читать дальше...   )Жанр: Детская проза, сказкаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BA9B8E7B66258398A96BD221CE76BDF88FA52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571157   (436183) от 20.08.2022
+
+Николь Лесперанс | Магазинчик снов [2 книги] (2022) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в магазинчик снов! У нас есть всё! Перетёртые в порошок капли июльского дождя, шепчущая пыль и поющие пузыри! Марен любит помогать бабуле в семейном магазинчике «Пишущие машинки и сны». Девочка может создать абсолютно любой сон! Такие сны помогают, например, при недугах. Есть лишь одно непреложное правило — сны нельзя давать человеку без его согласия. (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: Т.А. БушуеваФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84708A517444DF279641DC82EFD1319A2AE6E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945097   (436174) от 09.10.2015
+
+А. Шишов | Младшая сестра (1951) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В сборник Александра Шишова «Младшая сестра» вошли рассказы о сельских ребятах.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB610D4D7441FB56CC78112D509AEAB3711C3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945131   (435998) от 09.10.2015
+
+Вильгельм Буш | Озорные истории в стихах и картинках (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Генрих Христиан Вильгельм Буш (1832–1908) – немецкий поэт-сатирик, художник – известен прежде всего как основоположник комиксов. Его остроюмористические истории в картинках популярны во всем мире вот уже почти два столетия! В нашу книгу вошли стихотворные истории Вильгельма Буша для детей – о бесконечных проказах двух сорванцов Максе и Морице, а также о Плихе и Плюхе (   Читать дальше...   )Жанр: Детские стихиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7872098CD370D04A90D15BDEF5E38FFEE61EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

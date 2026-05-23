@@ -1,3 +1,81 @@
+###  Публикация: 1851747   (1055220) от 05.02.2026
+
+Горничная / The Housemaid (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет основан на романе-бестселлере Фриды МакФадден. Молодая девушка Милли пытается сбежать от своего прошлого и устраивается горничной в богатый дом семьи Винчестер. Кажется, это шанс начать всё заново… но скоро она понимает, что под роскошью скрываются тёмные тайны, опасные игры и психологические манипуляции. А её комната в мансарде запирается снаружи. Чем ближе (   Читать дальше...   )Производство: США / Lionsgate, Hidden Pictures, Pretty Dangerous PicturesЖанр: Триллер, драмаРежиссер: Пол ФигАктеры: Сидни Суини, Брэндон Скленар, Аманда Сайфред, Микеле Морроне, Элизабет Перкинс, Меган Фергюсон, Эллен Тамаки, Indiana Elle, Алайна Сердженер, Арабелла Оливия КларкПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: русские (SDH), английские (SDH)Продолжительность: 02:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5397C7EAB4E659362AE8B64227A7EE89800F6C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850653   (1054722) от 29.01.2026
+
+Опасный дуэт / The Wrecking Crew (2026) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Враждующие сводные братья Джонни и Джеймс воссоединяются спустя 20 лет, чтобы выяснить, кто убил их отца. В поисках правды они раскрывают сокрытые секреты, которые приводят к заговору, угрожающему разлучить их семью.Производство: Новая Зеландия, США / 6th & Idaho Productions, Hard J Productions, Reunion Pacific EntertainmentЖанр: Боевик, комедияРежиссер: Анхель Мануэль СотоАктеры: Дэйв Батиста, Джейсон Момоа, Клас Банг, Темуэра Моррисон, Джейкоб Баталон, Фрэнки Адамс, Мияви, Стивен Рут, Морена Баккарин, Дэвид Хекили Кенуи БеллПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: русские (SDH), английские (SDH)Продолжительность: 02:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A62298AC8ED38F397A4447F925C4FC062B7437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850659   (1054721) от 29.01.2026
+
+Опасный дуэт / The Wrecking Crew (2026) WEB-DL [H.264/1080p]  [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Враждующие сводные братья Джонни и Джеймс воссоединяются спустя 20 лет, чтобы выяснить, кто убил их отца. В поисках правды они раскрывают сокрытые секреты, которые приводят к заговору, угрожающему разлучить их семью.Производство: Новая Зеландия, США / 6th & Idaho Productions, Hard J Productions, Reunion Pacific EntertainmentЖанр: Боевик, комедияРежиссер: Анхель Мануэль СотоАктеры: Дэйв Батиста, Джейсон Момоа, Клас Банг, Темуэра Моррисон, Джейкоб Баталон, Фрэнки Адамс, Мияви, Стивен Рут, Морена Баккарин, Дэвид Хекили Кенуи БеллПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: русские (SDH), английские (SDH)Продолжительность: 02:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9165D8501AC537657025FD79EBBF731FC830257D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849735   (1053668) от 24.01.2026
 
 Кит-убийца / Killer Whale (2026) WEB-DL [H.264/1080p] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B450864416FC1250DCAD96B4F58396AEF535E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459771   (1022857) от 03.04.2021
-
-Поступь хаоса / Chaos Walking (2021) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022857.jpg" />
-</div>
-
-
-###  Подробнее
-
-2257 год. Тодд обнаруживает загадочную девушку Виолу, потерпевшую крушение на его родной планете, где женщины давно исчезли, а все мужчины страдают от вируса — существуют в пространстве бесконечных мыслеобразов, которое называют шумом: рядом с другим человеком совершенно невозможно утаить свои воспоминания и мысли. В такой агрессивной реальности Виоле, чьи чувства (   Читать дальше...   )Производство: США, Канада, Гонконг /  Lionsgate, Quadrant PicturesЖанр: фантастика, приключенияРежиссер: Даг ЛайманАктеры: Том Холланд, Дэйзи Ридли, Демиан Бичир, Дэвид Ойелоуо, Курт Саттер, Синтия Эриво, Бетани Энн Линд, Мадс Миккельсен, Ник Джонас, Рэй МаккиннонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6A62A3D837AADFD559595D8430A95D3590B546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459754   (1022773) от 04.04.2021
-
-Каждый твой вдох / Every Breath You Take (2020) WEBRip [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда психиатр не смог разобраться с проблемами одной из своих пациенток, та в конечном итоге покончила жизнь самоубийством. В надежде загладить свою вину врач начинает общаться с братом покойной, но это лишь осложняет его жизнь, так как тот ухитряется одновременно соблазнить и его жену, и дочь.Производство: США / 13 Films, Construction Film, Southpaw Entertainment, Story Mining & Supply Co., Trinity Media FinancingЖанр: триллерРежиссер: Вон СтайнАктеры: Мишель Монахэн, Сэм Клафлин, Кейси Аффлек, Эмили Элин Линд, Индиа Айсли, Вероника Феррес, Хиро Канагава, Хеон Кларк, Лилли Круг, Дэниэл БэйконПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C94441A86065B00EEE46A14DB9016A0BBB288E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459867   (1022756) от 04.04.2021
-
-Засуха / The Dry (2020) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аарон Фалк возвращается в родной измученный засухой город, чтобы расследуя цепочку недавних убийств раскрыть тайну гибели своей школьной подруги.Производство: США, Австралия / Made Up Stories, Arenamedia, Cornerstone FilmsЖанр: Триллер, драма, криминал, детективРежиссер: Роберт КонноллиАктеры: Эрик Бана, Женевьев О’Рейли, Кейр О’Доннелл, Брюс Спенс, Сэм Корлетт, Джеймс Фрешвилл, Мэтью Нэйбл, Джон Полсон, Джереми Линдсэй Тейлор, Миранда ТапселлПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3001479C11D27BEA6F2EB6E45D82A7CE2088D8B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

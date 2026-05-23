@@ -1,3 +1,107 @@
+###  Публикация: 1667533   (126333) от 24.12.2023
+
+Atarashii Joushi wa Do Tennen | My New Boss Is Goofy | Мой новый босс — дурак [2023, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Kэнтapo Moмocэ — 26-лeтний oфиcный paбoтник. Heдaвнo oн cмeнил paбoтy из-зa нeaдeквaтнocти нaчaльникa. Oн oбecпoкoeн тeм, чтo нoвый бocc мoжeт oкaзaтьcя тaким жe и cдeлaeт жизнь Kэнтapo coвceм нeвынocимoй. Cтpecc дoвoдит eгo дo кoлик в жeлyдкe, и имeннo вo вpeмя пpиcтyпa пpoиcxoдит знaкoмcтвo c нoвым нaчaльникoм Юcэeм Щиpocaки. Юcэй oкaзывaeтcя нeмнoгo pacceянным (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: комедия, повседневностьРежиссер: Абэ НориюкиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: Русские, Английские, ДРУГИЕПродолжительность: 12 эп. по 24 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592F930D0C2E492510BCBCE496A5DACD5019FBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625613   (126162) от 25.12.2023
+
+Dead Mount Death Play | Смертельная игра мёртвой горы [2023, TV, 24 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Противостояние века подошло к концу, когда легендарный герой победил сильнейшего некроманта — Бога-мертвеца. В последние мгновения битвы Бог-мертвец сделал неожиданный ход — применил магию реинкарнации! В совсем другом мире парень по имени Полька Щинояма, несмотря на перерезанное горло, приходит в себя... точнее, не совсем в себя.Производство: Студия Geek ToysЖанр: приключения, фэнтезиРежиссер: Оно МанабуПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151588AB9375103E93244F382FE35F27CD30FC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667839   (126152) от 25.12.2023
+
+Hoshikuzu Telepath / Stardust Telepath / Телепат звёздной пыли [2023, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Умика Конохощи — очень застенчивая девушка и ей сложно общаться с одноклассниками в школе. Однажды в её класс переводится новая ученица по имени Ю Акеучи. Она утверждает, что является инопланетянкой и обладает особой способностью «Одекопатией», которая позволяет ей понимать чувства других, когда её лоб касается лба другого человека (одеко — лоб на японском).Жанр: комедия, повседневность, сверхъестественное.Режиссер: КаориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBB54A30D5798559E49666EB80FFE3DDAEC4CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667634   (126148) от 25.12.2023
+
+Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of Rust Mountain | Паладин издалека [ТВ-2] [2023, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Переродившись в другом мире, Уилл, памятуя о прошлых ошибках, стал другим человеком, выбрал нелёгкую стезю паладина и стал служить богине света. Два года миновало с тех пор, как он покинул Город Мёртвых. Ему исполнилось 17, и дел у нашего героя невпроворот, ведь теперь он не просто странствующий воин, но и лорд всего Лихолесья. А тут ещё и приходят дурные вести: (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Иванага АкираПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B3559F65F4252142AEC2C8B13BFB500FF02A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667609   (126144) от 25.12.2023
 
 Kamonohashi Ron no Kindan Suiri | Безумные расследования Рона Камонохаси [2023, TV, 13] WEBRip 720p raw
@@ -6,7 +110,7 @@ Kamonohashi Ron no Kindan Suiri | Безумные расследования Р
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Shadowverse Flame: Seven Shadows Hen | Поэзия теней [ТВ-3] [2023, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Kanojo mo Kanojo (2023) | Girlfriend, Girlfriend (2023) | Мои девушки 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +244,7 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +272,7 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +298,7 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +324,7 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +350,7 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +376,7 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +402,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +428,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +480,7 @@ Jujutsu Kaisen (2023) | Магическая битва [ТВ-2] [2023, TV, 23 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +506,7 @@ Tokyo Revengers: Tenjiku Hen | Tokyo Revengers: Tenjiku Arc | Токийские
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +534,7 @@ Pokemon Concierge | Покемон: Консьерж [2023, TV, 4 эп.] WEB-DL 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +560,7 @@ Hikikomari Kyuuketsuki no Monmon / The Vexations of a Shut-In Vampire Princess /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Aiyou de Mishi | Aiyou's Secret Room | Тень любви в тайной ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +638,7 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +664,7 @@ Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -571,114 +675,6 @@ Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1CC45B83EE4F0F605BDE7197C7BEE2B1324D0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691827   (123146) от 13.01.2024
-
-Seishun Buta Yarou wa Odekake Sister no Yume o Minai | Rascal Does Not Dream of a Sister Venturing Out | Этот глупый свин не понимает мечту сестры на прогулке [2023, Movie] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позади изнурительный декабрь, близится окончание учебного года. У Сакуто и Маи осталось не так много времени, ведь Маи в этом году оканчивает школу. Тем временем Каэдэ, сестра Сакуто, планирует поступить в школу, где учится брат.
-
-Продолжение истории.Производство: студия CloverWorksЖанр: комедия, романтикаРежиссер: Масуй СойтиПеревод: Funimation; AniLibriaЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3935D97473BC39FB45EC30CC510F126A6A22977D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692193   (122785) от 15.01.2024
-
-Burn the Witch #0.8: Don't Judge a Book by Its Cover | Сжечь ведьму (спэшл) [2023, Special] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторически 72% всех смертей в Лондоне связаны с драконами, фантастическими существами, невидимыми для большинства людей. Хотя большинству это неизвестно, некоторые люди противостоят этим драконам. Драконов могут видеть только жители Обратного Лондона, живущие в скрытой «обратной» стороне Лондона. Главные герои истории - дуэт ведьм Ноэль Ниихаши и Нинни Спэнгкол. (   Читать дальше...   )Производство: Студия Studio Colorido / スタジオコロリドЖанр: приключенияРежиссер: Кавано ТацуроПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD4A377ECCF74CD316D92F213C9CBDB1B2EC13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692178   (122765) от 15.01.2024
-
-Jashin-chan Dropkick: Seikimatsu Hen | Дропкик злого духа (2023) [2023, Special] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Падающие из космоса объекты превратили Джинбоучу в руины. Яшин-тян, ведомая звездами, отправляется на юг, чтобы победить Юринэ Ханазоно, правительницу этого жестокого города. Прибыв в Такамори, расположенный у подножия прекрасного горного массива Асо, она обнаруживает...Производство: Студия Makaria / マカリアЖанр: комедияРежиссер: None found (add some)Перевод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AD029B48D273354BF8DA9D9D408EE465A6857F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823239   (121471) от 11.10.2025
-
-Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 из 12 эп.] WEBRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121471.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой истории нет положительных героев. Здесь рассказ пойдёт о плохих и об очень плохих парнях.
-На первый взгляд Кивами Кимура — обычный менеджер, разве что более привлекательный и уверенный в себе, чем большинство таких же работяг. Однако если копнуть поглубже, то выяснится, что улыбчивый Кивами — амбициозный и безжалостный главарь якудза.
-Синоха Танака, на тот (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: приключенияРежиссер: Ватанабэ ОдахироПеревод: AniLiberty; AmazonЯзык озвучки: #1: Японский; #2: Английский;Субтитры: Русские; АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BA656E6030801730126D2B6233C67D0CAD9CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

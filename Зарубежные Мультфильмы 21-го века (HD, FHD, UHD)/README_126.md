@@ -1,3 +1,83 @@
+###  Публикация: 977456   (48842) от 26.07.2024
+
+Яблочное Семя. Альфа / Appleseed Alpha (2014) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодой солдат Дюнан и киборг Бриарей, пережив третью мировую войну, путешествуют по апокалиптическому Нью-Йорку, в поисках легендарного города Олимпа, будущего оплота человечества. Действие посвящено боевой биографии Дюнан и Бриарея до попадания в Олимп.Производство: Япония, США, Sola Digital Arts, Stage 6 Films, Lucent Pictures EntertainmentЖанр: Боевик, Приключения, ФантастикаРежиссер: Синдзи АрамакиАктеры: Люси Кристиан, Дэвид Матранга, Элизабет Банч, Вендел Кэлверт, Адам Гиббс, Крис Хатчинсон, Брина Паленсиа и др.Перевод: Многоголосый закадровый (профессиональный)Продолжительность: 01:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8420092B7C70D1F22E799E01C6B84A4FEA74CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739221   (48787) от 26.07.2024
+
+Вэлиант: Пернатый спецназ / Valiant (2005) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+На фронтах Второй мировой сражаются все. В том числе и птицы из Королевского голубиного управления. Их работа опасна, но престижна. И юный голубь Вэлиант больше всего на свете хочет стать членом этой команды.
+
+Однажды Вэлианту везет — ему доверяют переправить секретный документ от французского сопротивления к британскому командованию. От скорости и предприимчивости (   Читать дальше...   )Производство: Великобритания, США / Walt Disney Pictures, Ealing Studios, Odyssey Entertainment, Take Film Partnerships, UK Film Council, Vanguard AnimationЖанр: мультфильм, комедия, приключения, семейный, военныйРежиссер: Гари ЧэпманАктеры: Юэн Макгрегор, Рики Джервэйс, Тим Карри, Джим Бродбент, Хью Лори, Джон Клиз, Джон Хёрт, Пип Торренс, Рик Майял, Оливия УильямсПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB91E47FE112291E9FED843ED0927F60AC538C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739222   (48778) от 26.07.2024
+
+Лило и Стич 2: Большая проблема Стича / Lilo & Stitch 2: Stitch Has a Glitch (2005) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Стич помогает Лило пойти по стопам ее матери в подготовке к большому танцевальному конкурсу на острове. Жизнь кажется идеальной, пока Стич не попадает в затруднительное положение, и тогда все идет наперекосяк. И вот пришла пора Лило, Нани, Джамба и их всей большой семье последовать законам «Оханы» и прийти на помощь маленькому веселому другу.Производство: США, Австралия / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фантастика, драма, комедия, семейныйРежиссер: Майкл ЛаБаш, Энтони ЛеондисАктеры: Крис Сандерс, Дакота Фаннинг, Тиа Каррере, Дэвид Огден Стайерз, Кевин Макдональд, Кунева Моок, Джейсон Скотт Ли, Уильям Дж. Капарелла, Холлистон Коулмэн, Мэтт КорбойПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9557DB1F50A2A94A252788384847C72027D2D98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735868   (48672) от 27.07.2024
 
 Гарфилд в кино / The Garfield Movie (2024) WEB-DL [H.265/2160p] [4K, SDR 10-bit]
@@ -6,7 +86,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -600,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:082561D4FB55B51FC742721BCADACE430DE174DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741683   (47529) от 07.08.2024
-
-Пингвины Мадагаскара / Penguins of Madagascar (2014) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёрка пингвинов-шпионов - Шкипер, Ковальски, Рико и Прапор - объединяется с командой «Северный ветер», помогающей беззащитным животным. Им предстоит остановить злобного осьминога, доктора Октавиуса Брайна, желающего уничтожить этот мир...Производство: США / DreamWorks Animation, DreamWorks SKG, Pacific Data Images (PDI)Жанр: мультфильм, фантастика, боевик, комедия, криминал, приключения, семейныйРежиссер: Эрик Дарнелл, Саймон Дж. СмитАктеры: Том МакГрат, Крис Миллер, Кристофер Найтс, Конрад Вернон, Джон Малкович, Бенедикт Камбербэтч, Кен Жонг, Аннет Махендру, Петер Стормаре, Энди РихтерПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B732692D643CA8CD333C39C1E95A5DC8A6E65EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741886   (47452) от 08.08.2024
-
-Лис и пёс 2 / The Fox and the Hound 2 (2006) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тод и Коппер все еще как ниточка и иголочка, но когда у Коппера появляется шанс попасть в супер группу, их дружба подвергается испытанию.Производство: США, Австралия / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Джим КаммерудАктеры: Риба Макинтайр, Патрик Суэйзи, Джона Бобо, Харрисон Фан, Джефф Фоксворти, Вики Лоуренс, Стивен Рут, Джефф Беннетт, Джим Каммингс, Грэй ГриффинПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723C6EED8A49CA4379D3683AFBF0BF49F2DA785D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741977   (47368) от 09.08.2024
-
-Большое путешествие / The Wild (2006) BDRip [H.264/1080p-LQ] [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Львенка Райана разлучили с его отцом и из нью-йоркского зоопарка отправили на корабле в Африку. Его друзья по зверинцу — коала, крокодил, хамелеон, жираф и белка — решают помочь царю зверей найти сына и, сбежав из зоопарка, отправляются на поиски Райана...Производство: Канада, США / Walt Disney Pictures, C.O.R.E. Feature Animation, Contrafilm, Hoytyboy Pictures, Nigel ProductionsЖанр: мультфильм, комедия, приключенияРежиссер: Стив ’Спаз’ УильямсАктеры: Кифер Сазерленд, Джеймс Белуши, Эдди Иззард, Джанин Гарофало, Уильям Шетнер, Ричард Кайнд, Грег Сайпс, Колин Хэй, Майлз Марсико, Джек Де СенаПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350BB61C63F57ADB81578837BF7DF83E74705645
 ```
 
 https://mybot314.ru/tekegram_catalog/

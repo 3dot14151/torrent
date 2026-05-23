@@ -1,3 +1,107 @@
+###  Публикация: 1631786   (235673) от 07.05.2023
+
+В его приятной компании / The Pleasure of His Company (1961) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Джессика Пул собирается выйти замуж за Роджера Хендерсона — молодого, обаятельного владельца ранчо. Отец Джессики — Пого Пул, которого она не видела с детства, также приглашён на свадьбу. Пого прибывает из своего очередного путешествия, таким же беззаботным и очаровательным интриганом, каким он был раньше.Производство: США / Perlberg-Seaton ProductionsЖанр: комедияРежиссер: Джордж СитонАктеры: Фред Астер, Дебби Рейнолдс, Лилли Пальмер, Тэб Хантер, Гэри Меррил, Чарльз Рагглз, Харольд Фонг, Элвия Оллман, Линн Мартин, Элеонор ОдлиПеревод: Двуголосый профессиональный, студия "Кондор" по заказу ВГТРКЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B73E8A1C968FD476358A557C41A17E4DBA339C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631990   (235529) от 08.05.2023
+
+Хладнокровный убийца / The Stone Killer (1973) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Детектив отправляется в Лос-Анджелес, чтобы раскрыть заговор могущественного босса сицилийской мафии, который планирует второй раз в жизни провести "Сицилийскую вечерню" - мероприятие, в ходе которого все предыдущее поколение сицилийских мафиози в один день оказывается уничтожено...Производство: Италия, США / Dino de Laurentiis Cinematografica, Produzioni Cinematografiche Inter. Ma. Co., Rizzoli Film S.p.a.Жанр: боевик, триллер, драма, криминалРежиссер: Майкл УиннерАктеры: Чарльз Бронсон, Мартин Болсам, Джек Колвин, Пол Косло, Норман Фелл, Дэвид Шайнер, Стюарт Марголин, Ральф Уэйт, Альфред Райдер, Уолтер БуркПеревод: Двуголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E143E95F048E9B053D0F24E74C2C861E90CCC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035764   (235473) от 13.05.2022
+
+Операция "Нижняя юбка" / Operation Petticoat (1959) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война позади. Контр-адмирал Мэтт Шерман прощается с подводной лодкой «Морской Тигр», на которой служил капитаном. Шерман читает бортовой журнал и вспоминает события давно минувших дней. Шел 1941 год. Спустя три дня после Перл-Харбора, его лодка получила серьезные повреждения во время воздушного налета в Манильском заливе. Тогда он принял решение поднять (   Читать дальше...   )Производство: США / Granart Company, Universal International PicturesЖанр: Мелодрама, Комедия, ВоенныйРежиссер: Блейк ЭдвардсАктеры: Кэри Грант, Тони Кертис, Джоан О’Брайэн, Дина Мэрилл, Джин Эванс, Дик Сарджент, Вирджиния Грегг, Роберт Ф. Саймон, Роберт Гист, Гэвин МакЛауд, Джордж Данн, Дик Крокетт, Мэдлин Ру, Мэрион Росс, Кларенс Ланг, Фрэнки Дарро, Роберт Ф. Хой, Никки Блэр, Джон В. Морли, Артур О’Коннелл, Хэл Бэйлор, Уильям БрайантПеревод: Профессиональный (многоголосый закадровый), авторский (одноголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 02:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6501EA95E4DEEF725A68716E9A8EEC1C32FAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570427   (235350) от 13.09.2022
+
+Наследник / L'heritier (1973) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Барт Кордепл, слывущий в свете плейбоем и интеллигентом, после загадочной смерти отца становится владельцем крупной медиаимперии. Он начинает наводить порядок и одновременно ведет расследование, так как уверен, что его отец был убит. Но далеко не всем выгодно, чтобы добытые им сведения были преданы огласке.Производство: Франция, Италия / Cinétel, Euro International Film (EIA), Président FilmsЖанр: Боевик, Триллер, ДрамаРежиссер: Филипп ЛаброАктеры: Жан-Поль Бельмондо, Карла Гравина, Жан Рошфор, Шарль Деннер, Жан Дезайи, Жан Мартен, Морис Гаррель, Пьер Грассе, Морин Кервин, Франсуа ШометтПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C419BA0F0DE642F8EB0E0063CE1C9FE8606E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625669   (235335) от 10.05.2023
 
 Мистер Смит едет в Вашингтон / Mr. Smith Goes to Washington (1939) BDRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -566,112 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89585FF0BFABF97CCA61506F60AC48504EE25B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630151   (230867) от 03.06.2023
-
-Кот / Le chat (1971) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то они были счастливы. Клеманс и Жюльен. Теперь они едва ли могут припомнить те времена, когда в их доме гостила любовь. Жюльен охладел к своей «акробатке». А она до сих пор не может поверить в то, что их семьи больше нет.
-Но однажды Жюльен совершает предательство. В их доме появляется Кот. «Только лишь кот?» – скажете вы. Да. Но Клеманс понимает, что в ее (   Читать дальше...   )Производство: Франция, Италия / Cinétel, Comacico, Gafer, Lira Films, Unitas FilmЖанр: драмаРежиссер: Пьер Гранье-ДеферАктеры: Жан Габен, Симона Синьоре, Анни Корди, Жак Риспаль, Николь Десайи, Гарри-Макс, Андре Руйе, Карло Нелл, Ив Барсак, Флоранс ОгеноерПеревод: Многоголосый профессиональный, двуголосый профессиональныйЯзык озвучки: Русский, французскийСубтитры: Русские, французские, английскиеПродолжительность: 01:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5854B410F050BD4ED7FDFE27092FA3B6E0CF7878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556089   (230665) от 07.06.2022
-
-Форель / La truite (The Trout) (1982) BDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230665.jpg" />
-</div>
-
-
-###  Подробнее
-
-История современной куртизанки, которая делает карьеру через постель, живя в мире современной буржуазии. Так же как форель, из которой бережно достают икру, герои платят частичкой самих себя за фальшивые улыбки, секс и расположение.Производство: Франция, Gaumont, TF1 Films Production, Société Française de Production Cinématographique (S.F.P.C.)Жанр: Драма, мелодрамаРежиссер: Джозеф ЛоузиАктеры: Изабель Юппер, Жан-Пьер Кассель, Жанна Моро, Даниэль Ольбрыхский, Жак Списсер, Исао Ямагата, Жан-Поль Руссийон, Ролан Бертен, Лизетт Малидор, Крэйг СтивенсПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4FE88800DF44B7F5F0B38E473C8431B3970874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555342   (230632) от 08.06.2022
-
-Ад в Тихом океане / Hell in the Pacific (1968) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит во время Второй мировой войны. На необитаемом острове в Тихом океане оказываются 2 военных с противоборствующих сторон — американский пилот и японский военнослужащий в должности капитана.
-Сперва они ненавидят друг друга и пытаются уничтожить друг друга. Затем каждый из них пытается спастись, обманув другого. Затем они понимают, что по одному (   Читать дальше...   )Производство: США / Henry G. Saperstein Enterprises Inc., Selmur ProductionsЖанр: Приключения, ВоенныйРежиссер: Джон БурменАктеры: Ли Марвин, Тосиро МифунэПеревод: Двуголосый профессиональный, авторскийСубтитры: ОтсутствуютПродолжительность: 01:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFEE0DC7E5FE29DFA4DE598B1A5D992CB6C035A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633888   (230453) от 26.07.2023
-
-Серебряный флот / The Silver Fleet (1943) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляющий верфи Лейден, после оккупации Голландии, долго не задумиваясь, начинает сотрудничество с новой властью. По ходу дел он приходит к мнению, что сотрудничает не с той стороной, с которой следовало бы. Теперь для Лейдена главная забота — как противостоять нацистам, не подвергая опасности семью и коллег…Производство: Великобритания / The Archers, 	The Rank Organisation Film Productions Ltd.Жанр: драма, военныйРежиссер: Вернон Сьюэлл, Гордон ВеллеслиАктеры: Ральф Ричардсон, Гуги Уизерс, Эзмонд Найт, Бересфорд Иган, Фредерик Бёртуэлл, Кэтлин Байрон, Willem Akkerman, Дороти Гордон, Чарльз Виктор, Джон ЛонгденПеревод: Одноголосый любительскийЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD3C9B31E2861D48528CEEABFB4C87ECB32A31A
 ```
 
 https://mybot314.ru/tekegram_catalog/

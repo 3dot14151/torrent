@@ -1,3 +1,29 @@
+###  Публикация: 853796   (155680) от 27.12.2014
+
+Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Наездников [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Посреди могучих держав лежит небольшое горное королевство Лотремон, славное единственной в мире академией, где готовят наездников на драконах. Мало кто способен «запечатлеть» разумного зверя, вырастить его, а потом несколько лет учиться вместе, составляя идеальную боевую пару. Лучшие рыцари получают от дракона магические доспехи и оружие, заменяя собой целые армии, поэтому любая страна с готовностью оплатит недешевое обучение своих кандидатов. Юные таланты прибывают в академию Ансариван отовсюду, в том числе (   Читать дальше...   )Жанр: приключения, фэнтези, эттиРежиссер: Тада СюнсукэПеревод: YakuSub StudioФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692C229C49281B312E1A35BC6DA4262E5A90F665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627037   (154836) от 14.11.2023
 
 Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful World! | Да благословит взрыв сей расчудесный мир! [2023, TV, 12 из 12] WEBRip 720p rus
@@ -6,7 +32,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Поро
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +86,7 @@ Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Пр
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +113,7 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +139,7 @@ Absolute Duo / Абсолютный Дуэт [2015, TV, 12 ep] BDRip Hi10p 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +166,7 @@ Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +192,7 @@ One Punch Man / Ванпанчмен [2015, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +219,7 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +273,7 @@ Occultic;Nine / Оккультная девятка [2016, TV, 12 ep] WEB-DL 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +300,7 @@ Subete ga F ni Naru: The Perfect Insider / Everything Becomes F: The Perfect Ins
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +326,7 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +352,7 @@ Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +378,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +404,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +430,7 @@ Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / П�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +456,7 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +482,7 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +508,7 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +534,7 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +560,7 @@ Bungou Stray Dogs / Бродячие псы литературы [2016, TV, 24 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +586,7 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +612,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +638,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -638,7 +664,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -649,32 +675,6 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED4283BAE9524F29AA7F648CC93CE0575F58EB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946036   (137314) от 31.12.2015
-
-Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015, TV, 12 ep] HDTV 720p Raw+Rus [18+]
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137314.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из миров нежданная мутация превратила избранных девушек в грозное оружие, поражающее человеческое воображение. Для рождения такого чуда нужна спаянная боевая двойка, где в оружие превращается Экстер, то есть «внешняя», а ее напарница–Либератор способна этим оружием владеть. Сам процесс вооружения или «режим Валькирии» запускается после интенсивной… э-э, взаимной (   Читать дальше...   )Жанр: приключения, этти, сёдзё-айРежиссер: Канэко ХиракуПеревод: FratelliСубтитры: ASS, Встроенные, Полные | Надписи «Fratelli»Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1C87C0CD7FDB4A847CC1C5CCAFE3606C46C8D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

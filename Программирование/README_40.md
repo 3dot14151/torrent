@@ -1,3 +1,265 @@
+###  Публикация: 1513165   (216017) от 03.12.2021
+
+Кристиан Майер | Однострочники Python. Лаконичный и содержательный код (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Краткость - сестра программиста. Эта книга научит вас читать и писать лаконичные и функциональные однострочники. Вы сможете системно разбирать и понимать код на Python, а также писать выразительно и компактно, как настоящий эксперт.Здесь вы найдете приёмы и хитрости написания кода, регулярные выражения, примеры использования однострочников в различных сферах, а также (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09F4486A5438E77FD73B0558AA3DDA6326CE2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966927   (215179) от 19.12.2015
+
+Павел Козловский, Питер Бэкон Дарвин | Разработка веб-приложений с использованием AngularJS (2014) [PDF, RTF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+С появлением HTML5 и CSS3 разработка клиентских веб-приложений на языке JavaScript приобрела особую популярность. Создатели фреймворка AngularJS предприняли революционный подход к решению вопроса превращения браузера в самую лучшую платформу для разработки веб-приложений.
+ Книга проведет вас через основные этапы конструирования типичного одностраничного веб-приложения. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA4FA8907E7A90FA5A96AA70F18F7D0F51B8749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653028   (215132) от 14.08.2023
+
+Серхио Рохас-Галеано | ChatGPT: ваш наставник по Python. Овладение основами за 100 запросов (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя мир программирования на Python с помощью ChatGPT! Погрузитесь в основные концепции, решайте увлекательные и веселые задачи и исследуйте безграничный потенциал программирования. Этакнига позволит вам освоить Python всего за 100 запросов, сформировав у вас необходимые навыки.
+Python — один из наиболее широко используемых и универсальных языков программирования, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: LeanpubФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343884   (214133) от 08.12.2019
+
+Хуэй-Хуан Ли | Программирование и инженерные вычисления с помощью MATLAB (2019) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена для студентов совершенно новых в программировании MATLAB. Тематические исследования и примеры широко используются в этой книге и это главное, что делает данную книгу уникальной. Автор считает, что лучший способ выучить MATLAB - это изучение программ, написанных опытными программистами, и что именно качество этих примеров программ определяет (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E972A6F27A62110EB2396C4EEFB013182BCE823E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653693   (213964) от 17.08.2023
+
+Джей Венгроу | Прикладные структуры данных и алгоритмы. Прокачиваем навыки (2024) [PDF] [Второе издание]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Структуры данных и алгоритмы — это не абстрактные концепции, а турбина, способная превратить ваш софт в болид формулы 1. Научитесь использовать нотацию «О большое», выбирайте наиболее подходящие структуры данных, такие как хеш-таблицы, деревья и графы, чтобы повысить эффективность и быстродействие кода, что критически важно для современных мобильных и веб-приложений. (   Читать дальше...   )Жанр: ПрограммированиеПеревод: С. ЧерниковИздательство: ПитерФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAD7823B4C7B1E9E96757C4C5658C1E8034F122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559159   (213109) от 24.06.2022
+
+Джон Боднер | Go: идиомы и паттерны проектирования (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Go быстро набирает популярность в качестве языка для создания веб-сервисов. Существует множество учебников по синтаксису Go, но знать его недостаточно. Автор Джон Боднер описывает и объясняет паттерны проектирования, используемые опытными разработчиками. В книге собрана наиболее важная информация, необходимая для написания чистого и идиоматического Go-кода. Вы научитесь (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A75B1B3D2C6DDC846CCFD79CE861672C93A525D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558134   (213073) от 25.06.2022
+
+Коллектив авторов | Большая библиотека программирования на Python (121 книга на русском + англоязычные шпаргалки) (2010 - 2022) [PDF, DJVU] [Обновляемая], [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Серия "Библиотека программиста" предназначена как для опытных мастеров своего дела, так и для тех, кто только приступил к изучению программирования. В данном выпуске библиотеки книги повящённые изучению Python.Жанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB02F460E4804C383A62BEC4DDD046F63853B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560270   (213012) от 28.06.2022
+
+Jan Newmarch, Ronald Petty | Network Programming with Go Language: Essential Skills for Programming, Using and Securing Networks with Open Source Google Golang, 2nd ed. Edition (2022) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в ключевые темы сетевой архитектуры, реализованной с помощью поддерживаемого Google языка программирования Go с открытым исходным кодом. Сетевые темы, такие как сериализация данных, протоколы уровня приложений, наборы символов и кодировки, обсуждаются и демонстрируются в Go. Эта книга была обновлена ​​до версии Go 1.18, которая включает в (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DEE4EE386FAF324EBBCB59D9BAF0435DCA307C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562346   (212764) от 08.07.2022
+
+Сильвейн Гуггер, Джереми Ховард | Глубокое обучение с fastai и PyTorch. Минимум формул, минимум кода, максимум эффективности (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Обычно на глубокое обучение смотрят с ужасом, считая, что только доктор математических наук или ботан, работающий в крутой айтишной корпорации, могут разобраться в этой теме. Отбросьте стереотипы: любой программист, знакомый с Python, может добиться впечатляющих результатов. Как? С помощью fastai - библиотеки, предоставляющей комфортный интерфейс для решения наиболее (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FE697FF1468A52C0F83D20933F6AE2164BBC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562831   (212697) от 10.07.2022
+
+М. Фелляйзен и др. | Как проектировать программы (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Цель этой книги – познакомить читателей с системным подходом к проектированию и сформировать у них правильные навыки программирования, которые предполагают пошаговое планирование и понимание рабочих задач на каждом этапе создания программы. В фокусе книги – общие принципы проектирования программ, поэтому используется не стандартный промышленный язык, а специализированный (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE03601B3EDFE01105A626DD9A9F37AB1E9FD56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562957   (212692) от 11.07.2022
 
 Д.В. Виноградов | Разработка мобильных приложений и облачные сервисы (2022) [PDF, DJVU]
@@ -6,7 +268,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +424,7 @@ Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +502,7 @@ Dimitrios Xanthidis и др.| Handbook of Computer Programming with Python (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +528,7 @@ Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your codi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +554,7 @@ Alex Ellis | Everyday Go (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +635,7 @@ Mario Casciaro, Luciano Mammino | Node.js Design Patterns: Third Edition (2020) 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -413,275 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CBB3ECC5A506752EDD81BE67FB8DC0ADF5C0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606623   (209354) от 22.01.2023
-
-Шакти Танвар | Параллельное программирование на C# и .NET Core (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет подход к параллельному программированию с учетом современных реалий. Информация структурирована таким образом, чтобы она легко усваивалась, даже если читатель не обладает специальными знаниями. Рассматриваются общие принципы написания параллельного и асинхронного кода; реализация параллелизма данных показана на коротких и простых примерах. В конце (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB65982148DDEC4B02AAF7FB81F440DBA8A80538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606797   (209227) от 23.01.2023
-
-Рой Ошероув | Искусство автономного тестирования с примерами на C# 2-е изд. (2014) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во втором издании книги "Искусство автономного тестирования" автор шаг за шагом проведет вас по пути от первого простенького автономного теста до создания полного комплекта тестов – понятных, удобных для сопровождения и заслуживающих доверия. Вы и не заметите, как перейдете к более сложным вопросам – заглушкам и подставкам – и попутно научитесь работать (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.А. СлинкинФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FC447F9E571B2E031B23B4CCF17F3EBE03D8C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610240   (208083) от 06.02.2023
-
-Forrest Brazeal | The Cloud Resume Challenge Guidebook, AWS, GCP & Azure ed. [3 Книги] (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208083.jpg" />
-</div>
-
-
-###  Подробнее
-
-A proven way to advance your cloud career.​
-Since April 2020, the Cloud Resume Challenge has helped thousands of peopleskill up on cloud,
-improve their career prospects,
-and even land cloud jobs from totally non-tech fields like plumbing, professional poker, and HR.Now, I've packed their top tips, strategies, and resources into one e-book, so you too can build (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C385A18DDA5AFD7BC209596F1292CC6F6FEB59ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610210   (208080) от 06.02.2023
-
-Maximilian Schwarzmüller | React Key Concepts: Consolidate your knowledge of React’s core features, 1st Edition (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208080.jpg" />
-</div>
-
-
-###  Подробнее
-
-As the most popular JavaScript library for building modern, interactive user interfaces, React is an in-demand framework that'll bring real value to your career or next project. But like any technology, learning React can be tricky, and finding the right teacher can make things a whole lot easier.
-
-Maximilian Schwarzmuller is a bestselling instructor who has helped (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523F05EAEDFDAFCD01716F6D8D6FA1A8C863C7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576664   (208007) от 15.09.2022
-
-John Canning и др. | Структуры данных и алгоритмы на Python (2023) [EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208007.jpg" />
-</div>
-
-
-###  Подробнее
-
-This practical introduction to data structures and algorithms can help every programmer who wants to write more efficient software. Building on Robert Lafore’s legendary Java-based guide, this book helps you understand exactly how data structures and algorithms operate. You’ll learn how to efficiently apply them with the enormously popular Python language and scale (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986DFD356BD1747E842C0B30213B3D4681D700E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610735   (207904) от 08.02.2023
-
-Benjamin Evans, Jason Clark, Martijn Verburg | The Well-Grounded Java Developer, Second Edition (2022) [PDF] [Ebook & Video Edition] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207904.jpg" />
-</div>
-
-
-###  Подробнее
-
-This is the video edition of the book from manning, of course compressed (so not 2.5GB but a lot less, around 600mb or so), I have also included the pdf book as well for fun (also in compressed form). The videos' total length are around 20hrs. Source is on github, attached as an extra resource.
-
-Understanding Java from the JVM up gives you a solid foundation to grow (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75F153F62EB1B8D1FCC4A1AD4500E3906BD4E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577327   (207724) от 18.09.2022
-
-Стивен Скиена | Алгоритмы. Руководство по разработке. 3-е изд (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является наиболее полным руководством по разработке эффективных алгоритмов. Первая часть книги содержит практические рекомендации по разработке алгоритмов: приводятся основные понятия, дается анализ алгоритмов, рассматриваются типы структур данных, основные алгоритмы сортировки, операции обхода графов и алгоритмы для работы со взвешенными графами, примеры использования (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A57A4C180F760F65A3166C156BE19EBE43732F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611678   (207442) от 13.02.2023
-
-Adam Freeman | Pro ASP.NET Core 6: Develop Cloud-Ready Web Applications Using MVC, Blazor, and Razor Pages (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Professional developers will produce leaner applications for the ASP.NET Core platform using the guidance in this best-selling book, now in its 9th edition and updated for ASP.NET Core for .NET 6. It contains detailed explanations of the ASP.NET Core platform and the application frameworks it supports. This cornerstone guide puts ASP.NET Core for .NET 6 into context (   Читать дальше...   )Жанр: Программирование, ASP.NET CoreЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990DF944E43F22EA65507A6FD52AA78A3154C1E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650430   (207299) от 02.08.2023
-
-Peter Spath | Pro Android with Kotlin - 2nd Edition (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрабатывайте приложения для Android с помощью Kotlin, чтобы создавать более элегантные программы, чем аналогичные на Java.
-
-В книге есть главы, посвященные всем важным аспектам платформы Android, включая дизайн графического интерфейса, работу с файлами и данными, работу с телефонными звонками, мультимедийные приложения, взаимодействие с сервисами определения местоположения (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C46378E44AECBD1FA2E760928E5B52AED10DCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651525   (207002) от 06.08.2023
-
-Joel Holmes | Shipping Go (2023) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207002.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге показано, как создавать конвейеры разработки программного обеспечения, специфичные для Go. К моменту завершения главы 3 у вас уже будет готов базовый процесс CI/CD, а также итеративный процесс разработки, выпуска и доработки приложений. Затем вы будете планомерно совершенствовать свой конвейер для поддержки контейнеризации, интеграционного тестирования, семантического (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Manning Publications CoФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1059DA0778C05E92E139AB06B4B9C508D90107
 ```
 
 https://mybot314.ru/tekegram_catalog/

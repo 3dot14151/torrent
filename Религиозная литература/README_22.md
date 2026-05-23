@@ -1,3 +1,111 @@
+###  Публикация: 1106686   (871573) от 20.02.2017
+
+Е. С. Варичев | Православная церковь. История и социальная сущность (1982) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 1988 году исполняется тысячелетие крещения Руси, которое будет специально отмечаться русской православной церковью. В связи с этим большое значение приобретает ознакомление широких кругов читателей с подлинной историей церкви, ее идеологией и политикой.
+
+Опираясь на большой фактический материал, во многом не освещавшийся ранее в атеистической литературе, автор (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C897110676411568314D262685878C5E003FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105917   (871566) от 20.02.2017
+
+Святитель Игнатий Брянчанинов | Смысл жизни и смерти человека (2001) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F78C69BA76704A40D1436CB525841A2C127BB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106416   (871557) от 20.02.2017
+
+Иван Концевич | Стяжание Духа Святого в путях Древней Руси. Оптина Пустынь и ее время (2009) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены главные труды выдающегося русского мыслителя и богослова Ивана Михайловича Концевича "Стяжание Духа Святого в путях Древней Руси" и "Оптина Пустынь и ее время". В этих трудах раскрывается духовная история Святой Руси - русской цивилизации как особого благодатного свойства русского народа, делающего его новым избранным народом, (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20D1C859C887C874CA54879A399D785C755F1A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374466   (869091) от 12.04.2020
+
+Игумения Евпраксия (Инбер) | Дарим тебе дыхание: Рассказы о жизни рядом со старцем Наумом (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой небольшой книге автор, игумения Евпраксия, рассказывает о жизни рядом со старцем, лаврским архимандритом Наумом (Байбородиным; 1927–2017). Много всего удивительного, чудесного происходило постоянно, но разве можно привыкнуть к чуду… А ведь самым большим чудом был сам Батюшка.
+
+Отец Наум был живым примером святости, примером невозможного для человека наших (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8969A457FCC5D80A06D10AE12A756714215CC190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374733   (868991) от 12.04.2020
 
 Серия «Язык. Семиотика. Культура» | Русская духовная музыка в документах и материалах. Томa I-IX [13 книг] (1998-2018) [PDF]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_861820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -519,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -546,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,111 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08FE593641AE98F898210CAB5797B0F2DFCA12EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498504   (856165) от 27.09.2021
-
-К. Е. Скурат | Лампада глинская. Старчество в современном мире (2005) [FB2, EPUB, DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скурат К. Е., заслуженный профессор Московской духовной академии, доктор Церковной истории.
-Согласно святоотеческой мысли, вобравшей в себя всю полноту Истины, правота веры достигается через святость жизни. Познать Святое Православие можно через изучение подвига святых мужей Церкви Христовой и чрез посильное подражание им. Посему данное изложение представляет лучшее (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DAF38BDA9D9E90E0E084CDB902AD855C29999F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001010   (855592) от 27.03.2016
-
-ИП Стрельбицкий (изд.) | Как вести себя в церкви (2016) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие, написанное прихожанкой православного храма, в полной мере раскрывает перед читателями практику церковной жизни. Книга в доступной и понятной форме дает ответы на множество повседневных вопросов. Что происходит во время службы в храме? Как вести себя во время Богослужение, как заказывать требы?  Каким образом организовать свою жизнь по церковному распорядку (   Читать дальше...   )Жанр: Религиозные текстыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBC8BE7B831DB3DAB4A72DDEA31D98E6AAD61C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109379   (855392) от 01.03.2017
-
-Православный календарь до 2030 года. Настоящая помощь в трудную минуту (2017) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для каждого верующего год от новолетия до новолетия, полный цикл христианских праздников – новая ступень восхождения по духовной лестнице. Снова и снова мы переживаем историю спасения Богом человеческого рода, преображения человека и его победу над грехом и смертью. Основанный на солнечном и лунном календаре – Месяцеслове и Пасхалии – православный календарь состоит (   Читать дальше...   )Жанр: Православие, Религиозная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2575049EDA494B1F252FE357FE28C5B2FA97A95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376748   (855069) от 20.04.2020
-
-О. Буткова (сост.) | Христос Воскресе! Пасхальные рассказы русских писателей (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый радостный из православных праздников — это Пасха, Воскресение Христово. Сегодня Светлую Пасху празднуют даже те, кто почти не заглядывает в церковь на протяжении года. Атмосфера Добра и всеобщей Радости, освещённые Пасхальные куличи, творожные пасхи и крашеные яйца могут растопить сердце каждого. Старинные обычаи и традиции, повторяясь из года в год, являются (   Читать дальше...   )Жанр: Православная художественная литератураФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80409E1AB2E7CE3F6ECFAB9A1C6E14C85C03C38E
 ```
 
 https://mybot314.ru/tekegram_catalog/

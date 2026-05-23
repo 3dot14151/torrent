@@ -1,3 +1,85 @@
+###  Публикация: 1595229   (204515) от 04.01.2023
+
+ПТЭЭП-2022 v3.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Мобильная врсия Правил технической эксплуатации электроустановок потребителей.
+ПТЭЭП 2022 - Правила технической эксплуатации электроустановок потребителей
+Утверждены приказом Минэнерго России от 12 августа 2022 г. N 811
+Данный документ вступает в силу с 07.01.2023 г.(   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 19.12.2022Разработчик: Instruktag KnigaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575571   (204474) от 04.01.2023
+
+Rutube v28.4.4 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Смотрите что любите: в любое время, с любых устройств. Смотрите что любите: в любое время и с любых устройств! Развлекательная платформа Rutube — это один из крупнейших российских видеохостингов, на котором более 10 млн зарегистрированных пользователей. На сервисе представлен премиальный контент российских и иностранных правообладателей.Тип издания: AdFreeРелиз состоялся: 20.12.2022Разработчик: RuTubeПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574038   (204467) от 05.01.2023
+
+Взахлёб v3.3.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Любишь читать или слушать интересные истории? Но не любишь «много букв»? Тогда зацени приложение Взахлёб! Вместо длинных текстов – найдёшь короткие захватывающие истории, чат-переписки и квесты!
+Их много и все они разные: страшные истории, мистические, жуткие и, конечно, романтические из нашего клуба романтики. Прочувствуй эмоции героев онлайн: загляни в их переписку, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 30.12.2022Разработчик: OOO SilitiПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06141D7261B81FCADDAA423015301D70422BB158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655454   (204358) от 26.08.2023
 
 Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +88,7 @@ Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +114,7 @@ FaceLab v2.19.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +140,7 @@ GPS Локер Prime v2.4.4 Mod by No_Hammer [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +168,7 @@ Screen Lock Pro 5.1.2p_ap Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -112,7 +194,7 @@ Background Eraser (InShot Inc.) v2.142.42 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -165,7 +247,7 @@ LibriVox Аудиокниги Pro v10.13.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -191,7 +273,7 @@ MintAI - Photo Enhancer Remini v1.2.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -217,7 +299,7 @@ Tiny Robots Recharged v1.06 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -243,7 +325,7 @@ Memrise: говори на новом языке 2023.08.18.0 Mod by Balatan [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -269,7 +351,7 @@ WPS Office + PDF 18.1 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -295,7 +377,7 @@ PhotoRoom 4.6.7 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -321,7 +403,7 @@ CCleaner Pro: ПО для очистки 25.21.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -347,7 +429,7 @@ Picsart AI Photo Editor, Video v28.6.7 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -373,7 +455,7 @@ WPS Office + PDF v18.21.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -399,7 +481,7 @@ Display Tester v5.35.6 Mod by Balatan, AnBo39  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -425,7 +507,7 @@ FacePic - AI Face App v3.1.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -451,7 +533,7 @@ Flud v1.12.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -477,7 +559,7 @@ PicWish: AI Photo Editor v2.2.1 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -504,7 +586,7 @@ Color By Number For Adults / Раскраски по номерам v4.5.5 [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -530,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -557,7 +639,7 @@ SnapEdit - AI photo editor v7.4.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -583,7 +665,7 @@ ProShot v8.32 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -594,84 +676,6 @@ ProShot v8.32 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA99E7FBA2CDB304E34D1CB71B7421E4CAB213E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829240   (202049) от 25.10.2025
-
-VN - Video Editor / VN - Видеоредактор v2.9.5 Mod by MustHave [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202049.jpg" />
-</div>
-
-
-###  Подробнее
-
-VN - это видеоредактор предназначенный специально для пользователей мобильных гаджетов, что регулярно ведут видеозапись того или иного, а после отправляют на выгрузку в соцсети и иные подобные площадки. В данном случае им больше не нужно будет обращаться к программам установленным на стационарах для обработки, устранения огрехов и прочего. С VN они смогут быстро (   Читать дальше...   )Тип издания: ProРелиз состоялся: 25.10.2025Разработчик: Ubiquiti Labs, LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567803F0BB454CE2DE455BE8D0A1A4D696616FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829238   (202043) от 25.10.2025
-
-All-In-One Offline Maps v3.17b Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения для работы с картами разных картографических сервисов без доступа в сеть. Обширный каталог. Можно добавлять собственные.Тип издания: PlusРелиз состоялся: 0522.10.2025Разработчик: PsyberiaПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051B5813D496C6A41DF50A6CE0CFE17B2848D277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829265   (202015) от 25.10.2025
-
-Mathlab Graphing Calculator Pro v2025.10.167 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы ищете инженерный графический калькулятор, который работает гладко и так как вам подсказывает интуиция, вы нашли его! Графический калькулятор от Mathlab это научный графический калькулятор с алгеброй, незаменимый инструмент для учеников в школе, колледже и аспирантуре, и просто для тех, кому нужен калькулятор с бОльшими возможностями, чем обычный. Он предназначен (   Читать дальше...   )Тип издания: ModРелиз состоялся: 24.10.2025Разработчик: Mathlab Apps, LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36815B50A690265936C6C5BF32EBD6FEE092681
 ```
 
 https://mybot314.ru/tekegram_catalog/

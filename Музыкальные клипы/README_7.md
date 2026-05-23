@@ -1,3 +1,116 @@
+###  Публикация: 625827   (940955) от 07.03.2013
+
+Сборник клипов - VA - Various Music part. 40 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. 2Elements - Tell Me Boy 1080p (3:24)
+2. Akcent feat. Anushka Manchanda - I'm Sorry 1080p (4:04)
+3. Alina Grosu - Let Go (Eurovision 2013) 1080p (3:10)
+4. Arty, Nadia Ali & BT - Must Be The Love 1080p (4:57)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D36F0EF9148FA4B3BD96D5FD9F402BC3FAC8D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984443   (938727) от 09.02.2016
+
+VA - Best of pop 2003 (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Kesici - Angel Of Berlin
+02. Pink - Family Portrait
+03. Christina Aguilera - Fighter
+04. Jennier Lopez feat Jadakis & Styles P - Jenny From The Block(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7103545647F681F1319E9CC9B81C638659A2BFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984563   (938388) от 09.02.2016
+
+VA - Танцевальный рай - The Best (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Pryzd vs. Floyd -  Proper Education
+02. Scooter - Shake That
+03. Holly Dolly - Dolly Song (leva's Pofka)
+04. Arash -  Boro Boro(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF6BA17BAC160B2D978BB4BEC983E5A1DDEC7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859875   (937526) от 18.01.2015
+
+Настя Любимова ft. St1m - Мода На Любовь (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBE450A4E98870ED1CB42657CE39EB33CBFBB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984741   (936364) от 10.02.2016
 
 VA - Сборник видеоклипов 80х - 90х: Бабка Жжёт! (1981-1999) VHSRip
@@ -6,7 +119,7 @@ VA - Сборник видеоклипов 80х - 90х: Бабка Жжёт! (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +177,7 @@ Danielle - Pat It Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +229,7 @@ Burning Witches - Six Feet Underground (2020) WEB-DLRip [Н.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +255,7 @@ Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +281,7 @@ Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -197,7 +310,7 @@ VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -226,7 +339,7 @@ VA - Зимний марафон № 224: Зимняя Волна Новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -255,7 +368,7 @@ Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -281,7 +394,7 @@ Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -307,7 +420,7 @@ Blank & Jones - The Videos (2007) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -335,7 +448,7 @@ Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -361,7 +474,7 @@ Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Goth
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -390,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -419,7 +532,7 @@ Lasgo feat. Taylor Jones - Something (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -445,7 +558,7 @@ Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -471,7 +584,7 @@ Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -497,7 +610,7 @@ The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_919358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +639,7 @@ The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +668,7 @@ VA - Дискохит 90-х (большая коллекция клипов) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +697,7 @@ Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -595,116 +708,6 @@ Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D58C76C7B9EF6A701932338B600313CE5D4B197A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633196   (917829) от 21.03.2013
-
-Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C56DFD4BB0E7EA2FCA635E041F1C50FF78AE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367146   (917326) от 15.03.2020
-
-Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 2020 - FLYINGDICK - Китайский кварталЖанр: RapCoreПродолжительность: 00:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCDDB046CFF314058802FD4BB6B65BD605C58A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367571   (915656) от 16.03.2020
-
-Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001  2015 Pyogenesis - Lifeless
-002  2015 Pyogenesis - Steam Paves Its Way (The Machine)
-003  2017 Pyogenesis - Every Man For Himself... And God Against All
-004  2017 Pyogenesis - I Have Seen My Soul(   Читать дальше...   )Производство: PixelFilm, AFM RecordsЖанр: Gothic Metal, Alternative RockПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF36A663A954373350E47F563AD51FCA6F4EF29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367648   (915255) от 16.03.2020
-
-Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 SABATON - Official Music Videos - 2,56 GB - 21 Files (01:30:04)
-
-001 2006 SABATON - Attero Dominatus
-002 2008 SABATON - Cliffs of Gallipoli (Live)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B6B03339EB3BC4DE0B076C4BD87863144D79E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

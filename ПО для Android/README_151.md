@@ -1,3 +1,81 @@
+###  Публикация: 1817693   (3171) от 12.09.2025
+
+WeNote: заметки блокнот планер v6.39 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Заметки стали проще. Ищете простой в использовании блокнот для быстрого создания заметок? Нужен удобный блокнот для списков дел и покупок? Наше бесплатное приложение и блокнот для заметок предоставляют все это без полноэкранной рекламы!Тип издания: Mod / PremiumРелиз состоялся: 09.09.2025Разработчик: Notes Notepad NotebookПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB5E1FAAC21EF91B5239AE429E22555D5C03A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817848   (3024) от 13.09.2025
+
+Talksy: Навык общения v0.1.7 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Весьма оригинальное приложение, способное помочь вам в совершенствовании навыков общения. Позволяет тренировать как словарный запас разговорной речи, так и чёткость, дикцию, качество общения. В приложении предоставлено множество полезных заданий.Тип издания: PremiumРелиз состоялся: 12.09.2025Разработчик: Korop AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE598BA3EE7C96433D5C52BD861032AA30C4AD24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817846   (3016) от 13.09.2025
+
+Аналоги лекарств, справочник v3.0.6 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Справочник лекарств с возможностью поиска дешевых аналогов к дорогим лекарствам. Подбор дженериков с аналогичным действующим веществом, и с указанием актуальной цены. Теперь у пользователя есть выбор, какое лекарство ему приобрести и сколько при этом потратить. Сэкономьте на дорогих препаратах используя дешевые аналоги. Для работы требуется интернет.Тип издания: AdfreeРелиз состоялся: 12.09.2025Разработчик: Involta.RuПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58805C808BEC45F2C8D9A0077BB652E7B88F5E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817863   (2998) от 13.09.2025
 
 PhotoDirector v20.5.0 Mod by Balatan [Ru/Multi]
@@ -6,7 +84,7 @@ PhotoDirector v20.5.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ PowerDirector – Video Editor v15.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ LazyMedia Deluxe v3.406 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ BZ Напоминания и Дни Рождения PRO v3.9.3 Mod by Viktor245
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Genius Art: Image AI Generator v1.4.9 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +319,7 @@ HiPER Calc Pro v11.2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +345,7 @@ SoundHound ∞ - Music Discovery v10.5.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +423,7 @@ Bria Mobile: VoIP Softphone v6.21.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +449,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.16 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +502,7 @@ Cartoon Photo PRO v1.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +529,7 @@ AirBrush: ИИ Фоторедактор v7.17.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +555,7 @@ Notification Widget v1.5.194 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +581,7 @@ BikeComputer Pro v9.2.2 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +607,7 @@ Notification Dots v1.2.76 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +633,7 @@ Plus Messenger (Telegram+)  v12.0.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +659,7 @@ jetAudio HD Music Player Plus v12.3.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,85 +670,6 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F78C4F8EAD7A3E8979F93A0AA8E40C38904FAC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819353   (1677) от 21.09.2025
-
-Sense V2 Flip Clock & Weather v8.45.2 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнофункциональное погодное приложение с набором виджетов погоды и перекидных часов.
-Приложение предоставляет прогнозы погоды для вашего текущего местоположения или любого другого места по всему миру. Вы можете добавить до 10 мест и проверить погоду и время для любого места в мире.Тип издания: PremiumРелиз состоялся: 21.09.2025Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05826C83EE9B7A5054AD2C5A324E7016D7C462C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819297   (1671) от 21.09.2025
-
-IPTV Pro v9.1.8 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите IP-телевидение вашего интернет-провайдера или ТВ из любого другого интернет-источника на телефоне или планшете! Саму трансляцию осуществляет провайдер, поэтому если вдруг что-то перестало показывать, то скорее всего дело именно в провайдере, обращайтесь к нему. Чтобы убедиться в этом наверняка, просто откройте плейлист на компьютере при помощи VLC или IP-TV (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 21.09.2025Разработчик: Alexander SofronovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0FACB6726E5925C7135404DE877B6DEBCB9D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819351   (1670) от 21.09.2025
-
-Sense Flip Clock & Weather v8.44.2 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнофункциональное погодное приложение с набором виджетов погоды и часов. Приложение предоставляет прогнозы погоды для вашего текущего местоположения или любого другого места по всему миру. Вы можете добавить до 10 мест и проверить погоду и время для любого места в мире.Тип издания: PremiumРелиз состоялся: 21.09.2025Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D4EC7513BDEDBBC9712D904CA9FC6914FFB7E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

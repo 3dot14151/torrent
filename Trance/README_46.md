@@ -1,3 +1,293 @@
+###  Публикация: 1623027   (238604) от 01.04.2023
+
+VA - Global Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk & Weekend Heroes feat. Christian Schottstaedt - Venture X (Original Mix) (6:16)
+02. Christopher Corrigan - We All Want (Original Mix) (4:54)
+03. Steve Dekay - Colossal (Original Mix) (6:15)
+04. Roman Messer & Joe Jury - Upon The Horizon (Original Mix) (4:08)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F8555C62924480744419384A2FB70374814B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637089   (238388) от 03.06.2023
+
+VA - Best Vocal Tracks Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Keistep - Guardians Of Light (Original Mix) [6:29]
+02. Eddy Tango & Sundrej Zohar - The Space (Original Mix) [7:12]
+03. Marco De Nor - Passing Lights (Original Mix) [6:07]
+04. George Ledakis - Girl From Nowhere (Original Mix) [6:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C389ECD7AE924A74777F92C8FE1C419ABB2AEABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629304   (238374) от 26.04.2023
+
+VA - Trance Anthems Vol. 19 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. StanV - Our Own Ways (Original Mix) [4:05]
+02. Joren Heelsing - Syngower (Extended Mix) [6:04]
+03. Ray Mitchell - Amsterdam (Extended Mix) [6:39]
+04. Vertical State - Celestial (Original Mix) [3:43](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF35733EB6D46E2CA6A3ADEBDECC1E83A6A79E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629457   (238350) от 26.04.2023
+
+VA - Trance 2023 Vol. 3 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Laxton & Altartica & Sarah Russell - To Find Me (Original Mix) [3:33]
+02. Yoshi & Razner - A Neverending Dream (Original Mix) [3:21]
+03. Myde & Cathy Burton - Nothing But Love (Original Mix) [3:40]
+04. Raz Nitzan & Ellie Lawson - The Light In Our Heart (Original Mix) [4:17](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863662CBED7D6FDFE3957BFEB6832AA76D83DA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626219   (237722) от 13.04.2023
+
+VA - Nothing But... Trancetopia, Vol. 01 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Emmy Skyer - Under The Rain (Extended Mix) [6:24]
+02. Sanani - Sirius (Extended Mix) [6:14]
+03. 2Minds - 2SideS (Extended Mix) [7:05]
+04. Michael Milov - Burnout (Extended Uplifting Mix) [5:07](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177902F015864173331635F891B81390B990FA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640113   (237616) от 16.06.2023
+
+VA - 10 Years Of Suanda Music - Mixed by Michael Milov (2023) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Milov - Otherside (Extended Mix) (4:32)
+02. Michael Milov - True Story (Extended Mix) (6:30)
+03. Michael Milov - Lost In The Crowd (Extended Mix) (4:05)
+04. Michael Milov - Without Him (Extended Mix) (3:54)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CB8AF2F06DA517A490302EBB2D8FC194A46B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630210   (237434) от 29.04.2023
+
+VA - Deep Trance Showcase I (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Basil O'Glue - Nekyia (Facade Remix) [9:07]
+02. Rick Pier O'Neil - Mul (Jeremy Rowlett Remix) [7:45]
+03. You Are My Salvation - Tired Giant (Cosmithex Remix) [7:44]
+04. Aquya - Subsystem (You Are My Salvation Remix) [11:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1FFE4CE9DE85A3DCA58C586D23B27BF17F9F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627716   (237138) от 20.04.2023
+
+VA - Silent Shore Trance: Spring (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Db Mokk - Miles Away (Original Mix) [3:23]
+02. James Kitcher - Aphrodite (Original Mix) [3:29]
+03. Virtuan - Magenta (Original Mix) [3:28]
+04. BreaKevin - Push (Original Mix) [3:41](   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FC0184132C60A13E5686D9D9EEE3E03E62B1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627717   (237123) от 20.04.2023
+
+VA - Levitated Trance: Spring (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Belg - Forbidden Voices (Original Mix) [4:14]
+02. AndrewC - Flare (Original Mix) [4:47]
+03. Soarsonic - Freedom (Original Mix) [4:02]
+04. Airdream & Calvin O'Commor - Time For Love (Original Mix) [3:50](   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C00DB88D48B2F71EAC4EAE43E617EEF06B60415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627739   (237114) от 20.04.2023
+
+VA - Keep It Trance Vol. 10 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sánchez - Midnight Dream (Original Mix) [4:52]
+02. Khalil Singh - Give Me Forever (Original Mix) [4:28]
+03. DJ Frost & DJ Tranceair - Flashback (Original Mix) [4:47]
+04. STNX - Upin (Original Mix) [3:35](   Читать дальше...   )Жанр: TranceПродолжительность: 02:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE71F8BFA0DBFDDECBA5B6EE3B936471C3B5F0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640494   (236114) от 18.06.2023
 
 VA - Trance Dance (2023) [MP3|320 Kbps] <Trance, Progressive, Breaks, Melodic>
@@ -6,7 +296,7 @@ VA - Trance Dance (2023) [MP3|320 Kbps] <Trance, Progressive, Breaks, Melodic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +325,7 @@ VA - Infrasonic Spring Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +354,7 @@ VA - Trance Anthems Vol. 20 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +383,7 @@ VA - Trance 2023 Vol. 4 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -122,7 +412,7 @@ VA - Levitated - Emotional Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -151,7 +441,7 @@ VA - Black Hole Trance Music 05-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -180,7 +470,7 @@ Markus Schulz - The Rabbit Hole Circus (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -209,7 +499,7 @@ VA - Uplifting Only Top 15: May 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -238,7 +528,7 @@ VA - Future Vocal Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -267,7 +557,7 @@ VA - Armada Music - 20 Years (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +586,7 @@ VA - Trance Emotions Vol. 11 (Best Of EDM Playlist Compilation 2023) (2023) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +615,7 @@ VA - AMVA Top Trance Collection 2023 - 2024 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -354,7 +644,7 @@ Above & Beyond - Tranquility Base Vol. 1 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -383,7 +673,7 @@ VA - Nothing But... Trancetopia, Vol. 05 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -412,7 +702,7 @@ VA - Abora 100: Timeless Favorites (Mixed by Ori Uplift) (2023) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -441,7 +731,7 @@ VA - Keep It Trance Vol. 13 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -455,296 +745,6 @@ VA - Keep It Trance Vol. 13 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36E7DB1F03AADDEA471A48EDFE437276430CB514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643351   (231761) от 01.07.2023
-
-VA - Uplifting Only Top 15: June 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SounEmot - Desde Cuándo Fue (Intro Mix) [5:23]
-02. Raul Alex I. & Alexandra Badoi - Incomplete (Extended Mix) [6:23]
-03. Peter Krejcik - In Love With Spring (Extended Mix) [6:37]
-04. Dreamira & Tsuki Shizumutoki - Jinse (Extended Mix) [7:48](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26039F3098DF70D2D38F11E9F4D36DC98A72D771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643342   (231746) от 01.07.2023
-
-VA - Top 8 June 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Special - Just Want To Go Back (Original Mix) [7:03]
-02. Gayax - Aurora Nocturna (Original Mix) [6:59]
-03. Alphacube - Morning Glow (Original Mix) [6:33]
-04. Cedric Paul - Winter Spirit (Original Mix) [8:17](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF37A89B45FAEE5EC8D43FB23828F9A7733FE2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643141   (231719) от 01.07.2023
-
-VA - Trance 2023 Vol. 6 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris & Sarah Lynn - Take Me On A Journey (Original Mix) (4:20)
-02. Sue McLaren & Raz Nitzan - Peace (Original Mix) (3:44)
-03. Main Engine - Awareness (Original Mix) (3:44)
-04. Paipy & Cathy Burton - One Step (Original Mix) (4:04)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64218F0B92FCC22B0D8461E1C256CD33CBBDA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646710   (231476) от 20.07.2023
-
-VA - 10 Years Of Suanda Music - Mixed by Tycoos (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tycoos - RED (Mixed) (Uplifting Intro Mix) [03:16]
-02. Tycoos - Not Alone (Moon) (Mixed) [03:58]
-03. Skyvol - Wanderer (Mixed) [04:24]
-04. Peter Miethig - Stratosphere (Mixed) [04:20](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9597ECE948F58B43296021B8212BDDAB71BA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647376   (231447) от 20.07.2023
-
-VA - Nothing But... Trancetopia, Vol. 06 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joseph Vega & Clezira - Axiom (Original Mix) [3:39]
-02. Independent Art - Vertical Love (Original Mix) [4:48]
-03. Pink Pig - View Of The Sea (Original Mix) [8:55]
-04. John Grand - Fernet (Original Mix) [3:14](   Читать дальше...   )Жанр: TranceПродолжительность: 02:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B554C535CD78D2445099CE1472DB8EAB32DA5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648083   (231409) от 23.07.2023
-
-Crowd+Ctrl - Smoke & Mirrors (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crowd+Ctrl - The Movement (Extended Mix) (06:10)
-02. Ruben De Ronde & Crowd+Ctrl feat. 88Birds - Oxygen (Extended Mix) (07:03)
-03. ReOrder, Jordan Tobias & Crowd+Ctrl feat. Ben Thrills - High (Extended Mix) (06:58)
-04. Crowd+Ctrl - Synthetic Dreams (Extended Mix) (05:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE457258509AE6B2FE19DB80DBC66ACA9943149C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648234   (231342) от 23.07.2023
-
-VA - Wonderful Trance Tracks (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gilbert Carrizales - Pale Blue Dot [07:40]
-02. Veselin Tasev - Angelic Stars (Extended Mix) [08:53]
-03. Aj Antares - The Dreamer (4Am Mix) [07:01]
-04. Mauro Rizzo - I Love Trance Music [05:41](   Читать дальше...   )Жанр: TranceПродолжительность: 05:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A88CB71ADF5E5CB694202964ABFB6E2DA8A1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648345   (231312) от 23.07.2023
-
-VA - Uplifting Only Top 15: July 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akku - Megumi (Emotional Intro Edit) [4:41]
-02. Deme3us - Close To The Sun (Extended Mix) [5:54]
-03. Type 41 & Saphron - Moon Will Rise (Extended Mix) [8:31]
-04. Masaru Hinaiji - The Theme Of The Light (Kohta Imafuku Remix) [7:27](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C928BA299C0DDDEFD6B9FDD0B1049D766FD15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648911   (231159) от 26.07.2023
-
-VA - Levitated Trance - Summer (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Mushkin - Emotion Talking (Extended Mix) (06:01)
-02. Soarsonic - Sunrise (Extended Mix) (06:37)
-03. Daniele Filaretti - Recursive Dream (Extended Mix) (05:41)
-04. Alexey Mushkin - Dreams Before Sunset (Extended Mix) (07:32)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89374DE0DDCB8163F94E47B642CA8019486A0F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648075   (230956) от 22.07.2023
-
-VA - Black Hole Trance Music 07-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Andy Duguid - It's Simple (Extended Mix) [7:05]
-02. Emma Hewitt x XiJaro & Pitch - EVERLASTING (Extended Mix) [7:22]
-03. Nifra & London Thor - Like The Sky Is Falling (Extended Mix) [5:23]
-04. Solarstone - Hope (Cold Blue Extended Remix) [6:16](   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3F4DFC7687696404874E5263F16C722636B73B
 ```
 
 https://mybot314.ru/tekegram_catalog/

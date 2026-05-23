@@ -1,3 +1,107 @@
+###  Публикация: 1095992   (921928) от 22.01.2017
+
+Hard Reset Redux (2016) [Ru/En] (1.1.3.0) Repack R.G. Механики
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вы — майор Флетчер, армейский ветеран, обороняющий город в рядах корпорации CLN, которая контролирует жизнь последнего оплота людей. Вам предстоит внезапно оказаться втянутым в конфликт между двумя величайшими врагами человечества.Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D998C8BE2FAE8D450F41A915BB801A5FEAB411B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095984   (921794) от 22.01.2017
+
+DeadTruth: The Dark Path Ahead (2017) [En] (1.0) License PLAZA [Episode 1]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+DeadTruth: The Dark Path Ahead является эпизодическим хоррор-приключением от первого лица, представляющим сложный и эмоциональный рассказ, наполненный темными и таинственными секретами. Вы играете за персонажа по имени Майкл Андерсон, который страдает от потери своих близких...Тип издания: LicenseРазработчик: Rukas SkirkeviciusЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDBA4702246CB6E33FE9992AC5EB526D9D10E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096302   (920156) от 23.01.2017
+
+Quadrant (2015-2017) [Ru/Multi] (1.53) License POSTMORTEM
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры разворачивается в исследовательской лаборатории NASA, в 1979 году. Астронавты программы Аполлон в ходе своей экспедиции на луну привезли нечто, что теперь угрожает жизням сотрудников комплекса. Сюжет игры основан на загадочном письме от некого Джона Малькольма, который описывает цепь событий, приведших к полной изоляции лаборатории и гибели её сотрудников.Тип издания: LicenseРазработчик: HKFiftyOne GamesЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FB398B371E1DD981F4B22816BF49FC1D3247AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096345   (920124) от 23.01.2017
+
+Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack R.G. Catalyst
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Штат Невада, маленький городок Рейчел, находящийся в 85 милях к северо-востоку от игорной столицы мира Лас-Вегаса. Ничем не примечательный, за исключением одного «но»: неподалеку располагается база, официально принадлежащая военно-воздушным силам США, – Зона 51. Также, по заверениям официальных источников, на базе в основном занимаются разработкой и тестированием (   Читать дальше...   )Тип издания: RepackРазработчик: Midway Studios AustinЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCA7E98B5923F764497D7E2B7EC6CCABA3A1F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988515   (919893) от 20.02.2016
 
 Arma 3 (2013) [Ru/Multi] (1.56.134627/dlc) Repack xatab
@@ -6,7 +110,7 @@ Arma 3 (2013) [Ru/Multi] (1.56.134627/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Prospekt (2016) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Venom. Codename: Outbreak (2001) [Ru/Multi] (1.0.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Pulang: Insanity (2020) [Multi] (1.0.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Medal Of Honor: Airborne (2007) [Ru] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ SWAT 4 / SWAT 4: The Stetchkov Syndicate (2005) [En] (1.1) License GOG [Gold Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ RICO (2019) [Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0/tr) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Last Floor (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.5) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Rise of the Triad (2013) [En] (1.0) License HI2U [DOOM Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Quake II: Quad Damage (1997) [En] (3.20/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Quake III: Gold (2001) [En] (1.32/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Quake: The Offering (1998) [En] (1.09/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack YelloSOFT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Chasing Dead (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Chasing Dead - это научно-фантастический шутер от 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C82AA74C3D1893D55C7DA5799C65695BC6F586B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101444   (895403) от 06.02.2017
-
-Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3/dlc) Rip Other s [Digital Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battlefield 1 погружает вас в эпоху Первой мировой войны, когда новые технологии и глобальный конфликт навсегда изменили принципы военного дела. Участвуйте в каждой битве, управляйте каждой огромной машиной, выполняйте маневры, меняющие исход всего боя. Весь мир охвачен войной. Узнайте, что ждет вас на линии фронта. Сражайтесь в роли пехотинца или управляйте потрясающей (   Читать дальше...   )Тип издания: RipРазработчик: EA DICEЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A181A7A7B1C8199A893F8A116DBB2FA4AB162D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069578   (893292) от 04.09.2021
-
-Call of Duty: Infinite Warfare (2016) [En] (6.0.1211685) License RELOADED
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Duty: Infinite Warfare – очередная часть в популярной серии шутеров от первого лица Call of Duty, в которой вас ждут грандиозные сражения, незабываемые персонажи, увлекательный кинематографический сюжет, а также новый эпический сеттинг. Впервые в истории серии противостояние развернется за пределами Земли на обширных пространствах Солнечной системы.Тип издания: LicenseРазработчик: Infinity Ward и High Moon StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE64247653A13CE56E4E83AE03F3C08E712782BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993853   (893104) от 06.03.2016
-
-Duke Nukem Forever (2011) [Ru] (1.0.244/dlc) Repack =nemos=
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь перевоплотиться в самого крутого, безбашенного и отчаянного героя в истории компьютерных и видеоигр. С момента его последнего приключения прошло уже почти десять лет, но игроки всего мира ни на минуту не теряли надежды на новую встречу с ним. И вот их мечты стали реальностью - мир наводнили орды инопланетных захватчиков, а значит - Дюк Нюкем возвращается! (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox, Triptych Games, 3D Realms Entertainment и Piranha GameЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BADFDB726E59AACB24247C6D380A9DADFE691A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371256   (891444) от 30.03.2020
-
-Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack =nemos=
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bright Memory — это сверхскоростной микс из жанров FPS и экшен, созданный студией разработки FYQD, за которой стоит всего один человек, на базе движка Unreal Engine. Объединяйте широкий спектр умений и способностей, чтобы обрушить на врагов умопомрачительные комбо-атаки. Приключение Шелии, агента SRO (Организации Сверхестественных Научных Исследований) вот-вот начнется.Тип издания: RepackРазработчик: FYQD-StudioЖанр: Action, Adventure, 1st Person, 3DЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80796CDF2C6DF4033EACF543DCE557A30D174EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

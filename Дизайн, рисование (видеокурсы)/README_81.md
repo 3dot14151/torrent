@@ -1,3 +1,83 @@
+###  Публикация: 1515014   (170709) от 05.12.2021
+
+VideoSmile, Михаил Бычков | Супер 2D моушн-графика (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+2D моушн-графика — это слияние двух наиболее значимых дизайн-трендов современного цифрового искусства — видео и плоской графики. Такие видеоролики получаются простыми для восприятия и при этом очень стильными. Благодаря этим качествам, 2D моушн-графика стала очень популярна в интернетеПроизводство: VideoSmileЖанр: 2D моушн-графикаПродолжительность: 27:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4723936CF0130D04D0CCE84159170BEBCDE6FB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596193   (170698) от 08.12.2022
+
+Udemy, Nikolay Naydenov | Head anatomy and sculpting exercises course (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Изучите анатомию и формы мужской и женской голов для 3D и 2D художников.
+В этом курсе мы рассмотрим основные формы человеческой головы. Различия между мужской и женской головами. Формы черепа и их значение при конструировании лица, скульптинге и рисовании.
+Курс предназначен для всех уровней, он проводится в Blender, но вы можете сделать это в Zbrush или даже рисовать (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 13:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C1FD8B5874D81C5F9AA959F2B2E3F90DDCABA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596198   (170223) от 09.12.2022
+
+Udemy, Darrin Lile | Blender 2.8 UV Mapping (2019) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Создание UV развертки - это необходимый навык для применения текстур к 3D-объектам в Blender 2.8 для анимации и игр. В этом курсе мы рассмотрим, что такое UV развёртка, зачем она нужна, а также инструменты и методы, которые помогут вам эффективно её создавать для ваших 3D-объектов в Blender 2.8. Мы начнём курс с обзора основ. А затем мы поработаем над 5-ю различными (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, UV развёрткаЯзык озвучки: АнглийскийПродолжительность: 05:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187AFB659DC157CDF99587032EFFFF85F16EAFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596856   (167865) от 12.12.2022
 
 Высшая школа экономики (ВШЭ), Сахнов Константин и др. | Основы нарративного дизайна в играх (2022) WEB-DL [RU]
@@ -6,7 +86,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +112,7 @@ FXPHD, Jon Gress | Production in Unreal Engine 4 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +141,7 @@ Pluralsight, Stephen Wells | ZBrush FiberMesh Fundamentals (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +167,7 @@ Udemy, Peter Sidoriak | Advanced VFX Compositing with Nuke: Green Screen Keying 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +195,7 @@ Udemy, Bhaumik Patel | Fast animation and rigging techniques using Maya 2017 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -173,7 +253,7 @@ Liveclasses, Никита Чесноков | Blender: быстрый старт 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -201,7 +281,7 @@ Liveclasses, Никита Чесноков | Blender: расширенные в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -227,7 +307,7 @@ Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -253,7 +333,7 @@ RTFX Animation, Ринат Тимеркаев | Основы 2D FX анимац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -279,7 +359,7 @@ Motion Design School, Данила Михайлов | Рисование спе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -305,7 +385,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Lighting Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -331,7 +411,7 @@ Domestika, Mattey | Cinema 4D Создавайте яркие 3D иллюстр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -360,7 +440,7 @@ Udemy, Nexttut, Victor Yamakado | Zbrush Character Likeness Sculpting Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -388,7 +468,7 @@ The Gnomon Workshop, Maarten Verhoeven | The Making of Red Myst (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -415,7 +495,7 @@ sabatovsky.com, Азамат Сайфуллаев | Онлайн-курс по �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -444,7 +524,7 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +550,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -496,7 +576,7 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -522,7 +602,7 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -548,7 +628,7 @@ FlippedNormals, Henning Sanden | Character Face Texturing in Substance Painter (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,7 +655,7 @@ Udemy.com | Photoshop CC 2018 for Absolute Beginners (2018) PCRec [H.264/720p-LQ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -601,7 +681,7 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -614,89 +694,6 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E10DF374E16BA3906DE46B3C2C9490960AC494D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516959   (164041) от 13.12.2021
-
-Gumroad, Eugene Petrov | Handgun for Video games Tutorial (2019) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164041.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе я расскажу о полном процессе создания оружия, готового к игре, предназначенного для современных шутеров от первого лица.
-Я покажу свой пайплайн по созданию высокополигональных твердотельных моделей в Zbrush с использованием функции Live Boolean, а затем создам оптимизированную низкополигональную сетку в Maya.
-Также я расскажу о своих методах создания (   Читать дальше...   )Производство: GumroadЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 36:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327C119E9BCF16C908F5C64BEE4C8FB04FC6F1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673693   (163965) от 02.11.2023
-
-Motionguru, Jafar Fazel | Motion Design Course (Motion Hero) (2021) WEB-DL [AD] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задавались вопросом, почему некоторые, казалось бы, простые видеоролики имеют такую ​​потрясающую анимацию, а другие смотреть больно?
-Это связано с тем, что многие начинающие аниматоры не знакомы с принципами анимации или теорией анимации в целом, они не знают, на каких аспектах им следует сосредоточиться, чтобы улучшить свою работу, почему (   Читать дальше...   )Производство: MotionguruЖанр: Моушен дизайнЯзык озвучки: АнглийскийПродолжительность: 12:23:16Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6969F7CE962F8B979F78171AEF52B93E986C3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598047   (163747) от 17.12.2022
-
-Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163747.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы научитесь создавать персонажа под руководством профессионального 3D художника Розы Ли, она работала над многими AAA проектами и теперь вместе с Levelup.Digital покажет вам, как создается персонаж Харли Квин.
-На каждом этапе этого курса вы получите пошаговое руководство к действиям.
-Сначала Роза объяснит как настроить интерфейс ZBrush для более эффективной (   Читать дальше...   )Производство: Levelup.DigitalЖанр: 3D моделирование, СкульптингЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 07:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE95201C16E2458737DE39DA487B44D535D1F7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

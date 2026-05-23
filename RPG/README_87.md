@@ -1,3 +1,81 @@
+###  Публикация: 1746038   (730) от 27.09.2025
+
+Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь на поиск приключений в Core Keeper, происходит погружение в атмосферу неизвестности, требующей исследования от лица археолога, который желает обнаружить как можно больше новых реликвий и древних артефактов. Очнувшись в незнакомой местности, напоминающей пещеру, протагонисту предстоит побираться сквозь разнообразных монстров и препятствия, мешающие продвижению, (   Читать дальше...   )Тип издания: LicenseРазработчик: PugstormЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Тайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Тайский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4660E277FB2B46330B2FAC4DA65A303E5C74DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662285   (725) от 27.09.2025
+
+Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0b/dlc) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Tainted Grail: The Fall of Avalon – мрачная фэнтезийная ролевая игра от первого лица с открытым миром созданная по одноимённой популярной настолке, вдохновленная легендами о короле Артуре. Авалон умирает. Короля Артура давно нет, а Рыцари Круглого стола в смятении. Менгиры-хранители, единственные защитники людей в этой отдаленной стране, погружаются во тьму. Жители (   Читать дальше...   )Тип издания: LicenseРазработчик: QuestlineЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795F9B2B37E78AF091D8E2624BADFA5B1208A257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773020   (680) от 27.09.2025
+
+Hellcard (2024) [Ru/Multi] (1.1.250807/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+HELLCARD – это карточный «рогалик», поддерживающий режим как одиночной, так и совместной игры. Действие игры разворачивается в бумажных подземельях, уже знакомых вам по Book of Demons, но здесь геймплей ориентирован на создание собственной колоды и динамичные пошаговые карточные сражения. В отличие от других игр жанра, как, например, Slay the Spire, в HELLCARD особое (   Читать дальше...   )Тип издания: RepackРазработчик: Thing TrunkЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67CAAF7EBA082845F99B91DCB0E94015154C7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780117   (672) от 27.09.2025
 
 Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
@@ -6,7 +84,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.5.3/dlc) License GOG [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Repack seleZen [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Wartales (2021) [Ru/Multi] (1.0.43382 HF2/dlc) Repack Let'sРlay [The Mercenarie
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Wandering Sword (2023) [Multi] (1.24.30/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Coromon (2022) [Ru/Multi] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

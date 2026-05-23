@@ -1,3 +1,185 @@
+###  Публикация: 891490   (724968) от 23.04.2015
+
+Adguard Премиум 5.10.2021.6301 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает со всеми веб-браузерами, эффективно блокируя интернет-угрозы за счет ежедневного обновления базы программы с помощью крупнейших ресурсов Google Safe (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38F7169A5F87A50E33AE85CDB95897C9D8F4B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218289   (724724) от 08.04.2018
+
+Connectify Hotspot 2018.1.1.38937 Max [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Connectify – приложение, превращающее любой компьютер с Wi-Fi-адаптером в полноценную беспроводную точку доступа. Необходимо подключение к интернету, причем по любой технологии - 3G, Wi-Fi, Ethernet и т.п. Безопасность подключения обеспечивает шифрование WPA2-PSK или WEP.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C92DCC0D4230C39D82EE69CFEC8A8DCB222D7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945036   (724376) от 02.08.2020
+
+Memrise 2.94_21861 Mod by Balatan [Ru] - Интерактивное обучение иностранным языкам
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Интерактивное обучение иностранным языкам и различным сферам наук и искусств с использованием мнемотехники для запоминания.Тип издания: ПираткаРелиз состоялся: 02.08.2020Разработчик: MemriseПоддерживаемая ОС: Android. 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48AAA1854158F3CD0409DC18728B94FE4AA0E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128773   (724220) от 27.04.2017
+
+Разработана технология производства деградируемых электронных компонентов из пластика на основе кукурузного крахмала
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Согласно данным статистики, собранных институтом Организации Объединенных Наций, в 2014 году количество электронного мусора на нашей планете увеличилось на 42 миллиона тонн. Большую часть этого мусора составляют устаревшие электронные устройства, компьютеры и мобильные телефоны, которые их владельцы поменяли на более современные модели. Следует отметить, что утилизация (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284937   (724045) от 24.02.2019
+
+Adobe Premiere Pro CC 2019 13.0.3.9 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2019 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AD05D69D55632BA1627C3309D6A876C8DB69C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282276   (724043) от 24.02.2019
+
+Невский. Чужой среди чужих (2018) SATRip (сезон 3, серии 1-20 из 20)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Павел Семёнов, оправившись после тяжелого ранения, не хочет возвращаться в УМВД, начальником которого стал Арсеньев. Павел принимает предложение своего друга Алексея Фомина возглавить его службу безопасности, хотя его и тяготит перспектива превратиться из полицейского в бандита. Тем временем вышедшая из колонии Юля Семёнова пытается адаптироваться к жизни на свободе, (   Читать дальше...   )Производство: Россия / Триикс МедиаЖанр: криминал, драма, детективРежиссер: Михаил ВассербаумАктеры: Антон Васильев, Андрей Гульнев, Мария Капустинская, Сергей Кошонин, Дмитрий Паламарчук, Роман Притула, Юрий Архангельский, Антон Сычёв, Алексей Штукин, Евгения Глотова и др.Продолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEB6EA2D812EC13488CC937506993E2C0993EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308718   (724036) от 24.02.2019
+
+SparkCraft 11 [i386] (1xDVD) [RUS]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это специальный выпуск свободной развлекательной платформы Искра, которая разрабатывается в открытом проекте Синяя птица. Данный выпуск посвящён популярным игровым вселенным WarCraft и StarCraft, в систему встроены многочисленные художественные работы фанатов игр Blizzard, а также официальные ДЕМО версии игр StarCraft, Warcraft III и StarCraft II: Wings of Liberty. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02ACE3D3095ECE8B6DF34D4D1BA565FE321F709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129030   (723712) от 27.04.2017
 
 Викинг (2016) BDRemux [H.264/1080p] [GER Transfer]
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +240,7 @@ SolidWorks Premium Edition 2017 SP 3.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +266,7 @@ Acronis True Image 2017 20.0.8053 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_722964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +396,7 @@ Intel может вернуться на рынок дискретной гра�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_722928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +448,7 @@ MAGIX Vegas Pro 18.0 Build 284 RePack by KpoJIuK [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +474,7 @@ Zver Windows 10 21H2 Enterprise LTSC v.2022.2 x64 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +500,7 @@ Serious Sam / Крутой Сэм (2003) [Ru] (1.0) License [Gold Edition / Зо
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +529,7 @@ Westboro (2017) [Ru/En] (1.00) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +581,7 @@ Freemake Video Converter 4.1.9.14 RePack by CUTA [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +633,7 @@ Acronis True Image 19.0.6571 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -489,191 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400411   (720613) от 04.08.2020
-
-ABBYY Lingvo X6 Professional 16.2.2.133 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный пакет ABBYY Lingvo отличают богатейшая лексическая база и множество функций для удобного и качественного перевода. С ABBYY Lingvo миллионы пользователей во всем мире смогли убедиться, что профессиональный перевод слов и фраз за считанные секунды – это реальность. Новая версия словаря ABBYY Lingvo x6 воплотила расширенные, в том числе и интерактивные, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F79F38A7BDFE7DB40FB9B78BF412C7E27256C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173613   (720612) от 04.08.2020
-
-Подшивка журналов | Оружие (2017-2020) [PDF]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Оружие" адресован широкому кругу читателей, интересующихся стрелковым, охотничьим и холодным оружием. В каждом номере - достоверная и авторитетная информация о разработках, выпускаемых образцах, производителях и конструкторах оружия. Основное внимание уделено современным отечественным и зарубежным моделям, эволюции видов и образцов стрелкового оружия.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76856C64E8B26C57CF4ECFB364083ADB1F69B643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285327   (720384) от 26.02.2019
-
-Windows 7 SP1 4in1 (x64) Elgujakviso Edition (v.25.02.19) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки сделаны на основе оригинальных образов от MSDN: (Original 12.05.2011)
-
-Системы чистые, ничего не удалено, отключено и пропатчено. Интегрированы Internet Explorer 11 и все важные и рекомендуемые обновления по Февраль 2019 года. Добавлена поддержка USB3 и NVMe. Для получения полной информаций об интегрированных обновлениях и изменениях, читайте раздел "дополнительная (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B95CF07F5FEE9970BD2ECA42FD87B785475E6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285411   (720380) от 26.02.2019
-
-Зелёная книга / Green Book (2018) WEBRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утонченный светский лев, богатый и талантливый музыкант нанимает в качестве водителя и телохранителя человека, который менее всего подходит для этой работы. Тони «Болтун» — вышибала, не умеющий держать рот на замке и пользоваться столовыми приборами, зато он хорошо работает кулаками. Это турне навсегда изменит жизнь обоих.
-Основано на реальных событиях.Производство: США / Participant Media, DreamWorks, Amblin PartnersЖанр: Драма, Комедия, БиографияРежиссер: Питер ФарреллиАктеры: Вигго Мортенсен, Махершала Али, Линда Карделлини, Себастьян Манискалко, Димитар Маринов, Майк Хаттон, П.Дж. Бирн, Джозеф Кортезе, Мэгги Никсон, Фон ЛьюисПеревод: Дублированный (iTunes), многоголосый закадровый (HDRezka Studio)Субтитры: Русские (полные)Продолжительность: 02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99493727A9DBC6ECA8E476BBE0ED46E9246399DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790261   (719730) от 28.05.2014
-
-Трудно быть Богом (2013) BDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия / Ленфильм, Студия СеверЖанр: Драма, ФантастикаРежиссер: Алексей ГерманАктеры: Леонид Ярмольник, Юрий Цурило, Наталья Мотева, Александр Чутко, Евгений Герчаков, Валентин Голубенко, Пётр Меркурьев, Олег Ботин, Константин Быков, Юрий ДумчевПеревод: Не требуетсяПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31939742AD7C4C889CAE0F0582E303F27863AE8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761834   (719688) от 28.05.2014
-
-Ганнибал / Hannibal (2014) WEB-DLRip (Сезон 2 полный (13 серий)) (Sony Sci-Fi)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилл Грэхэм — одарённый профайлер, который вместе с ФБР разыскивает серийного убийцу. Уникальный способ мышления Грэма дает ему удивительную способность глубоко проникаться чувствами другого человека, даже психопата. Он может понять, что ими движет. Но когда ум преследуемого убийцы оказывается слишком сложным, он прибегает к помощи доктора Лектера, одного из ведущих (   Читать дальше...   )Жанр: Детектив, криминал, драмаРежиссер: Тим Хантер, Майкл Раймер, Дэвид СлэйдАктеры: Мадс Миккельсен, Хью Дэнси, Каролин Давернас, Лара Жан Чоростецки, Аарон Абрамс, Лоренс Фишбёрн, Эттьенн Парк, Скотт Томпсон, Торианна Ли, Демор Барнс и др.Перевод: Профессиональный многоголосый закадровый - Sony Sci-FiФормат: AVIПродолжительность: ~ 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1916A8B385B6B08D568377510B6DF84404A12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218786   (718977) от 11.04.2018
-
-Daum PotPlayer 1.7.10667 Stable RePack (& portable) by 7sh3 (06.04.2018) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCAB73F4B994050DBA813D60560DD42C921EFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

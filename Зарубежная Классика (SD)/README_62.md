@@ -1,3 +1,109 @@
+###  Публикация: 918685   (576781) от 24.07.2015
+
+Поднять Титаник / Raise the Titanic (1980) DVDRip [AVO]
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приключенческая драма, построенная на том, что могло бы быть, если бы было принято решение поднять затонувший в начале столетия "Титаник". Фильм подробным образом рассказывает о процедуре поднятия корабля из его подводной могилы. Наибольший интерес представляют съемки в открытом море.Производство: США, ВеликобританияЖанр: Боевик, триллер, драма, приключенияРежиссер: Джерри ДжеймсонАктеры: Джейсон Робардс, Ричард Джордан, Дэвид Селби, Энн Арчер, Алек Гиннесс, Бо Брундин, М. Эммет Уолш, Дж.Д. Кэннон, Норман Бартольд, Илья БаскинПеревод: Авторский (Гаврилов)Продолжительность: 01:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C5E343039EB4DF4CB771D2488503704D19E3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797569   (576681) от 24.07.2015
+
+Пан Володыевский / Pan Wolodyjowski (1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДрамаРежиссер: Ежи Гофман / Jerzy HoffmanАктеры: Тадеуш Ломницкий, Мечислав Павликовский, Барбара Брыльска, Ханка Белицка, Ирена Карель, Магдалена Завадску, Ян Новицки, Даниэль Ольбрыхский, Мариуш Дмоховский, Владислав Ханьча, Тадеуш Шмидт, Бруно Оя, Марек ПерепечкоПеревод: ДублированныйПродолжительность: 02:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A662AD3AD0A1D75F3D87E78E017E3B1CF69DD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916541   (576678) от 24.07.2015
+
+Потоп / Potop (1974) DVDRip
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Историческая эпопея Генрика Сенкевича, охватывающая события XYII века войны Речи Посполитой со шведами. Сложно складываются отношения главных героев Анджея Кмитица и Оленьки Биллевич. Волею судьбы Кмитиц связан клятвою с отступником Гетманом. Он оказывается в стане врагов и вынужден воевать против своих. Друзья считают его предателем, Оленька отказывается от него, (   Читать дальше...   )Производство: Польша, СССРЖанр: Драма, история, военный, приключенияРежиссер: Ежи ГоффманАктеры: Даниэль Ольбрыхский, Малгожата Браунек, Тадеуш Ломницкий, Казимеж Вихняж, Владислав Ханьча, Лешек Телешиньский, Рышард Филипский, Веслава Мазуркевич, Франчишек Печка, Леслав ЯницкийПеревод: ДублированныйПродолжительность: 2 х ~ 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F6B0DA702781B9E4B3CA2456C1E373A0B4DC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526621   (576201) от 26.07.2012
+
+Эммануэль / Emmanuelle (1974) ВDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первый фильм о жрице любви Эммануэль. Сюжет служит канвой для описания сексуальных похождений героини в Юго-Восточной Азии.
+
+Муж Эммануэль, работающий в посольстве, поощряет в ней стремление к раскрепощенности в сексе, благо весь дипломатический корпус, особенно женщины, изнывают от скуки. За её воспитание берется уже пожилой специалист. Эммануэль делает большие успехи в искусстве любви.Жанр: Драма, ЭротикаРежиссер: Жюст ЖэкинАктеры: Ален Кюни, Сильвия Кристель, Марика Грин, Даниэль Сарки, Жанна Коллетен, Кристин Буассон, Саманта, Габриэль Бриан,ГрегориПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: ОтсутствуютПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBCCF2C253373BD083CE3FCB406C65C0767FF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041087   (576141) от 14.08.2016
 
 Битва на Перевале Апачей / The Battle at Apache Pass (1952) DVDRip [H.264] [VO]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,113 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19BF66CA65CBB473B6CC145CD2255031BBC00955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916739   (571338) от 27.07.2015
-
-Дикарь / Le sauvage (1975) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелли и Мартен случайно повстречались в Каракасе. Он помог ей сбежать от жениха, за которого она передумала выходить замуж, и отвёз в аэропорт, чтобы она уехала из Венесуэлы. Однако Нелли не захотела покидать своего спасителя. Обманом она проникла на остров, где он жил в полном одиночестве, и теперь им предстоит провести вместе несколько дней...Производство: Франция, ИталияЖанр: Драма, мелодрама, комедия, приключенияРежиссер: Жан-Поль РаппноАктеры: Ив Монтан, Катрин Денёв, Луиджи Вануччи, Тони Робертс, Бобо Льюис, Дана Уинтер, Габриэль Каттан, Вернон Добчефф, Луис Херардо Товар, Джефри Кэри, Тони Маэстри, Рина Франкетти, Луиза Марис, Аврора Марис, Густаво Бланко, Пегги РомероПеревод: Профессиональный многоголосыйПродолжительность: 01:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2B064861CD10440D85BA2EF970B0DEE2840B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361733   (571128) от 13.07.2011
-
-Троих нужно убрать / 3 hommes a abattre (1980) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный картежник Мишель Жерфо, возвращаясь темной ночью домой, замечает раненого человека. Не раздумывая, он отвозит его в больницу, но внезапно понимает, что попал в западню: за ним следят. Мишель выбирает игру ва-банк и решает выяснить, кто же стоит за преступлением, невольным свидетелем которого он стал.
-
-Разведав про мафию торговцев оружием, он подставил (   Читать дальше...   )Жанр: Боевик, Драма, КриминалРежиссер: Жак ДереАктеры: Ален Делон, Далила Ди Лаззаро, Мишель Оклер, Паскаль Робер, Лин Шардонне, Жан-Пьер Даррас, Бернар Ле Кок, Франсуа Перро, Андре Фалькон, Феодор АткинПеревод: ДублированныйПродолжительность: 01:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6F8076B299DD59717CDF60E9B6C875C3DF6961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233499   (570615) от 05.07.2018
-
-Убийца / Le tueur (1971/1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комиссар полиции разыскивает сбежавшего из тюремной психушки убийцу Гассо, оставляющего за собой кровавый след из мертвых тел. Тем временем Гассо влюбляется в проститутку-немку, сидевшую в концлагере, и они оба мечтают уехать в солнечную Южную Америку. Комиссар все уже смыкает кольцо, а Гассо звереет, уничтожая всех, с кем соприкасается.Производство: Франция, Италия, Германия (ФРГ) / C.O.F.C.I., Europa Films, Gafer, Mondial Televisione Film, Rialto FilmЖанр: Драма, КриминалРежиссер: Дени де Ля ПателльерАктеры: Жан Габен, Фабио Тести, Уши Глас, Бернар Блие, Жак Ришар, Жерар Депардье, Феликс Мартен, Жинетт Гарсен, Филипп Валлори, Сади Реббо, Жак Дебари, Жорж СтакеПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF3BCD9C6C7F200AAD5A4DF22C0790E905EE2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040802   (570212) от 17.08.2016
-
-Секс и незамужняя девушка / Sex and the Single Girl (1964) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570212.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Хелен Герли Браун.
-Редактор «желтого журнала» «Стоп» Боб Вестон процветает! Чем скандальнее его статьи — тем в больший экстаз впадают главный редактор и редколлегия! Последним его «шедевром» стало исследование книги молодого психолога, очаровательной Хелен Браун. Ей 23 года, она не замужем и при этом пустилась в книге в исследования любви, секса и семейной (   Читать дальше...   )Производство: США. Fernwood Productions Inc., ReynardЖанр: КомедияРежиссер: Ричард Ричард КуайнАктеры: Тони Кертис, Натали Вуд, Генри Фонда, Лорен Бэколл, Мэл Феррер, Фран Джеффрис, Лесли Пэрриш, Эдвард Эверетт Хортон, Ларри Сторч, Стабби КэйПеревод: Двуголосый, одноголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C16CC337FD78F44D3392102B02DA161452FFB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1451064   (1022420) от 06.04.2021
+
+Дама с камелиями / Camille (1984) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+По роману Александра Дюма-сына.
+История любви парижской куртизанки Маргариты Готье и молодого аристократа Армана Дюваля. Сюжет романа во многом близок к реальной истории его автора и модной парижской куртизанки, известной в Париже как «дама с камелиями»Производство: Великобритания, США / Hallmark Hall of Fame ProductionsЖанр: Драма, МелодрамаРежиссер: Десмонд ДэвисАктеры: Грета Скакки, Колин Фёрт, Джон Гилгуд, Билли Уайтлоу, Патрик Райкарт, Денхолм Эллиот, Бен Кингсли, Лила Кэй, Роналд Пикап, Рейчел КемпсонПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBF34AE0C0A80F2466D3A6FF21CE28AB79092CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452315   (1022046) от 08.04.2021
+
+Стрелок из Спрингфилда / Springfield Rifle (1952) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+США, 1864 год. Союзная армия нуждается в лошадях, чтобы начать наступление против Юга. Офицеры в Форте Хедли в Колорадо, во главе с подполковником Хадсоном, не могут выполнить задачу по перегону лошадей из форта, окруженного горами, на равнину.
+Несмотря на все предосторожности и секретные тропы, по которым следуют Союзные конники, неизвестные налетчики, сочувствующие (   Читать дальше...   )Производство: США / Warner Bros. Pictures.Жанр: Вестерн, ВоенныйРежиссер: Андре Де ТотАктеры: Гэри Купер, Филлис Такстер, Дэвид Брайан, Пол Келли, Филип Кэри, Лон Чейни мл., Джеймс Милликэн, Гуинн «Биг бой» Уильямс, Алан Хейл мл., Мартин МилнерПеревод: Многоголосый профессиональный, "Светла"Субтитры: Английские (Full, SDH)Продолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360157B2CAA9DD53FB11EC1C923BD0B9759931AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452401   (1021914) от 09.04.2021
+
+Даже по-аргентински / Down Argentine Way (1940) WEB-DLRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Молодой отпрыск богатого аргентинского конезаводчика Риккардо приезжает в Нью-Йорк, чтобы продать некоторых призовых лошадей из конюшни своего отца. Отец Дон Диего Кинтана, в виде напутствия, дал жесткое указание не продавать лошадей семье Кроуфорд, чей представитель его когда-то обманул. И надо же было такому случиться, что Риккардо знакомится и влюбляется как раз (   Читать дальше...   )Производство: США, 20th Century Fox Film CorporationЖанр: Мюзикл, драма, мелодрама, комедияРежиссер: Ирвинг КаммингсАктеры: Дон Амичи, Бетти Грэйбл, Кармен Миранда, Шарлотта Гринвуд, Дж. Кэролл Нейш, Генри Стивенсон, Кэй Элдридж, Леонид Кински, Крис-Пин Мартин, Роберт КонуэйПеревод: Многоголосый профессиональный (Светла)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF18F0CDC7EE13832D1E3BE7899BD67E41000E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452593   (1021711) от 10.04.2021
+
+Копи царя Соломона / King Solomon's Mine (1950) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Занимательные приключения белого охотника, ведущего отряд через Африку в поисках пропавшего мужа леди. Он пропал, когда отправился на поиски легендарных алмазных копей царя Соломона. Великолепные съемки в живописных уголках черного континента, много действия - удовольствие для всех и сейчас. Поставлен фильм по мотивам романа Хенри Райдера Хаггарда...Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Мелодрама, ПриключенияРежиссер: Комптон Беннетт, Эндрю МартонАктеры: Дебора Керр, Стюарт Грейнджер, Ричард Карлсон, Хуго Хаас, Лоуелл Гилмор, Кимурси, Сириаке, Секарьонго, Базига, Мунто АнампиоПеревод: Многоголосый профессиональныйСубтитры: ФранцузскиеПродолжительность: 01:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E678EACBD0298F2090867D452B5845590A1077C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 69057   (1021698) от 10.04.2021
 
 Ангелы ада / Hell's Angels (1930) DVDRip
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,112 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:978B55BEE8743526F57E9473C53CC3A3A0AB43AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459540   (1017907) от 03.05.2021
-
-Дон Жуан / Don Juan (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017907.jpg" />
-</div>
-
-
-###  Подробнее
-
-После очередного любовного приключения Дону Жуану грозит смертная казнь. Его слуга Сганарель вынужден выдать себя за своего господина, чтобы спасти ему жизнь. Сганарель становится настоящим героем-любовником!
-Но как не просто быть донжуаном, когда всю жизнь был всего лишь скромным слугой… Вместо своего хозяина неуклюжий Сганарель вынужден скрываться не только от (   Читать дальше...   )Производство: Франция, Испания, Италия / Da.Ma. Cinematografica, Les Films du Cyclope, Producciones Benito Perojo S.A.Жанр: КомедияРежиссер: Джон БерриАктеры: Фернандель, Кармен Севилья, Ролан Армонтель, Симона Пари, Кристина Карер, Хосе Сепульведа, Маноло Гомес Бур, Робер Ломбар, Мишлин Дэкс, Теофило ПалоуПеревод: Дублированный, киностудия «Мосфильм»Субтитры: ОтсутствуютПродолжительность: 01:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6368C4C323907A7A1312EAFE0A4EA71F5DF6745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459419   (1017898) от 03.05.2021
-
-Следствие с риском для жизни / L'avvertimento (1980) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принципиальный комиссар полиции Бареззи неожиданно обнаруживает на своём банковском счету невесть откуда взявшуюся крупную сумму денег. Вскоре он получает анонимный телефонный звонок, где неизвестный голос «рекомендует» ему отработать полученный авансом «гонорар» соответствующим образом. Вскоре Бареззи выясняет, что деньги ему были перечислены за то, чтобы он закрывал (   Читать дальше...   )Производство: Италия / Capital FilmsЖанр: Драма, КриминалРежиссер: Дамиано ДамианиАктеры: Мартин Болсам, Джулиано Джемма, Джон Карлсен, Гвидо Леонтини, Марчелло Мандо, Франко Одоарди, Джулиан Дженкинс, Лаура Троттер, Джанкарло ЗанеттиПеревод: Дублированный (к/ст им. М. Горького)Субтитры: Русские, внешние (только на не переведенные фрагменты)Продолжительность: 01:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1695353A3C2D17632AC99D5AC6668D6B2C1629F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 287890   (1017657) от 04.05.2021
-
-Если бы у меня был миллион / If I Had a Million (1932) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017657.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам книги Роберта Эндрюса "Нежданные деньги, роман о десяти миллионах долларов" (Windfall, a novel about ten million dollars). Умирающий миллионер, окруженный толпой жадных наследников, придумывает способ употребить свои деньги с пользой: раздать случайным людям, выбранным наугад из телефонной книги. Однако не каждому из "счастливчиков", (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: Драма, комедияРежиссер: Джеймс Круз , Х. Брюс Хамберстоун, Эрнст Любич, Норман З. МакЛеод, Стивен Робертс, Уильям А. Сайтер, Норман Торог, Лотар МендезАктеры: Гэри Купер, Чарльз Лотон, Джордж Рафт, Джек Оуки, Ричард Беннетт, Чарльз Рагглз, У.К. Филдс, Мэри Боланд, Роско Карнс, Мэй Робсон, Ирвинг Бэйкон, Эдди Бэйкер, Реджинальд Барлоу, Клара Т. Брэйси, Гарри Брэдли, Боб Барнс, Джеймс П. Бёртис, Джеймс Буш, Артур С. Байрон, Бертон Черчилль, Уоллис Кларк, Джойс Комптон, Сесил Каннингэм, Фрэнсис Ди, Бесс Флауэрс.Перевод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649E9C4261FED4DC9061803F5EFEECFD0B53B9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459892   (1017529) от 05.05.2021
-
-Мы не ангелы / We're No Angels (1955) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкая, развлекательная комедия. Трое заключенных с Острова Дьявола изображают Санта-Клауса в семье, которую они пришли ограбить.
-Вся троица отсиживала пожизненные сроки, и терять им нечего: Джозеф за фальшивомонетчество, а двое других — за убийство. Семейство же они застают переживающим трудности, которые никак не подходят к Рождеству.Производство: США / Paramount PicturesЖанр: Мелодрама, Комедия, КриминалРежиссер: Майкл КёртицАктеры: Хамфри Богарт, Альдо Рэй, Питер Устинов, Джоан Беннетт, Бэзил Рэтбоун, Лео Г. Кэрро, Джон Баэр, Глория Тэлботт, Лиа Пенман, Джон СмитПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521C3372546F37C2A99E41D650A4B7498D1F6683
 ```
 
 https://mybot314.ru/tekegram_catalog/

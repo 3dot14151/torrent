@@ -1,3 +1,29 @@
+###  Публикация: 1740937   (47891) от 04.08.2024
+
+Chicken Game (2024) [Multi] (1.0.0) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Chicken Game - это интерактивная история, что показывает приключения протагониста по имени Баро, который был неожиданно приглашен на программу по подбору пары. В ней участвуют четыре женщины и трое мужчин, которые выбирают себе партнеров по вкусу. Однако Баро не хватает обаяния по сравнению с другими участниками-мужчинами, что делает его непопулярным среди женщин. (   Читать дальше...   )Тип издания: SceneРазработчик: Lee Dae YoungЖанр: СимуляторыЯзык озвучки: КорейскийЯзык субтитров: Английский, Японский, Корейский, Китайский и другиеЯзык интерфейса: Английский, Японский, Корейский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F50E128D2938919A72A1C204C1109610276B261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740905   (47857) от 04.08.2024
 
 Rising Star 2 (2020) [Multi] (1.0) Scene TiNYiSO
@@ -6,7 +32,7 @@ Rising Star 2 (2020) [Multi] (1.0) Scene TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Super Life (RPG) (2019) [En] (2.2) Scene TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ UBOAT (2019) [Ru/Multi] (2024.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Closer the Distance (2024) [Multi] (1.0) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.8.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ House Flipper 2 (2023) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Truck & Logistics Simulator (2023) [Ru/Multi] (1.02) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Contraband Police (2023) [Ru/Multi] (1.0.5.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Bee Island (2023) [Ru/Multi] (20240805) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Zoo Simulator (2024) [Ru/Multi] (1.00.23) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ My Recycling Center (2024) [Multi] (1.2/dlc) Scene TinyISO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.2.0.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ KitHack Model Club (2024) [En] (1.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Fishing Adventure (2019) [Ru/Multi] (20230814/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Pawn Simulator (2024) [Multi] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.2D) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Just Crow Things / Вредные вороны (2024) [Ru/Multi] (1.0) Scene Ten
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ ICARUS (2021) [Ru/Multi] (2.2.16.125988/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ The Crush House (2024) [Multi] (1.1.9679) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Tokyo Coffee: Grinding in the Pandemic (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Outlanders (2023) [Ru/Multi] (20240822/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Beach Club Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Office Fight (2024) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C55D609601C3B757CCEA60BF6C811E16A5E91DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746224   (45155) от 30.08.2024
-
-Just Xiangqi / Сянци (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just Xiangqi - увлекательное цифровое воплощение вековой китайской шахматной игры, известной под названием Xiangqi или слоновые шахматы. Эта традиционная игра, пришедшая из древнего Китая, представляет собой увлекательное испытание стратегии и интеллекта с использованием красных и черных круглых фигур на квадратной доске. Главная задача в "Сянци" - обойти (   Читать дальше...   )Тип издания: SceneРазработчик: Studio AmateurЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: Английский, КитайскийЯзык субтитров: Английский, Японский, Китайский и другиеЯзык интерфейса: Английский, Японский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE6C126C6F018543B590CE352C7EA82EEB49ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

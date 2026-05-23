@@ -1,3 +1,160 @@
+###  Публикация: 1029530   (681955) от 26.06.2016
+
+VA - Hits of My Soul Vol. 02 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond Feat. Zoe Johnston - We're All We Need (Album Mix) (04:23)
+02. Russell G & Shadow Of Two - Neon (Original Mix) (05:45)
+03. Worakls - When The Birds Go In The Wrong Way (06:55)
+04. Bryan Milton ft. Ana Criado - Afterglow (Original Mix) (06:04)(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 03:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F6B2B8F94AB5AE12060593406A254728A3D47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289857   (681796) от 18.03.2019
+
+VA - Empire Records - Red Star 6 (2019) [MP3|320 Kbps] <Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda Dreams - Warp Drive
+02. Dance With The Dead - Entity
+03. The Gates Of Hell
+04. Galactic Warriors - Mysterious World(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D16ECABF3B3BFEB6243771B8DAEDA207624BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508117   (681751) от 09.06.2012
+
+VA - Trance Mixtape (Flaming June) (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rank 1 & Jochen Miller Feat. Sarah Bettens - Wild And Perfect Day (Darwin & Backwall Remix) [4:59]
+ 02. Evol Waves - Nobody Knows (Original Mix) [5:15]
+ 03. Marcus Schossow - Never Say Never (Original Mix) [6:03]
+ 04. Sean Tyas - Lekta (Original Mix) [6:09]
+ 05. Ashley Wallbridge - Zorro (Club Mix) [5:41]
+ 06. Xtigma Feat. Sarah Russell - Take Your Hand (Michael Badal Remix) [5:36]
+ 07. Ferry Corsten - Live Forever (Shogun Remix) [6:49]
+ 08. Maarten De Jong - Messier (Extended Mix) [5:38]
+ 09. Poshout Feat. Ange - Beside (Extended Mix) [6:52]
+ 10. Simon Patterson - Northern Lights (Original Mix) [7:04](   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C51E5F3B7159461EE3FF4BF059ABF96266784A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507975   (681445) от 09.06.2012
+
+VA - Trance In Motion vol.117 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Fast Distance - Alpine (Karanda Intro Remix)
+02.Bobina - Quattro 372 (Original Mix)
+03.Evol Waves - Nobody Knows (Original Mix)
+04.Gareth Emery - The Saga (Original Mix)
+05.Michael Angelo feat. Melissa Loretta - Hearts Unspoken (Original Mix)
+06.Mike Shiver feat. Bo Bruce - Still Here (Carl Louis & Martin Danielle Remix)
+07.Orjan Nilsen - Endymion
+08.Wezz Devall - Stadium (Original Mix)
+09.Ferry Corsten - Live Forever (Extended)
+10.Nuera feat. Szen - Stuck(   Читать дальше...   )2012Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30B842A021D714C8E0BE8331C532BD7429142FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135402   (681195) от 19.05.2017
+
+VA - Synthetic  vol.5 (2017) [MP3|219-320 Kbps] <Synth Pop, EBM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Argh - No Romance (04:08)
+02. Conmutadores - Interestelar (03:44)
+03. Eisfabrik - The Survival Of The Strongest Mind (04:06)
+04. Nordika - Revolution (03:50)(   Читать дальше...   )Жанр: Synth Pop, EBMПродолжительность: 01:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26045307401C79285CB638469CF516FC00C2B5DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029417   (680356) от 27.06.2016
 
 VA - Future Trance Energy 001 June TOP (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Melodic>
@@ -6,7 +163,7 @@ VA - Future Trance Energy 001 June TOP (2016) [MP3|320 кб/с] <Trance, Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +192,7 @@ VA - The Best of Trance 47 (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +221,7 @@ VA - Trance Hot June Paradise (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +250,7 @@ VA - YR Best Chillout Vol.43 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +279,7 @@ VA - Microversion Live To Exist: Psy Trance (2017) [MP3|320 Kbps] <Psy-Trance, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +308,7 @@ VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +337,7 @@ VA - Electronic Toys (A Retrospective Of 70's Synthesizer Music) (1996) CD [MP3|
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +366,7 @@ VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +395,7 @@ VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Futu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +424,7 @@ VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +450,7 @@ VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +479,7 @@ VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +508,7 @@ Dj DAN62 - Унц Унц Микс Июнь Часть 2 (2016) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +537,7 @@ VA - 150 Underground Hits Check Story (2016) [MP3|237-320 Kbps] <Funky, Club, So
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +566,7 @@ VA - Hot Party Summer (2016) [MP3|320 Kbps] <Latin, Electronic, Dancehall>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +595,7 @@ VA - 150 In Style Trance Melodic Showing (2016) [MP3|320 Kbps] <Trance, Upliftin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +624,7 @@ Dj DAN62 - Унц Унц Микс Июнь Часть 1 (2016) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +653,7 @@ VA - Turbo Dance. Mix Music (2016) [MP3|233-320 Kbps] <Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +682,7 @@ VA - YR Best Chillout vol.42 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +711,7 @@ VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +740,7 @@ DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,151 +751,6 @@ DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290489   (678371) от 20.03.2019
-
-VA - YR Best Chillout Vol.41 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seven24 & Soty feat. Maria Opale - Don't You Cry (Alexander Volosnikov Remix) 4:59
-002. Rank1 - Airwave (Vyacheslav Sketch Remix) 5:49
-003. Aurosonic feat. Katty Heath - My Good Place (Mark Otten Downtempo Remix) 7:00
-004. Vyacheslav Sketch - Forever (Original Mix) 4:13(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, Ambient, ElectronicaПродолжительность: 06:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6A4554FA17F21009B4D923ACD1D50B80B35322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290484   (678357) от 20.03.2019
-
-VA - YR Best Chillout Vol.40 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. SolarFlow - My Blue Sea (Original Mix) 3:56
-002. Jonathan Mendelsohn feat. Jason Ross & Seven Lions - Ocean (Grant Remix) 3:30
-003. Nastya Kazantseva - Nice Dream (Original Mix) 3:11
-004. Алла Пугачёва - Журавлик (Lasteden Chillout Remix) 3:47(   Читать дальше...   )Жанр: Downtempo, Chillout, Balearic, Lounge, ElectronicaПродолжительность: 06:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538C6FD64BFB4DF8195239F6E980CCBA66B51FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290431   (678355) от 20.03.2019
-
-VA - Inferno Techno Electronics (2019) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678355.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joеl Jungеll -Astrаl
-002. Asс -Stаsis
-003. Hаrd Drivеr -Thаnk Mе Lаtеr (Extеndеd Mix)
-004. Boston 168 -Psу Wаvеs(   Читать дальше...   )Жанр: TechnoПродолжительность: 11 :42 :13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4833D0324BA5A1AE17BC9F4B55C310C96E487CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029883   (678329) от 28.06.2016
-
-VA - Diskoteka Club Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2Pac - California Love (Yastreb Radio Edit)
-02. Alan Walker vs Kyfra & Dastic - Sing Me To Sleep Magic (Fabien Jora Festival Mashup)
-03. Andrey Exx, Troitski feat. Diva Vocal - Touch me (No Hopes & Sharapoff Remix)
-04. Artelax vs. D.O.D, Afrojack - Acid Back (Night & Toni Aries Mashup)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4569A7D976198CD92F7E7CBD76EFCB7D327BD3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029736   (678328) от 28.06.2016
-
-Psy Trance Workout Music - Top 100 Burn Remixes 6hr DJ Mix (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Start Taking Tiny Steps, Feet Meet Hands (145bpm Psy Trance Burn Workout DJ Mix Edit) 3:05
-002. Inchworm (145bpm Psy Trance Burn Workout DJ Mix Edit) 3:26
-003. Stand up Tall (145bpm Psy Trance Burn Workout DJ Mix Edit) 3:12
-004. Legs Straight (145bpm Psy Trance Burn Workout DJ Mix Edit) 3:12(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 07:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B81B3D0571AE7DBCFEEE55B699BF903A9CA41F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

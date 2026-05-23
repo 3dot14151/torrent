@@ -1,3 +1,81 @@
+###  Публикация: 1685268   (127306) от 18.12.2023
+
+Погода Россия XL 1.5.4.7 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это просто лучшее приложение прогноза погоды для вашего региона и всего мира.Тип издания: UnlockedРелиз состоялся: 13.12.23Разработчик: ExovoidПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A95E995362E002ED1A1691E621472A2A434EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685427   (127279) от 18.12.2023
+
+Слова из Слов v11.0.3 Mod by viktorovich31 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Слова из Слов – игра головоломка, покорившая миллионы игроков по всему миру. Ее принцип знаком многим еще с детства - составить слова из слова. Если ты любишь отгадывать слова, разгадывать кроссворды, головоломки и прочие игры для ума, то эта игра на поиск слов тебе определенно понравится! Ты даже можешь устроить батл слово за слово со своими друзьями - отгадай слово (   Читать дальше...   )Тип издания: Premium / AdfreeРелиз состоялся: 19.11.2023Разработчик: Uga DoogaПоддерживаемая ОС: Android 6.0+Жанр: Словесные игрыЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE636762054723743B811E7DB6D1670DD4934487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685391   (127275) от 18.12.2023
+
+RS Explorer / RS Проводник 2.0.8 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+RS Проводник - запросто поможет вам в управлении вашими файлами и пространством на вашем смартфоне. При помощи этого приложения, вы сможете запросто управлять всеми файлами, что находятся на вашем смартфоне. Кроме функции управления файлами, приложение поможет вам освободить дополнительное пространство на смартфоне. С этим приложениям вы, также, сможете разархивировать (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.12.2023Разработчик: RS Mobile GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654615   (127019) от 20.12.2023
 
 Цифровое ТВ v3.7.0 Mod by vadj [Ru]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +165,7 @@ Xodo PDF - Ридер и Редактор 8.9.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +191,7 @@ Plus Messenger (Telegram+) v10.3.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +217,7 @@ Xodo PDF - Ридер и Редактор 8.9.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +243,7 @@ CamToPlan / Рулетка измерительна v4.2.1 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +269,7 @@ Word Learn Languages v5.7 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +295,7 @@ Photo Lab PRO v3.12.84 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +321,7 @@ Magic Eraser / Магический ластик v2.23.22 Mod by Maximoff⁠ [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +373,7 @@ One Read / Все Документы Читатель - Офис v1.2.6 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +452,7 @@ Mirror Lab v2.6.9.4 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +531,7 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2025.09.55
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +557,7 @@ Ventusky: Прогноз погоды v48.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +609,7 @@ Genius Art: Image AI Generator v1.5.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +636,7 @@ PhotoDirector v20.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +662,7 @@ PicWish: AI Photo Editor v2.2.0 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -596,87 +674,6 @@ PicWish — фоторедактор с искусственным (   Чита
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B493DD8119A0F1739121EF2DB4BB395AB6ABE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823303   (125768) от 11.10.2025
-
-Photomath v8.46.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь решать математические задачи, проверять домашние задания и готовиться к предстоящим экзаменам и экзаменам ACT / SAT с помощью самого популярного в мире учебного ресурса по математике. Более 100 миллионов загрузок и миллиарды решенных задач каждый месяц!Тип издания: FullРелиз состоялся: 10.10.2024Разработчик: Photomath, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68727B9CF21AE3CB8B3EEA67749101D13EAF8719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686795   (125496) от 27.12.2023
-
-Fishing Knots Pro / Рыбацкие узлы Pro v8.1.17 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125496.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Рыбацкие узлы" - это программа, показывающая как надо вязать узлы. Среди множества узлов рыбаку необходимо выбрать и использовать правильный. В каждом случае - он свой. Как сильно конкретный узел ослабляет леску? Какие узлы использовать для тонких рыболовных лесок, а какие - для толстых? Какие узлы вязать на плетенках? В справочнике собраны узлы для: связывания (   Читать дальше...   )Тип издания: Paid / FullРелиз состоялся: 24.12.2023Разработчик: MP FishПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F409771CA30BEC8969361440EC8D1F61003A2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683923   (124951) от 31.12.2023
-
-Tiny Scan: PDF Document Scanner 6.1.2 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124951.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinyScan превращает ваш смартфоне в портативный сканер. Сканы сохраняются в вашем смартфоне как изображения или PDF-файлы. Вы можете называть сканы и распределять их по папкам, или же делиться ими через:
-- E-mail
-- Dropbox, Evernote, Google Drive или Box
-- Wifi, загружая напрямую на ваш компьютер(   Читать дальше...   )Тип издания: ProРазработчик: Beesoft AppsПоддерживаемая ОС: 5.0+Язык интерфейса: Русский, Английский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C569353583F8FFB284D1D7601D11649DB140008
 ```
 
 https://mybot314.ru/tekegram_catalog/

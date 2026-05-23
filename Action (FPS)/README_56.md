@@ -1,3 +1,107 @@
+###  Публикация: 1805500   (12403) от 06.07.2025
+
+Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Shatterline - эпицентр апокалипсиса. Shatterline - это напряжённый и динамичный одиночный шутер от первого лица. Погрузитесь в мир взрывного действия, плавной и удовлетворяющей стрельбы, а также поразительных пейзажей, полных наград и смертоносных противников. Загадочный межзвёздный объект взорвался неподалёку от Земли, разметав огромные зазубренные (   Читать дальше...   )Тип издания: RepackРазработчик: Frag LabЖанр: Экшены, Шутеры от первого лицаЯзык озвучки: Английский, УкраинскийЯзык субтитров: Английский, Японский, УкраинскийЯзык интерфейса: Английский, Японский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4252AF349F6AEABF5F52CD984BD544169C1145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798925   (12201) от 08.07.2025
+
+Bloodshed (2024) [Ru/Multi] (1.0.14) Repack Let'sРlay
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Bloodshed - это захватывающий сплав элементов упрощенного рогалика с ретро-графикой и экшена от первого лица в стиле Survivors. Отражайте бесконечные волны нежити, собирайте очки опыта и улучшайте свои навыки и оружие, чтобы получить шанс пережить ночь. Заработанные тяжким трудом деньги останутся с вами даже после смерти. На них вы сможете приобрести постоянные улучшения (   Читать дальше...   )Тип издания: RepackРазработчик: com8com1 SoftwareЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5751D2C0444B26B3C6DA238F4AF5E2AD63777095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781415   (11971) от 10.07.2025
+
+Dying Light 2: Stay Human (2022) [Ru/En] (1.23.2/dlc) Repack seleZen [Reloaded Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива.Тип издания: RepackРазработчик: TechlandЖанр: Action, Open World, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABD72862F8E8437577BADC5E94547283E3649BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806810   (11469) от 15.07.2025
+
+Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы - стрелок в лимбе, воюющий с "Картелем" - безжалостной организацией, собирающей души, чтобы освободиться от оков загробной жизни. С каждым пробегом становитесь сильнее, собирайте сущность утраченных душ, чтобы противостоять самым опасным угрозам в этом Мире. Превратитесь в настоящего вестника смерти - самую опасную душу в Лимбе, обладающую воистину невероятной (   Читать дальше...   )Тип издания: LicenseРазработчик: Elder GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BDF7FAF923A7C125FEA6070B90E19F4617C847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548646   (11257) от 17.07.2025
 
 THE HOUSE OF THE DEAD: Remake (2022) [Ru/Multi] (1.1.3) License GOG [18+]
@@ -6,7 +110,7 @@ THE HOUSE OF THE DEAD: Remake (2022) [Ru/Multi] (1.1.3) License GOG [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Ready or Not (2023) [Ru/Multi] (Build 19222255/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Ready or Not (2023) [Ru/Multi] (88602/dlc) Repack FitGirl [LSPD Bundle - Censore
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.7.0.0/00.017.002/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.0.2.0/dlc) License GOG [Alex Murphy Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack seleZen [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Meat Fest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Vilde (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ TRAPPED (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack FitGirl [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Call of Duty: Modern Warfare (2019) [Ru/Multi] (8.67) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack EXROW [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Killing Floor 3 (2025) [Ru/Multi] (Build 19273238/dlc) Repack Other s [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Yaroslav98
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Call of Duty Modern Warfare Campaign (2019) [Ru/En] (8.67) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Decepticon [Campaign]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B523D720BDAB1F3F1FC75E258F2EFED58D0F2272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810327   (9480) от 03.08.2025
-
-Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нарушение приказа становится единственным выходом. Союзники превращаются во врагов. Это Call of Duty: Black Ops 6. ействие шпионского боевика Black Ops 6, разработанного Treyarch и Raven, происходит в начале 1990-х годов. Это время больших перемен в глобальной политике, вызванных окончанием холодной войны и возвышением США в роли единственной сверхдержавы мира. Вас (   Читать дальше...   )Тип издания: RepackРазработчик: Treyarch, Raven Software, Beenox, High Moon Studios, Activision Shanghai, Sledgehammer Games, Infinity Ward, DemonwareЖанр: Экшены, ШутерыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5CFB2408965EA7D1C21321045A6643D4CEDC11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810387   (9383) от 04.08.2025
-
-Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack seleZen
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9383.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-платформер с захватывающим сюжетом! Итак, элиты решили развлечь себя и устроили смертельное шоу. Суть этого состязания – участники, добровольно подписавшие контракт, оказываются в 850-метровой башне, которая закопана глубоко под землей и находится в неизвестном месте. Хардкорный режим – без контрольных точек и с таймером спидрана Обычный режим – частые контрольные (   Читать дальше...   )Тип издания: RepackРазработчик: Vanja AleksićЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE38B79CF0E2AA204E6BC35ABB5A726799109BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810561   (9249) от 05.08.2025
-
-Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9249.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-платформер с захватывающим сюжетом! Итак, элиты решили развлечь себя и устроили смертельное шоу. Суть этого состязания – участники, добровольно подписавшие контракт, оказываются в 850-метровой башне, которая закопана глубоко под землей и находится в неизвестном месте. Хардкорный режим – без контрольных точек и с таймером спидрана Обычный режим – частые контрольные (   Читать дальше...   )Тип издания: RepackРазработчик: Vanja AleksićЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BD54DB109007DADABAB4F1BFB6AE21901095DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761270   (9081) от 07.08.2025
-
-RIPOUT (2024) [Ru/Multi] (1.41:01) Repack Let'sРlay
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9081.jpg" />
-</div>
-
-
-###  Подробнее
-
-RIPOUT — это хоррор-шутер с режимом совместной игры. Игрокам предстоит пробиваться через переполненные мутантами заброшенные корабли, собирать добычу и развивать персонажа, преследуя главную цель - найти последнюю цитадель человечества. Найдете ли вы с вашей пушкой-Малышкой Святилище или погибнете вместе с другими землянами?Тип издания: RepackРазработчик: Pet Project GamesЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B82CC86A5C1A75B46A3FE5966A98A33560486C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1508233   (797941) от 07.11.2021
+
+Плохой кот Шерафеттин / Kotu Kedi Serafettin (2016) BDRip [H.264/1080p-LQ] [DVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Невероятно плохой кот Шерафеттин и его грязная банда, всегда попадают в различные неприятности. Наш герой самое настоящее дитя улицы, Шеро и его друзья последовали за тем, к чему стремится любой другой в их захудалом районе Стамбула: разврат с девушками, еда и алкогольная выпивка. Этот обычный на первый взгляд день, оказался очень особенным, так как их пути пересекаются (   Читать дальше...   )Производство: Турция / Anima Istanbul, Kare Kare Film YapimЖанр: мультфильм, фэнтези, боевик, комедияРежиссер: Mehmet Kurtulus, Ayse ÜnalПеревод: Любительский, двухголосый закадровый (datynet & Galina Vasyukova)Субтитры: отсутствуютПродолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20FE522B87EDC998476B17B0FAF949A84A343833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508272   (797893) от 07.11.2021
+
+Полярный экспресс / The Polar Express (2004) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Неожиданно в канун Рождества мальчик, не веривший в существование Санта-Клауса, получает возможность отправиться к нему в гости на Северный полюс. Во время путешествия на поезде «Полярный экспресс» юный герой находит новых друзей и получает полезный урок.Производство: США / Castle Rock Entertainment, Shangri-La Entertainment, PlaytoneЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключенияРежиссер: Роберт ЗемекисПеревод: Дублированный (Мосфильм-Мастер)Субтитры: Русские, английскиеПродолжительность: 01:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB22BAB306160F0852106FEF8930AFDFF5FCED18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508482   (797401) от 08.11.2021
+
+Приключения мистера Пибоди и Шермана / Mr. Peabody & Sherman (2014) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мистер Пибоди - бизнесмен, изобретатель, ученый, нобелевский лауреат, гурман, двукратный олимпийский чемпион и гений… который кроме всего прочего является собакой. При помощи своего самого неординарного изобретения - машины ВЕЙБЕК - мистер Пибоди и его приемный сын Шерман мгновенно перемещаются в прошлое, где становятся свидетелями самых важных исторических событий (   Читать дальше...   )Производство: США / Bullwinkle Studios, Classic Media Productions, DreamWorks AnimationЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Роб МинкоффПеревод: ДублированныйСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88B6414BDA22E24738557ED10F9A8BA8166D58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200641   (795453) от 21.01.2018
 
 Стань легендой! Бигфут Младший / The Son of Bigfoot (2017) Blu-Ray [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9959868FFFE1F5C216117EE3E37235008482742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202555   (789702) от 29.01.2018
-
-Hey Arnold: The Jungle Movie / Эй, Арнольд! Приключения в джунглях (2017) WEB-DL [H.264/1080p-LQ] Train Studio
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм является продолжением последнего эпизода, «Дневник» (The Journal), мультсериала «Эй, Арнольд!» в конце которого Арнольд находит карту и решает отправиться в джунгли на поиски своих родителей.Производство: США / Nickelodeon Animation StudiosЖанр: Комедия, Приключения, СемейныйРежиссер: Рэйми Музкиз, Стюарт ЛивингстонАктеры: Мэйсон Коттон, Бенжамин Флорес мл., Франческа Смит, Крэйг Бартлетт, Антониетта Стелла, Дэн Кастелланета, Тресс МакНилл, Морис ЛаМарш, Джет Юргенсмейер, Карлос Аласраки и др.Перевод: Многоголосый закадровый, профессиональный - Train StudioСубтитры: АнглийскиеПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6492D7EE14CF2373A4CCB8FED5E14034FC18CD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510933   (789608) от 19.11.2021
-
-Руины / Ruin (2012) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789608.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем, когда города разрушились и были поглощены дикой природой, мы присоединяемся к одинокому человеку, исследующему руины компании Хэйвен Наносистемс. Обнаружив закрытый контейнер, он, кажется, нашел то, что искал - информацию, имеющую отношение к закрытому на карантин корпусу "Б". Но, в этот момент героя обнаруживает дрон и начинается погоня...Производство: США / Attraktion Films, Oddball AnimationЖанр: Мультфильм, Короткометражка, ФантастикаРежиссер: Уэс БоллПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C054073F4710068A08FDA56A34E28B41EB92A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202663   (788925) от 31.01.2018
-
-Тайна Коко / Coco (2017) WEBRip [H.264/720p-LQ] [EN]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788925.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летний Мигель живёт в мексиканской деревушке в семье сапожников и тайно мечтает стать музыкантом. Тайно — потому что в его семейном клане музыка считается проклятием. Когда-то его прапрадед оставил свою жену, прапрабабку Мигеля, ради мечты, которая теперь не даёт спокойно жить Мигелю. С тех пор музыкальная тема в семье стала табу. Мигель обнаруживает, что между (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, Приключения, КомедияРежиссер: Ли Анкрич, Эдриан МолинаПерсонажи: Энтони Гонсалес, Гаэль Гарсиа Берналь, Бенджамин Брэтт, Аланна Юбак, Рене Виктор, Хайме Камиль, Альфонсо Арау, Херберт Сигенса, Габриэль Иглесиас, Ломбардо Бойяр ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC9BC37335A8CEE584C739A8FDA39263A79F1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

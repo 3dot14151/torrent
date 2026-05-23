@@ -1,3 +1,57 @@
+###  Публикация: 894306   (706741) от 02.05.2015
+
+Project K: Missing Kings | К: Пропавшие короли [2014, Movie] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После Происшествия на Школьном Острове, в котором участвовали четыре Короля, участники Серебряного клана, Куро Ятогами и Неко, всё ещё продолжают искать своего Короля. Уже почти отчаявшись найти хоть что-то, что поможет им найти своего лидера Сиро, парочка столкнулась с членами клана Хомура, которых преследовал таинственный незнакомец...
+
+Продолжение истории ТВ-сериала.Производство: студия GoHandsЖанр: приключения, мистикаРежиссер: Судзуки СингоПеревод: LeDi-MaHo TeamЯзык субтитров: РусскийПродолжительность: 73 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624B8D4BCF48A87E7F2F59D5A06885697E55F8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876523   (706394) от 06.05.2017
+
+Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ложь [2014, TV, 22] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Косэй Арима был вундеркиндом-пианистом, с малых лет выигравшим множество состязаний. Конечно, знатоки отмечали, что по стилю малыш скорее техник, чем виртуоз, и даже дали ему кличку «метроном», но судьи не считали это недостатком. Увы, в 11 лет Арима потерял мать – единственного учителя и наставника – и перестал слышать свою игру. Боль от потери преградила ему путь (   Читать дальше...   )Жанр: романтикаРежиссер: Исигуро Кёхэй / Ishiguro Kyouhei / 石黒恭平Перевод: Nachtwandler / AleX_MytH / UkerЯзык озвучки: ЯпонскийПродолжительность: 22 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD641FF267994326037573F07C9D0F03DC2EE6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 776720   (705829) от 04.06.2014
 
 Short Peace: Buki yo Saraba | Gambo | Hi no Youjin | Tsukumo [2012-2013, MV, 4 эп.] BDrip 1080p raw
@@ -6,7 +60,7 @@ Short Peace: Buki yo Saraba | Gambo | Hi no Youjin | Tsukumo [2012-2013, MV, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress | Кабанери из 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Hello!! Kin`iro Mosaic | Hello!! Golden Mosaic | Привет!! Золотая �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ Sakura Quest | Квест на фоне сакуры [2017, TV, 25 из 25] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +192,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +218,7 @@ Yama no Susume: Second Season | Encouragement of Climb: Second Season | В го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +244,7 @@ Endride | Эндрайд | Скиталец Эндры [2016, TV, 24 из 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +271,7 @@ B-Project: Kodou Ambitious | Проект Б: Амбициозное биени�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +297,7 @@ B-Project: Zecchou Emotion | B-Project: Zeccho*Emotion | Проект Б: Кул
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +323,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +377,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и та
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +429,7 @@ Gakusen Toshi Asterisk | The Asterisk War | Войны Астериска [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +455,7 @@ Crusher Joe / Крушила Джо - Фильм [1983, Movie] BDRip 1080p HEVC 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +481,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +507,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +533,7 @@ Kenpuu Denki Berserk | Berserk | Берсерк [1997, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +561,7 @@ Kowarekake no Orgel | Half-Broken Music Box | Полусломанная муз�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +587,7 @@ Steins;Gate: Kyoukaimenjou no Missing Link - Divide By Zero / Врата Ште�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +614,7 @@ Kuusen Madoushi Kouhosei no Kyoukan / Sky Wizards Academy / Инструктор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +640,7 @@ Show by Rock!! | Рок-шоу! [2015, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +666,7 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Весё�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,58 +677,6 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Весё�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B71C2777F7000CA13CA45E69F8246180E6403C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535311   (686433) от 06.03.2022
-
-Chikyuugai Shounen Shoujo | The Orbital Children | Дети на орбите | Внеземные мальчики и девочки [2022, Web, 6 из 6] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686433.jpg" />
-</div>
-
-
-###  Подробнее
-
-2045 год. Искусственный интеллект, интернет и социальные сети получили широкое распространение в космосе. Из-за аварии на недавно открытой японской коммерческой космической станции группа детей осталась в ловушке. Спасения извне ждать не приходится, а их единственная надежда — это едва уцелевший узкополосный канал связи, социальная сеть, бесплатное приложение с низкоуровневым (   Читать дальше...   )Производство: Production +h. / プロダクション・プラスエイチЖанр: приключения, фантастикаРежиссер: Исо МицуоПеревод: Зоя КацоеваЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 1 эп. на 38 мин. + 5 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CDAF202CE3A790075EB7430E2875FB670CC2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029212   (684181) от 25.06.2016
-
-Kuroshitsuji: Book of Circus | Black Butler: Book of Circus | Демон-дворецкий [ТВ-3] [2014, TV, 10] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доброй старой Англии не только верят в духов и демонов, но и активно с ними сотрудничают. А почему бы нет, ведь «темные силы» людям куда ближе и понятнее. Другое дело, что каждый должен вести себя в рамках приличий и сословных привилегий – что можно простить британскому джентльмену, не позволено простолюдинам, тем более заезжим шутам и фиглярам. Поэтому, когда (   Читать дальше...   )Жанр: детектив, мистикаРежиссер: Абэ Нориюки / Abe Noriyuki / 阿部記之Продолжительность: 10 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AADE24E66EB3AF3DE7750DE41E83AFB567498C
 ```
 
 https://mybot314.ru/tekegram_catalog/

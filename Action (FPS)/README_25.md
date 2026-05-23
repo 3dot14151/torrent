@@ -1,3 +1,107 @@
+###  Публикация: 1145363   (454150) от 03.09.2017
+
+Get Even (2017) [Ru/Multi] (1.0/u1) Repack R.G.Catalyst
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Get Even - это шутер от первого лица, от создателей Painkiller, действие игры разворачивается в воспоминаниях главного героя, пытающегося узнать больше о своем прошлом. Дыши... Вспоминай: девушка, стул, бомба. Не бойся… Иди на голос в глубины памяти. Расслабься… Ищи воспоминания в мрачных уголках своего разума. Ты найдешь ее? Времени мало… Это – часть твоего лечения.Тип издания: RepackРазработчик: The Farm 51Жанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9440A0177E719DD515F3D6488A4F92D3CF60C97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942543   (452822) от 01.10.2015
+
+Crysis 2 (2011) [Ru] (1.9/dlc) Repack =nemos= [Maximum Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мир потрясла серия экологических катастроф, и человечество находится на грани вымирания. Инопланетяне вернулись с твердым намерением стереть людей с лица земли и начали при этом с одного из самых культовых земных городов. Улицы Нью-Йорка наводнили инопланетные захватчики, и волна оживших кошмаров постепенно захлестывает город и его жителей.Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7D388C5BE9C1263D359F345AB07F4D59947E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247407   (452320) от 15.09.2018
+
+Burden (2018) [Ru/En] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Созданная по мотивам любимых тем загадочных постапокалиптических вселенных, игра Burden кинет тебя прямо в самый центр одного из таких миров, полного загадок и тайн, а также постоянных угроз и экшена. В Burden каждый прожитый день – это не просто приключение, которое может привести к любому исходу, а вызов, бросаемый судьбе. От обогащения добычей и нахождения таинственных (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Book DevelopmentЖанр: Adventure, Action, 3D, 1st PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E936B877BA4347D3595024F66DADF685105DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163165   (452150) от 04.09.2017
+
+Evil Park (2017) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Evil Park - атмосферная игра ужасов, основанная на моделировании неясных ситуаций бедствия, отсутствия безопасности и беспокойства. Повествование представлено концептуально, и каждый игрок должен интерпретировать события индивидуально. Главный герой по умолчанию не существует. Вы будете контролировать самого себя.Тип издания: LicenseРазработчик: MobsoftwareЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25ECE62B87C1D9CD131BD5E2936AD32748B2EA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551275   (452140) от 24.09.2012
 
 Rage: Anarchy Edition [Multi3/+] (Steam-Rip/1.0.29.712) 2011 | R.G. Игроманы
@@ -6,7 +110,7 @@ Rage: Anarchy Edition [Multi3/+] (Steam-Rip/1.0.29.712) 2011 | R.G. Игрома
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +138,7 @@ Crysis  Warhead (2008) [Ru] (1.1.1.711) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Syndrome (2016) [Ru/Multi] (1.03f) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Lumber Island - That Special Place (2015) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +216,7 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Don't Knock Twice / Не стучи дважды (2017) [Ru/Multi] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. S
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +324,7 @@ The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +352,7 @@ Hellpoint (2020) [Ru/Multi] (495/dlc) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +378,7 @@ World War Z (2019) [Ru/Multi] (1.30) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +404,7 @@ Transference (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +430,7 @@ Dead Island: Riptide (2016) [Ru] (1.4.1.1.13/dlc) Repack =nemos= [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +456,7 @@ Dishonored (2013) [Ru/En] (1.4.1/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +482,7 @@ Borderlands: Game of the Year Edition [Ru/En/Multi5] (L/1.41/4 DLC) 2010
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +512,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2/1.1.2/1.0/dlc) Repack R.G. Catalyst [Defini
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +538,7 @@ Dead Island: Game of the Year Edition (2011) [Ru] (1.3.0/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +564,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.06/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +590,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +616,7 @@ Rage: Anarchy Edition [MULTi3/+] (L/1.0.29.712/2 DLC) 2011 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +644,7 @@ Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +670,7 @@ Infinity Runner (2014) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,110 +681,6 @@ Infinity Runner - это научно-фантастический экшен-р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F2AA9201F6924B063168F93859D0994E80087F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249069   (436835) от 22.09.2018
-
-STALINGRAD ABATIS (2018) [Ru/En/De] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сталинградская битва — сражение Второй мировой войны, важный эпизод Великой Отечественной войны между Красной армией, Вермахтом и армией стран «оси». Происходила на территории Сталинграда. Одно из самых кровопролитных сражений второй мировой войны. Сталинградскую битву называли войной снайперов.Разрушенные здания использовались в качестве укрытий, а от врага отделяло (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Adventure (Survival), 1st Person, 3DЯзык озвучки: РусскийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10F47DA85FC4725C4D55A3A26D55D59A28762C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165019   (436393) от 11.09.2017
-
-THORNYWAY (2017) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра THORNYWAY - хардкорный экшн от первого лица. При помощи инновационной механики бега и распрыжки необходимо разогнаться таким образом, чтобы обогнать апокалипсис и добраться до безопасного места, где вы получите награду - альбом одноимённого музыкального коллектива.Тип издания: LicenseРазработчик: Intelligent SystemsЖанр: Action (Survival), 3D, 1st PersonЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC3B4B6D9A1165CC2F36FF30F41E8791BB4E6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063127   (436357) от 15.10.2016
-
-Help (2016) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша дочь пропала при исследовании заброшенного бункера. Отправившись на её поиски, вам предстоит встретиться с обитающими в его стенах ужасами, решить головоломки, узнать что произошло в этом месте и найти свою дочь. Всё что у вас есть, это фонарь, заряд которого постоянно уменьшается и рация.Тип издания: RepackРазработчик: biple_kfpЖанр: Action (Horror), 3D, 1st PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E8E96549D65740EC0929291E957265A70694E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368572   (435331) от 20.08.2022
-
-DOOM 64 (2020) [Multi] (1.0) Repack Other s
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра DOOM 64, вышедшая в 1997 году на Nintendo 64, теперь доступна и на ПК. Дайте отпор врагам и уничтожьте Мать демонов, чтобы остановить вторжение сил ада. Преодолейте 30 уровней, отыскивая тайники и собирая крутое оружие, которое поможет вам покончить с демоническими захватчиками.Тип издания: RepackРазработчик: id Software, Nightdive StudiosЖанр: Action (Horror), 1st PersonЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69F7E0B20ED1F2102643E96AB1D225A5B7BB963
 ```
 
 https://mybot314.ru/tekegram_catalog/

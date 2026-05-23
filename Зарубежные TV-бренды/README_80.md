@@ -1,3 +1,55 @@
+###  Публикация: 1405585   (476664) от 02.09.2020
+
+Деррен Браун: Толчок / Derren Brown: The Push (2018) WEB-DLRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Психологический иллюзионист Деррен Браун дебютирует в США с новаторским фильмом The Push. В The Push Браун раскрывает психологические секреты послушания и социального согласия. Он мастерски раскрывает ужасную истину о том, что когда мы сталкиваемся с властью, наш естественный инстинкт непоколебимо подчиняется без вопросов - до такой степени, что даже самые морально (   Читать дальше...   )Телекомпания: США, Vaudeville Productions, NetflixЖанр: ДокументальныйПеревод: Двуголосый профессиональныйПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8740E7975EFCA964D47C473CC204350F7664E333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160296   (476173) от 24.08.2017
+
+NGW: Удивительные слоны (Душа гиганта) / Soul of the Elephant (2015) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Слоны - патриархи Африки. Сколько еще они проживут на свете бок о бок с людьми? Чтобы ответить на этот вопрос, пара исследователей живет рядом со слонами. Вместе со зрителями они заглядывают в душу гиганта.Производство: Terra Mater Factual Studios, Thirteen Productions, Wildlife Film ProductionsЖанр: Документальный, фаунаРежиссер: Дерек ЖуберПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CE90DE22D95CF0C098034F8C316086749863C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 385269   (476156) от 09.09.2011
 
 Discovery: Миссия "Эверест" / Mission Everest [чч. 1, 2] (2007) SATRip
@@ -6,7 +58,7 @@ Discovery: Миссия "Эверест" / Mission Everest [чч. 1, 2] (2007) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ PBS Nova: Великая тайна математики / The Great Math Myster
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ BBC: Мир природы. В мире жуков / Natural World. Beetlemania 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG. Загадки истории: Королева-девственница / H
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NG: Женщина, воспитанная обезьянами / Woman Raised b
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NGW: Анаконда. Королева змей / Anaconda. Queen of the serpen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NGW: Полчища акул / Shark Swarm (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Доли
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ BBC. В краю муссонов: Экстравагантные изгои / W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ NG: Миссия Сатурн (Внутри колец Сатурна) / Mission
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ NG: Титаник. Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ NG: Тайны мироздания / Beyond the Cosmos (2011) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Discovery: Один день в Освенциме / One Day In Auschwitz (2015)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ NG: Титаник. Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ Discovery: Выжить после селфи / Still Alive (2015) HDTVRip [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ Discovery: Выжить после селфи / Still Alive (2015) HDTVRip [H.26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AADEA202FD23F461697B6ED2C240C9EFD755CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058482   (469024) от 01.10.2016
-
-NG: 20 животных, которые могут вас убить / 20 Animals that Will Kill You (2012) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикие животные убивают тысячи людей каждый день - и самыми опасными существами могут оказаться не те животные, о которых вы можете подумать. Бенгальские тигры, слоны, комары - животные могут убивать множеством разных способов. Хищники очевидно являются убийцами, а другие животные защищают свою территорию, нападают в целях самообороны или убивают совершенно случайно. (   Читать дальше...   )Телекомпания: США, NGHT, LLC.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF09E0B2C58B37DB80A4E48342F7C77E48DCE1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320623   (468757) от 19.08.2019
-
-BBC: Топ-10 самых смертоносных чудовищ / Top Ten Deadliest Beasts (2018) IPTVRip [H.264] (1-2 серии из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злобные гигантские млекопитающие, ядовитые ящерицы и огромные птицы, вселяющие ужас в сердца - этот потрясающий документальный фильм демонстрирует самых кровожадных хищников, когда-либо живших на планете, во всей красе с использованием новейших компьютерных технологий. От саблезубого тигра до гигантской акулы-убийцы - встречайте топ-10 самых смертоносных зверей нашего (   Читать дальше...   )Производство: Blink Film Production, BBC Worldwide, Smithsonian Channel, France 5, SBS, N24, Channel 5Жанр: Документальный, фаунаРежиссер: Andy WebbПеревод: Двуголосый профессиональный (Видеофильм ТВ)Продолжительность: 2 x ~ 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863825C804CA3D65DCF876A5CD5BAE136DB6E510
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1366064   (925322) от 10.03.2020
+
+BBC. В поисках бессмертия / The Immortalist (2016) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих веков человечество мечтает о вечной жизни. Сейчас, когда наука шагнула далеко вперед, это становится все более возможным. Например, предпринимаются попытки загрузить разум человека в кибернетического аватара. Фантастика? Съемочная группа встретится с ведущими мировыми деятелями науки и технологий, чтобы разобраться, возможно ли это.Производство: Великобритания, ВВС Scince Production LondonЖанр: Документальный, научно-познавательныйРежиссер: Тристан КуиннПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:197502664A8668220818FCED46368DA0E6EFD443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756331   (924691) от 12.02.2014
+
+Discovery: Поиск пришельцев. Урожай пришельцев / Uncovering Aliens. Vintage aliens (2014) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Пришельцы-кровососы приводят ученых в Индиану. После тревожных сообщений о пришельцах, якобы похищающих кровь у людей, команда берет их след.Жанр: Документальный, научно-познавательныйРежиссер: Феликс Блэк, Полли БокконгеллиАктеры: Деррел Симс, Майкл Бара, Морин Элсберри, Стивен ДжонсПеревод: Профессиональный (одноголосый, закадровый)Продолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8484B76A16EDC303B3A299DE5C260A79A5B30F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987883   (924248) от 18.02.2016
 
 Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 02) [IdeaFilm]
@@ -6,7 +58,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +165,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +192,7 @@ Discovery: Недружелюбная Вселенная ( Плохая Всел
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +245,7 @@ Discovery: Техногеника. Кругобайкальская железн
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +297,7 @@ Discovery:Разрушители легенд. В погоне за ураган
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +351,7 @@ DV: Занимательно обо всем. [выпуски 54-61] / C'est pas
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +377,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +405,7 @@ Animal Planet: Рууд и его жуки. Жуки-трюкачи / Buggin wit
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +432,7 @@ Discovery: Загадки всемирной истории: Внутри бун
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +458,7 @@ Discovery: Недружелюбная Вселенная. Нападение п�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +484,7 @@ Discovery: Американский Чоппер / American Chopper [Season 6] (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +536,7 @@ NG: Суперсооружения. Пальмовые острова в Дуб�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +562,7 @@ Discovery: Как выжить среди акул / Surviving Sharks (2007) SAT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +588,7 @@ Animal Planet (BBC): Приключение осьминога / The Octopus Cha
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -588,7 +640,7 @@ DV: Форма жизни. История царства животных [се�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -614,7 +666,7 @@ BBC. Виртуальная революция / The Virtual Revolution (2010) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -625,58 +677,6 @@ BBC. Виртуальная революция / The Virtual Revolution (2010) H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20BB905151064CD6CAFA9946F9AF0B335443920C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096976   (917465) от 25.01.2017
-
-Законодатели технологий / Game Changers (2017) SATRip (Серия 1 из?)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конструктор Кевин хочет доказать, что его самолёт с электроприводом может изменить авиацию!Телекомпания: Великобритания, Discovery ScienseЖанр: ДокументальныйРежиссер: Томми ДовниПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EA131F16EE79333F73DAA8B0D1A6098797FA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289083   (917052) от 01.02.2011
-
-NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 1500 лет назад в землю были зарыты писания, излагающие иную хронику жизни Иисуса из Назарета. Эти "неканонические" евангелия, во многом разнящиеся между собой, долгое время считались ересью. Обнаруженные в прошлом веке, они поставили ученых и богословов перед новыми проблемами. Национальное Географическое Общество изучает утраченные истории о Христе в поисках ответа на фундаментальные вопросы: кто и зачем написал эти евангелия? Выдерживают ли они сравнение с каноническими Евангелиями от Матфея, Марка, Луки и Иоанна? И почему эти писания так долго пребывали в забвении? Мы восстановим события в эпоху радикальных религиозных идей и попробуем найти логику в самых причудливых историях об Иисусе.Жанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0567750F40A876477951CB257C7BEA03F498AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

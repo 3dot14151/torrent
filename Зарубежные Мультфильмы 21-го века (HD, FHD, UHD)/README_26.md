@@ -1,3 +1,81 @@
+###  Публикация: 998962   (865508) от 21.03.2016
+
+Ледниковый Период: Погоня за яйцами / Ice Age: The Great Egg-Scapade (2016) WEB-DL [H.264/720p-LQ]
+
+>>След.
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Скрэт, Мэнни, Сид, Диего и другие доисторические герои Ледникового Периода в совершенно новом уморительном анимационном приключении! Новый бизнес Сида по высиживанию яиц успешно развивается, но когда подлый кролик –пират Сквинт крадет яйца, Мэнни, Диего и остальные отправляются в бесстрашную спасательную операцию , которой суждено стать первой в истории погоней за (   Читать дальше...   )Производство: США, Blue Sky StudiosЖанр: Мультфильм, комедияРежиссер: Рикардо КертисАктеры: Блейк Андерсон, Лили Эстефан, Сет Грин, Габриэль Иглесиас, Дэнис Лири, Джон Легуизамо, Джош Пек, Куин Латифа, Рэй Романо, Шонн Уильям СкоттПеревод: Дублированный (Itunes)Субтитры: ОтсутствуютПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63389C48DB068AA4CE9E4E19C280BDBF21E8AFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107571   (865459) от 23.02.2017
+
+Тролли / Trolls (2016) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь в увлекательное приключение, которое заведет ее далеко от привычного ей мира, Розочка объединяет усилия с самым мрачным троллем на свете по имени Цветан для достижения успеха в своей смелой миссии спасти ее друзей из тисков зловещих бергенов и их лидера, короля Хрящ Старший. Невероятные приключения Розочки проверят ее силу, покажут ее истинную суть и (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Уолт Дорн, Майк МитчеллПерсонажи: Анна Кендрик, Зои Дешанель, Джастин Тимберлэйк, Кристин Барански, Джеффри Тэмбор, Кристофер Минц-Плассе, Джеймс Корден, Кунал Найяр, Гвен Стефани, Расселл БрэндПеревод: Дублированный (Лицензия BD CEE)Продолжительность: 01:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C0DD38746E0A1BEA288E068A95C89EDD21E477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375552   (865065) от 14.04.2020
+
+Легенды «Смертельной битвы»: Месть Скорпиона / Mortal Kombat Legends: Scorpions Revenge (2020) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет мультфильма расскажет об очередном смертельном турнире Шан Цзуна, в котором участвуют бойцы с Земли и других миров. В центре истории окажется жаждущий мести за смерть семьи и клана Скорпион, который соглашается принять участие в межпространственном состязании.Производство: США / DC Entertainment, Midway Games, Warner Bros. AnimationЖанр: Мультфильм, фэнтези, боевик, приключенияРежиссер: Этан СполдингПеревод: Многоголосый любительский (AniPlague)Субтитры: Русские (форсированные на надписи), английские (Full, SDH)Продолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A00263AED95C78E52C9C53E277A1035888B7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874028   (864601) от 02.03.2015
 
 Пингвины Мадагаскара / The Penguins of Madagascar (2014) Blu-ray [1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ My Little Pony: Новое поколение / My Little Pony: A New Generation
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ My Little Pony: Новое поколение / My Little Pony: A New Generation
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ UglyDolls. Куклы с характером / UglyDolls (2019) BDRip [H.264/10
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,86 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0742F69C17CCAD7E7D3821428D2797D865466F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376630   (858352) от 18.04.2020
-
-Эверест / Abominable (2019) UHD Blu-ray [H.265/2160p] [4K, HDR, 10-bit] [EUR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие на самую высокую точку мира? Что может быть круче! Так решает Лу, когда случайно находит огромное, но очень милое чудовище посреди шумного мегаполиса. Пусть их преследуют ученые из сверхсекретной лаборатории, зато её новый друг умеет смешить и творить чудеса. Лу уверена, что поможет дружелюбному йети вернуться домой — на Эверест.Производство: Китай, США / DreamWorks Animation, Pearl StudioЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Джилл Калтон, Тодд ВилдерманАктеры: Хлоя Беннет, Альберт Цай, Тензинг Норгай Трэйнор, Джозеф Иццо, Эдди Иззард, Сара Полсон, Цай Чинь, Мишель Вонг, Рич Дитль, Джеймс ХонгПеревод: ДублированныйСубтитры: Русские, английские, итальянские, чешские, венгерские, польские, румынскиеПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8362947F8E8E587F6109E2335EB062468254D2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376534   (858349) от 18.04.2020
-
-Красные туфельки и семь гномов / Red Shoes (2019) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно в сказочном королевстве жила-была девушка. И однажды она нашла пару волшебных туфелек: стоит их надеть — превращаешься в классическую красавицу-принцессу… Семь принцев, заколдованных злой ведьмой, стали уродливыми зелеными гномами. Чтобы вернуть себе человеческий облик, им нужен один поцелуй прекрасной девушки. В один день пути героев пересекутся, и (   Читать дальше...   )Производство: Корея Южная / Locus Creative Studios, Next Entertainment WorldЖанр: Мультфильм, Фэнтези, Мелодрама, Комедия, Приключения, СемейныйРежиссер: Хон Сон-хоПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC8547057FC0A074F77C828B04563761F30983A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376220   (858130) от 18.04.2020
-
-Вперёд / Onward (2020) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно в сказочном мире царила магия, но после открытия электричества маги стали не нужны, и развитие пошло по техногенному пути. Теперь эльфы, тролли, гоблины, мантикоры, феи, кентавры и единороги летают на самолетах, пользуются автомобилями и мобильниками и ведут в целом прозаичную жизнь.
-
-Братья-эльфы Иэн и Барли Лайтфуты воспитывались одной мамой, потому (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Комедия, Фэнтези, ПриключенияПеревод: ДублированныйСубтитры: русские (Full), английские (SDH)Продолжительность: 01:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDC59BEBD6A8EBC083483ECE2CC62AA2C13F2AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

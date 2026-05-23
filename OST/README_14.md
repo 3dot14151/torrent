@@ -1,3 +1,67 @@
+###  Публикация: 527715   (531779) от 10.08.2012
+
+Шаг Вперед 4 / Step Up Revolution (2012) [MP3|320 кб/с]<Soundtrack / Unofficial Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Nalepa - Monday (The Glitch Mob Remix) (6:29)
+02. Yung Joc -Hear Me Coming (3:57)
+03. Haley Reinhart - Undone (3:49)
+04. Heavy - How You Like Me Now (Album Version) (3:37)
+05. Elisa - Dancing (5:11)
+06. Kid Cudi - Man On The Moon (3:32)
+07. Stellamara -Prituri Se Planinata (Nit Grit Remix) (5:53)
+08. M83 - Wait (5:43)
+09. The Irrepressibles -In This Shirt (5:35)
+10. edIT - Ants (4:05)(   Читать дальше...   )Жанр: OST / Unofficial Soundtrack |Продолжительность: 01:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E65533EFCCDB73A6066FB049B8FA02DA9431D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312180   (530825) от 05.07.2019
+
+Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Track 1 (02:15)
+02. Theme from Child's Play (04:25)
+03. Birth of Chucky (02:41)
+04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66442FE165D161662163CBFA8FFCB3FD8DBE7E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312205   (530816) от 05.07.2019
 
 Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +70,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +99,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +128,7 @@ Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +157,7 @@ Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Inst
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +186,7 @@ Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Sy
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +215,7 @@ Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +244,7 @@ Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +273,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +302,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +331,7 @@ Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +360,7 @@ VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +389,7 @@ Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +424,7 @@ Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -395,7 +459,7 @@ VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +488,7 @@ Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +518,7 @@ VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +582,7 @@ Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ult
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +611,7 @@ Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,7 +640,7 @@ Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +669,7 @@ Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyb
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,7 +698,7 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -663,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -692,7 +756,7 @@ VA - Mortal Kombat Soundtrack Compilation (1993-1999) [MP3|320 кб/с]<Techno, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -703,64 +767,6 @@ VA - Mortal Kombat Soundtrack Compilation (1993-1999) [MP3|320 кб/с]<Techno, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7BC69F1D6AA05F42E0F73F1923108D268CDBC63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319928   (477192) от 15.08.2019
-
-The Soundtrack Studio Stars - Sounds of Tarantino (2014) [MP3|320 Kbps] <Soundtrack, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang Bang / My Baby Shot Me Down (from Kill Bill Vol. 1)
-02. Misirlou (from Pulp Fiction)
-03. Stuck In the Middle With You (from Reservoir Dogs)
-04. Who Did That to You (from Django Unchained)(   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6444A5F843F54ADF8AA7CEDAE9F2FFED16320618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319910   (475882) от 01.08.2022
-
-Запрещенный прием (расширенный) - Sucker Punch (2011) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Official soundtrack:
-
-01. Emily Browning - Sweet Dreams (are made of this) (05:19)
-02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FE9868030C705BFDDEAA2CC2AEFEF2263DB58E
 ```
 
 https://mybot314.ru/tekegram_catalog/

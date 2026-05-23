@@ -1,3 +1,55 @@
+###  Публикация: 1508566   (797338) от 08.11.2021
+
+Вся правда о стрессе / The Truth about Stress (2017) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это программа о том, почему мы испытываем слишком много стресса в нашей повседневной жизни, как его можно уменьшить и даже превратить в полезную энергию. Фиона Филлипс решила изучить механизмы стресса и понять, как он влияет на наше здоровье и счастье. Вместе с командой специалистов и несколькими добровольцами Фиона погружается в разные ситуации,вызывающие стресс, (   Читать дальше...   )Производство: Великобритания, Blink (for BBC), Tin Roof Media ProductionsЖанр: Документальный, познавательный, научно-популярныйРежиссер: Сара СапперПеревод: Двуголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6819CBF4A8952E55C62E5738B537EFC1B48F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508435   (797332) от 08.11.2021
+
+NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уверенная и сильная самка леопарда по имени Олимба правит исключительно большой территорией вдоль реки Луангва в Замбии в Африке. Она грозный охотник, отважный правитель и преданная мать. Она только что родила двух крошечных детенышей, самца и самку. Поскольку она сталкивается со сложной задачей материнства, это постоянная битва за успешную охоту, защиту своей главной (   Читать дальше...   )Производство: Австрия / Kurt Mayer Film, Into Nature Productions, ORF, Arte WDRЖанр: ДокументальныйРежиссер: Уилл Стинкамп, Лианн СтинкампПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E458F1256E59594027ACCA3E2F630CB1F6297FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385430   (797138) от 25.05.2020
 
 NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBRip [H.264/1080p-LQ] (серии 1-2 из 2)
@@ -6,7 +58,7 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Северная Америка / North America (2013) HDTV [H.264/10
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ BBC. Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVR
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NG: Дикая природа Новой Зеландии: затерянный 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ BBC: Удивительный мир данных / The Joy of Data (2016) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Discovery: Бушкрафт: лесная лига / Bushcraft Build-Off (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ BBC. Искусство Германии / Art of Germany (2010) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ BBC. Искусство Испании / The Art of Spain (2008) SATRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ BBC. Искусство России / The Art of Russia (2009) HDTVRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ PBS: Истории из королевской спальни / Tales from the 
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ NG: В Поисках гигантского осьминога / Search for the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +668,6 @@ NG: В Поисках гигантского осьминога / Search for the
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:785106CEE44E1EA44617A204A1002A03B8670968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386589   (793340) от 30.05.2020
-
-BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, серия 1-6 из 6) [PR]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793340.jpg" />
-</div>
-
-
-###  Подробнее
-
-О животных Африки рассказывают много небылиц. Сериал – история, в которой происходят реальные события. Наперекор трудностям матери растят потомство. Настойчивые соперники разбивают семьи. Детеныши пытаются отвоевать свое положение в семье. Все проверяется на прочность силами стихий, сменой сезонов и друг другом. Это история жизни в регионе под названием Серенгети.Производство: Великобритания, BBC ScotlandЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Джон Даунер, Саймон ФуллерПеревод: Одноголосый профессиональный (Студия СВ-Дубль)Субтитры: Русские, Английские (SRT)Продолжительность: 6 x ~ 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03209B49BB742EBD8FF4C033B875921C356086D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385802   (793229) от 30.05.2020
-
-DV. Чудеса механики / Wonders of the Clockwork World / Mechanical Marvels: Clockwork Dreams (2013) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы узнаете удивительную историю автоматов - механических чудес доиндустриальной эпохи. Прекрасные, но пугающие - эти устройства кажутся одновременно и живыми, и механическими. Двигаясь, они словно оживают.Производство: Великобритания /  Furnace, British Broadcasting Corporation (BBC)Жанр: ДокументальныйРежиссер: Nic StaceyПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597DF8FA207226B95DB9019AE6D13A54E9CDFCD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

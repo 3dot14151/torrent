@@ -1,3 +1,84 @@
+###  Публикация: 1472384   (1014499) от 24.05.2021
+
+Audiomack v6.4.0 [Ru/Multi] - скачайте музыку для оффлайн бесплатно
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Слушайте и бесплатно скачивайте лучшие новые песни, альбомы и плейлисты и воспроизводите их в автономном режиме, не расходуя трафик! Просматривайте музыку из топ-категорий, таких как Хип-хоп, Рэп, R&B, EDM, Афропоп и Регги, в бесплатном музыкальном приложении Audiomack. Скачивайте песни и слушайте их в автономном режиме, не расходуя трафик!
+
+Audiomack обеспечивает (   Читать дальше...   )Тип издания: Пиратка (Platinum)Релиз состоялся: 17 мая 2021 г.Разработчик: AudiomackПоддерживаемая ОС: Android Зависит от устройстваЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F131E74806FB53E70C6B5A61B7D1538E96DC8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472226   (1014419) от 24.05.2021
+
+Launcher 10 - Лаунчер стилизованный под Windows 2.7.31 [Ru/Ua]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Launcher 10 - Вот и дождались, любители windows 10, возрадуйтесь. Теперь вы сможете установить его на свое android устройство. Это конечно не полноценный win 10, а всего лишь лаунчер, сделанный по его подобию. Он очень многофункционален, а так же прост в использовании. Внешнее выглядит очень красиво, и вы всегда можете настроить его по своему усмотрению. Eсли вам (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 25.04.2021Разработчик: nfwebdevПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD1373090EE9B257C8310E093F59CA05E5BA32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472397   (1014313) от 25.05.2021
+
+Таро: Гадание на картах v2.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Гадание на картах Таро - один из самых популярных способов получить самое точное предсказание будущего, узнать перспективу любовных отношений или решить сложную проблему.
+Полная версия содержит 30 раскладов, касающихся различных сфер жизни, 5 различных колод, точно отвечающих на все вопросы, и галерею карт Таро с подробным описанием каждого аркана и дополнительные (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 20 октября 2020 гРазработчик: Xeen SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD984CC55E6C9D35CC323E2D60BB3579DBD6F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472689   (1014208) от 26.05.2021
 
 txtpad+ 3.1.2 [Ru/En]
@@ -6,7 +87,7 @@ txtpad+ 3.1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +113,7 @@ TonalEnergy Tuner and Metronome v1.9.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +140,7 @@ chomp SMS 8.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +166,7 @@ Material Status Bar 10.23 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +192,7 @@ Amber Weather (Янтарная погода) 4.7.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +325,7 @@ Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +377,7 @@ BirdNerd v1.0.9b [Ru/En] - Определение птицы по голосу (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +406,7 @@ Launcher iOS 14 3.9.3 Mod by vovamen24 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +458,7 @@ Total Launcher 2.8.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +484,7 @@ neXt Launcher 3D 3.7.3.2 Mod by Balatan, chathu_ac, Сіtrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +510,7 @@ Ratio - The Productivity Launcher 4.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +536,7 @@ Wide Launcher - 3X Wider Home Screen 1.6.41 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +562,7 @@ Leanback on Fire 1.48 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +588,7 @@ My Android Tools 1.6.8 Free / 1.6.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +644,7 @@ Mi Видео - бесплатный просмотр и загрузка вид
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AD82D605218850848CB8B5E1089840B60F7FAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476789   (1011461) от 12.06.2021
-
-MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный калькулятор с простым интерфейсом MIUI, для любого Android 4.1 и выше. Калькулятор MIUI от Xiaomi, выполняет большинство простых и сложных вычислений. Клавиатура оптимизирована для планшетов и телефонов всех размеров.Тип издания: Original + ModsРелиз состоялся: 23.12.2020Разработчик: Xiaomi, Inc.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C12145048A1CE9577745C21A1C4CFCFF9E6E852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476738   (1011450) от 12.06.2021
-
-SoloLearn: Учимся программировать 4.7.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011450.jpg" />
-</div>
-
-
-###  Подробнее
-
-SoloLearn - это крупнейшая библиотека материалов по изучению программирования для новичков и профессионалов! Тысячи аспектов программирования помогут вам освоить азы, отточить навыки или просто быть в курсе последних тенденций. С SoloLearn вы можете выучить такие языки программирования как HTML, CSS, JavaScript, PHP, C++, Python, Java, C#, SQL, Swift, Ruby и даже (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 26.05.2021Разработчик: SoloLearnПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654854D0A0363A379F3FB20F487AC68869538D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352054   (1011055) от 14.06.2021
-
-Parrot Voice Recorder v3.7.8  [En] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parrot - это приложение для записи голоса, которое позволяет вам записывать, воспроизводить и делиться голосовыми записями всего за 3 касания! Простой и красивый пользовательский интерфейс помогает создавать четкие и сбалансированные голосовые записи. Используйте Parrot в качестве диктофона и начинайте записывать голоса, аудио, телефонные разговоры, пение: все что (   Читать дальше...   )Тип издания: Пиратка (Разблокирована Pro)Релиз состоялся: 11.06.2021Разработчик: Searing Media Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09245EA4E15C3F6BC0CF9F5F44A4DF24F1732EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

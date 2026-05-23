@@ -1,3 +1,81 @@
+###  Публикация: 921060   (577075) от 24.07.2015
+
+Евгений Карасюк | Слон на танцполе. Как Герман Греф и его команда учат Сбербанк танцевать (2012) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Начиная реформировать Сбербанк в 2007 году, Герман Греф заявил: "Мы должны доказать, что слоны умеют танцевать". Огромному неповоротливому Сбербанку в наследство с советских времен достались толчея очередей, свирепые операционистки и допотопные финансовые технологии. И это старорежимное заведение требовалось превратить в достойного представителя мировой (   Читать дальше...   )Жанр: БизнесФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F92C73467347FD4668F08F4891D248A68C32D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920977   (577066) от 24.07.2015
+
+Дов Сайдман | Отношение определяет результат (2013) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дов Сайдман излагает в своей книге, казалось бы простую, но вместе с тем очень мудрую и правильную мысль. В условиях современого гиперсвязанного мира стало важным не то, что делают компании (продукты, инновации, бизнес-процессы легко копируются), а то, как они это делают - как взаимодействуют с клиентами, партнерами, подчиненными. Именно поведение, системы ценностей (   Читать дальше...   )Жанр: БизнесФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DA1B514E05D7160F287ED4827C4CC05715ADF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920984   (577001) от 24.07.2015
+
+Роберт Поузен | На пике возможностей. Правила эффективности профессионалов (2013) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это первая книга об эффективности, написанная практиком, а не консультантом. Автор книги входит в совет директоров четырех компаний, успевая преподавать в Гарвардской школе бизнеса. В книге он рассказывает, как правильно ставить цели и ранжировать их по приоритетности, какие навыки необходимы для успешной карьеры и как их получить, как быть максимально эффективным (   Читать дальше...   )Жанр: БизнесФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD51DE2A1EB563A967A59FAE1AADF48E3F56162B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920975   (576991) от 24.07.2015
 
 Дмитрий Крутов, Сергей Капустин | Отдел продаж под ключ (2013) [PDF]
@@ -6,7 +84,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -120,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -202,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -282,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -310,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -336,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -364,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -392,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -444,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -472,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -524,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,84 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F8AAEA366C6B69D5950E15CD5BCBC63F6282D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921623   (573265) от 26.07.2015
-
-Питер Фердинанд Друкер | Эффективный руководитель (2012) [PDF, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство книг по менеджменту обычно рассказывают об управлении другими людьми. Тема этой книги - управление самим собой. Чтобы эффективно работать, недостаточно быть умным, много трудиться или быть эрудированным. Чтобы быть эффективным, не требуются специальные навыки, таланты, склонности или подготовка. Чтобы быть эффективным руководителю нужно делать определенные (   Читать дальше...   )Жанр: БизнесФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764F9D1BC8E551796C0B4453043A4BDC580A1C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234051   (572304) от 04.07.2018
-
-Наташа Кортни-Смит | Блог на миллион долларов (2018) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории звездных блогеров кажутся нам фантастическими, а их успех – недостижимым. Но автор книги, сменившая работу в традиционных СМИ на карьеру блогера, уверяет, что создать блог на миллион долларов может каждый, у кого есть желание, фантазия и готовность заниматься этим всерьез. Наташа Кортни-Смит делится с читателями стратегией и тактикой, которые помогли ей прийти (   Читать дальше...   )Жанр: Зарубежная деловая литература, Интернет-бизнес, Интернет-маркетинг, Советы от гуруФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FEF9AB9F3964ED79C9F864C9FB258B1AC6ADF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043053   (571893) от 16.08.2016
-
-Бодо Шефер | Путь к финансовой свободе (2006) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571893.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом издании своей книги для широкого круга читателей автор раскрывает тайны создания, сохранения и увеличения личного богатства, рассказывает, как можно достичь финансовой независимости с помощью простых, но очень эффективных методов. Мне хотелось, чтобы эта книга затронула сердца читателей и указала им путь к богатствам, которые таит в себе наша жизнь, в том (   Читать дальше...   )Жанр: Зарубежная деловая литература, О бизнесе популярно, СамосовершенствованиеПеревод: Сергей БоричФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724B02E16F514A1E12607D082CC182AA9EE0A1E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

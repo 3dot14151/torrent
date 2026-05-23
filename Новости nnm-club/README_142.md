@@ -1,3 +1,185 @@
+###  Публикация: 920858   (578559) от 23.07.2015
+
+Дивергент, глава 2: Инсургент / Insurgent (2015) BDRip [H.264/1080p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В новой главе антиутопии об обществе, где все расставлено по полочкам, а любая индивидуальность подлежит искоренению, Трис должна найти способ борьбы со страшной системой, уничтожающей ее близких. Кто из них на очереди? Она узнает все больше страшных подробностей, стоящих за кажущимся порядком, и уже не может не видеть, что в ее мире пора что-то менять. Но главное (   Читать дальше...   )Производство: США, Red Wagon Entertainment, Mandeville Films, Summit EntertainmentЖанр: Фантастика, Триллер, ПриключенияРежиссер: Роберт ШвенткеАктеры: Шейлин Вудли, Тео Джеймс, Кейт Уинслет, Джай Кортни, Энсел Элгорт, Майлз Теллер, Зои Кравиц, Мекхай Файфер, Наоми Уоттс, Октавия СпенсерПеревод: Дублированный (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990859DD71846F8340AD262BD5DB21BC3EC5FBA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920652   (578557) от 23.07.2015
+
+Microsoft Office 2013 SP1 Standard 15.0.4737.1001 (x86) RePack by KpoJIuK [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6280082A7B7DD10124D582CE014EA9D8E686377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919960   (578555) от 23.07.2015
+
+Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.4737.1001 VL (x86) RePack by SPecialiST v15.7 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 – лучший пакет прикладных программы для работы над документами различных типов. В его состав входят лучшие средства для развития бизнеса, а так же для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия, не важно, Office 2013 просто обязан быть установлен на любом (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129FE06DCCE96593104C86DD45D4383B55CC89EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920925   (578550) от 23.07.2015
+
+Kaspersky Reset Trial 5.0.0.112 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Reset Trial - Программа для сброса триала (для многократного использования триального периода) антивирусных продуктов ЛК. KRT сбрасывает триал мгновенно на всех продуктах ЛК, заявленных в программе. По поводу детекта от ЛК - вредоносного ПО в оригинальной версии KRT никогда не было, нет и не будет. Таким способом ЛК защищает свои продукты, присваивая KRT (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154DC8EC326EACB29052C4468614A26FAE8A46D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430408   (577689) от 13.08.2016
+
+Неадекватные люди (2010) [1080p] BDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тихий и воспитанный Виталик пытается начать жизнь с нуля в новом городе. Но странным образом ему на пути попадаются одни сумасшедшие. Его соседкой по лестничной площадке оказывается взбалмошная Кристина, стремящаяся переделать его из задрота в нормального мужика, на новой работе атакует похотливая начальница и даже психолог, помогающий ему совладать со всем этим (   Читать дальше...   )Производство: Cinema Prime FilmЖанр: Комедия, МелодрамаРежиссер: Роман КаримовЯзык субтитров: Английский / English softsub (SRT)Продолжительность: 01:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045EC1F7C6191EA5C9D8E45880D1C935D69352A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042802   (577686) от 13.08.2016
+
+Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack R.G. Games
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Раскрыв древнюю тайну, Лара должна исследовать самые отдаленные и опасные уголки Сибири, чтобы найти секрет бессмертия раньше беспощадной организации "Троица". Ларе предстоит использовать всю свою смекалку и навыки выживания, заключить новые союзы и принять свою судьбу расхитительницы гробниц!Тип издания: RepackРазработчик: Crystal Dynamics, Nixxes Software BV, Square Visual WorksЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D95E7F11A9CCA96E9DD550536C7E0A72A041E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023090   (577681) от 13.08.2016
+
+Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Безоаре, единственном уцелевшем городе людей, майор Флетчер, ветеран боевых действий и солдат CLN, втянут в конфликт двух величайших врагов человечества. Ему предстоит выяснить, что все далеко не так, как кажется. Популярный шутер от первого лица возвращается основательно улучшенным и восхитительно сложным.Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action, 3D, 1st PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE6C5C03B7702A4E719F1FB7D16487E9FE87680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042665   (577680) от 13.08.2016
 
 System USB-Flash 10 v7.1 [Ru]
@@ -6,7 +188,7 @@ System USB-Flash 10 v7.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +240,7 @@ Saenal Park | Цикл «Overgeared / Во всеоружии» [24 книги] 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +292,7 @@ Windows 10 Pro v1809 build 17763.503 x64 by Zosma (17.05.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +347,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.708] (Fix 2022/30.05)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +376,7 @@ Astra Linux 1.7.1 [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +455,7 @@ Android-x86 (KitKat) 4.4-r3 [x86] 2xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +482,7 @@ Counter-Strike: Global Offensive (P/1.16.1.0) [Ru] 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_575844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_575769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +612,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4405.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +638,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_575695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -490,191 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Очередное достижение: 1000 релизов от MEDIC1967!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 1000-м релизом!
 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920959   (575123) от 25.07.2015
-
-Проекты - VideoHive - Unwavering Strength [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575123.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Непоколебимая сила" будет держать зрителя
-до самого конца видеоролика...
-Испытай всю мощь крутого слайд-шоу!!!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FE7B42C4A7E03E0B836740D43E7D78860796D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921585   (574920) от 25.07.2015
-
-ROSA Desktop Fresh R6 (KDE) [i586/x86-64] 2xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574920.jpg" />
-</div>
-
-
-###  Подробнее
-
-«НТЦ ИТ РОСА» сообщил о выпуске релиза ОС ROSA Desktop Fresh R6 с окружением рабочего стола KDE. ROSA Desktop Fresh R6 — дистрибутив для тех, кто любит жить в изменяющемся цифровом мире. Fresh R6 отличается свежими версиями программ, повышенной совместимостью с самым новым оборудованием и качеством, достаточным для домашнего использования. В репозиториях пользователей (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8509F0BFAA5501776003A7B7EA8DEA499FBFEB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921231   (574919) от 25.07.2015
-
-Номер 44 / Child 44 (2015) BDRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноименному роману английского писателя Тома Роба Смита и повествует запутанную историю, связанную с расследованием серии убийств детей в Советском Союзе. События фильма начинаются в 1952 году. Державой правит товарищ Сталин и советский народ верит в светлое будущее, несмотря на полный тоталитаризм. В этой стране, где есть все необходимое для жизни, (   Читать дальше...   )Производство: США, Великобритания, Чехия, Румыния / Summit Entertainment, Worldview Entertainment, Scott Free ProductionsЖанр: Триллер, Детектив, Криминал, ДрамаРежиссер: Даниэль ЭспиносаАктеры: Том Харди, Гари Олдман, Нуми Рапас, Юэль Киннаман, Пэдди Консидайн, Джейсон Кларк, Венсан Кассель, Ксавьер Аткинс, Марк Льюис Джонс, Фарес ФаресПеревод: Дублированный (iTunes)Язык субтитров: английские (full, SDH)Продолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9320C5F632D31BAFE2CA73EDFE19F97897934A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921217   (574909) от 25.07.2015
-
-Adobe Dreamweaver CC 2015.0 Build 7714 RePack by D!akov [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Dreamweaver CC 2015 - новая версия приложения, предназначенного для создания профессиональных веб-сайтов. Программное обеспечение для веб-дизайна Adobe Dreamweaver CC содержит интуитивно понятный визуальный интерфейс, позволяющий создавать и редактировать веб-сайты и мобильные приложения. Используйте «резиновые макеты» (Fluid Grid Layouts) с кроссплатформенной (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860333FCC1909D6AE97DF7489FF87A8FA49C894B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915509   (574904) от 25.07.2015
-
-Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (1.0.0.6) RePack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574904.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Легенды Эйзенвальда» – приключенческая игра с тактическими боями и стратегическими элементами. Возглавьте небольшое феодальное войско и попробуйте отстоять свое право на жизнь в жестоком мире средневековья. Вас ждут таинственные земли старой Германии, где ожили во плоти суеверия прошлого. Это не глянцевый сказочный мир, здесь нет эльфов и драконов. Только люди – (   Читать дальше...   )Тип издания: RePackРазработчик: Aterdux EntertainmentЖанр: Strategy (Turn-based) / RPG / 3DЯзык озвучки: n/a (отсутствует)Язык субтитров: Русский, Белорусский, Английский, Французский, Немецкий, ИспанскийЯзык интерфейса: Русский, Белорусский, Английский, Французский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA10BD7D4E59CC60BE0843385FAF44EA34AB000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688282   (574775) от 12.08.2013
-
-[CBS] | HTML5 & CSS3 [2013] PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574775.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе HTML5 и CSS3 описаны технологии веб-разработки по стандартам нового поколения на реальных и простых примерах. Уже сейчас основные браузеры, а также мобильные устройства поддерживают многие спецификации HTML5 и CSS3. Эти технологии дают основу следующему поколению интернет-приложений. Преимущества новых технологий очевидны: комфорт и широкие функциональные возможности для пользователей, а для веб-программистов они более просты в разработке и дальнейшей поддержке.​
-На курсе «HTML5&CSS3» детально рассматриваются основы синтаксиса и семантики, использование новых возможностей форм, встроенное аудио и видео, геолокация, элемент Canvas, а также многие другие нововведения.​Жанр: Обучающие видеокурсыПродолжительность: 12:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A1D2AC615E835E8969CAE93C3C2946E9A614FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361865   (574479) от 11.07.2011
-
-TeraCopy PRO 2.2 Beta 3 [Multi(Rus)]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574479.jpg" />
-</div>
-
-
-###  Подробнее
-
-TeraCopy Pro – утилита улучшает процесс копирования файлов, по заверению разработчика делает она это (копрование) на порядок быстрее за счёт использования дополнительного буфера. При этом процесс копирования может быть поставлен на паузу и затем возобновлен. Так же присутствует функция контроля копирования, в случае не возможности чтения файла можно повторить попытку, утилита интегрируется в проводник.Язык интерфейса: Multi (Rus)
 
 ## Скачать торент
 ```bash

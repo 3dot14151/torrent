@@ -1,3 +1,81 @@
+###  Публикация: 1244752   (477644) от 03.09.2018
+
+Tower of Time (2018) [Ru/Multi] (1.2.4.2473) Repack xatab
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Tower of Time — удивительная игра со множеством приключений, в которую входит около 50 часов игрового времени. Все уровни в игре созданы вручную, а увлекательный сюжет раскрывается через видеовставки.Тип издания: RepackРазработчик: Event HorizonЖанр: Strategy, RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1341EE834E6944B972FBA66D3B0F8C00B214FB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939440   (474754) от 21.09.2015
+
+bit Dungeon II (2014) [En] (2.2) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+bit Dungeon II — динамичный RPG-рогалик со случайно генерируемыми подземельями, события которого разворачиваются в огромном надземном мире. Источником вдохновения при создании данного проекта, авторы называют такие культовые серии, как Zelda, Dark Souls, и, конечно же, Diablo. Игрок будет управлять невинной душой, оказавшейся среди демонов. Могила Вашей возлюбленной (   Читать дальше...   )Тип издания: RepackРазработчик: KintoGamesЖанр: RPG (Rogue/Action)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23507D3BBFA63FA96A7841E479FEB71E294A0B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057711   (472368) от 29.09.2016
+
+Herolike (2016) [En] (1.0) License HI2U
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Herolike – ролевая игра с экшен боями, в которой вы выступаете в роли начинающего героя. Вы сможете самолично выбирать, с кем сражаться, обдумывать каждый сделанный выбор, приобретать фантастические предметы и даже построить собственный город. Вашей главной задачей станет помешать Злу заполучить в свои руки древний могущественный артефакт Камень Земли, который оно (   Читать дальше...   )Тип издания: LicenseРазработчик: Games HutЖанр: RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9401D6E4C6DABFD982BD574E843820C7F8A04950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108196   (471118) от 26.08.2017
 
 Hero Siege (2014) [En] (2.0.0.3/dlc) Unofficial VseTop [Digital Collector's Edition]
@@ -6,7 +84,7 @@ Hero Siege (2014) [En] (2.0.0.3/dlc) Unofficial VseTop [Digital Collector's Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Masquerada: Songs and Shadows (2016) [En] (0.95) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Hard West 2 (2022) [Ru/Multi] (1.0.0.0.4021/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Midnight Protocol (2021) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Paradise Killer (2020) [En] (1.0.8.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Vanaris Tactics (2022) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Dead State: Reanimated (2014) [Ru] (2.0.2.0002) Repack leve1ord
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (cs:6544/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Space Rogue (2016) [Ru] (1.1.7917) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ Wizards and Warriors (2000) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ Torchlight (2009) [Ru/En] (1.15(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ Regalia: Of Men and Monarchs (2017) [En/Ge/Pl] (1.0.7.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License PROPHET [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Steam-Rip CHRONOS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:533AEE7211B40AE187556638C1031728E236D685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062007   (443468) от 12.10.2016
-
-Avernum: Escape From the Pit (2012) [Ru/En] (1.0.1S) SteamRip Let'sPlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avernum: Escape From the Pit от Spiderweb Software – это своеобразное «признание в любви» тем временам, когда RPG-игры не попадались на каждом шагу, когда игры были вообще чем-то большим, чем интерактивное кино, и когда продукты типа Baldur’s Gate и Fallout были на вершине славы. Avernum – это захватывающая, эпическая и увлекательная игра, сделанная в лучших традициях (   Читать дальше...   )Тип издания: SteamRipРазработчик: SpiderWebSoftWareЖанр: RPG, Isometric, IndieЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FD656B3C6BD1C7412F07DB6546B1DF784D3768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248237   (441300) от 20.09.2018
-
-The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-100601) License CODEX
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте The Bard's Tale IV: Barrows Deep — продолжение одной из самых известных классических игр в жанре RPG. Проявляйте креативность, осваивая разнообразные тактики боя, решайте головоломки, ищите сокровища, получайте различные бонусы и наслаждайтесь игрой.Тип издания: LicenseРазработчик: inXile EntertainmentЖанр: RPG, 1st and 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4BFB17201C31476BBF11E2A703E473762DC067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410273   (437555) от 20.09.2020
-
-The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы ли вы погрузиться в тактическую RPG, полную очарования, юмора и безумных персонажей ?! Они неуклюжи, неопытны и дерзки, но ... им придется вытерпеть компанию друг друга, чтобы получить сокровища подземелья. Однако быстро возникает чувство дежавю ... Управляйте этой командой невероятных героев в приключении, полном юмора и хаоса! Вселенная Naheulbeuk - оригинальное (   Читать дальше...   )Тип издания: RepackРазработчик: Artefacts StudioЖанр: Adventure, Strategy (Turn-Based), RPG, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9062B2663A90B2024B97EBC5CFF9A98130275116
 ```
 
 https://mybot314.ru/tekegram_catalog/

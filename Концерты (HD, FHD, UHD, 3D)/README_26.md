@@ -1,3 +1,61 @@
+###  Публикация: 1160574   (473647) от 25.08.2017
+
+Status Quo - The Last Night Of The Electrics (2017) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Запись выступления группы Status Quo в London O2 Arena 11 декабря 2016 года. История команды началась с бит-группы The Spectres, где играли Фрэнсис Росси (гитара, вокал) и Алан Ланкастер (бас), к которым в конце 1967-го присоединился Рик Парфитт. Середина 70-х стала самым успешным периодом в карьере Status Quo. Каждый из альбомов того времени присутствовал в топ-5. (   Читать дальше...   )1 Caroline
+2 The Wanderer
+3 Something Bout You Baby I Like
+4 Rain(   Читать дальше...   )Производство: Германия | EarmusicЖанр: RockПродолжительность: 01:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26D3F5E6C66556C7AD3B12261BEF00BB56C874E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939703   (472795) от 22.09.2015
+
+Metallica - Live at Rock in Rio (2015) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Metallica — американская метал-группа, образованная в 1981 году. Исполняет музыку в стиле трэш-метал и хэви-метал. Metallica оказала большое влияние на развитие метала и входит (наряду с такими группами как Slayer, Megadeth и Anthrax) в «большую четвёрку трэш-метала». Альбомы Metallica были проданы в общей сложности в количестве более 100 миллионов экземпляров по (   Читать дальше...   )1-Fuel
+2-For Whom the Bell Tolls
+3-Battery
+4-King Nothing(   Читать дальше...   )Жанр: Rock, Thrash MetalПродолжительность: 02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895E5FCFFCB252407FE3C85BC463DD4AA724E0F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406371   (472536) от 04.09.2020
 
 Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +64,7 @@ Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +90,7 @@ Graham Bonnet Band - Live...Here Comes the Night (2017) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +119,7 @@ ZAZ - Sans Tsu Tsou (Live) (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +147,7 @@ Aerosmith - Rocks Donington (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +173,7 @@ Red Hot Chili Peppers — Live At Bonnaroo Festival (2012)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -150,7 +208,7 @@ Sade - Bring Me Home - Live 2011 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -179,7 +237,7 @@ Metallica - The Global Citizen Festival (2016) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -208,7 +266,7 @@ R-Evolution Band Live - The Dark Side of the Wall (2013) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -237,7 +295,7 @@ Styx - Live At the Orleans Arena Las Vegas (2015) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +324,7 @@ Aerosmith - Rocks Donington (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +350,7 @@ Eminem - Live From New York City (2005) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +379,7 @@ Blind Guardian (2016) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +405,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +461,7 @@ Krokus - Live At Baloise Session (2014) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +490,7 @@ Supertramp - Live In Paris '79 (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +519,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +549,7 @@ Rammstein - In Amerika (Disc 1) (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -520,7 +578,7 @@ Madonna - MDNA World Tour (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -548,7 +606,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,7 +632,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,7 +661,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -661,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -672,62 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCE470D9D2439384CD6F59BB9D02BC18451EE8A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407209   (459772) от 10.09.2020
-
-VA - Rockin'1000: Stade de France, Paris (2019) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для такого масштабного выступления потребовалось 1000 музыкантов. 1000 слов было бы недостаточно, чтобы выразить свои чувства. В 2015 году 1000 Rockers одновременно исполнили 'Learn to Fly' Foo Fighters в Чезене, Италия. Видео набрало более 32 миллионов просмотров, а Foos на самом деле дали концерт в городе! С тех пор они организуют концерты с 1000 музыкантами, играющими (   Читать дальше...   )01. AC/DC - Highway to Hell
-02. The Clash - Should I Stay Or Should I Go
-03. Nirvana - Smells Like Teen Spirit
-04. Red Hot Chili Peppers - Suck My Kiss(   Читать дальше...   )Производство: ФранцияЖанр: РокРежиссер: Rockin'1000Продолжительность: 01:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE34D8EA740B83FA2AB2EFC49A6CBAEB7582E5BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321700   (456558) от 25.08.2019
-
-Жара в Баку - Хиты 90 х (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот вечер посвящен музыке 1990-х. В ту эпоху рождались самые безудержные музыкальные хиты, которые и сегодня никого не оставят равнодушными.
-Концерт посвященный юбилею Любэ и самым ярким ХИТАМ 90-Х! Для вас выступят Валерия, Николай Басков, Филипп Киркоров, Фабрика, Леонид Агутин, Отпетые Мошенники, Григорий Лепс, EMIN, Алёна Свиридова, НА-НА, Александр Буйнов, (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87C488AB26534F779DA23FC1525591F953A7A0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

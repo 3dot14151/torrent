@@ -1,3 +1,61 @@
+###  Публикация: 978974   (890194) от 06.09.2021
+
+Aria the Avvenire | Ария: Будущее [2015, OVA, 3 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бонусные овашки к БД-переизданию первых трёх сезонов Арии. Описание первого сезона:
+
+Новая Венеция парит между прозрачно-синим небом и сине-прозрачной водой. По каналам скользят гондолы, над гондолами изогнулись мосты, а над мостами реют чайки…
+(   Читать дальше...   )Производство: Студия TYO AnimationsЖанр: повседневностьРежиссер: Сато ДзюнъитиПеревод: AragamiЯзык субтитров: РусскийПродолжительность: 3 серии по 16 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF19224805AB51586FAA1EDEED366E7DA15367FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494419   (889178) от 07.09.2021
+
+Kud Wafter | Куд Вафтер [2020, OVA] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+ОВА продолжает историю второго сезона 'Littel Busters!'.
+Герои сериала возвращаются после экскурсии по домам. В общежитии остаются Кудрявка Номи и Наоэ Рики.
+По воле случая (коммунальная авария с водопроводом) Рики негде переночевать, затопило мужскую половину общаги. А у Номи, как раз, в комнате отсутствует соседка. Звёзды сошлись, что называется.
+Удастся ли им (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключенияРежиссер: Судзуки КэнтароПеревод: ХельшиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47457BB7889948C52B332ADFA9BF277EE46A3972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869925   (889135) от 16.02.2015
 
 Uchuu Senkan Yamato 2199 | Star Blazers 2199 | Space Battleship Yamato 2199 | Космический крейсер Ямато OVA [2012, OVA, 26 эп.] BDRip 1080p Hi10P raw
@@ -6,7 +64,7 @@ Uchuu Senkan Yamato 2199 | Star Blazers 2199 | Space Battleship Yamato 2199 | К
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +90,7 @@ Aria the Crepuscolo | Ария: Сумерки [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +116,7 @@ Null Peta | Null & Peta | Нуль и Пета [2019, Web, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +143,7 @@ Jashin-chan Dropkick | Dropkick on My Devil! | Пинок с наскока Дз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +169,7 @@ Batman Ninja | Бэтмен-ниндзя [2018, Movie] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +195,7 @@ Girly Air Force | Девичьи воздушные силы [2019, TV, 12 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +221,7 @@ Seto no Hanayome / My Bride is a Mermaid / Морская Невеста [2007, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +249,7 @@ Flying Witch / Полет ведьмы [2016, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +276,7 @@ Overlord | Повелитель [2015, TV, 13 + 8 sp] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +302,7 @@ Last Exile / Изгнанник [2003, TV, 26 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +328,7 @@ Death Parade / Парад смерти [2015, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Musekinin Kanchou Tylor: Tokubetsu Hen - Hitoribocchi no Senso | The Irresponsib
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +380,7 @@ Ai Tenchi Muyou! / Тэнти - лишний! Любовь [2014, TV, 50 + 10 SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +406,7 @@ Hai to Gensou no Grimgar / Гримгал пепла и иллюзий [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +433,7 @@ Bungou Stray Dogs / Великий из бродячих псов [TV-1] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +459,7 @@ Ashita Sekai ga Owaru to Shite mo | The Relative Worlds | Связанные м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +485,7 @@ Chihayafuru 3 | Игра Тихайи 3 | Яркая Тихайя [ТВ-3] [2019
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +511,7 @@ Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь с нуля �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +537,7 @@ Gakkou Gurashi! | School-Live! | Школьная жизнь! [2015, TV, 12 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +563,7 @@ Zombie Land Saga Revenge | Зомбиленд. Сага: Месть [2021, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +590,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +617,7 @@ Koukaku Kidoutai: Shin Gekijouban | Ghost in the Shell New Movie  | Призра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +645,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и гроб [2014, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -613,7 +671,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 эп. + 13 SP] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,60 +682,6 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 эп. + 13 SP] BDrip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4387D21502E25736431333AA63FE6778442DAF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628293   (876778) от 12.04.2013
-
-Nekomonogatari (Kuro) | История кошки (чёрная глава) [2012, OVA, 4 эп.] BDrip Hi10p 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Коёми Арараги из-за недавно пережитых событий стал философом и любил поговорить о жизни с разными людьми – сестренками Карэн и Цукихи, малышкой-вампиром Синобу и старшим товарищем по имени Мэмэ Осино. Увы, сестренки есть сестренки, ничего нового не скажут, Синобу обычно молчала, а Осино, как и подобает гуру, выражался мутно и загадочно. А вопрос-то (   Читать дальше...   )Жанр: комедия, этти, мистикаРежиссер: Симбо АкиюкиСубтитры: русские отПродолжительность: 4 серии по 26 минут
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997175   (872965) от 17.03.2016
-
-Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV] BDrip 1080p raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872965.jpg" />
-</div>
-
-
-###  Подробнее
-
-История фильма разворачивается в двух мирах - в мире людей (Сибуя, Токио) и в мире зверомонстров (Дзютэнгай). Два этих мира не должны были пересекаться, но вот однажды одинокий мальчик потерялся и попал в мир зверей. Там он встретил такого же одинокого зверя, звавшегося Куматэцу, и напросился к нему в ученики.
-
-©  ANNЖанр: приключения, фэнтезиРежиссер: Хосода МаморуПеревод: zafhosЯзык субтитров: русскийПродолжительность: 120 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93E1A25596577422E10D84A2CBD42EE8CB352B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

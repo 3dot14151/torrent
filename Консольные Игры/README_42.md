@@ -1,29 +1,3 @@
-###  Публикация: 1066132   (413305) от 25.10.2016
-
-Need for Speed: The Run (2011) [Xbox360] [PAL] 14699 [FreeBoot] [License / TU4] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это The Run. Подпольные гонки с сумасшедшими ставками. Единственный способ сохранить жизнь - первым прибыть из Сан-Франциско в Нью-Йорк. Нет ограничений скорости. Нет правил. Нет союзников. Все, что у вас есть - ваше водительское мастерство и четкое понимание того, что вам противостоят сотни лучших в мире гонщиков на самых опасных трассах в стране. В Need for Speed (   Читать дальше...   )Тип издания: LicenseРазработчик: EA Black BoxЖанр: RacingЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0992DFD57A80699A8C73988F4D06F6361FBD9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948226   (412924) от 19.10.2015
 
 NBA 2K16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01] [En]
@@ -32,7 +6,7 @@ NBA 2K16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +34,7 @@ Hacked Xbox Backwards Compatibility / Взломанный эмулятор Xbox
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +60,7 @@ Resident Evil: Revelations / Biohazard: Revelations [PS3] [EUR] [Ru] [4.31] [Cob
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +86,7 @@ Spiritfarer (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.3] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +112,7 @@ Disney Epic Mickey 2: The Power of Two (2012) [Xbox360] [RegionFree] [FreeBoot] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +138,7 @@ Pure Football (2010) [PS3] [EUR] 3.21 [Cobra ODE / E3 ODE PRO ISO] [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +164,7 @@ Hades (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.36054] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +190,7 @@ Immortal Realms Vampire Wars (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.0.1
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +216,7 @@ Valkyria Chronicles  4 (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +242,7 @@ Ash of Gods: Redemption (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.0.3] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +269,7 @@ The Last Guardian / Последний хранитель (2016) [PS4] [EUR] 5.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +297,7 @@ EA SPORTS UFC 3 (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.14] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +323,7 @@ The Jak and Daxter Collection [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +350,7 @@ ExciteBots: Trick Racing [Wii] [NTSC] [Eng] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +376,7 @@ Dilogy Rayman Legends + Origins (2015) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +404,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 3.40 [Repack / 1.01] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +430,7 @@ Forza Horizon [XBOX360] [RUSSOUND] [Region Free] [Kinect] [LT+3.0] (XGD3/15574) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +456,7 @@ Pinball Hall of Fame: The Williams Collection [Wii] [NTSC-U] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +484,7 @@ Metro: Last Light [PS3] [Ru/En] [Repack / 1.02 / 7 DLC] (2013) | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_403081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -538,7 +512,7 @@ The Adventures Of Tintin: The Game [PS3] [PAL] [ENG] [MOVE] [3.55] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +540,7 @@ Kega Fusion [Sega Mega Drive 2] [Ru] (2011)
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +566,7 @@ Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +592,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 4.76 [OFW] [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +618,7 @@ DOOM 3 BFG Edition (2012) [PS3] [EUR] 3.40 [Repack / 1.01] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +645,7 @@ Dark Souls: Prepare To Die Edition [XBOX360] [PAL] [En] [LT+3.0] (XGD3 / 15574) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -683,6 +657,32 @@ Dark Souls: Prepare To Die Edition [XBOX360] [PAL] [En] [LT+3.0] (XGD3 / 15574) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C09227F42B5E401267747349ACED9C5A1C89840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170113   (400190) от 30.09.2017
+
+FIFA 18 Legacy Edition (2017) [PS3] [EUR] 4.21 [Repack / 1.02] [Ru/Multi]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вас ждут великолепный игровой процесс и непревзойденная реалистичность, а также обновленные формы и составы, улучшения режима карьеры, FIFA Ultimate Team — и многое другое.Тип издания: RepackРазработчик: EA VancouverЖанр: Sports, SoccerЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEFE846E426635B20F3EE06E197E67042B01052
 ```
 
 https://mybot314.ru/tekegram_catalog/

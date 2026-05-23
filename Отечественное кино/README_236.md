@@ -1,3 +1,108 @@
+###  Публикация: 1685019   (127301) от 18.12.2023
+
+Скольжение (2013) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой с необычным именем-прозвищем Пепл – оперативный сотрудник, однако и он, и вся группа, к которой он принадлежит, типичные, погрязшие в криминальной деятельности, «оборотни в погонах». В отлаженной преступной схеме этой сработавшейся команды начинают возникать сбои, и становится очевидным, что в их рядах есть осведомитель. Обозначенная сюжетная канва (   Читать дальше...   )Производство: Россия / Blackbriar production, MultilandЖанр: триллер, криминалРежиссер: Антон РозенбергАктеры: Владислав Абашин, Алексей Игнатов, Михаил Солодко, Владимир Лукьянчиков, Наталья Швец, Ольга Смирнова, Александр Борисов, Николай Козак, Мария Слидовкер, Алексей ШкатовСубтитры: отсутствуютПродолжительность: 01:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570D38FECA742A8D437F74DFD4AA3444FC2C6452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685410   (127300) от 18.12.2023
+
+Всадник по имени смерть (2004) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Россия начала XX века. Совершен ряд кровавых террористических актов, направленных против высоких должностных лиц государства. Главная цель террористов — убийство Великого князя Сергея Александровича. Покушение готовят члены так называемой «Боевой организации» — ее руководитель Жорж.
+Процесс подготовки теракта раскрывает психику, чувства и стремления террористов, (   Читать дальше...   )Производство: Россия / МосфильмЖанр: драмаРежиссер: Карен ШахназаровАктеры: Андрей Панин, Ксения Раппопорт, Артём Семакин, Ростислав Бершауэр, Анастасия Макеева, Алексей Казаков, Дмитрий Дюжев, Валерий Сторожик, Василий Зотов, Дмитрий ГусевСубтитры: отсутствуютПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DA88E35AE74137C13D697AFE10A3F383B5CF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685355   (127289) от 18.12.2023
+
+Неестественный отбор (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В провинциальном городе существует фонд, поддерживающий бездомных инвалидов, людей с ограниченными физическими возможностями и бедняков. Однако владельцы фонда имеют с благотворительности свою выгоду, управляя местными жителями и их судьбами. Инвалид Егор Колчак, только что потерявший мать, решает противостоять меценатам и положить конец их своеволию.Производство: Россия, ВВП Альянс / Кинокомпания АльянсЖанр: триллер, криминалРежиссер: Татьяна ЯрмакАктеры: Михаил Пореченков, Сергей Юшкевич, Евгений Михеев, Илья Антоненко, Алексия Белавина, Диана Милютина, Полина Северная, Сергей Мухин, Александр Танхилевич, Анна АфанасьеваСубтитры: ОтсутствуютПродолжительность: 01:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554FBD55D587270F651203762F84337F7232BE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332760   (127177) от 19.12.2023
+
+Несут меня кони (1996) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в наши дни в Крыму. Иван Лешков, некогда студент столичного вуза, а ныне рядовой адвокат в маленьком городке, тяготится скукой провинциальной жизни, пьет горькую и вымещает злобу за свои несбывшиеся надежды на любимой женщине и окружающих. Однажды друг его юности Эллер, желая проучить обидчика, как во времена Чехова и Пушкина, вызывает Лешкова (   Читать дальше...   )Производство: Россия, АРИОНЖанр: драмаРежиссер: Владимир МотыльАктеры: Андрей Соколов, Агнежка Вагнер, Сергей Виноградов, Геннадий Печников, Владимир Качан, Валентина КособуцкаяПродолжительность: 01:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821D9B4BE03604A38BEC974C144271E2BDB96E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685713   (127147) от 19.12.2023
 
 Я «любила» мужа. Фильм (2022) WEB-DLRip [H.264/1080p]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03435D89341996F87DB7558B40F12CED47F21C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687180   (125970) от 25.12.2023
-
-Кибердеревня. Новый Год (2023) WEBRip [H.264] (Новогодний спецэпизод)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125970.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 декабря 2099 года по всей Солнечной системе накрывают столы и наряжают киберёлки, а марсианский фермер Николай ждёт к себе в гости с Земли жену и двух дочерей. Но что делать, если из-за аномальной солнечной активности отменяют все межпланетные перелёты? Новый год — праздник семейный, и Николай решает во что бы то ни стало добраться до родных. Помогут ему в этом (   Читать дальше...   )Производство: Россия | Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Ольга Жевакина, Влада Лукина, Маргарита СилаеваСубтитры: Русские (full, SDH)Продолжительность: 00:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF88B155E889C67451DEA27EC6EF6BB7C5E6130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687404   (125662) от 26.12.2023
-
-Часовщик (2012) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Смирнов - киллер высшего класса. Профессионал своего дела, он не оставляет никаких улик. В узких кругах мужчина известен как «Часовщик» за свою страсть к коллекционированию наручных часов. Феликс - друг Бориса и его бывший наставник. Когда Часовщику поступает заказ на устранение Феликса, киллер выполняет его: бизнес есть бизнес. Дочь Феликса, Соня, просит Бориса (   Читать дальше...   )Производство: Россия | Про100 ФильмЖанр: боевик, криминал, драмаРежиссер: Алексей ФеоктистовАктеры: Максим Дрозд, Ольга Дибцева, Борис Клюев, Дмитрий Супонин, Олеся Поташинская, Андрей Харыбин, Валерий Новиков, Инна Гинкевич, Егор Егоров, Виктор УдочкинПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BB61AECDB4C8673DA4C1AD6388D990A4A4D5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687388   (125658) от 26.12.2023
-
-Блондинка (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ира живет свою счастливую жизнь: играет в труппе небольшого питерского театра и встречается с начинающим режиссером Львом. Однако в какой-то момент театр оказывается на грани закрытия, а ее любимый мужчина внезапно исчезает. Как в этих обстоятельствах найти себя и убедить окружающих, что перекраситься в блондинку не лучшее решение всех проблем?Производство: Россия | Вита АктиваЖанр: драма, комедияРежиссер: Павел МирзоевАктеры: Дарья Жовнер, Евгений Цыганов, Юлия Марченко, Фёдор Федотов, Алена Долголенко, Игорь Угаров, Анна Арефьева, Иван Чигасов, Эра Зиганшина, Геннадий СмирновСубтитры: отсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332B2DBF096DAF1FB0618C5FDB3CE49E9C6E7BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687396   (125656) от 26.12.2023
-
-Блондинка (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ира живет свою счастливую жизнь: играет в труппе небольшого питерского театра и встречается с начинающим режиссером Львом. Однако в какой-то момент театр оказывается на грани закрытия, а ее любимый мужчина внезапно исчезает. Как в этих обстоятельствах найти себя и убедить окружающих, что перекраситься в блондинку не лучшее решение всех проблем?Производство: Россия | Вита АктиваЖанр: драма, комедияРежиссер: Павел МирзоевАктеры: Дарья Жовнер, Евгений Цыганов, Юлия Марченко, Фёдор Федотов, Алена Долголенко, Игорь Угаров, Анна Арефьева, Иван Чигасов, Эра Зиганшина, Геннадий СмирновСубтитры: отсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5FB26951E7511DA75C6A3093F4D4E869E0C25F
 ```
 
 https://mybot314.ru/tekegram_catalog/

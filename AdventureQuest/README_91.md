@@ -1,3 +1,107 @@
+###  Публикация: 1759541   (37783) от 09.11.2024
+
+Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы собирались встретить праздник со своей девушкой, Джойс, но приятный вечер нарушил незванный гость, и теперь вам придётся приложить все усилия, чтобы пережить это Рождество. Crimson Snow - это сюжетно ориентированная хоррор игра, которая рассказывает о мрачных событиях одной рождественской ночи. Пробирайтесь по странным комнатам освящённого праздничными огнями (   Читать дальше...   )Тип издания: RepackРазработчик: Steppe Hare StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDB855E32DB3FA0437AA39D16F573022D8E4E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421786   (37735) от 10.11.2024
+
+Chicken Police - Paint it RED! (2020) [Ru/Multi] (438) License GOG
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Chicken Police - это приключение с рассказами, сложной системой допросов и детективным игровым процессом, где придется решать множество загадок. Таинственная Дама... Странное дело... и самые дикие копы в Дикой природе. Сонни Перьеленд и Марти МакЦып когда-то были легендарной парой детективов по прозвищу Пернатые копы. Но это было почти десять лет назад, и их время (   Читать дальше...   )Тип издания: LicenseРазработчик: The Wild GentlemenЖанр: Приключение, Квест, ДетективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C251A58EB0AB4FB314C63694B5988CF613246AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759804   (37729) от 10.11.2024
+
+Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"Два водопада" ("Нишу Такуатшина") - это однопользовательская игра от первого лица, основанная на повествовании, в которой представлены контрастирующие точки зрения на первые встречи французов и коренных жителей. Будьте готовы столкнуться с опасностями канадской дикой природы и сделать выбор, который может повлиять на ваших персонажей. Исследуйте (   Читать дальше...   )Тип издания: SceneРазработчик: Unreliable NarratorsЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB09AC80E04B70D89A843544288B9D904CEA86B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711893   (37726) от 10.11.2024
+
+Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Затерянный навсегда в кромешной тьме! Но именно это и делает игру веселой! Огромные коридоры, погруженные в темноту, меняются с каждой игрой. Все, что вы можете сделать, это убежать или спрятаться от пугающих призраков. Используйте уникальные предметы и карты Каруты с особыми способностями в своих отчаянных поисках выхода из тьмы!Тип издания: SceneРазработчик: Space Onigiri Game LLCЖанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Корейский, КитайскийЯзык интерфейса: Английский, Японский, Корейский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C63A5C0AADAB0A331F62083393E0EDF519D45C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694284   (37714) от 10.11.2024
 
 Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
@@ -6,7 +110,7 @@ Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Demonologist (2023) [Ru/Multi] (1.5.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Tavern Talk (2024) [Multi] (20241111/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Gori: Cuddly Carnage (2024) [Multi] (1.0.187/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.4b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.3.1535/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B33324230EBDFA314982D2F8495213E28B77F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760936   (36981) от 17.11.2024
-
-Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond The Darkness - это мрачная история, которая окунёт вас в детские кошмары, даже если вы успели о них позабыть. Помогите маленькой девочке Милли сразиться с ужасами, таящимися во тьме, и найдите её пропавшую семью. Вы окажетесь причудливых мирах воспоминаний, искажённых страхом и отчаянием, а вашим единственным оружием станет свет маленькой лампы…Тип издания: RepackРазработчик: My Little StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF66DFF47474C7A6F3491B0D680EF41FE04CFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761094   (36915) от 18.11.2024
-
-VED (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36915.jpg" />
-</div>
-
-
-###  Подробнее
-
-VED - это сюжетное RPG, сочетающее вручную нарисованную графику и анимацию с уникальной системой телепортации, пошаговыми боевыми механиками и элементами roguelite. Погрузитесь в фантастический мир с глубоким нарративом, десятками необратимых последствий и альтернативными концовками, где игровой процесс легко понять, но сложно освоить в совершенстве.Тип издания: RepackРазработчик: KaraclanЖанр: Приключенческие игры,  Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB30AB8A5A2EC18D48C080FE9427F024EBE326EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761166   (36911) от 18.11.2024
-
-The Oregon Trail (2022) [Ru/Multi] (1.0.33/dlc) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36911.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Oregon Trail™ от Gameloft - такого The Oregon Trail™ вы еще не видели. Современный взгляд на испытания и невзгоды, поджидающие путников на пути в Орегон в этом продолжении глобального феномена позволит игрокам погрузиться в захватывающие, которые могут быть исторически точными или совершенно экстремальными. Игроки смогут присоединиться к группе путешественников, (   Читать дальше...   )Тип издания: RepackРазработчик: GameloftЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60905001B947F561DBD6F6B24898348B405629D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742116   (36655) от 21.11.2024
-
-Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубики! Настольные ролевые игры! Ктулху! Разнообразные сюжетные модули! Богатые разветвленные повествования! Мы - пленники судьбы, но иногда мы бросаем кости и творим чудеса! Создавайте всевозможных персонажей и продвигайтесь по сюжету вперед благодаря свободному исследованию. Помимо этого, вы сможете погрузиться в расследования, рассуждения, принимать выборы и т.д. (   Читать дальше...   )Тип издания: SceneРазработчик: MeowNatureЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC9C8E99D8C7920C15A4775FB0BA1ADB4E3E818
 ```
 
 https://mybot314.ru/tekegram_catalog/

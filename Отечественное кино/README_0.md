@@ -1,3 +1,81 @@
+###  Публикация: 1860785   (1062129) от 22.03.2026
+
+Казачья быль (1999) HDTV [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1552 год. Царь Иван Грозный готовит поход на Казань. Но есть у него опасение, что вольные донские казаки могут не поддержать его в этом походе, и даже наоборот — ударить в тыл его армии. Он отправляет на Дон гонца, бывшего казака Романа Алимова, чтобы разведать их планы, и вручает ему пояс с драгоценными камнями как знак царского отличия. По дороге на Дон Роман попадает (   Читать дальше...   )Производство: Россия / Свердловская киностудияЖанр: фантастика, приключения, историяРежиссер: Николай ГусаровАктеры: Анатолий Котенёв, Венера Сиразиева, Евгений Минулин, Юрий Назаров, Лесь Сердюк, Юрий Алексеев, Владимир Антоник, Юрий Дубровин, Николай Гусаров, Александр Ческидов, Олег НиколаевскийПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75E86AD701E444E05DEE59E8D7677E01D063F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860759   (1061991) от 22.03.2026
+
+Мы странно встретились (2007) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В своем провинциальном городке красавица Надежда Решетова занимает солидную должность — начальник управления строительством в местной мэрии. Однако личная жизнь ее пока не сложилась. Она живет вдвоем с бабушкой и каждые выходные ездит на рыбалку. Однажды во время такой поездки она встречает «принца на белом коне» — московского бизнесмена Виктора. Впрочем, на пороге (   Читать дальше...   )Производство: Россия, Украина / "Star Media"Жанр: МелодрамаРежиссер: Сайдо Курбанов, Юлия ГерраАктеры: Ярослав Бойко, Ольга Красько, Валентина Ананьина, Вадим Александров, Сергей Юшкевич, Тамара Спиричева, Татьяна Кузнецова, Наталья Позднякова, Вадим Ситников, Ксения ЧерноскутоваСубтитры: русскиеПродолжительность: 01:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BA21F4F94E04A7491A3E9B5E3F7CFDD8B63141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860388   (1061843) от 20.03.2026
+
+Левша (2025) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Россия, конец XIX века. На фоне надвигающейся войны с Великобританией в императорском дворце находят загадочное устройство — механическую блоху. Расследовать происшествие поручают молодому офицеру Петру Огарёву, мечтающему заслужить доверие императора Александра III. В поисках истины он объединяется с Левшой — гениальным, но забытым мастером из Тулы. Вместе они погружаются (   Читать дальше...   )Производство: Россия / Legio FelixЖанр: фантастика, приключения, детективРежиссер: Владимир БесединАктеры: Юрий Колокольников, Фёдор Федотов, Леонела Мантурова, Ян Цапник, Алексей Гуськов, Артур Иванов, Александр Чевычелов, Николай Евстафьев, Александр Иванов, Семён НефедовПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3A9401EB1703204968763F6FA46B6C41867E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860123   (1061802) от 19.03.2026
 
 Шерлок Online (2025) WEBRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04695482757316C2A401DD4CCFDB897F5A24A11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851278   (1055020) от 05.02.2026
-
-Убийство на 100 миллионов (2013) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055020.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном крупном банке поздно вечером происходит взрыв. В это время на месте должен был находиться владелец банка, но кабинет разворочен, а тело не нашли. Подозрение в организации взрыва и пропаже большой суммы падает на ближайший круг банкира. У каждого был свой мотив сделать это. Все близкие люди банкира попадают под пристальное внимание полиции и криминальных кругов. (   Читать дальше...   )Производство: Россия / Берг СаундЖанр: ДетективРежиссер: Роман МушегянАктеры: Олег Шкловский, Алёна Яковлева, Михаил Ремизов, Сергей Комаров, Екатерина Стриженова, Станислав Эрклиевский, Сергей Астахов, Роман Полянский, Мария Антипп, Борис Эстрин, Иван НиколаевСубтитры: ОтсутствуютПродолжительность: 01:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4CFFF3B9959EEC5BBCF8C661ACC16B4D317433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851290   (1055017) от 01.02.2026
-
-В августе 44-го (2001) BDRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1944 года. Белоруссия уже освобождена, однако с её территории регулярно выходит в эфир группа лазутчиков, передавая врагам важную информацию о советских войсках. На поиски шпионов в район запеленгованной рации отправляется отряд во главе с офицером СМЕРШа.Производство: Россия, Беларусь / Министерство культуры Республики Беларусь, БеларусьфильмЖанр: военный, детектив, боевик, драма, историяРежиссер: Михаил ПташукАктеры: Евгений Миронов, Владислав Галкин, Юрий Колокольников, Беата Тышкевич, Алексей Петренко, Александр Феклистов, Рамаз Чхиквадзе, Александр Балуев, Ярослав Бойко, Анджей Печиньски и др.Субтитры: русскиеПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDDBB4ECEDF777BB878C31F53B62A58DD619C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851294   (1055015) от 01.02.2026
-
-На свете живут добрые и хорошие люди (2010) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Ваша любимая жена пытается Вас убить… Если Ваш отец считает себя реинкарнацией Чапаева… Если неожиданно выясняется, что Вы хотите быть не учителем истории, а водителем трамвая… Если Ваши сотрудницы вдруг начинают перед Вами раздеваться прямо на рабочем месте… Если все вокруг только пьют, поют, пляшут и дерутся, и никто не хочет работать…. .. это значит, что (   Читать дальше...   )Производство: Россия,  продюсерский центр "Золотой век", кинокомпания "ЛеопАРТ"Жанр: драма, мелодрамаРежиссер: Дмитрий АстраханАктеры: Сергей Горобченко, Владимир Кабалин, Марина Иванова, Лариса Грибалева, Арина Ефремова, Андрей Дубровский, Мария Возба, Сергей Власов (IV), Семён Фурман, Раиса Грибович, Екатерина Макеева, Света Хомчик, Елена Акулёнок, Филипп ПанковСубтитры: отсутствуютПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C5E99DF66915E5624C9DE3CE33489E2E4EBDD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

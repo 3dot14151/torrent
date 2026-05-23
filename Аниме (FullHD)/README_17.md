@@ -1,3 +1,55 @@
+###  Публикация: 1172904   (795531) от 21.01.2018
+
+Eromanga Sensei | Эроманга-сэнсэй [2017, TV, 12 эп.] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Масамунэ Изуми оказался в весьма непростой ситуации. Ему всего 15 лет, а на него уже свалилось столько жизненных тягот: нужно ходить в школу, делать уроки, содержать дом, да ещё и ухаживать за своей младшей сестрой Сагири Изуми. И всё это без помощи родителей! Проблема в том, что Масамунэ не видел лица своей сестры с того самого момента, как она переехала (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: комедия, романтикаРежиссер: Такэсита РёхэйПеревод: AOSЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B8203AAA35A85BBE56791398E1704CF136D11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174687   (795465) от 21.01.2018
+
+Tsugumomo | Цугумомо [ТВ-1] [2017, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В японских легендах существует множество различных духов. Один из них цукумогами - это вещь, которая обрела душу. Когда мама Казуи Кагами подарила ему пояс для кимоно с вышивкой в виде сакуры, он и думать не мог, что эта вещь когда-нибудь оживёт. А пояс взял и превратился в голубоволосую девушку по имени Кириха. И, как нельзя, кстати, ведь на Казую в тот момент напал (   Читать дальше...   )Производство: студия Zero-G / ゼロジーЖанр: комедия, романтика, мистика, эттиРежиссер: Курая РёитиПеревод: AOSЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D0FEDA383CE3DFC37C2F2CC1E8C7743732A87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184823   (795414) от 21.01.2018
 
 Owarimonogatari (2017) | Owarimonogatari Second Season | Финальные истории (спэшлы) [2017, TV-спешалы, 7 эп.] BDrip 1080p raw
@@ -6,7 +58,7 @@ Owarimonogatari (2017) | Owarimonogatari Second Season | Финальные ис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Made in Abyss | Созданный в Бездне [2017, TV, 13 эп.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Granblue Fantasy The Animation | Голубая мечта Грана [2017, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Nekopara | Кошачий рай [2017, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Ichigo Marshmallow | Strawberry Marshmallow | Клубничный зефир [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ Uchuu Senkan Tiramisu Zwei | Space Battleship Tiramisu Zwei | Космическ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ Uchuu Senkan Tiramisu | Space Battleship Tiramisu | Космический ли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +270,7 @@ Gekijouban Haikyuu!! | Волейбол (компиляция) [2015, Movie, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +296,7 @@ Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +322,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +348,7 @@ Haikyuu!! Second Season | Волейбол [ТВ-2] [2015, TV, 25 из 25] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +374,7 @@ Haikyuu!! | Волейбол TB-1 [2014, 25 из 25] BDRip 1080 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ Blade Runner: Black Out 2022 | Бегущий по лезвию: Блэкаут 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +455,7 @@ Godzilla 3: Hoshi wo Kuu Mono | Godzilla: The Planet Eater | Годзилла: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +481,7 @@ Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +507,7 @@ Anime-Gataris | Истории об аниме [2017, TV, 12 из 12] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +533,7 @@ Tales of Zestiria The Cross | Tales of Zestiria The X | Сказания Зес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +559,7 @@ Lostorage Incited WIXOSS | Беспамятство: Побуждение WIXOSS
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +585,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +611,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,59 +674,6 @@ Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E3F2D13D20C2D635325E93553BCFC5BE77BFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388618   (786664) от 06.06.2020
-
-Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они встретились посреди Токио под нескончаемым дождем. Он мечтает начать новую жизнь в большом городе. А она никогда не унывает и обладает удивительным даром менять погоду силой мысли. Там, где она — всегда солнце. Вместе они изменят этот мир навсегда.
-© kinopoiskПроизводство: студия CoMix Wave Inc. / コミックス・ウェーブ・フィルムЖанр: романтика, драмаРежиссер: Синкай МакотоПеревод: ReanimediaЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Японские; #3: Китайские; #4: РусскиеПродолжительность: 115 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4BBC7D43A8C4AF2D4634CCB15ADB5730F907E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318374   (786656) от 06.06.2020
-
-Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбольный клуб Восточного Токио играет в японской первой лиге, где конкурируют сильнейшие профессиональные команды. Однако лучшие дни «Ист Токио Юнайтед» давно позади, команда превратилась в стабильного аутсайдера, постепенно теряя ценных игроков, спонсоров и преданных поклонников. Тренерская чехарда и безденежье тоже не улучшают ситуацию, радикальное крыло фанатов (   Читать дальше...   )Жанр: спорт, драмаРежиссер: Ко ЮПродолжительность: 26 по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4B3ACF99807A1053A6756900AEF28E508653C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

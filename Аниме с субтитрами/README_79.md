@@ -1,3 +1,110 @@
+###  Публикация: 570761   (388956) от 06.11.2012
+
+Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2011, ONA, 12 ep] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Если коротко, то аниме повествует об ученице старшей школы, организовавшей клуб сборки пластиковых моделей.
+Правда, самих моделей в овашке практически и нет. Зато полно злого стёба над всем чем только можно. Как написал один из зрителей на W-A: "Юмор строится на противопоставлении стандартных жизненных ситуаций в школе и нестандартной реакции героинь." Я бы сказал - нестандартная реакция аниме-героинь. А так, всё очень даже жизненно получилось. И очень смешно.
+Меня чуть не порвало от смеха, пока смотрел. Было бы чуть побольше эпизодов, наверное, так бы и получилось.
+Всячески рекомендую к просмотру :)Жанр: комедия, школа, повседневностьРежиссер: Мидзусима ЦутомуПродолжительность: 12 серий по 2 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0797091A2A0F4020C69599AD67669DB72030EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173786   (388803) от 13.10.2017
+
+Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголке мира [2016, Movie] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В жизни Сузу Урано наступают большие перемены: она выходит замуж и переезжает к своему возлюбленному из Хиросимы в город Курэ. Но начинается Вторая Мировая Война, и жизнь на новом месте будет для нее не такой радужной, как она себе представляла. Впрочем, случались и хорошие дни.Производство: MAPPAЖанр: исторический, драма, повседневность, сэйнэнРежиссер: Сунао КатабутиПеревод: Advantage (zafhoz)Субтитры: SUPФормат: MKVПродолжительность: 130 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59BE64AD39A241238D53A22365BB3A4AACEB68C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173801   (388769) от 13.10.2017
+
+Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголке мира [2016, Movie] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В жизни Сузу Урано наступают большие перемены: она выходит замуж и переезжает к своему возлюбленному из Хиросимы в город Курэ. Но начинается Вторая Мировая Война, и жизнь на новом месте будет для нее не такой радужной, как она себе представляла. Впрочем, случались и хорошие дни.Производство: MAPPAЖанр: исторический, драма, повседневность, сэйнэнРежиссер: Сунао КатабутиПеревод: Advantage (zafhoz)Субтитры: ASSФормат: MKVПродолжительность: 130 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED79228D98E6A7E7DCE8F19DD9CC7E9254CA8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567639   (387751) от 04.09.2022
+
+Kami Kuzu Idol | Phantom of the Idol | Богиня идола-мерзавца [2022, TV, 10 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После очередного провального концерта, разочарованный в своей профессии Юй, сталкивается с очаровательной, энергичной и очень позитивной девушкой по имени Асахи. Позже, как оказалось, мечта яркой красотки стать айдолом в поп-группе и начать выступать. Но вот не задача, незнакомкой оказалась сама Асахи Могами – любимая певица миллионов, которая погибла год назад из-за (   Читать дальше...   )Производство: Studio GokumiЖанр: комедияРежиссер: Фукуока ДайкиПеревод: Kami KuzuЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 10 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EF97548FDBFE0A6C1D05F308E4AAB005EF3A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414147   (387590) от 07.10.2020
 
 Kurogane no Linebarrels | Linebarrels of Iron | Стальной Лайнбаррел [2008, TV, 24 + 2] BDRip 1080p raw
@@ -6,7 +113,7 @@ Kurogane no Linebarrels | Linebarrels of Iron | Стальной Лайнбар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ Gekijouban Mahouka Koukou no Rettousei: Hoshi o Yobu Shoujo | Непутевый
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ Bang Dream! | Ура мечте! (ТВ-1) [2017, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ Gekijouban Kidou Senshi Gundam 00: A Wakening of the Trailblazer | Mobile Suit G
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +219,7 @@ Captain Earth | Капитан Земля [2014, TV, 25] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +245,7 @@ Macross 7 / Макросс 7 [1994, 49] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +271,7 @@ Taneyamagahara no Yoru / Night of Taneyamagahara / Ночь на Танэяма�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +300,7 @@ Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +326,7 @@ Gochuumon wa Usagi Desuka?? Sing for You | Кролика заказывали? 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +352,7 @@ Gochuumon wa Usagi Desuka?? Dear My Sister | Кролика заказывали
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +378,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +404,7 @@ Gaikotsu Shotenin Honda-san | Skull-face Bookseller Honda-san | Скелет-к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +430,7 @@ Given | Дарованный [2019, TV, 11 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +456,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +482,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +509,7 @@ Yuru Yuri San Hai! / Свободу лесбиянкам! Три подружк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +535,7 @@ One Punch Man | One-Punch Man | Ванпанчмен [2015, TV, 12 + 6sp] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +561,7 @@ Jashin-chan Dropkick / Dropkick on My Devil! / Пинок с наскока Дз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +587,7 @@ Merc Storia: Mukiryoku Shounen to Bin no Naka no Shoujo | Merc Storia: The Apath
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +639,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +665,7 @@ Aria the Benedizione | Ария: Благословение [2021, Movie] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,111 +677,6 @@ Aria the Benedizione | Ария: Благословение [2021, Movie] BDRip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A142D65DB6D4E7CBC262F07B87B8A1F1F61E9F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574957   (381464) от 07.09.2022
-
-Ai no Utagoe o Kikasete | Sing a Bit of Harmony | Спой немного гармонии [2021, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония. Недалёкое будущее. Искусственный интеллект удачно внедрён в повседневную жизнь благодаря корпорации Hoshima, чьё передовое подразделение IT-специалистов во главе с Мицуко Амано неустанно работает над созданием робота-гиноида с саморазвивающимся ИИ. Дочь Мицуко, Сатоми - ученица средней школы, по стечению обстоятельств является изгоем в своём классе. И вот, (   Читать дальше...   )Производство: студия J.C. StaffЖанр: фантастика, драмаРежиссер: Ёсиура ЯсухироПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 110 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1F23A0A8C787397DD29F76A52BDAC20793FC0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574976   (381457) от 07.09.2022
-
-Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another World | Рыцарь-скелет в ином мире [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды геймер заснул прямо за игрой, а проснулся уже в другом мире в обличии скелета! Облачённый в прекрасную броню и вооружённый могущественным мечом и магией рыцарь-скелет Арк должен найти свой путь в этом новом для него мире.
-© crunchyrollЖанр: приключения, фэнтезиРежиссер: Оно КацумиПеревод: 1) CrunchyRoll; 2) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB5C87667C4DC4FFFEAE1B7529FD21A46B75E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574953   (381451) от 07.09.2022
-
-Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022, OVA, 1 эп.] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая девочка по имени Шива живёт в пустой деревне вместе со своим опекуном — существом с манерами джентльмена и внешностью монстра. Он запрещает ей покидать деревню, иначе она будет проклята, но любопытство так и тянет Шиву во внешний мир. И что же это за проклятье такое, которым её стращают? © KG-PortalПроизводство: студия Wit Studio / ウィットスタジオЖанр: фэнтези, драмаРежиссер: Кубо ЮтароПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 70 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F213D82412B6BFEE93D3667A3C40B9B039F485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574954   (381448) от 07.09.2022
-
-Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022, OVA, 1 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая девочка по имени Шива живёт в пустой деревне вместе со своим опекуном — существом с манерами джентльмена и внешностью монстра. Он запрещает ей покидать деревню, иначе она будет проклята, но любопытство так и тянет Шиву во внешний мир. И что же это за проклятье такое, которым её стращают? © KG-PortalПроизводство: студия Wit Studio / ウィットスタジオЖанр: фэнтези, драмаРежиссер: Кубо ЮтароПеревод: CrunchyRollЯзык озвучки: #1: Японский; #2: Японский;Субтитры: РусскиеПродолжительность: 1 эп. по 70 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0299FA97D1F3A605EED6064D0FEA350B634F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1535318   (674180) от 12.03.2022
+
+Uartsy, Mike Defeo | Stylized Character Development (2014) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Майкл Дефео - скульптор, который специализируется на превращении 2D персонажей в полноценные 3D модели. На протяжении 15 лет Майкл возглавлял студии по моделированию и скульптурированию в Blue Sky Studios, вдохнув жизнь в бессчетное количество персонажей, из таких проектов, как Ледниковый период (1-4 части), Роботы, Хортон, Рио и Эпик.
+Разработка стилизированных (   Читать дальше...   )Производство: UartsyЖанр: СкульптингЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 26:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED6B79B7BD6D2231EEDE073CA1BC6D2C9DD4D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535537   (674179) от 12.03.2022
+
+Udemy, Daniel Krafft, Design School Online | Make Hyper-Realistic Outdoor Environments in Unreal Engine (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Не может быть, чтобы это было не фото!" - Это то, что говорит большинство людей, когда я показываю им свою недавнюю работу. Разве не для этого мы все это делаем? Удивление и недоверие, вызванные потрясающим мастерством в искусстве. Дизайн игры - это искусство, поэтому позвольте мне показать вам кисть, холст и краску.
+Unreal Engine всегда был известен своей (   Читать дальше...   )Производство: UdemyЖанр: Создание окруженияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62414637550286910AFDA62BA82BB8AB625B0E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535718   (674173) от 12.03.2022
+
+Entagma, Мануэль и Мориц | Patreon Advanced CG Tutorials Part 1-5 (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нас зовут Мануэль и Мориц, мы CG-художники, работающие на стыке искусства, VFX и технологий. Работая над коммерческими проектами, мы постоянно сталкиваемся с необычными задачами, которые требуют нестандартных решений. И в свое свободное время мы часами сидим перед экраном, исследуя интересные алгоритмы и подходы. Мы решили поделиться с вами этими техниками и создать (   Читать дальше...   )Производство: EntagmaЖанр: 3D-моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 28:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261265039FFC4FCADAFEDD1D242B5B8E00B8F6B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535528   (674172) от 12.03.2022
 
 Gumroad, Michael Pavlovich | ZBrush 2021 & 2021.6 What's New (2020) PCRec [EN, RU]
@@ -6,7 +86,7 @@ Gumroad, Michael Pavlovich | ZBrush 2021 & 2021.6 What's New (2020) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +140,7 @@ CGMA, Gael Kerchenbaum | Sculpting Anatomy from Animal to Creature (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +166,7 @@ Flippednormals, Christian Bull | Fundamental Anatomy for Sculptors (2021) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +192,7 @@ Learn Squared, Javier Perez | Substance Designer Essentials from Javier Perez (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +220,7 @@ CGMA, Peyton Varney | Environment Art for Games in UE4 (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +246,7 @@ CGMA, Hannah Kang | Stylized Characters in 3D (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +272,7 @@ Udemy, Rob Tuytel, Erik Selin | Creating 3D environments in Blender (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +300,7 @@ CGMA, Michael Pavlovich | ZBrush for Concept & Iteration (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +326,7 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game (2019) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +379,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners 3D Character in Blender Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +431,7 @@ TeachVideo.ru | Adobe Premiere Pro CS4 [2009, RUS] Видеокурс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +457,7 @@ ArtStation, Emiel Sleegers | Ultimate Environmental Texture Creation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +484,7 @@ VFX for FilmMakers, Matt Skonicki | Scratch to Substance Volume 1a-1b (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +511,7 @@ Udemy, Darrin Lile | Blender 3.0 Vintage Car Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +537,7 @@ Daarken | Введение в цифровую живопись [Обновля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +566,7 @@ Geekbrains | Веб-дизайн. От новичка до профи (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +621,7 @@ lynda.com |  After Effects Apprentice 15: Final Project - After Effects. Обу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +647,7 @@ Rebelway, Igor Zanic | Water FX in Houdini (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +674,7 @@ Uartsy, David Lesperance | Environment Creation in Unreal Engine 4 (2016) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,85 +686,6 @@ Uartsy, David Lesperance | Environment Creation in Unreal Engine 4 (2016) PCRec 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD106C94DBE1D96BB21E4F81646E112C589221D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140376   (655482) от 06.06.2017
-
-Андрей Козьяков | Adobe InDesign. Базовый уровень (2017) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655482.jpg" />
-</div>
-
-
-###  Подробнее
-
-InDesign — легендарный инструмент для верстки публикаций любого типа и объемов. С помощью InDesign любая задача становится по силам — верстка буклета или небольшой брошюры, журнала с высококачественной типографикой и ярким дизайном, годовых отчетов с сложными таблицами и инфографикой, каталогов с тысячью изображений товаров, книг объемом в несколько сотен страниц. (   Читать дальше...   )Жанр: Графика, версткаПродолжительность: 36:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115E6AC8C337304E6427A5E07DC00039B30B1B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905678   (648883) от 06.06.2015
-
-Павел Бирюлин | Создание собственного рукописного шрифта используя Font Creator (2011) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный видеоролик затрагивает тему создания собственного рукописного шрифта в программе Font Creator 6.0.Жанр: Типографика, шрифтыПродолжительность: 00:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D603E1EFBED20CED8F7D841089A614B0C11E98B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541039   (648302) от 01.04.2022
-
-Levelup.Digital, Carlos Perfume | Substance Designer Dome of Cologne (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648302.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уроке вы шаг за шагом узнаете, как создать сложную готическую архитектуру в Substance Designer. Следите за тем, как автор воссоздает часть знаменитого Кельнского купола.
-Создав несколько архитектурных произведений в прошлом, Карлос усвоил много уроков на этом пути, которыми он делится в этом руководстве. В добавок к тому, что делать и чего не делать, он делится (   Читать дальше...   )Производство: Levelup.DigitalЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 05:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3E8BCCFBC7105ECB5BAFF3B3A7DDC782A86F20
 ```
 
 https://mybot314.ru/tekegram_catalog/

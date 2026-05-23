@@ -1,3 +1,113 @@
+###  Публикация: 546445   (478379) от 13.09.2012
+
+Nikita - Avocado (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3891EBD25A857B1D40A0311D48E3853EC23D6AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545184   (478280) от 13.09.2012
+
+PEZET - Supergirl (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopstepПродолжительность: 00:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DDBBB5ADCBBB8CE6E975456A1A9F701C9A6CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939630   (473086) от 22.09.2015
+
+VA - Осенний марафон № 192 /  Видеоклипы (Сборник Зарубежной Хорошей Музыки) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Осенние (21.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 9Muses - Hurt Locker (Official Video) (00:03:25)
+2. Ask Embla - Fathers Eyes (Official Video) (00:04:11)
+3. B-Brave ft. Cho, Frenna - Verleiden (Remix) (Official Video) (00:03:12)
+4. Big Data ft. White Sea - The Business of Emotion (Official Video) (00:04:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, Drum&BassПродолжительность: 01:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC8D7C1FDEA01B9A9052BF73AE16250FD262EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702050   (472731) от 20.09.2013
+
+Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - Iron Man
+02. Black Sabbath - Paranoid
+03. Eric Burdon & War - Paint It Black-Medley
+04. Eric Burdon & War - Spill The Wine(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701921   (472726) от 20.09.2013
 
 Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
@@ -6,7 +116,7 @@ Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +145,7 @@ Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +197,7 @@ Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +223,7 @@ Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +252,7 @@ Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +281,7 @@ Secret - Poison (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +307,7 @@ MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +333,7 @@ DJ King Serenity feat. Boonty Rayne Swagger - Body Dance (2012) [H.264/1080p] WE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +359,7 @@ Beat Club - Progressive Times - Vol 6. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -278,7 +388,7 @@ VA - Осенний марафон № 193 / Видеоклипы (Презен�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -334,7 +444,7 @@ VA - Осенний марафон № 194 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -363,7 +473,7 @@ Robbie Williams - Party Like A Russian (2016) WEB-DL [MPEG-4/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -391,7 +501,7 @@ Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -420,7 +530,7 @@ Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +559,7 @@ Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +585,7 @@ Sika - Love Kills (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +611,7 @@ Antonia - Jameia (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +637,7 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +663,7 @@ INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +689,7 @@ Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,113 +703,6 @@ Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4065A578C6BCB0AC61E7CD30E30FBB7650D06D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402874   (460086) от 10.09.2020
-
-Кис Кис - Мелочь (OST Водоворот) (2020) WEBRip [H.264/1080p] <Альтернативный Рок>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Кис Кис - Мелочь (OST Водоворот) Single (30-06-2020) LOSSLESSЖанр: Альтернативный РокАктеры: Кис Кис (Софья Сомусева)Продолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439528D50AA930BA7B08CA6E6FD0610F56C085D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402584   (459951) от 10.09.2020
-
-Little Big - Tacos (2020) WEBRip [VP9/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little Big - Tacos (Single)Производство: Warner Music RussiaЖанр: PopПродолжительность: 00:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC9977B6F3560BFE44B264205753F352A407AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550355   (459652) от 21.09.2012
-
-BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C941FE714E7AB83604473E5ED7132A5CCE0BD694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407441   (459477) от 10.09.2020
-
-Сборник клипов 01 (09.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за сентябрь 202001_Pickle - Like That
-02_Sak Noel x Salvi - SAXY
-03_Jackson Wang & Galantis - Pretty Please
-04_Ytram & Elderbrook - Fire(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7D8AE18D2D0471F2B14105B223D4B84D299959
 ```
 
 https://mybot314.ru/tekegram_catalog/

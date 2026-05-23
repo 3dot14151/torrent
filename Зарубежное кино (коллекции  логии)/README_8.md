@@ -1,3 +1,55 @@
+###  Публикация: 1029413   (679885) от 27.06.2016
+
+Титаны - Дилогия: Битва Титанов / Clash of the Titans (2010), Гнев Титанов / Wrath of the Titans (2012) [H.264/1080p-LQ]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спустя десятилетие после героической победы над чудовищным Кракеном Персей пытается жить спокойной жизнью деревенского рыбака и отца-одиночки. В то же время между титанами и богами начинается борьба за власть. Олимпийцы, утратившие былую преданность людей, теряют контроль над тюрьмой, в которой заключены титаны и их глава Кронос. Сила титанов растет, в то время как (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джонатан ЛибесманАктеры: Сэм Уортингтон, Лиам Нисон, Рэйф Файнс, Эдгар Рамирез, Тоби Кеббелл, Розамунд Пайк, Билл Найи, Дэнни Хьюстон, Джон Белл, Лили ДжеймсПеревод: ДублированныйЯзык субтитров: Русский (BD, Е. Воронин), английский (полные, SDH)Продолжительность: 01:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A826832F3DDEF2A36F5060CE7488FE2B06D102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214621   (676934) от 29.06.2010
+
+Полицейский из Беверли Хиллз: Трилогия / Beverly Hills Cop: Trilogy (1984 / 1987 / 1994) 3*DVD-9
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+После перерыва в семь лет полицейский из Детройта Аксель Фоули (Эдди Мерфи) снова вынужден побывать у своих друзей в Беверли-Хиллз. Его приводят туда поиски убийцы любимого шефа. В результате парк аттракционов «Мир чудес», где бандиты в жутком подполье печатали фальшивые доллары, стал ареной боевых действий. Наш герой отомстил убийцам, прославился и познакомился (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, комедия, криминалРежиссер: Джон ЛэндисПеревод: Профессиональный многоголосый (Киномания) / Авторский одноголосый (Гаврилов)Субтитры: Русские, АнглийскиеПродолжительность: 01:44:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509462   (674005) от 12.06.2012
 
 Перехватчики: Дилогия / Interceptors: Dilogy (1999-2002) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_650879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_644678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128576   (640720) от 29.05.2018
-
-Лара Крофт: Расхитительница гробниц. Дилогия / Lara Croft: Tomb Raider. Dilogy (2001-2003) HDRip [AVO]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она — само совершенство! На нашей планете нет женщины, которая могла бы сравниться с ней. Она — божественно прекрасна, невероятно умна и потрясающе отважна. Она владеет всеми видами рукопашного боя, изумительно стреляет из любых видов оружия и способна выжить в самых экстремальных условиях. Эта девушка — дочь лорда. Ее имя — леди Лара Крофт. И пусть трепещут злодеи, (   Читать дальше...   )Производство: США, Великобритания, Япония, Германия / Paramount PicturesЖанр: Фэнтези, Боевик, Триллер, ПриключенияРежиссер: Саймон Уэст / Ян Де БонтАктеры: Анджелина Джоли, Джон Войт, Айэйн Глен, Ной Тейлор, Дэниэл Крэйг, Ричард Джонсон, Крис Барри, Джулиан Райнд-Татт, Лесли Филлипс, Роберт Филлипс, Рэйчел Эпплтон, Джерард Батлер, Киаран Хайндс, Крис Барри, Ноа Тейлор, Джимон Хонсу, Тиль Швайгер, Саймон Ям, Теренс Йин, Дэниэл КалтагоринПеревод: Авторский (одноголосый, закадровый) А.ГавриловСубтитры: ОтсутствуютПродолжительность: 01:40:32 / 01:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302F6779E37BDCDDAA76F12B693E820814EAB8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224092   (638890) от 30.05.2018
-
-Планета обезьян: Пенталогия – 40 лет эволюции  / Planet of the Apes: 40-Year Evolution Collection (1968/1970/1971/1972/1973) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все новые и новые опасности приносит как людям, так и обезьянам будущее. На карту поставлена сама возможность существования этих биологических видов. И уже всем становится понятно, что только совместные усилия и выход на новый уровень взаимодействия дадут шанс планете в надвигающейся череде катастроф…Производство: СШАЖанр: Фантастика, ПриключенияРежиссер: Дж. Ли ТомпсонАктеры: Родди МакДауэлл, Клод Экинс, Natalie Trundy, Северн Дарден, Лью Эйрз, Пол Уильямс, Остин Стокер, Ной Кин, Ричард Истхэм, Франс НуйенПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C916F946928160A7B0118832639B35EB7CBBB493
 ```
 
 https://mybot314.ru/tekegram_catalog/

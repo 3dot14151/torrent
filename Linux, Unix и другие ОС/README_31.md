@@ -1,3 +1,248 @@
+###  Публикация: 1708145   (62455) от 19.03.2024
+
+Red Hat Enterprise Linux 9.3 [x86_64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Red Hat Enterprise Linux (RHEL) - популярная коммерческая операционная система на базе ядра Linux, имеющая открытый исходный код и предназначенная для развёртывания на предприятиях. RHEL можно использовать как серверную систему, а также как рабочую станцию или сервер с графическим окружением GNOME.
+
+Операционная система Red Hat Enterprise Linux ориентирована на стабильность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA83D0A604318C4E594575F60B97302F59A5092B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708237   (62452) от 19.03.2024
+
+SparkyLinux 7.3 / 2024.02 Rolling Edition [x86_64] 5xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+SparkyLinux - это полнофункциональная операционная система на базе Debian и ядра Linux, адаптированная для использования на слабом железе. Установочные образы включают возможность запуска Live-системы и ознакомиться с операционной системой без необходимости установки и изменения таблицы разделов вашего компьютера.
+Операционная система проста в установке, поддерживает (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782F27F494EF6CE5E66FC855E44EC5D6C17EF4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708084   (62449) от 19.03.2024
+
+Rocky Linux 9.3 [x86_64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Rocky Linux — дистрибутив Linux, разработанный Rocky Enterprise Software Foundation. Предполагается, что это будет полный бинарно-совместимый выпуск, использующий исходный код операционной системы Red Hat Enterprise Linux (RHEL). Цель проекта — предоставить корпоративную операционную систему производственного уровня, поддерживаемую сообществом. Rocky Linux, наряду (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4299EEEFA61E76B2BC4949C2306261B609DA9B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709415   (61945) от 24.03.2024
+
+KDE neon 6.0.2 [x86_64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+KDE Neon - дистрибутив Linux, который создан командой KDE. Он основан на Ubuntu LTS и предоставляет новейшие версии KDE Plasma Desktop и KDE приложений. КDE Neon разрабатывается как стабильная и актуальная платформа, которая включает в себя последние обновления и исправления безопасности для пользователей KDE.
+Но, в отличие от Kubuntu, которая в LTS версиях содержит (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F30CFF968BE65C6A0C071CA4B829330EB190BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714531   (60323) от 09.04.2024
+
+GParted LiveCD 1.6.0-3 [i686, i686-pae, amd64] 3xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+GParted - мощный и бесплатный инструмент, который предназначен для эффективного и безопасного управления разделами жесткого диска (создавать, удалять, перемещать, копировать, изменять размер и др.) без потери данных. Также программа позволяет создавать таблицы разделов (MS-DOS или GPT), включать, отключать и изменять атрибуты, выравнивать разделы, восстанавливать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDEA0B96C4C01A62E129A5BBED648F1734513476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717325   (59105) от 20.04.2024
+
+Ubuntu EducationPack 18.04 (апрель 2024) [amd64]
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Предназначен помочь в организации учебного процесса и предоставить возможность организации качественного обучения с применением современных информационных технологий.
+Имеет высокую защищённость программного обеспечения от вирусов.
+
+Дистрибутив из коробки предоставляет полностью настроенное решение направленное на покрытие запросов для образовательных учреждений всех (   Читать дальше...   )Разработчик: UALinuxЯзык интерфейса: мультиязычный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA4590DE3E268263FC34B8819EEEAF731586B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718293   (58590) от 25.04.2024
+
+Fedora 40 Workstation / Server / Spins / Atomic [x86_64] 19xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Fedora — дистрибутив Linux, спонсируемый фирмой Red Hat и содержащий возможности, которые в будущем предполагаются к использованию в дистрибутиве Red Hat Enterprise Linux. Цель проекта — построение целостной операционной системы из свободного программного обеспечения силами сообщества в духе экосистемы Red Hat Linux.
+Актуальные версии дистрибутива в период поддержки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A7100DD44ACDE0163A95AF91B61117E1FDA750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718576   (58481) от 26.04.2024
+
+Ubuntu 24.04 Noble Numbat LTS [amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+25 апреля 2024 года, состоялся релиз очередной версии Ubuntu — 24.04 LTS «Noble Numbat».
+Долгосрочная поддержка системы означает что эта версия будет получать новые выпуски ядра Linux и постоянные обновления приложений в течение следующих 5 лет, плюс ещё 7 лет для пользователей сервиса Ubuntu Pro
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3648BAF850D5930510C1F172B534200EBB5496E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721677   (57221) от 08.05.2024
+
+Red Hat Enterprise Linux 9.4 [x86_64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Red Hat Enterprise Linux (RHEL) - популярная коммерческая операционная система на базе ядра Linux, имеющая открытый исходный код и предназначенная для развёртывания на предприятиях. RHEL можно использовать как серверную систему, а также как рабочую станцию или сервер с графическим окружением GNOME.
+
+Операционная система Red Hat Enterprise Linux ориентирована на стабильность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9C23DBED3D55EA23811E306682168DFED9F349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722409   (56891) от 11.05.2024
 
 Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
@@ -6,7 +251,7 @@ Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +280,7 @@ Oracle Linux 9.4 [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +306,7 @@ Ubuntu EducationPack 22.04 (май 2024) [amd64] [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +335,7 @@ FreeBSD 13.3 [i386, amd64] 2xDVD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +361,7 @@ UALinux CyberPack FaP 20.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +387,7 @@ Tails 6.4 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +413,7 @@ Transmission for Linux 4.0.6 (38c164933e) [x32, x64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -195,7 +440,7 @@ Master PDF Editor for Linux 5.9.50 [x86_64, arm64] (deb, rpm, tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +466,7 @@ Zapret v.60 for Linux [x86, x86_64] (elf)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +495,7 @@ Manjaro 24.0.8 Wynsdey (Xfce, KDE Plasma, Gnome) (Official images Manjaro Team) 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +521,7 @@ Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -303,7 +548,7 @@ Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -330,7 +575,7 @@ MX-23.4 (MX Linux 23.4) [x86_64, i686] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -358,7 +603,7 @@ Devuan 5 (Daedalus) [x86_64, i586] 4DVD+14xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -384,7 +629,7 @@ R-Studio for Linux Network 3.5.1347 [x86, x64] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +655,7 @@ HCL Lotus 14 [x86_64] (.tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -438,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,248 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E70A37DFEF1397A27B8AB9EAA0A106F9A77FFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758422   (38540) от 02.11.2024
-
-GFI Kerio Control 9.4.4 build 8434 [x86_64] 2xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kerio Control — это комплексное решение в области безопасности, объединяющее несколько функций нового поколения (next generation) — в том числе межсетевой экран (файервол) и маршрутизатор, систему обнаружения и предотвращения вторжений (IPS), антивирус, VPN, фильтр веб-содержимого и фильтрацию приложений. Эти широкие возможности и непревзойденная гибкость в развертывании (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB6F87A88C2488D8113259578E02AD1A0EC0E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758937   (38250) от 05.11.2024
-
-Ubuntu 24.10 Oracular Oriole [x86_64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ubuntu Desktop — это популярная операционная система с открытым исходным кодом, разработанная компанией Canonical Ltd. Она основана на дистрибутиве Debian GNU/Linux и предлагает удобный и интуитивно понятный графический интерфейс, а также широкий набор предустановленных программ. Основной фокус Ubuntu — предоставление лёгкого в использовании рабочего окружения как (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C9F3F74C16539822F222410F20F7577BCA8545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758932   (38226) от 05.11.2024
-
-Deepin 23 [x86_64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deepin 23 — новый релиз популярного дистрибутива Linux с улучшенной стабильностью, поддержкой ARM64, интеграцией с ИИ, атомарными обновлениями и обновлённым интерфейсом DDE.
-
-Китайская компания Deepin Technology, разработчик одноимённого дистрибутива на базе Debian, представила новый релиз — Deepin 23. Этот дистрибутив давно завоевал популярность благодаря элегантному (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C2C75808FD76134DD624006D01DA96640935C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760305   (37423) от 13.11.2024
-
-MiniOS (все редакции) v3.3.4 [amd64, i386] 10xCD [RU]
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37423.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniOS - это легкий и быстрый дистрибутив Linux, предназначенный для установки на USB-накопитель. Проект MiniOS был запущен в 2009 году как дистрибутив Linux для USB-накопителей на базе Mandriva Linux. Однако в 2013 году он был приостановлен в связи с ликвидацией Mandriva. Современная версия MiniOS выпускается с 2020 года и основана на Debian - одном из самых популярных (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052A4DAF0A8E49039BFE21876B540B9B066BA8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763184   (35676) от 30.11.2024
-
-Elementary OS 8 Circe [x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elementary OS — это операционная система, основанная на Ubuntu, которая ориентирована на простоту и элегантность. Она разработана для пользователей, которые ценят эстетический дизайн и удобство в использовании. Elementary OS предлагает интуитивно понятный интерфейс, вдохновленный macOS, с акцентом на минимализм и функциональность.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707926186513360C28CCF62D19D3FE572B0E5369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764889   (34756) от 09.12.2024
-
-Red Hat Enterprise Linux 9.5 [x86_64, aarch64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hat Enterprise Linux (RHEL) - популярная коммерческая операционная система на базе ядра Linux, имеющая открытый исходный код и предназначенная для развёртывания на предприятиях. RHEL можно использовать как серверную систему, а также как рабочую станцию или сервер с графическим окружением GNOME.
-
-Операционная система Red Hat Enterprise Linux ориентирована на стабильность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519D55C29EAD0E47B6A8884E37D90E91C4F7491D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765346   (34457) от 12.12.2024
-
-AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свободный корпоративный дистрибутив Linux с открытым исходным кодом, управляемый сообществом и ориентированный на долгосрочную стабильность, обеспечивающий надежную платформу производственного уровня. ОС AlmaLinux бинарно совместима с RHEL®.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D051FE33EE5CC573C823D4A9FC186A01CABEE35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765594   (34312) от 13.12.2024
-
-DR14 T.meter 2.0.0 [x32, x64] (py)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34312.jpg" />
-</div>
-
-
-###  Подробнее
-
-DR14 T.meter - это свободно распространяемый инструмент командной строки с открытым исходным кодом для вычисления динамического диапазона вашей музыки. Соответствует процедуре, используемой в Dynamic Range Meter, производства Pleasurize Music Foundation.
-
-Этот инструмент очень полезен для измерения громкости вашей музыки и для понимания того, что альбом хорошего (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BFC72C72E2477E41BC7D5919213EF266D06C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779437   (27809) от 13.02.2025
-
-GreenLinux 22.1.0 Novosibirsk [x86_64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Green Linux - операционная система на базе Linux Mint, адаптированная для российских пользователей и включающая российские репозитории, сертификат от Минцифры, а также настройки, позволяющие комфортно работать на территории России.
-
-Green Linux - это защищённая от санкций операционная система для настольных и портативных компьютеров. Она создана для работы "из (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD03D1A0D22B3C90B32B767074F5E021515ECF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

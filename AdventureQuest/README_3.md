@@ -1,3 +1,107 @@
+###  Публикация: 1843508   (1049373) от 20.12.2025
+
+The Artifact Protocol (2025) [Ru/Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы не раскрываете тайну... вы переживаете её заново! Протокол Артефакта - это психологический хоррор от первого лица, где каждый артефакт затягивает вас в последние мгновения чужой жизни. Вы играете за Энтони, бывшего солдата, оказавшегося в тюрьме и вынужденного участвовать в засекреченной программе испытаний. Вам обещана свобода, если сможете выжить. Один за другим (   Читать дальше...   )Тип издания: RepackРазработчик: Liam ButlerЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAFF32C9C54CF346B594C0F2039AFF5F3758FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843501   (1049372) от 20.12.2025
+
+Dead In Bermuda (2015) [Ru/Multi] (1.1c v2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игра о выживании с элементами менеджмента, RPG и приключения, в которой вы возглавляете группу из 8-ми выживших при крушении самолета на незнакомом острове. Распределяйте задачи между вашими выжившими, накапливайте опыт и развивайте свои навыки выживания, изучайте и создавайте новые предметы для вашего лагеря, исследуйте остров, находите ресурсы и разгадайте тайны (   Читать дальше...   )Тип издания: LicenseРазработчик: Ishtar GamesЖанр: Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A790AD6672000877E889C3AB954B1F50B838318A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843507   (1049371) от 20.12.2025
+
+Gravewood High (2021) [Ru/Multi] (1.0/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Gravewood High - игра в жанре стелс-хоррора с разрушаемостью окружения и реиграбельностью за счёт генерируемого при каждом прохождении окружения. В школе Gravewood High таинственным образом исчезли некоторые ученики, но никто из взрослых этого даже не заметил. Попав туда, вы понимаете, что это одна большая ловушка и вам необходимо найти из неё выход.Тип издания: LicenseРазработчик: HeroCraft PCЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3532A272171F3B289CA11334F1CF90A358AFF018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843497   (1049370) от 20.12.2025
+
+Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это приключение в стиле фэнтези, вдохновленное работами студий Ghibli и Chizu, в котором Лили и Сади придется научиться работать сообща, чтобы пройти все испытания. Лили твердо решила, что никогда не пойдет по стопам погибшей от древнего зла матери и не станет стражем. Но однажды ей встретился Сади, ученик монахов, которому нужна была помощь стража, чтобы развеять (   Читать дальше...   )Тип издания: LicenseРазработчик: MarsLit GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СпортЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC636FE42F8D72F8E2C2E882D61298B7EF1D003C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843511   (1049369) от 20.12.2025
 
 Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
@@ -6,7 +110,7 @@ Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Escape the Backrooms (2022) [Ru/Multi] (1.2510) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ SUFFOCATE (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Berlin Apartment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack HardwareMi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.12.0/dlc) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Foolish Mortals (2025) [Multi] (0.7.5.1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1048570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Hoomanz! (2025) [Ru/Multi] (0.3.26) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sanatorium: A Mental Asylum Simulator (2025) [Ru/Multi] (0.99) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.2.381918 build 20599177/dlc) Repack HardwareM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Art of Reflection (2025) [Ru/Multi] (2465) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.2.11062025.41663/dlc) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Midnight Scenes: A Safe Place (2024) [En] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Midnight Scenes: From the Woods (2023) [En] (1.1a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Uninvited / Unwelcome (2022) [En] (1.14a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Midnight Scenes: The Nanny (2021) [En] (1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Midnight Scenes Episode 2 (2020) [Ru/Multi] (1.19a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Librarian (2020) [Ru/Multi] (1.03a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF06C7E68082838F0B63F6A89918D15610872AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840342   (1047300) от 04.12.2025
-
-Disney Dreamlight Valley (2023) [Ru/Multi] (1.20.2.42/dlc) Repack Other s [Ultimate Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Dreamlight Valley – это симулятор жизни с элементами адвенчуры. Тайтл рассчитан на поклонников и поклонниц диснеевских мультиков. Он изобилует отсылками и фансервисом. Причем одним лишь детищем Уолта Диснея дело не ограничивается. Проект также может порадовать фанатов студии Pixar. Редактор персонажа позволяет создать героя или героиню и отправиться в путешествие. (   Читать дальше...   )Тип издания: RepackРазработчик: GameloftЖанр: Приключение, Симулятор, ПесочницаЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA197E73537F945E23D4E3F0033664535B885D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840162   (1047065) от 03.12.2025
-
-Silly Polly Beast (2025) [Ru/Multi] (1.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сверхъестественный сюжетный шутeр, где вас ждут динамичные перестрелки и до дрожи пугающие монстры. Окунитесь в историю девушки, чья судьба уготовила ей встречу с древним чудищем. Чтобы выжить, ей предстоит постичь его природу и перенять его зловещую силу. На что Вы сможете пойти ради свободы?Тип издания: RepackРазработчик: Andrei ChernyshovЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B0B6EA20DB07E412371DCD0DEFC19D9634B98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839928   (1046972) от 01.12.2025
-
-The Talos Principle: Reawakened (2025) [Ru/Multi] (739124) Repack Necros
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь в невероятно красивый мир интригующих загадок и философских размышлений в The Talos Principle: Reawakened. Перездание предлагает снова поучаствовать в захватывающей истории The Talos Principle (2014), отправившись в путешествие по теперь уже дополненному и переработанному миру симуляции. В The Talos Principle: Reawakened вас ждут новые головоломки, улучшенный (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FFFF2027A02A5CFA152D1E620A826E4856C93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839674   (1046863) от 30.11.2025
-
-Please Be Happy (2022) [En ] (2.0.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Please Be Happy – игра с упором на повествование. История рассказывает о любви и дружбе, а также трагических и веселых событиях, случающихся с главным героем. Сюжет крутится вокруг Михо, лисице, рожденной в корейском лесу. Она несёт за собой пять об авантюристе, который проявлял доброту, рассказывал и восхвалял свой дом. Лисица долгое время искала собственную личность.Тип издания: LicenseРазработчик: Studio ÉlanЖанр: Казуальные игры, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05EF66B1A440168DB2852625E580AEF272C3032
 ```
 
 https://mybot314.ru/tekegram_catalog/

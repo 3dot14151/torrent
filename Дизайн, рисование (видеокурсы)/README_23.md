@@ -1,3 +1,88 @@
+###  Публикация: 1498851   (852540) от 29.09.2021
+
+kalachevaschool, Анна Эгида | Летний экстрим-скетчинг с проверкой (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Скетчинг — это быстрые зарисовки. Когда не нужны краски, мольберты и тишина в радиусе километра от вас.
+Городской скетчинг — не про точную перспективу и прямые линии. Будем учиться рисовать быстро, экспрессивно, и в то же время постигнем выразительные приемы, которые помогут передать характер города.Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 01:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E50DA3AF74257257F8D7C0FD1A19FE6DEE8E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498841   (852534) от 29.09.2021
+
+kalachevaschool, Анна Эгида | Онлайн-курс «Летний экстрим-скетчинг» (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экстрим скетчинг от школы Вероники Калачевой.
+Даешь летний экстрим!
+Столько всего можно нарисовать летом в городе: жара, уличные кафе, вылазки в парк, фонтаны, лимонады, самокаты, скейты, обалденные закаты и танцы на свежем воздухе…
+Это и есть экстрим-скетчинг — рисовать минимумом средств с максимальной выразительностью!(   Читать дальше...   )Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 01:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9435E16E8BFBD4C8DC1D79BF1473D71057A9B5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498844   (852528) от 29.09.2021
+
+kalachevaschool, Анна Эгида | [Анна Эгида] Онлайн-курс «экстрим-скетчинг 3» (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Даешь летний экстрим!
+Столько всего можно нарисовать летом в городе: жара, уличные кафе, вылазки в парк, фонтаны, лимонады, самокаты, скейты, обалденные закаты и танцы на свежем воздухе…
+Это и есть экстрим-скетчинг — рисовать минимумом средств с максимальной выразительностью!
+Необходимые материалы: брашпен (фломастер-кисть), 2 линера - потоньше и потолще.Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 01:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE596CCBBE8B14D781078E0817E1F4D64088E638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874843   (852006) от 09.03.2015
 
 Lynda.com | Photoshop CC один-на-один: Продвинутый (2014) PCRec
@@ -6,7 +91,7 @@ Lynda.com | Photoshop CC один-на-один: Продвинутый (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +117,7 @@ Udemy, Neil Bettison | Создание средневековой катапу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +144,7 @@ YanSculpts | Скульптинг для начинающих в Blender 2.79 и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +173,7 @@ kalachevaschool, Анна Михеева | Стильные аксессуары
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +201,7 @@ kalachevaschool, Анна Михеева | Вечерние платья (2018) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +228,7 @@ kalachevaschool, Светлана Плакасова | Красный пион (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +254,7 @@ kalachevaschool, Светлана Плакасова | Синий ирис (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +280,7 @@ kalachevaschool, Светлана Плакасова | Лиловая глици
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +307,7 @@ kalachevaschool, Александра Балашова | Героини сказ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +334,7 @@ kalachevaschool, Александра Балашова | Волшебные су
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +360,7 @@ kalachevaschool, Александра Балашова | Мужские перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +386,7 @@ Motion Design School | Cinema 4D Journey (2019) PCRec [H.264/1080p-LQ] (урок
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +412,7 @@ kalachevaschool, Анна Михеева | Ювелирные украшения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +439,7 @@ FlippedNormals | Скульптинг инопланетянина в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +494,7 @@ Max Twain, Katy Joker | KIARA (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +520,7 @@ Max Twain, Many Wayne | IDOL (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +546,7 @@ Max Twain, Stan Air | QUEENY (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +572,7 @@ CG Cookie | Введение в видеоэффекты в Blender 2.63 / Intro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +599,7 @@ Udemy | Симуляция жидкости с помощью Mantaflow в Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +625,7 @@ Udemy | Создание видеоэффектов с помощью продв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +651,7 @@ Udemy, Josh Gambrell | Недеструктивное твёрдотельное
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,85 +690,6 @@ Themforest - крупнейший сток по продаже темплейт�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7A376AF95054B5842432E71CD262F21FF338804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500819   (841201) от 06.10.2021
-
-kalachevaschool, Евдокия | Настроение города (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зарисовка построена на конфликте между щебечущими девицами и парой других пассажиров метро, недовольных громкой болтовней. Улавливаем характерные позы и выражения лиц, подчеркнём недовольство второстепенных пассажиров черно-белой палитрой. Девушек на контрасте делаем максимально яркими и горячими по цвету. Характер героинь раскрываем через активную жестикуляцию и (   Читать дальше...   )Производство: kalachevaschoolЖанр: РисованиеПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BDEFFB0ADD2DB2DFF20D736928B5A9385EE6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500818   (841200) от 06.10.2021
-
-kalachevaschool, Евдокия | Колоритные жители (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрываем персонажа через профессию. Рисуем историю уличного художника, строим сюжет на контрасте портретов юных дам и суровых будней автора.
-Делаем линейный предварительный рисунок. Кладём активное красное пятно (куртка главного героя зарисовки). Для фона используем холодный голубой оттенок, он работает на контрасте с горячим красным куртки и тёплыми коричневыми (   Читать дальше...   )Производство: kalachevaschoolЖанр: РисованиеПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0285558FB4EF61BA71F8DA8401C7C980BE0D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500815   (841197) от 06.10.2021
-
-kalachevaschool, Анастасия Лавру | Добрый волшебник (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отпускаем на волю свою фантазию — рисуем по воображению. Разбираемся в тонкостях изображения человека в движении. Создаем собирательный образ сказочного персонажа используя сразу несколько референсов для создания одной композиции. Учимся передавать волшебное настроение внутри задуманного сюжета.Производство: kalachevaschoolЖанр: РисованиеПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9681E8810B4D6313AA570181934F0023C6A9D7A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

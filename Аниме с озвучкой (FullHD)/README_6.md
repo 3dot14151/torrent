@@ -1,3 +1,81 @@
+###  Публикация: 1364521   (932866) от 05.03.2020
+
+Shinmai Maou no Testament | The Testament of Sister New Devil | Новый Завет Владыки Тьмы, Моей Сестры [2014, TV, 12 ep + OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Ты ведь хотел младшую сестру?» — вот таким вот вопросом ошарашил отец своего сына, ученика первого года старшей школы, Басару Тодзё. Кроме того, эксцентричный папаша добавил, что собирается вновь жениться. Вскоре он отправился за границу, оставив Басаре двух красивых сестер, Мио и Марию. Однако девушки оказались не просто какими-то людьми, а настоящими суккубами (   Читать дальше...   )Производство: Production IMS, ЯпонияЖанр: Приключения, Комедия, Фэнтези, ЭттиРежиссер: Сайто ХисасиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 24 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB1629F6F9249B48B83026339B77992D3D62A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365051   (931385) от 06.03.2020
+
+Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | Азбука Цветов: Дом, Милый Дом [2013, Movie] BDRip 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Охана уже прижилась в Киссуйсо. Но однажды во владения бабушки Шиджимы прибывает для обучения мастерству управления рёканами Юина — дочка владелицы конкурирующей с Киссуйсо гостиницы Фукуя. Поначалу от неё больше хлопот, чем пользы, но Охана не сдаётся и во всём помогает новенькой. И именно благодаря Юине внучка хозяйки гостиницы находит старые дневники, из которых (   Читать дальше...   )Производство: P.A. Works, ЯпонияЖанр: Повседневность, РомантикаРежиссер: Андо МасахироОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91C0C663EC063E18F955151B8BA37F36CE540B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365052   (931384) от 06.03.2020
+
+Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цветов [2011, TV, 26 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается вокруг Оханы Мацумаэ, шестнадцатилетней девушки, брошенной собственной матерью. Мать девочки сбегает с возлюбленным, но перед этим советует девушке отправиться на горячие источники, принадлежащие бабушке Мацумаэ. Вот только бабушка у Мацумаэ не из тех, кто угощает конфетами. Каково же было удивление девушки, когда она поняла, что (   Читать дальше...   )Производство: P.A. Works, ЯпонияЖанр: Повседневность, Драма, КомедияРежиссер: Андо МасахироОзвучка: Одноголосая, Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 26 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF9412F1DD23E032E09276191CB45FAFAE9ED79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364957   (931380) от 06.03.2020
 
 To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Неприятности: Тьма 2 [2015, TV, 14 ep + 1 OVA] BDRip 1080p 10-bit raw+rus
@@ -6,7 +84,7 @@ To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +111,7 @@ Motto To Love-Ru: Trouble | Motto To Loveru | Любовные Неприятн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +138,7 @@ To Love-Ru: Trouble - Darkness | To Loveru: Darkness | Любовные Непр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +166,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +193,7 @@ Kappa no Coo to Natsuyasumi | Summer Days with Coo | Волшебное лето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +219,7 @@ To Love-Ru: Trouble | To Loveru | Любовные Неприятности [TV-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +245,7 @@ Toki wo Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, Пок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +272,7 @@ Saenai Heroine no Sodatekata | Saekano: How to Raise a Boring Girlfriend | Ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +298,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из Другого М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +324,7 @@ Kokoro ga Sakebitagatterunda | The Anthem of the Heart | Сердцу Хочет
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +350,7 @@ Gakuen Mokushiroku: High School of the Dead | High School of the Dead | Школ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +376,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +403,7 @@ Dororo | Дороро [2019, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +429,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +456,7 @@ Baka to Test to Shoukanjuu | Дурни, Тесты, Аватары [ТВ-1][201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +482,7 @@ Baka to Test to Shoukanjuu Ni! | Дурни, Тесты, Аватары [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +509,7 @@ Batman Ninja | Бэтмен Ниндзя [2018, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +535,7 @@ Promare | Промар [2019, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +562,7 @@ Steins;Gate | Врата Штейна [2011, TV, 24 ep + 2 sp + 4 ONA] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +588,7 @@ Robotics;Notes | Записки о Робототехнике [2013, TV, 22 ep] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +615,7 @@ Chaos;Child | Хаос; Дитя [2017, TV, 12 ep + 1 sp + 2 OVA] BDRip 1080p 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +642,7 @@ Chaos;Head | Хаос; Вершина [2008, TV, 13 ep] BDRip 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,7 +668,7 @@ Gekijouban Steins;Gate: Fuka Ryouiki no Deja vu | Врата Штейна: Зо�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -603,85 +681,6 @@ Gekijouban Steins;Gate: Fuka Ryouiki no Deja vu | Врата Штейна: Зо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B6CF9419BB16AB9CCEF09156954977FEFEB2391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347127   (911753) от 18.03.2020
-
-Steins;Gate 0 | Врата Штейна 0 [2018, TV, 23 ep+1 sp] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие берёт начало в декабре 2010 года и разворачивается в поле аттрактора β.
-Впавший в отчаяние Ринтаро Окабэ изо всех сил пытается оправиться от последней неудачной попытки изменить будущее. Стремясь забыть всё то, что он пережил в прошлом, и избавиться от терзающих его сознание болезненных воспоминаний, он решает забросить своё второе «я» в лице безумного (   Читать дальше...   )Производство: White Fox, ЯпонияЖанр: Триллер, ФантастикаРежиссер: Кавамура КэнъитиОзвучка: Двyxгoлocая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 24 Эпизода по 25 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F01CF067BA96551DD26B5289CFF8C0AC04C53CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368437   (909954) от 19.03.2020
-
-Isekai Cheat Magician | Маг-обманщик из другого мира [2019, TV, 12] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайти Нисимура - обычный старшеклассник, а Рин Адзума - красивая девушка с модельной фигурой и идеальными рефлексами. Оба живут простой жизнью школьников, пока однажды внезапно не оказываются в таинственном магическом круге, который переносит их неизвестно куда. Ребята попадают в мир, полный ужасающих чудовищ, гномов, эльфов и других рас прямиком из фэнтези. Чтобы (   Читать дальше...   )Производство: Япония, Encourage Films / エンカレッジフィルムズЖанр: приключения, фэнтезиРежиссер: Тикуси ДайсукэСубтитры: Полные, отключаемые (Вшитые) | RusПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4961C51AAF759F756FCC5B9D9CACF229EB140BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368381   (909953) от 19.03.2020
-
-Babylon | Вавилон [2019, TV, 12] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дзэн Сэйдзаки — прокурор Токийской окружной прокуратуры, который расследует дело о незаконных клинических исследованиях, связанных с фармацевтической компанией и университетом. В ходе расследования он находит файл, который хранит анестезиолог Шин Инаба, в который входит кровь, смешанная с волосами, кожа и бумага, с написанной буквой F. Распутывая это дело дальше, (   Читать дальше...   )Производство: Япония, RevorootЖанр: детектив, триллерРежиссер: Судзуки КиётакаСубтитры: Полные, отключаемые (Вшитые) | RusПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2264DF79C7745A42EE022A262C114B7E9DFE93BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

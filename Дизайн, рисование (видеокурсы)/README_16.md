@@ -1,3 +1,87 @@
+###  Публикация: 1486266   (1004807) от 30.07.2021
+
+Школа дизайна Сергея Велеса, Елена Панюкова | Иллюстратор с нуля 2.0 (Профессиональный) (2021) PCRec [AD]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для людей, которые уже умеют работать в Иллюстраторе.
+    В данном курсе рассматривается профессиональная техника работы.
+    Рассматриваются максимально эффективные приемы.
+    Все уроки снабжены практическими примерами и заданиями для закрепления пройденного.Производство: Школа дизайна Сергея ВелесаЖанр: Векторная графикаПродолжительность: 06:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FF9F3C4658FF378767C84D3B9426A45794D0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486231   (1004796) от 30.07.2021
+
+Yiihuu, Marcelo Prado | Creating a Sci-Fi Character for Games (2018) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Когда в нашей жизни впервые появляется стиль киберпанк?
+Вы знакомы с рабочим процессом создания персонажей Cyberpunk?
+Каковы характеристики персонажа киберпанка на уровне фильма?
+(   Читать дальше...   )Производство: YiihuuЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 60:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BB286ECB59AAA746CCB2617DDD2C0B2B4BEAA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486609   (1004718) от 31.07.2021
+
+Skillshare, Patrick Brown | Characters in a Scene: Sketch to Digital (2014) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Концепт арт, дизайн видеоигр: все они основываются на качественном скетче, чувстве цвета и умении видеть и чувствовать линию. Вы узнаете как сделать четкий линейный набрсок, который будет работать на зрителя . Также я поделюсь своими хитростями работы с красками, освещением, шейдингом. Поясню как пользоваться разными пресетами, чтобы получить нужную текстуру и оживить (   Читать дальше...   )Производство: SkillshareЖанр: Цифровая живопись, Концепт АртЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCA29EC38AB31C350966299B1ACDD1A6E456A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486478   (1004717) от 31.07.2021
 
 Society of Visual Storytelling, Will Terry | Beginning Photoshop (2015) PCRec [EN, RU]
@@ -6,7 +90,7 @@ Society of Visual Storytelling, Will Terry | Beginning Photoshop (2015) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +116,7 @@ Society of Visual Storytelling, Dennis Zilber | Digital painting with Dennis Zil
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +142,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 1 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +168,7 @@ CGMA, Erik D. Martin | Digital Painting Workshop (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +195,7 @@ CGMA, Nate Wragg | Character Design for Production (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +221,7 @@ CGMA, Nate Wragg | Art Direction for Character Designers (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +247,7 @@ ezracohen.tv, Ezra Cohen | Residual income for creatives (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +275,7 @@ unrealskills.ru, Лихоманов Даниил | Unreal Basics (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +303,7 @@ Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +331,7 @@ Gumroad, Yu Cheng Hong | Armour tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +360,7 @@ Schoolism, Alex Woo | Gesture Drawing (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +387,7 @@ ArtNest, Вера Величко | Игровой арт (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +413,7 @@ Udemy.com | Adobe Illustrator Advanced Vector Artwork (2019) PCRec [H.264/720p-L
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +439,7 @@ Hourences.com, Sjoerd De Jong | The Solus project: Level Introduction (2014) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +465,7 @@ Hourences.com, Sjoerd De Jong | The Solus Project: Blueprint Introduction (2014)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +493,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +519,7 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Legs (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -461,7 +545,7 @@ Udemy, Pete Jepson | Blender Cyberpunk in Unity HDRP (2020) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +572,7 @@ Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -516,7 +600,7 @@ Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -542,7 +626,7 @@ CG Academy, Borislav Petrov “Bobo” | MaxScript Fundamentalis 1-2 Advanced (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -568,7 +652,7 @@ Side FX, Andreas Glad | Flowmaps Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -594,7 +678,7 @@ Side FX, Andreas Glad | Curvesweeper Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -605,88 +689,6 @@ Side FX, Andreas Glad | Curvesweeper Houdini for games (2017) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A57264F6386364378F9258CFE584DA15F4B5348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488998   (1001423) от 13.08.2021
-
-Side FX, Jeff Wagner | Geometry Workflows in Houdini 16 (2017) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001423.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом мастер-классе Джефф Вагнер подробно расскажет о работе с геометрией в Houdini 16, в том числе о новых SOP-нодах и методах построения сетей.
-
-Содержание мастер-класса:
-- альтернативы ноде Copy SOP(   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8AC5441E9F05670FF507ACC1C4775B90BA41E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488758   (1001422) от 13.08.2021
-
-Side FX, Kai Stavginski | Houdini 16.5 Masterclass Fur & Hair Grooming Toolset (2017) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мастер-класc покажет вам новые функции управления поведением волос и шерсти в Houdini 16.5. Сначала я покажу функции по отдельности, а затем использую их все вместе на примере проекта с мокрой шерстью. Шерсть будет вести себя в соответствии со скоростью из FLIP симуляции. Также вы увидите работу со связыванием атрибутов в симуляции и изменения генерации шерсти (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FED7E757D9BDB2076067A7969B0CF159234768F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488994   (1001419) от 13.08.2021
-
-Side FX, Ryan Goldade | Houdini 16 Flip Fluids (2017) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный мастер-класс от разработчика мирового лидера в сфере CG - компании SideFX.
-В Houdini 16 мы добавили новые возможности в Flip Fluid симуляции. Теперь у вас есть больше контроля над симуляцией, можно задать ватерлинию, слои контейнера, а также изменять вязкость и скольжение жидкости. Также можно создать новые типы поведения через поверхностное натяжение (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBA0AC5ACC176F4141FB8BF0384984CE84D93A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

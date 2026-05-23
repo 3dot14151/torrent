@@ -1,3 +1,107 @@
+###  Публикация: 1369052   (904529) от 22.03.2020
+
+Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita | Героем я, Увы, не Стал, Зато Работу Подыскал [2013, TV, 12 ep + 1 OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+История вращается вокруг юноши Рауля Чейзера, который так и не стал Героем, так как Повелитель Демонов уже был побеждён как раз перед его экзаменом. Бросив мечты, Рауль проводит свои дни, работая в магическом магазине в столице. В один прекрасный день в магазине появляется соискатель на неполный рабочий день с удивительным резюме: «Имя: Фино Бладстоун, предыдущий (   Читать дальше...   )Производство: asread, ЯпонияЖанр: Комедия, Романтика, ЭттиРежиссер: Ёсимото КиндзиОзвучка: Одноголосая, Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизода по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE351D76C6A075473E81A6B38D265C8991FCFA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991930   (903488) от 29.02.2016
+
+Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015, MV] BDRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Данная работа отправит нас в Европу XIX века. Юный студент Джон Уотсон был завербован службой разведки в качестве секретного агента. Технократия — мир, где наука совершила невероятный прорыв для любой промышленности. Создание гомункулов поставлено на поток, и существа с мертвым телом и искусственной душой используются во всех сферах жизни в роли солдат и рабочей (   Читать дальше...   )Производство: Wit StudioЖанр: Приключения, Психологическое, ФантастикаРежиссер: Макихара РётароПеревод: Rinon Ninqueon, Esito (Team Shirome)Субтитры: ASSФормат: MKVПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E5741BCBD875C1325516FADC652B22837E9753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492424   (903469) от 29.08.2021
+
+Aldnoah.Zero | Алдноа.Зеро [ТВ-2] [2015, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Конфликт Земли и Версианской империи вступил в затяжную фазу. На деле противостояние не нужно обеим сторонам, но огонь войны раздувает часть имперской аристократии, опьяненная своим могуществом и кровной местью за понесенные ранее потери. Лидер «ястребов», граф Сазбаум, заручился даже поддержкой наследной принцессы Ассейлам, которую лично спас из лап земных дикарей, (   Читать дальше...   )Производство: Производство: Япония, A-1 Pictures Inc., TroycaЖанр: Приключения, фантастика, меха, драмаРежиссер: Эй АокиЯзык озвучки: Русский, японскийПродолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFBD44BD618BFAE6823022E2C13AD95A61E5357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492348   (903467) от 29.08.2021
+
+Musaigen no Phantom World | Myriad Colors Phantom World | Бескрайний мир фантомов [2016, TV, 13 из 13 + 1 SP] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эпидемии всегда угрожали человечеству – то чума, то СПИД, то какой-нибудь свиной грипп, но в этом мире в начале XXI века случилось странное – очередной вирус вызвал не болезнь, а… массовое расширение сознания! Да, жители Земли стали видеть незримое, тот самый «тонкий мир», ранее доступный лишь избранным. И ничего, пока ученые ломали голову, простые люди быстро привыкли (   Читать дальше...   )Производство: Kyoto Animation / 京都アニメーションЖанр: приключения, комедия, мистикаРежиссер: Исихара ТацуяЯзык озвучки: Японский и русскийСубтитры: ASS, Встроенные, Полные+надписи |Продолжительность: 14 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A937F176408587D53EE8B979FB377379B52C3FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492421   (903461) от 29.08.2021
 
 Aldnoah.Zero | Алдноа.Зеро [ТВ-1] [2014, TV, 12 из 12] BDRip 1080p raw+rus
@@ -6,7 +110,7 @@ Aldnoah.Zero | Алдноа.Зеро [ТВ-1] [2014, TV, 12 из 12] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Maoyuu Maou Yuusha | Герой при Заклятом Враге [2013, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dakara Boku wa, H ga Dekinai | Говорю же, я не Извращенец! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Guilty Crown | Корона Греха [2011, TV, 22 ep + OVA] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Final Fantasy VII: Advent Children | Последняя фантазия VII: Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Kono Subarashii Sekai ni Shukufuku wo! | Этот замечательный м�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 | Этот замечательный �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +374,7 @@ Ou Dorobou Jing | King of Bandit Jing | Приключения Джинга | Д
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +400,7 @@ Gun x Sword | Gun Sword | Огнем и мечом [2005, TV, 26 эп.] DVDRip 4
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +428,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и Гроб [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +454,7 @@ Shinryaku! Ika Musume / Invasion! Squid Girl / Вторжение Кальмар
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_888976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +482,7 @@ Ixion Saga DT / Ixion Saga: Dimension Transfer / Иксион сага: Прос
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +508,7 @@ Nekopara (2020) | Кошачий рай (ТВ) [2020, TV, 12 из 12] WEB-DL 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -432,7 +536,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Истории о магии: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -459,7 +563,7 @@ Runway de Waratte | Улыбайся на подиуме [2020, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -486,7 +590,7 @@ Lily C.A.T. | Lily Cat | К.О.Т. Лили [1987, OVA] LDRip 480p 10bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -514,7 +618,7 @@ Tokyo Majin Gakuen Kenpuchou Tou / Tokyo Majin Gakuen Kenpucho To / Токийс
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -540,7 +644,7 @@ Koukaku Kidoutai Arise: PYROPHORIC CULT / Ghost in the Shell ARISE: PYROPHORIC C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -566,7 +670,7 @@ Angel Heart / Сердце ангела [2005, TV, 50 из 50] SDTV 576p raw + r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,112 +681,6 @@ Angel Heart / Сердце ангела [2005, TV, 50 из 50] SDTV 576p raw + r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAE9EA6DDAFCF3FA516D5AEB92F5A239F01A9DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369069   (879597) от 06.04.2020
-
-Made in Abyss | Созданный в Бездне [ТВ-1] [2017, TV, 13 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество всегда тяготело к изучению неизведанного. Даже если неизведанное хранило в себе безграничную опасность... Много сотен лет назад посреди южного моря был обнаружен остров, в основании которого зияло громадное отверстие. Вопрос, что же находится там, глубоко внизу, мгновенно отравил умы желающих заполучить предполагаемые богатства. Бесчисленные искатели (   Читать дальше...   )Производство: Kinema Citrus, ЯпонияЖанр: Приключения, Фэнтези, ДрамаРежиссер: Кодзима МасаюкиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9ECDA6DE04BB8AD9E5731B5C2A2E13D2C9309B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996503   (878424) от 14.03.2016
-
-Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призрак в Доспехах: Новый Фильм [2015, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878424.jpg" />
-</div>
-
-
-###  Подробнее
-
-После окончания жестокой Мировой Войны в Японии наука сделала резкий скачок вверх и начала развиваться не по дням, а по часам, давая человечеству выбор продолжать жить и ослаблять страдания с помощью современной кибернетики. Все человечество связано с помощью системы умов и личностей, известных как «Призраки». Самой большой угрозой цивилизации являются кибер-террористы, (   Читать дальше...   )Производство: ЯпонияЖанр: Киберпанк, Фантастика, БоевикРежиссер: Кисэ КадзутикаЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908A0C10483D7281EA7A9082EFA8A80CE75F8FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996718   (878414) от 14.03.2016
-
-Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призрак в Доспехах: Новый Фильм [2015, Movie] BDrip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878414.jpg" />
-</div>
-
-
-###  Подробнее
-
-После окончания жестокой Мировой Войны в Японии наука сделала резкий скачок вверх и начала развиваться не по дням, а по часам, давая человечеству выбор продолжать жить и ослаблять страдания с помощью современной кибернетики. Все человечество связано с помощью системы умов и личностей, известных как «Призраки». Самой большой угрозой цивилизации являются кибер-террористы, (   Читать дальше...   )Производство: ЯпонияЖанр: Киберпанк, Фантастика, БоевикРежиссер: Кисэ КадзутикаЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8687C6EA3F806AFBFE565909E4616FA0DB9416AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871905   (876898) от 23.02.2015
-
-Mangaka-san to Assistant-san to The Animation / The Comic Artist and His Assistants / Мангака и все-все-все [2014, TV, 12 ep + 6 sp] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876898.jpg" />
-</div>
-
-
-###  Подробнее
-
-22-летний Юки Айто – талантливый художник, умеренный извращенец и закоренелый фетишист, душой навеки оставшийся в золотом детстве. Именно поэтому его манга «Кафе «Смущение» нашла свою аудиторию и завоевала популярность, а автору выделили персонального редактора, симпатичную и волевую Михари Отосуну. Конечно же, творческой личности чужды понятия о сроках и графиках, но Михари знает Юки со школы и в курсе, как стимулировать его либ… то есть, личную работоспособность!
-
-Основная помощница Айто, 19-летняя Сахото (   Читать дальше...   )Жанр: комедия, эттиРежиссер: Фурута ТакэсиПеревод: GMC (01-03), LookerA (04-12, sp)Формат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFD24B25FF0363ECB29085E5D9941F0104ABB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1754967   (40470) от 13.10.2024
+
+Елена Тростникова | Праздники Православной Церкви (2017) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей книга рассказывает о том, какие события христианской истории лежат в основе главных праздников Церкви, как эти события отражаются в богослужении, что происходит в православном храме в праздничные дни.
+
+Книга рассчитана на самый широкий круг читателей, при работе над ней были использованы материалы сайтов «Православие. ru» и «Православие (   Читать дальше...   )Жанр: ПравославиеИздательство: Класы духовныеФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D6E99D2753C138FF8F0805B83C36B3CCC4CCAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754966   (40468) от 13.10.2024
+
+Елена Тростникова | Первые шаги в православном храме (2016) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Первые шаги в православном храме» – своего рода путеводитель по церковной жизни, в котором последовательно объясняется устройство православного храма, дается понятие о святых, молитве, богослужении, праздниках и Таинствах Церкви.
+
+Книга рассчитана на читателей, желающих начать приобщение к Церкви и получить первые наиболее необходимые понятия о православном храме.Жанр: ПравославиеИздательство: Класы духовныеФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705F1300831A23C86792B6093C760E23BE0DD350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755907   (39969) от 18.10.2024
+
+АСТ | Матрона Московская. Помощь, утешение, защита (2024) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда кажется, что выхода нет, мы надеемся на чудо. «Матронушка» – так в народе называют одну из самых почитаемых православных святых Матрону Московскую. Матрона помогала людям в самые непростые для русского народа времена, спасала каждого, кто к ней приходил: исцеляла, утешала и давала добрый совет. И в наши дни, после своей смерти, Матронушка слышит всех и всем (   Читать дальше...   )Жанр: ПравославиеИздательство: АСТФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B836DEAC93E9DA714D2329F42898BA718DF08E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755897   (39959) от 18.10.2024
+
+АСТ | 100 молитв на быструю помощь. Молитвы для обретения счастливой семейной жизни и защиты от бед (2023) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Семья в христианской традиции – это «малая Церковь». Но как встретить того, с кем будешь счастливо жить много лет и в скорби, и в радости? Как сохранить семейное благополучие и любовь в браке?
+
+Чудесный дар молитвенного слова способен указать нам верный путь к настоящему счастью и любви. Молитва, обращенная к Всевышнему и святым, поможет одиноким найти свою вторую (   Читать дальше...   )Жанр: ПравославиеИздательство: АСТФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1AFE681AF00AC139C111F75768A8D48221DD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756770   (39477) от 23.10.2024
 
 Белый город | Серия «Симфония веры» [9 томов] (2006-2009) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +116,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -378,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -404,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -432,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -458,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -484,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -510,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -536,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -562,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -575,113 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4217FAE563639A86C2F7B00424BB5FC7C869D401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774938   (29899) от 24.01.2025
-
-Архимандрит Лазарь (Абашидзе) | Пасха без креста, или еще раз об экуменизме (1998) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29899.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сегодня каждый православный христианин должен однозначно ответить самому себе на вопрос: на стороне ли он экуменизма или же на стороне Православия. Расплывчатые и отвлеченные рассуждения об этой болезненной проблеме все более и более приобретают характер явной лжи. Дух экуменизма, экуменического движения проявился со всей очевидностью, сделаны вполне конкретные (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318FA46EEC5AF1C39E1B965D4A45D7BE1DCA67E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774939   (29898) от 24.01.2025
-
-Нина Малахова | Преподобный Сергий Радонежский. Игумен земли Русской (2014) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – о жизни преподобного Сергия Радонежского, о его монашеском подвиге и том великом деле, которое призвал его Господь совершить на Руси.
-
-Эта книга – о том времени, когда преподобный Сергий и его ученики в Радонежской глуши творили молитву и жили по законам Божией любви: любви, с которой началось духовное возрождение Руси.
-(   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0421589987DE372D627FDC73DE816FDF4D5E2659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774934   (29891) от 24.01.2025
-
-Вольный странник | Молитва всё исправит. Старцы Псково-Печерского монастыря о молитве (2019) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный сборник поучений Псково-Печерских старцев посвящен молитве. Молитва – дыхание души, ее воздух, ее жизнь… Духовная жизнь без молитвы невозможна. В сборнике рассказывается и о чудесах по молитвам наших старцев. Высказывания Псково-Печерских отцов учат нас тому, что с молитвой всё можно пережить, ибо на нее откликается Небо. «Молитва всё исправит», – говорил (   Читать дальше...   )Жанр: ПравославиеИздательство: Вольный странникФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BB9EB007A1FB0E8DD822375522F55D7CDB8569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517571   (29777) от 26.01.2025
-
-Книжная серия | Православная Энциклопедия [Том 0-73] (2000-2024) [PDF,  DJVU] [Обновляемая]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29777.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Православная энциклопедия" является специализированным справочным изданием, ставящим перед собой две задачи: 1) дать всеобъемлющую информацию по двухтысячелетней истории и современному состоянию вселенского Православия; 2) ознакомить читателя с др. христианскими конфессиями, нехристианскими религиями, а также с явлениями науки, культуры, философии, искусства, (   Читать дальше...   )Жанр: ПравославиеИздательство: Церковно-научный центр "Православная Энциклопедия"Формат: PDF, DJVUКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670F3B5504A1078BA0FFD93B7E71F118C65C25FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

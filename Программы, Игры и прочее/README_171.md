@@ -1,3 +1,81 @@
+###  Публикация: 1796593   (18598) от 11.05.2025
+
+Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Оставляйте рукописные заметки естественным образом на планшете или телефоне Android! В приложении Squid вы можете писать словно на бумаге с помощью активного пера, пассивного стилуса или пальца. С легкостью размечайте файлы PDF для заполнения форм, редактирования/рецензирования или подписывания документов. Импортируйте изображения, рисуйте фигуры и добавляйте к своим (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.05.2025Разработчик: Steadfast innovation, LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796909   (18452) от 13.05.2025
+
+Darts Club: PvP Multiplayer v6.0.3 Mod by Viktorovich31 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Darts Club – это многопользовательская игра в дротики, содержащая элементы коллекционирования. Учитесь, собирайте части для дротиков и улучшайте своё оружие, соревнуйтесь с игроками со всего мира! Соревнуйтесь по сети с другими игроками! Научитесь попадать прямо в яблочко, отточите своё мастерство и станьте чемпионом мира. Просто играя, а также побеждая в состязаниях, (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 12.05.2025Разработчик: BoomBit GamesПоддерживаемая ОС: Android 7.0+Жанр: ДартсЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169ADA6F524667F125D4817C90ECC03F39B6CEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797077   (18326) от 14.05.2025
+
+TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это приложение позволяет пользователям создавать свою собственную коллекцию вопросов. Есть два типа вопросов: вопросы с описанием и вопросы с выбором из нескольких вариантов. Пользователи могут решать эти вопросы в виде викторины. Пользователи также могут настраивать свои вопросы, добавляя изображения к утверждению и автоматически создавая варианты ответов для вопросов (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.05.2025Разработчик: QuizMarketПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1519D83B8C34FAFF8936A15EA054D940059CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797023   (18325) от 14.05.2025
 
 Электробезопасность тесты 2025 v1.0.16 Mod by vedserega [Ru]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +113,7 @@ Motivation - Каждый день v4.79.2 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +140,7 @@ Fitness Online / Фитнес онлайн v2.20.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +166,7 @@ Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +192,7 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +219,7 @@ File Manager Plus / Файловый менеджер + v3.5.9 Mod by Balatan [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +245,7 @@ Email Aqua Mail - Fast, Secure v1.55.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +272,7 @@ Garmin: City Navigator North America NT 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +298,7 @@ AR Plan 3D: Линейка, Рулетка v4.10.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -302,7 +380,7 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +406,7 @@ English Galaxy v2.2.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +432,7 @@ Pencil Photo Sketch : Drawing v2.2.35 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +458,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +484,7 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -433,7 +511,7 @@ CalcKit: All-In-One Calculator / Всё-в-одном Калькулятор v7.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -459,7 +537,7 @@ ProShot v8.31.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +563,7 @@ ToonApp v3.1.6 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -511,7 +589,7 @@ Translate AI - Camera & Voice v2.0.6 Mod by papasha55 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,7 +644,7 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,7 +670,7 @@ AR Ruler App: Линейка Рулетка v3.0.9 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -603,85 +681,6 @@ ARuler - лучшее и бесплатное приложение на Android 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBE8345D00C1FA25792D30ABC20A8C53833CA8DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800609   (15680) от 04.06.2025
-
-Мобильный электрик v5.4 Pro Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для электрических расчетов, которые используются в работе электрика и домашних мастеров. Возможность сохранения результата расчета сечения в текстовом формате,с последующим просмотром.
-По каждому расчету (кроме законов Ома) дана отдельная справка.Тип издания: Pro (с Маркета)Релиз состоялся: 02.06.2025Разработчик: Анатолий ТарасенкоПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92CE298914C0B3DBABD43E64FBD40F28B3F1B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800984   (15433) от 07.06.2025
-
-Proton VPN 5.11.39 Mod [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proton VPN — это единственное в мире бесплатное приложение VPN, которое безопасно в использовании и уважает вашу конфиденциальность. Наш быстрый VPN предлагает безопасный, конфиденциальный, зашифрованный и неограниченный доступ в интернет с дополнительными функциями конфиденциальности и безопасности. Proton VPN также разблокирует доступ к популярным веб-сайтам и (   Читать дальше...   )Тип издания: ModПоддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650110   (15298) от 08.06.2025
-
-WireGuard 1.0.20250531 [En] (Обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15298.jpg" />
-</div>
-
-
-###  Подробнее
-
-WireGuard – современный и не требовательный к ресурсам протокол VPN-туннелей, использующий надёжные алгоритмы шифрования. WireGuard VPN предназначен для создания защищенных соединений и ориентирован на высокую производительность, безопасность и простоту в настройке. Все пакеты отправляются WireGuard по протоколу UDP, защищены от подделки ключей и обеспечивают полное (   Читать дальше...   )Тип издания: FreeРазработчик: WireGuard Development TeamПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F3B137F0B8FB77949F8D4C9DC4EB35B6E67599
 ```
 
 https://mybot314.ru/tekegram_catalog/

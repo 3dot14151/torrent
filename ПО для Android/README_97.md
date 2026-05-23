@@ -1,3 +1,84 @@
+###  Публикация: 1518919   (150796) от 22.12.2021
+
+Помощник электрика v1.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит в себе несколько подпрограмм и помогает:
+– выбрать сечение проводника (согласно ПУЭ);
+– выбрать подходящий автоматический выключатель (согласно ПУЭ);
+– рассчитать сопротивление заземляющего устройства;(   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 15 июля 2021 г.Разработчик: Andrei AlekseevПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F31844093A31047FEA160548039E15E349A710E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825898   (150737) от 18.10.2025
+
+Конвертер Валют Плюс v3.1.6 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Конвертер Валют Плюс, разработанный создателями Калькулятора Плюс, - это простой конвертер для перевода курсов валют, который сообщит тебе на что расчитывать при обмене денег.Тип издания: ModРелиз состоялся: 17.10.2025Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C4220550DCCDEE9ADE68A9780AF39EFDDD4A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825888   (150736) от 18.10.2025
+
+Яндекс.Погода v25.10.10 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 16.10.2025Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81099464AF92D521F8DC835CE72858303878EE75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825894   (150718) от 18.10.2025
 
 Auto Reply: автоответчик v5.8 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +87,7 @@ Auto Reply: автоответчик v5.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Purvpn 10.1+ [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +168,7 @@ Stellio - Music Player v6.7.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +195,7 @@ Plus Messenger (Telegram+) v10.2.9.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +277,7 @@ Moon+ Reader Pro v8.6 (build 806000) Mod by Balatan, derrin,  Lucky Las [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -248,7 +329,7 @@ Stellio - Music Player v6.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -275,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +408,7 @@ Listen Audiobook Player v5.2.2 (979) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +434,7 @@ Webcams v2.0.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +460,7 @@ Next: тренировки дома v0.0.77 Mod by sserratty [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +486,7 @@ Shift Work Calendar (FlexR Pro) v7.12.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +541,7 @@ Shamdo v1.3.1216 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -486,7 +567,7 @@ VPN Germany v1.30 Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +593,7 @@ Aimp v4.05.1382 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,7 +647,7 @@ English Idioms & Slang Phrases v1.2.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,7 +675,7 @@ TOEFL Vocabulary v1.7.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -607,87 +688,6 @@ TOEFL – достаточно сложный комплексный станд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F6738D0CBFF2B2CA9826F677FE8BCAB18723F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520053   (144947) от 26.12.2021
-
-Русско-английский словарь v2.4.4 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это русско-английский и англо-русский словарь (Russian-English Dictionary)
-Этот новый словарь больше, чем просто словарь. Вы можете искать слова и прослушать произношение. Словарь работает в режиме офлайн!
-Словарь так же имеет дополнитульные функции, например: словарный тренер! Словарьный тренер помогает быстро запомнить и выучить новые английские слова. В нем содержатся (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 26 декабря 2021 г.Разработчик: AllDictПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBC4288FA21C789CE4362E524DC06ED7D4AF4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596437   (144780) от 21.11.2023
-
-Meditative Mind v2.96  [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобный клиент для доступа к обширного каталогу медитативной музыки с возможность скачивания оной. Красочный и понятный интерфейс позволит вам быстрее достичь слияния со своей душой. В каталоге предоставлено множество категорий для медитаций разного типа. Поддерживается функционал отключения воспроизводения по таймеру. Meditative Mind - лучшее музыкальное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.10.2023Разработчик: Meditative MindПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674515   (144523) от 21.11.2023
-
-Лучшие Аудиокниги всегда под рукой. AudioBooks v6.0 Plus [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Books – новая платформа для прослушивания аудиокниг! Доступны источники: Akniga, ИзиБук, AudioBook, База Книг и Книгоблуд.
-В нашем приложении собраны лучшие произведения отечественных и зарубежных писателей. Детективы, ужасы, романы, прозы, мемуары, автобиографии – лучшие аудиокниги всегда под рукой! Так же мы собрали коллекцию книг и рассказов для детей. Есть (   Читать дальше...   )Тип издания: Free Plus от разработчикаРелиз состоялся: 20.11.2023Разработчик: fanok.incПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4291A72B08540ACB1EF5FCE3189F5DFCBD05E756
 ```
 
 https://mybot314.ru/tekegram_catalog/

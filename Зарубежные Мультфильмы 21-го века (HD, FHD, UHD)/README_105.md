@@ -1,3 +1,81 @@
+###  Публикация: 1591017   (187703) от 16.11.2022
+
+Золушка и тайна волшебного камня / Ella and the Little Sorcerer (2021) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Не каждой принцессе нужен защитник: некоторые из них способны сами за себя постоять и, более того, выручить близких из беды. На принца Алекса наложено проклятье, превратившее его в мышь. Золушке предстоит освободить его от злых чар и отправится в незабываемое путешествие вместе со своими обаятельными друзьями.Производство: США / Gold Valley FilmsЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Элис БлехартАктеры: Джери Кортни-Остейн, Эшли Борнансин, Тони Аццолино, Роберт Мартин Клейн, Моника Янг, Ниса Уорд, Билли Каметц, Крис Ниоси, Дэвид Шатроу, Джои КаменПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737EA5EDB0CA4E7BFFE7922644BF66960919657D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590958   (187675) от 16.11.2022
+
+Том и Джерри: Страна снеговиков / Tom and Jerry: Snowman's Land (2022) WEBRip [H.264/1080p] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+С помощью волшебства в воздухе Джерри и его племянник Таффи делают снежную мышь, которая чудесным образом оживает. Чтобы их новый друг, снежный мышонок Ларри, не растаял, Таффи и Джерри должны мчаться с ним в легендарную Деревню Снеговика.Производство: США / Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Даррел Ван СиттерсПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (full, SDH)Продолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48D1B89A91992C3A33C72847E3EA694D1571DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591450   (187009) от 18.11.2022
+
+Папин дракон / My Father's Dragon (2022) WEBRip [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Переехав с мамой в большой город, юный Элмер чувствует себя чужаком и сбегает. Говорящая кошка указывает ему путь на Дикий остров, где мальчик знакомится с драконом Борисом.Производство: Ирландия, США / Comic Animations, HB Wink Animation, Higher Ground Productions, Laughing Wild, Mockingbird PicturesЖанр: мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Нора ТумиПеревод: многоголосый профессиональный (Jaskier)Субтитры: русские, украинские, английскиеПродолжительность: 01:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40AA9C7F1C6CD522BB755A1FEF01F05B4030A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663194   (186981) от 20.09.2023
 
 Просто супер / Helt super / Just Super (2022) WEBRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6710A9962FE36A83199152393BCE93A0504876F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595574   (174805) от 06.12.2022
-
-Дневник слабака: Правила Родрика / Diary of a Wimpy Kid: Rodrick Rules (2022) WEB-DL [H.264/1080p] [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174805.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Джеффа Кинни "Дневник Слабака: Родрик рулит". Грег Хеффли идет в школу после летних каникул. Все, чего он хочет сейчас, - стереть последние три месяца из памяти своего старшего брата, Родрика, который узнал о Грегори одну очень постыдную вещь. Грегори понимает, что Родрик готов рассказать всему свету об этом позоре… и готов на все, чтобы этого (   Читать дальше...   )Производство: Канада, США / 20th Century Fox Animation, Disney+, DisneyToon Studios, Nickelodeon Movies, Pinkfong, Twentieth Century Animation, Walt Disney Company, TheЖанр: мультфильм, драма, комедия, семейныйРежиссер: Luke CormicanАктеры: Брэйди Нун, Ethan William Childress, Хантер Диллон, Эрика Серра, Крис Диамантополос, Эдвард Эснер, Линда Лавин, Лоретта Дивайн, Присцилла Лопес, Нэйтан АренасПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA3AD516691622AB8C5A4789739466327C4B2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595481   (174765) от 06.12.2022
-
-Я краснею / Turning Red (2022) BDRip [H.265/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торонто, 2002 год. Активная и неунывающая 13-летняя Мэйлинь всеми силами пытается быть первой во всём, чтобы угодить строгой гиперопекающей матери. Семья девочки живёт при храме и поклоняется Богине-прародительнице. Одним прекрасным утром Мэйлинь просыпается и вместо привычного отражения в зеркале видит красную панду — теперь, когда она волнуется, злится или испытывает (   Читать дальше...   )Производство: США, Канада / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Доми ШиАктеры: Розали Чян, Сандра О, Ава Морс, Майтреи Рамакришнан, Пак Хе-ин, Джеймс Хун, Саша Ройз, Джордан Фишер, Финнеас О’Коннелл, Вай Чин Хо, Лори Тан ЧиннПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, АнглийскиеПродолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5084094B9E00C541AD83BB21A08A357A59F2454A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668201   (174290) от 11.10.2023
-
-Чип и Дейл спешат на помощь / Chip 'n Dale: Rescue Rangers (2022) WEB-DLRip [AV1/1080p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174290.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чип и Дейл спешат на помощь» — известное шоу, в котором когда-то снимались бурундуки и их друзья. Прошло 30 лет. Чип стал страховым агентом, а Дейл зарабатывает, рассказывая о своих прежних успехах на разных фестивалях. Но когда пропадает их друг, бурундуки снова объединяются, чтобы спасти товарища.Производство: США / Mandeville Films, Walt Disney PicturesЖанр: мультфильм, фантастика, боевик, комедия, приключенияРежиссер: Акива ШафферАктеры: Энди Сэмберг, Джон Малэйни, КиКи Лэйн, Уилл Арнетт, Эрик Бана, Флула Борг, Дэннис Хэйсбёрт, Кигэн-Майкл Ки, Тресс МакНилл, Тим РобинсонПеревод: Многоголосый профессиональный (Jaskier, HDRezka Studio, TVShows, Flarrow Films)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99586AB851D610899E9244DC55F1ED6E4AE004AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

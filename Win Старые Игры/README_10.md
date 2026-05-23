@@ -1,3 +1,55 @@
+###  Публикация: 1205376   (783731) от 09.02.2018
+
+Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В этой прекрасной игре собрано очень много: неизвестные злобные существа, механические люди и птицы, непонятные приспособления и механизмы. Игра прекрасно выполнена графически. Преследуя похитителя ребенка, вам придется летать на самолете, плавать на подводной лодке, опускаться на морское дно на батискафе. Вас ждет огромное количество загадок и головоломок. Будьте (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811A3550AC16181774A40694FCC9E124CA7A3706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206977   (781170) от 16.02.2018
+
+Outlaws (1997) [En] (2.0/dlc) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать домой, старина! Мы ждали тебя здесь, в городе Санкчери. Разувайся и присаживайся. Бывший шериф Джеймс Андерсон жил тихой семейной жизнью на ферме с женой и дочерью. Пока в один мрачный день эта жизнь не была разрушена жадным земельным магнатом, решившим проложить через землю Джеймса свою железную дорогу. Теперь Андерсон жаждет мести и готов осыпать (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasfilmЖанр: Шутер, Приключение, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473A8E9D82F1165102CB02B2BC8D7E20316D1FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207524   (780488) от 18.02.2018
 
 Athens 2004 / Летние игры. Афины 2004 (2004) [Ru] (1.0) Repack CoD - MW2
@@ -6,7 +58,7 @@ Athens 2004 / Летние игры. Афины 2004 (2004) [Ru] (1.0) Repack Co
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's Americ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ The Mims Beginning (2016) [En] (1.0.0.280) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -616,58 +668,6 @@ The Mims Beginning – стратегия в реальном времени, с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:965B19E2C05083A98C28E76AA6E42AC2CE673AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280891   (756434) от 05.02.2019
-
-Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]  Repack R.G. Revenants
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из деревни таинственным образом исчезает главный деревенский друид - Гетафикс, а это значит что герои французских комиксов Астерикс и Обеликс снова отправятся в захватывающее путешествие! На этот раз судьба забросит их в Лас-Вегум, город, построенный римлянами специально для развлечений.Тип издания: RepackРазработчик: tranges LibellulesЖанр: Arcdae, Action, 3dЯзык озвучки: Русский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2958DDF69D2573969DF5133447C6C0889FF491B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204889   (754058) от 30.05.2010
-
-Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L) 2007
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_754058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: лицензияРазработчик: CauldronЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: русскийЯзык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

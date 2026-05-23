@@ -1,3 +1,109 @@
+###  Публикация: 990493   (912308) от 25.02.2016
+
+А. Доброер (ред.) | Открыть человека человеку (2008) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Человек – загадка. И каждая эпоха пытается разгадать ее по-своему. Безусловно, что и XXI век должен дать свой ответ на вопрос «Что такое человек?». «Открыть человеку человека. Вызовы богословию Центральной и Восточной Европы». Под таким девизом в 27-30 сентября 2005 г. в Одессе и Ялте прошел Третий Форум богословов Центральной и Восточной Европы.
+
+В нем приняли участие (   Читать дальше...   )Жанр: АнтропологияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF9E301791E24C7F30181D8EEBBAF6B9426AAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990461   (912304) от 25.02.2016
+
+И. С. Вдовин (отв. ред.) | Христианство и ламаизм у коренного населения Сибири [вторая половина XIX - начало ХХ в.] (1979) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В статьях сборника освещаются вопросы влияния мировых религий, в частности христианства и ламаизма, на религиозные представления, верования и культы некоторых малых народностей Севера и юга Сибири. Раскрываются особенности религиозного синкретизма, сложившегося в результате распространения православия среди ненцев, нганасан, кетов, хакасов, нивхов, коряков, чукчей (   Читать дальше...   )Жанр: История, религиоведение, этнографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1173D8774CA4BE97D9F715FDC131943215959752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990255   (912286) от 25.02.2016
+
+М. И. Шахнович | О «святой исповеди» [Исповедь на службе шпионажа] (1940) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Автор показывает на ряде примеров, как церковная исповедь служит средством угнетения порабощения трудящихся.Жанр: История, религиоведение, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C276606B0AE058925098AD217ED07CF58B9D9916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990447   (912216) от 25.02.2016
+
+Ю. Коган | О церковном браке (1940) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В популярной форме автор показывает, как при помощи церковного брака религия освящала рабское положение женщины в семье, крепостические и буржуазные семейные порядки.Жанр: История, религиоведение, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F676573AFEDEDB75C36890C7BF901D21AA16498C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368172   (910913) от 19.03.2020
 
 Архимандрит Андрей (Конанос) | Всё будет хорошо! Беседы о Промысле Божием (2019) [PDF, DJVU, FB2, EPUB]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -538,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -575,116 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4C732BA147C0EA99E8C65BDF0D7BC950F65580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493040   (899157) от 01.09.2021
-
-Донской монастырь (изд.) | Донская икона Божией Матери (1991) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Икона Божией Матери "Донская" получила своё имя в память великой победы русских воинов на поле Куликовом в 1380 г.
-
-Русскому народу были дарованы огромные духовные силы Самой Матерью Божией, благословившей преподобного Антония Печерского на создание своего земного Удела - Киевской Руси. Русь была призвана стать великим христианским государством, несущим (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92CDBBDC2DF3C514756097F0679ACC2B63B466E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370384   (896921) от 27.03.2020
-
-Н. В. Рябушкин | Кто такие сектанты (1961) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896921.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре рассказывается о религиозном сектантстве, его сущности, происхождении и вреде. Главное внимание уделяется критике сектантской идеологии, показывается ее полная несовместимость с задачами коммунистического строительства.
-
-Автор широко использует местный материал и, в частности, разоблачает проповеди, с которыми выступает сектантский руководитель И. К. Ильин.Жанр: История, политология, публицистика, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFAC6359AB31268210A070276DCD3381AF4E3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370421   (896718) от 27.03.2020
-
-Протоиерей Сергий Ванюков (сост.) | Богослужебные указания на 2020 год. Для священно-церковнослужителей (2019) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Литургическая жизнь Православной Церкви регламентируется её Церковным Уставом, зафиксированным в особой книге, именуемой Типикон, или Устав. Типикон в своих указаниях определяет, как в течение всего церковного года, день за днём соединять за богослужениями в определённом порядке и в нужном количестве молитвословия и песнопения, содержащиеся в богослужебных книгах. (   Читать дальше...   )Жанр: Православие. Богослужебное изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12136B215403C656854F6293C4C3588572C1C86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101200   (896301) от 06.02.2017
-
-Б. Кандидов | Церковь и Февральская революция. (1934) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896301.jpg" />
-</div>
-
-
-###  Подробнее
-
-В статье «Об отношении рабочей партии к религии» т. Ленин определяет религиозные организации как «органы буржуазной реакции, служащие защите эксплуатации и одурманиванию рабочего класса».
-
-Изучение прошлого, опыт гражданской войны и современная действительность подтверждают правильность вышеприведенных слов. Насквозь лживое поповское определение, что церковь есть (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BDFA9A45F7B39E31BDD93D0B0F25C09DFEEE3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

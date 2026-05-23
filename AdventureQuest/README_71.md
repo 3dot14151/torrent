@@ -1,3 +1,107 @@
+###  Публикация: 1696761   (118863) от 07.02.2024
+
+Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Anomaly Agent - динамичный 2D экшен-платформер, в котором игроки погружаются в самое сердце шумного киберпанковского мегаполиса. В роли титульного персонажа, Аномалии, игроки берут на себя роль агента, выполняющего задание по расследованию и устранению временных аномалий, сеющих хаос в городе. Повествование разворачивается постепенно, раскрывая сложную паутину взаимосвязанных (   Читать дальше...   )Тип издания: SceneРазработчик: Phew Phew GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Японский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Японский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1659CB76614AF908A1C029F2F8E3F765424A3C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697559   (118817) от 07.02.2024
+
+Steel Echoes (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Steel Echoes – сойдитесь в эпическом противостоянии с монстрами. Но если повернете обратно, то испытаете настоящий ужас! Поэтому возьмите в руки фонарик и исследуйте залы с призраками, уклоняйтесь от атак стальных монстров и постарайтесь понять злобную галерею… Все ваши выборы оказывают значительное влияние на направление игрового сюжета в этом атмосферном ужасе. (   Читать дальше...   )Тип издания: RepackРазработчик: Max TeraЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57C6E07FDE2B861345BE80B4BBBE2A905D48E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532791   (118706) от 08.02.2024
+
+Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Помогите Наре разобраться с породившим ее темным культом. Осваивайте разрушительное оружие и развивайте ментальные способности в этом уникальном космическом шутере. Слейтесь сознаниями с разумным истребителем «Форсейкен», исследуйте древние храмы, сражайтесь в открытом космосе и шагните за пределы этой реальности.Тип издания: RepackРазработчик: Deep Silver FishlabsЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6A016381036F0644F8859AE3366752A43E78C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698176   (118681) от 08.02.2024
+
+Splice (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это короткая хоррор-игра в стиле "убеги из комнаты". Время прохождения варьируется, но одну концовку можно пройти за 30 минут или меньше. Сэм Фостер - новичок в службе безопасности CyroArk, научно-исследовательской компании. Первую неделю он проводит в исследовательском бункере под пустыней Аризоны. Пока все идет хорошо, но он узнал об этой компании кое-что, (   Читать дальше...   )Тип издания: RepackРазработчик: Black Knife GamesЖанр: Logic, Puzzle, First-person, 3D, HorrorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AED28822405D720FAC57F17E9DF2855BBF61369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698276   (118645) от 08.02.2024
 
 Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
@@ -6,7 +110,7 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Axiom of Maria (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Doors: Paradox (2022) [Ru/Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Backrooms Deluxe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Terror Mansion (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Spirit Hunter: Death Mark II (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ CLeM (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ PARANOID (2023) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Don't Starve (2013) [Ru/Multi] (12527201/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Forgiveness (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Lazaret (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ My Lovely Daughter (2024) [Multi] (1.27f6/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.0_B/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Witch of Fern Island - это красочный симулятор жизн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17AA35BF3CBE799941497D2DCF3B4FC05451B53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703639   (114947) от 01.03.2024
-
-Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nathan Morgan: Dilemma ставит вас на место детектива Натана Моргана, которому поручено распутать загадочное убийство. Действие игры разворачивается в стенах величественного особняка Беннеттов, где произошло теневое преступление. Ваша главная задача как детектива - установить личность преступника. Для этого вам придется прочесывать особняк в поисках улик, скрупулезно (   Читать дальше...   )Тип издания: RepackРазработчик: 98 INTERACTIVEЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский, Турецкий, Немецкий и другиеЯзык интерфейса: Русский, Английский, Турецкий, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F1944C17BC988885D55816B2B3D677B813BB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703719   (114934) от 01.03.2024
-
-Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534/dlc) Repack Other s [Supporter Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ad Infinitum – атмосферный хоррор-проект, в котором задействовано множество элементов, используемых для создания саспенса и чувство страха и геймера. Разработчиками этой игры являются малоизвестные программисты из независимой студии, базирующейся в Германии. Благодаря камере от первого лица, геймер как будто находится в виртуальном пространстве на месте виртуального (   Читать дальше...   )Тип издания: RepackРазработчик: HekateЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52517CFD08882CB3791A069CBB65266F64BE5DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703722   (114910) от 01.03.2024
-
-Invisible Fear (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invisible Fear погружает вас в леденящий душу кошмар, разворачивающийся в стенах заброшенной школы. В роли Эвелинн, учительницы, которую преследует трагическое прошлое, вы должны вернуться на место ужаса, чтобы разгадать правду и противостоять своей затянувшейся травме. Но школа таит в себе зловещую тайну - под покровом ночи появляются скрытные существа, и только (   Читать дальше...   )Тип издания: RepackРазработчик: Chilling DesignsЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77F8C6A81471682C177896C76C6409057A8A6C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704249   (114567) от 03.03.2024
-
-Beyond the Fringe (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond the Fringe - в первую очередь шутер от третьего лица. Игрок может атаковать врагов, используя различные тактики, включая стелс-убийства и рукопашный бой. Сражаетесь ли вы с солдатами MilCorp или песчаными червями, вы всегда будете готовы победить врага, имея в своем распоряжении более десяти видов оружия. Чтобы извлечь максимум пользы из своего приключения, (   Читать дальше...   )Тип издания: RepackРазработчик: KandHЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34374D7FD02145CBA7F3D42EAAD19ED8780441E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

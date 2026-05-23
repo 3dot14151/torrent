@@ -1,3 +1,108 @@
+###  Публикация: 1558804   (213164) от 22.06.2022
+
+One Piece: Heart of Gold | Ван-Пис: Золотое сердце [2016, Special, 1] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о таинственном сокровище, "Чистом Золоте", которым хочет завладеть Гран Тесоро (главный злодей One Piece Film GOLD). Мугивары случайно встречаются с девушкой Ольгой, которая знает местоположение этого сокровища, и берут курс в сторону легендарного острова Алхеми.Производство: Япония, TOEI AnimationЖанр: Приключения, Комедия, Боевик, Фэнтези, ДрамаРежиссер: Нагаминэ ТацуяПеревод: Ziggy TeamЯзык озвучки: Русский (AniDUB)Субтитры: РусскиеПродолжительность: 104 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DA86E1C9D1585229D437C1AD882E7F73F3A03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558802   (213163) от 22.06.2022
+
+Anne no Nikki | The Diary of Anne Frank | Дневник Анны Франк [1995, Movie] DVDRip 446p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Амстердам, 12 июня, 1942 года. Девочка по имени Анна празднует свой 13-й день рождения. В этот же день она начинает вести свой дневник, который называет "Китти".
+Скрываясь на протяжении двух лет от нацистов вместе с родителями и еще одной еврейской семьей, девочка пишет о своих идеалистических взглядах на мир, о своих амбициях и мечтах, о своих страхах (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: история, война, драмаРежиссер: Нагаока АкинориПеревод: General TAB, Nachtwandler, HurricaneЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706ED9A2B4CBAC8EB30263D2F5BFCEB41457B7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559013   (213125) от 23.06.2022
+
+One Piece Film: Gold | Ван-Пис: Фильм тринадцатый [2016, Movie] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются на крупнейшем в мире развлекательном лайнере «Гран Тезоро», возглавляемом правительственным чиновником Гильдом Тезоро по прозвищу «Золотой император». «Гран Тезоро» не просто место, где можно отдохнуть — это независимая страна, признанная самим Мировым правительством. Оно собирает всех желающих быстро разбогатеть в одном месте, в особенности (   Читать дальше...   )Производство: Япония, TOEI AnimationЖанр: Приключения, Комедия, Боевик, Фэнтези, ДрамаРежиссер: Миямото ХироакиПеревод: AlvakarpЯзык озвучки: Русский (FREYA&NAZEL)Субтитры: РусскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C20D42CA71C7936B1E5C5CC43548ED3E3A6B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543374   (213070) от 25.06.2022
+
+Настоящая героиня | Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Show: The Unpopular Girl and the Secret Task [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Хиори Сузуми покинула свой маленький городок и перебралась в столицу, чтобы профессионально заниматься атлетикой, ведь это её страсть и любовь всей жизни! И хотя планы были грандиозными, на деле все оказалось намного сложнее чем задумывалось. Хиори было не на что жить и не чем заплатить за свою квартиру. Но к счастью, она нашла подработку, да ещё и какую! Девушка (   Читать дальше...   )Производство: Япония / Студия Lay-duceЖанр: Повседневность, комедия, сёдзёРежиссер: Хасимото НорикоЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D80933AF187EF09CBCFB203BB8836252A876487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560236   (213002) от 28.06.2022
 
 Дом теней [ТВ-1] | Shadows House [2021, TV, 13 из 13] BDRip 1080p HEVC 10bit Raw+Rus
@@ -6,7 +111,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -62,7 +167,7 @@ Spriggan | Спригган [2022, Web, 06 эп.] WEB-DL 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -88,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -117,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -147,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -177,7 +282,7 @@ Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -203,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -229,7 +334,7 @@ Goku Midnight Eye | Гоку: Полуночный глаз [1989, OVA] DVDRip 5
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -255,7 +360,7 @@ Goku II: Midnight Eye | Гоку 2: Полуночный глаз [1989, OVA] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -281,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -307,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -334,7 +439,7 @@ Makai Toshi Shinjuku | Demon City Shinjuku | Синдзюку - город-ад 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -360,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -386,7 +491,7 @@ Rokka no Yuusha | Rokka: Braves of the Six Flowers | Герои шести цв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -412,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -439,7 +544,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -465,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -493,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -524,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -580,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -592,113 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DB40CC87A2F7CA6F75936BF5480BC1C03664E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570901   (210232) от 19.08.2022
-
-Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир [2015, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее. В наш мир извне приходят страшные монстроподобные существа не щадящие людей, которых прозвали Драконами. Началась война. Прошли года и люди смогли взять угрозу под контроль с помощью феномена вызванного этими самыми драконами. В след за ними в наш мир проникла и их магия и начали рождаться дети (исключительно девушки) с такими же волшебными силами как и (   Читать дальше...   )Производство: DiomedéaЖанр: этти, фэнтазиРежиссер: Кусакава КэйдзоЯзык озвучки: Японский, РусскийСубтитры: Русские, ASS, Встроенные, Полные + надписи |Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACC6DFE43027445D0699E0E2D492A2EA882AB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571184   (210136) от 20.08.2022
-
-High School Agent | Агент Старшеклассник [1988, OVA, 2 эп.] VHSRip HEVC 480p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь семнадцатилетнего Канемори Кёске, талантливого хакера, изменилась с тех пор, когда он решил взломать базу данных ООН.Теперь он вынужден стать секретным агентом и выполнять секретные заднаяния.Производство: Япония / J.C. Staff, Agent 21Жанр: приключения, комедияРежиссер: Дзюнъити СакатаЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый Любительский)Субтитры: ОтсутствуютПродолжительность: 2 серии по 28 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB1443F54A717F4D0AD4702F2C2C22578B2EFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571174   (210123) от 20.08.2022
-
-Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development Department | Госпожа Куроицу из отдела создания монстров [2022, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куроицу, девушка с необычными увлечениями, работает на тайное общество «Агастья». Её задача — создавать разнообразных монстров, чудовищ и мутантов, чтобы однажды «Агастья» захватило мир. Правда, первым делом надо одолеть назойливого героя Блейдера. Начальник Куроицу — профессор Садамаки. Вдвоём они придумывают концепты и претворяют в жизнь жутчайшие порождения человеческой (   Читать дальше...   )Производство: Япония, студия QuadЖанр: комедия, повседневность, пародияРежиссер: Сайто ХисасиЯзык озвучки: Русский закадровый, многоголосый (AniLibria)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 12 эпизодов по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E064619956F1637B99A298BCC1903BBA6F263E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571276   (210117) от 20.08.2022
-
-Хоримия [ТВ-1] | Horimiya [2021, TV, 13 из 13] BDRip 1080p HEVC 10bit Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210117.jpg" />
-</div>
-
-
-###  Подробнее
-
-В школе Кёко Хори знали, как умную, привлекательную и популярную девушку. Её одноклассника, скучного, мрачного Изуми Миямуру, напротив, описывают как неудачника и отаку. Но когда на пороге Хори неожиданно появляется Миямура, весь татуировках и пирсинге, эти два столь непохожих друг на друга подростка понимают, что у каждой истории есть несколько трактовок... а у (   Читать дальше...   )Производство: Япония / Студия CloverWorksЖанр: Комедия, романтика, повседневность, школа, сёненРежиссер: Исихама МасасиЯзык озвучки: Русский многоголосый закадровый, Японский
-- (внешним файлом) Amikiri, Anzen, Arato, Kiyoko Koheiri (AniLibria.TV)Субтитры: Русские (софтсаб)
-- (внешним файлом) (полные/надписи) (YakuSub Studio):
-Оформление: Hakkdaru. Редактор: Minamikaze. Переводчик: SeshaRimПродолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D149712C70EB7BBAFBF0CD04B53183F08A7AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 971379   (983087) от 05.01.2016
+
+Hibike! Euphonium | Sound! Euphonium | Играй, Эуфониум! [ТВ-1] [2015, TV, 13 + 8SP] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Духовой оркестр Северной старшей школы городка Удзи переживает не лучшие времена. Выпускники, составляющие основу, утратили огонек, ребят второго года совсем мало, о конкурсах пришлось забыть. Надежда пришла в виде нового учителя музыки – молодого, но уже известного в нужных кругах Нобору Таки, и, конечно, вместе с новичками – ведь рядом Киото, культурная столица (   Читать дальше...   )Жанр: повседневность, музыкальныйРежиссер: Исихара Тацуя / Ishihara Tatsuya / 石原立也Продолжительность: 13 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59DB7D99E5B90B768F5FC35EA642785C5CF9E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943484   (982799) от 05.01.2016
+
+Grisaia no Rakuen | The Eden of Grisaia | Рай Грисайи [2015, TV, 10 эп. + 5 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Будь 17-летний Юдзи Кадзами чуть осторожнее - и мы вместе с обитательницами академии Михама так и не узнали бы историю его жизни, в которой хватает материала на полдюжины авантюрных романов. Гениальная старшая сестра Кадзуки, знатный террорист Осло и просто хорошая женщина по имени Асако выковывали из парня совершенное оружие – но, похоже, купаясь в крови, клинок (   Читать дальше...   )Производство: 8bitЖанр: романтика, комедия, драма, триллерРежиссер: Танака МотокиПеревод: TimecraftЯзык субтитров: Русский (отключаемый)Продолжительность: 10 серий по 24 минуты + 5 спешиалов по 5 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1980AE252FDB395BDA86D7E6F3BF497E9D430050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971979   (982711) от 05.01.2016
 
 Dragon Ball Z Movies / Драгонболл Z Фильмы [1989 - 2015, Movie, 1-15] BDRip 1080p raw
@@ -6,7 +58,7 @@ Dragon Ball Z Movies / Драгонболл Z Фильмы [1989 - 2015, Movie, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Saint Seiya(Jashin Eris|Kamigami no Atsuki Tatakai|Shinku no Shounen Densets|Sai
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +112,7 @@ Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Haja Taisei Dangaiou | Dangaioh: Hyper-Combat Unit | Гигантский зве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Katanagatari / Sword Stories / Истории мечей [2010, OVA, 12 сери
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +192,7 @@ Trinity Blood | Кровь Триединства [2010, TV, 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +218,7 @@ Kandagawa Jet Girls: Tokyo Girls Take a Shot at Promotions | Кандагава:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +246,7 @@ Fate/Stay Night: Unlimited Blade Works (2015) | Судьба: Ночь схва�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +272,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. | OreGairu | Мой подро
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +298,7 @@ Tokyo Ghoul / Токийский гуль [2014, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +324,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +350,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +376,7 @@ Dirty Pair no Ooshoubu: Nolandia no Nazo | Dirty Pair: Affair of Nolandia | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +402,7 @@ Dirty Pair (1987) | Грязная парочка [1987, OVA, 10 из 10] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +428,7 @@ Dirty Pair: Lovely Angels Yori Ai o Komete | Dirty Pair: With Love From the Love
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +454,7 @@ Dirty Pair: Project Eden | Грязная парочка: Проект Эдем 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +480,7 @@ Dirty Pair Flash | Ослепительная грязная парочка [199
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +506,7 @@ Dirty Pair: Bouryaku no 005-bin | Dirty Pair: Flight 005 Conspiracy | Грязн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +534,7 @@ Dirty Pair | Грязная парочка [1985, TV, 24 из 24] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +560,7 @@ Mirai Shonen Conan / Future Boy Conan / Конан - мальчик из буд�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +586,7 @@ Hikaru no Go | Hikaru's Go | Хикару и го [2001, TV, 75 + 1] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +612,7 @@ Kyoushoku Soukou Guyver / Guyver: The Bioboosted Armor / Гайвер [ТВ] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +638,7 @@ Cop Craft | Мастерство копа [2019, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +664,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -624,59 +676,6 @@ Cначала ничто не предвещало беды, но не прош�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B2DDEA3BDBF12C05722B490A1E78D379D06C835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362776   (948029) от 24.02.2020
-
-Kimi to, Nami ni Noretara | Ride Your Wave | Оседлать волну с тобой [2019, Movie] BDRip 1080 HEVC 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поступив в университет, Хинако переезжает в прибрежный городок. Она очень любит сёрфинг и на волнах чувствует себя уверенно, однако неопределённость будущего всё ещё беспокоит её. Когда разбушевавшийся пожар сеет хаос в городке, Хинако знакомится с молодым пожарным Минато. Пока они занимаются сёрфингом и проводят много времени вместе, девушка начинает чувствовать, (   Читать дальше...   )Производство: студия Science Saru / サイエンスSaruЖанр: романтика, драмаРежиссер: Юаса МасаакиПеревод: 1) laci; 2) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AEE20E2750FD6FFFE2CF9158B83009D33CCC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362778   (948022) от 24.02.2020
-
-Promare | Промар [2019, Movie + 2 SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед нами оригинальное аниме от сценариста Кадзуки Накасимы и режиссёра Хироюки Имаиси, известных по нашумевшим работам «Гуррен-Лаганн» и «Убей или умри». Нас ожидает их новое грандиозное произведение, которое станет некой смесью двух названных аниме.
-Сюжет поведает нам историю главного героя по имени Гало Тимос, ставшего новобранцем в пожарной бригаде, которая (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: приключенияРежиссер: Имаиси ХироюкиПеревод: PrometoSubsЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 111 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741E16D48F0FBC001C4839249E77E8A2A8958E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,185 @@
+###  Публикация: 1189926   (269218) от 07.12.2017
+
+Mozilla Firefox Quantum 57.0.2 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Свободный веб-браузер Mozilla Firefox на движке Gecko, ориентированный на приватность и безопасность в Интернете. В новой версии браузера Mozilla Firefox обновился движок – улучшилось качество отображения сайтов, возросла скорость их загрузки, совместимость со стандартами. Firefox содержит массу крупных и мелких улучшений интерфейса и, как следствие, работать стало (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB710FB191583B0C1419770EE7D17576B26CAE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266382   (269040) от 03.12.2018
+
+Intel приступила к распространению новых универсальных драйверов Modern Drivers для Windows 10
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+На этой неделе Intel сообщила о начале распространения набора драйверов нового типа Windows Modern Drivers, его второе название – Universal Windows Drivers (UWD). Этот набор драйверов для встроенной графики Intel HD Graphics, как подсказывает само его название, является универсальным для всех актуальных платформ Microsoft – Universal Windows Platform (UWP), семейство (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384782   (269032) от 03.12.2018
+
+Windows 7 xDark ™ Deluxe x64 RG - Codename: State Of Independence 4.3 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Сборка на базе оригинального образа Windows 7 Ultimate SP1 x64 от команды xDark™. Из оригинального образа ничего не удалено, были применены твики реестра и отключены некоторые службы для повышения стабильности и быстродействия системы, применён оригинальный стиль оформления по умолчанию xDark™ Deluxe v.4.3. В сборку интегрирован IE9 и последние апрельские обновления.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F833A2D69BD1B931D8567F5856058738ECB7008B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716953   (269029) от 03.12.2018
+
+Книжная серия | Враг у ворот. Фантастика ближнего боя [51 книга. Обновляемая] (2011-2018) [FB2]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Альтернатива с боевым уклоном. Подлый враг вторгается, русский народ грудью встает на защиту. Враг будет разбит - победа будет за нами.Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B63BC021F82AB0C1DC935176BD843DE426879F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302399   (268587) от 16.11.2019
+
+A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1349 год. Черная смерть опустошает Францию. Амиция и ее младший брат Гуго спасаются от Инквизиции в разоренном чумой краю. Чтобы уйти от погони и огнем и светом разогнать полчища крыс, героям придется объединить силы с другими подростками. И только узы дружбы помогут им преодолеть немыслимые ужасы, которые ждут их на пути. В борьбе за жизнь... нет места невинности.Тип издания: RepackРазработчик: Asobo StudioЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43157305533A6BDC5E1A6EF81502959E0C34077E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189616   (268503) от 08.12.2017
+
+Госдума одобрила передачу мэрии Москвы права взимать штрафы за нарушение ПДД
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Государственная дума приняла в первом чтении законопроект, который позволит мэрии Москвы самостоятельно выписывать штрафы за нарушение правил дорожного движения, забрав эти функции у МВД. За документ проголосовали 304 депутата, 99 выступили против, пятеро воздержались. Трансляция заседания шла на сайте Думы.Москве предложено передать право рассматривать следующие (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189334   (268500) от 08.12.2017
+
+Google объявил о запуске бюджетной версии Android
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Новейшую версию системы с 6 декабря смогут получить маломощные устройства.Компания Google объявила, что 6 декабря вместе с обновлением операционной системы Android 8.1 выйдет её облегчённая версия Android (Go Edition), способная работать на устройствах начального уровня.Особенностями Go Edition станут облегчённые приложения, занимающие в два раза меньше места. Благодаря (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190108   (268436) от 08.12.2017
 
 Дюнкерк / Dunkirk (2017) Blu-ray [H.264/1080p] [IMAX]
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +241,7 @@ BELOFF 2018.12 Unpacked [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_267576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +373,7 @@ kulinaria.nnm.ru | Кулинарная книга дока "Пельмешки 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +401,7 @@ Red Giant Trapcode Suite 15.1.5 RePack by PooShock [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -245,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -271,7 +453,7 @@ Adguard Premium 6.2.437.2171 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +479,7 @@ Adobe Photoshop CC 2018 19.0.1.190 [x86] Linux (cxarchive)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -349,7 +531,7 @@ Shenmue I & II (2018) [Ru/Multi] (1.07) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -375,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -401,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -427,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -453,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -479,7 +661,7 @@ KMS Tools Portable 01.12.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -490,196 +672,6 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ECBDE260241F91D3F13AAA2D8EB50AF291F857E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110009   (265444) от 07.12.2018
-
-Trondheim Solistene - Divertimenti (2008) [LPCM 2.0, 5.1 192/24 |Blu-ray]<Classical>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trondheim Solistene (The Trondheim Soloists) - один из самых известных молодых ансамблей Норвегии. Диск выпущен норвежским лейблом 2L. В одном из интервью директор этого лейбла рассказывал, что перед выпуском этого диска, они пригласили для тестирования известного в Норвегии музыкального критика. Когда он пришел на студию и узнал для чего его пригласили, то захотел (   Читать дальше...   )Benjamin Britten (1913-1976) - Simple Symphony, op.4
-1) Boisterous Bourree
-2) Playful Pizzicato
-3) Sentimental Saraband(   Читать дальше...   )Жанр: Art music :: ClassicalПродолжительность: 1:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6058AF6C5C99858C9718BB3B9DCE7AEBB602ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 116463   (265441) от 07.12.2018
-
-Утиные Истории / Duck Tales (полная колекция: все мультфильмы, игры, комиксы, книги) (1987-2007) SatRip, DVDRip [Club Special Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265441.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Дональд Дак. Утиные истории" - это увлекательная трехмерная аркада, которая разработана специально для детей в возрасте 6 лет и старше. Игра содержит 4 мира и 24 уровня, на которых ребенок сможет встретиться с полюбившимися героями: смелым и отважным Дональдом Даком, любознательными и непоседливыми утятами Вилли, Билли и Дилли, а также неугомонным изобретателем (   Читать дальше...   )Тип издания: лицензияРазработчик: Ubi Soft EntertainmentЖанр: АркадаРежиссер: Боб ХатцокПерсонажи: Скрудж МакДак; Билли, Вилли и Дилли; Зигзаг Макряк; Винт Разболтайло;  Дональд Дак;  Дакворт;  Миссис Клювдия;  Понка;  Пупс;  Бабби; Фэнтон Крякшелл; Уткоробот Гизмо; Миссис Крякшелл.Перевод: Дублированный, профессиональный (полный дубляж)Язык интерфейса: только английскийФормат: упакованно в архивы - *.ipg, *.cbr (*.cbr формат открывать программой CDisplay)Продолжительность: 01:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502706A82FCB71F238B0F155A816648672755047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 429862   (264651) от 31.12.2011
-
-Windows 7x86x64 Ultimate UralSOFT v.8.12
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка представлена в одном образе,присутствуют две разрядности 32 и 64.Системы Ultimate Windows 7.За основу как всегда взяты оригиналы
-ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463
-В обоих разрядностях идентичны все изменения, а именно: Установлены важные и необходимые обновления по 28 декабря 2011 года, так же установлен IE9.Применён патч для сторонних тем.Изменён интерфейс установки.Добавлены темы и обои.Изменена стандартная звуковая схема "Привет"-"Пока".Применены твики ПКМ(добавлен быстрый доступ к службам правая кнопка мыши),твик ОЕМ(информация о производителе.Изменена боковая панель.Отключён контроль учётных записей.Название программы: Windows 7x86x64 Ultimate UralSOFT v.8.12Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339520   (264564) от 21.11.2019
-
-⚡ Новые нормы поведения эффективнее приживаются в соцсетях
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международная группа исследователей показала, что новые нормы поведения в социальных сетях распространяются намного эффективнее, чем в сообществах с офлайн-общением. Полученный результат поможет лучше разобраться в том, как использовать соцсети для популяризации отдельных товаров и услуг, а также общественно полезных норм поведения. Статья ученых опубликована в журнале (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450088   (264534) от 21.11.2019
-
-Смерть с дымком (2011) SATRip (серии 1-2 из 2)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264534.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России от болезней, вызванных курением, ежегодно погибают около 400 тысяч человек. Впервые государство решило принять цивилизованные антитабачные законы. Однако табачное лобби всеми силами противостоит этому. Кто спасет курящих россиян? И почему наши курильщики так легко соглашаются на медленную смерть?
-Уже давно доказано, что курение является причиной преждевременной (   Читать дальше...   )Производство: Россия, ООО "Новое решение МЕДИА"Жанр: Документальный, ТелепередачаРежиссер: Светлана БаблевскаяПродолжительность: 2 х ~00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D29C933C3869B08028CBE44B52340D59823B47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339635   (264489) от 21.11.2019
-
-Age of Empires II: Definitive Edition (2019) [Ru/En] (101.101.32708.0.911/dlc) Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отпразднуйте 20-летие одной из самых популярных стратегических игр! Встречайте Age of Empires II: Definitive Edition - с потрясающим разрешением Ultra HD 4K, новым саундтреком после цифрового ремастеринга, а также расширением «Последние ханы» с 3 кампаниями и 4 новыми цивилизациями. Насладитесь новым оформлением всех оригинальных кампаний и дополнений, которые занимают (   Читать дальше...   )Тип издания: RepackРазработчик: Forgotten Empires, Tantalus Media, Wicked WitchЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D4F10C4F65A0C0370E1E7F219976FEBA546E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339776   (264484) от 21.11.2019
-
-VideoHive - Videolancer's Transitions - Original Seamless Transitions Pack (v.6) - 18967340 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это тот самый пакет переходов, который вы ищете! Версия 6 прибыла на наш трекер!
-2000 динамических переходов After Effects для любых видеопроектов! Сделайте свое видео визуально интересным и удивительным быстро, удобно и без усилий! Слайд-шоу, трейлер, промо, музыкальный клип, трансляция, фильм, документальный фильм или презентация - каждый ваш проект будет гораздо (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95FB4E82FBD1E2C32F5AB7C25AF7319DCE775C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

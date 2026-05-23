@@ -1,3 +1,29 @@
+###  Публикация: 773810   (832763) от 04.04.2014
+
+Любовь и секс на Ибице / Verliefd op Ibiza (2013) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Футболист Кевин только что заключил выгодный контракт с мадридским Реалом. Он вряд ли понимает, что делать со свалившимся на него богатством, но его подруга Эльза знает, как Кевин должен тратить свои миллионы… Две 40-летних подруги Джеки и Ирма хотя и проводят отпуск вместе, но имеют разные представления об идеальном отдыхе: Джеки предпочитает тусоваться с молодыми горячими парнями, тогда как Ирме милее спокойный отдых на пляже с книгой… Братья Дилан и Бойд мечтают стать DJ-звездами мирового класса… Пути всех этих героев пересекаются на острове Ибица.Жанр: Мелодрама, комедияПродюсер: Клаас де Йонг, Йохан Нийенхейс, Bert MeyerВ ролях: Виллеке ван Аммельрой, Йим Баккум, Рик Энгелкес, Ким Феенстра, Джаспер Готтлиб, Мариус Готтлиб, Симоне Клейнсма, Ян Коейман, Лоне ван Росендал, Дэвид ЛюсиерПеревод: Профессиональный (многоголосый закадровый)Язык субтитров: НемецкийПродолжительность: 1:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86AFF7BD63CA4C970D7C94BC60C49852841ED815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005661   (832471) от 09.04.2016
 
 Джой / Joy (2015) WEB-DLRip [480p] iPod
@@ -6,7 +32,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -269,7 +295,7 @@ VA - Blueberry Café, Vol. 2 (2016) [AAC|~329 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -298,7 +324,7 @@ VA - Chill out Magnifique, Vol. 2 (2019) [AAC|~339 Kbps] <Lounge, Downtempo, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -327,7 +353,7 @@ VA - Blueberry Café, Vol. 5 (2019) [AAC|~322 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -356,7 +382,7 @@ VA - Chill out Magnifique, Vol. 4 (2020) [AAC|~322 Kbps] <Lounge, Downtempo, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -385,7 +411,7 @@ VA - Chill out Magnifique, Vol. 3 (2020) [AAC|~327 Kbps] <Lounge, Downtempo, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -414,7 +440,7 @@ VA - Blueberry Café, Vol. 6 (2020) [AAC|~315 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -443,7 +469,7 @@ VA - Lounge Moments, Vol. 2 (2021) [AAC|~323 Kbps] <Lounge, Downtempo, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -472,7 +498,7 @@ VA - Blueberry Café, Vol. 7 (2020) [AAC|~301 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -501,7 +527,7 @@ VA - Lounge Moments, Vol. 3 (2021) [AAC|~332 Kbps] <Lounge, Downtempo, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -530,7 +556,7 @@ VA - Blueberry Café, Vol. 3 (2017) [AAC|~330 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -559,7 +585,7 @@ VA - Blueberry Café, Vol. 4 (2019) [AAC|~312 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -588,7 +614,7 @@ VA - Electronic Lounge Collection, Vol. 1 (2021) [AAC|~322 Kbps] <Electronic, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -643,7 +669,7 @@ VA - Buddhatronic - the Compilation, Vol. 4 (2019) [AAC|~328 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -672,7 +698,7 @@ VA - Electronic Lounge Collection, Vol. 3 (2021) [AAC|~312 Kbps] <Electronic, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -686,35 +712,6 @@ VA - Electronic Lounge Collection, Vol. 3 (2021) [AAC|~312 Kbps] <Electronic, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:303DB5F7AF61FBAC0A54C21077AC9D8C11A4E00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498161   (830942) от 13.10.2021
-
-VA - Chilling On Purple Clouds, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup, Lunamila - The Lights (3:37)
-02. Cool Beach - Petals of Sound (2:18)
-03. Tim Angrave - Refined Interjection (6:41)
-04. Ben Mitchell - Blue-Sky Thinking (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704C65420A3D3AC0835078941D85BFE9A0EA2456
 ```
 
 https://mybot314.ru/tekegram_catalog/

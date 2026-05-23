@@ -1,3 +1,185 @@
+###  Публикация: 1537554   (660840) от 22.03.2022
+
+OpenVPN 2.5.6 Final [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+OpenVPN – мощная программа для работы с частными виртуальными сетями. Утилита дает возможность использовать и настраивать виртуальные сети на основе точек подключения Wi-Fi или ADSL-модемов. Программа позволяет создавать зашифрованные каналы для подключения к серверу или от одной точки доступа к другой путем переадресации роутера или модема.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD7C313EEB754B4014869CAEA5212C5DA89C8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137488   (660797) от 01.06.2017
+
+Vanquish (2017) [Multi] (1.0/upd1) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+SEGA представляет революционный боевик от PlatinumGames и легендарного создателя Resident Evil Синдзи Миками на платформе PC. Неограниченная частота кадров, HD разрешения и гибкая настройка графики: подход к игре радикально изменился. Война стала быстрее. Примерьте боевой костюм правительственного агента Сэма Гидеона, превращающий вас в идеальную машину убийства. (   Читать дальше...   )Тип издания: LicenseРазработчик: PlatinumGames, Little Stone SoftwareЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7CD09F421AAF4768F2D428EF274C377D79E3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122796   (660792) от 01.06.2017
+
+HideGuard VPN 2.6.0.34 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+HideGuard VPN - это системная служба, которая позволяет Вам анонимно соединяться с любой публичной сетью. Воспользуйтесь всеми преимуществами анонимного зашифрованного соединения вместе с HideGuard VPN!Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E394B121C1CE4F4D1B57C9C29871BD7FA4269A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901569   (660686) от 28.05.2015
+
+Книжная серия | Бестселлеры O'Reilly [35 книг. Обновляемая] (2011-2015) [PDF, DJVU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В серию входят книги различных Авторов. Это уникальная серия на русском языке "визуальных" книг, созданных по последним методикам эффективного обучения. Книги имеют огромное количество иллюстраций, графиков и таблиц, что позволяет усваивать материал намного эффективнее. Разговорный стиль изложения концентрирует внимание читателя, а упражнения, контрольные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD1EC4DA5A97D7CA844FA43137BFDA49EC3EFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224882   (660655) от 15.05.2018
+
+NASA отправит на Марс вертолет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Как сообщается на сайте NASA, летательный аппарат Mars Helicopter будет отправлен на Красную планету вместе с новым марсоходом в 2020 году. Он должен будет прибыть вместе с другим исследовательским оборудованием на Марс в феврале 2021 года.Предполагается, что Mars Helicopter совершит не менее пяти кратких испытательных полетов. Научных задач с помощью вертолета пока (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225148   (660589) от 15.05.2018
+
+Первому игроку приготовиться / Ready Player One (2018) WEBRip [H.264/720p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в 2045 году, мир погружается в хаос и находится на грани коллапса. Люди ищут спасения в игре OASIS — огромной вселенной виртуальной реальности. Ее создатель, гениальный и эксцентричный Джеймс Холлидэй, оставляет уникальное завещание. Все его колоссальное состояние получит игрок, первым обнаруживший цифровое «пасхальное яйцо», которое миллиардер (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Стивен СпилбергАктеры: Тай Шеридан, Оливия Кук, Бен Мендельсон, Лина Уэйте, ТиДжей Миллер, Саймон Пегг , Марк Райлэнс, Филип Чжао, Уин Морисаки, Ханна Джон-Кэймен, Сьюзэн ЛинчПеревод: Многоголосый закадровый, любительскийОзвучка: MUZOBOZ (редакция Ash61)Субтитры: Корейские (хардсаб), русские (форс), английские (полные)Продолжительность: 02:19:58Реклама: Отсутствует !
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0422B64DD7C1FC916ED18B84032F6C2E99FE78DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085489   (659702) от 02.06.2017
+
+The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Четыре года спустя после того, как зомби разодрали общество на части, в хаосе возникают карманы цивилизации. Но какой ценой? Можно ли доверять людям на этом последнем рубеже? В роли Javier, молодого человека, разыскивающего семью, которой его лишили, вы встречаете девушку, в свою очередь пережившую невообразимую потерю.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206786B759AD0A5D4A5063D4B7D44883B3D39015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135081   (659701) от 02.06.2017
 
 The Surge (2017) [Ru/Multi] (1.0.33503/dlc) SteamRip Let'sPlay
@@ -6,7 +188,7 @@ The Surge (2017) [Ru/Multi] (1.0.33503/dlc) SteamRip Let'sPlay
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +240,7 @@ Kaspersky World 1.3.5.101 [Multi / Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +275,7 @@ Cent Browser 3.4.3.38 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +301,7 @@ Microsoft® Windows® 10 Ent 1803 RS4 x86-x64 RU-en-de-uk by OVGorskiy® 05.2018
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -172,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -199,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -253,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +461,7 @@ S.K.I.L.L. - Special Force 2 (2013) [Ru/Multi] (1.0.50730.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +487,7 @@ True Launch Bar 6.0 [En/Ru] (x32/x64) + Все плагины
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -332,7 +514,7 @@ BOOTICE v2012.05.20 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -361,7 +543,7 @@ Tomb Raider + Lara Croft Anthology (1996-2015) [Ru/Multi] Repack R.G Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -387,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -413,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -439,7 +621,7 @@ Windows 7 SP1 x64 Plus WPI By StartSoft v 21.06.002.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -465,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,193 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF36979322CB28C9EDC7DF948133875E88D20931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903540   (657319) от 31.05.2015
-
-Video Copilot Element 3D 2.0.7.2008 (Motion Design Bundle) [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин для визуализации 3D-объектов в After Effects в реальном времени!
-
-Разработка от компании VideoCopilot, специализирующейся на дополнительных инструментах для создания видео эффектов и обучающих материалах по этой тематике в программе AfterEffects. Element 3D позволяет работать с трехмерными объектами напрямую в AE.
-(   Читать дальше...   )Язык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD93006267270BF820A216AB930DEE27378F86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226143   (656351) от 19.05.2018
-
-Академия верстки | Javascript для верстальщика (2018) PCRec [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь учебный процесс разделён на четыре больших модуля:
-- первые три посвящены обучению: каждый теоретический урок ты будешь тут же закреплять на практике. С каждым уроком ты будешь использовать всё больше знаний и выполнять всё более сложные задачи;
-- четвёртый модуль - большая практика. Здесь ты будешь писать дипломную работу, используя всё то, что узнал о JavaScript (   Читать дальше...   )Производство: Академия версткиЖанр: Программирование, JavaScriptПродолжительность: 13:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE112449CB567365E973E3A05143E2A1E59F52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903787   (656155) от 01.06.2015
-
-Rufus 2.2 (Build 668) Final Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F6AD083677D118933D6A219845A0706CEDC962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 142000   (656148) от 01.06.2015
-
-Золотая коллекция Союзмультфильма диск 1 DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я хочу представить вашему вниманию коллекцию советских мультфильмов снятые Союзмультфильмом в количестве 17 дисков.Продолжительность: 00:10:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964683   (655665) от 27.03.2022
-
-Савва. Сердце воина (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655665.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о мальчике Савве десяти лет, который живёт в маленькой лесной деревне. Когда-то деревню от врагов защищали благородные белые волки. Но однажды волки исчезли и на деревню напала банда свирепых Гиен. Савве удаётся сбежать в лес, где он знакомится с Ангой - последним белым волком.Производство: Россия / Глюкоза Продакшн, Art Pictures StudioЖанр: Приключения, ФэнтезиРежиссер: Максим ФадеевПерсонажи: Константин Хабенский, Фёдор Бондарчук, Армен Джигарханян, Григорий Лепс, Сергей Шнуров, Михаил Галустян, Глюкоза, Сергей Гармаш, Лолита Милявская, Николай БасковПродолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880913C301290B02EEBAFF41EB5348BBC92C38F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140246   (655477) от 06.06.2017
-
-Однажды в Германии / Es war einmal in Deutschland (2017) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франкфурт, 1946 год. Предприимчивый Давид Берманн и шестеро его друзей избежали ужасов нацистского режима и теперь мечтают эмигрировать в Америку. Когда заветная мечта вот-вот станет явью, прошлое Давида привлекает внимание бескомпромиссной Сары Саймон, представителя американских войск в Германии. Она подозревает Берманна в сотрудничестве с нацистским режимом и всеми (   Читать дальше...   )Производство: Германия, Люксембург, БельгияЖанр: Драма, ВоенныйРежиссер: Сэм ГарбарскиАктеры: Мориц Бляйбтрой, Антье Трауэ, Тим Сейфи, Марк Иванир, Анатоль Таубман, Ганс Лёв, Паль Мачаи, Вацлав Якоубек, Джинн Вернер, Йоахим Пауль АссбёкПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B532FB3BC8CF80611C89F84B911040DFA0F9F551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515488   (655187) от 26.06.2012
-
-Mirillis Action! 1.5.0 [MUlti(Rus)]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mirillis Action! - позволяет в режиме реального времени записывать изображения с экрана в видеофайлы различных форматов. Вы можете записывать видео с веб-плеера, игровой процесс, вставлять живые аудио-комментарии для создания высококачественных учебников, записывать музыку, делать скриншоты и многое другое!Название программы: Mirillis Action!Язык интерфейса: MUlti(Rus)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

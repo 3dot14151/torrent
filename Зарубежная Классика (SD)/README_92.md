@@ -1,3 +1,109 @@
+###  Публикация: 1417054   (305906) от 10.11.2020
+
+Джентльмен из Эпсома / Le gentleman d'Epsom / The Gentleman from Epsom (1962) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ричард Брианд-Чармери бывший командор кавалерийского эскадрона, находясь в отставке, промышляет «советами» на скачках. Он знаток всех лошадей на этом ипподроме и ловит наивных игроков, которые с охотой готовы заплатить за прогноз, тем более, если его сделал такой статный и солидный игрок как господин Брианд.
+Чтобы гарантировано получить свой процент, он советует (   Читать дальше...   )Производство: Франция, Италия / C.I.P.R.A., Compagnia Cinematografica Mondiale (CCM)Жанр: Комедия, криминалРежиссер: Жиль ГранжьеАктеры: Жан Габен, Мадлен Робинсон, Жан Лефевр, Луи де Фюнес, Франк Виллар, Жак Марен, Жан Мартинелли, Жоэлль Бернар, Алин Бертран, Леонс КорнПеревод: Дублированный, многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33BDA68335C0D66DA930DDF74A573F67D259AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183846   (305298) от 15.11.2017
+
+Кошка Балу / Cat Ballou (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Школьная учительница приезжает на ранчо к своему отцу. В поезде она знакомится с беглым преступником. Отца, не пожелавшего уйти со своей земли, убивают злодеи. А дочь из учительниц подается в бандиты.Производство: США / Columbia Pictures Corporation, Harold Hecht ProductionsЖанр: Вестерн, КомедияРежиссер: Эллиот СилверштейнАктеры: Джейн Фонда, Ли Марвин, Майкл Каллэн, Дуэйн Хикман, Нэт «Кинг» Коул, Стабби Кэй, Том Нардини, Джон Марли, Реджинальд Денни, Джей С. ФлиппенПеревод: Многоголосый, Двухголосый, АвторскийСубтитры: Русские (На песни)Продолжительность: 01:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023763E337B1BF98C1B951FC40DBDB76B34AA682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583262   (305222) от 05.12.2012
+
+Перевал Кассандры / The Cassandra Crossing (1976) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Полковник ЦРУ Маккензи узнает, что среди пассажиров трансконтинентального экспресса Женева-Стокгольм скрывается террорист, больной опасной формой легочной чумы, вакцина от которой еще не найдена. Маккензи связывается с единственным врачом в поезде доктором Чемберленом.
+Но Чемберлен и его жена Дженнифер находят больного слишком поздно, он успел заразить нескольких пассажиров. Опасаясь возникновения эпидемии, Маккензи решает направить «поезд смерти» к перевалу Кассандры, обрекая всех пассажиров на неминуемую гибель…Жанр: Боевик, Триллер, ДрамаРежиссер: Джордж Пан КосматосПродюсер: Лью Грейд, Giancarlo Pettini, Карло ПонтиАктеры: Софи Лорен, Ричард Харрис, Мартин Шин, О. Дж. Симпсон, Лайонел Стэндер, Энн Тёркел,  Ингрид Тулин, Ли Страсберг, Ава Гарднер, Берт ЛанкастерПеревод: Многоголосый закадровыйПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C72E159C8D8DD2250A9B0E414838343D816A5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959392   (305131) от 29.11.2015
+
+Не будем ссориться / Ne nous fаchons pas (1966) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чтобы помочь начинающим воришкам, гангстер-профессионал Антонио Беретто возвращается из заслуженного отдыха и снова принимается за старое. В итоге юные компаньоны втягивают его в войну за большие деньги с бандой лихих мотоциклистов…Производство: Франция / Gaumont Distribution, Gaumont InternationalЖанр: Комедия, КриминалРежиссер: Жорж ЛотнерАктеры: Лино Вентура, Мирей Дарк, Жан Лефевр, Мишель Константен, Сильвия Сорренте, Тьерри Тибо, Марсель Бернье, Мик Бессон, Франс Румилли, Андре ПуссПеревод: Многоголосый закадровый (Имидж-Арт)Субтитры: ОтсутствуютПродолжительность: 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78EE51627CF369686376389C642C151BE215BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074528   (304464) от 29.11.2016
 
 Пятикарточный покер / 5 Card Stud (1968) DVDRip [H.264]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C0C975FFFED358CE75C078575736A20926305B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261484   (292791) от 16.11.2018
-
-Легенда о Лайле Клэр / The Legend of Lylah Clare (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый голливудский режиссер готовится снимать биографический фильм про свою покойную жену, бывшую суперзвезду Лайлу Клэр. Во время съемок он безумно влюбляется в девушку, которая исполняет главную роль — и почти начинает верить, что прошлое можно вернуть…Производство: США / The Associates & Aldrich Company Inc.Жанр: ДрамаРежиссер: Роберт ОлдричАктеры: Ким Новак, Питер Финч, Эрнест Боргнайн, Милтон Зельцер, Росселла Фальк, Габриэле Тинти, Валентина Кортезе, Джин Кэрролл, Майкл Мерфи, Корэл БраунПеревод: Двухголосый закадровый ("Фортуна-фильм")Субтитры: ОтсутствуютПродолжительность: 02:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A7ECB4A9C69D5011C8F32F8889BBD375676C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568122   (292712) от 09.12.2013
-
-1941 / 1941 (1979) DVDRip [Director's Cut]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедийный фильм о панике в Лос-Анджелесе после известий о нападении японцев на Перл-Харбор и о приближении японской подводной лодки к берегам Калифорнии с заданием уничтожить Голливуд.Производство: США / Universal Pictures, Columbia Pictures, A-TeamЖанр: боевик, комедия, военный, слэпстикРежиссер: Стивен СпилбергАктеры: Дэн Эйкройд, Нед Битти, Джон Белуши, Лоррэйн Гари, Бобби Ди Чикко, Мюррэй Хэмилтон, Кристофер Ли, Тим Мэтисон, Тосиро Мифунэ, Уоррен ОутсПеревод: Одноголосый закадровыйПродолжительность: 02:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D462FDA4335C1A9F50EAE353A9B2A7067BECBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 410958   (292686) от 30.10.2019
-
-Хлеб, любовь и фантазия / Pane, amore e fantasia (1953) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленькой итальянской деревушке — событие: прибыл новый командир карабинеров Антонио Каротенуто, любитель любовных приключений. Он сразу же обращает внимание на молоденькую Мариеллу. Она так хороша, что все местные мужчины буквально не дают ей прохода…Жанр: Мелодрама, КомедияРежиссер: Луиджи КоменчиниАктеры: Витторио Де Сика, Джина Лоллобриджида, Мариза Мерлини, Вирджилио Риенто, Тина Пика, Мария-Пиа Касилио, Роберто Риссо, Меммо Каротенуто, Виттория КриспоПеревод: Двуголосый закадровыйПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F57C20437971D08C41A80C548BA5B10F433D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255070   (292471) от 30.10.2019
-
-Самая красивая женщина в мире / Красива, но опасна / La Donna piu' bella del mondo (1955) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный фильм о счастливой истории любовной связи самой красивой женщины мира начала 20-го века, оперной певицы Лины Кавальери и русского князя Барятинского..Жанр: комедия, мелодрама, драмаРежиссер: Роберт З. ЛеонардВ ролях: Джина Лоллобриджида, Витторио Гассман,Роберт Алда, Анна Вернон, Тамара Лис, Джино Синимберджи....Перевод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C156918121B3D37E18EED59266CEA280E7D06BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

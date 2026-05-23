@@ -1,3 +1,206 @@
+###  Публикация: 1055340   (488259) от 22.09.2016
+
+Nicholas Gunn - Under the Influence of Music:The Complete Series (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Inception (01:18)
+02. Beauty (04:24)
+03. Nature (06:08)
+04. Love (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95281207FBDE2B0C8EAD12EAD12FDE952CE095B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937379   (487953) от 15.09.2015
+
+Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hartnoll - Where Do You Want to Begin? (01:40)
+02. Marcelo Zarvos - Hawaii (01:29)
+03. Marcelo Zarvos - Rivalry Call (01:17)
+04. Paul Hartnoll - Killing Time (01:08)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89640AF4DE6BA94869AF10880847526F95522A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159114   (487892) от 18.08.2017
+
+Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.  Massaggio di coppia
+02.  Momenti di assoluto relax
+03.  Ritrovare armonia e complicita
+04.  Onde oceaniche(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D700241A7CCC4DF705BC9BE0669B46FCCA556AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055355   (487872) от 22.09.2016
+
+Estas Tonne, ONE Heart Family - Mother of Souls (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. A Call to Prayer (02:19)
+02. Emitting Light (13:05)
+03. Mother of Souls (10:49)
+04. Eagle's Sight (02:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3E80D6C2352BF6C7658CFE5E9F60D0D0B5FC17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159138   (487735) от 18.08.2017
+
+VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Lorna - Tu Gatita (feat. Henry Mendez) (Remix) 03:26
+02. Papi Wilo - La Reina de la Discoteca (feat. Duran The Coach & Kevin Roldan) (Remix) 03:42
+03. Alex Roy, Matt Houston - Dime 03:09
+04. Martin Sangar - Me Enamore (feat. Angel & Khriz) 03:22(   Читать дальше...   )Жанр: Reggaeton, Bachata, KizombaПродолжительность: 03:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3843583A124FD0817C978C1F1F3FD78A9D400F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158944   (487725) от 18.08.2017
+
+Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Black Blade (Instrumental) [03:05]
+02. Dark Harbor (Instrumental) [03:16]
+03. Earth Rising (Instrumental) [03:22]
+04. Master of Shadows (Instrumental) [03:04](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7D11D39F0F9C2E3EEA0A8DD3B63D571A307C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937730   (487329) от 15.09.2015
+
+Отава Ё - Лучшие песни 2006-2015 (2015) [MP3|320 кб/с]<Neo-Folk, Celtic-Slavic Folk, Post-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник «Лучшие песни 2006-2015» - промежуточный итог творческой деятельности Отавы Ё, в который вошли не только песни со всех четырёх студийных альбомов, но и два новых, ранее не издававшихся трека. Это «Сумецкая», главный на сегодняшний день хит группы, а также кавер-версия песни «В роще», записанная в рамках готовящегося трибьюта проекту «Иван Купала».01. Про Ивана groove
+02. Сумецкая
+03. Дворник
+04. На речке, на речке(   Читать дальше...   )Жанр: Neo-Folk, Celtic-Slavic Folk, Post-FolkПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404955   (487020) от 28.08.2020
 
 Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Dark Folk>
@@ -6,7 +209,7 @@ Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Billy Vaughn - 3 альбома (1987-2005) [FLAC|Lossless]<Instrumental | Orche
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyb
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Various Artists - Sucker Punch (2011) Original Motion Picture Soundtrack [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Borneo - Heart of Borneo - Spa and Relaxation (Instrumental) (2016) [MP3|320 Kbp
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Frank Duval - Meine Schonsten Erfolge (1991) [FLAC|Lossless|image + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +528,7 @@ Delerium - Mythologie (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +557,7 @@ Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +615,7 @@ Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -443,7 +646,7 @@ Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Elec
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -472,7 +675,7 @@ M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Left
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +704,7 @@ Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,238 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59045AFFE964C75629B06EB508B90685E8D2E698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056006   (483293) от 24.09.2016
-
-Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered [MP3|320 Kbps] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Around (Northern Lights Club Mix) (Remastered 2016) (10:28)
-02. Age Of Loneliness (Enigmatic Club Mix) (Remastered 2016) (6:15)
-03. Push The Limits (ATB Remix) (Remastered 2016) (7:51)
-04. Gravity Of Love (Judgement Day Club Mix) (Remastered 2016) (5:59)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3B744D8EFDE4A04DE73F0250D5DB98AE5B531B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609538   (483286) от 24.09.2016
-
-VA - Сестры (музыка к фильму) (2001) [FLAC|Lossless|image + .cue] <Soundtrack, Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Агата Кристи - Пуля (3:01)
-02. Кино - Кукушка (6:12)
-03. Кино - Спокойная ночь (6:09)
-04. Агата Кристи - Ein Zwei Drei Waltz (4:42)(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D42CA5B4958AE89E25D88E40E2ABBEF7D3C7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544980   (483226) от 11.09.2012
-
-William Jackson - Celtic Experience (Haunting Themes From Scotland & Ireland)   Vol.1-2 (1998-1999) [MP3|320 кб/с]<Folk, Celtic, Instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483226.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:03) 01. Flower of Scotland
-(3:09) 02. Brian Boru's March
-(4:18) 03. My Laggan Love
-(2:56) 04. Kintail
-(4:58) 05. Ossian's Lament
-(4:48) 06. Will you Go, Lassie, Go?
-(3:39) 07. The Young Girl
-(5:01) 08. The Glen of Copsewood
-(2:35) 09. O'Carolan's Farewell to Music
-(4:01) 10. The Sally Gardens(   Читать дальше...   )Жанр: Folk, Celtic, InstrumentalПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD0ECEB8CD27B271ADD3FD040B1FC229FFAA523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545038   (483224) от 11.09.2012
-
-Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rakandao (04:58)
-02. Morani Warrior (07:16)
-03. Mbira Kosamdela (05:45)
-04. Losambo (06:45)
-05. Je Je Vignin (06:06)
-06. Ker Kerane (06:12)
-07. Naomba Ukuwe Mazuri (06:06)
-08. Entomononi (06:02)
-09. African Dreams (12:34)Жанр: New Age, Worldbeat, MeditativeПродолжительность: 1:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE876DF0E7477BE7965717D1461AEFD39971BF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545525   (482909) от 11.09.2012
-
-VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Марш.
-002-Нiченька-циганка.
-003-Ми зустрiлись на веснi.
-004-Мама тихо говорила.
-005-Ой лелеки-лелеченьки.
-006-Де ти.
-007-Дiвчино кохана.
-008-Оксана.
-009-Летiли гуси.
-010-Чому,козаче, сумний ходиш.(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 06:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEA559E37370FBFB01794350D1F94E3F7EA5C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544769   (482906) от 11.09.2012
-
-Capella Gregoriana - Mystic Gregorian Pop Songs & Ballads (2CD) (2005) [MP3|320 кб/с]<New age, Chorus, Gregorian chant>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482906.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-1. Mystic Pray (4:51)
-2. Hallelujah (Dance Version) (7:36)
-3. Sanctus (II) (Pop version) (6:00)
-4. Pater Noster (Dance In Trance) (8:40)
-5. Dance Of Sacrifice (5:57)
-6. The Prophecy Of Light: Creator alme siderum (5:15)
-7. The Evening Prayer: Agnus Dei (5:50)
-8. Sounds From Heaven (6:50)Жанр: New age, Chorus, Gregorian chantПродолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13B0B97FCE45961AF35EB34413B72B4E595B039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544993   (482760) от 11.09.2012
-
-Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [MP3|320 кб/с]<Folk / Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Христос Воскрес!
-02. Разлад
-03. Монолог собаки
-04. Появились молодые...
-05. Перед атакой
-06. Бабулька
-07. Ой, кума
-08. Чырвона ружа
-09. Я лишь поэт
-10. Тем, кто помнит(   Читать дальше...   )Жанр: Folk / RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7E2BB294CD00C9FED63BF08CE4AB451954C898
 ```
 
 https://mybot314.ru/tekegram_catalog/

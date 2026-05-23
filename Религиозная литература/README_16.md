@@ -1,3 +1,107 @@
+###  Публикация: 1092869   (933848) от 15.01.2017
+
+Св. праведный Иоанн Кронштадтский | Живой колос (1998) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник молитвенно-вдохновенных мыслей о. Иоанна составляет последний его дневник, написанный в 1907-1908 гг. Поручая редакцию своего дневника, о. Иоанн назвал свой новый дневник "Живой колос". Трудно описать искреннюю радость Батюшки по поводу своего нового издания и его восторг от данного им же самим названия дневника. Эта радость ревностного (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6864C85D7D0DCF62937A2BEED98B395781417900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364828   (933808) от 05.03.2020
+
+Общество памяти игумении Таисии (изд.) | Доказательства Божественности Иисуса Христа (2007 [1907, репринт]) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Репринтное издание, осуществлённое к 100-летию первой публикации данной работы. Рекомендуется к изучению в духовных учебных заведениях, гимназиях, лицеях, на катехизических курсах, также рассчитано и на более широкий круг читателей.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516827C5602B2FB70D1844843F9427CE14360905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754401   (933597) от 07.02.2014
+
+Д.И. Протопопов | Изъяснение важнейших молитв Православной Церкви, заповедей и Символа Веры. (1915) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Преподавание Закона Божия детям обыкновенно начинается с разъяснения самых простых молитв, с целью научить детей самому делу молитвы, как они могут выражать пред Господом свои нужды и желания в разных обстоятельствах жизни. При дальнейшем преподавании переходят постепенно к молитвам более трудным по объему и содержанию, соблюдая ту постепенность, которая требуется (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35292D6CAECA3A4FF66C9809AE4BCE538203D719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754196   (933280) от 07.02.2014
+
+Михаил Михайлович Дунаев | Вера в горниле Сомнений. Православие и русская литература в XVII-XX вв. (2002) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+М. М. Дунаев — профессор Московской Духовной Академии, доктор богословия, доктор филологических наук. В основу книги положен курс лекций, читаемый автором в Московской Духовной Академии и одобренный ее Ученым Советом. Здесь впервые дано систематизированное изложение истории отечественной словесности XVII–XX веков в православном осмыслении. Автор последовательно прослеживает (   Читать дальше...   )Формат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314DED3F89B98973DC7DB1FFFF9590172A97BFC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093747   (932429) от 16.01.2017
 
 брат Алоис из Тэзе (сост.) | Призваны быть душой мира. Тексты христиан первых веков (2014) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B0D162F63B77E90949589D46C41295745137D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095123   (926185) от 20.01.2017
-
-Корри тен Боом | Убежище (2005) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландка Корри тен Бум (или Боом) (Corrie ten Boom, Корнелия) жила в маленьком доме, где на первом этаже ее дед Виллем тен Бум открыл часовой магазин. Бумы всегда отличались набожностью и активной благотворительностью среди бедняков. Во время войны Бумы укрывали и евреев, и студентов, отказавшихся сотрудничать с нацистами, и членов сопротивления. В среднем в доме (   Читать дальше...   )Жанр: Биография, мемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3915CC0C3D4E63D2547B29C066BEEAD56B38907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095118   (926184) от 20.01.2017
-
-Святитель Лука (Войно-Ясенецкий) | Дух, душа, тело (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которая перед вами, есть труд по апологетике. Ее автор Архиепископ Лука (Войно-Ясенецкий), был замечательным врачом, и мог бы до конца жизни с совершенно чистой совестью нести это служение страждущему человечеству. Но он почувствовал призвание к еще более высокому служению, и в самые страшные для Церкви годы он принимает священство, а вскоре и епископский (   Читать дальше...   )Жанр: Богословие, апологетикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E8C43FCD284A80C52EEEF0B5FADD844CDCC51C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095129   (926179) от 20.01.2017
-
-Е.Л. Александрова и др. | История финской Евангелическо-лютеранской церкви Ингерманландии (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга посвящена истории Евангелическо-лютеранской церкви Ингрии — одной из старейших лютеранских церквей, действующих в Российской Федерации. Первое документальное упоминание об одном из её приходов — в Лемболове на севере Ингерманландии (Ингрии) — относится к 1611 г. Состоящая в настоящее время из 77 приходов (15000 прихожан) Церковь Ингрии охватывает (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2750E1FB8761DF1EE5AC1C74B494C267BF17FDFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095007   (926131) от 20.01.2017
-
-Б. Кандидов | Крестом и нагайкой [Почаевская лавра и черносотенное движение] (1928) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926131.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем очерке вкратце описано участие Почаевской лавры в черносотенном движении. Организованный лаврой Почаево-Лаврский „Союз Русского Народа" был мощной реакционной организацией, создавшей разносторонние формы деятельности и охватившей своим влиянием весь юго-западный край. Даже больше. Через свою печать и курсы черносотенного „актива“ он был связан с (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5F34D659A13A62F08D2926B14158B0E326E0F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

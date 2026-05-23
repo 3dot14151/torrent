@@ -1,3 +1,107 @@
+###  Публикация: 1410490   (435967) от 21.09.2020
+
+Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Legend of the White Whale | Легенда о Белом ките [1997, TV] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Человечество пережило пик освоения космоса, теперь по просторам вселенной летают на высокой скорости ненужные, брошенные корабли "киты", а бравые парни "китобои" гарпунят их ради редких запчастей и грузов. И вот, в команду Ахава, капитана лучшего китобойного судна хочет попасть молодой парнишка (или не парнишка) Лакки Лак. Так начинаются приключения (   Читать дальше...   )Производство: Studio Junio / スタジオジュニオ, Annapuru / あんなぷるЖанр: приключения, фантастикаРежиссер: Дэдзаки ОсамуПеревод: GreymanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F5334C9CA37DA0321A3275AB0A3191D91C9A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235900   (434785) от 23.09.2018
+
+Chio-chan no Tsuugakuro | Chio's School Road | Тио: Дорога в школу [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чио Миямо — обычная стеснительная девочка, которая обожает видеоигры и из-за того, что часто играет до поздней ночи, постоянно опаздывает в школу. Но даже идя по «обычному» пути туда, Чио регулярно попадает в разнообразные ситуации, иногда обычные, а иногда и не очень. Ей приходится иметь дело с бандой байкеров, строительными работами, острым желанием посетить уборную (   Читать дальше...   )Производство: Студия Studio Barcelona / ディオメディアЖанр: комедияРежиссер: Инагаки ТакаюкиПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956E8094370B8EBDE51737C2D4CEA29EBE09D6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063279   (434487) от 16.10.2016
+
+The Idolmaster Movie: Kagayaki no Mukougawa e! | The Idolmaster Movie: Beyond the Brilliant Future! | Идолмастер: По ту сторону света! [2014, MV, 1] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прошло некоторое время после событий игры THE IDOLM@STER 2, кратко пересказанных в ТВ сериале. Идолы из 765ПРО уже добились многого и находятся в зените славы. Их следующий шаг – большой концерт на стадионе, после которого их Продюсер собирается уехать в Америку на стажировку. Так же на их плечи ложатся и проблемы совсем зеленых, ещё не закончивших "школу идолов", (   Читать дальше...   )Жанр: комедия, музыкальныйРежиссер: Нисигори Ацуси / Nishigori Atsushi / 錦織敦史
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082257E8504F8C50B68064C7942E9B8D1CF0A3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033956   (434388) от 16.10.2016
+
+Joukamachi no Dandelion / Castle Town Dandelion / Одуванчик из призамкового города [2015, TV, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о повседневной жизни девятерых наделённых сверхспособностями братьев и сестёр, принадлежащих вдобавок к королевской семье. При этом все они являются участниками эдакого реалити-шоу: две сотни телекамер следят за каждым их шагом и ведут трансляцию на всю страну. Делается это не просто так, а чтобы граждане, понаблюдав за жизнью принцев и принцесс, (   Читать дальше...   )Производство: Студия Production IMS / プロダクションアイムズЖанр: комедияРежиссер: Акитая НориакиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758C1A41E18E370A38B87282AE04596B3BB37150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410685   (433968) от 22.09.2020
 
 Listeners | Слушатели [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
@@ -6,7 +110,7 @@ Listeners | Слушатели [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Recorder to Randsell Mi / Флейта в рюкзаке Ми [2013, TV, 12 + 1 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] We
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Yousei Ou | Король фей [1988, OVA] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Uchuu no Kishi Tekkaman Blade | Star Knight Tekkaman Blade | Space Knight Tekkam
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +504,7 @@ Gosenzo-sama Banbanzai! | Gosenzosama Banbanzai! | Долгих лет жизн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +532,7 @@ Arslan Senki (2015) | The Heroic Legend of Arslan (2015) | Сказание об
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семь Чувств в Re
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +584,7 @@ Darker than Black: Gaiden / Darker than Black: Side story / Темнее Чер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Shaman King | Шаман Кинг [2001, TV, 64 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,113 +676,6 @@ Shaman King | Шаман Кинг [2001, TV, 64 эп.] WEBRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7434B429B65C26F64588D1D743D66FC8FCD19173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380081   (429209) от 24.09.2020
-
-TV Yarou Nanana: Kaibutsu Kraken o Oe! | Wacky TV Nanana: Hunt the Legendary Kraken! | Телечудики Нанана: В погоне за Кракеном! [ТВ-3] [2020, TV, 24 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории "Телечудиков Нананы".
-
-«Нанана» - это нищая телестудия, которую выкупил крупный стриминговый сервис «Наназон прайм видео». Его руководство не стало терять времени даром и решило устроить массовые увольнения! В первую очередь они нацелились на Природников, которые когда-то смогли заснять легендарного зверя Киину, но больше не предоставили (   Читать дальше...   )Производство: студия studio crocodile / スタジオクロコダイルЖанр: комедияРежиссер: Фумихара СатосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Русские; #3: Multi-subПродолжительность: 24 эп. по 3 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AE4098AD3212EDEE0AA6A5BA04001298646054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374501   (429066) от 24.09.2020
-
-Fruits Basket 2nd Season | Корзинка фруктов [ТВ-2, сезон II ] [2020, TV, 25] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тору Хонда — простая школьница с непростой жизнью. Она осиротела, лишилась крыши над головой, вынуждена жить в палатке и самостоятельно зарабатывать себе на жизнь. Но Тору не унывает, встречая невзгоды с улыбкой. И вот однажды судьба преподносит ей сюрприз — девочка знакомится с семьёй Сома, над которой висит ужасное проклятье…
-Продолжение истории.Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: романтика, повседневностьРежиссер: Ибата ЁсихидэПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE81E4C3413AF6592C31E463645161E73BD477D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946046   (428821) от 12.10.2015
-
-Little Witch Academia: Mahou Shikake no Parade | Little Witch Academia: The Enchanted Parade | Академия юных ведьм: Волшебный парад [2015, MV] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428821.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПродолжениеЖанр: приключения, фэнтези, комедияРежиссер: Ёсинари Ё / Yoshinari You / 吉成曜Субтитры: русские внешниеПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B97A2CC6E301EF9F09DD71587F1F69CCEFEF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235923   (428232) от 26.09.2018
-
-Phantom in the Twilight | Фантом в сумерках [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в современном Лондоне, а сюжет рассказывает историю мира, где так называемые Тени рождаются из страхов и тревог людей. Молодая иностранка приезжает в столицу Великобритании учиться, но уже во время поступления в университет оказывается в центре загадочных событий. Беспомощная девушка в незнакомом городе забредает в «Запретное кафе» — таинственное (   Читать дальше...   )Производство: Студия Liden Films / ライデンフィルムЖанр: приключенияРежиссер: Мори КунихироПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853BAB43F1359090CA46955EB19CA6BD666C377E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,186 @@
+###  Публикация: 1327379   (1028392) от 01.03.2021
+
+Дылды (2019) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-21 из 21)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Тренер Михаил Ковалёв теряет работу из-за скандального характера и неуважительного отношения к женщинам. Чтобы вернуться в Суперлигу, ему нужно выиграть чемпионат по волейболу с провинциальной студенческой женской командой. Помешать ему в этом постараются проректор-перфекционист Ирина и затаившая обиду экс-девушка Наталья.Производство: Россия / Art Pictures Vision по заказу телеканала СТСЖанр: комедия, спортРежиссер: Сергей СенцовАктеры: Павел Деревянко, Анна Невская, Дарья Урсуляк, Татьяна Орлова, Ангелина Поплавская, Дарья Пицик, Изабель Эйдлен, Юлия Макарова, Сергей Рубеко, Анна Антонова и др.Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E66B3F1EE34F21EAA2DA8FF2346A761AAE26F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451227   (1028151) от 03.03.2021
+
+В Сеть утекла база данных 21 миллиона пользователей VPN-сервисов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Данные 21 миллиона пользователей бесплатных популярных VPN-сервисов для Android утекли в Сеть, сообщил "Коммерсант".По информации СМИ, речь идет о приложениях SuperVPN, GeckoVPN и ChatVPN. На теневых форумах на продажу выставили три архива, содержащие  не только адреса электронной почты, пароли и логины пользователей этих программ, но и информацию об устройствах (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451666   (1028109) от 03.03.2021
+
+Последний богатырь: Корень зла (2020) WEBRip [H.264/720p] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Во второй части зрители узнают об истоках древнего зла, с которым героям пришлось столкнуться в первом фильме, увидят новые уголки сказочного Белогорья, и станут свидетелями захватывающих схваток с участием былинных богатырей.Производство: Россия, Yellow, Black & WhiteЖанр: Приключения, Семейный, Комедия, ФэнтезиРежиссер: Дмитрий ДьяченкоАктеры: Виктор Хориняк, Мила Сивацкая, Екатерина Вилкова, Елена Яковлева, Константин Лавроненко, Сергей Бурунов, Елена Валюшкина, Кирилл Зайцев, Тимофей Трибунцев, Гарик ХарламовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28F00FBCFDC19E7C6BEB3E9A41D33C6FEC232E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451747   (1028105) от 03.03.2021
+
+Звездный рубеж / Cosmic Sin (2021) WEBRip [H.264/1080p-LQ] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Семь солдат-изгоев наносят превентивный удар по недавно обнаруженной инопланетной цивилизации в надежде положить конец межзвездной войне до ее начала.Производство: США / 308 Ent, BondIt Media Capital, Buffalo 8 ProductionsЖанр: Фантастика, боевикРежиссер: Эдвард ДрэйкАктеры: Фрэнк Грилло, Брюс Уиллис, Брэндон Томас Ли, Кори Лардж, К.Дж. Перри, Перри Ривз, Локлин Манро, Костас Мэндилор, Ева Де Доминичи, Аделаида КейнПеревод: Авторский одноголосый (Дольский)Субтитры: ОтсутствуютПродолжительность: 01:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB33C21745524B9ACEE305F7E89944E6479EC73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451646   (1027994) от 04.03.2021
+
+Почему мёртвая петля так называется
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мёртвая петля — это фигура высшего пилотажа в виде замкнутой петли, в России также известная как петля Нестерова. Но почему её вдруг ассоциируют со смертью?Мёртвая петля представляет собой фигуру высшего пилотажа — замкнутую петлю в вертикальной плоскости. Петля считается «правильной», если все точки её траектории лежат в одной вертикальной плоскости. Впервые в мире (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451620   (1027972) от 04.03.2021
+
+Последний богатырь: Корень зла (2020) WEBRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Во второй части зрители узнают об истоках древнего зла, с которым героям пришлось столкнуться в первом фильме, увидят новые уголки сказочного Белогорья, и станут свидетелями захватывающих схваток с участием былинных богатырей.Производство: Россия, Yellow, Black & WhiteЖанр: Приключения, Семейный, Комедия, ФэнтезиРежиссер: Дмитрий ДьяченкоАктеры: Виктор Хориняк, Мила Сивацкая, Екатерина Вилкова, Елена Яковлева, Константин Лавроненко, Сергей Бурунов, Елена Валюшкина, Кирилл Зайцев, Тимофей Трибунцев, Гарик ХарламовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F219C051D55CA0D48A0D70EEA1DD78907D707B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319528   (1027970) от 04.03.2021
+
+Дмитрий Шелег | Цикл "Живой лёд" [7 книг] (2019 - 2021) [FB2] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот мир осквернен демонами. Отряды лиги охотников и широкие стены приграничных городов защищают людей от злобных, жаждущих крови тварей из инфернальных пустошей. Боярские роды делят сферы влияния, а силовики ведут активную борьбу с тайными ковенами.
+Сможет ли обычный человек, волей судьбы оказавшийся в подобных обстоятельствах, сохранить себя? Или ради выживания (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C061EB28B12B108C60A6B6EDCE6C28FA6CB931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 146232   (1027785) от 05.03.2021
 
 Shpongle - Discography 31 Releases (1998-2021) Twisted Records [FLAC|Lossless|tracks+.cue, tracks]<Psychill, Tribal, Downtempo, Ambient, Psy-Trance>
@@ -6,7 +189,7 @@ Shpongle - Discography 31 Releases (1998-2021) Twisted Records [FLAC|Lossless|tr
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +244,7 @@ Symantec Endpoint Protection 14.3 RU1 MP1 (14.3.3580.1100) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +270,7 @@ Civilization VI + Mod Unlocked v1.2.0 b2140962 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +296,7 @@ Breathedge (2021) [Ru/En] (1.0.0.0) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +322,7 @@ Proton близок к полноценной поддержке 7000 Windows-и
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +374,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +479,7 @@ Adobe Photoshop 2021 22.3.0.49 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +505,7 @@ Kaspersky Internet Security 21.3.10.391 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +532,7 @@ Red Giant Magic Bullet Suite 14.0.4 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +587,7 @@ MDK (1997) [En] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +639,7 @@ Movavi Video Suite 21.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -493,189 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373296   (1026167) от 15.03.2021
-
-Universal TV Remote Pro v1.0.23 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный пульт дистанционного управления №1 - приложение Smart и IR Remotes в более чем 100 странах. Для Smart TV / Устройств, единственная необходимая настройка - это подключить телефон, а также Smart TV / Device к той же сети Wifi. Для ИК-телевизоров ваш телефон должен иметь встроенную инфракрасную функцию, чтобы приложение работало в качестве пульта дистанционного (   Читать дальше...   )Тип издания: Пиратка (Mod: Pro, удалена реклама, лишние пункты об оценке и прочий мусор)Релиз состоялся: 23.01.2021Разработчик: CodeMatics Media SolutionsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B589100890AB306064F644F1C5D1AEF5EDD452C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338433   (1026030) от 16.03.2021
-
-Александр Башибузук | Собрание произведений [28 книг] (2013 - 2021) [FB2] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Башибузук — современный писатель-фантаст. Информацию о себе автор предпочитает не афишировать, даже наверняка неизвестно является ли «Башибузук» псевдонимом. По информации, заполненной самим автором в профиле на сайте «Миры Андрея Круза», он из Новой Каховки (Херсонская область, Украина).
-Был участником сайта «В вихре времени», затем, с ноября 2014 года, (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C2648EB62732B43CD43F13078BC64DEFD9C641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418326   (1025683) от 18.03.2021
-
-The Outer Worlds (2019) [Ru/Multi] (1.5.1.712/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025683.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Outer Worlds – это отмеченная наградами научно-фантастическая ролевая игра для одного игрока с видом от первого лица, выпущенная Obsidian Entertainment и Private Division. В The Outer Worlds вы пробуждаетесь после гибернации на корабле поселенцев, пропавшем по пути к Альциону — самой дальней земной колонии на краю галактики.Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: Экшн, Ролевая игра, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A659B7656F66E3A7E45B6632F49C8FA1E0C42BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455517   (1025516) от 19.03.2021
-
-The KMPlayer 4.2.2.50 repack by cuta (build 1) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025516.jpg" />
-</div>
-
-
-###  Подробнее
-
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC15644A88AE8874A0E354D6B62FC6482E8CDC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455531   (1025503) от 19.03.2021
-
-Kaspersky Total Security 2021 21.3.10.391 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Total Security — это максимальная защита для компьютера. Новая версия Kaspersky Total Security обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, эффективность которых подтверждена многочисленными тестированиями, проводимыми независимыми лабораториями AV-Comparatives, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22B46D7DDA53D60E145254B8EB49E2292198763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455869   (1025329) от 20.03.2021
-
-Adobe Photoshop 2021 v22.3+ Neural Filters [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2021Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1384D688C3AD415B817B4DB8F01224A4D26D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455861   (1025325) от 20.03.2021
-
-Adobe Lightroom Classic v10.2 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Lightroom Classic - незаменимая программа при работе с цифровыми фотографии. Благодаря Lightroom вы сможете быстро импортировать, обрабатывать, управлять и демонстрировать изображения. Улучшенные инструменты исправления, возможность гибкой настройки параметров печати и мощные функции систематизации значительно ускоряют процесс работы.Тип издания: macOS SoftwareРелиз состоялся: март 2021Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0143DF98AFECE2ACA08D63FFE1E66A428342A034
 ```
 
 https://mybot314.ru/tekegram_catalog/

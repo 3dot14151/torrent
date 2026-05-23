@@ -1,3 +1,107 @@
+###  Публикация: 456912   (78226) от 24.02.2012
+
+Земля людей (2010) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Талантливый, но невостребованный писатель Алексей Комаров возвращается в Москву из Воркуты, где работал старателем на северных приисках. Возвращается в новый, жестокий и уничтожающий мир столичной Москвы, где власть и деньги правят умами, и давно не в цене нравственность и настоящая, талантливая литература.Жанр: ДрамаРежиссер: Сергей ГоворухинПродюсер: Сергей ГоворухинАктеры: Aлександр Скотников, Анна Тараторкина, Сергей Шнырев, Татьяна Колганова, Николай Денисов, Евгений Ермаков, Константин Балакирев, Станислав Стрелков, Татьяна Клюкина, Василий ШемякинскийПеревод: Оригинал (Русский)Продолжительность: 01:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED5632FE5C1848001D3ACFAAA1B15008004002A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454253   (77976) от 23.02.2012
+
+Камень (2011) [1080i] Blu-Ray
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда у известного бизнесмена похищают 7-летнего сына, он еще не представляет, какое испытание его ждет! Оказывается, таинственному похитителю не нужен никакой выкуп и у него единственное требование к отцу. В течение следующих суток тот должен решить, кто умрет из них двоих: его ребенок или он сам...Жанр: ТриллерРежиссер: Вячеслав КаминскийАктеры: Сергей Светлаков, Николай Козак, Олеся Судзиловская, Александр Колесников, Валда Бичкуте, Елена Коренева, Сергей Насибов, Вячеслав Хархота, Семен Оконочников, Роман ВолодькинПродолжительность: 01:24:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455756   (77608) от 21.02.2012
+
+Камень (2011) BDRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда у известного бизнесмена похищают 7-летнего сына, он еще не представляет, какое испытание его ждет! Оказывается, таинственному похитителю не нужен никакой выкуп и у него единственное требование к отцу. В течение следующих суток тот должен решить, кто умрет из них двоих: его ребенок или он сам…Производство: РоссияЖанр: ТриллерРежиссер: Вячеслав КаминскийАктеры: Сергей Светлаков, Николай Козак, Олеся Судзиловская, Александр Колесников, Валда Бичкуте, Елена Коренева, Сергей Насибов, Вячеслав Хархота, Семен Оконочников, Роман ВолодькинПеревод: ОригинальныйПродолжительность: 01:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C64135777E643A5D7130614AE0106492EC75DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454558   (77245) от 19.02.2012
+
+БС (2012) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Артем Семенов — опер уголовного розыска, который «женат» на своей работе и как результат имеет проблемы непосредственно в семье. У Артема есть близкие друзья Назаров и Петрович, с которыми он съел не один пуд соли, на которых может положиться во всем. В городе, после долгого отсутствия, появляется опасный преступник по кличке Медведь. Он устраивает несколько ограблений инкассаторов, безжалостно убивая всех, кто встает у него на пути. Артему и его друзьям удается арестовать бандита, Артем предупреждают, что Медведя покрывает, кто-то из сотрудников милиции, но он не придает значения этой информации. А зря… Медведь совершает дерзкий побег, во время которого убивает Петровича. В организации побега обвиняют Артема. Прямых улик против него нет, но у него дома обнаруживают крупную сумму денег и пистолет. Артема выгоняют со службы, он становится БС — бывшим сотрудником. Он не может устроится на работу. Бывшие коллеги не подают ему руки, преступники откровенно над ним насмехаются. Артему на собственной шкуре приходится (   Читать дальше...   )Жанр: Драма, криминалРежиссер: Олег ЛаринАктеры: Кирилл Полухин, Максим Коновалов, Михаил Полосухин, Вера Баханкова, Максим Меркулов, Юрий Архангельский, Диана Дезмари, Никита Морозов, Вячеслав Аркунов, Полина Булычева и др.Перевод: ОригинальныйПродолжительность: 01:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38EEFE910C543FCF3724C3A67AC69268DF3F6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454365   (77210) от 19.02.2012
 
 Камень (2011) [720p] BDRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF378D65A386315F3495D9B6697A0D380012EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442865   (72517) от 27.01.2012
-
-Портрет в сумерках (2011) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказавшись не в том месте, и не в тот час, Марина, попадает в водоворот драматических событий. Пережитые унижение и боль изменяют весь ход ее стабильной благополучной жизни. Марина ищет возможности отомстить. Изо дня в день она возвращается на окраину города, где произошла судьбоносная встреча. Но когда Марине удаётся выследить зачинщика преступления, и когда она (   Читать дальше...   )Производство: Россия, "КиноБарабан"Жанр: Драма, МелодрамаРежиссер: Ангелина НиконоваАктеры: Ольга Дыховичная, Сергей Борисов, Сергей Голюдов, Роман Меринов, Галина Корень, Всеволод ВороновПеревод: Оригинальный (язык русский)Продолжительность: 01:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072AAF6993696EA122A2294DC9DCDBE00AB4C054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442431   (72507) от 27.01.2012
-
-Бой с тенью (2005) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артем Колчин был одним из многих, но он хотел славы. И он выбрал свой путь: он стал боксером. Теперь Артем претендент на чемпионский титул, боец, известный по всему миру, Большая Белая Надежда. Но главный бой в его жизни пошел не так, как он ожидал.
-Теперь ему предстоит решать свои проблемы вне ринга. У него всего три дня, чтобы расквитаться с теми, кто его предал, (   Читать дальше...   )Жанр: Боевик, ДрамаРежиссер: Алексей СидоровПродолжительность: 02:06:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442709   (72502) от 27.01.2012
-
-Реальная сказка (2011) BDRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жили-были сестрица Олесенька и братец Саша… Нет, так не пойдет: кажется, прошла пора старых-добрых сказок. Даже сказочные персонажи, понимая это, переселились в наш мир: Василиса Премудрая стала учительницей, Леший — бомжом, Иван-дурак — ВДВшником, Кащей — олигархом. Злые дела творить он, конечно, не бросил. И главным его злодеянием стало то, что он лишил нас веры (   Читать дальше...   )Производство: РоссияЖанр: Фэнтези, Драма, КомедияАктеры: Сергей Безруков, Леонид Ярмольник, Максим Шибаев, Анастасия Добрынина, Ирина Безрукова, Георгий Штиль, Людмила Полякова, Анна Герман, Сергей Погосян, Антон ПампушныйПеревод: ОригиналСубтитры: нетПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC30318DE548BF467E1FD6988FFAD59AEBA8C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440405   (72029) от 23.01.2012
-
-Пять невест (2011) [H.264] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: КомедияРежиссер: Карен ОганесянФормат: MKVПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EE71978214C9330CAA193BB2AE9CEF96040C19
 ```
 
 https://mybot314.ru/tekegram_catalog/

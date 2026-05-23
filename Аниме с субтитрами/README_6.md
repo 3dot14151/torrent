@@ -1,3 +1,107 @@
+###  Публикация: 1610645   (1042110) от 08.02.2023
+
+Eikoku Koi Monogatari Emma | Emma: A Victorian Romance | Эмма: Викторианская романтика [2005, TV, 24 эп.] BDRip 1078p HEVC raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Уильям Джонс – отпрыск богатого, хоть и незнатного семейства – решает навестить свою старую гувернантку. И, несмотря на то, что строгая старая дама и поныне внушает «мастеру» Уильяму священный трепет, его визит оказывается не вовсе неприятным: воображение молодого мистера Джонса неожиданно пленяет горничная по имени Эмма! Это тихая, скромная и отменно благовоспитанная (   Читать дальше...   )Производство: Студия Studio Pierrot / studioぴえろЖанр: романтика, повседневностьРежиссер: Кобаяси ЦунэоПеревод: Nodanoshi (1 сезон); dronlit (2 сезон)Язык озвучки: Японский и английскийСубтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93613ACC58FAC26A17F48F5A44FEE256E9BCDDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369471   (1042000) от 05.01.2021
+
+Jeremy no Ki | Jeremy's Trees | Дерево Джереми [1983, Movie] VHSRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рождественская сказка о птице, которую вырастило дерево. Затем дерево было срублено, чтобы люди в городе могли использовать его для празднования Рождества. Птица отчаянно пытается найти свою приемную мать-дерево с помощью Джереми, сироты без гроша, который услышал ее историю, и пошел искать дерево в городе... © World_HoupПроизводство: Toei Central FilmЖанр: драма, фэнтезиРежиссер: Маэда ЦунэоПеревод: Аццкий Критег & World_HoupЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 21 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCB1ECE594166CB78651A0C306100BA49073A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437552   (1041989) от 05.01.2021
+
+Gokujou Seitokai | Best Student Council | Лучший студсовет [2005, TV, 26] DVDRip 576p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ранду Рино потеряла мать год назад и с тех пор живет одна. Теперь ее сбережения заканчиваются, и ей приходится полагаться на своего друга по переписке, мистера Поппитта. Ее приятель по переписке предлагает устроить Рино в новую школу и новую квартиру, но когда она приезжает, все кажется немного странным. Что за средняя школа имеет в школьном совете штурмовые и секретные (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: комедия, повседневностьРежиссер: Ивасаки ЁсиакиПеревод: x4121tЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B86534305DACB5DEF908CE4B9C8024BD68BF95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435776   (1041983) от 05.01.2021
+
+Santa Claus Tsukamaeta! | Я поймал Санта Клауса! [1989, OVA, 1 эп.] VHSRip 360p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В преддверии Рождества компания ребятишек разговаривает о Санта Клаусе, и самый мелкий из них (детский сад, наверно), решает доказать своим друзьям его существование. После празднования перед сном малыш просит маму почитать книжку про Санту и выведывает у нее, что он любит или чего не любит. У парня целый план по поимке Санты: он и кофе попил, чтобы не заснуть, и (   Читать дальше...   )Производство: студия Takahashi Studio / タカハシスタジオЖанр: сказка, комедияРежиссер: Ито ЮйтиПеревод: World_Houp & Аццкий КритегЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35986DFE024F06F299A7CE4722DF0B662FC0F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437973   (1041659) от 06.01.2021
 
 Yakusoku no Neverland | The Promised Neverland | Обещанный Неверленд [ТВ-1] [2019, TV, 12] BDRip 720p raw
@@ -6,7 +110,7 @@ Yakusoku no Neverland | The Promised Neverland | Обещанный Неверл
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +139,7 @@ Tendouke no Oyobidenai Yatsura! | Tendo Family`s Annoying Acquaintances | Док
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +166,7 @@ Karakai Jouzu no Takagi-san: Water Slider | Озорная Такаги OVA [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +194,7 @@ Dr. Stone | Доктор Стоун [ТВ-1][2019, TV, 24 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +220,7 @@ Takamiya Nasuno Desu! Teekyuu Spin-off | Я - Насуно Такамия! [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +246,7 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +273,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, Speci
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +299,7 @@ Toaru Kagaku no Railgun T | A Certain Scientific Railgun T | Некий науч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +327,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный к
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -249,7 +353,7 @@ Sore dake ga Neck | That is the Bottleneck | Только до шеи [2020, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +379,7 @@ Uzaki-chan wa Asobitai! | Uzaki-chan Wants to Hang Out! | Узаки хочет 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +405,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +431,7 @@ Kusoge-tte Iuna! | Don`t Call Us a Junk Game! | Это вам не трешов�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +457,7 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +483,7 @@ Project A-ko 3: Cinderella Rhapsody | Проект А-ко III: Рапсодия
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +509,7 @@ Fairy Gone 2 | Пропавшие феи 2 [2019, TV, 12 из 12] BDRip 1080p 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +535,7 @@ Fairy Gone | Пропавшие феи [2019, TV, 12 из 12] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +561,7 @@ Saiyuuki Reload Blast | Саюки: Новый взрыв [2017, TV, 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +587,7 @@ Galaxy Angel 4 | Galaxy Angel X | Галактический ангел Икс [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +613,7 @@ Galaxy Angel Rune | Галактический ангел: Руна [2006, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Burn the Witch | Сжечь ведьму [2020, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Kunoichi Tsubaki no Mune no Uchi | In the Heart of Kunoichi Tsubaki | Тайна
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -572,114 +676,6 @@ Kunoichi Tsubaki no Mune no Uchi | In the Heart of Kunoichi Tsubaki | Тайна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C9B14C10369789977A3C8CE8D59AB1076B07803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616049   (1036975) от 28.02.2023
-
-Cuckoo no Iinazuke | A Couple of Cuckoos | Обручённые кукушками [2022, TV, 24 эп. + 22 SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наги и Эрика — обычные школьники с необычными семейными проблемами. Наги внезапно узнал, что всю жизнь жил с неродными родителями из-за путаницы в роддоме. А родители Эрики хотят устроить ей договорной брак с незнакомым человеком. Чтобы выпутаться из сложной ситуации, Эрика просит Наги притвориться её парнем. Но они оба пока даже не догадываются, какую шутку вот-вот (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Акаги ХироакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E3DAD170ED285B8EB9C439511B4106954096FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600173   (1036652) от 01.03.2023
-
-Futoku no Guild / Immoral Guild / Развращённая гильдия [2022, TV, 12] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кикуру Мадан — молодой охотник на монстров, который решает покинуть гильдию из-за страха, что радости юности проходят мимо. Особенно когда один из его близких друзей объявляет о женитьбе. Однако он меняет своё решение после предложения сотрудницы гильдии отправиться на квест вместе с новобранцем, молодой зверо-девушкой и мастером боевых искусств по имени Хитаму Кян.Жанр: приключения, комедия, этти.Режиссер: Асаока ТакуяЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93222D8C542FAC1B60285B4A72DB15B51C7BC563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442857   (1036308) от 26.01.2021
-
-Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универсальная современная девyшка-кошка [1998, TV, 12 из 12 + 2 из 2] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение OAV-сериала.
-Семья Нацумэ воссоединяется, но их проблемы на этом не заканчиваются...
-В отличие от OAV, этот сериал гораздо больше времени посвящает школьной жизни Рюносукэ и взаимоотношениям его друзей и Нуку-Нуку.Производство: Ashi Productions / 葦プロダクションЖанр: приключения, комедияРежиссер: Фудзимото ЁситакаПеревод: Кампай-клуб (эпизоды 1-10), ZiK + hedgehog (эпизоды 11-12 и спешиалы)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 2 мин. + 2 спешиала по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7CB431363414FC5D60654A3BD3CCF20A43A18F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442851   (1036298) от 26.01.2021
-
-Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универсальная современная девyшка-кошка [1992, OVA, 6 из 6] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная Япония.
-В семье Нацумэ поссорились родители - муж, гениальный изобретатель Нацумэ Кюсаку, и жена, Нацумэ Акико, наследница мега-концерна "Мисима". Чтобы не дать жене отнять у него сына, маленького Рюносукэ, Кюсаку похищает мальчика и свою последнюю разработку для концерна "Мисима" - модель боевого андроида.
-Для защиты Рюносукэ от происков (   Читать дальше...   )Производство: Studio Fantasia / スタジオ・ファンタジアЖанр: приключения, комедия, фантастика, мехаРежиссер: Исивата ЁсиоПеревод: ThraryЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C226B9C4CB181185E6D75D433B40931241DC9FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

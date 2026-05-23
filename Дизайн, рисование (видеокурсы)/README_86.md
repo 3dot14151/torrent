@@ -1,3 +1,86 @@
+###  Публикация: 1677159   (152285) от 16.11.2023
+
+SOA Academy | Photorealism with Corona Renderer Online (2021) WEB-DL [AD] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Создание фотореалистичных 3D изображений в настоящее время является частым запросом Клиентов. Объединив опыт SOA, полученный за более чем 10 лет производства, и использование Corona Renderer, мы разработали курс, который позволит вам быстро и легко добиться невероятных результатов. Пожалуйста, проверьте страницу календаря, чтобы увидеть ближайшие даты проведения (   Читать дальше...   )Жанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 06:40:50Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662524D1C4DCB3156124EE43FD1BF2DD8EAE3FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677139   (152260) от 16.11.2023
+
+Елена Пильникова | Мини-курс Стикеры (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мы разберём как рисовать эмоции, как под их воздействием меняется наше лицо, в чем отличие мужского и женского портрета и это ещё не все!
+
+Программа обучения:
+1. Обзор программы(   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 08:04:54Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D1EC5AB9F7D93B8C32B1631820A51FC5622775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518766   (152247) от 21.12.2021
+
+Learn Squared, Milan Nikolic | Creature Design (2018) WEB-DLRip [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Введение
+  Это курс будет посвящен дизайну фантастических существ для фильмов и видеоигр под руководством профессиональнного художника Милана Николича. Мы начнем с изучения анатомии двуногих и многоногих фанатастических существ. Разберемся с принципами дизайна в соответствии с которыми строится их форма
+Изучим принципы скульптинга в ZBrush и 3D Coat, подберем выразительную (   Читать дальше...   )Производство: Learn SquaredЖанр: 2D, 3D, CG, Creature DesignЯзык озвучки: Русский, АнглийскийПродолжительность: 05:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A173E6D80DBC2D978EB2D2BE5AAA80BE8BCD5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677147   (152068) от 16.11.2023
 
 Kaplan School, Гунефа Матюшенкова | Техники скетчинга (2023) WEB-DL [AD] [RU]
@@ -6,7 +89,7 @@ Kaplan School, Гунефа Матюшенкова | Техники скетчи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +117,7 @@ ProArt School, Майк Вазовский | Game Art иллюстрация (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -63,7 +146,7 @@ Udemy, Joe "tripplejaz" Zavaletta | How to Design Comic Book Characters Course (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -91,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -117,7 +200,7 @@ HighLights | Веб-дизайн. Продвинутый уровень (2016) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -143,7 +226,7 @@ Liveclasses, Алексей Шадрин | Секреты современног
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +253,7 @@ Udemy, Alexander Hanneman | VFX Compositing Elements Photorealistically in Nuke 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -197,7 +280,7 @@ SOA Academy | Postproduction & Matte Painting Online (2021) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -252,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -281,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -310,7 +393,7 @@ cg-school.org, Андрей Заморский | Сборник видеоуро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -336,7 +419,7 @@ CGMA, Nate Wragg | Character Design for Animation (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -362,7 +445,7 @@ Bang Bang Education | Дизайн-библиотека (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -390,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -418,7 +501,7 @@ Learn Squared, Maciej Kuciara | Intro to Environment Painting (2016) WEB-DLRip [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -444,7 +527,7 @@ Udemy, Majid Kamran Ahmadabad | Моделирование мультиплик�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +553,7 @@ Learn Squared, Steve Wang | Concept Art Hacks (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -498,7 +581,7 @@ CGMA, Frank Tzeng | Hair Creation & Styling for Games (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -524,7 +607,7 @@ CGMA, Emilia Schatz | Level Design for Games (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -550,7 +633,7 @@ FXPHD, Victor Perez | NUK312 Photorealism in Compositing with NUKE Fundamentals 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -576,7 +659,7 @@ FXPHD, Victor Perez | NUK313 Photorealism in Compositing with NUKE Case Studies 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +687,7 @@ Udemy, Krystian Wojtarowicz | Leonardo AI: Ultimate Guide For AI Art in Leonardo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -618,88 +701,6 @@ Udemy, Krystian Wojtarowicz | Leonardo AI: Ultimate Guide For AI Art in Leonardo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01DA862C3940F8118546E40A792E14B7722341E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677856   (148558) от 19.11.2023
-
-МИФ, Ольга Королёва | Презентация как искусство (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помните крылатую фразу «Кто владеет информацией…»? Часто под «владением» подразумевают лишь сбор и анализ информации.
-И упускают другую половину процесса, не менее важную. Это — передача информации другим людям.
-Истинные «владельцы» информации умеют ее преподносить. Так, что на нее обращают внимание. Так, что ее запоминают. Так, что на ее основе принимают решения. (   Читать дальше...   )Производство: МИФЖанр: Дизайн, презентацияЯзык озвучки: РусскийПродолжительность: 05:23:42Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C90B5842847E22B25B8EAE03B371FF641242C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519128   (147659) от 24.12.2021
-
-FlippedNormals, Tim Bergholz | SWORD Tutorial – COMPLETE EDITION (2019) PCRec [En, Ru]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание меча ААА качества в ZBrush, 3ds Max, Substance Painter и рендеры в Marmoset Toolbag 3. Вы когда нибудь задумывались о карьере в индустрии видеоигр в качестве 3D-художника и вам нравятся мечи? Тогда этот курс сделан специально для вас. Мы будем делать блокаут, скульпт, развертку, запекать и текстурировать меч по всем стандартам индустрии. Вы увидите каждый (   Читать дальше...   )Производство: FlippedNormalsЖанр: 3D-моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 14:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D54E55E6488BDAF1EF46B8618D099C2AE997650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678175   (146624) от 20.11.2023
-
-Fine Courses, Юлия Киселева | Воркшоп 2.0 Нейросети для контент маркеров (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нейросети меняют правила создания контента, позволяя вам генерировать новые идеи, оптимизировать рабочий процесс и воплощать свое видение в жизнь, как никогда раньше.
-Выведите качество вашего контента на новый уровень
-Воркшоп длится 3 дня.Производство: Fine CoursesЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 03:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513E5FE5A335F1A30E1077346149599C68798A21
 ```
 
 https://mybot314.ru/tekegram_catalog/

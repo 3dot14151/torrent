@@ -1,3 +1,55 @@
+###  Публикация: 211476   (186638) от 19.11.2022
+
+Хеллбой: дилогия / Hellboy: dilogy (2004 / 2008) BDRip [H.264/1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+После того как древнее перемирие между человечеством и тайным миром было нарушено, на Земле вот-вот разверзнется ад. Безжалостный лидер, вхожий в оба мира, бросает вызов своей крови и пробуждает на свет неодолимую армию чудовищ. Настало время самому Хэллбою сразиться с беспощадным диктатором и его воинами. Вместе со своей пополняющей ряды командой «Бюро Паранормальных (   Читать дальше...   )Производство: США, Германия, Венгрия / Universal Pictures, Dark Horse EntertainmentЖанр: боевик, фантастика, фэнтези, приключенияРежиссер: Гильермо дель ТороАктеры: Рон Перлман, Сэльма Блэр, Даг Джонс, Джон Александр, Джеймс Додд, Сет МакФарлейн, Люк Госс, Анна Уолтон, Джеффри Тэмбор, Джон ХёртПеревод: Дублированный, Многоголосый профессиональный (Студия "Кравец")Субтитры: Английские, Русские (отдельным файлом)Продолжительность: 01:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69762C127C1DDD0A3EA839688F6D32B178193ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664555   (184145) от 27.09.2023
+
+Звездные войны / Star Wars (1977–2019) BDRemux [H.264/1080p] [Коллекция]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+«Звездные войны» — фантастическая сага, задуманная американским режиссёром Джорджем Лукасом в начале 1970-х годов и позднее расширенная. Фильм оказал огромное влияние на международную поп-культуру и неоднократно признавался лучшим научно-фантастическим фильмом.Производство: США, Lucasfilm, Bad Robot, Digital Makeup Group, Walt Disney PicturesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джордж Лукас, Гарет Эдвардс, Ирвин Кершнер, Ричард Маркуэнд, Джей Джей Абрамс, Райан Джонсон, Рон ХовардАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Питер Кашинг, Алек Гиннесс, Энтони Дэниелс, Кенни Бейкер, Питер Мейхью, Дэвид Праус, Джеймс Эрл Джонс, Юэн МакГрегор, Хейден Кристенсен, Иен МакДермид, Сэмюэл Л. Джексон, Джимми Смитс, Фрэнк Оз, Энтони Дэниелс, Кристофер Ли, Киша Касл-Хьюз, Сайлас Карсон, Джей ЛагааяПеревод: дублированныйСубтитры: русские, английскиеПродолжительность: 02:16:10 / 02:22:27 / 02:20:05 / 02:13:57 / 02:04:45 / 02:07:22 / 02:14:47 / 02:18:07 / 02:31:52 / 02:14:46 / 02:21:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05831232503AE854E0E67D0F31A0EB6A5CA7DE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593286   (178924) от 29.11.2022
 
 Пираты карибского моря / Pirates of the Caribbean (2003-2017) BDRip [H.264/720p-LQ] [Пенталогия]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +580,7 @@ Kingsman / Kingsman (2014-2021) BDRip [H.264/1080p-LQ] [Трилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF10B0423186E5ECC525025BDFBDE6E68C76D014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676537   (156671) от 13.11.2023
-
-Блэйд / Blade (1998-2004) BDRip [H.264/1080p-LQ] [Трилогия] [handmade]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его настоящее имя — Эрик Брукс, но его прозвали Блэйдом за мастерское владение особым мечом. Сами вампиры называют его «Дневным бродягой» за способность воспринимать солнечный свет, губительный для остальных вампиров. Он окончательно не превращается в вампира только благодаря синтетической сыворотке, периодические инъекции которой поддерживают его жизненные силы (   Читать дальше...   )Производство: США, Германия / New Line Cinema, Amen Ra Films, Marvel EnterprisesЖанр: ужасы, фэнтези, боевикПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:00:16 / 01:56:53 / 01:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F959FA83C98199811AE365BA4872C5D9A01A1E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487886   (156193) от 13.11.2023
-
-Блэйд / Blade (1998-2004) BDRip [H.264/1080p-LQ] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его настоящее имя — Эрик Брукс, но его прозвали Блэйдом за мастерское владение особым мечом. Сами вампиры называют его «Дневным бродягой» за способность воспринимать солнечный свет, губительный для остальных вампиров. Он окончательно не превращается в вампира только благодаря синтетической сыворотке, периодические инъекции которой поддерживают его жизненные силы (   Читать дальше...   )Производство: США, Германия / New Line Cinema, Amen Ra Films, Marvel EnterprisesЖанр: ужасы, фэнтези, боевикПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 02:00:16, 01:56:53, 01:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CBDF0E53A1FF935ED9A8652B78A65D3FBE9A88
 ```
 
 https://mybot314.ru/tekegram_catalog/

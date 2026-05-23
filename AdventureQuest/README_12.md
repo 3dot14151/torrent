@@ -1,3 +1,107 @@
+###  Публикация: 1171798   (949016) от 23.02.2020
+
+The Coma: Recut (2017) [Ru/Multi] (2.1.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В перевыпуске классического корейского хоррора вы снова попадете в школу Sehwa High. Вам предстоит вжиться в роль молодого корейца по имени Ёнхо, ученика этой школы. Его преследует убийца. Сможете ли вы продержаться?Тип издания: RepackРазработчик: Devespresso GamesЖанр: Adventure (Horror), 2DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9EC6C614C7E8C95FD11591A0857021B23202DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982464   (947802) от 03.02.2016
+
+Gods Will Be Watching (2014) [Ru/Multi] (1.0.0.11) SteamRip Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Gods Will Be Watching — это минималистический триллер в жанре point and click, поднимающий темы отчаяния, долга и самопожертвования. Игрокам предстоит столкнуться с интригующими пазлами и моральными дилеммами, которые будут непосредственным образом влиять на жизнь членов вашей команды, а также людей, которых вы поклялись защищать. В центре внимания Gods Will Be Watching (   Читать дальше...   )Тип издания: SteamRipРазработчик: DeconstructeamЖанр: Adventure, Logic (Point&Click)Язык озвучки: -/-Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8D930592C73CACED3743820FDD54728934FBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982350   (947794) от 03.02.2016
+
+D4: Dark Dreams Don't Die (2015) [Ru/En] (02.02.2016/dlc) Repack R.G. Механики
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Детектив, путешествующий по времени, должен расследовать убийство своей жены и таким образом предотвратить его. Используйте сверхъестественную способность детектива касаниями артефактов-«памяток» погружаться в мир живого прошлого, чтобы восстановить истинную картину смерти его жены.Тип издания: RepackРазработчик: Access GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584FC9E9EF48AB86928972B6AB961B664C8BFCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091038   (944000) от 08.01.2017
+
+Sherlock Holmes: Crimes and Punishments (2014) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Crimes and Punishments — это детективный квест, посвященный расследованиям знаменитого сыщика Шерлока Холмса. Отличается высокой проработкой. Каждое дело имеет свою уникальную и лихо закрученную историю — игрокам же в свою очередь придется собирать улики по крупицам, затем соединить их, принять окончательное решение и решить судьбу подозреваемых.Тип издания: LicenseРазработчик: FrogwaresЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091CFA861880414329CA10B2CEF871FF9291EB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091076   (943992) от 08.01.2017
 
 Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) License GOG [Masterpiece Edition]
@@ -6,7 +110,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Talos Principle / Принцип Талоса (2014-2015) [Ru/Multi] (1.0.28
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ BEAUTIFUL DESOLATION (2020) [Ru/Multi] (1.0.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Fire (2015) [Ru/Multi] (1.0.6780S) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Lucius - Dilogy / Lucius - Дилогия (2012-2015) [Ru/En] (1.02.3866/1.0.160
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru] (1.01) RePack -Ultra-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Your Toy (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Detention 返校 (2017) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Weakless (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) SteamRip  Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ LUNA The Shadow Dust (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Syberia 2 / Сибирь 2 (2004) [Ru/Multi] (1.0.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Ceville / Ceville. Похождения тирана (2009) [En/Ge] (1.0.2.0) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Zheros (2016) [En/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Pesadelo Regressao (2016) [En] (1.4.2) Repack bosenok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Life Is Strange™ (2015) [Ru/Multi] (1.0.0.397647/dlc) SteamRip Let'sРlay [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Else Heart.Break() / elseHeartBreak (2015) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Seed of Life (2021) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Game of Thrones: A Telltale Games Series (2014-2015) [Ru/En] (1.0.0.1) Repack R.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Game of Thrones: A Telltale Games Series (2014-2015) [Ru/En] (1.0.0.1) Repack R.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBAA2AA206A079DFACA6780DAEA61D94B87E2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489414   (925159) от 16.08.2021
-
-Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год многие дети пропадают без вести и их больше не найти... Это история маленькой девочки, которую похитили и привезли в место, которое можно представить только в кошмаре. Как Вы можете выжить и избежать ада на земле, если Вам всего 10 лет? Что происходит, когда происходящее переходит за границы понимания хрупкого детского разума? Жуткая история, полная неизвестности. (   Читать дальше...   )Тип издания: LicenseРазработчик: Beer Night StudioЖанр: Horror, Adventure, StealthЯзык субтитров: Русский, Английский, Корейский, Китайский (упрощённый)Язык интерфейса: Русский, Английский, Корейский, Китайский (упрощённый)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3D7E61A891D10D62931F1BE0CF84C077FBF129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489580   (925080) от 16.08.2021
-
-Fragile (2020) [Ru/Multi] (Build 5896114) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год многие дети пропадают без вести, и их больше никогда не найти... Это история маленькой девочки, которую похитили и привезли в место, которое можно было пережить только в кошмаре. Как вы можете выжить и избежать ада на земле, если вам всего 10 лет? Что происходит, когда для хрупкого детского ума вещей СЛИШКОМ МНОГО? Fragile - это жуткая история, полная (   Читать дальше...   )Тип издания: RepackРазработчик: Beer Night StudioЖанр: Adventure, 2DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A828323E6752871810A57F8DBE8648BFDD614B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095575   (923993) от 21.01.2017
-
-Yesterday Origins (2016) [Ru/Multi] (1.0/u7) SteamRip Let'sPlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя новейшее приключение от Pendulo Studios, создателей серии Runaway! 1481. Юного Джона унижают и публично тащат по улице. Он обвинен в колдовстве испанской инквизицией и брошен в тюрьму, где его подвергнут пыткам. Позже с ним произойдет алхимическая трансмутация, благодаря которой он обретет бессмертие.Тип издания: SteamRipРазработчик: Pendulo StudiosЖанр: Violent, AdventureЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84815534D313BD34CB2DB8D5CDF5859F14985F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284860   (921603) от 18.08.2021
-
-Devotion (2019) [Ru/Multi] (1.0.5) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Devotion — это атмосферная игра ужасов от первого лица, изображающая жизнь семьи в тени религиозных убеждений. Исследуйте тайваньский жилой комплекс 1980-х годов, постепенно теряющийся в адском кошмаре. Окунитесь в обеты, которые сделал каждый член семьи, и станьте свидетелями их преданности.Тип издания: RepackРазработчик: RedCandleGamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Китайский, Японский и другиеЯзык интерфейса: Русский, Английский, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399E76B344EE2D12115AB03C851471122F7F3120
 ```
 
 https://mybot314.ru/tekegram_catalog/

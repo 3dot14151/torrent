@@ -1,3 +1,29 @@
+###  Публикация: 1784085   (25190) от 09.03.2025
+
+The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Инопланетные захватчики оставили Бриксбург в руинах и забрали друзей Эммета! Он собрал команду героев, чтобы выйти за пределы своего мира и спасти друзей от странных пришельцев. Открывайте новые миры и проверьте свои навыки сборки.Тип издания: LicenseРазработчик: TT GamesЖанр: Приключение, ЭкшныЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D34F2F82B3B62687AA57AD35865FF06A3DAF49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693643   (25175) от 10.03.2025
 
 Granblue Fantasy Versus: Rising (2023) [Multi] (2.01/dlc) Scene Tenoke
@@ -6,7 +32,7 @@ Granblue Fantasy Versus: Rising (2023) [Multi] (2.01/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.5) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ THE KING OF FIGHTERS XIII GLOBAL MATCH (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Bonesaw (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Rising Sun: Iron Aces (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +318,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +396,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.3.21) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +448,7 @@ The LEGO NINJAGO Movie Video Game (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Wonder Ball (2024) [Ru/Multi] (1.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Lumencraft (2022) [Ru/Multi] (9257) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1092002) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Zombieville USA 3D (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -630,7 +656,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -641,32 +667,6 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1E81AE8C02598BDACA9A7472809362DFD38BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342353   (22963) от 31.03.2025
-
-Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повелитель огня возвращается! Теперь вы можете любоваться его чешуей и огненным дыханием в потрясающем разрешении HD. В коллекции игр Spyro Reignited Trilogy этот обаятельный дракончик будет зажигать как никогда раньше. Дайте волю его пламени в трех оригинальных играх Spyro the Dragon, Spyro 2: Ripto's Rage! и Spyro: Year of the Dragon. Путешествуйте по бескрайним (   Читать дальше...   )Тип издания: RepackРазработчик: Toys for Bob, Iron GalaxyЖанр: Аркада, ПлатформерЯзык озвучки: Русский (первая часть), АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D584924EEC1FEE362E26898D159DDB6CB9362174
 ```
 
 https://mybot314.ru/tekegram_catalog/

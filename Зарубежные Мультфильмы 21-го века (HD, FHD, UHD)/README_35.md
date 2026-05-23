@@ -1,3 +1,81 @@
+###  Публикация: 1010733   (801991) от 25.04.2016
+
+Белки в деле / Get Squirrely (2015) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В лесу случилась беда! Пронырливые дельцы из города решили, что желуди послужат отличной основой для нового Чудо-крема. Они приехали в лес на железных машинах, собрали все желуди и оставили всех лесных жителей на зиму без еды! Но отважная белка Фрэнки, знает, что нужно делать! Он собирает суперкоманду своих друзей — дикобраза Коди, летучую мышь Лиама, Змею Рэйтч, (   Читать дальше...   )Производство: США, Awesometown Entertainment, Vanguard FilmsЖанр: Мультфильм, полнометражный, комедия, семейныйРежиссер: Росс ВенокурАктеры: Джейсон Джонс, Уилл Форте, Джон Легуизамо, Саманта Би, Виктория Джастис, Джон Клиз, Дэвид Берни, Джон Клилэнд, Джим Каммингс, Джереми ХаррисПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:26:04Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6059612896F4CDA075CC0ECDCCB5A25B34FDCD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120641   (801727) от 31.03.2017
+
+Аврил и поддельный мир / Avril et le monde truque / April and the Extraordinary World (2015) BDRemux [H.264/1080p] [FR, EN/RU Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1941 год. Во Франции правит Наполеон VI и паровые технологии, потому что уже на протяжении многих лет во всём мире пропадают выдающиеся учёные, и электричество так и не было открыто. Когда Аврил была маленькой, её родители пытались получить эликсир бессмертия, но тоже исчезли таинственным образом. От семьи у девушки остался только говорящий кот, и с тех пор она пытается (   Читать дальше...   )Производство: Франция, Бельгия, КанадаЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Кристиан Димар, Франк ЭкинджиПерсонажи: Марион Котийяр, Филипп Катерин, Жан Рошфор, Оливье Гурме, Марк-Андре Гронден, Були Ланнерс, Анн Косенс, Маша Гренон, Бенуа Бриер, Анджела Галуппо ...Перевод: ОтсутствуетЯзык озвучки: Французский, АнглийскийСубтитры: Русские, английские, французкиеПродолжительность: 01:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E210BC16EB5D1D1A5D44A378EF468BEE71C06B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506155   (800894) от 30.10.2021
+
+Прямиком из Нигде: Скуби-Ду встречает Куража, трусливого пса / Straight Outta Nowhere: Scooby-Doo! Meets Courage the Cowardly Dog (2021) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Скуби-Ду и команда оказываются в городе Нигде (родной город Куража), в центре Канзаса, где происходит "огромное количество загадочных и жутковатых вещей". Ребята объединяются с Куражом - трусливым псом, чтобы раскрыть тайну гигантских монстров-цикад.Производство: США / Cartoon Network Studios, Hanna-Barbera Productions, Warner Bros. AnimationЖанр: Мультфильм, ужасы, фэнтези, комедия, детектив, приключения, семейныйРежиссер: Сесилия АрановичАктеры: Джефф Бергман, Марти Грабштейн, Грэй Гриффин, Мэттью Лиллард, Кейт Микуччи, Фрэнк Уэлкер, Теа УайтПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E9C33BB11178CA243C312A5B3B361BC359DB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506169   (800837) от 30.10.2021
 
 Щенячий патруль в кино / PAW Patrol: The Movie (2021) BDRip [H.264/1080p-LQ] [hand made 16:9]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F15CA2057D38CAF513EAF26ACC2F0EC21AAC631A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508233   (797941) от 07.11.2021
-
-Плохой кот Шерафеттин / Kotu Kedi Serafettin (2016) BDRip [H.264/1080p-LQ] [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятно плохой кот Шерафеттин и его грязная банда, всегда попадают в различные неприятности. Наш герой самое настоящее дитя улицы, Шеро и его друзья последовали за тем, к чему стремится любой другой в их захудалом районе Стамбула: разврат с девушками, еда и алкогольная выпивка. Этот обычный на первый взгляд день, оказался очень особенным, так как их пути пересекаются (   Читать дальше...   )Производство: Турция / Anima Istanbul, Kare Kare Film YapimЖанр: мультфильм, фэнтези, боевик, комедияРежиссер: Mehmet Kurtulus, Ayse ÜnalПеревод: Любительский, двухголосый закадровый (datynet & Galina Vasyukova)Субтитры: отсутствуютПродолжительность: 01:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FE522B87EDC998476B17B0FAF949A84A343833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508272   (797893) от 07.11.2021
-
-Полярный экспресс / The Polar Express (2004) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неожиданно в канун Рождества мальчик, не веривший в существование Санта-Клауса, получает возможность отправиться к нему в гости на Северный полюс. Во время путешествия на поезде «Полярный экспресс» юный герой находит новых друзей и получает полезный урок.Производство: США / Castle Rock Entertainment, Shangri-La Entertainment, PlaytoneЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключенияРежиссер: Роберт ЗемекисПеревод: Дублированный (Мосфильм-Мастер)Субтитры: Русские, английскиеПродолжительность: 01:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB22BAB306160F0852106FEF8930AFDFF5FCED18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508482   (797401) от 08.11.2021
-
-Приключения мистера Пибоди и Шермана / Mr. Peabody & Sherman (2014) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мистер Пибоди - бизнесмен, изобретатель, ученый, нобелевский лауреат, гурман, двукратный олимпийский чемпион и гений… который кроме всего прочего является собакой. При помощи своего самого неординарного изобретения - машины ВЕЙБЕК - мистер Пибоди и его приемный сын Шерман мгновенно перемещаются в прошлое, где становятся свидетелями самых важных исторических событий (   Читать дальше...   )Производство: США / Bullwinkle Studios, Classic Media Productions, DreamWorks AnimationЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Роб МинкоффПеревод: ДублированныйСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88B6414BDA22E24738557ED10F9A8BA8166D58F
 ```
 
 https://mybot314.ru/tekegram_catalog/

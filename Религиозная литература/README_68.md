@@ -1,3 +1,110 @@
+###  Публикация: 1159651   (481857) от 21.08.2017
+
+Диармайд Маккалох | Христианство. Три тысячи лет (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот грандиозный труд одного из ведущих британских историков церкви, профессора Оксфордского университета Диармайда Маккалоха — вся история христианства, рассказанная заново для людей, живущих сегодня.
+Древние истоки христианской цивилизации, гонения, расколы, религиозные войны, интриги, трагедии, судьбы, факты. Яркие истории гениев и безумцев, вольнодумцев и святых, (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23192D326B2FEA9752FBBE97FB6AC2D9EAA52A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938368   (481824) от 18.09.2015
+
+Г. А. Гурев | История одного заблуждения [Астрология перед судом науки] (1970) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга Гурева получила положительную оценку в журнале «Наука и жизнь», материалы из нее широко использовались в антирелигиозных брошюрах, лекциях и докладах. Она и сейчас служит оружием в борьбе против суеверий. «История одного заблуждения» представляет собой переработанную автором книгу «Астрология и религия», изданную четверть века назад и ставшую давно библиографической (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9036E6AA0F7B4B635E2E094BC40AD4315AAA6F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405711   (481628) от 31.08.2020
+
+Архимандрит Наум (Байбородин) | Мессианская сотница (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Мессианская сотница» – труд архимандрита Наума (Байбородина; 1927–2017), старца, известного в России и за её пределами. Это итог углубленного изучения батюшкой святоотеческих толкований на Ветхий Завет, оформленный в виде кратких изречений. Все ветхозаветные писания свидетельствуют о Христе, как сказал Сам Господь (см. Ин. 5, 39), и о той тайне нашего спасения, (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8176A0C04CEA4BA72EF4F54D789AB9EABE822C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405718   (481482) от 31.08.2020
+
+Архимандрит Андрей (Конанос) | Посели Бога в своём доме. Слова о семейной жизни и воспитании детей (2021) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Посели Бога в своём доме» — сборник вдохновляющих рассказов и бесед Андрея Конаноса о семейной жизни, супружеских взаимоотношениях и воспитании детей. Как и всегда, во главу угла знаменитый греческий проповедник ставит любовь к Богу и ближнему.
+
+Радостный пастырь в свойственной ему манере, с добрым юмором и множеством жизненных примеров, ищет ответы на сложные вопросы, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4FCBFF2ED9764BED7F41B02D79DF3985B49C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159835   (480079) от 22.08.2017
 
 Н.Н. Селезнёв | Ассирийская Церковь Востока. Исторический очерк (2001) [PDF]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,110 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B97860930F04EC9590ABADF90542CC57122D974A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245653   (467894) от 08.09.2018
-
-Сибирская Благозвонница (изд.) | Святая великомученица Ирина (2009) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святая великомученица Ирина жила в те времена, когда подвергнуться гонениям и принять мученическую кончину можно было за одно только имя «христианин». Греческое слово μάρτυς, которым называли всех претерпевших мученическую смерть за веру Христову, означает «свидетель». Мученик свидетельствует собственной кровью о вере во Христа, распятого (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B71027E3E3E830E5B25C247A60C80FDA618860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245775   (467887) от 08.09.2018
-
-Благовест (изд.) | Преподобный Серафим Саровский (2011) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Преподобный Серафим Саровский» включает в себя жизнеописание святого, молитвы и акафист преподобному Серафиму, а также Серафимово правило. В нее вошли письменные наставления преподобного и его устные поучения; воспоминания современников, свидетельствовавших о благодатном влиянии сего угодника Божия и его благодатной помощи. Также сборник включает в себя подробную (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53979F0BABF8063D742E9BBF8DCCC3829FE18C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245843   (467788) от 08.09.2018
-
-Игумен N | «Не бойся, малое стадо!» Об искушениях современного мира (2011) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему мы иногда ведём себя так, что не узнаём себя? Как управлять своим поведением? Как защититься от псевдоблагодатных переживаний? Как выстроить правильную иерархию ценностей? Как распознать тактику демонов, влияющих на нашу душу? Как сохранить мирный дух среди неприятностей и искушений? Этим и многим другим проблемам посвящена предлагаемая читателю брошюра. Она (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C5AF29EF2A4E8899F449D1102AD3353D75E823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245950   (467667) от 08.09.2018
-
-Жан-Кристиан Птифис | Иисус. Жизнеописание Христа. От исторической реальности к священной тайне (2018) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный французский историк и биограф, лауреат многих литературных премий Жан-Кристиан Птифис предлагает интереснейшую книгу о земной жизни Иисуса и его смерти на кресте. Основываясь на новейших научных данных и авторитетных исторических материалах, автор доходчиво и увлекательно рассказывает о содержании проповедей Иисуса, о его странствиях и чудесах. Излагает (   Читать дальше...   )Жанр: История; РелигияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC94C2C2F1CBBC121A8AE4984EAF09566DA18C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

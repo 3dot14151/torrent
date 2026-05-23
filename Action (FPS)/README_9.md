@@ -1,3 +1,107 @@
+###  Публикация: 1118760   (810572) от 26.03.2017
+
+SnipZ (2017) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мир страдает, ведь его населили страшные мутанты, зомби, и всякая прочая непонятная нежить. В игре SnipZ вам предстоит сражаться с ордами монстров, и для этого у вас есть отличная проверенная снайперская винтовка. Человеческой расе грозит вымирание, но есть один герой, который способен победить монстров. Инопланетные пришельцы-зомби уже высадились на нашей планете. (   Читать дальше...   )Тип издания: LicenseРазработчик: Nicolas BernardЖанр: Action (Survival horror), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF947EF87DBC8C40C517778875340D4306176FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083269   (810562) от 26.03.2017
+
+The Butterfly Sign (2016) [Ru/Multi] (1.1.5) Repack Other s [Chapter I: Necessary Evil]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Butterfly Sign - детектив от первого лица, в котором нам предстоит сыграть за единственного выжившего в крупном теракте. Главный герой единственный свидетель произошедшего, и от его воспоминаний зависит его судьба. Поэтому он решается на отчаянную меру. Он принимает экспериментальный препарат “Раммекс”, который погружает его в чертоги собственного разума и восстанавливает (   Читать дальше...   )Тип издания: RepackРазработчик: Quantum Phoenix, Dennis Esie, Mikhail Romanov, Bogdan Rozumny, Artem LunyovЖанр: Adventure, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D5A98E44D624625B849E169CC22C44DD93C230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009493   (809208) от 21.04.2016
+
+Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) License SKIDROW
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Rambo The Video Game: Baker Team – шутер от первого лица, созданный на основе классических фильмов, где главную роль играет знаменитый солдат Джон Рэмбо. Вместе с ним вам предстоит пройти 16 миссий, истребить множество врагов, используя 15 типов различного оружия. Основная часть геймплея выполнена в виде рельсового шутера, где передвижение героя происходит автоматически, (   Читать дальше...   )Тип издания: LicenseРазработчик: TeyonЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0593A3D266F5274EED2C6427A54DDED185F84AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119227   (808861) от 27.03.2017
+
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.10.0/dlc) License SKIDROW [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Shadow Warrior 2, продолжение неординарного шутера от студии Flying Wild Hog, рассказывает о новых злоключениях бывшего корпоративного сёгуна Ло Вана. Превратившись в наемника-одиночку, великий воин борется за жизнь в насквозь прогнившем мире: теперь он должен сокрушить легионы демонов, заполонивших планету, в чем ему поможет огромный арсенал пистолетов, мечей, магических (   Читать дальше...   )Тип издания: LicenseРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50407754E337E4BC02E3C549C24AFB37847BC080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118990   (808645) от 27.03.2017
 
 The Butterfly Sign (2017) [Ru/Multi] (1.2.0) Repack Other s [Chapter II: Human Error]
@@ -6,7 +110,7 @@ The Butterfly Sign (2017) [Ru/Multi] (1.2.0) Repack Other s [Chapter II: Human E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Tomato Way (2016) [Ru/Multi] (110118) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ CTU: Counter Terrorism Unit (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Narcosis (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Outbreak: The New Nightmare (2018) [En] (1.0) Repack MAXSEM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Get Even (2017) [Ru/Multi] (1.0/12.01.18) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) Repack R.G. Мех�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ DOOM (2016) [Ru/En] (6.66/upd8) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Neversong (2020) [Ru/Multi] (1.0) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05.125430.1/dlc) Repack Other s [Coll
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +424,7 @@ The Persistence (2020) [Ru/Multi] (1.0HF) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +450,7 @@ George (2021) [En] (1.0rls) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +476,7 @@ The Persistence (2020) [Ru/Multi] (1.0/HotFix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.1.11018/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Kona (2017) [Multi] (1.0/upd1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Ziggurat (2014) [Ru/Multi] (2018-05-08) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Singularity (2010) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Ziggurat 2 (2021) [Ru/Multi] (2019.4.31.12409535) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Syndrome (2016) [Ru/Multi] (1.06f) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Distorted World (2021) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +669,6 @@ Distorted World – компьютерный инди шутер от перво
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36FCE9BB37763AF83CAF482D4F6AC12E3485CAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507839   (798043) от 06.11.2021
-
-Deep Rock Galactic (2020) [Ru/Multi] (1.35.63118/dlc) License CODEX [Season 01: Rival Incursion]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Rock Galactic - научно-фантастический шутер с видом от первого лица для совместной игры, в котором вас ждут крутые космические гномы, полностью разрушаемое окружение, процедурно генерируемые системы пещер и бесконечные волны инопланетных чудовищ.Тип издания: LicenseРазработчик: Ghost Ship GamesЖанр: Action (FPS)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479D1E14B6C5630E162C53C1284F3D9312232482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144388   (797847) от 17.01.2018
-
-Get Even (2017) [Ru/En] (1.0/u1) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Get Even - это шутер от первого лица, от создателей Painkiller, действие игры разворачивается в воспоминаниях главного героя, пытающегося узнать больше о своем прошлом. Дыши... Вспоминай: девушка, стул, бомба. Не бойся… Иди на голос в глубины памяти. Расслабься… Ищи воспоминания в мрачных уголках своего разума. Ты найдешь ее? Времени мало… Это – часть твоего лечения.Тип издания: RepackРазработчик: The Farm 51Жанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5426AB9030A1A7FF6E35AEB682301B22D5721C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508081   (797827) от 07.11.2021
-
-Death Slayer V (2021) [En] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произошла утечка вируса из секретной лаборатории Eibmoz Corporation. Все заражены... включая вас. У вас есть минуты, прежде чем вы умрете от быстродействующего вируса и превратитесь в Зомби. Возможно, есть способ остаться в живых... но это будет нелегко! Вы найдете шприц с противоядием, который будет сдерживать вирус только в течение нескольких минут, и его нужно (   Читать дальше...   )Тип издания: LicenseРазработчик: MDK softwareЖанр: Action (FPS), SurvivalЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81238C854CD82B652AA39938739E21697290AF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132920   (797062) от 25.05.2020
-
-STRAFE (2017) [Ru/Multi] (23.05.2020/dlc) License GOG [Gold Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797062.jpg" />
-</div>
-
-
-###  Подробнее
-
-STRAFE® - самый динамичный, кровопролитный и убойный боевик в стиле 90-х и с видом от первого лица. Устройте врагам мясорубку и залейте кровью все вокруг! Однако имейте в виду: на исследование леденящих кровь уровней вам отведена всего одна жизнь. После смерти все будет уже совсем иначе.Тип издания: LicenseРазработчик: Pixel TitansЖанр: Шутер, От первого лица, ФантастикаЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E26C56CEAF1672F8A63A70662E5AA8E33E4CF30
 ```
 
 https://mybot314.ru/tekegram_catalog/

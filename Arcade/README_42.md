@@ -1,3 +1,29 @@
+###  Публикация: 1654315   (120556) от 28.01.2024
+
+Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Аркада Bomb Rush Cyberfunk отправляет игрока в путешествие в альтернативное будущее, в разделенный на сферы влияния город, принадлежащий граффити-бандам. Необходимо исполнить роль героя, задача которого состоит в том, чтобы бросить вызов отдельным фракциям и по частям захватить весь мегаполис.Тип издания: LicenseРазработчик: Team ReptileЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602809   (117657) от 10.10.2025
 
 Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
@@ -6,7 +32,7 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.0.1/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Killer Instinct (2017) [Ru/Multi] (3.11.3111.1.294202/dlc) Repack dixen18 [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Heretic's Fork (2023) [Ru/Multi] (1.0.71/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Besiege (2020) [Ru/Multi] (1.26-20573) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.1.20240131) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Pizza Possum (2023) [Ru/Multi] (1.4.16) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Asterix and Obelix: Slap them All! (2021) [Ru/Multi] (1.0.44) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Human Fall Flat (2016) [Ru/Multi] (20240605) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Fireburst (Lossless RePack) {1.0} [Multi5/-] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Ravenswatch (2023) [Ru/Multi] (1.3/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Shortline [En] (RePack) 1992 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -605,7 +631,7 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,7 +657,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,32 +670,6 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478405   (86605) от 05.04.2012
-
-Warp [Ru] (RePack) 2012 | Fenixx
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86605.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Warp игрокам предстоит выступить в роли Нуля – смертоносного, но милого оранжевого малютки-пришельца, оказавшегося в непростой ситуации. Захваченный в плен группой жестоких ученых, которые собираются ставить на нем опыты, Нуль должен сбежать из исследовательской лаборатории, полагаясь только на свои уникальные способности. Игрокам предстоит определиться с планом побега: это может быть кровавая месть каждому попавшемуся на пути человеку или хорошо спланированное скрытное прохождение игровых эпизодов. Бесчисленное количество комбинаций способностей главного героя и возможность совершенствовать их позволяют игроку находить максимально эффективные пути для решения головоломок и продвижения по уровням игры Warp, оттачивая свое мастерство и устанавливая новые рекорды.Тип издания: RePackРазработчик: TrapdoorЖанр: Arcade / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41D6426F165EB4DBB2915E5B027C25DB210CD9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

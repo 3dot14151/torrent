@@ -1,3 +1,82 @@
+###  Публикация: 1798895   (17182) от 24.05.2025
+
+Лило и Стич / Lilo & Stitch (2002) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лило — это маленькая девочка, живущая на Гавайах. Она сирота и живет вместе со своей старшей сестрой Нани. Лило любит всех животных, но больше всего она подружилась с собачкой по имени Стич, которая на самом деле совсем не собачка, а замаскированный инопланетянин.
+Дело было так: некоего преступника по имени Стич переправляли в интергалактическую тюрьму, но ему удалось (   Читать дальше...   )Производство: США / Walt Disney Pictures, Walt Disney Animation Studios, Walt Disney Feature Animation FloridaЖанр: мультфильм, фантастика, фэнтези, драма, комедия, приключения, семейныйРежиссер: Дин ДеБлуа, Крис СандерсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB7287EBBEDAE415209ED27DE93728A5CDDB482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799283   (16731) от 27.05.2025
+
+На всю катушку / Zivot k sezrani / Living Large (2024) WEB-DL [H.264/1080p] [Локализованная версия]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+12-летний мальчик возвращается в школу после каникул и понимает, что его одноклассники повзрослели и изменились. Вот и настало время меняться самому, особенно если хочешь понравиться самой популярной девочке в школе.Производство: Чехия, Словакия, Франция / Barletta, Novanima, NovinskiЖанр: мультфильм, комедия, семейныйРежиссер: Кристина ДуфковаАктеры: Хуго Ковач, Себастьян Поте, Агата Тандлерова, Катарина Хейнлейн, Татьяна Дыкова, Давид Новотны, Элишка Крженкова, Прокоп Зак, Эма Новотна, Матей ХавелкаПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced hardsub)Продолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D459B3A12C7F6FC4FFE6A807D4BD34148A9D98FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811216   (16465) от 08.08.2025
+
+Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) UHD WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город — Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, Дания, Австралия / DC Entertainment, LEGO System A/SЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крис МакКейВ ролях: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Siri, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced), английские (full, SDH)Качество: UHD WEB-DLПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C619F8BFB0C66A150580C0EAAFD76E5DE2B266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799540   (16313) от 30.05.2025
 
 Как перевоспитать дракона / Er lang shen zhi shen hai jiao long / God with Three Eyes (2024) WEBRip [H.264/1080p]
@@ -6,7 +85,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,86 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89E040985DAC75605B4738C3253408075D8A3B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511362   (13238) от 28.06.2025
-
-БЕРН-И / BURN-E (2008) [1080p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13238.jpg" />
-</div>
-
-
-###  Подробнее
-
-«BURN-E» — короткометражный мульт от студии Pixar, на основе мультфильма «ВАЛЛ-И». BURN-E — это робот-сварщик, которого ЕВА и ВАЛЛ-И случайно оставили закрытым вне корабля, проникая внутрь после полёта около «Аксиомы».Жанр: Мультфильм, Короткометражка, Приключения, СемейныйРежиссер: Энгус МакЛэйнПеревод: ДублированныйПродолжительность: 00:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE8DAAB7FB4BDA7D05EEF611E7ECC0D08B86A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 234777   (13232) от 28.06.2025
-
-БЕРН-И / BURN-E (2008) [1080p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13232.jpg" />
-</div>
-
-
-###  Подробнее
-
-BURN-E это робот-сварщик, которого ЕВА и ВАЛЛ-И случайно оставили закрытым вне коробля, проникая внутрь после полёта около «Аксиомы».Жанр: Анимация, комедия, короткометражка, мультфильмРежиссер: Даг СвитлэндПеревод: Не требуетсяСубтитры: нетФормат: MKVКачество: BDRip 1080pПродолжительность: 00:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398531BECCD29CA16012467A8B415092C0377507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390575   (13202) от 28.06.2025
-
-ВАЛЛ·И / WALL·E (2008) BDRip [H.264/1080p] [Локализованная версия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робот ВАЛЛ·И из года в год прилежно трудится на опустевшей Земле, очищая нашу планету от гор мусора, которые оставили после себя улетевшие в космос люди. Он и не представляет, что совсем скоро произойдут невероятные события, благодаря которым он встретит друзей, поднимется к звездам и даже сумеет изменить к лучшему своих бывших хозяев, совсем позабывших родную Землю.Производство: США / FortyFour Studios, Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, фантастика, приключения, семейныйРежиссер: Эндрю СтэнтонПеревод: Дублированный, профессиональный многоголосый, авторский одноголосый.Язык озвучки: русский, украинский, английский.Субтитры: русские, английские, украинские.
-Commentary with Director Andrew Stanton- русские, украинские.
-Commentary  Geek' talk-русские, английские.Продолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F28BAAA8A33F1C04AC6664A84E8C224DC359F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

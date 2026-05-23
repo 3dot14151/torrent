@@ -1,3 +1,204 @@
+###  Публикация: 1382669   (817374) от 12.05.2020
+
+Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Yoga Trance 02:51
+2. Sun Salutation 03:06
+3. Awaken Your Energy 03:17
+4. Total Relaxation 03:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196572   (817293) от 06.01.2018
+
+Shinnobu - Libertus (2017) [MP3|320 Kbps] <Neo-Classical, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1.	Orion	4:06
+2.	Between Etheric Dreams	5:08
+3.	Erminig Enigmatic World	5:23
+4.	Unusual	5:15(   Читать дальше...   )Жанр: Neo-Classical, Ambient, New AgeПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7DF5EFDB3C02B3D7F549FD46E36E9335FA84EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117633   (817047) от 23.03.2017
+
+Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Nights in Black Satin (30:01)
+2. Love on the Beach (29:47)Жанр: New Age, InstrumentalПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117589   (817035) от 23.03.2017
+
+VA - Tibetan Waves: Asian Ambient Relaxing Spirit, Deep Focus, Meditation Tibetan Music (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Mindfullness Meditation World - Serenity Soul
+02. Tibetan Meditation Academy - Healing Sounds (Chimes)
+03. Therapeutic Tibetan Spa Collection - Tibetan Meditation
+04. Buddhist Meditation Temple - Relaxing Bowls(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BF060626922089ADC721683DA781E2FEC746E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117624   (816898) от 23.03.2017
+
+VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Music) (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.  Deep Sleep Hypnosis Masters - Massage Music  3:26
+02.  Deep Sleep Hypnosis Masters - Relaxing Theapy Music  3:19
+03.  Meditacao Espiritualidade Musica Academia - Chinese Meditation  3:52
+04.  Relaxing Night Music Academy - Ocean Waves  4:02(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 01:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A6DA01FCBA1A03D4893C366C8DD82CE4401B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117463   (816785) от 23.03.2017
+
+Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethnic, Folk, Joik>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Jag ar fri | Jag ar fri (03:01)
+02. Daniel's Joik | Daniel's Joik (06:32)
+03. The Reindeer Herder's Joik | The Reindeer Herder's Joik (05:58)
+04. Utoya | Utoya (07:59)(   Читать дальше...   )Жанр: Ethnic, Folk, JoikПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A0B3766C19E0729833DA6CF185251E3C62610D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503976   (815876) от 21.10.2021
+
+VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Soft Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Wildlife - Wishing You Were Here (04:17)
+02. Ray Hamilton Orchestra - Anytime You Need A Friend (04:25)
+03. Tony Skeggs - Hotel California (06:44)
+04. Wildlife - Take It Easy (03:35)(   Читать дальше...   )Жанр: Instrumental Soft RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36026D76084CDEF2205226031308E64CB2DA2958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008282   (815700) от 18.04.2016
 
 VA - Los clasicos argentinos Tango - Vol.10  - Alfredo De Angelis: El tango alegre (1996) [MP3|128 кб/с] <Tango>
@@ -6,7 +207,7 @@ VA - Los clasicos argentinos Tango - Vol.10  - Alfredo De Angelis: El tango aleg
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +236,7 @@ VA - Cocktail Piano Romance (1999) [FLAC|Lossless|image + .cue] <Instrumental, E
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +265,7 @@ Richard Clayderman - Zeit Zum Traumen (1984) [FLAC|Lossless|image + .cue]<Pop, C
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +294,7 @@ Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +323,7 @@ Mark Knopfler & Evelyn Glennie - Altamira (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +352,7 @@ Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +378,7 @@ Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенко�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +407,7 @@ Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенко�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +436,7 @@ John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -264,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +494,7 @@ VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +523,7 @@ Irari (Irina Mikhailova, Ira Stein) - Esquisses (2004) [FLAC|Lossless|tracks + .
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +552,7 @@ Yanni - Ultimate Yanni (2003) 2CD [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +581,7 @@ David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +610,7 @@ VA - Fetenhits - Latin (2017) [MP3|320 Kbps] <Kuduro, Bolero, Soca>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +636,7 @@ Mike Oldfield - Light + Shade (2005) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +665,7 @@ Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes,
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +694,7 @@ Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +723,7 @@ Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,209 +737,6 @@ Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197875   (811881) от 09.01.2018
-
-Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildwood
-02. Wildwood Priestess
-03. Old Gods & Ancient Stones
-04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198053   (811878) от 09.01.2018
-
-Chicago Afrobeat Project, Tony Allen - What Goes Up (2017) [FLAC|Lossless|tracks + .cue] <Afrobeat>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Hive (feat. Tony Allen, Akenya, Isaiah Oby)
-02. Race Hustle (feat. Tony Allen, J.C. Brooks)
-03. Cut the Infection (feat. Tony Allen, Oranmiyan)
-04. I No Know (feat. Tony Allen, Ugochi)(   Читать дальше...   )Жанр: AfrobeatПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483E0046F7CEF910479E754CD693DB134612E4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197521   (811605) от 09.01.2018
-
-Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hatoba Onna no Blues  (02:58) 
-02. Inochi Azukemasu  (02:33) 
-03. Keiko no Yume wa Yoru Hiraku  (02:47) 
-04. Koi Hitosuji  (02:48) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424ABA3B1160F541FA46B1F08BC3882F96D5EBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118044   (811474) от 26.03.2017
-
-VA - Sensual Meditation: Emotional Music, Deep Feeling Connection, Tantra Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotic Massage Music Ensemble - Spa Music
-02. Improving Concentration Music Zone - Meditation
-03. Relaxing Night Music Academy - Silk Touch
-04. Mindfullness Meditation World - Calm Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8A9806FAC7D1B6E68320FF3D83BC6FFE4B570E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118282   (811374) от 26.03.2017
-
-Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skies [00:04:52]
-02. Shooting Star [00:04:15]
-03. United [00:04:18]
-04. ForAva [00:02:58](   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A93B7AD97752C0F2C74FB92444BEF24D897429F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118299   (811227) от 26.03.2017
-
-VA - Intimate Piano: Moonlight Love (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roger Williams - Ebb Tide (2:55)
-2. Ronnie Price, London Pops Orchestra - Full Moon and Empty Arms (3:38 )
-3. Roger Williams - Moonlight Love (Clair de Lune) (3:43)
-4. Norman Percival & Orchestra - Tennessee Waltz (2:23)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC1BB326DA39ACF2FC39DAEE1B858DD739F9B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118127   (811083) от 26.03.2017
-
-VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La La Land Cast - Another Day of Sun (with Radios) (04:34)
-02. Justin Hurwitz - Mia Gets Home (00:24)
-03. Justin Hurwitz - Bathroom Mirror / You’re Coming Right? (01:19)
-04. Emma Stone, Callie Hernandez, Sonoya Mizuno & Jessica Rothe - Someone in the Crowd (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A218F52D16017FE6FE88E53E4E48527378BB66D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

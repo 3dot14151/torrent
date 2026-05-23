@@ -1,3 +1,107 @@
+###  Публикация: 1544644   (241289) от 16.04.2022
+
+Владивосток (2021) WEBRip [VP9/2160p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Случайно убив человека, молодой военнослужащий Виктор пускается в бега. Во Владивостоке он разыскивает старого друга, который может нелегально вывезти его из страны. Однако этот город, кажется, не хочет отпускать — Виктор встречает роковую красавицу Нику…Производство: Россия, МосфильмЖанр: Мелодрама, триллер, драмаРежиссер: Антон БорматовАктеры: Андрей Грызлов, Анастасия Талызина, Иван Шахназаров, Виталий Кищенко, Кирилл Плетнёв и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22C6152D5F59DB2195F4BA82B0ACA13B5A1C5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625592   (241255) от 10.04.2023
+
+Быстрые свидания (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В каждом человеке живут ангел и демон, на каждом шагу они дают противоречивые советы. Стеснительный айтишник и художница надгробных портретов приходят на вечер быстрых свиданий и «берут» внутренние голоса с собой. Встретить любовь среди отчаявшихся одиночек — и так сложная задача. Да еще эти внутренние комментаторы заглушают голос разума. Избавиться от назойливой (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, комедия, мелодрамаРежиссер: Максим КапляАктеры: Александр Хотенов, Марианна Васильева, Павел Кобылянский, Кристина Русанова, Филипп Зайцев, Алена ИсидороваСубтитры: отсутствуютПродолжительность: 00:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EFB3E8D94AA56A2D7ADA312528C71F8A3B972E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544637   (241235) от 16.04.2022
+
+Панчер (2021) WEB-DL [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Учитель физкультуры Андрей Тихонов из сельской глубинки едет в столицу, чтобы принять участие в турнире по боксу среди профессионалов и заработать деньги на операцию для своей старшей сестры Полины.Производство: Россия, Three M ProductionЖанр: драма, спортРежиссер: Михаил МузалевскийАктеры: Иван Быков, Макс Мако, Виктория Мамяшева, Алексей Адамович, Виталий Корнилов, Дарья Омельченко, Светлана Печёрина, Алексей Сергеев, Владимир Лаптев, Богдан ЗасухаПеревод: Не требуется (аудио из iTunes)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2DD4CA60562AAD51FACBC8F1F3063B31ED3DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570218   (241116) от 16.08.2022
+
+72 метра (2004) HDTV [H.264/1080i] (Киноверсия)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Капитан-лейтенанты Пётр Орлов и Иван Муравьёв давно служат на подводной лодке «Славянка». Очередной выход в море - боевые плановые учения. Но никто не предполагает, что в этот раз случится катастрофа - волны от учебных взрывов растревожат «спящую» со времён Второй мировой войны морскую мину.Производство: Россия / Первый канал, Студия ТритэЖанр: боевик, триллер, драмаРежиссер: Владимир ХотиненкоАктеры: Андрей Краско, Сергей Маковецкий, Марат Башаров, Дмитрий Ульянов, Чулпан Хаматова, Станислав Никольский, Владислав Галкин, Сергей Гармаш, Игорь Ливанов, Артём Михалков и др.Субтитры: русскиеПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E0E188F6C61139C3A8F76474EA7CAB5D70C0B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544784   (241040) от 17.04.2022
 
 Небо (2021) HDTV [H.264/1080i]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D021E7E00AF4147CB7584654CB420F7C402B5F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549474   (236771) от 07.05.2022
-
-Весури (2019) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малоизвестная страница истории Великой Отечественной войны - тяжелые дни оккупации советской Карелии финнами. Война стала тяжелейшим испытанием для всех, но особенно для детей. История создана на основе воспоминаний малолетних узников финских переселенческих лагерей.Производство: Россия / АТК-СтудиоЖанр: Драма, военный, историяРежиссер: Александр Якимчук, Вячеслав ЛагуновАктеры: Антонина Степакова, Иван Балдычев, Степан Степаков, Егор Петров, Дмитрий Мурашев, Лассе Линдберг, Владимир Ямненко, Сергей Евсеев, Александр Тютрюмов, Иван БатаревПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BDC97F26678085EB754BD13221A1754BB88BCD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631358   (236548) от 05.05.2023
-
-Жизнь сначала (2016) WEBRip [H.264/720p] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ксюше Кузнецовой почти 40 лет. Свою жизнь она по привычке откладывает на потом. Никак не может решиться усыновить Павлика, которого уже давно навещает в детском доме, выгнать обнаглевшего вечного жениха Вадика, поставить на место подруг, бесцеремонно вмешивающихся в ее жизнь, и призвать к порядку бандита Ваху, чей ресторан отравляет жизнь всей округе. Но, узнав о (   Читать дальше...   )Производство: Россия | «Марс Медиа»Жанр: Мелодрама, драма, криминалРежиссер: Артур Румынский, Игорь ШтернбергАктеры: Эльвира Болгова, Олег Масленников-Войтов, Даниль Зинатуллин, Мария Сычева, Анастасия Денисова, Илья Славутский, Алексей Калиничев, Халима Икандерова, Галина Юрченко, Елена ГалицкаяПродолжительность: 00:45:22 + 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B965ACDD848A860BC9A5C02D36A0CAFD700C84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630931   (236461) от 03.05.2023
-
-Отщепенец (2020) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за экологической катастрофы люди поселились под землёй и создали «стерильное» пространство, из которого на поверхность изгоняются все нарушители нового порядка.Производство: РоссияЖанр: Короткометражный, фантастикаРежиссер: Юлия ОреховаАктеры: Дарья Свистунова, Антон Фигуровский, Марина Барсукова, Владислав КувицынСубтитры: английские (hardsub)Продолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EFF26D102CB6B64841CE0314CC742166A6BA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550035   (236431) от 09.05.2022
-
-Топор. 1944 (2022) WEBRip (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разведгруппа Одинцова, в которую входит Иван Родин, пробирается по глубоким тылам со специальным заданием — переправить через линию фронта молодого человека по фамилии Савичев. Кто он, откуда и как попал к партизанам Одинцову, не сообщают. Так как их ищут немцы, им проходится возвращаться другим путём. Наутро после трудного перехода Родин, пока другие спят, ловит (   Читать дальше...   )Производство: Россия / «ТРОМЕДИА»Жанр: Драма, история, военныйРежиссер: Евгений ЗвездаковАктеры: Андрей Смоляков, Тимур Базинский, Александр Голубев, Тимофей Каратаев, Леон Тафара, Антон Успенский, Виктория Романенко, Бахтияр Ташбулатов и др.Субтитры: ОтсутствуютПродолжительность: 00:44:40+00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E7969CD183149812E6D16C8FDA73878C2CBE01
 ```
 
 https://mybot314.ru/tekegram_catalog/

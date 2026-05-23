@@ -1,3 +1,29 @@
+###  Публикация: 1480310   (1008661) от 30.06.2021
+
+SUSE Linux Enterprise Desktop Server Workstation 15.3 [x86_64, aarch64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+После года разработки компания SUSE представила релиз дистрибутива SUSE Linux Enterprise 15 SP3. На основе платформы SUSE Linux Enterprise сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, SUSE Manager и SUSE Linux Enterprise High Performance Computing. Дистрибутив можно загрузить и использовать бесплатно, но доступ к получению (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C836D30C674FF19F7C68A1F527DECDC25A2F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482590   (1007343) от 09.07.2021
 
 Linux Mint 20.2 Uma (XFCE, Mate, Cinnamon) [64bit] 4xDVD
@@ -6,7 +32,7 @@ Linux Mint 20.2 Uma (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kali Linux 2021.2 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +86,7 @@ EuroLinux 8.3 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +112,7 @@ Liberte Linux [анонимный доступ в сети] 2012.3 [x32] (1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -106,6 +132,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605023   (996008) от 18.01.2013
+
+Pear Linux 6.1 R2 [i386, amd64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+После нескольких дней, разработчики выпустили новую исправленную версию 6.1 R2, в которой, с их слов,  устранены проблемы первой версии дистрибутива.
+
+Pear OS - французский дистрибутив Linux, основанный на Ubuntu. Разработчики постарались максимально приблизить интерфейс системы к Mac OS. Pear OS использует различные передовые технологии, чтобы сделать Вашу работу на компьютере максимально удобной. На рабочем столе располагается панель быстрого запуска, позволяющая запускать приложения одним кликом. Launchpad - это своеобразный дом, где находятся все установленные программы. Все приложения, которые Вы загрузите, сразу же появятся там. Также в состав Pear OS входит Finder - утилита, позволяющая искать различные файлы не только на этом компьютере, но и на других компьютерах Вашей сети. с помощью программы QuickView Вы можете просмотреть файл, не открывая его, тем самым убедившись в соответствии содержимого названию.
+
+Основные изменения:  Pear PPA Manager, Pear Cleaner.. Также обновлены практически все пакеты и ядро (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604694   (995981) от 18.01.2013
 
 CentOS 5.9 [i386 + x86-64] (4xDVD)
@@ -114,7 +170,7 @@ CentOS 5.9 [i386 + x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +198,7 @@ Snowlinux 4.0 Glacier (XFCE, E17 - легкий дистрибутив) [i386 + 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -170,7 +226,7 @@ ESSPEE R3 Live DVD (Анализ безопасности, хакинг) [i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -200,7 +256,7 @@ Calculate Linux 15.12 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -228,7 +284,7 @@ Calculate Linux 15.12 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -256,7 +312,7 @@ JonDo/Tor-Secure-Live-DVD 0.9.88 [анонимный доступ в сети] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -284,7 +340,7 @@ CentOS 7.2-1511 [i386] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -310,7 +366,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [i68
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -336,7 +392,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [x86
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -362,7 +418,7 @@ JonDo/Tor-Secure-Live-DVD 0.9.88.2 [анонимный доступ в сети]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -390,7 +446,7 @@ Q4OS 1.4.5 Live (Легкий дистрибутив) [Trinity - форк KDE 3.
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -418,7 +474,7 @@ Frugalware Linux 1.8 [x86_64] (5xDVD+1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -446,7 +502,7 @@ Mythbuntu 12.04.2 LTS [i386, x86-64] (2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -472,7 +528,7 @@ KaOS Linux 2016.01 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -498,7 +554,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -524,7 +580,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -550,7 +606,7 @@ SteamOS 2016.01.13 [x86, x86-64] (1xDVD, 1xUSB)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +634,7 @@ BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -608,7 +664,7 @@ ArchLinux 2013.02.01 [i686 + x86_64] (1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -636,7 +692,7 @@ Q4OS 1.4.6 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -649,60 +705,6 @@ Q4OS - дистрибутив операционной системы Linux, с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBA58488F5C077A6CB5EF2A76346944EA78661DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979246   (960879) от 25.01.2016
-
-Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Debian с радостью сообщает о третьем обновлении своего стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются при необходимости.
-
-Заметьте, что это (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE1FDC84A1E0D9D965738306F02A4EC30F90B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979249   (960763) от 25.01.2016
-
-KNOPPIX 7.6.1 [x32, x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клаус Кноппер (Klaus Knopper) представил корректирующий выпуск KNOPPIX 7.6.1, исторически одного из первых дистрибутивов, поддерживающих работу в Live-режиме. Дистрибутив построен на основе оригинального набора загрузочных скриптов и включает в себя пакеты, импортированные из Debian Jessie, со вставками из веток Debian "testing" и "unstable". (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E224D31AD4458DF35CD075D3443F7D8AB8B764A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1871536   (1069676) от 
+
+TutorOnline, Алеся Ильева | Полный школьный курс по химии (2022) WEB-DL, PCRec [RU]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Полный школьный курс по химии предлагает комплексное изучение химии через 32 занятия продолжительностью около полутора часов каждое. Курс включает системную практику с домашними заданиями, тестами и задачами, а также промежуточное и итоговое тестирование для оценки прогресса учащихся.Производство: TutorOnlineЖанр: видеоуроки, обучающий, наука, химияЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 59:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BC2C439EEE52FD74F42A7C78C893C5935EDBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871576   (1069664) от 
+
+TutorOnline, Ирина Михайловна | Полный школьный курс по биологии (2024) WEB-DL, PCRec [AD] [RU]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для учеников 5–11 классов, которые стремятся к высоким результатам и хотят получать оценки на уровне «отлично».Производство: TutorOnlineЖанр: видеоуроки, обучающийЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 40:55:19Реклама: наложение на видео (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BC3112FA386AE641A551BB7D06AF4925BE41CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848671   (1052882) от 18.01.2026
 
 Павел Андреевич Виктор | Уроки по физике основной и старшей школы (720p) (2014-2020) WEB-DL
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +85,7 @@ MagicArt, Волшебное рисование 4-6 лет (2024) WEB-DL [AD] [R
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +192,7 @@ Codim.Online, Антон Несютин | Интенсив «3D моделиро
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +221,7 @@ Foxford, Павел Труфанов | Курс программирования
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +273,7 @@ Foxford, Дмитрий Балашов | Подготовка к олимпиа�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +326,7 @@ Foxford, Анатолий Бурносов и др. | РастиУм - разв�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -593,7 +645,7 @@ Foxford | Программирование на языке Python для 8-10 к
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -630,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFD596276949FF63C9A1C4BB1D0D45EC0E7859DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625062   (948672) от 02.03.2013
-
-Загадки Джесса (48 серий) / Guess with Jess (2009-2010) SATRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавный кот по имени Джесс, верный спутник почтальона Пэта, главный герой познавательного мультсериала.
-Джесс и его друзья-зверушки — типичные непоседливые малыши, любопытство которых может быть удовлетворено лишь на практике. Они хотят познать окружающий мир и разгадать все его загадки. Энтузиазм и непреодолимая жажда знаний Джесса приводят к тому, что он всегда (   Читать дальше...   )Жанр: РазвивающийРежиссер: Mike Shiell, Донни Андерсен, Алан СимпсонПеревод: ДублированныйПродолжительность: 48х~00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A55DF9019BF0D6F1DE91C20900BDA2891FF65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625837   (945422) от 04.03.2013
-
-Карусель. Служба спасения домашнего задания. (78 выпусков) (2012) SATRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945422.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Служба спасения домашнего задания» избавит тебя от плохих оценок! Пропустил урок в школе? Возникли сложности с выполнением задания? Ничего не успеваешь и не понимаешь? А домашку-то все равно придется делать! На помощь к тебе придут агенты «Службы спасения домашнего задания». Быстро и увлекательно они объяснят, чем дерево отличается от кустарника, каково строение Солнечной системы, что такое синонимы и антонимы, и как можно играючи запомнить таблицу умножения. С ними тебе станет легко и, главное, интересно учиться!Жанр: Детский, ОбучающийРежиссер: Михаил Кондалов, Артур Богатов, Ольга МузалеваПродолжительность: 78 x ~13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB45F32C049C65F67A4F01C57627EBA111616056
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1845747   (1050905) от 03.01.2026
+
+No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет вечно 2: С.Т.Р.А.Х. возвращается (2002) [Ru/En] (1.3) Repack dixen18
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Возвращения Кейт Арчер, главной героини игры «Никто не живет вечно», ждали миллионы. «Никто не живет вечно 2» сделана в лучших традициях жанра, а тонкость и ироничность сюжета игры, комичность персонажей, иллюзия яркости и беззаботности атмосферы шестидесятых годов прошлого века, позволяют почувствовать себя настоящим секретным агентом. Это не история про Джеймса (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith ProductionsЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7FF018AB047C65300EDF6B93EE589E16C9C25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845749   (1050903) от 03.01.2026
+
+SHOGUN: Total War (2000) [Multi] (v1/dlc) License GOG [Collection]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Shogun: Total War – это стратегический симулятор командования государствами и нациями, погружающий в эпоху монгольских захватчиков. Игра выполнена в виде глобального пошагового геймплея, где предстоит мыслить наперед и просчитывать доступные варианты и решения на политической арене. Во время схваток между армиями, происходит приближение камеры и появляется возможность (   Читать дальше...   )Тип издания: LicenseРазработчик: CREATIVE ASSEMBLYЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C212DF2E25A617ADE36640079C652A5AF4BBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845605   (1050801) от 02.01.2026
 
 ECHELON (1988) [En] (3.40) License GOG
@@ -6,7 +58,7 @@ ECHELON (1988) [En] (3.40) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Realmz (1999) [En] (7.1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Shadow Vault / Shadow Vault: Зона теней (2004) [Ru] (1.0.28) License М
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ UnReal World (1992) [En] (3.86.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +370,7 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Geneforge 3 (2005) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +448,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Jagged Alliance 2: Wildfire (2005) [Ru/Multi] (6.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B0BC01B0A546B7B75D2DB4813B676177F7D3B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617795   (1034729) от 08.03.2023
-
-Vangers / Вангеры (1998) [Ru/En] (1.46) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вангеры изначально вышли в 1998 и теперь KranX Productions представляют вам обновлённую версию игры с улучшенной работой на современных операционных системах. Но игра всё ещё работает в разрешении 800x600, как и было задумано при разработке. Вангеры - смесь разных, но дополняющих друг друга компонентов. Игрок попадает в странный мир будущего, который появился в результате (   Читать дальше...   )Тип издания: LicenseРазработчик: K-D Lab Game DevelopmentЖанр: Гонки, Фантаcтика, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BEB2864D38462D84825830796330464DDDA0F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444412   (1034316) от 02.02.2021
-
-Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье поместья Блэкмур (2004) [Ru] (5.078) License
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нэнси Дрю отправляется на своё первое международное расследование. Ей необходимо навестить Линду Пенвеллин — дочь соседки и молодую жену британского дипломата. Таинственная болезнь заставляет Линду прятаться за плотным балдахином кровати. От кого или чего она скрывается? Или, возможно, ей угрожает нечто куда более опасное, чем простые недуги? Вычурные узоры, украшающие (   Читать дальше...   )Тип издания: LicenseРазработчик: Her InteractiveЖанр: Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AF4995BB7446B632EB57DE70D9631E88575745
 ```
 
 https://mybot314.ru/tekegram_catalog/

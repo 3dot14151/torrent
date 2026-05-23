@@ -1,3 +1,109 @@
+###  Публикация: 1150940   (576247) от 17.07.2017
+
+Гумберт Романский | О проповеди креста (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Автором трактата «О проповеди креста» ("De predicatione cruets"), является пятый генеральный магистр ордена доминиканцев по имени Гумберт Романский. Книга, состоящая из 44 глав, была некоторым подобием инструкции, что и как необходимо говорить во время проповеди крестового похода против мусульман на Ближний Восток. Автор трактата достаточно четко обосновывает (   Читать дальше...   )Жанр: История Церкви, проповедьФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3147EC12E1A4B726EB80EFD8102E6F62BE926B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233729   (576238) от 02.07.2018
+
+Святой Ефрем Сирин | Творения [8 Томов] [Репринт 1907 г.] (1993-1995) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Ефрем Сирин всегда пользовался общим уважением в Церкви, как за свою жизнь, так и за свои писания. Святитель Григорий Нисский говорит: «Прославлять мне надобно того, который на устах у всех христиан, Ефрема, которого жизнь и учение сияют во всем мире. Ибо он известен почти всей подсолнечной, и только разве те его не знают, которые не знают великое светило (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA64C67FBDA71D38E5AFF4FF2B87F8BA15352D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527896   (575093) от 27.07.2012
+
+Блаженный Иоанн Мосх | Луг духовный [2010] [RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Луг духовный», или «Лимонарь», — бессмертная книга, описывающая подвиги древних великих монахов-аскетов VI—VII столетий. Современники преподобных аввы Дорофея и Иоанна Лествичника, они во все века остаются образцом христианского подвижничества. Отвергнув обманчивые прелести мира ради подлинной Истины — Христа и удалившись в безжизненную, палящую зноем пустыню, они своим молитвенным и постническим подвигом превратнли ее в цветущий рай добродетелей, изобилующий плодами нетленной жизни. Их подвигам подражали все последующие поколения христиан, у них и мы должны учиться самой высокой науке и самой глубокой мудрости — жизни во Христе.
+Книга «Луг духовный» написана строгим аскетом и отшельником блаженным Иоанном Мосхом, высокообразованным палестинским монахом, наставником и учителем будущего Иерусалимского патриарха святого Софрония (+ ок. 638—644; память 11/24 марта). Вместе с ним блаженный Иоанн обошел весь православный Восток и записал в назидание для нас, будущих поколений, дивные и славные дела великих, знаменитых (   Читать дальше...   )Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040DAF666F9A00C577C78E83F41A0E862E69283B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527955   (574893) от 27.07.2012
+
+Преподобный Иоанн Лествичник | Лествица [2009] [RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Иоанн Лествичник почитается Святой Церковью как великий подвижник и автор замечательного духовного творения, получившего название "Лествица, возводящая на Небо, или Скрижали Духовные". ("Лествица" значит по-русски - "лестница"). За прошедшие со времени ее написания полторы тысячи лет "Лествица" стала настоящим учебником подвижнической жизни и нравственного богословия, одним из важнейших аскетических руководств для монахов и мирян. На этой книге росло духовно множество замечательных подвижников, великих святых Вселенского Православия и Русской Православной Церкви. Автор "Лествицы" так объяснял название своего высокодуховного творения: "Соорудил я лествицу восхождения... от земного во святая... во образ тридцати лет Господня совершеннолетия, знаменательно соорудил лествицу из 30 степеней, по которой, достигнув Господня возраста, окажемся праведными и безопасными от падения".
+Цель этого творения - научить, что достижение спасения требует от человека (   Читать дальше...   )Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC4D33AA50EFBE8E1B3ABD779C242C636B759D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527881   (574733) от 27.07.2012
 
 Монах Павел Евергетин | Евергетин (Благолюбие) (4 тома) [2008] [DOC]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,119 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A968414333290D8366226364D8FF85A9744C33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152150   (565683) от 23.07.2017
-
-Крестовоздвиженское православное братство (изд.) | Молитвы ко Пресвятой Богородице пред чудотворными иконами Ея (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молитвы ко Пресвятой Богородице пред чудотворными иконами Ея с указанием на их особую благодать помощи в различных нуждах и немощах наших.
-
-«Почитание Божией Матери является одной из отраднейших сторон христианства и угаснет только тогда, когда будет вытравлена в душе человеческой жажда материнской любви, материнской ласки и заботы.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457F2AC59977A0042C0D62E78A81A22144B650F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152674   (565676) от 23.07.2017
-
-Синодальная библейско-богословская комиссия (изд.) | Катехизис Русской Православной Церкви [Проект] (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идея создания современного Катехизиса впервые прозвучала на Архиерейском Соборе 2008 года. Через год Священный Синод поручил Синодальной богословской комиссии начать подготовку современного Катехизиса Русской Православной Церкви.
-
-В работе над текстом Катехизиса принимали участие ведущие богословы Русской Православной Церкви. Работа над первой версией текста Катехизиса (   Читать дальше...   )Жанр: КатехизисФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2CD89BCA84443F78B84C46265D76C5C67468ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152698   (565669) от 23.07.2017
-
-П. Гольбах | Карманное богословие (1961) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565669.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Карманное богословие" Поля Гольбаха (1725 - 1780) принадлежит к числу лучших произведений мировой атеистической литературы.
-
-С точки зрения здравого смысла Гольбах критикует учение католицизма. Однако, если на этом основании православный богослов или сектантский проповедник станет с высокомерием посматривать на своего католического собрата, ему можно и (   Читать дальше...   )Жанр: История, политология, религиоведение, философия, словарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6245B49076E9FFB783B83ECC73AFC855C9798C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304197   (565555) от 25.05.2019
-
-Глаголъ (изд.) | Канон и акафист Утешителю Господу Духу Святому, всякому благу Промысленнику и Подателю (1999) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто-то из святых отцов сказал, что человек на земле подобен путнику в чужой стороне. Цель, к которой он должен стремиться, — это Бог, путь к этой цели — Христос, а руководитель — Дух Святой.
-
-Без содействия этого Руководителя, который благодатью Своей производит в нас и хотение и действие по Своему благоволению (Фил. 2, 13), не можем мы ни совершить, ни даже помыслить (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D15E5C21DF69C8963BD7AF4A410660A87138F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

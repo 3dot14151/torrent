@@ -1,3 +1,206 @@
+###  Публикация: 602123   (997642) от 12.01.2013
+
+СупердискотЭка / Супердискотека 90-х. Санкт-Петербург, СКК (11.01.2013) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Дискотека Авария - Новогодняя
+02. Татьяна Булавнова - Мой ненаглядный
+03. Руки вверх! - Крошка моя (Live)
+04. Руки вверх! - Лишь о тебе мечтая (Live)(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:27:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602985   (997136) от 14.01.2013
+
+Helene Fischer - Live/Zum ersten Mal mit Band und Orchester  (2011) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Концерт прошел 26 июня 2011 года в Кёльне (Германия) , при огромном стечении людей, билеты распроданы за месяц вперед и зал оказался переполнен.Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:44:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603364   (996877) от 15.01.2013
+
+Сборник клипов - Dj Vj Magrao Videomix (2011-2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов от DJ VJ Magrao (настоящее имя- Luis Eduardo), известного бразильского диджея.
+Magrao - один из пионеров видеомикс-направления.
+Отличительной чертой его миксов является присутствие юмора.
+Мегамикс - это видеосборник,составленный из небольших фрагментов клипов.(   Читать дальше...   )Жанр: Pop, Club, Dance, House, Video-MegamixПродолжительность: ~2011, V.10 - 01:09:13; 2012, V.11 - 01:29:54; 2012, V.12 - 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D6730DE5466DDC236D0B33C0BB2C498B4F818E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603800   (996648) от 16.01.2013
+
+Тина Тернер / Tina Turner video clips (2007) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Отличные клипы не стареющей Тины Тернер!01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita (Cant stop thinking of you)
+02. Foreign Affair
+03. Golden Eye
+04. I Don`t Wanna Loose
+05. Let's Stay Together
+06. Look Me In The Heart
+07. Love Thing
+08. Nutbush City Limits
+09. On silent wings
+10. Private dancer 1(   Читать дальше...   )Жанр: Музыка, Rock, PopПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58266E430B54423310326FF5154ED5BBFADD14EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603740   (996597) от 16.01.2013
+
+Дискотека 80-х 2012 Rock & Dance.Полная версия-оригинал (DVD-9)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Актеры: Zodiac,Gorky Park,Silent Circle,Bad Boys Blue,Вячеслав Бутусов,C.C.Catch,Chris Norman,Boney MПеревод: ОтсутствуетПродолжительность: 04:18:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604401   (995990) от 18.01.2013
+
+Лучшие клипы / The best videos of all time (Rock) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Ac Dc - Heatseeker
+02. Queen - We Are The Champions
+03. Ac Dc - T.N.T.
+04. Alice Cooper - Along Came A Spider(   Читать дальше...   )Жанр: Музыка, Rock, Glam rock, Hard rockПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AAA22B4811144D8911AD5E22BC06E7F182F8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605384   (995809) от 19.01.2013
+
+Лучшие клипы / The best videos of all time (Country) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Carrie Underwood - Cowboy Casanova
+02. Caitlin Rose -  Own Side
+03. Chad Brownlee - Carried Away
+04. Chris Cagle -  What A Beautiful Day(   Читать дальше...   )Жанр: Музыка, CountryПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334837832A4569BF43B28D1E8CAAB4232D137AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604785   (995794) от 19.01.2013
 
 Лучшие клипы / The best videos of all time (Blues) H.264 (2012) DVDRip
@@ -6,7 +209,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -147,7 +350,7 @@ ABBA - ABBA (Deluxe Edition) (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -176,7 +379,7 @@ Duran Duran - A Diamond In the Mind (2011) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -213,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +552,7 @@ Dance Hits 90's - Retro Dance Party (2011) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +720,7 @@ Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,197 +731,6 @@ Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDDA80117DED8D81924E99BC708AA50428D2FDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606776   (994037) от 24.01.2013
-
-Мастер и Кипелов - Концерт в клубе "Вояж" (1995) VHSRip [H264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игры не для нас
-02. Тореро
-03. Мечты
-04. Без тебя(   Читать дальше...   )Жанр: Концерт, Hard Rock, Heavy MetalПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4462753AFD1D48BCD69EBE0B6A65DCE9801831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608232   (993983) от 24.01.2013
-
-Lindsey Stirling and the Piano Guys - Mission Impossible (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F770213C624E07B409C58831D3E3F9A0389BB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430635   (993615) от 02.01.2012
-
-Первый Новогодний вечер с Максимом Галкиным и Николаем Басковым (2012) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год наступил! Впереди еще много выходных дней, а значит... продолжаем праздновать!
-Первые вечера нового 2012 года лучше всего провести в теплой компании с Максимом Галкиным и Николаем Басковым. Тем более что к ним в гости уже пришли Владимир Зеленский, Лолита, Ани Лорак, Дима Билан, Юрий Аскаров, Пьер Нарцисс, Владимир Данилец, Анна Семенович, Ефим Шифрин, (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD53D0ED1F0C499F7320658AB2FF4CF66A01E1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430629   (993575) от 02.01.2012
-
-Ээхх, разгуляй (2012.01.01) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993575.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ээхх, Разгуляй!» — не просто шоу, а настоящий музыкальный марафон: грандиозное действо, сделанное по последнему слову техники со спецэффектами, видеоинсталляциями, номерами танцоров и акробатов, полное юмора и музыкальных сюрпризов.
-
-В этом году перед зрителями выступят самые яркие исполнители жанра шансон, а песенный репертуар состоит сплошь из хитов. В концерте (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0585B87DDD27D086854ADC6AFBC3927B96A15310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430571   (993562) от 02.01.2012
-
-20 лучших песен 2011 года (2012.01.01) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993562.jpg" />
-</div>
-
-
-###  Подробнее
-
-В концерте прозвучат 20 самых лучших песен 2011 года. Первый канал и Национальный музыкальный портал "Красная звезда" собрали самых любимых артистов на одной сцене.
-
-Всеми любимая Ёлка, очаровательная Нюша, неподражаемый Дима Билан, группа "Градусы", стремительно ворвавшийся в чарты Артур Пирожков, трогательная певица Максим, эпатажная группа (   Читать дальше...   )Телекомпания: Жанр: КонцертПродолжительность: ~ 01:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11DCD5B493F82E3EFDBB4BD3EBE0AC5605E12E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352346   (993278) от 16.01.2020
-
-Весёлая Месса (2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Глухов даёт развернутое интервью о своей группе, о Российской Национал-большевистской партии, революции и религии. Ему аккомпанируют музыкальные группы: Группа 418  и Тотальный Геноцид. В конце бабушка из АХСМСЗ даёт стриптиз!Производство: Смерчь-ИнфоЖанр: Chanson, Post-PunkПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C664D1164C1972C2043EF4BE132FEE04F5F49AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352242   (993219) от 16.01.2020
-
-Чёрный огонек (2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993219.jpg" />
-</div>
-
-
-###  Подробнее
-
-В беспросветном мраке новогодней пошлятины единственный луч света – Чёрный огонек 2020!
-Исполнители: Михаил Трофименков,  Бранимир,  Александр Аронов,  Михаил Елизаров,  Children Slyness,  РИЧ,  Ансамбль Христа Спасителя,  Тотальный Геноцид,  418, Олег Купер, Самай, НаотрезПроизводство: Смерчь-ИнфоЖанр: Chanson, Post-PunkПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91D305D346CF2244699F404FD6F9D43E61C474F
 ```
 
 https://mybot314.ru/tekegram_catalog/

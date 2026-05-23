@@ -1,3 +1,109 @@
+###  Публикация: 1591170   (187418) от 17.11.2022
+
+Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Истребитель демонов [ТВ-2] [2021, TV, 11 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории.
+
+Эпоха Тайсё. Ещё с древних времён ходят слухи, что в лесу обитают демоны, которые питаются людьми и выискивают по ночам новых жертв. Однажды Тандзиро Камадо уходит в соседний город, чтобы продать древесный уголь. Вернувшись утром, парень обнаруживает перед собой страшную картину: вся родня зверски убита, а единственная выжившая - младшая сестра (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: 1) AniLibria; 2) CrunchyRoll; 3) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 11 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148F43712403DF2CDF4F426C8A274366A35C5A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563789   (187401) от 17.11.2022
+
+Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimashita | Жизнь перерождённого мудреца в другом мире [2022, TV, 12 из 12] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+И так часто работающий сверхурочно, трудоголик Юдзи Сано заканчивал принесённую домой работу, когда был призван в другой мир. Оказавшись вдруг посреди леса, Юдзи решил, что всё это — любопытный сон, которым он может насладиться, пока его не разбудит будильник. Успокоившись на этой мысли, Юдзи, который любил в свободное время играть в компьютерные игры, спокойно воспринял (   Читать дальше...   )Производство: RevorootЖанр: Приключения, фэнтези, исекайРежиссер: Кодзима КэйсукэСубтитры: РусскиеПродолжительность: 12 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4904C3FC5E1D6D952B9A20FE601B2BD2CFE07F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332330   (187368) от 17.11.2022
+
+Machikado Mazoku | The Demon Girl Next Door | Городская дьяволица [2019, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Юко Ёсида, обычная 15-летняя девочка, проснувшись однажды утром, обнаруживает, что обладает демонической силой. И теперь ей надо победить местную девочку-волшебницу, только так она сможет снять проклятие «40 000 иен за один месяц жизни». Да, теперь у неё есть рога и хвост, но по правде говоря, её сила даже меньше, чем у обычной девочки.Производство: студия J.C. StaffЖанр: повседневность, комедияРежиссер: Сакурай ХироакиПеревод: Apostol & ED_SlnЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2A690B3C34E4303DEBCAF5836ACC14B420024A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644998   (186937) от 20.09.2023
+
+Yumemiru Danshi wa Genjitsushugisha / The Dreaming Boy is a Realist / Из мечтателя в реалиста [2023, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Ватару Садзё влюблён в свою одноклассницу Айку Нацукаву, постоянно пытается сблизиться с ней и мечтает о взаимности. Но однажды он просыпается с мыслью: «Похоже, это бесполезно, и я никогда не буду вместе с такой прекрасной девушкой, как она». После этого Ватару начинает держаться от неё на расстоянии, к большому удивлению Айки... «Неужели он теперь ненавидит меня (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Кога КадзуомиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D3CC87035EFEEBEAC6FF200D3B67F1AABE4A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650795   (186508) от 22.09.2023
 
 Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однушка лорда демонов и героя [2023, TV, 12] WEBRip 720p raw
@@ -6,7 +112,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Sugar Apple Fairy Tale (2023) | Сказка о сахарном яблоке [�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +192,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | Великий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -112,7 +218,7 @@ Tenpuru / Temple / Храм [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -138,7 +244,7 @@ Horimiya: Piece | Horimiya: The Missing Pieces | Хоримия [ТВ-2] [2023, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -164,7 +270,7 @@ Mix: Meisei Story 2nd Season - Nidome no Natsu, Sora no Mukou e | Микс: Ис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -192,7 +298,7 @@ Shinigami Bocchan to Kuro Maid (2023) | The Duke of Death and His Maid (2023) | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -220,7 +326,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -246,7 +352,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | С особым навыком я 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -272,7 +378,7 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -298,7 +404,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -324,7 +430,7 @@ Azur Lane: Queen's Orders | Лазурный путь: Приказы корол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -350,7 +456,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу (2022) [2022, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -376,7 +482,7 @@ Yuusha ga Shinda! | The Legendary Hero is Dead! | Герой мёртв! [2023, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -402,7 +508,7 @@ Space Runaway Ideon | Densetsu Kyojin Ideon | Космический бегле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -428,7 +534,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -455,7 +561,7 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -481,7 +587,7 @@ Ayakashi Triangle / Треугольник Аякаси [2023, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -507,7 +613,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -535,7 +641,7 @@ Sister Princess: Re Pure | Сестры-принцессы [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -563,7 +669,7 @@ Sister Princess | Сестры-принцессы [ТВ-1] [2001, TV, 26 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -576,114 +682,6 @@ Sister Princess | Сестры-принцессы [ТВ-1] [2001, TV, 26 эп.] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D03E5C6BFE837C0B9D1AAEC52B57AE479EC593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426855   (185266) от 26.11.2020
-
-Yuurei Yashiki | Призрак замка [1990, Special, 1 эп.] WebRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая короткометражка по мотивам произведения Оскара Уайльда "Кентервильское привидение".
-
-Семья американского посла переезжает в старый замок, в котором обитает злобное приведение. Неупокоенный дух пытается строить всяческие козни новым жильцам, но добрый нрав и радушие семьи помогут ему обрести покой.Производство: студия GakkenЖанр: приключенияПеревод: World_Houp & Аццкий КритегЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 20 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C4F3877F6ECC977ED75C6F65328339AA9B26A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426857   (185192) от 26.11.2020
-
-It's My Life | Это моя жизнь! [2019, OVA, 1 эп.] DVDRip 576p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астра Люгер Думсдэй, бывший капитан королевский рыцарей исполнил свою давнюю мечту после завершения службы отправиться подальше от столицы и зажить тихой и спокойной жизнью в сельской глуши. Однажды Астра решил устроить распродажу различного барахла, скопившегося за долгие годы службы. Ну и конечно, на барахолку к нему заглянули его бывшие соратники и давние друзья. (   Читать дальше...   )Производство: студия Creators in Pack / クリエイターズインパックЖанр: приключенияРежиссер: Хирасава ХисаёсиПеревод: GJM; KajitsuЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B206FF5A78257B26F58C606C4E298006065C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198783   (184743) от 26.11.2020
-
-Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцатилетняя Мичиру Амацуки переезжает в Токио ради трудоустройства. Вселившись в женское общежитие, она находит трёх новых подруг: консультанта в магазине одежды, организатора свадеб и студентку. Это история об их жизнях, а также их беседах во время распития спиртного.
-
-В данном произведении демонстрируются сцены с употреблением спиртных напитков. Чрезмерное употребление (   Читать дальше...   )Производство: Студия Production IMS / プロダクションアイムズЖанр: комедия, повседневностьРежиссер: Кобаяси ТомокиПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63FC307A69221155D0356B1CD65F05B295A74C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592366   (184442) от 21.11.2022
-
-I'll/CKBC | I'll/Crazy KOUZO Basketball Club | Лихая баскетбольная команда Кодзу [2002, OVA, 2 эп.] DVDRip 392p raw+eng
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два мальчика, Тачибана и Хираги, однажды играли в соперничиских командах в баскетбол. Вскоре Хираги переходит в школу Тачибаны и попадает в ту же баскетбольную команду. Они начинают играть как товарищи одной команды, но семья Хираги, где отец - тренер баскетбольной команды, а старший брат - профессиональный игрок, хотят, чтобы он играл в команде более высокого уровня. (   Читать дальше...   )Производство: Студия M.S.C. / エム・エス・シーЖанр: приключения, спортРежиссер: Кавасаки ИцуроПеревод: SergoЯзык озвучки: Японский и английскийСубтитры: Русские, АнглийскиеПродолжительность: 2 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCC59C16B3BA9FBE9E6FDC8589BB99BE6265EA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

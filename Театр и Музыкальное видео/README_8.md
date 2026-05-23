@@ -1,3 +1,211 @@
+###  Публикация: 599120   (999314) от 06.01.2013
+
+Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отЖанр: Club, House, DanceПродолжительность: 00:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C32BCDBB7493B94317AA898CA5BE18BF67CA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599450   (999303) от 06.01.2013
+
+Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D15367268E625CE3A0973F7760FFE811F4034FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599949   (999109) от 07.01.2013
+
+Slade At The BBC (1969-1991) (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ретроспективная передача канала BBC4 от 21 декабря 2012 года. Коллекция студийных видеозаписей BBC 1969-1991 годов и01.Intro
+02.Martha My Dear /Monster Music Mash 1969/
+03.Wild Winds Are Blowing /Monster Music Mash 1969/
+04.Coz I Luv You /TOTP 1971/
+05.Mama Weer All Crazee Now /TOTP 1972/
+06.Gudbuy T' Jane /TOTP 1972/
+07.Cum On Feel The Noize /TOTP 1973/
+08.My Friend Stan /TOTP 1973/
+09.Everyday /TOTP 1974/
+10.How Does It Feel /Crackerjack 1975/(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A116B664E6A9BEBE4480ECDFD6937C5A023954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600087   (999055) от 07.01.2013
+
+Рождественские встречи Аллы Пугачевой  (2013.01.07) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+"Рождественские встречи" - ежегодный концерт-фестиваль, который с 1988 года в конце декабря проводит Алла Пугачева. С тех пор, проект считается одним из самых популярных у зрителей и одним из самых престижных для многих представителей отечественного шоу-бизнеса. В разные годы "Рождественские встречи" подарили нам многих звезд – Владимира Преснякова (   Читать дальше...   )01. Алла Пугачева - "Добраться домой" (А. Мисин, Н.Камлюк)
+02. Алла Пугачева - "Где же ты, любовь" (И.Корнилов, И.Каминская)
+03. FANATIKA - "Этот мир" (И.Привалов, И.Долматов, И.Привалов)
+04. Группа "Мачете" - "Папа" (Я. Малый)(   Читать дальше...   )Жанр: Тв-Шоу, концертПродолжительность: 02:22:43(01:07:01 + 01:15:36)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600047   (999028) от 07.01.2013
+
+Uriah Heep - Classic Heep Live From The Byron Era (2004) 2хDVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+На втором бонусном DVD  (под названием "Collectors Rarities") есть песни с Pinkpop 1976 с расширенным гитарным соло Mick Box. Другие сильные треки "Look at yourself", "The wizard" (акустическая гитара), а в кадрах песни "Июльское утро" (студийная запись 1972, США), обеспечивается великолепный обзор сверху на  орган Hammond B3 и Minimoog синтезатор! И мы можем наблюдать и John Wetton (только что покинувший Roxy Music) во время тура по США и Pinkpop 1976 года. В заключительной (   Читать дальше...   )Треклист:
+01. SUNRISE (Hensley) live Japan 1973
+02. TEARS IN MY EYES (Hensley) live Japan 1973
+03. TRAVELLER IN TIME (Byron/Box/Kerslake) live Japan 1973
+04. LOVE MACHINE  (Hensley/Byron/Box) live UK 1974
+05. SO TIRED (Box/Byron/Hensley/Kerslake/Thain) live UK 1974
+06. THE EASY ROAD (Hensley) live UK 1974
+07. ROCK ‘N’ ROLL MEDLEY live UK 1974
+08. RETURN TO FANTASY (Hensley/Byron) live USA 1975
+09. EASY LIVIN' (Hensley) live USA 1975(   Читать дальше...   )Жанр: Концерт, Hard RockПродолжительность: 02:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF05B376B03A3B9CE75F480D7E4B7E3513CAAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597924   (998999) от 07.01.2013
+
+Дискотека 80-х / Авторадио (2013.01.01) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Фестиваль "Дискотека 80-х" прошел в одиннадцатый раз под лозунгом "Rock&Dance" и преподнесет зрителям еще больше сюрпризов - суперзвездный состав артистов, новые имена, а главное - неординарное захватывающее шоу.
+Никогда ранее на фестивале "Авторадио" так широко не были представлены рок-музыканты. Каждое имя - эпоха, легенда, символ (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 04:33:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600340   (998896) от 08.01.2013
+
+Osibisa - Live At The Marquee 1983 (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Концерт одной из первых африканских групп, добившихся мировой известности(об участии их перкуссионистов в записи LP Uriah Heep "Look at Yourself", в частности, известно немногим), в лондонском клубе Marquee 5 апреля 1983 года.
+Несмотря на свое лондонское происхождение группа "Osibisa" была основана чернокожими музыкантами – тремя африканцами и (   Читать дальше...   )01. Fire
+02. Life
+03. Ayioko
+04. Paper / Match(   Читать дальше...   )Жанр: Концерт, Progressive Rock, JazzПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F3BA316232B6E55881088D210AE1DCF8E6272B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600409   (998826) от 08.01.2013
 
 VA - Tribute to Led Zeppelin (35th Kennedy Center Honors) (2012) HDRip
@@ -6,7 +214,7 @@ VA - Tribute to Led Zeppelin (35th Kennedy Center Honors) (2012) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +269,7 @@ Adele - Live At The Royal Albert Hall (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -96,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -124,7 +332,7 @@ Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -153,7 +361,7 @@ Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -179,7 +387,7 @@ Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -205,7 +413,7 @@ EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -231,7 +439,7 @@ U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +476,7 @@ DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +502,7 @@ Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +632,7 @@ Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +664,7 @@ Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,209 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B282CFF6DD516204A3CD2205599D6681523988AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602123   (997642) от 12.01.2013
-
-СупердискотЭка / Супердискотека 90-х. Санкт-Петербург, СКК (11.01.2013) HDTV [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дискотека Авария - Новогодняя
-02. Татьяна Булавнова - Мой ненаглядный
-03. Руки вверх! - Крошка моя (Live)
-04. Руки вверх! - Лишь о тебе мечтая (Live)(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:27:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602985   (997136) от 14.01.2013
-
-Helene Fischer - Live/Zum ersten Mal mit Band und Orchester  (2011) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт прошел 26 июня 2011 года в Кёльне (Германия) , при огромном стечении людей, билеты распроданы за месяц вперед и зал оказался переполнен.Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:44:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603364   (996877) от 15.01.2013
-
-Сборник клипов - Dj Vj Magrao Videomix (2011-2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов от DJ VJ Magrao (настоящее имя- Luis Eduardo), известного бразильского диджея.
-Magrao - один из пионеров видеомикс-направления.
-Отличительной чертой его миксов является присутствие юмора.
-Мегамикс - это видеосборник,составленный из небольших фрагментов клипов.(   Читать дальше...   )Жанр: Pop, Club, Dance, House, Video-MegamixПродолжительность: ~2011, V.10 - 01:09:13; 2012, V.11 - 01:29:54; 2012, V.12 - 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D6730DE5466DDC236D0B33C0BB2C498B4F818E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603800   (996648) от 16.01.2013
-
-Тина Тернер / Tina Turner video clips (2007) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличные клипы не стареющей Тины Тернер!01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita (Cant stop thinking of you)
-02. Foreign Affair
-03. Golden Eye
-04. I Don`t Wanna Loose
-05. Let's Stay Together
-06. Look Me In The Heart
-07. Love Thing
-08. Nutbush City Limits
-09. On silent wings
-10. Private dancer 1(   Читать дальше...   )Жанр: Музыка, Rock, PopПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58266E430B54423310326FF5154ED5BBFADD14EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603740   (996597) от 16.01.2013
-
-Дискотека 80-х 2012 Rock & Dance.Полная версия-оригинал (DVD-9)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: Актеры: Zodiac,Gorky Park,Silent Circle,Bad Boys Blue,Вячеслав Бутусов,C.C.Catch,Chris Norman,Boney MПеревод: ОтсутствуетПродолжительность: 04:18:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604401   (995990) от 18.01.2013
-
-Лучшие клипы / The best videos of all time (Rock) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ac Dc - Heatseeker
-02. Queen - We Are The Champions
-03. Ac Dc - T.N.T.
-04. Alice Cooper - Along Came A Spider(   Читать дальше...   )Жанр: Музыка, Rock, Glam rock, Hard rockПродолжительность: 02:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AAA22B4811144D8911AD5E22BC06E7F182F8D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605384   (995809) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Country) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carrie Underwood - Cowboy Casanova
-02. Caitlin Rose -  Own Side
-03. Chad Brownlee - Carried Away
-04. Chris Cagle -  What A Beautiful Day(   Читать дальше...   )Жанр: Музыка, CountryПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334837832A4569BF43B28D1E8CAAB4232D137AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

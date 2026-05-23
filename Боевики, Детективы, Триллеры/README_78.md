@@ -1,3 +1,111 @@
+###  Публикация: 1063991   (429781) от 18.10.2016
+
+Анжела Марсонс | Немой крик (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот роман Анжелы Марсонс стал безусловным международным бестселлером № 2, уступившим по продажам только «Девушке в поезде» Полы Хокинс.
+Археологи убеждены: в окрестностях Бирмингема, на территории давно сгоревшего детского дома, зарыт богатейший древний клад. Но городские власти упорно не желают выдавать разрешение на раскопки. Это кажется странным инспектору полиции (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективы, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394E81FF96F042AF6BFC641EEE57C2E30457EF97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323797   (429528) от 07.09.2019
+
+Жан-Кристоф Гранже | Багровые реки (2012) [PDF, FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+До того как занять видное место среди авторов криминально-детективного жанра, Жан-Кристоф Гранже работал журналистом, писал для целого ряда журналов во всём мире, затем стал независимым репортёром. Позже он основал собственное агентство новостей. Дебютная книга Гранже – «Полёт аистов» была опубликована в 1994 году, однако осталась практически незамеченной, чего никак (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1645B5D142E0B49156C92AAE2D71E5E999652A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946148   (428631) от 12.10.2015
+
+Давид Лагеркранц | Девушка, которая застряла в паутине (2015) [EPUB, FB2, TXT]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Четвертый роман цикла «Миллениум».
+Очень хорошо. Очень хорошо, что последний недописанный роман Стига Ларссона стал доступен читателям. Еще в 2011 году гражданская жена Стига заявила, что готова закончить роман мужа. Однако понадобилось 4 года, чтобы продолжение трилогии наконец вышло в свет. Честь завершить труд Ларссона выпала известному шведскому писателю и журналисту (   Читать дальше...   )Жанр: ДетективФормат: EPUB, FB2, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975C2ABDE888FA514D004B1211B7848C7DF4E649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064305   (427900) от 19.10.2016
+
+Брайан Макгиллоуэй | Девочка из прошлого (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Люси Блэк»
+
+Накануне Рождества на железнодорожных путях в окрестностях североирландского городка Дерри нашли тело девочки-подростка. Ее должен был переехать поезд, что инсценировало бы самоубийство. Вот только на рельсы девчушка попала уже мертвой… Специалист по работе с трудными подростками, сержант Люси Блэк хорошо знала погибшую и решила, что (   Читать дальше...   )Жанр: Полицейский детектив, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55772B27F3D28229FCACE82D24209C3362BDD73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064343   (427762) от 19.10.2016
 
 Наталья Андреева | Пока цветет лотос (2016) [FB2]
@@ -6,7 +114,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,113 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B09B79CD1507D5C86E89431F9E10CFD8DD105A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065374   (421111) от 22.10.2016
-
-Наталья Андреева | Любовь и смерть по вызову (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если женщине сказали, чтобы она не совала нос в какое-то дело, она его обязательно туда засунет. Только вы не будете ничего знать об этом.
-Да и как же не вмешиваться, когда по городу носятся какие-то отморозки. Они провоцируют аварии, а потом требуют, чтобы женщины расплачивались…
-Люба и ее подруга Апельсинчик жаждут справедливого возмездия и бросаются на поимку (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543FB85C489BA6E9E3506E57DB385D72865E3564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065365   (420835) от 22.10.2016
-
-Джон Гришэм | Вне правил (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Себастиан Радд - необычный адвокат. Его офис - пуленепробиваемый фургон c бесперебойным доступом к Интернету, шикарным баром, дорогими кожаными креслами и тайником, где хранится оружие. Его единственный помощник и единственный друг - вооруженный до зубов водитель, которому часто приходится перевоплощаться в телохранителя. Его номера вы не найдете в телефонном справочнике. (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694881EC23154E377091F2F2AB5EDC5DBF112616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412250   (420295) от 28.09.2020
-
-Фруде Гранхус | Водоворот (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалеко от города Будё в Северной Норвегии происходит нечто странное: на берегу появляются старинные фарфоровые куклы, прикрепленные к деревянным плотам, а затем – избитая девушка без сознания, одетая как одна из кукол.
-В это же время мальчишки находят на побережье человека, погруженного в ледяную воду, чьи руки прикованы к камню, а затем появляется еще одна жертва (   Читать дальше...   )Жанр: Полицейские детективы, Современные детективы, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8008908B930AD142A1AD2238227AD8B09D46A12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412201   (420293) от 28.09.2020
-
-Кристиан Роберт Винд | Нечто из Дарк Маунт (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцатилетний Стэнли Вайд найден повешенным в заброшенном доме городка Дарк Маунт, где он жил последние несколько недель. Однако произошедшее не выглядит как банальное самоубийство: вокруг кровати расставлены зеркала, позволяющие видеть, что происходит под ней, а все стекла в старом доме закрашены отражающей краской. Друзья Стэнли Вайда в один голос утверждают, (   Читать дальше...   )Жанр: Современные детективы, Мистика, Триллеры, ХоррорФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD577474C1B6199A4F0FD536BED0919207731C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

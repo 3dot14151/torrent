@@ -1,3 +1,205 @@
+###  Публикация: 1119754   (805741) от 29.03.2017
+
+Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Thanks So For Pushing Record Button [00:04:15]
+02. Deep Inside [00:06:16]
+03. Don't look at him [00:04:32]
+04. Forest Soul [00:05:34](   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B541FD1F308343275FE907325489D01ADCE1E311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010059   (805670) от 23.04.2016
+
+Leo Rojas - Spirit Of The Hawk (2012) [FLAC|Lossless|tracks + .cue] <Panflute, New Age, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Rain (Part 1)
+02. Winnetou
+03. White Arrows
+04. En Aranjuez Con Tu Amor(   Читать дальше...   )Жанр: Panflute, New Age, FolkПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A418357F65C8206D9E1D5457ADA5D89474D373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119826   (805616) от 29.03.2017
+
+Tim Wheater - Whalesong (1991) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing With The Whales (30:19)
+02. Whale Echoes (30:54)
+03. Song Of The Southern Humpback Whale (10:41)Жанр: New AgeПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264CC15CE788209F41A7CAD5137AEDD54FB47EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119778   (805611) от 29.03.2017
+
+Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rusalka (04:52)
+02. Portrait (02:57)
+03. Lake Ritual (01:08)
+04. Red Star (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8FF6C9F3E9B9D748B2E0AD0DE8A3F3BAF5807E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119633   (805602) от 29.03.2017
+
+Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the ISS (04:32)
+02. It's Alive (03:55)
+03. Like a Bird (02:11)
+04. Care to Dance ? (01:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06EF799BF014E585A3D082AA330808AC16A24108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119638   (805601) от 29.03.2017
+
+Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Power Rangers Theme (04:22)
+02. Seek Those Who Are Worthy (02:50)
+03. Zordon Awakes (02:15)
+04. It's Morphing Time! (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9C04A6A67540C02A61C065B022397D055E72F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119641   (805494) от 29.03.2017
+
+Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Power Rangers Theme (04:22)
+02. Seek Those Who Are Worthy (02:50)
+03. Zordon Awakes (02:15)
+04. It's Morphing Time! (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB33A94814C5E4C37EB3D9875E028207CC010328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119731   (805489) от 29.03.2017
 
 Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +208,7 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +237,7 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +266,7 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +295,7 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +324,7 @@ VA - Acoustic Covers The Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +353,7 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +382,7 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +411,7 @@ Clinton Shorter - The Expanse / Пространство - Season One (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +440,7 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +469,7 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +498,7 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +527,7 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +556,7 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +585,7 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +643,7 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +672,7 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +701,7 @@ David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +730,7 @@ Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,209 +744,6 @@ Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198731   (802711) от 14.01.2018
-
-Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dislodged (4:03)
- 02.  Distant (2:36)
- 03. Absent (2:28)
- 04. Healing (1:58)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFBF0B7039CCF736D8A79E5819FAB0EFA413067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198624   (802705) от 14.01.2018
-
-Jonny Greenwood - Phantom Thread / Призрачная нить (2018) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Indian Classical, Experimental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantom Thread I (03:36)
-02. The Hem (02:43)
-03. Sandalwood I (02:40)
-04. The Tailor of Fitzrovia (02:31)(   Читать дальше...   )Жанр: Indian Classical, ExperimentalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D669D862BDAD91849EA63D485F473AB343AEF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498590   (802379) от 14.01.2018
-
-Братина - 8 альбомов (2003-2014) [MP3|320 Kbps] <Folk, Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802379.jpg" />
-</div>
-
-
-###  Подробнее
-
-2003 - Вдоль по линии Кавказа
-2005 - Горы вы Кавказские
-2007- По морю было по хвалынскому
-2007- Прости, звезда(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 07:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D35702142F16C5E065AE87647AC47C7C80B1795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120683   (802092) от 31.03.2017
-
-Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Coughlin (02:59)
-02. Albert’s Girl (02:45)
-03. The Getaway (03:05)
-04. Aftermath (02:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02D9777F18AA69564907CF58EAAEAFDAC9BA1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120686   (802049) от 31.03.2017
-
-Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Coughlin (02:59)
-02. Albert’s Girl (02:45)
-03. The Getaway (03:05)
-04. Aftermath (02:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9499C45AFB520F3C744E7AA5C5AA76069BFD6007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120253   (802005) от 31.03.2017
-
-Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skies
-02. Shooting Star
-03. United
-04. ForAva(   Читать дальше...   )Жанр: Electronic, Downtempo, New AgeПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EC8DCCF04EFB94386C97D3A4D953EDAC3F2D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010134   (801981) от 25.04.2016
-
-Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб/с] <Harp, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of Death	(7:12)
-02. Hotel California	(4:57)
-03. Eye of the Tiger	(2:40)
-04. The Unforgiven	(4:58)(   Читать дальше...   )Жанр: Harp, InstrumentalПродолжительность: 02:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC39E462D08E47AA149216A8085C804A1DF66A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

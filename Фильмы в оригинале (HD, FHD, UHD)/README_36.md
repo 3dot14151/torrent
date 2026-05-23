@@ -1,3 +1,81 @@
+###  Публикация: 1158388   (493399) от 15.08.2017
+
+Трансфигурация / The Transfiguration (2016) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Трудный подросток Майло одержим историями о вампирах. Однажды он встречает Софи, и дружба с ней начинает превращать фантазии Майло в реальность.Производство: СШАЖанр: ужасы, драмаРежиссер: Майкл О’ШиАктеры: Джеймс Лоринз, Кит Мэклер, Ллойд Кауфман, Анна Фридман, Дэн Флаэрти, Виктор Паган, Хлоя Ливайн, Хосе Лопез, Фрэнк Л. Мессина, Хосе Игнасио Гомез, Картер Редвуд, Аарон Мотен, Тайлер Росселл, Эрик Руффин, Ларри Фессенден, Сэмюэл Х. Ливайн, Нора ВулиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19CD5BEAA1480BF32C0AE56EACF3672EE705CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158319   (493316) от 15.08.2017
+
+Спасатели Малибу / Baywatch (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа пляжных спасателей работает на побережье Тихого океана. Они всегда находятся на своем посту и охраняют отдыхающих от несчастных случаев на воде. Главный герой, опытный спасатель Митч Бьюкеннон, и его молодой коллега Мэтт Броди случайно узнают, что их пляж находится под угрозой исчезновения. Большая нефтяная компания собирается разрушить побережье, преследуя (   Читать дальше...   )Производство: США, Paramount Pictures, Flynn Picture Company, Fremantle ProductionsЖанр: Боевик, Комедия, ДрамаРежиссер: Сет ГордонАктеры: Дуэйн Джонсон, Зак Эфрон, Приянка Чопра, Александра Даддарио, Келли Рорбах, Ильфенеш Хадера, Джон Басс, Яхья Абдул-Марин II, Хэннибал Бёресс, Роб Хюбель ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DA72A851F7CAD45B115BF816A4E08A5894AA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243583   (491890) от 27.08.2018
+
+Невидимка / In Darkness  (2018) BDRemux [H.264/1080p] [EN / EN, Dan, Fin, Nor, Sw Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Девушка в темноте, как называют слепую Софию, становится невольным свидетелем убийства дочери опасного международного преступника. Но несмотря на слепоту, София не так беззащитна, как считают мафия и спецслужбы.Производство: Великобритания, США / 42Жанр: триллерРежиссер: Энтони БирнАктеры: Натали Дормер, Эмили Ратаковски, Эд Скрейн, Джоэли Ричардсон, Джеймс Космо, Нил Мэскелл, Эмбер Андерсон, Ян Бейвут, Бернард Коллако, Олегар Федоро, Лекси Бенбоу-Харт, Дэниэл ИганПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, датские, финские, норвежские, шведскиеПродолжительность: 01:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F72AAA25530B18696F34F68A18BE134BB47FD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158368   (491844) от 16.08.2017
 
 Мальчики на деревьях / Boys in the Trees (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B52FC40C6DD7EC969F1516C5A7927C5AF1437939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938447   (481294) от 18.09.2015
-
-Кутис / Cooties (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481294.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной частной закрытой школе появился страшный вирус! Маленькие хорошенькие детки в одночасье превратились в адских зомби, которые хотят сожрать своих любимых учителей и одноклассников. Война начинается! И не на жизнь, а на смерть.Производство: США, Россия, SpectreVision, Glacier FilmsЖанр: ужасы, фантастика, боевик, комедияРежиссер: Джонатан Милотт, Кэри МернионАктеры: Элайджа Вуд, Рэйн Уилсон, Элисон Пилл, Джек МакБрайер, Ли Уоннелл, Назим Пэдрад, Иэн Бреннан, Хорхе Гарсиа, Санни Мэй Эллисон, Армани Джексон и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6A3CBA675959288925E7A0C213A961F6D351FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159907   (479637) от 22.08.2017
-
-2pac: Легенда / All Eyez on Me (2017) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестная, скрытая за газетными заголовками и вспышками фотоаппаратов история человека, ставшего рэп-легендой и погибшего в свои 25. Правда о том, как чернокожий выходец из гетто, участник криминальных разборок, неоднократно привлекавшийся к суду и развязавший смертельную войну рекорд-лейблов, становится настоящим голосом улиц и одним из самых влиятельных исполнителей (   Читать дальше...   )Производство: США, Morgan Creek Productions, Program Pictures, Voltage PicturesЖанр: Биография, Драма, МузыкаРежиссер: Бенни БумАктеры: Деметриус Шипп мл., Данай Джекесай Гурира, Катерина Грэхэм, Хилл Харпер, Энни Илонзе, Лорен Кохэн, Кит Робинсон, Джамал Вулард, Доминик Сантана, Кори Хардрикт ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9A392D4906D6D561A42B8F31A0D0ECBA598168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160098   (477690) от 23.08.2017
-
-Леди Макбет / Lady Macbeth (2016) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Викторианская Англия 19-го столетия. Небольшая деревня, живущая в соответствии с особыми укладами и нравами, присущими той поре. Молодая девушка по имени Кэтрин проживает скучную и ничем не примечательную жизнь. Всё меняется, когда она узнает, что должна стать супругой мужчины, который вдвое старше её. Новоиспеченная семья относится к Кэтрин с пренебрежением и даёт (   Читать дальше...   )Производство: ВеликобританияЖанр: драмаРежиссер: Уильям ОлдройдАктеры: Флоренс Пью, Космо Джарвис, Пол Хилтон, Наоми Эки, Кристофер Фэйрбэнк, Голда Рошевель, Антон Палмер, Ребекка Мэнли, Флер Хаудейк, Клиф БёрнетПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DD43F83E8EB6BC33437951EDEF76D94ED77F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

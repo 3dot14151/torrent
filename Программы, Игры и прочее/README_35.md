@@ -1,3 +1,81 @@
+###  Публикация: 1482094   (1007846) от 06.07.2021
+
+KISS Launcher 3.16.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+KISS - минималистичный и невероятно легковесный лаунчер. Он занимает менее одного мегабайта и почти не потребляет оперативную память. В нем нет поддержки виджетов и навороченных функций, только список установленных приложений и игр со строкой поиска. Самые нужные приложения можно закрепить внизу экранаТип издания: ОригиналРелиз состоялся: 26.03.2021Разработчик: NeamarПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28B7A0D44541331385003C3C768B78E6C5AEBD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482250   (1007588) от 08.07.2021
+
+F-Stop Gallery Pro 5.3.24 Mod by Balatan [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+F-Stop Gallery - Обзор, организация и защита паролем медиа-файлов. "Все-в-одном" приложении, позволяющем обеспечить все вышеперечисленные функции на Вашем Android-устройстве, бесплатно! F-Stop Media Gallery позволяет просматривать медиа-файлы по папкам, альбомам, тегам, рейтингу, частоте просмотра и т.д. Миниатюры мгновенно отображаются, в независимости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.07.2021Разработчик: Seelye EngineeringПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94528C5D260BA2DC936B7D81541F70EADD2E01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482329   (1007576) от 08.07.2021
+
+Kuji Cam 2.21.29 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Kuji Cam - это необычная камера с винтажными эффектами для любителей ушедшей эпохи и для всех желающих поэкспериментировать с фото. Все знают про фотоаппарат Polaroid и какие же атмосферные снимки были сделаны с его помощью. Если такого чуда техники не осталось в гараже и чулане, а тратить баснословные суммы на его наследника нет желания, тогда на помощь спешит Kuji (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.09.2020Разработчик: GinnyPixПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B22AA4BB2533873F1423A9AE28D51A1BB46FA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482309   (1007572) от 08.07.2021
 
 Power Shade: Notification Panel & Quick Settings 18.1.0 Mod by Mixroot, mak7im01 [Ru/En]
@@ -6,7 +84,7 @@ Power Shade: Notification Panel & Quick Settings 18.1.0 Mod by Mixroot, mak7im01
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ TickTick: Менеджер задач, Органайзер и Календар�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ WeNote - Заметки, задачи, напоминания и календа�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляем
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +217,7 @@ Eon Music Player Pro 5.5.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +269,7 @@ Shadow Fight 2 v2.14.0 + v2.10.1 (Mod) [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +295,7 @@ Get aCC_e55 1.1.50 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +321,7 @@ Correct spelling v11.0 [En] - English learning app
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +347,7 @@ Measure Map v1.2.23 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +373,7 @@ Blokada - AD Blocker for Android v5.14.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +425,7 @@ Picture Fish - Fish Identifier v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +452,7 @@ File Converter v12.1.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +478,7 @@ Photo Translator v8.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +507,7 @@ Alien Shooter Anthology [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +613,7 @@ Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изобра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +640,7 @@ Money Pro v2.0.13  [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -588,7 +666,7 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,84 +677,6 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A1D5C6A04B62570D74270B4210E818B84A6FBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352096   (1001585) от 12.01.2020
-
-Shadow Fight 2 Special Edition v1.0.7 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Fight 2 Special Edition – продолжение одного из самых популярных мобильных файтингов, сиквел получил не только новую сюжетную линию, новые игровые возможности и массу совершенно нового контента, но и обновленную графику. Изначально проект вышел в Play Market в виде бесплатного приложения, что конечно же наложило свои особенности. Но вот разработчики порадовали (   Читать дальше...   )Тип издания: Мод Unlocked (Не ограниченное кол-во игровой валюты)Релиз состоялся: 17 августа 2017 годаРазработчик: NEKKIПоддерживаемая ОС: Android 4.1+Жанр: ЭкшенЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCB35818B2BAC6DB36AA447A9932D3D05031770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352082   (1001554) от 12.01.2020
-
-Terraria v1.3.0.7.6 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terraria (Террария) – это знаменитая игра из жанра "песочница", которая появилась и на Андроид. Для каждого игрока создаётся свой уникальный мир, который вы пытаетесь пройти. Развивайте своего персонажа, находите новые виды оружия, сокрушайте боссов, стройте свой дом и старайтесь выжить любой ценой.Тип издания: Пиратка (Mod: активировано бессмертие)Релиз состоялся: 16 мая 2011 годаРазработчик: 505 Games SrlПоддерживаемая ОС: Android 4.0+Жанр: RPGЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D012998CA421A89E442614EDB4B21079763915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352062   (1001541) от 12.01.2020
-
-Fake GPS Location v3.5 [En/Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот инструмент позволит вам обмануть ваш GPS (Global Positioning System) приемник и установить любое место на земле. Ваш телефон будет верить, что она находится в совершенно другом месте, чем это будет на самом деле (например, романтический Париж, современный Нью-Йорк или экзотический Бангкок). Вам нужно только указать новое положение на карте и начать поддельные (   Читать дальше...   )Тип издания: Пиратка (Разблокирована Pro)Релиз состоялся: 21.12.2019Разработчик: Just4FunПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский / Русский (русифицирована)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B6A9DC97122F44C20E62317D39CE4D9A1E8A2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1340493   (339192) от 28.10.2020
+
+Sniper Ghost Warrior Contracts (2019) [Ru/En] (5730292/upd16/dlc) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте себя в роли настоящего снайпера на суровых просторах Сибири благодаря новейшей игровой системе на базе контрактов, подстегивающей стратегическое мышление. Выполняйте интересные задания, имеющие множество вариантов прохождения.Тип издания: RepackРазработчик: CI GamesЖанр: Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B16FCB11F3532CC0E1BD4974AEF2AF8A64A7858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180696   (339160) от 04.11.2017
+
+Call of Duty: WWII (2017) [Ru/En] (1.3) SteamRip R.G. Origins [Singleplayer Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: WWII достоверно покажет Вторую мировую войну, представит игровой процесс нового поколения и предложит три режима: «Кампания», «Сетевая игра» и «Совместная игра». События сюжетной кампании развернутся на европейском театре военных действий, где вас ждет абсолютно новая историяТип издания: SteamRipРазработчик: Sledgehammer Games, Raven SoftwareЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6843334494CD8D745329CE296F91CAA752EDA1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954612   (338834) от 08.11.2015
+
+Viktor Kalvachev's - Blue Estate: The Game (2015) [En/Multi] (1.0) Lossless Repack R.G. Origami
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Blue Estate дарит уникальное погружение в мир мафии Лос-Анджелеса, увлекая бесконечным юмором, оригинальным геймплеем и невероятным весельем! В Blue Estate вы играете за Тони Лучиано, нервного сынка крестного отца итальянской мафии Лос-Анджелеса, и за Кларенса, бывшего морского котика, без гроша в кармане, который стал киллером и твердо вознамерился разгрести кашуТип издания: Lossless RepackРазработчик: HeSawЖанр: Arcade (Shoot'em up) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1C8DD7AE477EF0F0FE94E46DA6AFD7E54BDE47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074473   (337328) от 19.11.2016
+
+Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отряд профессиональных бойцов отправляется на разведку к одной из космических станций. После несчастного случая данная станция была полностью эвакуирована очень много лет назад, а защитное поле заблокировало все выходы наружу. Но поступивший оттуда сигнал, заставил командование обеспокоиться. В ходе разведки корабль отряда обстреливают и оставшиеся в живых приходят (   Читать дальше...   )Тип издания: RepackРазработчик: Black Lime StudioЖанр: Action, 3D, 1st PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75E481ABDE9FA430EC94FD6F39BE1D3A6053999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419652   (336915) от 29.10.2020
 
 Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
@@ -6,7 +110,7 @@ Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.0) License Razor1911
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Prodeus (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинград
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Gun [Ru/En] (RePack) 2005 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +428,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) License RELOADED [Digital Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +454,7 @@ Prodeus (2022) [Ru/Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +480,7 @@ Kingpin: Life of Crime [Ru] (RePack) 1999 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ PositronX (2020) [En] (1.0.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +532,7 @@ Crimson Earth 2 (2017) [En] (2.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3.1.15989/mp) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +584,7 @@ In Sound Mind (2021) [Ru/Multi] (1.016) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Get Even (2017) [Ru/Multi] (1.0/Upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +636,7 @@ NecroVisioN: Lost Company / NecroVisioN: Проклятая рота (2010) [Ru/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +662,7 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,110 +673,6 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2605923FC8AD9058995C5E8E21F4C1382DD73D7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260484   (311091) от 07.11.2018
-
-The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры The Dark Occult происходит в заброшенном доме 30-х годов XX века, где пыльные окна, закрытые ставни и все вокруг покрытое паутиной говорит о том, что в нем никто не живет. Вначале вы воспринимаете любой шорох и вой ветра как само собой разумеющееся, но после того как там начинают происходить действительно паранормальные и необъяснимые события, то вы (   Читать дальше...   )Тип издания: LicenseРазработчик: RYM GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B93587F711C1D764439C58E18536242BECB7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186001   (311055) от 07.11.2018
-
-Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказавшись в плену мрачного, неприветливого мира и ожидая расплаты за земные грехи, вы должны проложить путь через бессчетные толпы врагов, предотвратить начало Нечестивой войны и низвергнуть Люцифера. Но даже если вы одержите верх в этой безумной битве, вам придется уничтожить орды жутких демонов, жаждущих отомстить за своего владыку. Вы – последняя надежда ангелов. (   Читать дальше...   )Тип издания: LicenseРазработчик: People Can FlyЖанр: Шутер, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ФранцузскийЯзык интерфейса: Русский, Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CE4E3EF38CC7B2DF4052F103B0E7E13A634F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077799   (305972) от 28.11.2016
-
-Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кровь (2009) [Ru/Multi] (1.206580) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк культового шутера, разработанный на основе мощного графического движка Serious Engine 3. На заре XXI века человечество сделало невероятное открытие огромного научно-исторического значения. Плохо одно - открытие это ведет к неминуемой гибели планеты. Вся надежда на Крутого Сэма. У героя есть лишь один шанс, чтобы изменить прошлое и спасти человечество.Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8238D832721CE5F3FF3E9DF858BF55D9AE1697E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960910   (304579) от 29.11.2015
-
-Serious Sam: The First Encounter / Крутой Сэм: Первая кровь (2001) [Ru/En] (1.05) Repack R.G. Механики
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304579.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 21 века человечество на раскопках одной из первых и древнейших цивилизаций, древнеегипетской, обнаружило дурно пахнущие останки другого, еще более древнего, но довольно продвинутого в техническом плане мира, существовавшего на нашей планете хрен знает сколько лет назад.Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B63239DF79948E3D0E2DF1EBF9676D7C220955
 ```
 
 https://mybot314.ru/tekegram_catalog/

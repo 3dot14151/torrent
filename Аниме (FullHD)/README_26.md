@@ -1,3 +1,56 @@
+###  Публикация: 857688   (657343) от 31.05.2015
+
+Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых тонах [2014, TV, 13 эп. + 6 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юдзи Кадзами в 10 лет потерял родителей и был воспитан людьми, для которых писаные законы – пустой звук, а чужие жизни – что трава на ветру. Творя разное, парень быстро познал законы темного мира, и ныне его разум отточен, рефлексы – совершенны, а принципы гибки, как стальной клинок. Но даже сталь имеет предел усталости, и «рыцарь ночи» обратился к знакомой хозяйке (   Читать дальше...   )Производство: 8bitЖанр: романтика, комедия, драма, триллерРежиссер: Танака МотокиПеревод: TimecraftЯзык субтитров: Русский (отключаемый)Продолжительность: 13 серий по 24 минуты + 6 спешиалов по 5 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7D650F5F73EBA44E5F69A82FB64537536F104E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539815   (656115) от 27.03.2022
+
+Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группировка противника собирает магатамы, которые получает в основном через силовое изъятие.
+Группа наших героев собралась в кружок чтобы обсудить мотивы Химико и планы противника, и после собрания все единогласно решили пойти на школьную экскурсию, горячие источники посмотреть и свои достоинства показать. Но, как оказалось, враг не дремлет, поэтому это школьную (   Читать дальше...   )Производство: Студия Arms / アームスЖанр: приключения, эттиРежиссер: Ватанабэ ТакасиПеревод: KajitsuЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2B21DE6D17482B7FF1D84A0E2B67458DEB9F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139328   (654850) от 07.06.2017
 
 Оккультная;Девятка | Occultic;Nine [2016, TV, 12 эп.] BDrip 1080p 10-bit raw
@@ -6,7 +59,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Code Geass: Boukoku no Akito / Code Geass: Akito the Exiled / Изгнанник
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +115,7 @@ Appleseed | Яблочное зернышко [2004, Movie] BDRip 1080p HEVC 10-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +141,7 @@ Scarlet Nexus | SCARLET NEXUS: Красные нити | Алый Нексус [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +167,7 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +193,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +219,7 @@ Persona 5 the Animation (2018) | Персона 5 (спэшл 2) [2018, Special,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +245,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +273,7 @@ Jujutsu Kaisen | Магическая битва [2021, TV, 24 из 24] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +299,7 @@ Free! Eternal Summer / Вольный! Вечное лето [2014, TV, 13 + 1sp
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +325,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +377,7 @@ Fushigi na Somera-chan / Magical Somera-chan / Волшебница Сомера
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +403,7 @@ Asa made Jugyou Chu! / See Me After Class! / Дополнительные зан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +432,7 @@ Ooya-san wa Shishunki! / Хозяйка квартиры — подросток 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +458,7 @@ Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +485,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +511,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +537,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Судьба
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +563,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru | Лучший в ми�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +590,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +616,7 @@ Bungaku Shoujo - Kyou no Oyatsu ~Hatsukoi~ / Book Girl / Книжная лако
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +643,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +669,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,60 +680,6 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926B4EFD69E652AC989E8C3610A2895F703FFBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286527   (631693) от 06.04.2019
-
-SSSS.Gridman | Гридмен [2018, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юта Хибики, ученик первого класса старшей школы, однажды просыпается и выясняет, что потерял память. И ещё он обнаруживает «Гиперагента Гридмана» в своём старом компьютере. Последний заявляет, что у школьника есть некая миссия, и тот отправляется выяснять, в чём же она заключается, и заодно с чего это вдруг у него амнезия. Рядом с Ютой всегда его друзья Що Уцуми, (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: приключения, фантастика, мехаРежиссер: Амэмия АкираПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45FBECC593C044CB9AA81CFE814C30F01A6B9A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294028   (631691) от 06.04.2019
-
-A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631691.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе научных исследований в Японии 2035 года происходит инцидент под названием Разрыв, в результате которого искусственная форма жизни под названием Материя выходит из-под контроля и распространяется по всей территории ущелья Куробе. Теперь город, ранее бывший центром научных исследований и надеждой человечества, находится в оцеплении.
-
-Спустя два года после происшествия (   Читать дальше...   )Производство: студия BONES / ボンズЖанр: приключенияРежиссер: Мурата КадзуяПеревод: MedusaSubsЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B74EF3C34157E2C00DB52FF0B93F01499B306C
 ```
 
 https://mybot314.ru/tekegram_catalog/

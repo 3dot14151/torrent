@@ -1,3 +1,269 @@
+###  Публикация: 935307   (499149) от 08.09.2015
+
+Debian Linux 8.2 Jessie [i386] 3xDVD + 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представлено корректирующее обновление Debian 8.2, которое включает 68 обновлений с устранением проблем со стабильностью и 61 обновление с устранением уьязвимостей. Системы, установленные ранее и поддерживаемые в актуальном состоянии, получают обновления, присутствующие в Debian 8.2, через штатную систему установки обновлений. Включенные в новые выпуски Debian исправления (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4EA940CD7F91FE1C47FFC9CBFA7571050D543A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935320   (499015) от 08.09.2015
+
+Debian Linux 8.2 Jessie [amd64] 3xDVD + 1xCD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представлено корректирующее обновление Debian 8.2, которое включает 68 обновлений с устранением проблем со стабильностью и 61 обновление с устранением уьязвимостей. Системы, установленные ранее и поддерживаемые в актуальном состоянии, получают обновления, присутствующие в Debian 8.2, через штатную систему установки обновлений. Включенные в новые выпуски Debian исправления (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E6CD221BFC8EFEB186BE32BA04656166BE2040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053457   (496250) от 18.09.2016
+
+Slackel Openbox 6.0.7 Live (Легкий дистрибутив) [x86, x86-64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обновлен Slackel Live – использующий последнюю стабильную версию рабочей среды Openbox,  GNU/Linux на базе current-ветки Slackware, а также на Salix. Поддерживается установка на жесткий диск, клонирование. В этом релизе включена поддержка загрузки UEFI и CSM (legacy / BIOS).
+
+В версию дистрибутива включены  браузер Firefox, Claws-Mail, Transmission, PCmanFM file manager, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93609EB44411B1D684CB19D4B93AF992FE471124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054301   (492169) от 20.09.2016
+
+Debian GNU/Linux 8.6.0 Jessie [i386] 3xDVD, 1x netinstCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Debian выпустили шестое обновление для стабильного дистрибутива Debian 8 (Jessie). Релиз 8.6 в основном исправляет проблемы с безопасностью, а также вносит некоторые коррективы в работу. В общей сложности он содержит 93 обновления безопасности и 77 обновлений с устранением проблем со стабильностью. Рекомендации по безопасности опубликованы отдельно и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682580E8FA48299945BE52B89E787D4B8BF51E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936753   (491334) от 13.09.2015
+
+Arch Linux 2015.09.01 [i686, x86-64] 1xCD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Arch — «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
+
+В Arch (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252B8CB7144FA583DE1A68A0298E1EE255B7C7AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318755   (490505) от 08.08.2019
+
+BackBox Linux v6 [Аудит безопасности, хакинг] [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+BackBox - дистрибутив Linux для пентеста, основанный на Ubuntu 18.04 LTS, который также ориентирован на оценку безопасности и предоставляет набор инструментов для анализа сетевых и информационных систем. Среда рабочего стола BackBox включает в себя полный набор инструментов, необходимых для этического хакинга и проверки безопасности.
+
+Главная задача BackBox — предоставление (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7FC3B1564B6B3B93A2E415BAC3A4E7DA965E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939206   (477681) от 20.09.2015
+
+Sabayon 15.09 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd64] 6xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Sabayon Linux 15.09, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B9C5C35D303BE7DC4A9141437F1971EE39B54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939171   (477558) от 20.09.2015
+
+Manjaro Linux 2015.9 MATE [i686, x86-64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net. В релизе представлены дистрибутивы с DE MATE, который является форком от (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0859F2C4AA109962FD90F1640611A987B66534BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939203   (477556) от 20.09.2015
+
+Pinguy OS 14.04.3 [i686] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Pinguy OS 14.04.3 - это дистрибутив на базе Ubuntu 14.04.3 LTS с множеством популярных и полезных приложений. Основное отличие от Ubuntu - уже настроенные приложения, начиная от драйверов и настроенного compiz, до установленных плагинов на Mozilla Firefox. Возможно не всем будут удобны интегрированные в систему настройки, но явно многим, так как они создавались по (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217A886DBF5888DCE19E0D7F5B5EB90B7D3BF914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939200   (477419) от 20.09.2015
+
+Pinguy OS 14.04.3 [x86-64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Pinguy OS 14.04.3 - это дистрибутив на базе Ubuntu 14.04.3 LTS с множеством популярных и полезных приложений. Основное отличие от Ubuntu - уже настроенные приложения, начиная от драйверов и настроенного compiz, до установленных плагинов на Mozilla Firefox. Возможно не всем будут удобны интегрированные в систему настройки, но явно многим, так как они создавались по (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C63E1F7E1B91214048205358BD5B6DA61A4A95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939094   (476960) от 20.09.2015
 
 Astra Linux Common Edition 1.10.5 [x64,x86] 3xDVD
@@ -6,7 +272,7 @@ Astra Linux Common Edition 1.10.5 [x64,x86] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +298,7 @@ Bodhi Linux 2.4.0 [x86, x86-64] (3xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +326,7 @@ Debian GNU/Linux 8.2.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +352,7 @@ Debian GNU/Linux 8.2.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +378,7 @@ BackBox Linux 3.09 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +408,7 @@ KNOPPIX 8.6 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +434,7 @@ Manjaro Linux 0.8.7.1 (Arch + XFCE, LXDE, openbox, net: легкий дистр�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +462,7 @@ Antergos 18.9 18.9 [i586, x86_64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +488,7 @@ Debian Live GNU/Linux 9.1.0 + nonfree Stretch [amd64] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +514,7 @@ Debian Live GNU/Linux 9.1.0 + nonfree Stretch [i386] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +540,7 @@ BlackArch Linux 2017.08.30 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +566,7 @@ Manjaro Linux 15.09 (KDE, Xfce, LXDE, LXQt + netinstall) [i686] 2xDVD + 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +592,7 @@ Calculate Linux 15 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +620,7 @@ Calculate Linux 15 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +648,7 @@ Kubuntu LTS 18.04.1 [x86_x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +674,7 @@ KNOPPIX 8.2 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,283 +685,6 @@ KNOPPIX 8.2 [x32, x64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E179D9D5B3886F8F3719DF04851000FDF2923B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552553   (447452) от 26.09.2012
-
-Cr OS Linux (ex. Chrome Linux OS) 2.2.1226 [i686] (1xDVD + 1xUSB)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cr OS Linux (произносится как Cros Linux) является свободной OS, построенной вокруг революционного браузера Chromium. Разработчики называю процедуру построения этой OS - хромирование, т.к. это стабильная и блестящая OS.
-
-Этот проект с открытым кодом предоставляет легкий дистрибутив, который похож на Google Chrome OS и может быть использован на любом x86 PC, ноутбуке или нетбуке.
-
-Включает в себя: Linux kernel 3.4.6; Cinnamon 1.6; Chromium 22.0.1226; InSync beta 5 клиент для Google Drive; Banshee 2.4: Shotwell 0.12; GIMP 2.8; LibreOffice 3.5 office suite; Wine 1.5; Cheese 3.4 и многое другое.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943689   (446652) от 04.10.2015
-
-KaOS Linux 2015.10 (Arch + Plasma KDE 5) [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект KaOS представил октябрьский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. К наиболее существенным изменениям разработчики относят: Ncurses 6.0 stack, OpenCV 3.0.0 stack, Xfsprogs 4.2.0, grub 2.02beta, Networkmanager 1.0.
-
-Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E177C337F331DC888D545B0F819374A89537DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943352   (446465) от 04.10.2015
-
-Arch Linux 2015.10.01 [i686, x86-64] 1xCD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arch — «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
-
-В Arch (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2460D6C8AFF3FEE67330AB3725C4A1E5D84A7DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248017   (443917) от 19.09.2018
-
-ArcoLinux (Budgie, Сinnamon, Deepin, Gnome, Mate, KDE, XFCE) 18.9.5 [x86_x64] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443917.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArcoLinux ранее - ArchMerge дистрибутив, сочетающий в себе мощь ArchLinux и пользовательского репозитория AUR, а также собственных наработок авторов Arcolinux. Данная версия включает в себя окружения рабочего стола Budgie, Сinnamon, Deepin, Gnome, Mate, KDE, XFCE, установщик Calamares и различный софт, темы и иконки, устанавливаемые "из коробки". Остальное (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2EFE01B75FBDC70AC2EB9922F535B2E483A6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553842   (440340) от 29.09.2012
-
-Slackware 14.0 [x32, x64] (2xDVD)
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slackware Linux — один из старейших дистрибутивов Linux. Его иногда называют самым UNIX’овым. Поклонникам этого дистрибутива приписывают высказывание: Если вы знаете Red Hat, то всё, что вы знаете, — это Red Hat, если вы знаете Slackware — вы знаете Linux.
-
-Команда разработчиков с  гордостью объявила о выходе финального релиза Slackware 14.0.
-Как пишут разработчики в релиз внесено множество существенных изменений. Например, ядро было заменено на современную версию 3 (в данном случае используется ядро LTS версии - 3.2.29; X.Org обновлен до версии X11R7.7, и Firefox - до версии 15.0.1. В целом же изменения затронули большую часть стандартных пакетов.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943685   (440085) от 07.10.2015
-
-Sabayon 15.10 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd64] 5xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 15.10, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7C167D7290C744807A53C3E73FABD90D07B8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323131   (437348) от 03.09.2019
-
-BlackArch Linux 2019.09.01 [Хакинг, аудит, безопасность] [x86_x64] 1xDVD + 1xNetinstallCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опубликованы новые сборки BlackArch Linux, специализированного дистрибутива для исследований в области безопасности и изучения защищённости систем. Дистрибутив построен на пакетной базе Arch Linux и включает около 2300 связанных с безопасностью утилит. Поддерживаемый проектом репозиторий пакетов совместим с Arch Linux и может использоваться в обычных установках Arch (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E704D04CBDF072A043C8872B97F49638324093D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708858   (425618) от 10.10.2013
-
-Bugtraq II Black Widow KDE (хакинг и анализ безопасности) [x32, x64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bugtraq II - дистрибутив с широким спектром применения для анализа безопасности и хакинга. Bugtraq может быть установлен с Live DVD или USB-диска. Avira, BitDefender, ClamAV, Avast, AVG , уникальные сценарии Bugtraq-Team (SVN обновления инструментов, удаление треков, бэкдоров, Spyder-SQL и т.д.) Bugtraq доступен на английском, испанском языках. Также в этот релиз предполагается включить еще 11 языков. С другой стороны, дистрибутив базируется на Ubuntu и Debian - соответственно может быть представлен в любой доступной локали.
-
-В дистрибутив вошли ядра Linux 3.2 и 3.4 PAE. Bugtraq доступен с  XFCE, Gnome и KDE. В данном релизе дистрибутив основанный на Debian и Ubunrtu с DE KDE.
-
-Для Live режима - Login: bugtraq ; pass: 123456
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5016044D75D989A57900150474FC84B1A789665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322861   (425081) от 09.09.2019
-
-Runtu XFCE 18.04.3 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлена x64-версия дистрибутива Runtu XFCE 18.04, основанная на пакетной базе релиза  Bionic Beaver 18.04.3 LTS. В состав выпуска вошли улучшения, бэкпортированные из выпуска Ubuntu 19.04: версия ядра Linux 5.0 и компоненты графического стека, актуализирована пакетная база. Дистрибутив собран с помощью debootstrap, установлена базовая система и рабочее окружение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70F0964809C292F2D7951DD5AB7CA767DA0AE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946899   (422392) от 15.10.2015
-
-BackBox Linux 4.4 (Анализ безопасности, хакинг) [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда разработчиков BackBox Linux представляет новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем. Дистрибутив теперь базируется на Ubuntu 14.04.3.
-
-Дистрибутив базируется на Ubuntu - ядро Linix kernel 3.19, и включает в себя ядро Linux 3.19 (u)EFI mode, Ruby 2.1, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448CE28CA210C40CFD4FBDCB1EBD84BCBFDF15B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

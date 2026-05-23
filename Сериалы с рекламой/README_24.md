@@ -1,3 +1,55 @@
+###  Публикация: 1415025   (376013) от 12.10.2020
+
+Призраки усадьбы Блай / The Haunting of Bly Manor (2020) WEBRip (сезон 1, серии 1-9 из 9) OmskBird [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Состоятельный лондонский лорд становится опекуном малолетних племянников Майлса и Флоры. Он поселяет их в своей загородной усадьбе и нанимает для них молодую гувернантку. Девушке рассказывают, что ранее в этом доме погибли бывшая гувернантка мисс Джессел и слуга Питер Квинт, и вскоре молодой няне начинает казаться, что в особняке обитают зловещие силы.Производство: США / Amblin Television, Intrepid Pictures, Paramount Television StudiosЖанр: ужасы, триллер, драма, детективРежиссер: Киран Фой, Лайам Гэвин, Аксель КэролинАктеры: Виктория Педретти, Бен Эйнсуорт, Амели Смит, Генри Томас, Т’Ниа Миллер, Рахул Коли, Каликс Фрайзер, Эндрю Нил МакКензи, Оливер Джексон-Коэн, Амелия Ив и другие.Перевод: Многоголосый профессиональный (OmskBird)Продолжительность: ~00:55:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38210BF4C7043E13BD9771E9FB078FA1FD2A246A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415033   (375901) от 12.10.2020
+
+Призраки усадьбы Блай / The Haunting of Bly Manor (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) OmskBird [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Состоятельный лондонский лорд становится опекуном малолетних племянников Майлса и Флоры. Он поселяет их в своей загородной усадьбе и нанимает для них молодую гувернантку. Девушке рассказывают, что ранее в этом доме погибли бывшая гувернантка мисс Джессел и слуга Питер Квинт, и вскоре молодой няне начинает казаться, что в особняке обитают зловещие силы.Производство: США / Amblin Television, Intrepid Pictures, Paramount Television StudiosЖанр: ужасы, триллер, драма, детективРежиссер: Киран Фой, Лайам Гэвин, Аксель КэролинАктеры: Виктория Педретти, Бен Эйнсуорт, Амели Смит, Генри Томас, Т’Ниа Миллер, Рахул Коли, Каликс Фрайзер, Эндрю Нил МакКензи, Оливер Джексон-Коэн, Амелия Ив и другие.Перевод: Многоголосый профессиональный (OmskBird)Продолжительность: ~00:55:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0583601351946E53D01740D87C548D94A3EF5315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175429   (375714) от 19.10.2017
 
 Стальная звезда / Жестяная звезда / Tin Star (2017) WEBRip [H.264/720p-LQ] (сезон 1, серии 10 из 10) SunshineStudio [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51043D7CD11B7C958E6552A79EFC5E85F798970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416776   (359863) от 19.10.2020
-
-Хелстром / Helstrom (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OmskBird [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэймон и Ана Хелстром — дети загадочного и могущественного серийного убийцы. В попытке разобраться в собственном происхождении они путешествуют по миру и уничтожают худших представителей человечества.Производство: США / ABC Signature Studios, Marvel TelevisionЖанр: ужасы, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Андерс Энгстрем, Джим О’Хенлон, Майкл ОфферАктеры: Том Остин, Сидни Леммон, Тарун Керам, Кайл Уоррен, Лео Чианг, Xavier De Salaberry, Фиона Дуриф, Yorkie Joaquin, Арки Кандола, Дэвид Мюнье и другие.Перевод: Многоголосый профессиональный (OmskBird)Продолжительность: ~00:56:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE94E6DEAA478758E3D2F0F3630610DB8C5E0A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403127   (359720) от 19.10.2020
-
-Страна Лавкрафта / Lovecraft Country (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359720.jpg" />
-</div>
-
-
-###  Подробнее
-
-22-летний ветеран Корейской войны Аттикус вместе с подругой детства и дядей отправляется в путешествие по Штатам на поиски отца. На пути он встретится не только с расистами, но и с настоящими монстрами.Производство: США / Bad Robot, Monkeypaw Prodctions, Warner Bros. TelevisionЖанр: Ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Дэниэл Сакхайм, Ян Деманж, Шерил ДьюнайАктеры: Джонатан Мэйджерс, Джерни Смоллетт, Кортни Б. Вэнс, Майкл Кеннет Уильямс, Чейз Браун, Онжаню Эллис, Маркус А. Гриффин мл., Эбби Ли, Вунми Моссаку, Джада Харрис и др.Перевод: Многоголосый, закадровый (OMSKBIRD)Продолжительность: ~01:08:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E229657D6BD9737FE392F66ABB8A28BFBEB0D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

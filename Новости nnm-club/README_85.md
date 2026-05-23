@@ -1,3 +1,186 @@
+###  Публикация: 1209845   (778922) от 01.03.2018
+
+МОК восстановил членство Олимпийского комитета России
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Международный олимпийский комитет (МОК) восстановил членство Олимпийского комитета России в организации, которое было приостановлено 5 декабря прошлого года за два месяца до старта зимней Олимпиады в Пхенчхане, сообщили РИА Новости несколько источников, не связанных друг с другом.Исполком МОК 5 декабря принял решение временно отстранить ОКР. Российские атлеты были (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210120   (778912) от 01.03.2018
+
+Ежегодное послание Президента России Владимира Путина Федеральному Собранию (01.03.2018) HDTV [H.264/1080i-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Владимир Путин обратился с Посланием к Федеральному Собранию. Церемония оглашения состоялась в Москве, в Центральном выставочном зале «Манеж».
+На оглашении Послания присутствовали члены Совета Федерации, депутаты Государственной Думы, члены Правительства, руководители Конституционного и Верховного судов, губернаторский корпус, председатели законодательных собраний (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: Документальный, ПолитикаПродолжительность: 01:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAAA4DF9B5786D7963D0FD51F3A3C89FC221073A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210244   (778743) от 02.03.2018
+
+Проекты - VideoHive - Diamonds Gold & Silver Logo - 20741130 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Diamonds Gold & Silver Logo - еще один красивый, полностью настраиваемый реалистичный проект для вашего логотипа. Прост в использовании. В проект включены 2 композиции – Gold и Silver версии. Видео урок включен.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C078ADA32D1348C9EDB4F00056C9FB774D4681BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210154   (778741) от 02.03.2018
+
+CyberGhost VPN 6.5.0.3180 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+CyberGhost VPN позволяет просматривать веб-страницы обычным способом, но скрывая ваш реальный IP-адрес, так как весь трафик проходит через выделенные сервера онлайн-сервиса CyberGhost, расположенные в Европе и США. Интернет не является анонимным пространством. Каждый раз при создании нового соединения вы получаете уникальный IP-адрес у провайдера, который четко идентифицирует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009E7879F8AA36798ECB89AB615195BD26BD4A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207806   (778739) от 02.03.2018
+
+Кровавая барыня (2017) SATRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+XVIII век. Российская империя. Начало царствования Екатерины II.Рассказ о судьбе печально известной русской помещицы Дарьи Салтыковой, прозванной в народе «Салтычихой».«Салтычиха» вошла в историю как одна из самых жестоких убийц.Производство: Россия / киностудия "Маркес" / кинокомпания "Русское"Жанр: историяРежиссер: Егор АнашкинАктеры: Юлия Снигирь, Марта Тимофеева, Федор Лавров, Сергей Шеховцов, Александр Никольский, Николай Лунин, Марина Дианова, Александр Соколовский, Сергей Шаталов, Мария Дубина и др.Продолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED25E56D7697B180A2320B9F38C34FAE1778F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158210   (778733) от 02.03.2018
+
+DiRT 4 (2017) [Multi] (1.8/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+DiRT 4 игроков ожидает новый революционный режим Your Stage, в котором вы сможете создать бесконечное количество уникальных трасс, нажатием одной кнопки - достаточно выбрать локации и характеристики маршрута, и игровой движок сделает все за вас - создаст уникальный уровень по вашим параметрам.Тип издания: RepackРазработчик: CodemastersЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76E87EFA3C96B31951499ABDCDC4D6588D5910A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210421   (778576) от 03.03.2018
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.03.02 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C2C9846397F9AEC347E896736E309F9195DB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210504   (778451) от 04.03.2018
 
 Учёные запустили первый эксперимент на коллайдере НИКА в подмосковной Дубне
@@ -6,7 +189,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -60,7 +243,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -86,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -112,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -138,7 +321,7 @@ Symantec Endpoint Protection 14.0.1 RU1 MP1 Build 3897 (14.0.3897.1101) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -164,7 +347,7 @@ Linux Deepin 15.1.1 [x86-64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -190,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -216,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -270,7 +453,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (03.05.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -296,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -322,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -349,7 +532,7 @@ Malwarebytes Premium 3.4.4.2398 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -375,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -402,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +611,7 @@ Rage of Mages / Аллоды: Печать тайны (1998) [Ru/En] (1.03) Lice
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +637,7 @@ Adobe Audition CC 2015.1 8.1.0.162 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +663,7 @@ Avira Antivirus Pro 15.0.17.273 Final RePack by Alker [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,190 +674,6 @@ Avira Antivirus Pro - простой, легкий и надежный анти�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F389DA490CB8A8A82D4500A4DC69FAF41C9874D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211570   (776988) от 08.03.2018
-
-Adobe Premiere Pro CC 2018 (12.0.1.69) Portable by XpucT [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2018 — профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55EFE56FFADFC543482B53481B16EB73696A5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210955   (776986) от 08.03.2018
-
-CyberGhost VPN 6.5.0.3180 RePack by elchupacabra [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776986.jpg" />
-</div>
-
-
-###  Подробнее
-
-CyberGhost VPN позволяет просматривать веб-страницы обычным способом, но скрывая ваш реальный IP-адрес, так как весь трафик проходит через выделенные сервера онлайн-сервиса CyberGhost, расположенные в Европе и США. Интернет не является анонимным пространством. Каждый раз при создании нового соединения вы получаете уникальный IP-адрес у провайдера, который четко идентифицирует (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E087D8828FE6DAEAFBE7A73B58B576FA24BB7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211616   (776982) от 08.03.2018
-
-Женщины против мужчин: Крымские каникулы (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправиться в отпуск сразу после развода — довольно заманчивая идея. Особенно, если за компанию можно прихватить двух своих лучших приятелей. Но, когда в том же отеле встречаешь свою бывшую жену-красавицу, то это к неприятностям. А если экс-супруга оказывается там же с двумя своими лучшими подругами, которые к тому же являются бывшими женами твоих друзей, — то легкая (   Читать дальше...   )Производство: Россия, Fresh FilmЖанр: Комедия, МелодрамаРежиссер: Леонид МарголинАктеры: Настасья Самбурская, Наталья Рудова, Мария Кравченко, Александр Головин, Денис Косяков, Роман Юнусов, Мария Горбань, Вадим ГалыгинПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61ECB973B77C3FA78F1C8DA8DACF7B1A6A6F5550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051285   (776981) от 08.03.2018
-
-Андрей Васильев | Собрание сочинений [29 книг] (2013-2018) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник произведений российского писателя Андрея Александровича Васильева в жанрах: фантастика, киберпанк, LitRPG.
-Андрей Александрович Васильев (род. 1973) — автор произведений в жанре ЛитРПГ, а также серии книг о компьютерной игре «Файролл».
-Родился и вырос в Москве. Получил педагогическое и юридическое образование. Работает в банковской сфере. Женат, воспитывает (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80D9BE9C121B3787A58F5FFC8E3DD3A650A4C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211613   (776666) от 09.03.2018
-
-С 8 Марта!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_776666.jpg" />
-</div>
-
-
-###  Подробнее
-
-С праздником 8 марта!Милые и прекрасные дамы!Мы очень рады что вы есть! Мир без вас был бы просто ужасным! Нет, его бы просто не было вовсе! Но, с вами мир приобретает краски. Вы дарите тепло и уют, любовь и ласку, добрые слова ободрения и поддержки.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211988   (776628) от 09.03.2018
-
-Kingdom Come: Deliverance (2018) [Ru/Multi] (1.3) License CODEX [patch]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingdom Come: Deliverance – это захватывающая РПГ с открытым миром, которая перенесёт вас в эпическое приключение в Священную Римскую империю. Отомстите за смерть ваших родителей, сражаясь с силами вторжения, выполняйте квесты, изменяйте мир своими решениями.Тип издания: LicenseРазработчик: Warhorse StudiosЖанр: RPG (Open World), Action, Adventure, 3DЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580CA9755E1108D13E132DF1D2950B49D6B0985B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211812   (776617) от 09.03.2018
-
-ACDSee Photo Studio Ultimate 2018 11.2.1309 RePack by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776617.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACDSee Photo Studio Ultimate 2018 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D1E1EE7DE371A7BE4D0B427E4EB32D814C5B65
 ```
 
 https://mybot314.ru/tekegram_catalog/

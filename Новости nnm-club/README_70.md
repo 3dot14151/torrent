@@ -1,3 +1,188 @@
+###  Публикация: 1197062   (816871) от 06.01.2018
+
+Davinci Resolve Studio 14.2.0.012 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Если верить описанию разработчика, то программа DaVinci Resolve мощная система как отвечающая за цветокоррекцию так и за профессиональный нелинейный монтаж. Если вам нужно понятными инструментами выполнить монтаж, поиграть с цветовыми параметрами, выполнить обработку конечного продукта в едином интерфейсе, то вероятно данная разработка будет вам полезна. Опять, возвращаясь (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA9981F91D5B317B1B4D14B506173D68F52C00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197153   (816744) от 06.01.2018
+
+Буфера в космосе / Space Boobs in Space (2017) WEB-DLRip [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вампиры, монстры и инопланетяне - мы передаем сигнал из самых нелепых уголков галактики в нескольких коротких кино-зарисовках, включая интервью с актерами.Производство: США / Gonzoriffic FilmsЖанр: КомедияРежиссер: Эндрю Н. ШирерАктеры: Фриц Крейг, Лола ЛеСоил, Хтина Пирс Томлин, Иззи Попп, Титтиана Спринглес, Диего ВольфПеревод: Профессиональный многоголосый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:34:19Реклама: Присутствуют вставки текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33482514FF88BFA95869CE05BF99CED56BDB3861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197163   (816741) от 06.01.2018
+
+uTorrent 3.5.1 build 44332 Pro Portable by Коля3Д79 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E689D1816B0ACDF19CD9A33A25294D4ACEB98523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197075   (816739) от 06.01.2018
+
+Дмитрий Лаврик | Vue.js (2017) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Цель курса: Убрать зависимость от jQuery и изучить один из самых мощных и трендовых инструментов в мире js. Angular 2, React и Vue — три головы современного Змея Горыныча в javascript, каждая из которых так или иначе основана на компонентном подходе. Vue проще, чем Angular и React, при этом Vue не уступает им в производительности и возможностях.Жанр: Программирование, JavaScript, Vue.JSПродолжительность: 19:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69766CFF4D43F0CCABB0BB51DC22D08C8455EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197221   (816738) от 06.01.2018
+
+Бегущий по лезвию 2049 / Blade Runner 2049 (2017) BDRip [H.264/1080p] [Локализованная версия]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем мир населен людьми и репликантами, созданными выполнять самую тяжелую работу. Работа офицера полиции Кей — держать репликантов под контролем в условиях нарастающего напряжения… Пока он случайно не становится обладателем секретной информации, которая ставит под угрозу существование всего человечества. Желая найти ключ к разгадке, Кей решает разыскать (   Читать дальше...   )Производство: США, Великобритания, Венгрия, Канада / Warner Bros. PicturesЖанр: фантастика, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Райан Гослинг, Харрисон Форд, Ана де Армас, Сильвия Хукс, Робин Райт, Маккензи Дэвис, Карла Юри, Ленни Джеймс, Дэйв Батиста, Джаред ЛетоПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские форсированные (стилизованные, хардсаб), полныеПродолжительность: 02:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341E43D93853E66D2E36B304A264EC3768FCB50C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196490   (816736) от 06.01.2018
+
+Windows 10 Enterprise LTSB x86 x64 Matros 01 2018 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальных новых образах Microsoft ®
+ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
+ru_windows_10_enterprise_2016_ltsb_x86_dvd_9058173.iso
+Представлена в виде одного ISO-образа(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409A3CC5DA515A692112B764A2951C23148F2357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008046   (816713) от 17.04.2016
+
+Я есть гнев / I Am Wrath (2016) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История человека, чью жену убили и который, отчаявшись дождаться каких-то действий со стороны полиции, решает сам найти преступника и покарать его.Производство: США, Hannibal Classics, Patriot Pictures, Vallelonga Productions, Vengeance is Mine ProductionsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Чак РасселАктеры: Майкл Урриджиа, Ребекка Де Морнэй, Джон Траволта, Кристофер Мелони, Аманда Шулл, Сэм Трэммелл, Патрик Ст. Эсприт, Луис Да Силва мл., Дорис Моргадо, Мелисса Болона...Перевод: Многоголосый закадровый, любительскийПродолжительность: 01:30:53Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB4307C77FAB3B5C7F3B54D582BB397EC1BAFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008218   (816710) от 17.04.2016
 
 Undertale (2015) [Ru] (1.0.3) Repack ARMENIAC
@@ -6,7 +191,7 @@ Undertale (2015) [Ru] (1.0.3) Repack ARMENIAC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_816534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +244,7 @@ Skype 7.34.32.102 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +270,7 @@ Autodesk AutoCAD 2018 x86-x64 RUS-ENG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +296,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.06) Repack R.G. Catalyst [Ult
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +322,7 @@ Pillars of Eternity (2015) [Ru/Multi] (1.0.2.0508/dlc) Repack R.G. Механи�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +402,7 @@ Parallels Desktop for Mac 9.0.24229 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +428,7 @@ BBC: Грета Тунберг. Год, чтобы изменить мир / Gre
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +456,7 @@ Universal Media Creation Tool 20.10.2021 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +534,7 @@ Poweramp 2.0.9 Build 529 + Skins - Музыкальный плеер (05.2013) <
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +561,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.0/dlc) SteamRip R.G. Orig
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +613,7 @@ AAct Network v1.0.1 Portable by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +639,7 @@ KMS Tools Portable 07.01.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +665,7 @@ TNod User & Password Finder 1.6.4.0 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,189 +676,6 @@ TNOD User & Password Finder – это программа, которая при
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1FA405F1FA23216E6BF7E436E8AF24498F31C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008446   (814816) от 18.04.2016
-
-Проекты - VideoHive - The Journey of Memories - 3101820 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114A7E460A8D35CEF671E85A42F3ADCE8B3D0BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 316127   (814721) от 30.03.2011
-
-[Lossless RePack] Need for Speed: Hot Pursuit - Limited Edition v1.0.4.0 [Ru/En] 2010 | RG Packers
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814721.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Need for Speed Hot Pursuit Limited Edition издание войдут 6 эксклюзивных автомобилей: Alfa Romeo 8C Competizione, Ford Shelby GT500, Audi TT RS Coup?, Chevrolet Camaro SS, Porsche Cayman S (модель для полицейских) и Dodge Challenger SRT8. Стоит отметить, что модели Alfa Romeo 8C Competizione и Ford Shelby GT500 будут доступны исключительно в Need for Speed Hot Pursuit Limited Edition, выпущенном ограниченным тиражом, и ни в каких других версиях игры больше не появятся.
-Эти мощные гоночные машины дают игрокам существенное преимущество, которым они могут воспользоваться, чтобы обойти на дороге всех соперников. Неважно, участвует игрок в коллективном или одиночном заезде, либо же сравнивает результаты пройденных гонок. Преимущество, которым обладают владельцы расширенного издания, является очень важным фактором, ведь главное в игре - дух соревнования.Тип издания: RepackРазработчик: Criterion StudiosЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Русский  / АнглийскийЯзык интерфейса: Русский  / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71039DB67E1D42B310789D6670247CA4973F555E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008421   (814697) от 18.04.2016
-
-Autodesk AutoCAD Architecture 2017 HF1 x86-x64 RUS-ENG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814697.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Architecture – это AutoCAD для архитекторов. Специализированные функции для архитектурного проектирования и черчения, а также привычная рабочая среда повышают эффективность выпуска проектов и рабочей документации. Рост производительности работы пользователей в AutoCAD Architecture по сравнению с традиционными САПР наблюдается уже с первой минуты, а новые (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7270F383F1D9B67292D78DE1DC8CE4593C8B37BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008634   (814694) от 18.04.2016
-
-SAMOLIOTIK (2016) [Ru/En] (1.0) Rip Unleashed
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814694.jpg" />
-</div>
-
-
-###  Подробнее
-
-SAMOLIOTIK стильная стрелялка с различными врагами, боссами, цветовыми палитрами, бонусами, установленные в разных эпохах. В этой игре вы будете бороться с Адольфом Гитлером, иллюминатами и другими живыми существами.Тип издания: RipРазработчик: Itanimulli GamesЖанр: Arcade (Shoot'em up)Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F5FB88CBB860FEB4F3BE5ECC6C51DCD55D3421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008626   (814692) от 18.04.2016
-
-Падение Лондона / London Has Fallen (2016) WEBRip [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма начинается в Лондоне, где премьер-министр Великобритании погибает при загадочных обстоятельствах. На похоронах безусловно присутствуют руководители западного мира. Но то, что начиналось как наиболее безопасное событие на земле, превращается в опаснейшее покушение на самых мощных мировых лидеров, что в свою очередь ставит под угрозу будущее всего мира. (   Читать дальше...   )Производство: США, Великобритания, Болгария, Gerard Butler Alan Siegel Entertainment, LHF Film, Millennium FilmsЖанр: Боевик, ТриллерРежиссер: Бабак НаджафиАктеры: Джерард Батлер, Аарон Экхарт, Морган Фримен, Анджела Бассетт, Рада Митчелл, Шарлотта Райли, Мелисса ЛеоПеревод: Дублированный (Чистый звук)Субтитры: Корейские (вшитые, неотключаемые)Продолжительность: 01:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDE6F8CDB884393DF872654DC5BE433972F2643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944800   (814688) от 18.04.2016
-
-Я – зомби / iZombie (2015) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-19 из 19) (NewStudio)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814688.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — студентка медицинского факультета Оливия «Лив» Мур, для которой последствия одной из вечеринок стали переломным моментом в жизни, превратившим её в зомби. Жизнерадостная, активная и пышущая здоровьем раньше, теперь Лив похожа на представителя готов — с бледной кожей, тёмными кругами вокруг глаз и почти белыми волосами. Она устраивается на работу (   Читать дальше...   )Производство: СШАЖанр: комедия, криминал, драма, фантастикаРежиссер: Майкл Филдс, Джон Т. Кречмер, Джейсон БлумАктеры: Роуз МакАйвер, Малкольм Гудвин, Рахул Коли, Роберт Бакли, Дэвид Андерс, Элисон Мичалка, Ник Пурча, Молли Хэйгэн, Стивен Уэбер и др.Перевод: профессиональный многоголосый закадровый - NewStudioФормат: MKVПродолжительность: ~ 00:42:00 серияРеклама: присутствуют голосовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4382DE07827DD3C976A25DF0890FCB3D01837B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007693   (814687) от 18.04.2016
-
-Настоящий детектив / True Detective (2014) BDRip [H.265/1080p] (сезон 1, серии 1-8 из 8) Кубик в Кубе, Ю.Сербин, Amedia
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои — два детектива. В 2012 году в штате Луизиана повторно открывается дело о серийном убийстве в 1995 году. Детективы познакомились 17 лет назад, когда началось расследование, и с тех пор вместе охотились за маньяком. Повествование будет вестись как в наше время, так и откатится назад, в середину девяностых.Производство: СШАЖанр: Детектив, Криминал, Триллер, ДрамаРежиссер: Кэри Фукунага, Джон Краули, Джастин Лин, Дэниэл Эттиэс, Янус Мец Педерсен, Джереми Подесва, Мигель СапочникАктеры: Мэттью МакКонахи, Вуди Харрельсон, Мишель Монахэн, Майкл Поттс, Тори Киттлз, Дж.Д. Эвермор, Дэна Гурье, Александра Даддарио, Гленн Флешлер, Эрин Мориарти, Ши Уигхэм, Джонни МакПайл, Пол Бен-Виктор, Кевин Данн, Джо Крест, Джексон Билс, Майкл Харни, Джей О. Сандерс, Рон Клинтон Смит, Брэд КартерПеревод: Двухголосый закадровый, профессиональный - Кубик в Кубе;                          Одноголосый закадровый, профессиональный - Ю. Сербин; Многоголосый закадровый, профессиональный - AmediaЯзык субтитров: РусскийПродолжительность: ~00:57:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD973A38BFDCCBAB21ED0C5403A152185490AC30
 ```
 
 https://mybot314.ru/tekegram_catalog/

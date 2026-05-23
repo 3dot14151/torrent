@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1871818   (1069907) от 
+
+Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] BDRemux 1080p raw
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Школьница Рури Танигава, увлечённая ювелирными изделиями, неожиданно открывает для себя мир минералогии — не как сухую науку о минералах, а как живое, сверкающее пространство, полное тайн и красоты. Её путь проходит через горы, реки и таинственные пещеры, где каждый найденный камень становится не просто находкой, а фрагментом личной истории, поводом для размышлений (   Читать дальше...   )Жанр: повседневность, минералогия.Режиссер: Фудзии СингоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7963DA3E64C82599F9F729E8CF52C52198EBC683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862500   (1064116) от 30.03.2026
 
 Победители конкурса New Creator Awards 2026 от AnimeJapan [2026, Special, 7 эп.] WebRip 1080p raw
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Fangkai Nage Nuwu | Release that Witch | Освободите эту ведьм�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +87,7 @@ Evangelion 30th Anniversary Short Film | Короткометражный фил
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -89,7 +115,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -115,7 +141,7 @@ Umibe no Etranger | The Stranger by the Shore | Незнакомец на бер
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -141,7 +167,7 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +193,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +219,7 @@ Eiga Given (2024) | Given Movie 2: Hiiragi Mix | Дарованный: Микс 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +247,7 @@ Given Movie 3: Umi e | Given Movie 3: To the Sea | Дарованный: К ок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +273,7 @@ Eiga Given | Дарованный. Фильм | Given the Movie [2020, Movie] BD
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +299,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -327,7 +353,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World with My Smartphone 2 | В 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +379,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -379,7 +405,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +431,7 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +457,7 @@ Yichang Shengwu Jianwenlu | Journal of the Mysterious Creatures | Дневник
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +483,7 @@ Yao Jing Zhong Zhi Shou Ce | Planting Manual | Руководство по се�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +509,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +535,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +561,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +587,7 @@ Wan Jie Xian Zong | Страна десяти тысяч чудес [2020, TV, 4
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -587,7 +613,7 @@ Wu Shang Shen Di | Supreme God Emperor | Непревзойдённый царь
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -613,7 +639,7 @@ Chang Jian Feng Yun | Zhang Jian Feng Yun | Chang Jian Fengyun | Длинный 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -639,7 +665,7 @@ Ajin OVA | Полулюди OVA [2016, OVA, 3 из 3] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -650,32 +676,6 @@ Ajin OVA | Полулюди OVA [2016, OVA, 3 из 3] BDRemux 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:801778F58FAD630E0E7DB790B9179DC619E3F3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469923   (1016028) от 14.05.2021
-
-Shan He Jian Xin | Thousand Autumns | Душа меча Гор и Рек | Меч сердца гор и рек | Тысяча осеней [2021, TV, 16 из 16] WEBRip 1080p rus+HS
-
->>Аниме разное
->>Аниме хардсаб
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава горы Сюаньду, Шэнь Цяо был вызван на дуэль, но сорвался со скалы. Умирающего его нашёл Янь Уши, следующий по пути тьмы и уже давно разочаровавшийся в людях, неспособных, по его мнению, даже на такую малость как верность или благодарность, не говоря уже о таких высоких достоинствах, как бескорыстная доброта, искреннее великодушие и чувство подлинной справедливости. (   Читать дальше...   )Производство: Китай, Motion MagicЖанр: Фэнтези, приключения, боевые искусстваЯзык озвучки: Русский (двухголосый) - AniStarПродолжительность: 16 х ~ 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392F490A1DCC6CBC21E5B21DF004DA66C82B9ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

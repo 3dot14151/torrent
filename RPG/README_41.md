@@ -1,3 +1,81 @@
+###  Публикация: 1650169   (194894) от 31.07.2023
+
+The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Multi] (4.03/dlc) Repack dixen18 [Complete Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте в самую совершенную и полную версию самой прославленной игры 2015 года, «Ведьмак 3: Дикая Охота» - издание «Игра года». Теперь - со всеми дополнениями и новыми материалами. Станьте профессиональным убийцей чудовищ и отправляйтесь в по-настоящему эпическое путешествие! Сразу после выхода в свет игра «Ведьмак 3: Дикая Охота» стала классикой жанра, она удостоилась (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B452C9DBBA80E321CDC0B5FBCE5E15308A930BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651332   (194707) от 06.08.2023
+
+Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари затерянного королевства (2023) [Ru/Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Действие Оушенхорн 2: Рыцари затерянного королевства происходит за тысячу лет до событий первой части игры. Вам предстоит отправиться в волшебное путешествие по различным уголкам Гайи, наполненное древними поверьями и сказаниями. Возвращение колдуна Мезмерота с огромной армией Тьмы ставит перед юным рыцарем практически непосильную задачу. Сможет ли наш герой объединить (   Читать дальше...   )Тип издания: SceneРазработчик: Cornfox & Brothers Ltd.Жанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8540F5D5778D28C1A9E4576BF2EF50350822A742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651574   (194662) от 07.08.2023
+
+Adore (2023) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Вы сыграете за героя по имени Лукха из клана Адорерс, члены которого способны призывать и контролировать существ, чтобы те сражались на их стороне. После нападения на деревню героя, он остался единственным, кому удалось выжить, и теперь Лукха должен во что бы то ни стало предупредить все другие поселения Адорэйтер о надвигающейся угрозе. На своем пути герой раскроет (   Читать дальше...   )Тип издания: SceneРазработчик: Cadabra GamesЖанр: Action, Indie, RPGЯзык субтитров: Английский, Португальский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Португальский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3457A604F4EB51AD8FA0DEAB534E976815B27008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651483   (194658) от 06.08.2023
 
 Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
@@ -6,7 +84,7 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.10/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Mato Anomalies (2023) [Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.009/dlc) License GOG [Hero Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Shining Resonance Refrain (2018) [Multi] (1.00.1618) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Starfield (2023) [Multi] (1.7.23.0/dlc) Repack DjDI [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Danger Forever (2022) [En] (845) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Lovecraft's Untold Stories 2 (2022) [Ru/Multi] (0.9.049b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License PLAZA [Enhanc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Gordian Quest (2020) [Ru/Multi] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +474,7 @@ ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +500,7 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +552,7 @@ XEL (2022) [Ru/Multi] (1.0.7.3/dlc) License GOG [Save the World Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ XEL (2022) [Ru/Multi] (1.0.7.3/dlc) License GOG [Save the World Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Swords and Fairy 7 (2021) [Multi] (2.1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -578,7 +656,7 @@ PAYDAY 3 (2023) [Ru/Multi] (1.0.0.0.624677) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -589,84 +667,6 @@ PAYDAY 3 (2023) [Ru/Multi] (1.0.0.0.624677) Repack DjDI
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D8602642290AAD7F866907A89E49E4AFD5FE2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827387   (186086) от 21.10.2025
-
-Diablo II (2000) [En] (1.14d/dlc) Repack Necros
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diablo 2 — продолжение легендарного ролевого экшена с изометрическим видом камеры в фэнтезийном мире Diablo. В конце первой части главный герой уничтожает вселенское зло именуемое Диабло и вонзает его Камень Душ себе в лоб, рассчитывая таким образом удержать одно из Первичных Зол в своём теле. Но Владыка Ужаса берет под контроль тело воина и начинает процесс освобождения (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Экшен, РПГЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A0CAEF5CA16DF349BF7373D36CFB2C2A588E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591903   (184767) от 20.11.2022
-
-Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивный роман Relayer Advanced грамотно сочетает элементы из жанров РПГ и экшена и приправляет все это продуманной научно-фантастической вселенной. События игры переносят в альтернативную реальность. В 2049 году человеческая раса, которая уже вышла за пределы солнечной системы, сталкивается с угрозой со стороны практически неизученной цивилизации, называющей (   Читать дальше...   )Тип издания: LicenseРазработчик: Dragami GamesЖанр: Ролевая игра, Фантаcтика, СтратeгияЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C99AF2D8B7EAFE20AAB9A4F6C434EE8198BB2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652711   (183497) от 28.09.2023
-
-Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный город в Mondealy, в котором жил наш главный герой, имел свои секреты. С одной из тайн пришлось столкнуться молодому парню. Майкл смог найти удивительное место в подземелье, которое открывало вид на совершенно другой мир. Разузнать больше подробностей придется путем погружения в ту неизведанную часть. Юноша сможет оказаться в загадочном королевстве, решая (   Читать дальше...   )Тип издания: LicenseРазработчик: uglycoalЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132B6884A2CD7A9ACF097B0E7D56E40ADA5D88F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

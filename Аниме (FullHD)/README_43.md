@@ -1,3 +1,55 @@
+###  Публикация: 1152464   (266745) от 10.12.2017
+
+Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Sukasuka [2017, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Пятьсот лет назад человечество было практически уничтожено ужасными «Тварями». Ныне выжившие представители других рас обитают на парящих островах в постоянном страхе. Противостоять «Тварям» могут только девушки, которых называют «Феями», обладающие способностью использовать силу древнего оружия — «Священных мечей». Жизни «Фей» коротки, а сражения с «Тварями» — единственный (   Читать дальше...   )Производство: студия SatelightЖанр: приключения, фэнтезиРежиссер: Вада ДзюнъитиПеревод: 1) SovetRomantica; 2) SoraSubsЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1C1411D622A9B7B35D07146423C111ECED7159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190748   (265671) от 11.12.2017
+
+Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в нашем светлом будущем, где война с терроризмом вышла на новый виток, после того как Сараево было уничтожено самодельной ядерной бомбой. Бывшие демократические державы окончательно превратились в государства тотальной слежки, а страны третьего мира захлестнула волна этнических чисток. Мир погрузился в пучины хаоса и насилия. И на руинах (   Читать дальше...   )Производство: студия Geno Studio / ジェノスタジオЖанр: боевик, фантастикаРежиссер: Мурасэ СюкоПеревод: 1) Ивашков Егор; 2)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 114 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47A6C75BD5E8DE28C57B4854CCAAC490D56DE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339567   (265332) от 20.11.2019
 
 Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин Джи-Гандам [1994, TV, 49 из 49] BDRip 1080p raw
@@ -6,7 +58,7 @@ Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Twin Angel Break | Ангельский дуэт: Прорыв [2017, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Kimi no Koe o Todoketai | Я хочу донести твой голос [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -87,7 +139,7 @@ Yuru Yuri Ten | Лилии на ветру OVA 2 [2019, OVA, 1 эп.] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -113,7 +165,7 @@ Gunsmith Cats | Оружейницы [1995, OVA, 3 эп.] BDRip 1080 10bit raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -141,7 +193,7 @@ Ushio to Tora TV | Усио и Тора ТВ (сезон 1 и 2) [2015, TV, 26 +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -167,7 +219,7 @@ Kanojo to Kanojo no Neko: Everything Flows | Она и её кот: Всё те�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -195,7 +247,7 @@ Guilty Crown | Корона греха [2011, TV, 22 эп.] BDRip 1080p 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +273,7 @@ Muu no Hakugei | The White Whale of Mu | Белый кит континента 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +299,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -275,7 +327,7 @@ HEAVEN IS A PLACE ON EARTH / Gekijouban Hayate no Gotoku! Heaven is a Place on E
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -304,7 +356,7 @@ Dan Da Dan | Дандадан [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -331,7 +383,7 @@ Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -357,7 +409,7 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -383,7 +435,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -409,7 +461,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -435,7 +487,7 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -463,7 +515,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -489,7 +541,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -515,7 +567,7 @@ Black Fox | Чёрная лиса [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -541,7 +593,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -567,7 +619,7 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -593,7 +645,7 @@ Oushitsu Kyoushi Haine | The Royal Tutor | Королевский репетит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -619,7 +671,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -630,58 +682,6 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D4D26DA9CA9BCEF828874D0ED8F9C74ECC781CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637384   (240036) от 03.06.2023
-
-Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём перерождении в меч [ТВ-1] [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попаданцам вечно не везёт. Как в прошлой жизни, в которой они, как правило, погибли жестокой глупой смертью, так и в нынешней, где они часто оказываются не в самом выгодном положении. Главному герою этой истории не повезло вдвойне: мало того, что коньки отбросил, вместе с коньками он лишился ног, рук, головы и вообще тела, так как переродился в меч! Да ещё с корабля (   Читать дальше...   )Производство: студия C2CЖанр: приключения, фэнтезиРежиссер: Исихира СиндзиПеревод: AniLibria (оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE454CF7088919FD685ADA125CEF4A972CA381AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628044   (239260) от 21.04.2023
-
-Romantic Killer | Романтический убийца [2022, Web, 12 эп.] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андзу Хощино — типичная негероиня, её не интересуют мода или отношения, а вот видеоигры, шоколад и кошки интересуют. Однажды Андзу встречает загадочное существо по имени Лили, которое отправляет её в мир, наполненный горячими парнями. Теперь она участница проекта «Волшебный мир», цель которого — остановить сокращение населения. Андзу с порога заявляет, что такая (   Читать дальше...   )Производство: Студия Domerica / ドメリカЖанр: комедия, романтикаРежиссер: Итикава КадзуяПеревод: официальный (Netflix)Язык озвучки: Японский + ФранцузскийСубтитры: Русские; ФранцузскиеПродолжительность: 12 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC587ECF5A3C1ED8BADBF82A94D29F277B4E205
 ```
 
 https://mybot314.ru/tekegram_catalog/

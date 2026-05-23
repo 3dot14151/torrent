@@ -1,3 +1,29 @@
+###  Публикация: 710878   (719930) от 07.06.2016
+
+BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уже многие сотни лет люди пытаются найти эликсир молодости. Выдающиеся открытия, сделанные в течение последних лет, позволяют сделать вывод о том, что старение - это достаточно гибкий процесс, которым можно управлять. Сотрудники BBC Horizon беседуют с учёными, которые пытаются выяснить, что же такое старение и можно ли его предотвратить.Жанр: Документальный, научно-популярный, исследованияПеревод: Одноголосый закадровый (профессиональный, Видеофильм ТВ)Язык субтитров: русский, русский (на непереведенные места), английскийПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330A5EF19CF6EEF879C0341F16FB7F6063FD70AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 710308   (719875) от 07.06.2016
 
 BBC. Horizon. Смертельно опасные ошибки / Horizon. How to Avoid Mistakes in Surgery (2013) HDTVRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Horizon. Эволюционируем ли мы сейчас? / BBC. Horizo
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) HDT
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC Earth. Чудо-яйца с Дэвидом Эттенборо / Attenborough
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC. Кухня против науки. Кулинарный вызов / Chef 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC: Horizon. Жизнь без старости / Don't Grow Old (2009) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. Horizon. Играя роль Бога / Horizon. Playing God (2012) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC. Умные обезьяны / Clever Monkeys (2008) HDTVRip [H.264/720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC: Горизонт - Как убить человека / Horizon - How to Ki
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +293,7 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +319,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +345,7 @@ BBC: Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +397,7 @@ BBC. Horizon. Миссия на Марс / Horizon. Mission To Mars (2012) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +423,7 @@ BBC. Как вырастить планету / How to Grow a Planet (2012) BDRe
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +475,7 @@ BBC. Замки: История укреплений Британии / Castles:
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +501,7 @@ BBC. Horizon. Почему мы говорим? / Horizon. Why Do We Talk? (2009
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +527,7 @@ BBC: Horizon. Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +553,7 @@ BBC. Как устроена природа / How Nature Works (Secrets of Our L
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +605,7 @@ BBC. Horizon: Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +631,7 @@ BBC. Horizon: Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -631,7 +657,7 @@ BBC. Тайная история британских садов / The Secret Hi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,32 +668,6 @@ BBC. Тайная история британских садов / The Secret Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC32AA1FBED871BDEEC37D4450907BDAC115FC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226333   (699067) от 27.02.2022
-
-BBC: Horizon. Что было до Большого взрыва / What Happened Before the Big Bang? (2010) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дадут ли ученые окончательный ответ на вопрос - "откуда мы взялись?", - приподняв завесу над рождением Вселенной... Как возникли время, материя и пространство? Как возникли всеобщие законы мироздания и почему именно такие, а не иные? Чтобы ответить на эти глобальные вопросы, ученые решили, что, возможно, придется отвергнуть одну из величайших научных идей (   Читать дальше...   )Производство: Великобритания, США, BBC, Discovery ChannelЖанр: Документальный, наука, исследования, космологияРежиссер: Петер ЛеонардПеревод: Профессиональный MVO (ТВИН), любительский (aty-sasa)Субтитры: отсутствуютПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25A0F6A237323EB144EB92FAFD24F57CC721F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

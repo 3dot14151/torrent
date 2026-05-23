@@ -1,3 +1,107 @@
+###  Публикация: 1785474   (24489) от 16.03.2025
+
+The Test: Reality Check (2025) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+The Test: Reality Check - это одна из нескольких частей продолжающегося социального эксперимента, которую можно отнести к атмосферным, психологическим симуляторам с элементами ужасов. Погрузитесь в собственную психику и получите ответы на вопросы, которые вы прятали глубоко внутри. Раскройте свой разум невиданными ранее способами и получите новые знания, просто пройдя (   Читать дальше...   )Тип издания: RepackРазработчик: Randumb StudiosЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1448865AA54F4A63464CDB2E0F4DEA013FF47143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785676   (24396) от 17.03.2025
+
+Siberian Way (2025) [Ru/En] (1.1.2) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Siberian Way – детективная триллер-новелла. Погрузись в мрачную историю, где каждый твой выбор не только определит судьбу героя, но и изменит ход расследования. Игра для всех любителей заснеженной Сибири, Убийства в Восточном экспрессе и мистических сюжетов. Конец XIX века. На одном из участков строительства магистрали происходит череда загадочных и жестоких убийств. (   Читать дальше...   )Тип издания: RepackРазработчик: RootGameЖанр: Приключенческие игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B655CE95EBDA1639CC2DF389697BDE8DB93171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785873   (24309) от 18.03.2025
+
+Hauntsville (2025) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+В роли безымянного странника, вы попадаете в город-призрак на фронитре. Все исчезли, включая рабочих и лошадей, которые должны были перевезти вас через гору. Но вой вдалеке предвещает, что одним вам быть недолго. Проверь-ка свои железки, дружище, ведь лишь они отделяют тебя от монстров, которые таятся повсюду на Проклятом Западе.Тип издания: RepackРазработчик: Michael JanischЖанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20207073B153BC6D6CA82B80BB6E564F071D1F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784253   (24228) от 19.03.2025
+
+Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Испытайте ошеломительные моменты, погружаясь в разнообразные миры Split Fiction, новаторского совместного приключения от студии, создавшей It Takes Two - игру года 2021. Мио и Зоя - писательницы-антиподы: одна пишет научную фантастику, другая - фэнтези. Они оказываются заперты в собственных сюжетах, после того, как их подключили к машине, созданной, чтобы украсть (   Читать дальше...   )Тип издания: RepackРазработчик: Hazelight StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5814B893471F3BD3E3E71144FE8AD00F27E1CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786106   (24192) от 19.03.2025
 
 Beyond Galaxyland (2024) [Ru/Multi] (1.0.0.6/1.0.2.2) Repack FitGirl
@@ -6,7 +110,7 @@ Beyond Galaxyland (2024) [Ru/Multi] (1.0.0.6/1.0.2.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Long Dark (2017) [Ru/Multi] (2.40/dlc) Repack dixen18 [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +318,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Wanderstop (2025) [Multi] (Build #15399) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack FitGirl [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack seleZen [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack Other s [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +604,7 @@ MOOD (2024) [Ru/En] (Build 17818395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95BB4187EB459042AEDC9009C6D1D2F67C7FA00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788386   (23039) от 30.03.2025
-
-Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (build 17904043/dlc) Repack FitGirl [Deluxe Pack]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русы против ящеров 2 – это кооперативный слешер-экшен от легендарной команды theBratans, они же Smola Games, разработчика франшизы "Русы против ящеров". Заслуженно отмеченная наградами франшиза возвращается с новой, революционной главой. Мерзкие ящеры, подгоняемые своими тайными покровителями, получили новые ящерские технологии и вновь коварно напали на (   Читать дальше...   )Тип издания: RepackРазработчик: the Bratans, Smola Game StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487A840AF796CFB4A532AC89CB58B413679FEFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724377   (22969) от 31.03.2025
-
-Still Joking (2024) [Ru/En] (1.2251) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отражения всегда делают то же, что и мы. Никто не спрашивает их, хотят ли они отражать сонное лицо со следами подушки в семь утра, или пьяную истерику в двенадцать ночи. И всё же, рано или поздно наступает момент, когда они оказываются предоставлены сами себе. Навсегда. Как они справляются с этим? Играйте за Айрис, отражение знаменитой актрисы, убитой перед зеркалом. (   Читать дальше...   )Тип издания: LicenseРазработчик: Purple Brick GamesЖанр: Приключенческие игры, Визуальные новеллыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285087AAA07900D780B43A836E2A5FEAA96867D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788664   (22939) от 31.03.2025
-
-Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где же ваш ребенок? Отворите двери между обычной реальностью и тёмным нечестивым миром. События игры разворачиваются в двух мирах: постсоветском городе в Восточной Европе и мрачном царстве, где правят священнослужители. Главная героиня отправляется на поиски пропавшего сына и обнаруживает разлом, ведущий в очень мрачное место. По мере прохождения она исследует оба (   Читать дальше...   )Тип издания: RepackРазработчик: Duality GamesЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0BBFDB5AEDCED57B007D2815FA7BFD7E893909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775507   (22930) от 31.03.2025
-
-Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.3/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительная игра "Mark of the Deep" - это ваш шанс отправиться в эпическое пиратское приключение, которое порадует вас богатой историей, интересным сюжетом, а также лучшими элементами таких хитов, как "Metroidvania" и "Souls-Like". Вам предстоит отправиться в удивительное путешествие в роли пирата по имени Новичок, который должен пролить (   Читать дальше...   )Тип издания: RepackРазработчик: Mad MimicЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Бразильский ПортугальскийЯзык субтитров: Русский, Английский, Бразильский Португальский, Французский и другиеЯзык интерфейса: Русский, Английский, Бразильский Португальский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1C7A6A911273822216216D8EF04B115CE6004E
 ```
 
 https://mybot314.ru/tekegram_catalog/

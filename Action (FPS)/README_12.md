@@ -1,3 +1,107 @@
+###  Публикация: 1208431   (779837) от 22.02.2018
+
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Shadow Warrior 2, продолжение неординарного шутера от студии Flying Wild Hog, рассказывает о новых злоключениях бывшего корпоративного сёгуна Ло Вана. Превратившись в наемника-одиночку, великий воин борется за жизнь в насквозь прогнившем мире: теперь он должен сокрушить легионы демонов, заполонивших планету, в чем ему поможет огромный арсенал пистолетов, мечей, магических (   Читать дальше...   )Тип издания: LicenseРазработчик: Flying Wild HogЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF70DAF46B6DDC3257296DD3AE4D0826FFCA24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208696   (779697) от 23.02.2018
+
+Alien: Isolation (2014) [Ru/En] (1.0upd9/7dlc) Repack R.G. Catalyst
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие триллера Alien: Isolation разворачивается спустя пятнадцать лет после событий оригинальной кинокартины Ридли Скотта «Чужой». И теперь уже дочери Эллен Рипли, Аманде, предстоит столкнуться с ужасом из космических глубин в попытке выяснить всю правду об исчезновении матери. В роли Аманды вы повстречаетесь с ослепленными паникой, доведенными до крайней степени (   Читать дальше...   )Тип издания: RepackРазработчик: The Creative Assembly, Feral InteractiveЖанр: Action (Survival horror), 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAAA0DD627EF731A0F543808A78460A82D2D0D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209485   (779167) от 27.02.2018
+
+Hunt Down The Freeman (2018) [En] (1.0/upd1) Repack =nemos=
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Компания Valve дала «зелёный свет» в Steam фанатскому спин-оффу Half-Life, под названием Hunt Down The Freeman. Игра, выросшая из популярной в узких кругах любительской модификации, может похвастаться нестандартным геймплеем и полноценным сюжетом, в котором геймерам предлагается примерить на себя роль члена военного спецподразделенияТип издания: RepackРазработчик: Royal Rudius EntertainmentЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812DAB6C106A137EB5F7C70514CEC4AF1E09A259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210138   (778890) от 01.03.2018
+
+Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/Multi] (1.8/dlc) SteamRip R.G. Origins [Season Pass Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В этом новейшем военном шутере вы отправитесь в тыл врага. Вы станете американским снайпером, заброшенным в Грузию вблизи границы с Россией. Вы сами сможете выбирать способы выполнения заданий в открытом мире, который не прощает ошибок. Отправляйтесь во вражеский тыл и расширьте возможности Sniper Ghost Warrior 3 вместе с сезонным пропуском.Тип издания: SteamRipРазработчик: CI GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Английский, Французский, Немецкий, ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA9EE24ECE99324C5155076C84E7F6CECF7A3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207796   (778582) от 03.03.2018
 
 F.E.A.R. 3 / F.3.A.R. (2011) [Ru/En] (16.00.20.0275) Repack R.G. Механики
@@ -6,7 +110,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru/En] (16.00.20.0275) Repack R.G. Механик�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Quadrant Episode 1-3 (2015-2016) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Fleeting Ages (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +188,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru] (16.0.20.1060) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_777701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Share (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Vortex: The Gateway (2016) [Ru/Multi] (1.1520) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Call of Duty 2 (2005) [Ru] (1.3) License 1C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Night Blights (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Enemy Front (2014) [Ru/En] (3.4.4.6290/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +424,7 @@ The Council of Hanwell (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +450,7 @@ No Man's Sky (2016) [Ru/Multi] (1.77/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +476,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/8dlc) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Disintegration (2020) [Ru/Multi] (1.0.0.6) Repack от xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Infected Maze (2020) [Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +554,7 @@ P.A.M.E.L.A. (2020) [En] (1.0.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Dishonored 2 (2016) [Ru] (1.77.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Deadstep (2018) [En] (1.0.3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Duder (2018) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Far Cry (2004) [En] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +669,6 @@ Far Cry (2004) [En] (1.4) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E752C60B06C93642A6A26B2729D4431EEFD20139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123934   (768226) от 26.01.2019
-
-Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26ND) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Thief™ II: The Metal Age предоставит вам шанс вновь выйти на мрачные улицы Города, преобразившиеся с приходом к власти Ордена Механистов – нового культа, который потеснил и принял в свои ряды Хаммеритов. В новом мире камер и роботов на паровом ходу Гаррету предстоит встретиться с новым врагом – шерифом Горманом Труартом, служителем закона, задумавшим избавить (   Читать дальше...   )Тип издания: LicenseРазработчик: Looking Glass StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36591EBCEF0BC70E03FEC6173DD01AE81F78A74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125699   (767700) от 15.04.2017
-
-White Noise 2 (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть частью команды исследователя, или взять контроль над существом и поедать их! White Noise 2 предлагает 4vs1 асимметричный опыт ужаса, который никого не оставит равнодушным. White Noise 2 - это приключенческий хоррор, в котором четверо игроков пытаются выжить, столкнувшись с монстром, которого контролирует еще один человек. Действие игры проходит ночью в жуткой (   Читать дальше...   )Тип издания: LicenseРазработчик: Milkstone StudiosЖанр: Adventure (Horror), 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0788B36D4AB050D0D225E976D76B6FB041C428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125716   (767565) от 15.04.2017
-
-White Noise 2 (2017) [Ru/Multi] (1.0/upd1) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть частью команды исследователя, или взять контроль над существом и поедать их! White Noise 2 предлагает 4vs1 асимметричный опыт ужаса, который никого не оставит равнодушным. White Noise 2 - это приключенческий хоррор, в котором четверо игроков пытаются выжить, столкнувшись с монстром, которого контролирует еще один человек. Действие игры проходит ночью в жуткой (   Читать дальше...   )Тип издания: RepackРазработчик: Milkstone StudiosЖанр: Adventure (Horror), 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AF300D57AC3AC5044472D4651B8025E52BC059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393743   (766717) от 01.07.2020
-
-Die Young: Prologue (2019) [Ru/Multi] (1.1.0.58.20) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766717.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Die Young: Prologue вы играете за Нехир (Nehir), полевого агента известной политической партии. Программа партии состоит в том, чтобы деконструировать и уничтожить лидера общины острова. Пролог охватывает ее отчаянную попытку достичь точки встречи. Сможет ли она спасти себя или умрет молодой? Die Young: Prologue - это приключенческий боевик с более линейной структурой, (   Читать дальше...   )Тип издания: RepackРазработчик: IndieGalaЖанр: Adventure, Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F37814DCA6C24B23ED3EC0BF3E7C77B85C7282
 ```
 
 https://mybot314.ru/tekegram_catalog/

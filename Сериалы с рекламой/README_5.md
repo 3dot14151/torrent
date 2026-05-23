@@ -1,3 +1,55 @@
+###  Публикация: 1023625   (887115) от 08.09.2021
+
+Люцифер / Lucifer (2016) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) NewStudio [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Заскучавший и несчастный повелитель преисподней, Люцифер Морнингстар оставил свой престол и отправился в современный Лос-Анджелес, где основал ночной клуб «Lux». Очаровательный, харизматичный и дьявольски привлекательный Люцифер наслаждается своим отдыхом — вином, женщинами и музыкой — пока красивая поп-звезда не оказывается убитой на пороге его клуба…Производство: США / DC Entertainment, Vertigo Entertainment, Warner Bros. TelevisionЖанр: фэнтези, драма, криминалРежиссер: Нэйтан Хоуп, Эгил Эгилссон, Луис Шоу МилитоАктеры: Том Эллис, Лорен Джерман, Лесли-Энн Брандт, Кевин Алехандро, Рэйчел Харрис, Д.Б. Вудсайд, Скарлет Эстевез, Локлин Манро, Ивэн Арнольд, Эмили Мэддисон и др.Перевод: Многоголосый профессиональный - NewStudioЯзык озвучки: РусскийПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E208DD151B25A6BB00026914C6640E9F9A5D18C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372502   (883026) от 04.04.2020
+
+Рассказы из Петли / Tales from the Loop (2020) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) Octopus [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Истории об обитателях городка, расположенного над Петлёй — специальной машиной, созданной для изучения и раскрытия секретов Вселенной. Из-за этого жители получают доступ к вещам и событиям, о которых они раньше слышали разве что в фантастике.Производство: США /  6th & Idaho Productions, Amazon Studios, Fox 21 Television StudiosЖанр: драма, фантастика, мелодрамаРежиссер: Джоди Фостер, Ким Со-ён, Чарли МакДауэллАктеры: Дэниэл Золгадри, Ребекка Холл, Пол Шнайдер, Дункан Джойнер, Ато Эссандо, Николь Ло, ДжонатанПрайс, Джейн Александр, Тайлер Барнхардт, Роджер КлаунПеревод: Многоголосый любительский (Octopus)Субтитры: отсутствуютПродолжительность: ~00:55:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA44AE16A8752DCAFEC43635DE35D82C646872B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373133   (881431) от 05.04.2020
 
 Чума / La Peste (2018-2019) HDTVRip (сезон 1-2, серии 1-12 из 12) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_877098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A9CCD740747862744540FF3DCD374A5A02797A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377799   (847668) от 24.04.2020
-
-Голиаф / Goliath (2018) WEB-DLRip [H.264] (сезон 2, серии 1-8 из 8) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой сериала – опальный адвокат Билли МакБрайд – переживает нелегкий период, пытается наладить отношения с дочерью и бывшей женой, восстановить карьеру и хоть как-то заработать. Неожиданно ему выпадает шанс изменить свою жизнь и вернуть себе былую славу.Производство: США / Amazon Studios, PicrowЖанр: драмаРежиссер: Лоуренс Триллинг, Дэнни Гордон, Алик СахаровАктеры: Билли Боб Торнтон, Таня Рэймонд, Нина Арианда, Диана Хоппер, Джули Бристер, Ана де ла Регера, Уильям Хёрт, Шелби Рабара, Дэвид Сампен, Марк Дюпласс и др.Перевод: Многоголосый профессиональный (NewStudio)Субтитры: русские, английскиеПродолжительность: ~00:50:00 серияРеклама: присутствует реклама
-
-Внимание! Присутствует ненормативная лексика.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68590AC96AD418622119F8F41769D8D459D599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499711   (846048) от 03.10.2021
-
-Королевская служба летающих врачей / RFDS: Royal Flying Doctor Service (2021) WEBRip (сезон 1, серии 1-8 из 8) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает о врачах и медсестрах, пилотах и вспомогательном персонале Королевской службы летающих врачей, которые решают уникальные задачи экстренного спасения в некоторых из самых негостеприимных мест в Австралии.Производство: Австралия, Endemol Shine AustraliaЖанр: драмаРежиссер: Дженнифер Лиси, Джереми Симс, Адриан Расселл УиллсАктеры: Эмма Хэмилтон, Стивен Пикок, Эшли Рикардо, Джек Скотт, Джастин Кларк, Sofia Nolan, Ash Hodgkinson, Роб Коллинз, Thomas Weatherall, Родни АфифПеревод: Многоголосый профессиональный  - BaibaKoЯзык озвучки: русскийПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281FC11433C2AE3BCE6DD6DFDC3E3FC45D963D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1460882   (1022242) от 07.04.2021
+
+Alarm Clock Pro 2.9.9 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Будильник (Alarm Clock) - это новая форма простоты с элегантными часами и интеллектуальным алгоритмом активации сигналов.
+Приложение включает гибкий интеллектуальный алгоритм активации сигналов. Сигналы имеют функцию автоматической корректировки после смены часового пояса и предварительно определенные настройки. Во время разговора по телефону автоматически приглушается (   Читать дальше...   )Тип издания: Premium (Paid)Релиз состоялся: 06.04.2021Разработчик: MacroPinchПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD7C5298592F4812E633F9939028E0B6226822D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460911   (1022236) от 07.04.2021
+
+Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Фотографии - это нечто большее, чем просто изображение. Увидьте в своих фото скрытый смысл и сделайте их невероятными, как никогда раньше. Множество пресетов, фильтров, оверлеев и анимаций. После редактирования они станут как живые, будут передавать уникальные истории! Настраивайте не только готовые эффекты, но и обычные категории: яркость, контраст, насыщенность, (   Читать дальше...   )Тип издания: Premium + ModificationsРелиз состоялся: 03.03.2021Разработчик: vimageПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D86052AF0DC3C0B61EF752DED2588D4C646C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460886   (1022235) от 07.04.2021
+
+aCalendar - Android Calendar 2.5.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+aCalendar+ Calendar & Tasks - Простой, и очень качественный календарь, для ваших устройств. Если вы не хотите слишком заморачиваться, и ищите для себя что-то многофункциональное и в тоже время простое, это то что вам нужно. Он отлично выполняет свои функции, показывая даты, и закрепленные за ними списки дел. А так же в нём присутствует функция, которая запоминает (   Читать дальше...   )Тип издания: Plus (Paid)Релиз состоялся: 27.03.2021Разработчик: Tapir Apps GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEB967D24E8B7CB4CD3E97187C372A922E8AE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460863   (1022224) от 07.04.2021
 
 MiXplorer 6.54.2-Silver Mod by VERGIL777, Mr. Ricatto [Ru/Multi]
@@ -6,7 +85,7 @@ MiXplorer 6.54.2-Silver Mod by VERGIL777, Mr. Ricatto [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Partitions Backup & Restore 2.3.0 Mod by mrfrost475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Moises v1.3.1 Premium [Ru] - Муз. платформа с ИИ + удалите
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +163,7 @@ English Grammar in Use v1.11.40 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +192,7 @@ Dog Scanner v10.2.10-G [Ru] – Идентификация породы соба
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +218,7 @@ Cat Scanner v10.2.10-G [Ru] – Идентификация породы коше
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +272,7 @@ Talkao Translate - Перевести голос и словарь v314.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +301,7 @@ Investing v6.6.5 [Ru] - биржа, инвестиции, акции, финан
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +329,7 @@ REVER - Motorcycle GPS, Route Planner & Discover v5.0.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +355,7 @@ Perfectly Clear v4.3.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +408,7 @@ Lapse It • Time Lapse • Pro v4.70 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +434,7 @@ Scan & Translate+ Text Grabber v4.3.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -410,7 +489,7 @@ QS Английский язык v1.10 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -438,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -466,7 +545,7 @@ FIMO - Analog Camera v2.12.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -493,7 +572,7 @@ Stoxy PRO v5.5.0 [Ru/Multi] - Акции, Индексы, Фьючерсы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -519,7 +598,7 @@ DiagScan v3.1 [Ru] - сброс кодов ошибок elm327 и расшифр
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -548,7 +627,7 @@ KMPlayer Plus v31.04.120 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -577,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,7 +685,7 @@ IELTS Listening v2020.08.25.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -620,92 +699,6 @@ IELTS Listening - бесплатное приложение для всех, к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CD7B0992EEA259132A159A32043932949D523D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461918   (1020962) от 15.04.2021
-
-Handy Photo v2.3.5 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приглашаем к творческому фото редактированию!
-
-Handy Photo – это приложение, разработанное с мыслью о людях, для которых фото редактирование является страстным увлечением. Это идеальный выбор для коррекции и улучшения ваших фотографий.
-(   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 1 декабря 2020 г.Разработчик: ADVA SoftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083F47C987E66027D4EFD9043204896DA3D4B255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462666   (1020904) от 15.04.2021
-
-Kinoplay v0.1.5 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн просмотр фильмов, мультфильмов
-Kinoplay позволяет смотреть любимое кино на любом устройстве в любой точке мире с доступом в интернет.
--Огромный каталог с кино
--Простота использования(   Читать дальше...   )Тип издания: OriginalРелиз состоялся: 15 апреля 2021Разработчик: descodeПоддерживаемая ОС: Android: 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4865F5803750CAF75054FCCDC59C19F2B0F104D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463029   (1020775) от 16.04.2021
-
-Wim Hof Method v6.2.0 [En] - Making you strong, healthy & happy
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Метод Вим Хофа - это мощный естественный тренировочный инструмент, который направлен как на недостаточную стимуляцию тела, так и на чрезмерную стимуляцию ума. При постоянной практике эти методы обеспечивают оптимальную жизнеспособность и могут помочь предотвратить заболевание.
-
-Хотя люди получают положительные результаты даже от одного сеанса дыхания, последовательность (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 23 февраля 2021 г.Разработчик: InnerfireПоддерживаемая ОС: AndroidЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A4DE22F3B71173EF25B51341CF0FA6199FB6CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

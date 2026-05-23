@@ -1,3 +1,85 @@
+###  Публикация: 1491439   (910575) от 25.08.2021
+
+CGcircuit, David Adan | Introduction to VEX - Volume 3 (2019) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот обучающий ролик посвящен изучению основ языка выражений VEX. Он используется для симуляции динамики твердых тел.
+Курс даст зрителю понимание основ динамики твердых тел. Приложив небольшие усилия и используя сниппеты VEX, мы выйдем за рамки настроек по умолчанию.
+В первой части мы разберем базовые настройки динамики твердых тел, подробно обсудим несколько очень (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F512BF25E92F686AB445AA06F1C5F90A174B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491435   (910574) от 25.08.2021
+
+CGcircuit, David Adan | Introduction to VEX - Volume 2 (2019) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Курс посвящен использованию VEX, языка самых распространенных задач VFX, Particles и Volumes. Хотя это вводный курс, мы обсудим тему реализации полезных и мощных сценариев с использованием атрибутов VOP и Wrangles. Он разработан таким образом, что слушатель будет постепенно изучать использование общих функций VEX с упором на практику.
+В первой части вы узнаете, как (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A0D89A993103434353BC4A707635C6CA7F0CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368106   (910415) от 19.03.2020
+
+Udemy | Скриптинг в Blender 2.81 / Python Scripting in Blender 2.81 with Practical Projects (2019) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Изучите Python внутри Blender с помощью этого простого курса. Вам не нужен никакой предыдущий опыт работы с Blender или Python, мы действительно начинаем с основ и начинаем создавать ваши знания с нуля.
+Python - это действительно популярный язык программирования, и в сочетании с Blender поможет вам лучше понять язык через визуальную обратную связь интерфейса Blender. (   Читать дальше...   )Производство: UdemyЖанр: 3D графика, ПрограммированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 01:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A21DA426A0420D7E3726B66112174CE8F2E8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368073   (910361) от 19.03.2020
 
 FlippedNormals | Ретопология в Blender 2.8 / Retopology in Blender 2.8 (2020) PCRec [H.264/1080p-LQ] [En]
@@ -6,7 +88,7 @@ FlippedNormals | Ретопология в Blender 2.8 / Retopology in Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Bang Bang Education | Как устроены буквы (2018) PCRec [H.264/108
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +142,7 @@ Bang Bang Education | Сетки и проектирование сайтов (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +170,7 @@ Bang Bang Education | Создание пространства в Adobe Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +198,7 @@ Bang Bang Education | 1000 и 1 буква (2019) PCRec [H.264/1080p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +224,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 4
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +251,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +278,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +305,7 @@ WingFox, Ognyan Zahariev | Magical Classroom Scene Creating for Games [Low Quali
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -249,7 +331,7 @@ Explore Blender, Gustav Nilsson | Mastering Drivers in Blender 2.7 (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +359,7 @@ Udemy, Emiel Sleegers | Military Game Asset Creation in Blender 2.83, Substance 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -305,7 +387,7 @@ ArtStation, Ben Keeling | Authoring Props For Games [Blender, ZBrush, Substance 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -333,7 +415,7 @@ cmiVFX, Shivani Sondhi | Houdini Cloth Techniques (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -359,7 +441,7 @@ cmiVFX, Alvaro Segura | Houdini Debris Systems (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -385,7 +467,7 @@ cmiVFX, Adam Swaab | Houdini Particle Morphing Effects (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +493,7 @@ cmiVFX, Dennis Weil | Houdini Mograph Title Design (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +519,7 @@ School of Motion, Mike Frederick | Design Bootcamp Week 3 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -465,7 +547,7 @@ Udemy | Создание фотореалистичной станции мет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -492,7 +574,7 @@ Udemy | Создание фотореалистичной улицы в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -519,7 +601,7 @@ Rohan Dalvi | Mograph in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -546,7 +628,7 @@ Rohan Dalvi | Making dessert in Houdini Part 1 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,7 +656,7 @@ Rohan Dalvi | Rocket Bus (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -601,7 +683,7 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -613,89 +695,6 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 2 (2018) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E195E63F04049348880CC2AED9395FE902A4EEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492741   (900455) от 31.08.2021
-
-Rohan Dalvi | Ornamental Designs in Houdini Part 1 (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900455.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы рассмотрим различные процедурные методы создания декоративных паттернов и элементов в Houdini. Это и стандартное процедурное моделирование, и использование L-систем, и разрушение по Вороному.
-Основная цель обучения - попробовать процедурно создать разнообразные декоративные элементы, чтобы облегчить процесс моделирования сложных паттернов.Жанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C815388BA50B19F6EE21340DDCFD108849D0C4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492728   (900335) от 31.08.2021
-
-School of Motion, Joey Korenman | FreelanceU (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_900335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «Стань фрилансером» - это 4-х часовая презентация, в которой я подробно рассказываю об инструментах работы фрилансера. Даю пошаговую инструкцию, как начать собственный бизнес в качестве независимого специалиста и получить возможность самостоятельно распоряжаться своим временем.
-
-Фрилансу можно научиться. Существуют разные инструменты и приемы, которые позволяют (   Читать дальше...   )Производство: School of MotionЖанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A322A6C1FF25E904D1AF699F427BAC1E72600C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369698   (899893) от 25.03.2020
-
-Udemy | Секреты фотореализма в Blender 2.8 / The Secrets to Photorealism: The PBR Blender 2.8 Workflow (2019) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899893.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Blender 2.8 есть множество опций доступных художникам для рендеринга. Однако большинство новичков не понимают, как использовать эти возможности в полной мере. Ваши материалы выглядят плоскими или однообразными? Вот некоторые причины, по которым этот курс был бы очень полезен для вас:
-- Улучшите качество ваших рендеров
-- Создайте любой материал, которое вы можете (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат VTT)Продолжительность: 02:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E97D95A715CE1C06E36C88C7AA8A2FBB8BF9843
 ```
 
 https://mybot314.ru/tekegram_catalog/

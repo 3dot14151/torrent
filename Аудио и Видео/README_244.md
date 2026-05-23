@@ -1,3 +1,32 @@
+###  Публикация: 1424795   (226095) от 18.11.2020
+
+VA - Urban City Vibes, vol. 3 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~333 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco - Monkeys (Original Mix) (4:51)
+02. Martin Liege - Sunrise Drive (Original Mix) (4:09)
+03. Elton Dumont - All Night Long (Original Mix) (3:16)
+04. Ricky Jones - Just Be (Orginal Mix) (4:44)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1111A20F73A46D0B5AC66F09BED4A0F0B0E6F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513193   (226077) от 28.11.2021
 
 VA - We Are 3000Grad (Katzengold DJ Mix 004) (2021) [AAC|~307 Kbps] <Deep House, Tech House>
@@ -6,7 +35,7 @@ VA - We Are 3000Grad (Katzengold DJ Mix 004) (2021) [AAC|~307 Kbps] <Deep House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +61,7 @@ VA - Prognoesis, Vol. 02 (2021) [AAC|~337 Kbps] <Organic House, Progressive Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +90,7 @@ Dabro - Юность (2020) [AAC|~301 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -90,7 +119,7 @@ Fourplay - Best of Fourplay (2020 Remastered) (2020) [AAC|~360 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -119,7 +148,7 @@ VA - Morttagua - 5 Years, Vol. 1 (2021) [AAC|~306 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -148,7 +177,7 @@ VA - Dark Melodies, Vol. 3 (2020) [AAC|~325 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -177,7 +206,7 @@ VA - Dark Melodies, Vol. 2 (2020) [AAC|~327 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -206,7 +235,7 @@ VA - Morttagua - 5 Years, Vol. 2 (2021) [AAC|~314 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -235,7 +264,7 @@ VA - Prognoesis, Vol. 01 (2021) [AAC|~329 Kbps] <Organic House, Progressive Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -264,7 +293,7 @@ VA - World Of Psychill (2021) [AAC|~307 Kbps] <PsyChill, Psybient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +322,7 @@ VA - Dark Melodies, Vol. 4 (2021) [AAC|~330 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +351,7 @@ VA - Berlin Rooftop Sessions 2k22 (2021) [AAC|~308 Kbps] <Melodic House & Techno
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +380,7 @@ Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) [AAC|~336 Kbps] <Pop, Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -380,7 +409,7 @@ VA - Rail Tail (2021) [AAC|~337 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -409,7 +438,7 @@ VA - Dark Melodies, Vol. 1 (2020) [AAC|~324 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -464,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -490,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -516,7 +545,7 @@ VA - The 100, Vol. 1 (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Tech
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -545,7 +574,7 @@ Pink Floyd - Chillout (2021) [AAC|~320 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -574,7 +603,7 @@ Pink Floyd - Night (2021) [AAC|~334 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -603,7 +632,7 @@ Pink Floyd - Home (2021) [AAC|~322 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -632,7 +661,7 @@ Pink Floyd - Play (2021) [AAC|~332 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -661,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -687,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -698,33 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF434A226B5EE77F21AC34B5C5EE8080A80AC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342274   (225184) от 01.12.2019
-
-Следи за дорогой / Adopt a Highway (2019) WEB-DL [1080p] (MVO) ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассел вышел на свободу, отсидев 20 лет в тюрьме. Он пытается приспособиться к жизни, работая в закусочной и проживая в маленькой убогой квартире. Однажды ночью в мусорном баке он находит младенца и решает заботиться о нем.Производство: США / Divide/Conquer, Blumhouse Productions, Under the InfluenceЖанр: ДрамаРежиссер: Логан Маршалл-ГринАктеры: Итэн Хоук, Крис Салливан, Кристофер Хейердал, Илэйн Хендрикс, Энн-Мари Джонсон, Бетти Гэбриел, Мо, Нат Муни, Дон Норвуд, Милона Джексон, Крис Уильямс, Дайан Маршалл-Грин, Джереми Харрис, Хорхе Диас, Лони ЛавПеревод: Любительский двухголосый (Voice Project Studio)
-Присутствует ненормативная лексика!Субтитры: Русские (FOCS), английскиеПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0DC1D42FCC29F0F9DDC2E85D6EE94F5568E2A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1545025   (609620) от 22.04.2022
+
+Urferd - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Gryning (00:03:57)
+02 - Avfärd (00:08:25)
+03 - Strövtåg (00:04:07)
+04 - Hymn (00:03:49)(   Читать дальше...   )Жанр: Nordic Folk, AmbientПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C235C762652BB5253CF0BE251435A4EA05E1E60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545800   (609618) от 22.04.2022
+
+Chet Atkins – From Nashville With Love & Solo Flights (2015) [FLAC|Lossless|image + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+From Nashville with Love (1966)
+01. La Fiesta (2:56)
+02. The Song from Moulin Rouge (2:21)
+03. Something Tender (3:03)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE241779760CDBF30B67CFA31AB1AAC465D3191B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 222010   (609412) от 27.07.2010
+
+Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Adiemus (Adiemus I - 1999 Version) (3:57)
+02. Pie Jesu (Requiem) (4:33)
+03. Hymn Before Action (The Armed Man) (2:38)
+04. Cantus: Song of Tears (Adiemus II - Journey Edit) (3:56)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231098   (608849) от 16.06.2018
+
+Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Cloudforest Trail (6:16)
+2. Pillars in the Mist (9:34)
+3. In the Presence of Beauty (7:05)
+4. Secrets in Stone (10:04)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296841   (608534) от 19.04.2019
+
+Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Reflection (7:17)
+ 02. The Road to Here (6:07)
+ 03. Rising (8:49)
+ 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB769BCDBA2AA1F1B967FF983C28F8F54E77A3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296785   (607895) от 19.04.2019
+
+А.И.Жихарев - Вознесение (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Напутствие (5:23)
+02. Призыв (3:58)
+03. Без названия (5:54)
+04. Исповедь (7:35)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC651860470A4FE4ACFBD145FEF98D0D8C32DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147338   (607606) от 03.07.2017
+
+VA - The Organ Plays Sentimental Favorites (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dick Hyman - A String Of Pearls (3:01)
+02. Dick Hyman - Moonlight Serenade (4:08 )
+03. Eddie Layton - Medley: Tangerine / That Old Black Magic (3:20)
+04. Bill Thomson - Ebb Tide (3:13)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8D5E8DEA9007CC4CDB37294E17AFE8BC686459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147321   (607511) от 03.07.2017
 
 VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -6,7 +209,7 @@ VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +273,7 @@ Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -99,7 +302,7 @@ T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +331,7 @@ Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +360,7 @@ Ginger Wildheart - The Pessimist's Companion (2018) Remastered, 2022, Wicked Coo
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +389,7 @@ Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +418,7 @@ Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +447,7 @@ Francis Goya/Франсис Гойя - Романтический альбом (
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +476,7 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +505,7 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +534,7 @@ VA - Emmanuelle - Instrumental Collection (2004) [APE|Lossless|image + .cue] <Po
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +563,7 @@ Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +592,7 @@ Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (201
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +621,7 @@ VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +650,7 @@ Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +679,7 @@ Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +708,7 @@ Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +737,7 @@ VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -548,209 +751,6 @@ VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28A4AD43251590195F00B8C3299F53EE5829F24D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297703   (603089) от 24.04.2019
-
-Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Атомы любви
-2. Перезагрузи
-3. Родины нет во мне
-4. Рядом с тобой(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297558   (603082) от 24.04.2019
-
-Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (My World) (2:18)
-02. Arrival of the Jelly Bubbles (4:25)
-03. Bb's Nest Building (2:32)
-04. Bb's Working Their Magic (2:41)(   Читать дальше...   )Жанр: New age, WorldПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595DD704F5D8198D3ED3B18D1FA6E81A8EF67620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297778   (603075) от 24.04.2019
-
-Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loitsu (5:33)
-02. Valoa (3:36)
-03. Marian rukous (6:26)
-04. Aiti Maa (4:32)(   Читать дальше...   )Жанр: New age, World Music, EthnoПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6F6FED079CDA1A55FD87F0C387D0641DD42C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297861   (602652) от 25.04.2019
-
-Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Acoustic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602652.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Running Through Woodland
-2.Hidden Beneath
-3.Pretend To Forget
-4.Hope(   Читать дальше...   )Жанр: Ambient, Instrumental, AcousticПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4724E63B3C44A9934D9B80C601A4BF010BE30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297927   (602644) от 25.04.2019
-
-VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602644.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Could It Be Magic -	4:20
-2.	Earth Song -	7:42
-3.	Conquest Of Paradise -	5:02
-4.	Heaven For Everyone -	5:19(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0680EB0A570C4C3B621B0C98987A3C2054290229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149130   (602539) от 09.07.2017
-
-Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in Familiar Sorroundings 04:43
-02. Shifting Sands 03:45
-03. Warm Embrace 03:15
-04. Dance of the Unknown 03:46(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907614CBF95A2726B73B3EC50F9AF6CBC116D8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149111   (602538) от 09.07.2017
-
-Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in Familiar Sorroundings 04:43
-02. Shifting Sands 03:45
-03. Warm Embrace 03:15
-04. Dance of the Unknown 03:46(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D35B2407ED0629CA3FCF090324D4253423AD8F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

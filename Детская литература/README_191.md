@@ -1,110 +1,3 @@
-###  Публикация: 1732693   (51918) от 26.06.2024
-
-Григорий Белых, Леонид Пантелеев | Республика ШКИД (1927) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Республика ШКИД», написанная Леонидом Пантелеевым в 1926 году в соавторстве со своим другом и однокашником Григорием Белых, принесла юным авторам оглушительную популярность.
-Авторы этой книги – бывшие беспризорники. Из тех, кому судьбой была уготована участь бродяг, воров и налетчиков. Лишь случайность помешала каждому докатиться до самого дна жизни. Написали (   Читать дальше...   )Жанр: ПовестьИздательство: Государственное ИздательствоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34541BF5E048BF91BD43509B3AD4E08632E67C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233392   (49016) от 24.07.2024
-
-Русские народные сказки (1902) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русские народные сказки. Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиЯзык: Русский дореформенныйИздательство: Санкт-Петербург. Т-во М.О. ВольфФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A7FFAD237BC6676A5C2C4A7BCC6B8B2E8963FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227598   (48954) от 25.07.2024
-
-Л. Ф. Баум, А. Волков, С. Сухинов, Ю. Кузнецов | Изумрудный город. Межавторский сборник (59 книг) [FB2, DOC, RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48954.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Волшебник Изумрудного города» — сказочная повесть Александра Мелентьевича Волкова, написанная в 1939 году и являющаяся переработкой сказки Фрэнка Баума «Удивительный Волшебник из Страны Оз» (англ. The Wonderful Wizard of Oz). За неимением специального, общего для всего цикла имени, так называют и цикл, состоящий из продолжений этой сказки, написанных Волковым самостоятельно, (   Читать дальше...   )Жанр: СказкиИздательство: АСТ, Альдебаран и др.Формат: FB2, DOC, RTFКачество: Изначально электронное (e-book)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564A1AC1653D35D2F53BF0EFB3B2BB4AF7F9489D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739913   (48386) от 30.07.2024
-
-Николай Дубов | На краю земли (1953) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «На краю земли» посвящена жизни пионеров и комсомольцев маленькой деревушки на Алтае, дружному коллективу колхозников.
-Для детей старшего школьного возраста.
-Иллюстрации В. Высоцкого.Жанр: ПовестьИздательство: Государственное Издательство Чувашской АССРФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0ABCA8895A2E3C056BBE22E97982783B128F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115031   (47576) от 07.08.2024
 
 Александр Пушкин | Руслан и Людмила (1969) [PDF]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -277,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -305,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -332,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -358,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -385,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -411,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -437,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -463,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -490,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -516,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -542,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -599,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -628,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -654,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -680,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -691,6 +584,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EC7D77288BDE84FA70DFE00113CE84EFC4DF8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780084   (27431) от 16.02.2025
+
+Арсений Замостьянов | Русские народные сказки с объяснялками для взрослых и детей (2023) [PDF, EPUB, FB2, FB3, RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Почему мы любим сказки? Они увлекательны! С раннего детства мы влюбляемся в этот страшноватый и лукавый фольклорный мир. Еще сравнительно недавно – в начале ХХ века – сказки заменяли детям и взрослым и радио, и библиотеку, и телевидение, и интернет. Сказитель был важнейшей фигурой в жизни любого села. У него набирались уму-разуму, его сказки слушали и взрослые, и (   Читать дальше...   )Жанр: детская познавательная и развивающая литература, русские сказкиИздательство: РодинаФормат: PDF, EPUB, FB2, FB3, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADE401D84282789E1D458249A591F9FBF2A68A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780878   (26992) от 20.02.2025
+
+Саша Станишич | Волк (2024) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Детский лагерь в лесной глуши. Отдых на природе, походы, картошка на костре, докучливые комары... На несколько дней подростки оторваны от цивилизации, гаджетов и социума. Два одноклассника — изгой класса Йорг и одиночка Кеми — становятся соседями по домику. Йорга, замкнутого и тихого парня, несколько одноклассников подвергают насмешкам, унижениям и всяческим издёвкам. (   Читать дальше...   )Жанр: детская проза, зарубежные детские книги, психологическая проза, социальная прозаПеревод: Ольга ТеремковаИздательство: СамокатФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CFDD78B591BE827414754D7E2A35DB3319E3D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782118   (26245) от 27.02.2025
+
+Книжная серия | Наша марка [7 книг] (2016-2022) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Книги серии «Наша марка» — это стихи и сказки для малышей, познавательные истории для школьников о природе и животном мире, рассказы и повести о детях. В серию входит множество классических произведений известных русских писателей и художников и книги современных авторов.
+Маленькие герои «Нашей марки» — активные и деятельные ребята, мечтатели и фантазеры. Они любознательны (   Читать дальше...   )Жанр: Детская проза, Детские приключенияИздательство: Детская литератураФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BDD281EC299C23A309DE1B736C59F16E353A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785225   (24584) от 15.03.2025
+
+Жозеф-Шарль Мардрюс | Тысяча и одна ночь. Арабские сказки (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Перевод этой книги сделан с французской версии сказок «1001 ночи» под редакцией Ж.-Ш. Мардрюса, отличающейся от других изданий наиболее пикантным изложением. Специально к изданию Мардрюса художник Леон Карре создал иллюстрации, полные восточной неги и чувственности.Жанр: ПрозаИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0624F253E18204A75D5246F809916C252F7F674
 ```
 
 https://mybot314.ru/tekegram_catalog/

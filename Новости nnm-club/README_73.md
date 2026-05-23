@@ -1,3 +1,188 @@
+###  Публикация: 1119547   (806652) от 28.03.2017
+
+Mozilla Firefox 52.0.2 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5E446852E01D25366BBA431171EF56719C5561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119141   (806643) от 28.03.2017
+
+Мираж - Снова вместе (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Млечный путь [4:28]
+02. Где я [4:40]
+03. Море грёз [4:33]
+04. Я не шучу [3:15](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE4841B3DD9E405FC339282FF55786A72AB2149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119035   (806638) от 28.03.2017
+
+Проекты - VideoHive - Backstage Promo - 17258484 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания динамичной презентации, состоящей из трех вариантов различной продолжительности.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E3DADC29E5677B14B51C0A8EF0D9C13795E9A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119599   (806556) от 28.03.2017
+
+Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Великобритания / Allison Shearmur Productions, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Диего Луна, Алан Тьюдик, Донни Йен, Вэнь Цзян, Бен Мендельсон, Форест Уитакер, Риз Ахмед, Мадс Миккельсен, Джимми СмитсПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные),  Английские (Full, SDH)Продолжительность: 02:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA663955FA6883479F0186276F5C4268884CA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 829731   (806464) от 03.04.2015
+
+Cross Ange: Tenshi to Ryuu no Rondo | Крест Анжи: Танец ангела с драконом [2014, TV, 25 эп.] HDTV 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом мире все владеют маной – магической энергией, позволяющей творить чудеса и вести безбедную жизнь. Правда, изредка рождаются «нормы», не способные использовать ману – таких убивают или изгоняют, их не считают за людей. Все это отлично знала Анжелиза, 16-летняя наследница трона империи Мисуруги. Но даже в страшном сне девушка не могла заподозрить, что она – (   Читать дальше...   )Жанр: приключения, меха, юриРежиссер: Асино ЁсихаруСубтитры: русские отПродолжительность: 25 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A656A4112C5E202535940B20BF19923965D2D2D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884146   (806459) от 03.04.2015
+
+Игра в имитацию / The Imitation Game (2014) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1941 год. Английскому математику Алану Тьюрингу поручено расшифровать секретный код Третьего рейха — Enigma. Тьюринг действует по поручению Британской разведки в центре, специализирующемся на взломе шифров и кодов. Для выполнения сверхсекретного задания здесь собрана целая команда талантливых ученых, которым предстоит создать первый в мире компьютер.Производство: Великобритания, США / Black Bear Pictures, Bristol AutomotiveЖанр: Триллер, Драма, Военный, БиографияРежиссер: Мортен ТильдумАктеры: Бенедикт Камбербэтч, Кира Найтли, Мэттью Гуд, Рори Киннер, Аллен Лич, Мэттью Бирд, Чарльз Дэнс, Марк Стронг, Джеймс Норткот, Том Гудман-ХиллПеревод: Дублированный (Лицензия «R5»), Одноголосый закадровый, любительский (А.Матвеев)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Full / А.Матвеев), Украинский (Full), Английский (Full, SDH, SDH-Colored)Продолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8B2A3F4DC94C8296ECE745C5F859CC6ADA894D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884428   (806454) от 03.04.2015
+
+War for the Overworld (2015) [Ru/Multi] (1.0) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+War for the Overworld – стратегия в реальном времени, вдохновленная такими известными проектами как Dungeon Keeper, Overlord и Evil Genius. В War for the Overworld вы выступите в роли владыки подземного царства, задача которого укрепить и максимально развить свою империю зла. Стройте огромные подземелья, командуйте армиями злобных прислужников, создавайте ужасные (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Subterranean GamesЖанр: Strategy (God Sim / Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, русский, французский, итальянский, немецкий, испанский, польскийЯзык интерфейса: Английский, русский, французский, итальянский, немецкий, испанский, польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B66D4639AAEFDB688D76C11927A5AAE08752C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504960   (805863) от 26.10.2021
 
 Вышел официальный трейлер GTA Trilogy Remastered
@@ -6,7 +191,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_805863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +217,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +269,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (7575778) License 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +321,7 @@ Windows 7-10 Pro х86-x64 by g0dl1ke 20.05.15 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +399,7 @@ The KMPlayer 4.0.7.1 RePack by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +451,7 @@ White Noise v6.1.2 Pro / Full [Ru/En] - будильник с релаксиру
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_804899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +581,7 @@ XviD4PSP 7.0.373 DAILY Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +608,7 @@ SIGERSHADERS Corona Material Presets Pro 2.0.2 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +663,7 @@ Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.282]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,198 +677,6 @@ ru-ru_windows_11_business_editions_version_21h2_updated_october_2021_x64_dvd_aea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:879896C97E4D1DDB3C57AD4A6E1069BB8E9CE2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504426   (803849) от 27.10.2021
-
-Дюна / Dune: Part One (2021) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия /  Warner Bros, Legendary Entertainment, Villeneuve FilmsЖанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: Дублированный (iTunes), Многоголосый профессиональный (Jaskier, HDRezka Studio), Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 02:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657A88811F4643F2A3943E99512BABD7B32CFF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775900   (803813) от 19.04.2014
-
-Minecraft (2011) [Ru/Multi] (1.7.7) Repack Kron
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft это игра наподобие песочницы в которой можно строить.
-
-Игра постоянно в процессе развития. Разрабатывается Маркусом Перссоном, известным также как "Notch". Игра была задумана как клон игры Infiniminer, хотя Перссон хочет, чтобы геймплей был больше похож на Dwarf Fortress.
-
-В режиме выживания, основной задачей является строительство и зарабатывание очков, но в него также включен ряд дополнительных функций. Такими является наличие враждебных монстров, а так же необходимость собирать ресурсы на постройку сооружений и материалы для ковки инструментов работы и защиты от монстров.Тип издания: RepackРазработчик: MojangЖанр: Аркада, Платформер, ПесочницаЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D71C5899D2649F061F0C1DD8F81E16AE077FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377290   (803739) от 19.05.2020
-
-Последний танец / The Last Dance (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная лента «Последний танец», в которой зрители смогут увидеть ранее не рассказанные истории о легенде баскетбола Майкле Джордане и команде «Чикаго Буллз» времён девяностых годов. Фильм состоит из десяти частей. Создатели покажут редкие и незасвеченные кадры, а также обещают более ста интервью с героями НБА того времени. Помимо видеозаписей Джордана в документальный (   Читать дальше...   )Производство: США, ESPN Films, Jump 23, Mandalay Sports Media (MSM), NBA EntertainmentЖанр: Документальный, спорт, биографияРежиссер: Джейсон ХехирПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские (форсированные), русские, английские (форсированные), английские, немецкие, испанские, финские, французские, итальянские, польские, португальскиеПродолжительность: серии x ~00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80EBF18FC15E9A61F186698D706330165EE98416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384353   (803736) от 19.05.2020
-
-Adobe Photoshop 2020 21.1.3.190 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8342A029112D8A3EEC3710B4092014EA24E103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009522   (803316) от 24.04.2016
-
-LockScreen 2.0 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа LockScreen предназначена для блокировки компьютера путем установки горячих клавиш.Блокируются клавиатура и мышка.Стандартная блокировка(Win+L) не блокируется.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EA21DE7216BB538C4922A02310AC26E0A1012A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010332   (803232) от 24.04.2016
-
-Bandicam 3.0.4.1036 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D887A9AF096B55F0C5AB421BBF1F9030C127D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471317   (803220) от 24.04.2016
-
-Joe Bonamassa - 23 альбома (2000-2016) Официальная дискография [FLAC|Lossless|image + .cue]<Blues Rock, Hard Rock, Rock and Roll>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Studio Albums:
-2000 A New Day Yesterday
-2002 So, It's Like That
-2003 Blues Deluxe(   Читать дальше...   )Live Albums:
-2002 A New Day Yesterday Live
-2008 Live from Nowhere in Particular
-2009 Live from the Royal Albert Hall(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Rock and RollПродолжительность: 31:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627B252B19779145C0D0A534144055130CFD4418
 ```
 
 https://mybot314.ru/tekegram_catalog/

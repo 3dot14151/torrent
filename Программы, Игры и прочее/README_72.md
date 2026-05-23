@@ -1,3 +1,81 @@
+###  Публикация: 1569209   (453347) от 12.08.2022
+
+Гадание на рунах v1.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Руны - это древнейшая магическая система, представляющая основные силы природы. На протяжении многих столетий руны использовались для предсказаний и принятия важных решений. Как и гадание на игральных картах или гадание на Таро, руны всегда очень точно предсказывают будущее и помогают выбрать правильную линию поведения.Тип издания: FullРелиз состоялся: 6 апр. 2022 г.Разработчик: Xeen SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FCEA7DA73E4908CB74DB9777DB2E45C68BE89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569282   (453334) от 12.08.2022
+
+XMusic - Музыкальный плеер 2.8.1.90 Mod by @Mod_AppStore [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+XMusic - это великолепно исполненный Музыкальный плеер для Android. Музыкальный плеер с отличным эквалайзером, поддержкой всех форматов и стильным пользовательским интерфейсом обеспечит вам наилучшие условия прослушивания музыки. Просматривайте все песни на устройстве Android.Тип издания: PremiumРелиз состоялся: 21.11.2021Разработчик: InShot Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA668D7765E0DA1469B98E5ACAD636D3FE3F45F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942509   (452842) от 01.10.2015
+
+Оффлайн карты всего мира к программе MAPS.ME – Offline Map & Routing (Акт. Сентябрь 2015) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Подборка оффлайн карт всего мира для программы MAPS.ME – Offline Map & Routing! Эта программа для любителей путешествовать, с детальными картами всего мира с оффлайн поиском. Чувствуйте себя уверенно в любом путешествии с картами MAPS.ME! Вы всегда будете знать, где вы сейчас находитесь, где ближайший ресторан или банкомат, магазин или автобусная остановка. И (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 26.09.2015Разработчик: MapsWithMe GmbHПоддерживаемая ОС: Android 2.1+ и вышеЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F0CA216AE49D549D79F8540DF630CB01831C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013267   (452356) от 08.10.2016
 
 Total Media Player v1.7.7 Pro [Ru/Multi] - многофункциональный медиа проигрыватель под Android
@@ -6,7 +84,7 @@ Total Media Player v1.7.7 Pro [Ru/Multi] - многофункциональны�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Simpler Premium v2.18.210 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +139,7 @@ Drift Max Pro v2.1.01 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +165,7 @@ Garmin: City Navigator Europe NTU 2019.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +191,7 @@ Squid: Take Notes, Markup PDFs v3.4.4.6-GP  [Ru/Multi] - удобные заме
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +348,7 @@ Bookari Premium (бывшая Mantano Ebook Reader) v4.2.4 [Ru/Multi] - Чита
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +461,7 @@ ReGYM v2.5 [Ru/En] - дневник тренировок (фитнес и пау
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +649,7 @@ Endel: звуковые фоны 3.60.460 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +676,7 @@ Ear Scout: Super Hearing 1.4.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,86 +687,6 @@ Ear Scout: Super Hearing 1.4.7 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B4A2A8264892F50C578E6897235288A14B1262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572457   (421037) от 27.08.2022
-
-Call Log Analytics 2.1.2 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Call Log Analytics полезно тем, что оно помогает вам отслеживать Ваши данные о вызовах.
-Приложение предлагает уникальный интегрированный опыт работы с номеронабирателем, аналитикой, использованием вызовов и резервным копированием
-Дизайн интерфейса интуитивно понятен, прост и не содержит беспорядка, используя рекомендации по дизайну материалов. Мы открыты (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 4 июл. 2022 г.Разработчик: QohloПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6E92E91F32F8DADCA419A0E7DBF1978F09AE5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065007   (420960) от 22.10.2016
-
-Рецепты с фото «Готовят все!» v2.1.3 Ad-Free [Ru] - более 2000 кулинарных рецептов с фотографиями
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 2000 бесплатных пошаговых кулинарных рецептов с профессиональными фото каждого шага. Самые любимые рецепты для мультиварки, салатов, тортов, супов и других блюд. Вкусные домашние рецепты от лучших шеф-поваров. Аналогов – нет! Самое популярное кулинарное приложение для iPhone и iPad - теперь и для Android смартфонов и планшетов. 1,5 млн. пользователей!Тип издания: ПираткаРелиз состоялся: 15.12.2015Разработчик: Издательство "Эксмо"Поддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E236F24FC7D6B4EF727D06039EF47D037DC5ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 675038   (420675) от 22.10.2016
-
-Phases of the Moon Pro 4.5.1 [Ru] - Фазы луны
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте текущую фазу Луны с помощью одной из наиболее детальных и научно точных визуализаций. Это приложение использует симуляцию Лунной поверхности, созданную NASA Lunar Reconnaissance mission.Тип издания: ПираткаРелиз состоялся: 22.10.16Разработчик: Universe TodayПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3398F2E5A66F06245FD2982F49448A5612A1B39
 ```
 
 https://mybot314.ru/tekegram_catalog/

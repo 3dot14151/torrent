@@ -1,3 +1,84 @@
+###  Публикация: 1301096   (585914) от 10.05.2019
+
+Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней партой [2012, TV, 13 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+16-летняя Сидзуку Мидзутани любит учиться и думать о своем будущем. Больше ей ничего не нужно, потому девушка и в старшей школе выстраивает образ «ботанички», в общении с остальными ограничиваясь простой вежливостью. Только, как на грех, учительница попросила героиню отнести конспекты загадочному парню Хару Ёсиде, который должен сидеть с Мидзутани рядом, но до сих (   Читать дальше...   )Производство: Япония,Жанр: комедия, романтика, повседневностьРежиссер: Кабураги ХироПеревод: русские субтитры (только надписи, полные)Язык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A257B724CC6B479EC2B3A94E5F04B7D5E6F9203C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302518   (579961) от 16.05.2019
+
+No Game No Life: Zero | Нет игры - нет жизни: Начало [2018, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта история происходит за шесть тысяч лет до того, как Сора и Сиро появились в истории Дисборда.
+Война уничтожила землю, разрывая небеса, разрушая звёзды и даже угрожая уничтожить всё человечество. Среди хаоса и разрушения молодой человек по имени Рику ведёт человечество к завтрашнему дню по велению своего сердца. В один прекрасный день, в руинах города эльфов, он (   Читать дальше...   )Производство: Япония, Madhouse StudiosЖанр: приключения, фэнтези, драмаРежиссер: Исидзука АцукоЯзык озвучки: Японский, РусскийСубтитры: Перевод1: ASS, Встроенные | RusПродолжительность: 106 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361DBDA13E69161252A0AA2043D484DDA85672A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300100   (575541) от 19.05.2019
+
+Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивительный мир Эль-Хазард OVA-1 [1995, OVA, 7 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В прошлом, в параллельном мире «Эль Хазард» обитала высокоразвитая цивилизация, войны которой затрагивали даже соседние миры. В итоге эта цивилизация уничтожила сама себя. Однако, после неё сохранилось множество артефактов и в частности, орбитальное орудие «Око Бога». Коренное население Эль Хазарда — люди и разумные жуки, багромы, с ужасом вспоминают древние войны (   Читать дальше...   )Производство: Япония,Жанр: приключения, комедия, романтика, фэнтезиРежиссер: Хаяси ХирокиПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 7 эп. по 29 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302C33E061B532D7108F2B9413E0A1364236A405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924532   (557217) от 04.08.2015
 
 Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармагеддон [1983, MV] BDRip 1080p Hi10P raw + rus
@@ -6,7 +87,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +141,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +168,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +195,7 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +222,7 @@ Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь р�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +248,7 @@ Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +300,7 @@ One Punch Man (2019) / Ванпанчмен [ТВ-2] [2019, TV, 12 ep] WEB-DL 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +352,7 @@ RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +486,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +512,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +538,7 @@ Boku no Hero Academia the Movie: Futari no Hero | My Hero Academia the Movie: Th
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +592,7 @@ Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +620,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,85 +686,6 @@ world-art.....Перевод: Многоголосый любительский 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB2B680EE02451E5FC46429C01BBD28B04E91EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935355   (498103) от 09.09.2015
-
-Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDrip 1080p raw+rus(x3)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498103.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем на Земле властвуют могущественные вампиры, поработившие человечество. Эти кровожадные монстры – бессмертные потомки древних аристократических родов – держат людей в страхе, наслаждаясь беспомощностью смертных и горячей кровью в их венах. Став жертвой "поцелуя бессмертия" ужасного графа Ли, отважная девушка Дорис обращается за помощью к (   Читать дальше...   )Производство: Ashi ProductionsЖанр: Приключения, Драма, УжасыРежиссер: Асида ТоёПеревод: MC EntertainmentСубтитры: TX3GФормат: MP4Продолжительность: 01:21:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9256D189D8BBC70907C123B658031F8CF0D728F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405352   (484681) от 29.08.2020
-
-Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [2012, Movie] BDRip 1080p Hi10p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый век несет новые опасности. Цифровое рабство, ещё недавно бывшее воспаленной фантазией темных сил, становится реальностью. Среди тех, кто борется с ним — группа Сайрат, пытающаяся раскрыть подноготную человека по имени Фумито Нанахара, деятеля, подмявшего под себя Токио, чье политическое влияние не ограничивается рамками закона. И в момент, когда кажется, что (   Читать дальше...   )Производство: Япония,Жанр: приключения, мистика, драмаРежиссер: Сиотани НаоёсиПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 110 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31402473DFF712BBD1AF1FC8C7E4A672FD6B5365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319922   (476684) от 15.08.2019
-
-Big Order | Приказ свыше [2016, TV, 10] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, Хошимия Эйджи, на вид обычный японский школьник, нахальный и необщительный парень, которому совершенно плевать на учёбу. Но у него есть весьма интересный секрет: ещё будучи мальчишкой, он пожелал уничтожения всего мира. И его желание было исполнено! Страшный катаклизм прокатился по Земле, что обернулось огромными разрушениями и многочисленными смертями. (   Читать дальше...   )Производство: Япония, asreadЖанр: Приключения, МистикаРежиссер: Каманака НобухаруЯзык озвучки: Японский и русскийСубтитры: ОтсутствуютПродолжительность: 10 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0223287DB355716264C9FF682468D31F550C97B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

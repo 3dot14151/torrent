@@ -1,3 +1,108 @@
+###  Публикация: 1039258   (595901) от 01.08.2016
+
+Р.М. Малинин | Питание радиоаппаратуры от электросети (1970) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге приводятся практические схемы выпрямителей и стабилизаторов напряжения различных типов, излагаются принципы их работы, даются расчеты этих устройств. Описываются конструкции трансформаторов и автотрансформаторов питания и дросселей сглаживающих фильтров.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D36C96E27C98F6DAF5CBEF3FFDB2C8AB7006F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039420   (595816) от 01.08.2016
+
+Р.М. Малинин(сост.) | Справочник по радиоприемникам (1937) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге даны сведения о ряде радиовещательных приемников, которые к моменту окончания работы не были еще пущены в производство, но выпуск которых можно было ожидать в определенном времени. По некоторым из этих приемников, как не имеющих к указанному времени вполне законченного промышленного оформления, пришлось дать менее подробные сведения, чем по приемникам, выпускаемым (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9A538B12F8743C8AEBD0E156F814DF54C32AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039233   (595812) от 01.08.2016
+
+Р.М. Малинин | Трансформаторы и автотрансформаторы питания (1963) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Брошюра содержит справочные сведения по конструированию трансформаторов и автотрансформаторов питания для радиолюбительской аппаратуры. В ней дается методика упрощенного расчета трансформаторов и автотрансформаторов, приводятся таблицы типовых Ш-образных и ленточных витых магнитопроводов с указанием, до какой предельной габаритной мощности может быть использован (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FDF3E5B429D912A732801708BB3DE849BE5FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 11137   (595787) от 03.05.2019
+
+Ремонт радиотелефонов Senao, Voyager, Panasonic, Harvest
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книги по ремонту радиотелефонов Panasonic и Senao
+Книги из серии МРБ в формате PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BB0C4C40C7324A167F05B4924EAD23E4435FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150373   (594816) от 14.07.2017
 
 Книжная серия | Электроника для продвинутых [8 книг (+4CD,DVD)] (2008-2011) [PDF, DJVU]
@@ -6,7 +111,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ DDiX LABS | Спутниковое ТВ, Интернет - это просто!
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +296,7 @@ Trevor Linsley | Basic Electrical Installation Work, 6th Edition (2011) [PDF] [E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +428,7 @@ Trevor Linsley | Basic Electrical Installation Work 9th Edition (2018) [PDF] [EN
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +455,7 @@ Terrell Croft и др. | American Electricians' Handbook, Sixteenth Edition (201
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +481,7 @@ Charles R. Miller | Ugly’s Electrical References, 2020 Edition 6th Edition (20
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9436EFF998AAE4502A44E79B1CB94FE2489582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555107   (571964) от 02.06.2022
-
-Сергей Пахомов | Направленные антенны для беспроводных устройств (2006) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Направленные свойства антенн определяются зависимостью напряженности излучаемого антенной поля от направления. Графическое изображение этой зависимости называется диаграммой направленности антенны. Трехмерная диаграмма направленности изображается в виде поверхности, описываемой исходящим из начала координат радиус-вектором, длина которого в каждом направлении пропорциональна (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FDF6E20200A1111F8BAF05C842D61B4B5CE872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921533   (571675) от 27.07.2015
-
-В.Ф. Мышкин и др. (ред.) | Современные проблемы волоконно-оптических линий связи [том4] [4 книги] (2005) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочное пособие представляет фундаментальное руководство по основным проблемам планирования и построения волоконно-оптических линий связи (ВОЛС) и современных цифровых сетей связи. Рассмотрены физико-химические характеристики материалов использующихся при изготовлении различных компонентов для ВОЛС, волоконно-оптические кабели, средства контроля и измерения для (   Читать дальше...   )Жанр: Электроника, связьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D9FC5C4C695468E01C3A89857A2D2C34964305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302921   (570491) от 22.05.2019
-
-В. Блази | Справочник проектировщика. Строительная физика (2004) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит материал по технологическим, теплофизическим и акустическим характеристикам современных строительных материалов. На многочисленных примерах расчетов показано поведение различных ограждающих конструкций при воздействии на них температуры, влажности и шума. Рассматриваются вопросы пожарозащиты зданий и защиты от огня несущих и ограждающих конструкций. (   Читать дальше...   )Жанр: СтроительствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C57A75BFD9C88FB1CD6E719EE29CAEF825289CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302725   (570490) от 22.05.2019
-
-А.П. Кашкаров | Электронные системы охраны с пироэлектрическими датчиками и способы их нейтрализации (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проблема "нейтрализации" охранных сигнализаций, установленных стационарно, не теряет своей остроты: страховые выплаты хоть и покрывают ущерб в случаях потери имущества после несанкционированного проникновения в охраняемые электроникой помещения, однако заинтересованную общественность беспокоит то, чтобы в будущем не участились подобные случаи. Сегодня охранные (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0986A10874AF27DC232A1AB3EE3C67FF2EE41981
 ```
 
 https://mybot314.ru/tekegram_catalog/

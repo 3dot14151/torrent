@@ -1,3 +1,145 @@
+###  Публикация: 923046   (566199) от 30.07.2015
+
+Al Bano & Romina Power - Аль Бано и Ромина Пауэр (1982) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Italo-Disco, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Чистый воздух (Aria Pura)  3:14
+2. Счастье (Felicita)  3:16
+3. Идиллия (Sharasan)  4:48(   Читать дальше...   )Жанр: Italo-Disco, Pop RockПродолжительность: 00:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2642248F866BAE628B1936C17ED1C6C37C63F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923154   (566188) от 30.07.2015
+
+Smokie - Greatest Hits (1977) Repress /1988, Балкантон/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1. Lay Back In The Armes Of Someone (4:02)
+A2. Something's Been Making Me Blue (3:00)
+A3. If You Think You Know How To Love Me (3:24)
+A4. Pass It Around (3:06)(   Читать дальше...   )Производство: EMI / БалкантонЖанр: RockПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330A5ED060902A2D62E337C1C9AEA05968DFC2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303894   (565126) от 25.05.2019
+
+Bob Marley - Songs of Freedom. Part 2 (1994) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Reggae>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Africa Unite
+02. Survival
+03. Zimbabwe(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3379715825309C0F79E6D50C159268B4B7604447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303670   (565125) от 25.05.2019
+
+Baba Yaga  (Баба Яга) - Where Will You Go (Куда Ты Пойдешь?) (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 Where Will You Go (Куда ты пойдешь)
+A2 So Ends Another Day (Так заканчивается день)
+A3 Side To Side (Бок о бок)
+A4 Red Bird (Красная птица)(   Читать дальше...   )Жанр: Folk Rock, Blues RockПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B769561943A34700E8816A33302557EC72CFB03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 691399   (559913) от 20.08.2013
+
+The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Vinyl-Rip]<Hi NRG, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )Жанр: Hi NRG, Synth-pop, DiscoФормат: Vinyl, LP, AlbumПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D7177BBC3582D38A31AF8DD0A25CD038A2DA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924496   (559064) от 03.08.2015
 
 Genesis - Duke (1980) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
@@ -6,7 +148,7 @@ Genesis - Duke (1980) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -92,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -121,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -150,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -179,7 +321,7 @@ Ann Mortifee - Into the Heart of the Sangoma (2005) [DTS 5.0 CD-DA|44.1/16|image
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -208,7 +350,7 @@ Rob Halford (Judas Priest, Fight, Two) - Studio Albums (12 releases) (1993 - 201
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -229,33 +371,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557157   (556383) от 12.06.2022
-
-Mike Oldfield - Crises (1983) Deluxe Edition, remaster 2013 [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Art Rock, Prog-Rock, Progressive Electronic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crises - 20:38
-02. Moonlight ShadowПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C840A53633A8B526BBFBD091D1C095BDB39EDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236110   (556249) от 15.07.2018
 
 Duran Duran - Liberty (1991) Unofficial Release, 1992, Not On Label [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synthpop>
@@ -264,7 +379,7 @@ Duran Duran - Liberty (1991) Unofficial Release, 1992, Not On Label [FLAC 2.0|19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +408,7 @@ Johnny Cash - The Johnny Cash Collection 1955 - 1971 (1971) [FLAC 2.0|96/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +437,7 @@ Stars On 45 - Звёзды Дискотек - 2 (1982) [WavPack 2.0|192/32|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +495,7 @@ Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +524,7 @@ VA - Панорама '86. Фестиваль Молодежной Популя�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -468,7 +583,7 @@ Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +641,7 @@ Def Leppard - Pyromania (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +670,7 @@ Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +699,7 @@ Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +728,7 @@ David Lanz & Paul Speer - Desert Vision (1997) 2005 [DTS 5.1 CD-DA|44.1 /16|imag
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,122 +742,6 @@ David Lanz & Paul Speer - Desert Vision (1997) 2005 [DTS 5.1 CD-DA|44.1 /16|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DFC9E405D88848C1071D1D3F0EBC0C11F465565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311165   (543687) от 28.06.2019
-
-Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Vocal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543687.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Song Of Songs
-A2 At The Balalaika
-A3 Granada
-A4 Shine Through My Dreams(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27BF96131A3EEC9E00077F216931169E6E8BE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153806   (542648) от 29.07.2017
-
-ВИА ''Ритм'' - Дискотека «А». Из Репертуара Аллы Пугачевой (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542648.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Все Силы Даже Прилагая · Exerting All Powers
-A2 Улетай, Туча · Fly Away, Cloud
-A3 Женщина, Которая Поет · The Woman Who Sings
-A4 Три Желанья · Three Wishes(   Читать дальше...   )Жанр: Pop, Disco, FunkПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0011E5CC6EB1A6F6C9E8F2F162A92F7ED6E6E1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661593   (542556) от 05.08.2015
-
-Джо Дассен - Поет Джо Дассен (1980) [FLAC 2.0 96/24|traks(Vinil-Rip)]<Pop, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Et Si Tu N'Existais Pas - Если бы тебя не было  3:24
-2. L' Albatros - Альбатрос	3:08
-3. Ma Musique - Моя музыка	2:54(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20652EE75E8A853E4972B70D0989FDE6ADFBD402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818408   (541029) от 03.09.2014
-
-Pink Floyd - The Division Bell (1994) 2LP, 20th Anniversary /2014, Parlophone Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541029.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. Take It Back (6:18)
-C2. Coming Back To Life (6:14)
-C3. Keep Talking (6:07)
-D1. Lost For Words (5:13)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643BE2B96630075DE560959D2BEF05EC6203370D
 ```
 
 https://mybot314.ru/tekegram_catalog/

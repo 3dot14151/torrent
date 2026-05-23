@@ -1,3 +1,107 @@
+###  Публикация: 1317880   (498428) от 03.08.2019
+
+7th Sector (2019) [Ru/Multi] (1.0.4/dlc) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+7th Sector предлагает Вам погрузиться в загадочный мир киберпанка и преодолеть непростой путь, решая разнообразные технические задачи, сталкиваясь с опасностями и собирая по крупицам информацию о мире и происходящих в нем событиях. В этом путешествии Вам предстоит управлять несколькими "персонажами" со своими уникальными способностями и подключаться к различным (   Читать дальше...   )Тип издания: LicenseРазработчик: Носков СергейЖанр: Adventure, Puzzle, Logic, 3DЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558392B4D41D299A75BC0902C35AB192BA4046C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317015   (496183) от 05.08.2019
+
+60 Seconds! Reatomized (2019) [Ru/Multi] (1.0.377) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пост-апокалиптическая чёрная комедия возвращается — обновлённая и ещё более радиоактивная! Соберите запасы, спасите свою семью и приготовьтесь выживать в бункере. Принимайте трудные решения, воюйте с тараканами… и, может, вам удастся выжить. Долорес, Теду, Мэри Джейн и Тимми вновь предстоит пережить атомный апокалипсис в обновлённой версии классической игры 60 Seconds! (   Читать дальше...   )Тип издания: LicenseРазработчик: Robot GentlemanЖанр: Adventure, Simulator, Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238DA9C3B8DF2A79BF35B68697F6E55E483156A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404296   (494714) от 24.08.2020
+
+Wind Peaks (2020) [Ru/Multi] (2019.3.15.65342) Repack DeMax-95
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Wind Peaks - это поисковая игра, вручную нарисованная в мультипликационной стилистике, рассказывающая историю о группе скаутов, которые находят карту и благодаря ей попадают в магическую часть леса. В Wind Peaks история рассказывается через спрятанные предметы и окружение. Чтобы продвинуться по ней и активировать кат-сцену, найдите все предметы на уровне.Тип издания: RepackРазработчик: Actoon StudioЖанр: Adventure, Quest, Поиск предметовЯзык субтитров: Русский, Английский, Бразильский Португальский, КитайскийЯзык интерфейса: Русский, Английский, Бразильский Португальский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE05F58CA645C01DC420021ABD344847710F184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177285   (494385) от 06.08.2019
+
+Obduction (2016) [Ru/Multi] (1.8.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новая адвенчура от авторов Myst и Riven. Obduction представляет собой классическую приключенческую игра с видом от первого лица на движке Unreal Engine 4. Нам предстоит путешествовать по удивительным, ярким локациям практически в полном одиночестве. Важным нововведением станет то, что история будет рассказываться через игровой процесс, а не с помощью видеороликов.Тип издания: LicenseРазработчик: Cyan Inc.Жанр: Adventure, 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B297E9331FF37A180713509A3CA5FF88D59CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565284   (494306) от 23.07.2022
 
 Endling - Extinction is Forever (2022) [Ru/Multi] (0.16.25) License GOG
@@ -6,7 +110,7 @@ Endling - Extinction is Forever (2022) [Ru/Multi] (0.16.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Event[0] (2016) [En] (1.0/u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ CYPHER: Cyberpunk Text Adventure [En] (Lossless Repack/1.0) 2012 | SHARINGAN
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +193,7 @@ Silver Chains (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +219,7 @@ The Trail: Frontier Challenge (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +245,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.6.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +271,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.0.536) Repack Covfef
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +297,7 @@ The Long Dark (2017) [Ru/Multi] (1.10) SteamRip R.G. Игроманы [Episode 1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +323,7 @@ The Vanishing of Ethan Carter Redux (2014) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +349,7 @@ Ever Forward (2020) [Ru/Multi] (0.1.5/dlc) License GOG [Special Launch Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +375,7 @@ Virginia (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +403,7 @@ Virginia (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +431,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9V) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +457,7 @@ In Fear I Trust (2016) [Ru/Multi] (1.0) Repack Other s [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +483,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386/dlc) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +509,7 @@ Apsulov: End of Gods (2019) [Ru/Multi] (1.0.4) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +535,7 @@ Black Mirror / Черное зеркало Трилогия [Ru] (Repack) 2003-2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +564,7 @@ Real Myst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +590,7 @@ Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +616,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +642,7 @@ Vernon’s Legacy (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +669,7 @@ Pavilion (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,110 +680,6 @@ Pavilion — это адвенчура с элементами пазла, ра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4861BE86673E0E6606B4F293A5626CD26FF20BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056554   (479633) от 22.08.2017
-
-Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Virginia - триллер от первого лица про маленький городок со скелетом в шкафу. В роли начинающего агента ФБР Анны Тарвер вы попытаетесь разыскать пропавшего мальчика. Вместе с опытным агентом Марией Гальперин вы отправитесь в городок Кингдом в округе Бёрджесс, Вирджиния, где бесследно пропал мальчик.Тип издания: RepackРазработчик: Variable StateЖанр: Adventure, 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114AE98A0672FAC698BB6E0F36393F42F08544FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031302   (479523) от 22.08.2017
-
-Samorost 3 (2016) [Ru/Multi] (1.4.465) Repack Other s [Cosmic Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Samorost 3 — приключенческая исследовательская игра-головоломка от создателей известных игр Machinarium и Botanicula. Это самый амбициозный проект Amanita Design на сегодняшний день на основе популярных инди-игр Samorost и Samorost 2. Samorost 3 следует вслед за любопытным космическим гномом, путешествующим по космосу с помощью волшебной флейты и стремящимся добраться (   Читать дальше...   )Тип издания: RepackРазработчик: Amanita DesignЖанр: Adventure, Casual, IndieЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0C14803024462BA587DBA27C98768C0FEEB12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056659   (478924) от 26.09.2016
-
-INFRA (2016) [En] (2.0.0) License HI2U [Part 1-2]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478924.jpg" />
-</div>
-
-
-###  Подробнее
-
-INFRA - это приключенческая игра, в которой игрокам отводится роль аналитика, который путешествует по разным местам и пытается остановить бедствия, связанные со страстью человечества к улучшениям и развитию технологий.Тип издания: LicenseРазработчик: Loiste InteractiveЖанр: Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23162E45E10F9A053DDF7344375C4CB24DE23C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353253   (478517) от 01.09.2020
-
-Blasphemous (2019) [Ru/Multi] (2.0.27/dlc) Repack Other s [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blasphemous — это динамичный напряженный платформер, который сочетает в себе черты агрессивных игр с большим количеством сражений и увлекательный сюжет. Игрокам предстоит исследовать огромную вселенную, состоящую из нелинейных уровней. Вам предстоит примерить на себя роль Кающегося — единственного, кто выжил в бойне под названием «Безмолвное горе». Герой попал в (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Adventure, Action, Platform, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F351041134521E7B055AA61B4DA7842B1EEE89D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

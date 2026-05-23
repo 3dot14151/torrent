@@ -1,3 +1,174 @@
+###  Публикация: 1185321   (292872) от 21.11.2017
+
+Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. В нём я постарался отразить все обояние того десятилетия, пускай неопределенного и иногда даже дикого, но все же думаю многим приятно будет вспомнить то время. Время поднятия с колен нашей великой и большой страны, имею в виду весь бывший союз. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все (   Читать дальше...   )000 Intro
+059 La Bouche - Sweet Dreams
+060 Mr.Credo - Мама азия
+061 Modern Talking - China In Her Eyes (feat. Eric Singleton(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1894C37BC9BD1DD40D623C98928BF90DC27B67C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962533   (292758) от 05.12.2015
+
+Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагаем лучшую подборку видео клипов Armando Christian Perez III или сценическое имя Pitbull.01. Pitbull and Empire Cast ft. Jussie Smollettl - No Doubt About I (00:04:14)
+02. Pitbull - Back In Time (featured in 'Men In Black III') (00:03:32)
+03. Pitbull - Celebrate (from the Original Motion Picture Penguins of Madagascar) (00:03:11)
+04. Pitbull ft. TJR - Don't Stop The Party (00:03:33)(   Читать дальше...   )Жанр: Latino, Reggaeton, Hip House, Rap, Hip-Hop, Latin UrbanПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338CD52DD68AD3BE60D14C7772E6F58B5C581040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 70425   (292751) от 21.11.2017
+
+Iron Maiden - Death On The Road (2006) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Замечательный концертный ДВД. "Death On The Road" - концерт записанный во время концертного тура в поддержку альбома "Dance Of Death" в ноябре 2003 года на большой крытой арене Westenfalenhalle в германском Дортмунде.1. Wildest Dreams
+2. Wrathchild
+3. Can I Play With Madness
+4. Trooper(   Читать дальше...   )Жанр: Heavy MetalАктеры: Steve Harris - bass
+Bruce Dickinson - vocal
+Dave Murray - guitar
+Adrian Smith - guitar(   Читать дальше...   )Перевод: ОригинальныйПродолжительность: 01:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B728629BD6858F64010D45A9FE73C428C888138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962598   (292639) от 05.12.2015
+
+Ageless rock (2015) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Не стареющий рок!01. Cream - White Room [06:12]
+02. Queen - We Will Rock You [02:10]
+03. Mungo Jerry - Baby Jump [04:05]
+04. Alice Cooper - I Never Cry [02:26](   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Glam RockПродолжительность: 02:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943029AE4E46748178C799B539DE5116FB4A4637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184960   (291372) от 22.11.2017
+
+Квартирник на НТВ у Маргулиса. Танцы Минус (11.18.2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла легендарная группа "Танцы Минус", которая поделилась неповторимой атмосферой со зрителями НТВ и исполнила самые знаменитые хиты.Производство: Жанр: КонцертПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928B53A9FD97504FD2742CA3097D268C4BEA9C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185549   (291230) от 22.11.2017
+
+David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный видеоклип David Guetta feat. Rihanna - Who's That Chick.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F155C8F39B492685A10C0B18F91E85D6C473931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897000   (290894) от 22.11.2017
 
 Дмитрий Хворостовский. Большой праздничный концерт - Песни Великой Победы (2015) HDTV [H.264/1080i]
@@ -6,7 +177,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +206,7 @@ Celtic Woman (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +288,7 @@ The Jeff Healey Band - Live At Montreux 1999 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +317,7 @@ Bee Gees - One Night Only 1997 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -175,7 +346,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -204,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -233,7 +404,7 @@ Europakonzert / European concert 2008 from Moscow (2014) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -265,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -291,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -317,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +544,7 @@ Tout paye, или Все оплачено (2014) WEBRip [H.264/1080p-LQ] «Ле�
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -550,177 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01375D1553429EB47D4ED3F17CA69D328C46434C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963528   (285196) от 09.12.2015
-
-Квартирник у Маргулиса. 5 выпуск. Чиж (2015) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня в гостях у Евгения Маргулиса лучший, по его мнению, исполнитель блюза Чиж. В теплой и душевной атмосфере гость квартирника исполнит свои самые известные и любимые песни: Глазами и душой, Глупенькая песня (Ассоль), Солдат на привале, Прогулка по Одессе и многие другие.01. Урал байкер блюз
-02. Глазами и душой
-03. Глупенькая песня (Ассоль)
-04. Два тракториста (БГ)(   Читать дальше...   )Телекомпания: ЧеЖанр: КонцертПродолжительность: 0:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E95F87FF52DCC2CF775CB40067BC03F5DC2DB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963983   (285130) от 09.12.2015
-
-VA - Зимний марафон № 211: Коктейль Хитовых Новинок (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (09.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. 4G - Улыбайся (Премьера!) (00:03:48)
-02. Eros Ramazzotti - Buon Natale (Official Video) (00:04:25)
-03. Iva - Хочешь (Call Remix) (Премьера!) (00:03:16)
-04. Вера Брежнева - Мамочка (Live, 2015) (Премьера!) (00:02:54)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Dubstep, R'n'B, SoulПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B2001DAB6B330E405058C2B0D52223D7B74E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733657   (285105) от 13.12.2013
-
-Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro / Riches To Rags
- 02. Firebox
- 03. Not Supposed To Sing The Blues
- 04. Scream Of Anger(   Читать дальше...   )Жанр: МузыкаПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DD3B1CAB70C4CAFE991343DADBD6AD37AC624F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733711   (285022) от 13.12.2013
-
-Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Intro"
- 02. "Supremacy"
- 03. "Panic Station"
- 04. "Plug In Baby"(   Читать дальше...   )Режиссер: Matt AskemПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED3F3536BADE9C4C413701A9C4C399A9137C1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733513   (285019) от 13.12.2013
-
-Сергей «Чиж» Чиграков - San Jose, CA. "Квартирник" 18.08.2002 (2013) CAMRip->DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Она не вышла замуж
-02. Еду, еду
-03. Менуэт
-04. Глазами и душой(   Читать дальше...   )Жанр: Acoustic Rock, Acoustic BluesПродолжительность: 02:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB85971EDA235D7DFA3C208C309B539B1A2BF015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186811   (284240) от 26.11.2017
-
-Квартирник на НТВ у Маргулиса. Градусы (25.11.2017) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284240.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла группа "Градусы". Музыканты рассказали о том, кем им приходилось работать, чтобы выжить в Москве, объяснили, почему их коллектив носит такое название, а также исполнили любимые хиты: "Режиссер", "Научиться бы не париться", "Голая" и другие.Производство: Жанр: КонцертПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8121A6D8914E698AFAB7115E3817FDEC8E963EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

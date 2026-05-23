@@ -1,3 +1,206 @@
+###  Публикация: 1194732   (154318) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 18) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Вахтанг Кикабидзе  -  Мои года, моё богатство  3:11
+02.  Олег Даль  -  Дороги  4:08
+03.  Юрий Гуляев  -  Из-за острова  4:33
+04.  Галина Ненашева  -  Калинка  3:33(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E24E9C091E4A44266269D688C235F9C977A486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194676   (154313) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 16) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Муслим Магомаев  -  Три года ты мне снилась  4:09
+02.  Николай Эрденко  -  Чубчик  2:41
+03.  Марк Бернес  -  Вечерняя песня  3:14
+04.  Нина Пантелеева  -  Не жалею, не зову, не плачу  3:30(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF92942A261BC6F44B298D80980EAA73414E2A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194703   (154246) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 17) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Вадим Мулерман  -  Скажи, зачем  4:37
+02.  Александра Стрельченко  -  Какая песня без баяна  4:48
+03.  Дмитро Гнатюк  -  Журавли  4:07
+04.  Георг Отс  -  Вечерняя песня  3:57(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA98F31CE54113672F957094F2D5DCEBF397A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194734   (154219) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 19) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Марк Бернес  -  Журавли  4:14
+02.  Иосиф Кобзон  -  Тёмная ночь  3:27
+03.  Муслим Магомаев  -  Верни мне музыку  3:55
+04.  Георг Отс  -  Гаснут зори  3:47(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33818CB5C21C551332B481890E402846B45B4CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194740   (154201) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 20) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Вахтанг Кикабидзе  -  Пожелание  3:13
+02.  Эдуард Хиль  -  Так уж бывает  2:24
+03.  Марк Бернес  -  Любимый город  2:30
+04.  Олег Даль  -  Есть только миг  3:18(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE9F1A3EBF419A2F0361BEC084C1B43F742367F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194789   (154190) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 21) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Георг Отс  -  Мы с тобой не дружили  2:50
+02.  Татьяна Дасковская  -  Прекрасное далёко  4:08
+03.  Олег Даль  -  И солнце всходило  3:20
+04.  Вахтанг Кикабидзе  -  Проводы любви  3:25(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C2AB983E0F19262CDB1BD4CD847693B9B8471D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347000   (154152) от 22.12.2019
+
+VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. LadBaby - I Love Sausage Rolls New Entry
+02. Stormzy - Own It (feat. Ed Sheeran Burna Boy)
+03. Lewis Capaldi - Before You Go
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518501   (153983) от 20.12.2021
 
 VA - The Official UK Top 100 Singles Chart 17.12.2021 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +209,7 @@ VA - The Official UK Top 100 Singles Chart 17.12.2021 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Music News vol.156 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Empire Records - Club Hit 3 (2016) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - не Громкие новинки недели 92 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - House In My Head New Edition (2016) [MP3|320 Kbps] <Electro House, Dance, C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Лучшие треки 2020 Россия [MP3|320 Kbps] <Pop, Dance, Other
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Дискотека Remix (2011-2017) [MP3|192-320 Kbps] <Pop, Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - The Official UK Top 40 Singles Chart 21.12.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Дискотека 2015 Deep House - The Best от NNNB Vol.2 (2015) [MP3|2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Miss Li - The best (2006-2017) Compilation Album [MP3|320 Kbps] <Music Hall, Ind
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - ЕвроХит Топ 40 Europa Plus 21.12.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Дискотека 2021 Dance Club Vol. 206 Новогодний выпус
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Клубная кайфовая вечеринка (2015) [MP3|128-320 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Зайцев.нет Новогодняя вечеринка (2020) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +613,7 @@ VA - Music News vol.315 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -439,7 +642,7 @@ VA - Music News vol.316 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -468,7 +671,7 @@ VA - Music News vol.317 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -497,7 +700,7 @@ VA - New Music Releases Week 51 of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alt
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +729,7 @@ VA - Speed is not for everyone (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,209 +743,6 @@ VA - Speed is not for everyone (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15709A80A54F02863ED0D55ED585FECC2C0350DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271521   (148680) от 24.12.2018
-
-VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan
-02. Selena Gomez - Back to You
-03. Ed Sheeran - Shape of You
-04. Ariana Grande - God Is A Woman(   Читать дальше...   )Жанр: Pop, Hip Hop, Alternative, DanceПродолжительность: 05:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519517   (148551) от 24.12.2021
-
-VA - Music News vol.157 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maksiuta feat. DJ Jake - Под Дождём (02:25)
- 002. 4 Азиатки - Классная (03:08)
- 003. 5Утра - Потухли В Доме Все Лампочки (02:19)
- 004. AGOMEL - Мистер (02:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D2FBB13167CDED9345592DAC9986615AB22D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087025   (148480) от 26.12.2016
-
-VA - Times Disco Fever Actions (2016) [MP3|317-320 Kbps] <Synth-pop, New Wave, Italo-Disco, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilly - For Your Love & For Your Love (Suite) 11:48
-02. Digital Emotion - Dance To The Music 05:17
-03. Dschinghis Khan - Machu Picchu 07:08
-04. Milli Vanilli - Girl You Know It's True 08:49(   Читать дальше...   )Жанр: Synth-pop, New Wave, Italo-Disco, EurodanceПродолжительность: 03:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50556DC802481B30115BAA1CFC16CFE414D32857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434887   (148283) от 26.12.2020
-
-VA - Anjunabeats The Yearbook 2020 (Mixed) (2020) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148283.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1:
-
-01. Jordin Post - New Day (Mixed)
-02. Spada - Part Of Me (Mixed)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F526FC07406C47CB7A313E513F226AF53BEF08DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271717   (147990) от 24.12.2018
-
-VA - Nightparty 90-х-Ностальгия (2018) [MP3|256-320 Kbps] <Dance, Euro-house, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5ive - Slam Dunk Da Funk
-02. 2 Unlimited - Get Ready For This (Rap)
-03. Technotronic - Get Up! (Before The Night Is Over)
-04. Marky Mark & The Funky Bunch - You Gotta Believe(   Читать дальше...   )Жанр: Dance, Euro-house, ClubПродолжительность: 03:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8A576B911EA8D24AC36D5359330D1FA14E4B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519119   (147910) от 24.12.2021
-
-VA - Дискотека 2022 Dance Club Vol. 210 Новогодний выпуск! (2021) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01. DJ Jedy - Happy New Year (2:41)
-02. ALEKS ATAMAN feat. Finik.Finya - Снежинки (Ramirez x D. Anuchin Radio Edit) (3:09)
-03. ABBA - Happy New Year (Ayur Tsyrenov Remix) (4:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 31:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F976231D1459E07FB7A483BF106F68A3D1A6813F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271914   (147660) от 25.12.2018
-
-VA - German Top 50 Party Schlager Charts 24.12.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-02. Maite Kelly - Die Liebe Siegt Sowieso
-03. Andrea Berg - Ja Ich Will (DJ Edition)
-04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D58A87A8CDC1DC174D7E3C968D2C7D32FF7C3AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

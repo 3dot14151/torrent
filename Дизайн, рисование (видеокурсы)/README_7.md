@@ -1,3 +1,87 @@
+###  Публикация: 1446870   (1032241) от 11.02.2021
+
+Rohan Dalvi | Floating islands of Houdini 1-3 Parts (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Цель этого урока - провести вас через процесс создания изображения "Летающих островов", от моделинга до рендера.
+Курс будет включать такие темы, как моделирование и скульптинг рельефа, а также генерацию огромного количества растений и зелени в Houdini. Растения и деревья будут созданы с помощью L-систем. Также будут затронуты такие темы, как динамика (   Читать дальше...   )Производство: Rohan DalviЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 07:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5574195FC3A759BFFEC05947C778B1F4E6387F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620377   (1032198) от 19.03.2023
+
+Хохлов Сабатовский, Влад Сабатовский | Онлайн-курс по монтажу видео с нуля (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Для кого этот курс?Новичкам в видео: хочешь попробовать на себе работу с монтажом
+Любителям: снимаешь для себя и хочешь научиться монтировать интересные и красивые истории из своих кадров
+Блогерам: хочешь создавать более качественный контент, научиться продумывать эффектные переходы, склейки и визуально выделяться
+Начинающим киноделам: уже монтируешь видео, но хочешь (   Читать дальше...   )Производство: Хохлов СабатовскийЖанр: ВидеосъемкаЯзык озвучки: РусскийПродолжительность: 19:39:57Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2520FF964C9C241C2B2B11230D9CA6495DB13F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446951   (1032177) от 11.02.2021
+
+Максим Ачковский | Визуализация в Lumion (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Lumion — движок для быстрой визуализации, совместимый со разным архитектурным софтом: SketchUp, ArchiCAD, Rhinoceros, Revit, Vectorworks.
+На трёхдневном марафоне разберём работу с Lumion с самых азов и объясним, как настроить сцену, чтобы быстро получить рендер.Производство: SoftcultureЖанр: Создание видеоПродолжительность: 06:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F09341C21BD7210D3E98AE0DE8555FFB910B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447188   (1032066) от 12.02.2021
 
 Rohan Dalvi | Gears of Houdini (2014) PCRec
@@ -6,7 +90,7 @@ Rohan Dalvi | Gears of Houdini (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +117,7 @@ Ruben Mayor | Houdini PyroFx in Film Production (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -89,7 +173,7 @@ Rohan Dalvi | Hard surface modeling in Houdini (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +200,7 @@ Marc Brunet | Simple Female Figure (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +252,7 @@ Rohan Dalvi | User interfaces and motion graphics part 2 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +279,7 @@ Rohan Dalvi | User interfaces and motion graphics part 3 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +306,7 @@ Rohan Dalvi | User interfaces and motion graphics part 1 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -249,7 +333,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 2 (2014-2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +359,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 1 (2014-2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +385,7 @@ Matt Kohr | New Lessons Digital Painting with Matt Kohr Part 3 (2014-2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +411,7 @@ Gumroad, Dejan Pejacki | Твердотельное моделирование S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +437,7 @@ Gumroad, Danar Worya | Введение в продвинутый дизайн �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +465,7 @@ Skillshare, Darrin Lile | Создание анимированного перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -408,7 +492,7 @@ Sean Hewitt | Rigging for Games (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +546,7 @@ CG Fast Track | Быстрый путь в Blender 2.80: Создание сце
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +572,7 @@ Gumroad, Jose Moreno (Parabox) | Скульптинг персонажа в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -515,7 +599,7 @@ Skillshare, Joe Baily | Процедурное текстурирование в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,7 +654,7 @@ Skillshare, Joe Baily | Скульптинг в Blender 2.91 часть 1.2 - С
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -596,7 +680,7 @@ John Moncrief | Introduction to Collisions in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -608,89 +692,6 @@ John Moncrief | Introduction to Collisions in Houdini (2015) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C5DC0308FFD63C7F3314A8BE4D4B829563BB6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449408   (1030007) от 21.02.2021
-
-Andreas Vrhovsek | Creating Cloudscape in Houdini (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030007.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уроке по Гудини мы будем задействовать VDB, чтобы использовать самые последние технологии и некоторые новинки программы.
-Мы создадим облачный пейзаж, используя частицы как основу, а затем добавим им движение наподобие облачного. Это позволит объектам взаимодействовать с облаками и придаст всему ощущение динамики. В конце этого курса вы научитесь, как изменять (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB45BC83FB704F651705DD4E5F50CC9C124871B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449284   (1029999) от 21.02.2021
-
-Kurt Jones | Indie Game Development Pipeline Volume 2 (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029999.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой части курса мы начнем делать нашего игрового персонажа более функциональным, при помощи мощного игрового движка Unity.
-Начнем мы с анализа концепта персонажа и на основе наших потребностей, создадим его игровой объект. После этого, на основе скетчей, добавим к нашему уровню нужные ассеты.
-После того, как основные ассеты будут настроены, мы займемся оживлением (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 01:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEA8913C0C86F44FC007C4C28E57403111C2DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449500   (1029997) от 21.02.2021
-
-John Moncrief | Introduction to Materials in Houdini (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029997.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе по Houdini мы поверхностно взглянем на материалы.
-Начнем с настройки сессии Houdini для правильно работы с шейдингом. Мы разберем окно RenderView, MaterialPalette(редактор материалов), основы освещения и рендер Mantra. Посмотрим, как применять материалы из редактора к разным объектам.
-Изучим основные материалы начиная с шейдера Clay. Будем разбирать (   Читать дальше...   )Производство: Digital TutorsЖанр: Шейдинг, текстурированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB90AD556534B3BED294AC8701BDFDB732DB0C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

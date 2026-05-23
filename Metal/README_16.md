@@ -1,3 +1,32 @@
+###  Публикация: 1096337   (920930) от 23.01.2017
+
+Kreator - Live Antichrist (2017) Live [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Enemy Of God
+02. Phobia
+03. Pleasure To Kill
+04. Mars Mantra(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCB52C85106D657DA49E4CAD5BDA79F4A445269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490176   (920859) от 19.08.2021
 
 Brainstorm - Wall of Skulls (2021) [MP3|320 Kbps] <Power Metal>
@@ -6,7 +35,7 @@ Brainstorm - Wall of Skulls (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +64,7 @@ DED - 2 Releases (Mis-An-Thrope (CD) / Mannequin Eyes (EP)) (2017-2020) [MP3|320
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +92,7 @@ Mastodon - White Walker (2016) [MP3|320 кб/с] <Heavy Metal, Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +119,7 @@ Dream Theater - A View From The Top Of The World (2021) Single [MP3|320 Kbps] <P
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -119,7 +148,7 @@ Kirk Windstein (Crowbar) - Dream In Motion (2020) [MP3|320 Kbps] <Sludge Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -148,7 +177,7 @@ VA - A Tribute To Accept Vol. 1 & 2 (1999, 2001) [MP3|320 kbps]<Heavy Metal/Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -183,7 +212,7 @@ Ygg - Ygg (2011) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -212,7 +241,7 @@ Iconoclast - Hallucination (2016) [MP3|320 кб/с]<Progressive Deathcore, Djent
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +270,7 @@ Civil War - The Last Full Measure (2016) Japanese Edition [MP3|320 Kbps] <Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +299,7 @@ Pergamum - Feel Life's Fear (2008) [MP3|320 kbps]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -305,7 +334,7 @@ Die Krupps - Als Waren Wir fur Immer (2010) [MP3|256 kbps]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -336,7 +365,7 @@ Christopher Lee - 3 Альбома (2006 - 2013) [MP3|320 кб/с]<Symphonic Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -365,7 +394,7 @@ Blaine Rohmer - 2 albums, 1 single (2015-2016) [MP3|320 Kbps] <Atmospheric Black
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -394,7 +423,7 @@ Vlad - Me Devoré A Sus Hijos (2021) [MP3|320 Kbps] <Stoner, Sludge, Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +452,7 @@ Orange Goblin - Healing Through Fire (2021) Deluxe Edition [MP3|320 Kbps] <Stone
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +481,7 @@ When Nothing Remains - In Memoriam (2016) [MP3|320 кб/с] <Doom Metal,Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +510,7 @@ National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +539,7 @@ Anvil - Anvil Is Anvil (2016) Limited Edition [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -539,7 +568,7 @@ Eilera - Face Your Demons / Waves (2016-2020) [MP3|320 Kbps] <Folk & Viking Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -568,7 +597,7 @@ In This Moment - Mother (2020) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -597,7 +626,7 @@ Xandria - Theater Of Dimensions (2017) Deluxe Edition [MP3|320 Kbps] <Symphonic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -626,7 +655,7 @@ Dreariness - 2 albums (2013-2016) [MP3|320 Kbps] <Depressive Black Metal, Shoega
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -654,7 +683,7 @@ Heathen Foray - 4 albums, 1 demo (2007-2015) [MP3|199-320 Kbps] <Pagan Metal, Vi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -683,7 +712,7 @@ Rawrorr - Cynism (2020) [MP3|320 Kbps] <Blackened Death Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -712,7 +741,7 @@ Ocean Grove - Flip Phone Fantasy (2020) [MP3|320 kbps] <Nu-Metal, Alternative Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -726,35 +755,6 @@ Ocean Grove - Flip Phone Fantasy (2020) [MP3|320 kbps] <Nu-Metal, Alternative Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00259211847689AFF916C45D0FB7464CDCBDD4C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097604   (914294) от 27.01.2017
-
-The Murder of My Sweet - Echoes of the Aftermath (2017) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleeping Giant
-02. Personal Hell
-03. Racing Heart
-04. Cry Wolf(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C55589D4F9E1A3AEC73B6937AF0CAF795D48FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

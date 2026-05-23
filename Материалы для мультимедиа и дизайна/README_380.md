@@ -1,3 +1,345 @@
+###  Публикация: 1808101   (65049) от 22.07.2025
+
+Шаблоны - Design Syndrome - Album Art Pack VOL.1 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+5 полностью настраиваемых PSD-шаблонов обложек.Формат: PSDРазрешение файлов: 3500x3500 - 4204x4204
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B8DDB852A550E30237E7544742893DC26DE82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808447   (64971) от 25.07.2025
+
+Шрифты - Behance - Max Shirko - Pershotravneva55 - 230075977 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7984F78E65ADD977F62ADE16C3C408ADE4D7F389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808445   (64968) от 25.07.2025
+
+Шрифты - Behance - descult - Karlo Cham - 220843531 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей 2 стиля.
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BCDFF97DC144CB93F12D4EA2F1C618DAEEDBEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808453   (64964) от 25.07.2025
+
+Шрифты - Behance - OMG SSG STUDIO - OMG SANS - 214130687 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD5CD2ADE8FE4C04B760F929DEDC0688485F65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808644   (64961) от 25.07.2025
+
+Шрифты - Behance - Korak Studio - KS Bistra - 229469813 [TF, OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей, сочетает в себе удобочитаемость и индивидуальность, гротеск, бросающий вызов нейтральности, созданный для того, чтобы подчеркнуть индивидуальность. Вы также можете дополнить свой дизайн с помощью различных доступных лигатур.Формат: TF, OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A641BB7A59DF989F55B74F49A05476AB894FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808730   (64914) от 26.07.2025
+
+Пресеты - Burgundy Lightroom Preset Pack [LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+14 креативных пресетов Lightroom для пейзажей, портретов, моды и изобразительного искусства. Бордовый цвет привносит насыщенные винтажные тона и тёплые нотки, добавляя вашим изображениям атмосферности и живописности.Формат: LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9776A95A0A0821D21F142087271FA205B4CF2A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808718   (64909) от 26.07.2025
+
+Растровый клипарт - Early Summer in Fields & Gardens [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+38 стоковых фотографий лета и зелени из Adobe Stock.Формат: JPGРазрешение файлов: 2688x1536 - 14836x5325
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4133586E653D831BC1E203A083F7B4C9DFBAD088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808695   (64885) от 26.07.2025
+
+Шрифты - MyFonts - Tactical [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Tactical — это всего лишь шрифт, пропитанный тестостероном. Жёсткий, механический и бескомпромиссный. Изначально задуманный в 2007 году, когда я работал над ранними набросками Ginza , Tactical отличается жёсткими 45-градусными углами, а изгиб ради изгиба здесь просто отсутствует. Дополняет оригинал вариант Stencil (вдохновлённый военной тематикой, видеоигрой-марафоном (   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40779B6C5F333BCF9BE2816968194157E235EA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808931   (64845) от 27.07.2025
+
+Шаблоны - Pixelbuddha - Album Art Pack [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В набор входят 5 многослойных PSD-шаблонов, каждый из которых готов к ребрендингу с помощью смарт-объектов, 8 карт градиентов и стилей слоёв Dotwork. Отлично подходит для цифровых релизов альбомов, комплектов для музыкальных продюсеров, обложек плейлистов, экспериментального брендинга, серий постеров, креативных портфолио, макетов товаров и даже для социальных визуальных (   Читать дальше...   )Формат: PSDРазрешение файлов: 3500x3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4343260D78B3590DF13B0C4FD6DF4D67813F26ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808936   (64841) от 27.07.2025
+
+Сборники - Creative Market - Liquiform - Liquid Displacement Kit - 6277419 [PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Liquiform — это набор из 50 карт смещения Photoshop и 10 текстур. Добавьте уникальные эффекты искажения к любой графике или изображению за считанные секунды. Экспериментируйте с масштабом изображения или смешивайте/комбинируйте различные карты смещения, чтобы получить безграничные возможности.
+
+Обратите внимание: масштаб изображения влияет на внешний вид эффекта. (   Читать дальше...   )Формат: PSD, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF15AD14139202323AF89BA06F4FFA5ED6745067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808978   (64839) от 27.07.2025
+
+Фоны - Envato - Lintas Gradient Background Set - ALGUF7V [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Градиентные фоны в сочетании с абстрактными размытыми волнами и грубой текстурой в стиле ретро. Для потрясающего и современного дизайна ваших проектов, таких как веб-сайты, брошюры, плакаты или социальные сети.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4505504FE3ED149170FE6A5B1EE889215880A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808882   (64824) от 27.07.2025
+
+Шрифты - Font Brothers - Halogen Flare [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Как всегда, я предпочитаю не идти коротким путем и предоставлять анемичный набор глифов — современный шрифт, предлагаемый сегодня, должен предоставлять больше, чем просто основы, и этот дает — строчные, капительные, цифры старого стиля, табличные формы, стилистические и заголовочные альтернативы, дроби, чувствительные к регистру функции и даже альтернативный набор (   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F4A2F222C8A19EE9F11725753CD04C3EA41DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808887   (64820) от 27.07.2025
+
+Растровый клипарт - Looking for the Mountain Summer [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+30 стоковых фотографий на тему "в поисках горного лета" из Adobe Stock. Оригинальные названия с ID-номерами сохранены.Формат: JPGРазрешение файлов: 2912x1632 - 9600x5400
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5ECC8F48755016F9113D02F0B00D7D549D0192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809078   (64773) от 28.07.2025
 
 Шрифты - MyFonts - Sildetas [TTF, OTF]
@@ -6,7 +348,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -329,349 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7172500A5F3BC83B73B72ED4EFF0BD517DCB2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809870   (64625) от 01.08.2025
-
-Звуковые библиотеки - Splice - PSE: The Producer's Library - Walk Trot Gallop [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64625.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Walk Trot Gallop» — это уникальные одиночные записи галопа, жевания и звуков седла. Используйте эти звуки в чистом виде, сочетайте их с музыкальными элементами или даже зацикливайте для создания творческих полиритмов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622F3CCF3543D532FCA162C978A813303E00A6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810040   (64581) от 02.08.2025
-
-Звуковые библиотеки - Engineering Samples - BOKEH [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64581.jpg" />
-</div>
-
-
-###  Подробнее
-
-«BOKEH» — это аналоговая библиотека сэмплов с красивыми звуками и лупами.
-
-Эта изысканная коллекция объединяет в себе основы Drones, Atmos, Downlifter FX, Noise FX, Uplifter FX, One Shot Drums и Synths в самом современном качестве, записанные с использованием лучшего оборудования, составленные и отобранные с высочайшими художественными требованиями.
-(   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F7F9B78C64FE1E09065042DAC920806FFF8A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809986   (64566) от 02.08.2025
-
-Растровый клипарт - Factory Production from Cocoa Beans to Chocolate [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64566.jpg" />
-</div>
-
-
-###  Подробнее
-
-37 стоковых фотографий шоколада и его производства из Adobe Stock. Оригинальные названия сохранены.Формат: JPGРазрешение файлов: 2912x1632 - 9216x4608
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093807C24E3AFBE85BE0CCBE15B896ABA41C4826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821479   (64046) от 02.10.2025
-
-Шаблоны - Pixflow - Modern Urban Style [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64046.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью пакета Modern Urban Style Instagram Pack вы сможете легко создавать привлекательную рекламу, промо-акции детской и подростковой одежды, посты и истории в Instagram и многое другое.Формат: PSDРазрешение файлов: 1080x1080 - 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E7DFD333EC2EC30F10E4BC327BDC96A9313236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821491   (64024) от 02.10.2025
-
-Шрифты - Fontspring - Clarika [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clarika — это геометрический шрифт без засечек, состоящий из одиннадцати начертаний и двух вариантов начертания: Clarika Geometric и Clarika Grotesque. Как следует из названия, Clarika отличается невероятной читаемостью как в основном формате, так и в формате дисплея.Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14E5FF0E7AE9A23E01D7E986AF2F1A0AFAE4A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821505   (64015) от 02.10.2025
-
-3D print - MyMiniFactory - Bite the Bullet - Iconic Monsters Pt.2 - 611554 [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Августовский набор монстров от Bite the Bullet.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B222A473BBA9F8111725D386B254B7A33C54D0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821641   (63925) от 03.10.2025
-
-Звуковые библиотеки - Film Crux - Octive - Cinematic Music Vol. 1 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незаменимая библиотека кинематографической музыки для кинематографистов. Octive включает 40 оригинальных кинематографических композиций высочайшего качества, которые идеально подойдут для вашего следующего фильма, трейлера, игры, видеоролика или рекламы.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B611CB71AD53195176C87AED0F7A40AD6E77121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821642   (63924) от 03.10.2025
-
-Звуковые библиотеки - Film Crux - Octive - Cinematic Music Vol. 2 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незаменимая библиотека кинематографической музыки для кинематографистов. Octive Vol. 2 включает 40 оригинальных кинематографических композиций высочайшего качества, которые идеально подойдут для вашего следующего фильма, трейлера, игры, видеоролика или рекламы.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1CEB5F71F65DF4F98BC2E7A48AE2E2B2661D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821646   (63921) от 03.10.2025
-
-Звуковые библиотеки - BOOM Library - Violent Combat [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63921.jpg" />
-</div>
-
-
-###  Подробнее
-
-VIOLENT COMBAT — это профессиональная библиотека звуковых эффектов, созданная для сцен боевых действий, требующих впечатляющего эффекта . Она включает в себя звуковые эффекты ударов , сражений и мощные боевые звуки , обеспечивая всё: от чистого реализма до захватывающего кинематографического экшена. Благодаря улучшенной точности и большей вариативности по сравнению (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF44A255A07E2AB13210ED7555A280D5A78769D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 197959   (63912) от 03.10.2025
-
-Шрифты - Набор лучших дизайнерских шрифтов [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: OTF, TTFПоддержка кириллицы: Частичная
-
-Набор лучших дизайнерских шрифтов с поддержкой кириллицы и без.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9641C34AA16C1EA9A4C238E93BBAC42DC6426A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821666   (63907) от 03.10.2025
-
-3D print - MyMiniFactory - BattleCat Miniatures - Peninsular War Spanish Officers - 655761 [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63907.jpg" />
-</div>
-
-
-###  Подробнее
-
-В набор входят пять фигурок: два офицера пешей пехоты и один конный пехотинец, а также один офицер пешей артиллерии и один конный артиллерист.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BA3166324542AD8F4DDFF71C5A6D0FAF4A383C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821682   (63898) от 03.10.2025
-
-Пресеты (LUTs) - ColorWheel Store - Lut Cyper Punk Style [CUBE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти луты лучше всего работают с видео, снятыми в любом формате LOG.Формат: CUBE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51F5375EF1B10751407FF502D1EEB0063B15B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821724   (63879) от 03.10.2025
-
-3D модели - ArtStation - Blaze Bandit - 3D Character for Concept Art - 5NAOl [BLEND, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63879.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-модель Blaze Bandit полностью готова и текстурирована для концепт-арт проектов.Формат: BLEND, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF95D5E4CB18196E1D357449408878085577BA37
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,160 @@
 https://t.me/izofen
+###  Публикация: 1871666   (1069975) от 
+
+MotoGP. Этап 06 из 22. Гран-при Каталонии. Гонка (17.05.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+17 мая 2026 воскресенье 15:00 МСК этап 6 Барселона. Гран-при Каталонии. Гонка (24 круга).Телекомпания: MotoGPЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 02:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2842CC419405F969DC7E1AB36CAEDA2D6F9F8155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871367   (1069779) от 
+
+MotoGP. Этап 06 из 22. Гран-при Каталонии. Квалификация (16.05.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+16 мая 2026 суббота 11:50 МСК этап 6 Барселона. Гран-при Каталонии. Квалификация.Телекомпания: MotoGPЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A966F3E011969AFF640045628CB9B05B3B540B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871394   (1069778) от 
+
+MotoGP. Этап 06 из 22. Гран-при Каталонии. Спринт (16.05.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+16 мая 2026 суббота 16:00 МСК этап 6 Барселона. Гран-при Каталонии. Спринт (12 кругов).Телекомпания: MotoGPЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19808D1A3C3198BBE361A0A4B2ABF583F5C37F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870145   (1069180) от 
+
+MotoGP. Этап 05 из 22. Гран-при Франции. Спринт (09.05.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+9 мая 2026 суббота 16:00 МСК этап 6 Ле Ман. Гран-при Франции. Спринт (13 кругов).Телекомпания: MotoGPЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB574095DF75B4514879CFC245BD92B627DB522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870258   (1069124) от 
+
+MotoGP. Этап 05 из 22. Гран-при Франции. Гонка (10.05.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+10 мая 2026 воскресенье 15:00 МСК этап 6 Ле Ман. Гран-при Франции. Гонка (27 кругов).Телекомпания: MotoGPЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACB028001BB467725B132B3598C9C3AE9418505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870144   (1068665) от 
+
+MotoGP. Этап 05 из 22. Гран-при Франции. Квалификация (09.05.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+9 мая 2026 суббота 11:50 МСК этап 6 Ле Ман. Гран-при Франции. Квалификация.Телекомпания: MotoGPЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DDE7F3649DC0AD8AAF6F6A24F2A3C759E424B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867534   (1066884) от 25.04.2026
 
 MotoGP. Этап 04 из 22. Гран-при Испании. Квалификация (25.04.2026) WEBRip [H.264/1080p] [50fps]
@@ -7,7 +163,7 @@ MotoGP. Этап 04 из 22. Гран-при Испании. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +189,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Квалификация (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +215,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Спринт (28.03.2026) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +241,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Гонка (29.03.2026) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +267,7 @@ MotoGP. Этап 02 из 22. Гран-при Бразилии. Гонка (22.03
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +293,7 @@ MotoGP. Этап 02 из 22. Гран-при Бразилии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +319,7 @@ MotoGP. Этап 02 из 22. Гран-при Бразилии. Спринт (21.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +345,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Гонка (01.03
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +371,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +397,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Спринт (28.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +475,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 2. Исола 2000. Гонка 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +527,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 3. Серра Шевалье. �
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +633,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 4. Ланс Эн Веркор. 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -516,162 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E30A2B9218D6B552DD02B30291247F12DF3BB5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442558   (1036302) от 26.01.2021
-
-Чемпионат мира по ралли. Сезон 2021. Этап 1. Ралли Монте-Карло, SS13, SS15 (21-24.01.2021) / WRC 2021. Rallye Monte-Carlo. SS13, SS15 (21-24.01.2021) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по ралли (англ. World Rally Championship, WRC) — раллийная серия, проводимая Международной автомобильной федерацией (FIA) с 1973 года. Пришёл на смену Международному чемпионату по ралли для производителей, проводившемуся в 1970-1972 годах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:18:29 + 01:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36EDA360ABC2DA7BAB8EE2EB109D0BAFFC4AE82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370728   (1035388) от 29.01.2021
-
-WRC. Чемпионат мира по ралли. Обзоры / World Rally Championship. Reviews (2020) HDTVRip [H.264/720p]  [hand made 50fps] (этапы 1-7 из 7)
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035388.jpg" />
-</div>
-
-
-###  Подробнее
-
-World Rally Championship 2020 года стал сорок восьмым сезоном гонок, признанных Международной автомобильной федерацией как высший класс раллийных соревнований. Команды должны были принять участие в четырнадцати этапах. Но пандемия внесла свои коррективы в календарь 2020 года и было проведено только 7 этапов. Экипажи боролись за титул на автомобилях соответствующих (   Читать дальше...   )Жанр: Спорт, автоспорт, раллиПеревод: Одноголосый профессиональный (Владимир Башмаков)Продолжительность: ~00:52:00 каждый этап
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E543B7C82764079346DA3A65AA65D3A58F0B1BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444183   (1034685) от 01.02.2021
-
-Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Индианаполис 1 / AMA Supercross Championship. Indianapolis 1 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034685.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Жанр: СпортПродолжительность: 02:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB2796A36552FDFD251CFFBE2F60656C510256D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443694   (1034658) от 01.02.2021
-
-E-Trophee Andros. Сезон 2020-2021. Этап 5. Валь Торренс. Гонка 1-2 (29-30.01.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034658.jpg" />
-</div>
-
-
-###  Подробнее
-
-E-Trophee Andros — французский национальный чемпионат по автогонкам на ледяных трассах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:29:50 + 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD011240BD18786095B4D996E2EEC119F17C5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443696   (1034646) от 01.02.2021
-
-Азиатский чемпионат Формулы-3. Сезон 2021. Этап 1. Дубай. Гонка 1-3 / F3 Asian Championship 2021. Dubai. Race 1-3 (29-30.01.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по ралли (англ. World Rally Championship, WRC) — раллийная серия, проводимая Международной автомобильной федерацией (FIA) с 1973 года. Пришёл на смену Международному чемпионату по ралли для производителей, проводившемуся в 1970-1972 годах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:15:53 + 01:19:07 + 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479D7515DB2CDF272826DF4C274D13BD8C6ACCCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445204   (1033769) от 05.02.2021
-
-Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Индианаполис 2 / AMA Supercross Championship. Indianapolis 2 WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033769.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BB2C0AA5A9D0114ADF51CB88AAD8BFADDF08A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

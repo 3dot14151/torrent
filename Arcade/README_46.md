@@ -1,3 +1,29 @@
+###  Публикация: 1731070   (52822) от 19.06.2024
+
+DNF Duel (2022) [Multi] (1.81/dlc) Scene Rune
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+DNF Duel является ответвлением корейской франшизы Dungeon and Fighter, что включает в себя видеоигры, аниме и мангу. Самая первая игра представляла собой гибрид MMORPG и битэмапа. Затем за ней последовали спин-оффы. Здесь выложен созданный по её мотивам чистокровный файтинг с анимешной графикой, выполненный в 2,5D. Этот проект ориентирован на начинающих игроков. (   Читать дальше...   )Тип издания: SceneРазработчик: NEOPLE Inc., Arc System Works, EIGHTING Co., Ltd.Жанр: Экшены, Казуальные игрыЯзык озвучки: Английский, Корейский, Китайский (упрощенный)Язык субтитров: Английский, Японский, Корейский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Корейский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89415011638395B8930B865EFBEFF65CE845DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159551   (52648) от 21.06.2024
 
 UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
@@ -6,7 +32,7 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ CRYMACHINA (2023) [Multi] (1.2.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Hunt the Night (2023) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +189,7 @@ Messy Up (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +215,7 @@ KUNAI (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +241,7 @@ FlashBack 2 (2023) [Multi] (20240521) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +267,7 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +293,7 @@ FlashBack 2 (2023) [Ru/Multi] (20240627) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Valfaris (2019) [Ru/Multi] (1.1) License GOG [Digital Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Godrop (2024) [Ru/Multi] (1.34/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +371,7 @@ Splatter - Zombiecalypse Now (2024) [Ru/Multi] (1.2_gog) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +397,7 @@ FlashBack 2 (2023) [Multi] (1.00) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +423,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +449,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +475,7 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +501,7 @@ SunnySide (2024) [Multi] (1.15.11) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +527,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +553,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +579,7 @@ Astro Looter: Survivor (2024) [Ru/Multi] (16072024) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +605,7 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -605,7 +631,7 @@ Asterix & Obelix Slap Them All! 2 (2023) [Multi] (2023121101) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,7 +657,7 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -642,32 +668,6 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7234B4D4C9A2004D09CD35D1147238983C501136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738264   (49339) от 21.07.2024
-
-ReRoad (2020) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49339.jpg" />
-</div>
-
-
-###  Подробнее
-
-События ReRoad разворачиваются в апокалиптическом научном мире, где произошло восстание машин. Побывайте в роли робота, воспользуйтесь мощью защитных башен и не дайте противникам добраться до контрольной точки. Процесс представлен в виде Tower Defense с оригинальной механикой. Каждый новый уровень процедурным образом генерирует расположение башен. Ваша задача – воспользоваться (   Читать дальше...   )Тип издания: RepackРазработчик: Rabbithole GamesЖанр: Казуальные игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Корейский, Французский и другиеЯзык интерфейса: Русский, Английский, Корейский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B293E434AA149B8F3831129D4541B6F5BDDC228E
 ```
 
 https://mybot314.ru/tekegram_catalog/

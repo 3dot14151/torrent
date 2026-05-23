@@ -1,3 +1,81 @@
+###  Публикация: 1708521   (62265) от 21.03.2024
+
+Blade Prince Academy (2024) [Multi] (1.0) Repaclk FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Blade Prince Academy вливает свежую кровь в жанр тактических RPG. Вы возглавляете отряд принцев-лезвий, элитных воинов, охраняющих Абъекталию, город, окутанный тьмой. Бой разворачивается в реальном времени с функцией паузы. Это значит, что вы можете приостановить действие, чтобы выработать стратегию и развязать разрушительные комбо, чтобы победить врагов. Но за обладание (   Читать дальше...   )Тип издания: RepaclkРазработчик: Angel CorpЖанр: Ролевые игры, СтратегииЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F899E05694A5685AD91A5F2A0C826DAC9E8C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709070   (62058) от 23.03.2024
+
+Grand Soul Saga (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Grand Soul Saga - чудом сбежав из страны, где назревало восстание, вы оказываетесь в Дюпоне, месте не шибко лучше вашего родного края: в этом городе-государстве власть принадлежит наркокартелям и загадочному клану под названием «Око Бога». Вместе с разношерстной командой контрабандистов, алхимиков и странников вы отправляетесь на запад, в Ердан, далекий портовый (   Читать дальше...   )Тип издания: RepackРазработчик: Moon Soul GamesЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32816DAB48A4D170A06619BDFB7E5647F3D481AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709061   (62054) от 23.03.2024
+
+EMPYRE: Earls of the Deep Earth (2024) [En] (Build #16) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+EMPYRE: Earls of the Deep Earth - тактическая ролевая игра с богатой сюжетной кампанией и наполненным секретами миром. Элиас открывает глаза и осознает, что напрочь потерял память. Кажется, на дворе 1899 год, и вы находитесь в Древнем Китае, а путь держите в Шанхай, но что-то здесь не так. Кажется, Империя изменилась до неузнаваемости, и теперь вам предстоит столкнуться (   Читать дальше...   )Тип издания: RepackРазработчик: Coin Operated GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:128BAD6935416DCC021EAE0CDD05F991DAAF3529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709322   (61972) от 24.03.2024
 
 Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack FitGirl
@@ -6,7 +84,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.240321) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.0.12/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Three Kingdoms Zhao Yun (2024) [Multi] (1.1.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Metal Unit (2021) [Ru/Multi] (010309) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ MANIAC (2024) [Ru/Multi] (0.9.12B) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Svarog's Dream (2023) [En] (2.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Geneforge 2 - Infestation (2024) [En] (1.0/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Legend of Heroes: Trails into Reverie (2023) [En] (1.1.4/dlc) License GOG [L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Go Fight Fantastic (2024) [Multi] (1.11.0001) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Withering Rooms (2024) [Multi] (1.22) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Scene DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Withering Rooms (2024) [Multi] (1.22) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.48412) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.25) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BBAFA29586E6C589202197475488CC62729731F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714091   (60400) от 08.04.2024
-
-Gothic II: Night of the Raven / Готика 2: Ночь Ворона (2003) [Ru] (1.31/2.6fix/dlc) Unofficial
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая таинственная история вплетается в захватывающий сюжет «Готики 2». Воинственный бог Белиар вот-вот пробудится, и только могущественные маги из тайного Круга Воды способны остановить жестокое божество. Однако без вас они бессильны, а потому – в путь! Ведь только победитель Спящего, воскрешенный некромантом Ксардасом, может спасти королевство от гнева Белиара. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Piranha BytesЖанр: RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8433153D0D88B84F399E6FE61B048272859A82BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681164   (60303) от 09.04.2024
-
-In Stars and Time (2023) [Multi] (1.0.5.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60303.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Stars And Time - увлекательная РПГ, которая заставит вас быть в напряжении. В ней вам предстоит сыграть роль Сиффрина, умного и стойкого искателя приключений, который оказался в ловушке бесконечной временной петли. В игре органично сочетаются пошаговые бои, решение головоломок и интерактивные диалоги, что позволяет создать по-настоящему захватывающий опыт. Отправляясь (   Читать дальше...   )Тип издания: LicenseРазработчик: insertdisc5Жанр: Ролевая играЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F5A56DBDCF85AA6F133D5963E283607A6AEF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714396   (60288) от 09.04.2024
-
-Monsters Domain (2024) [Ru/Multi] (2.6.5) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monsters Domain - фэнтезийная игра, сочетающая в себе огромное количество механик, среди которых ролевой экшен, стратегия, симулятор и башенная защита. Вам необходимо охранять сокровищницу. Не дайте врагам украсть драгоценности, хранящиеся в глубоких данжах. Уникальность Monsters Domain заключается в том, что вам предстоит играть по ту сторону сокровищницы, поскольку (   Читать дальше...   )Тип издания: SceneРазработчик: G-DEVS.comЖанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93119CBDD24933BA46059365FFC756C6834F4259
 ```
 
 https://mybot314.ru/tekegram_catalog/

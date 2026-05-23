@@ -1,3 +1,29 @@
+###  Публикация: 1330416   (340847) от 10.10.2019
+
+NGW. Самая большая в мире белая акула / World's Biggest Great White Shark (2019) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Три опытных дайвера и фотографа пускаются в путешествие на маленькой лодке, чтобы попытаться снять на пленку жизнь морских обитателей, собравшихся вокруг кашалота, дрейфующего недалеко от берега острова Оаху, гавайского архипелага. И им удалось заснять одну из самых невероятно больших белых акул, которые когда-либо попадали в кадр.Производство: США, Spectrum Field Productions, LLS., Nat Geo WildЖанр: Документальный, природа, океанская фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCCF1B7797029F10DC0365CE20C3F2F563C4758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579100   (340788) от 25.09.2022
 
 NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
@@ -6,7 +32,7 @@ NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG: Внутри колец Сатурна / Mission Saturn (2017) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ NGW: Гонка жизни / Race of Life (2015) HDTVRip [H.264/1080p-LQ] (Се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG: Архитекторы древности / Architects of the Ancient World 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ NGW: Остров муссонов. Паутина жизни / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ NG: Мегасооружения: музей Лувр Абу Даби / Megastru
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG: Через миллион лет / Year Million (2017) HDTVRip  [H.264/720p-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ N.G. Большие кошки. Удивительная семья / Big Cats: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +345,7 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +371,7 @@ NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +397,7 @@ NG. Экстремальный Китай. Хайнань / Extreme China. Haina
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +423,7 @@ NGW: Сексуальное рабство 21 века / 21st Century Sex Slaves
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +449,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DLRip (1 сезон:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +475,7 @@ NGW: Акулы на охоте / Shark The Hunt. Kill Zone (2018) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +501,7 @@ NG: Международный аэропорт Дубай. Серия 4 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +527,7 @@ NGW: Дикая природа Перу: арена боев – Анды. Ди�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +554,7 @@ NG: Международный аэропорт Дубай. Серия 5 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +580,7 @@ NG. Открытие потерянной могилы Ирода / Uncovering H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +632,7 @@ NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +658,7 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,32 +669,6 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A818229708ABC33B46DE3DEBE75B9E9442744B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245303   (308809) от 08.11.2018
-
-NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 сезон: 10 серий из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что мы осушили океаны, позволили воде уйти и раскрыть тайны дна. А мы можем это сделать... С помощью новейших технологий подводного сканирования мы изучим глубокие океаны и превратим точные данные в трехмерные изображения. Мы увидим погрузившиеся в воду города, затонувшие корабли и другие удивительные чудеса, скрытые в глубинах океанов и морей, найдём (   Читать дальше...   )Производство: Великобритания, Австралия, Electric Pictures, Mallinson Sadler Productions, National GeographicЖанр: Документальный, исследования, историяРежиссер: Марк ТилиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: серии х ~00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAA4ECDBCBADE7288D61CC2432020D9E8AFBA52
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1630168   (237676) от 29.04.2023
+
+Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | Детектив Конан: Преступник Хандзава [2022, TV, 12 эп.] WEBRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Хандзава - начинающий преступник, жаждущий кого-нибудь убить, прибывает в город, в котором на каждом шагу совершаются преступления... и которые почти столь же стремительно раскрываются. Тысячи преступников совершают свои преступления, давая тем самым сотням гениальных сыщиков причину их ловить. В таком опасном городе Хандзаве предстоит ходить по улицам, жить в съёмной (   Читать дальше...   )Производство: TMS EntertainmentЖанр: комедияРежиссер: Дайти АкитароПеревод: официальный (Netflix)Язык озвучки: Японский и английскийСубтитры: РусскиеПродолжительность: 12 эп. по 9 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A6C8CA618A85FCF06F98CB8E69999CFF12DB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640427   (237461) от 17.06.2023
+
+Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Новое погружение 2 [2022, TV, 12] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон Princess Connect! Re:Dive.
+
+Описание на первый сезон:
+"Princess Connect! Re:Dive" — мобильная игра, развивающая историю альтернативной концовки игры "Princess Connect!".(   Читать дальше...   )Жанр: приключения, фэнтези, комедияРежиссер: Такаоми КанадзакиЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4540BA5D2975FA4E3B2AD52A0F579D04100919F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640426   (237419) от 17.06.2023
+
+Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Новое погружение 2 [2022, TV, 12] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон Princess Connect! Re:Dive.
+
+Описание на первый сезон:
+"Princess Connect! Re:Dive" — мобильная игра, развивающая историю альтернативной концовки игры "Princess Connect!".(   Читать дальше...   )Жанр: приключения, фэнтези, комедияРежиссер: Такаоми КанадзакиЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561EC4C789FD2C1EAEDBA20E866C84A91564176D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643716   (234578) от 02.07.2023
+
+Fate/strange Fake: Whispers of Dawn | Судьба/странная подделка: Шёпот рассвета [2023, Special] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о Фальшивой Войне Святого Грааля, основанной на Третьей Войне Святого Грааля, происходившей в городе Фуюки. После её завершения базирующаяся в США организация магов, отличная от лондонской Ассоциации Магов, использовала данные о ней для своего собственного ритуала. Семьдесят лет спустя город Сноуфилд в Калифорнии избрали Священной Землёй для собственной (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Энокидо СюнПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EB31A70AF2BA8458840A4951287286081AECC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633373   (234525) от 14.05.2023
 
 Thermae Romae Novae | Новые римские бани [2022, Web, 11 эп.] WEBRip 720p raw
@@ -6,7 +116,7 @@ Thermae Romae Novae | Новые римские бани [2022, Web, 11 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +143,7 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +170,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY: Ледяная импери
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +196,7 @@ Kumichou Musume to Sewagakari | The Yakuza's Guide to Babysitting | Дочка �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +222,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +248,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -164,7 +274,7 @@ Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +300,7 @@ Senkaiden Houshin Engi | Soul Hunter | Охотник за душами [ТВ-1]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -218,7 +328,7 @@ Bai Yao Pu 3 | Manual of Hundred Demons 3 | Руководство сотен д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +354,7 @@ Estab-Life: Great Escape | Утверждение в жизни [2022, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +380,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +408,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +436,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +462,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -378,7 +488,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единств�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -406,7 +516,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Для ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -434,7 +544,7 @@ Mahou Tsukai no Yome: Nishi no Shounen to Seiran no Kishi | Невеста ча�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -460,7 +570,7 @@ Koukyoushihen: Eureka Seven - Hi-Evolution | Эврика Семь: Высока
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -488,7 +598,7 @@ Yatogame-chan Kansatsu Nikki Yonsatsume | Заметки Ятогамэ [ТВ-4]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -514,7 +624,7 @@ One Piece Movie 3 - Chinjou Shima no Chopper Oukoku / One Piece: Chopper Kingdom
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -541,7 +651,7 @@ One Piece: Episode of Arabasta - Sabaku no Oujo to Kaizoku-tachi / One Piece: Th
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -570,7 +680,7 @@ One Piece Movie 4 - Dead end no Bouken / One Piece: Dead End / Ван-Пис: Ф
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -583,113 +693,6 @@ One Piece Movie 4 - Dead end no Bouken / One Piece: Dead End / Ван-Пис: Ф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76FDB78B95A0F4FD957E4B2F017A04E9B43EC914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 57232   (229547) от 28.11.2019
-
-One Piece Movie 2 - Nejimaki Tou no Daibouken / Ван-Пис: Фильм второй [2001] raw jp
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй Мувик One Piece.
-Действие фильма происходит после событий 56-го эпизода оригинального сериала.
-Не только их корабль был похищен, но и Nami! Для того чтобы получить их обратно, Луффи и его пиратский экипаж встречаются с таинственными "братьями Trump " Borodo и Akisu, которые приведут их к острову часовой работы, городу, управляемому бандой безжалостных (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнПеревод: ОригинальныйФормат: aviПродолжительность: 55 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C3E4AB99FE4F6A961B6DE487E018088D09B9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 120285   (229542) от 28.11.2019
-
-Fuyu ni Saku, Kiseki no Sakura / One Piece Movie 9 - Episode of Chopper Plus / Ван-Пис: Фильм девятый - История Чоппера [2008] DVDRip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь сюжет можно изложить в одном предложении: А что если бы комманда Мугивары Луффи, встретила Чопера уже после Френки? И так, встречайте!  История Чопера  и приключения на Зимнем Острове в новом исполнении.Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Toei AnimationПродолжительность: 112 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2239A88808D59CE747EEBC7C574AD06F869A798E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 93475   (229535) от 28.11.2019
-
-One Piece Movie 5 - Norowareta Seiken / One Piece - The Curse of the Sacred Sword / Ван-Пис: Фильм пятый [2004] raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит на острове где хранился Проклятый меч, который порабощает старого друга Зоро.Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Такэноти КадзухисаПродолжительность: 95 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF6972A47B7CBE0199A83E3340CB6EBF9421317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 93477   (229529) от 28.11.2019
-
-One Piece Movie 6 - Omatsuri Danshaku to Himitsu no Shima / One Piece: Baron Omatsuri and the Secret Island / Ван-Пис: Фильм шестой [2005] raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну, что я могу сказать. Пожалуй, этот мувик самый интересный из всей, которые я видела. Да, сюжет прост: "Накама ссорятся и расходятся" В этом и заключается сюжет, что если вы накама, то вы ими и останетесь до конца, и никакие преграды не способны разъеденить вас.
-Сюжет какжется прост, есть уверенность, что в конце концов Луффи и его команды победят, но (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Хосода МаморуПродолжительность: 92 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFB655A0A215598BC0D3C47664923371C8F02DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

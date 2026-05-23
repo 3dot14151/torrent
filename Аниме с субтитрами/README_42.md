@@ -1,3 +1,108 @@
+###  Публикация: 1391655   (773248) от 21.06.2020
+
+Buzzer Beater | Забить на последней секунде [2005, TV, 13 из 13] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В будущем баскетбол, который в свое время придумали земляне, захватила раса пришельцев Гораны. Они стали лучшими игроками во вселенной. Их команды заняли все места в Интергалактической Лиге, не оставив землянам ни шанса.
+Но не все земляне сдались. Один влиятельный в баскетболе человек еще грезит мечтой собрать команду землян, которой бы не было равных в Интергалактической (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: фантастика, спортРежиссер: Мия СигэюкиПеревод: troiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF81E8A120D79F5B3BCDE34CAADFCF962E032E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838011   (773209) от 06.04.2015
+
+Gekkan Shoujo Nozaki-kun | Monthly Girls' Nozaki-kun | Нозаки и его сёдзё-манга [2014, TV, 12 эп. + 6 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+16-летняя Тиё Сакура наконец-то решилась признаться статному красавцу-спортсмену Умэтаро Нодзаки из соседнего класса. Вот только силенок ясно выразить свои чувства ей не хватило – на первую часть сбивчивой речи парень отреагировал, дав автограф, а когда Сакура все же смогла выдать, что хочет быть с ним… просто пригласил в гости! Там девушка и поняла, что спорт у ее избранника уже в прошлом, а ныне он – успешный автор девичьей манги, творящий под женским псевдонимом Сакико Юмэно. Что ж, Тиё тоже неплохо владеет (   Читать дальше...   )Производство: Студия DogakoboЖанр: комедия, повседневностьРежиссер: Ямадзаки МицуэПеревод: ShojoseiЯзык субтитров: РусскийПродолжительность: 12 серий по 24 минуты + 6 спешиалов по 4 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BC4784AC8178B53204DAA56B473339045AFE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391650   (773126) от 21.06.2020
+
+All Out!! | Изо всех сил!! [2016, TV, 25 из 25] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кэнджи Гион, мягко говоря, не вышел ростом, и этот факт доводит его до белого каления. Своё раздражение он вымещает на всех, кто принимает его за ребёнка. Случается это, надо сказать, постоянно. А вот Сумиаки Ивашимизу, наоборот, крайне застенчивый и крайне высокий юноша. И вот эти двое оказываются в одной старшей школе и в первый же день натыкаются на хулиганов, (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメント, Madhouse / マッドハウスЖанр: спортРежиссер: Симидзу КэнъитиПеревод: AOS Team (RazGildyai, KsenyaHearty)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A455D257D068CB49D9DEA95D56D5A2C9ED39D819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373696   (772443) от 21.06.2020
+
+Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020) | Ascendance of a Bookworm (2020) | Власть книжного червя (ТВ-2) [2020, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После завершения церемонии крещения, Майн приступает к своим обязанностям послушницы. Её ожидания оправдались. То, о чём она мечтала: комната, полная книг! Но новая жизнь оказалась не сахаром. Она окружена дворянами, презирающими её, как и прочих простолюдинов, и даже её собственные слуги причиняют ей неприятности. И это всё на фоне постоянной борьбы со слабостью (   Читать дальше...   )Производство: ЯпонияЖанр: комедия, повседневностьРежиссер: Митсуру ХонгоПеревод: Annie & ThirTeen (SovetRomantica)Язык озвучки: ЯпонскийПродолжительность: 12 эпизодов по ~25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218BA4436C6D18F992D958BD2F5C43CB68C6F2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372957   (772434) от 21.06.2020
 
 Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Tensei Shiteshimatta | Моя реинкарнация в отомэ-игре в качестве главной злодейки [ТВ-1][2020, TV, 12 эп.] WebRip 720p raw
@@ -6,7 +111,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Zetman / Зетмен [2012, TV, 13 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +165,7 @@ Tachibanakan to Lie Angle | Любовные страсти пансиона Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ Senki Zesshou Symphogear XV / Последняя Песня Боевых При�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +272,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +298,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +324,7 @@ Human Lost: Ningen Shikkaku | Human Lost: Исповедь неполноцен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +350,7 @@ Re: Zero - Director`s Cut | Re: Zero kara Hajimeru Isekai Seikatsu - Shin Henshu
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +376,7 @@ Arte | Арте [2020, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +402,7 @@ Listeners | Слушатели [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +428,7 @@ Sequence | Секвенция [1992, OVA, 1 эп.] DVDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +454,7 @@ New Game!! | Новая игра! [ТВ-2] [2017, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +482,7 @@ Nanbaka / The numbers / Номера [2016, TV, 25] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +508,7 @@ Oedo wa Nemurenai! | Эдо никогда не спит [1993, OVA, 1 эп.] VH
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +535,7 @@ Singles | Незамужние девушки [1993, OVA, 1 эп.] VHSRip 480p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +561,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +587,7 @@ Kitsutsuki Tanteidokoro | Woodpecker Detective's Office | Детективное
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +616,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +644,7 @@ Endride / Эндрайд [2016, TV, 24] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +670,7 @@ Dual! Parallel Runrun Monogatari / Опасные приключения в па
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,110 +681,6 @@ Dual! Parallel Runrun Monogatari / Опасные приключения в па
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5C268737DF0448546D103D8599431F7B66EE837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126142   (766167) от 17.04.2017
-
-New Game! | Новая Игра! [2016, TV, 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аоба Судзукадзе окончила школу и сразу же устроилась 3D-художником в компанию Eaglejump, занимающуюся разработкой игр. Более того, непосредственным начальником Аобы стал человек, создавший любимую игру её детства... А дальше сюжет рассказывает о том, как впахивают няшные девочки, работающие в игровой индустрии.Жанр: повседневность, комедия, сэйнэнРежиссер: Фудзивара Ёсиюки / Fujiwara Yoshiyuki / 藤原佳幸Продолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60767E3F1C6FFB821E524B459969B1D9614A239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090838   (766076) от 17.04.2017
-
-Urara Meirochou / Предсказательница из Мейрочо [2017, TV, 12] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766076.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе под названием Мейрочо есть заведение, где учат на предсказательниц. Именно сюда со всей страны стекаются девушки, желающие стать элитными гадалками (таких называют «урара»). Среди них одинокая Чия, которую, впрочем, привела в город ещё и иная цель. Ученичество Чии начинается со знакомства с тремя подругами — искренней Кон, поклонницей западной культуры Коуме (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключенияРежиссер: Судзуки ЁхэйПеревод: Undokaktyz (1-12); Ykusub (1-7)Язык озвучки: ЯпонскийСубтитры: русские (отключаемые)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C93D755E2C112544BF1B854E38B9952103C61CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501361   (766016) от 01.01.2022
-
-Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Tensei Shiteshimatta.. X | Моя реинкарнация в отомэ-игре в качестве главной злодейки 2 [2021, TV, 12 + OVA] BDRip 1080p
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дочь знатного рода Клас, Катарина, получила камнем по лбу и вспомнила прошлую жизнь. Оказывается, она родилась в мире отомэ-игры Fortune Lover, которую обожала в своей прошлой инкарнации. Только вот… переродилась девушка в злодейку, что только и знает, как строить козни главной героине! Лучшая концовка Катарины — изгнание, худшая — смерть! И теперь ей предстоит сделать (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедияРежиссер: Иноэ КэйсукэПеревод: CrunchyRoll (TV + OVA);Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F76E4F2CF40087C2070E556644451C094D6E5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481366   (765838) от 01.01.2022
-
-Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Tensei Shiteshimatta.. X | Моя реинкарнация в отомэ-игре в качестве главной злодейки 2 [2021, TV, 12 + OVA] WebRip 720p
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дочь знатного рода Клас, Катарина, получила камнем по лбу и вспомнила прошлую жизнь. Оказывается, она родилась в мире отомэ-игры Fortune Lover, которую обожала в своей прошлой инкарнации. Только вот… переродилась девушка в злодейку, что только и знает, как строить козни главной героине! Лучшая концовка Катарины — изгнание, худшая — смерть! И теперь ей предстоит сделать (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедияРежиссер: Иноэ КэйсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E18BE3330610B2A09E17C7954B4889EDE9544F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,172 @@
+###  Публикация: 913357   (605021) от 29.06.2015
+
+Мурат Тхагалегов: Всем красавицам Кавказа (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия первого сольного концерта. Популярный певец посвятил сольник всем девушкам Кавказа и не только! В исполнении кавказского "Казановы" прозвучат известные композиции и новые произведения, которые просто обречены стать хитами!01. Аслан Кушхов и ансамбль народного танца "Кафа" - Интро
+02. Мурат Тхагалегов - Казанова
+03. Мурат Тхагалегов - Одна ночь
+04. Мурат Тхагалегов - Плачут раны(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E29F7283204448E900A88E690ABE12479EEFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297304   (604054) от 22.04.2019
+
+Квартирник НТВ у Маргулиса. Женя Любич (20.04.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске в гости к Евгению Маргулису пришла «русская француженка» Женя Любич. В России о ней узнали как об участнице французской музыкальной группы Nouvelle Vague: она с ними часто и много выступала как в Париже, так и за пределами Франции. В уютной обстановке певица исполнила свои композиции и поделилась интересными воспоминаниями из жизни и творчества.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D979DF521EA354E77E978539913EE3D5DF4C9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547041   (603798) от 26.04.2022
+
+Музыка для души (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Любимые песни и хиты, которые можно включить для фона и погрузиться в гармонию.
+Приятного просмотра.00:00 - Artik & Asti - Любовь после тебя
+03:52 - Мари Краймбрери ft. Звонкий - Как дела, малыш?
+06:09 - Ханна ft. Миша Марвин - Убью тебя
+08:34 - IOWA - В танце(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140F60377362B70EC49B5BD23BF3151672C23FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149003   (602399) от 09.07.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 3) (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Третья часть серии видеомиксов, основа которых - популярные клипы легендарных 90-х. Немного ускоряем темп. К уже привычным по первым двум сериям клипам в стилях  Rock Ballads, Reggae и R&B добавляется не менее любимый всеми стиль Eurodance!  И вновь Philizz предлагает (   Читать дальше...   )Ace of Base – All That She Wants
+Robyn – Show Me Love
+Texas – Say What You Want
+Steps - Say You'll be mine(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8B5C970CDE2A47DB4E454D2387D559A347A022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232195   (602239) от 23.06.2018
+
+The Eagles - Live '1974 & '1977 (2018) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Eagles — американская рок-группа, исполнявшая мелодичный гитарный кантри-рок и софт-рок. В течение десяти лет своего существования (1971-81) пять раз возглавляла американские поп-чарты синглов (Billboard Hot 100) и четырежды — хит-парад альбомов (Billboard Top 200).Здесь представлены два концертных выступления группы - в телешоу Don Kirshner's Rock Concert (1974) (   Читать дальше...   )01.Peaceful Easy Feeling
+02.Already Gone
+03.Good Day In Hell
+04.Midnight Flyer(   Читать дальше...   )Жанр: country-rock,soft-rockРежиссер: Victoria Hochberg (1977)Актеры: The EaglesПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:45:31 + 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A46EF0B33CE08BE080141105F2A1DF9CA9E5C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 686687   (601321) от 06.08.2013
+
+DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC330ECFFE9E4BCE14DB5BC364F8B4786C27FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548339   (600129) от 02.05.2022
 
 Леонид Агутин и Владимир Пресняков – ДНК (2022) WEBRip [H.264/1080p]
@@ -6,7 +175,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +201,7 @@ VA - Летний марафон № 175 / Видеоклипы (Turbo Диск�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +257,7 @@ Norah Jones - The BBC One Sessions (2007) HDTV [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_599057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -123,7 +292,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -152,7 +321,7 @@ Guns N' Roses - Appetite for Democracy Live at Hard Rock Las Vegas (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -181,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -210,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -237,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +518,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +547,7 @@ Nier Music Concert: Ningyou Tachi no Kioku / NieR Music Concert: The Memory of P
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +599,7 @@ The Sweet – Action (The Ultimate Story) (2015) DVDReMux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,180 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2CA22BD76157A5B482A930471C39EE7D28FEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915429   (592205) от 05.07.2015
-
-Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592205.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 июля 2009 года Metallica выступила на одной из самых запоминающихся концертных площадок в мире - в старом амфитеатре "Arenes de Nimes"древнем амфитеатре во французском городе Ним, который построили еще римляне и который считается одной из самых любопытных концертных площадок в мире. В результате получился "Francais Pour Une Nuit" (название переводится (   Читать дальше...   )01. Blackened
-02. Creeping Death
-03. Fuel
-04. Harvester Of Sorrow(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashПродолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D3D89852D34F3CCEA5014EB49984ED400E3EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 807386   (591514) от 24.07.2014
-
-Новая Волна 2014. День второй (2014) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари". В этом году фестиваль пройдет с 22 по 27 июля и соберет все самые яркие звезды российской эстрады. В конкурсе примут участие исполнители из России, Украины, Армении, Литвы, Киргизии, Казахстана, Италии, Грузии, Германии и Латвии. Россию (   Читать дальше...   )01. Тимур Родригес - "HAPPY"
-02. Потап и Настя - "BLURRED LINES"
-03. Джамала - "BEAUTIFUL"
-04. Дискотека Авария - "CRAZY IN LOVE"(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A12DAEE27CC8D2CB6B725B9AA7965FB23A151A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 807127   (591480) от 24.07.2014
-
-Новая Волна 2014. День первый (2014) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари". В этом году фестиваль пройдет с 22 по 27 июля и соберет все самые яркие звезды российской эстрады. В конкурсе примут участие исполнители из России, Украины, Армении, Литвы, Киргизии, Казахстана, Италии, Грузии, Германии и Латвии. Россию (   Читать дальше...   )1. Серебро - Я тебя не отдам
-2. Валерий Меладзе - Свободный полет
-3. Николай Басков - Зая, я люблю тебя
-4. Жасмин - Нет, не надо(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C16370D6853211CA6F7989C5231F0FF84CC4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 807908   (590561) от 26.07.2014
-
-Новая Волна 2014. День четвёртый (2014) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. Липа, Сергей Лазарев, Стас Костюшкин, Анна Семенович, Александр Ревва, Лера Кудрявцева – "Очень Хорошо"
-02. Валерий Меладзе – "Примадонна"
-03. Полина Гагарина – "Опять Метель"
-04. Игорь Николаев - "Расскажите, птицы"(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53910809E3DE597016E0E12C3BC78EBBE51525F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 807702   (590543) от 26.07.2014
-
-Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590543.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1975 и 1976 годах Paul McCartney и Wings совершили эпическое мировое турне, наиболее масштабное из всех, что они делали как группа когда-либо. Из этих двух легендарных туров и вышел тройной концертный альбом WINGS OVER AMERICA и фльм-концерт Rockshow.01. Venus and Mars
-02. Rock Show
-03. Jet
-04. Let Me Roll It(   Читать дальше...   )Жанр: RockПродолжительность: 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA249538E5CF6C56405C68A9558DE6EC0FC01A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 807769   (590513) от 26.07.2014
-
-Новая Волна 2014. День третий (2014) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. Группа «Блестящие» - «МегаМикс»
-02. Борис Моисеев - «Глухонемая Любовь
-03. Любовь Успенская - «К единственному нежному»
-04. Артур Пирожков - «Я не умею танцевать»(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB40AC58B7ECB4A2772017970894CA6F10983BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

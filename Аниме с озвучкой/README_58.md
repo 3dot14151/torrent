@@ -1,3 +1,108 @@
+###  Публикация: 1623844   (55166) от 28.05.2024
+
+Путешествие аристократа в другом мире: На службе у богов, которые не ведают меры | Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Волей случая Шино Казуя погибает, вступившись за девушку в магазине. Мгновение спустя Казуя осознаёт, что попал в место своей мечты – мир, где царит искусство меча и магии! И перерождается он никем иным, как третьим сыном аристократической семьи – Каином фон Силфордом. Уже в роли пятилетнего Каина он проходит церемонию крещения согласно традиции, после чего боги (   Читать дальше...   )Производство: Япония / Студия EMT Squared, Magic BusЖанр: Приключения, фэнтезиРежиссер: Накамура НориюкиЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Itashi, NeoNoir, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE30D29812C21D8A7D1590FA90A8D06815DE1CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726895   (54859) от 31.05.2024
+
+Мальчик и птица / Как поживаете? / Kimitachi wa Dou Ikiru ka / The Boy and the Heron [2023, Movie] TS 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мальчик Махито сильно тоскует по своей матери и решает отправиться в рискованное путешествие в потусторонний мир. В иной реальности исход неминуем, а жизнь обретает новое начало.Производство: ЯпонияЖанр: аниме, мультфильм, драма, фэнтези, приключенияРежиссер: Хаяо МиядзакиАктеры: Сома Сантоки, Аимён, Кэйко Такэсита, Ёсино Кимура, Каору Кобаяси, Ко Сибасаки, Такуя Кимура, Дзюн Кунимура, Масаки Суда,Сёхэи ХиноОзвучка: Двухголосая любительская FumoDub (Makishima & S4NN3R)Язык озвучки: Русский, Японский, ИспанскийСубтитры: русские, английскиеПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F89B6A65818198D289A572E83EDBC863C8D4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706756   (54443) от 04.06.2024
+
+Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битва [ТВ-2] [2023, TV, 23 из 23] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Юдзи Итадори отличается от будней его сверстников. Начать с того, что парень отличается природным атлетизмом, так что с момента поступления в старшую школу ему приходится отбиваться от постоянных приглашений в спортивные клубы. А ещё его единственный родственник — сварливый и грубый дедушка — лежит в больнице, и Юдзи старается почаще его навещать. Именно поэтому (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Госёдзоно СётаЯзык озвучки: Японский, русский (Force Media, AniLibria, AniPlague, Jam Club, Studio Band, TVShows)Субтитры: Русские (AniLibria, Crunchyroll, CafeSubs)Продолжительность: 23 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667154   (54417) от 04.06.2024
+
+Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жизнь в ином мире [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+После смерти от неизлечимой болезни парень по имени Хираку воскресает в новом мире. Решив стать фермером и жить подальше от цивилизации, Хираку получает в распоряжение волшебный сельскохозяйственный инструмент, который по его желанию может превращаться в любое полезное орудие. Оказавшись в удалённом лесу, парень рьяно принимается за дело.Производство: студия Zero-G / ゼロジーЖанр: повседневность, фэнтезиРежиссер: Курая РёитиЯзык озвучки: Японский, русский (AniDub, AniMaunt)Субтитры: Русские (Dniwe, ItoTakashi)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2370835DADE6130E1101ACBE7204BE2C37244F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727966   (54269) от 05.06.2024
 
 Komada Jouryuusho e Youkoso | Добро пожаловать на вискарню Комады [2023, Movie] WEBRip 1080p raw+rus
@@ -6,7 +111,7 @@ Komada Jouryuusho e Youkoso | Добро пожаловать на вискар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +190,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +216,7 @@ Kyokou Suiri Season 2 | In/Spectre Season 2 | Ложные выводы [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +430,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi | Исто�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C729980517FF9CF17F60EF80636D8A138D613D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713853   (51254) от 03.07.2024
-
-Студия, солнечная сторона, есть ангел | One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel Included [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51254.jpg" />
-</div>
-
-
-###  Подробнее
-
-После долгого рабочего дня старшеклассник Синтаро Токумицу хотел отдохнуть в своей однушке, но не тут-то было: на балконе он увидел девушку-ангела. Посланница с небес сообщила, что спустилась на землю изучать человечество, и парень неохотно согласился ее приютить. Так началась их забавная совместная жизнь, полная божественных откровений.
-© crunchyrollПроизводство: Япония / Студия Okuruto NoboruЖанр: Комедия, романтикаРежиссер: Ониси КэнтаЯзык озвучки: Русский (DubClub, Kazoku Project, Silver AniAge, Оканэ); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335D3F7884533EE583F9D26A3E7B17414E7DB147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734425   (51211) от 03.07.2024
-
-B Gata H Kei | Yamada's First Time | Второй размер, интим предлагать! [2010, TV, 12 эп.] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51211.jpg" />
-</div>
-
-
-###  Подробнее
-
-15-летняя симпатичная девчонка по фамилии Ямада, поступив в старшую школу, озабочена очень важным вопросом - как потерять девственность и получить удовольствие? В тяжких раздумьях о вступлении во взрослую жизнь «освобожденная женщина Востока» решила, что ее первый партнер тоже обязан быть девственником, чтобы на равных приступить к волнующему и пугающему ритуалу (   Читать дальше...   )Производство: Hal Film MakerЖанр: Комедия, романтика, этти, школаРежиссер: Ямамото ЮсукэПеревод: StormHeart & Stan WarHammer & 8day (полные и надписи)Язык озвучки: Японский; Русский (AniMedia), (Dream Cast)Субтитры: РусскиеПродолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB551FD9C9FD030A7F91EAE850A5377B2E6C078B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733594   (51161) от 04.07.2024
-
-Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица [2023, Movie] UHDStRip HEVC 10-bit 2160p/4K HDR raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51161.jpg" />
-</div>
-
-
-###  Подробнее
-
-У маленького Махито Маки тяжёлая судьба: разразившаяся в стране война унесла жизнь его матери Хими. Вместе с отцом, Макито переехал к своей тёте Нацуко. Однако и на новом месте жизнь не задалась: сверстники в школе его невзлюбили, а дома его преследует странная разговаривающая цапля, которая заявляет, что знает, где находится его мать. Однажды беременная Нацуко таинственно (   Читать дальше...   )Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, драма, фэнтези, приключенияРежиссер: Хаяо МиядзакиПеревод: SRT, полные, перевод: dimon-san | RUS (ext)Язык озвучки: Японский, Английский и русский (Dub)Субтитры: Английские, Русские, ДРУГИЕПродолжительность: 2:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6073293135B922995383E5C28D7AC09023C6C561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733135   (51153) от 04.07.2024
-
-Мальчик и птица / Как поживаете? / Kimitachi wa Dou Ikiru ka / The Boy and the Heron  [2023, Movie] WEB-DL HEVC 1080p raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик Махито сильно тоскует по своей матери и решает отправиться в рискованное путешествие в потусторонний мир. В иной реальности исход неминуем, а жизнь обретает новое начало.Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, драма, фэнтези, приключенияРежиссер: Хаяо МиядзакиПеревод: Дублированный (CPI Films, Студийная Банда)Язык озвучки: Русский, Английский, ЯпонскийСубтитры: Русские (dimon-san), (Студийная Банда- форсированные и полные) | АнглийскиеПродолжительность: 02:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A498508C4F7985C0246D0F398FEE972ADCA1A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

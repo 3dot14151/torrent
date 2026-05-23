@@ -1,3 +1,84 @@
+###  Публикация: 1428717   (1034751) от 31.01.2021
+
+Связь принцесс! Новое погружение | Princess Connect! Re:Dive [TV-1] [2020, TV, 13 из 13] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация мобильной игры: Princess Connect! Re:Dive, от режисёра KonoSuba!
+История рассказывает о мире, где создали VR-игру "Астрея". Главная цель игры — прохождение "Башни Сол", после которой всемогущий искуственный интеллект под названием "Минерва" исполнит любое желание игрока.
+Главный герой по имени Юки обладает силой "Princess (   Читать дальше...   )Производство: Япония, студия Cygames PicturesЖанр: приключения, фэнтези, комедияРежиссер: Канасаки ТакаомиЯзык озвучки: Русский закадровый, многоголосый (AniDub), (Amazing Dubbing)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 13 эпизодов по 15 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1CEB994D6B3DA2D0E0D2E733356FEFCB9A8B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582631   (1034716) от 08.03.2023
+
+Добро пожаловать в ад, Ирума [ТВ-3] | Mairimashita! Iruma-kun (2022) | Welcome to Demon School! Iruma-kun (2022) [2022, TV, 21 из 21] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В демонической школе Бабилус, в которую попал мальчик Ирума, начинается новый семестр! Обычно учеников ожидает множество интересных мероприятий. Однако на этот раз классу Ирумы выдвинули особое требование: чтобы окончить школу, каждый ученик должен до конца года получить четвертый ранг — Далет. Для его достижения Ируме и его друзьям придётся научиться множеству новых (   Читать дальше...   )Производство: Япония / Студия BN PicturesЖанр: Комедия, фэнтезиРежиссер: Мориваки МакотоЯзык озвучки: Русский многоголосый закадровый, Японский
+- Cleo-Chan, Gomer, HectoR, Nuts (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 21 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE4367220B51887BF970A5028A41310023F75CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586375   (1033325) от 14.03.2023
+
+Для тебя, Бессмертный [ТВ-2] | Fumetsu no Anata e Season 2 | To Your Eternity Season 2 [2022, TV, 20 из 20] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Когда-то Бессмер был лишь сферой в руках бледного бога. Камнем. Волком. А затем он превратился в человека. Нашёл друзей. Обрёл врагов — стукеров. Видел жизнь и смерть тех, кто подарил ему тело и личность. И не просто видел: отчасти он стал ими — теперь он может принимать форму умерших. А еще Бессмер понял: он способен биться со стукерами один, но не в силах защитить (   Читать дальше...   )Производство: Япония / Студия DriveЖанр: Драма, приключения, сверхъестественное, сёнен, фэнтезиРежиссер: Саяма КиёкоЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 20 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52186D22C8B2397A6DBB0743063FCAFC028637E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445800   (1033094) от 07.02.2021
 
 Kaze no tani no Naushika | Nausicaa of the Valley of the Wind | Навсикая из долины ветров [1984, Movie] BDRip 1080p raw+rus
@@ -6,7 +87,7 @@ Kaze no tani no Naushika | Nausicaa of the Valley of the Wind | Навсикая
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +114,7 @@ Princess Connect! Re:Dive Season 2 | Связь принцесс! Новое п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +166,7 @@ Senya Ichiya Monogatari | A Thousand and One Nights | Сказки 1001 ночи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +192,7 @@ Cleopatra | Cleopatra: Queen of Sex | Клеопатра, королева се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +219,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-3) [2020, Web, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +248,7 @@ Psycho-Pass: Sinners of the System | Психопаспорт: Грешники 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +304,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -251,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +358,7 @@ Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина служба д�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -330,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +438,7 @@ Gekijouban Bem: Become Human | Bem Movie: Become Human | Бэм: Стать че
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -410,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -464,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +572,7 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -544,7 +625,7 @@ Kyou kara Ore wa!! | Сегодня и начну!! [1993, OVA, 10 из 10] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,87 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F054D6A6471BA15CDE8DF3072012C605F956DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439036   (1028754) от 27.02.2021
-
-Клетки за работой!! [ТВ-2] | Hataraku Saibou!! [TV-2] [2021, TV, 08 из 08] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о вас.
-Эта история о вашем теле.
-По последним данным человеческое тело состоит из приблизительно 37 триллионов клеток. Каждая из них неустанно работает на благо своего мира, который мы называем своим телом.
-Эритроциты разносят кислород, лейкоциты сражаются с бактериями… Всевозможные клетки исполняют свой долг невзирая на любые трудности.(   Читать дальше...   )Производство: Япония, студия David ProductionЖанр: приключения, комедияРежиссер: Огура ХирофумиЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 08 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3BD4C2E9664F4ABE3C75ADADD3F9E1BDBBF9D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453828   (1026274) от 14.03.2021
-
-Death Note | Тетрадь Смерти [2006, TV, 37 из 37] BDRip 1080p raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026274.jpg" />
-</div>
-
-
-###  Подробнее
-
-У старшеклассника Лайта Ягами в жизни есть всё: успехи в школе, популярность среди сверстниц, замечательные родители, блестящее будущее. Возможно, поэтому так тяжело ему жить в мире, полном несправедливости, и осознавать, что никакие законы не способны исправить людей – и очистить мир от зла. Но однажды юноша находит странную чёрную тетрадку и знакомится с её владельцем (   Читать дальше...   )Производство: Япония, Madhouse StudiosЖанр: Аниме, Мистика, Триллер, Детектив, ДрамаРежиссер: Тэцуро Араки, Наоясу Ханьюй, Томохико ИтоЯзык озвучки: Русский, Английский, ЯпонскийСубтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 37 серий по ~23 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92632903787ACFAFF49C7DE7E4D777D4EEE11C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438585   (1025514) от 19.03.2021
-
-Клетки за работой! КОД: ТЬМА | Hataraku Saibou Black [TV-1] [2021, TV, 13 из 13] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный эритроцит каждый день неустанно разносит кислород по телу. Но среда, где ему приходится работать, объята непроглядной тьмой… Алкоголизм, курение, стресс, нехватка сна… Что думают клетки, которые до изнеможения работают в мире, похожим на разваливающийся завод? Эта история о вашем теле…Производство: Япония, студия Liden FilmsЖанр: Боевик, Драма, КомедияРежиссер: Ямамото ХидэёЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8888FCFCE02C92A315C7B454760F0C53C083AF18
 ```
 
 https://mybot314.ru/tekegram_catalog/

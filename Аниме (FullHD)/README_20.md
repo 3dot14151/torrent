@@ -1,3 +1,56 @@
+###  Публикация: 1394776   (760386) от 07.07.2020
+
+Inuyasha: Tenka Hadou no Ken | Inuyasha the Movie: Swords of an Honorable Ruler | Инуяся: Меч, покоряющий мир [2003, Movie] BDRip 1040p 10-bit raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В день рождения Инуяши его отец, великий пес-демон Ину-но-Тайсё, спасает его и маму Идзаёй, ценой своей жизни. После его смерти верные друзья выполняя его волю отдаю меч Тэнсэйга старшему сыну Сещёмару, запечатывают меч Тессайгу в черной жемчужине, а третий меч запечатав в ножным и отправляют в колодец душ. Спустя некоторое время печать на ножнах распечатывается (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Синохара ТосияПеревод: Troll + Ирина ФронкинаЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B10F07FC35D62C990D35F46972D9782BFB25FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394771   (760384) от 07.07.2020
+
+Inuyasha: Kagami no Naka no Mugenjou | Inuyasha the Movie: The Castle Beyond the Looking Glass | Инуяся: Замок в зазеркалье [2002, Movie] BDRip 1040p 10-bit raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наконец Нараку умирает и казаана Мироку исчезает с правой руки и вроде как все закончилось...
+Но не тут-то было, появляется новый враг - Принцесса Кагуя, использующая порождения Нараку в своих целях - для снятия печати, удерживающей её...Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Синохара ТосияПеревод: Troll + Зимин Тимофей ака RakottЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08F08DD0B7D40FC55A69ABFA0CBB83024E2FBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394760   (760250) от 07.07.2020
 
 Inuyasha | Инуяся [2000, TV, 167 из 167] BDRip 1080p 10-bit raw
@@ -6,7 +59,7 @@ Inuyasha | Инуяся [2000, TV, 167 из 167] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +86,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +112,7 @@ Beastars 2nd Season | Выдающиеся звери [ТВ-2] [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +138,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +164,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +191,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +217,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +243,7 @@ Hanamaru Youchien / Hanamaru Kindergarten / Детский сад Ханамар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -220,7 +273,7 @@ Log Horizon: Entaku Houkai | Log Horizon: Destruction of the Round Table | Ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +299,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +325,7 @@ Seirei no Moribito / Guardian of the Sacred Spirit / Хранитель Свящ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +353,7 @@ One Off / Эпизод [2012, OVA, 4 ep.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -328,7 +381,7 @@ Netojuu no Susume | Recommendation of the Wonderful Virtual Life | Гайд по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +407,7 @@ Bokutachi wa Benkyou ga Dekinai! | We Never Learn: Bokuben Season 2 | Мы не 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +433,7 @@ ViVid Strike! | Решающий удар! [2016, TV, 13 эп. + 2 SP] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +459,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records | Акашийские хрон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +511,7 @@ Island | Остров [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +537,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +563,7 @@ Fate/Extra: Last Encore | Судьба: Дополнение [2018, TV, 13 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +591,7 @@ Ano Natsu de Matteru | AnoNatsu | Waiting in the Summer | Ждём тебя ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +619,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +645,7 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +671,7 @@ Gekijouban Card Captor Sakura|Fuuin Sareta Card / Cardcaptor Sakura: The Movie|T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,59 +687,6 @@ sidestory (ответвление сюжета) оригинального се�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA716F9152F33EE8D8F16A22A787F25FDEF90BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396810   (744072) от 17.07.2020
-
-Overman King Gainer | Король Гэйнер [2002, TV, 26 из 26] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744072.jpg" />
-</div>
-
-
-###  Подробнее
-
-После крупного планетного катаклизма человечество оставило измученную землю и укрылось под куполами в Домеполисах. Власть захватила международная военная организация, управляющая городами с помощью полиции. Но возникло движение «Исход», призывающее людей вернуть себе свободу и отправиться на поиски лучшей земли – загадочной «Японии».
-Главный герой, старшеклассник (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Томино ЁсиюкиПеревод: Tempest (эп. 1-7), Il Palazzo-sama (эп. 8-26)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3BF6D5FEBB0912AA942429B2CE034A5DB38758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396967   (742731) от 18.07.2020
-
-Eldlive | Эль Драйв [2017, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742731.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вечно бормочущего Тюты Коконосэ не очень много друзей. Он постоянно ведет беседы с голосами внутри своей головы. Мало кто знает, что это вовсе не означает, что Тюта сумасшедший. Просто внутри его тела живет пришелец.Производство: Studio Pierrot / studioぴえろЖанр: приключения, фантастикаРежиссер: Фурута ДзёдзиПеревод: BadNewsZiggy, KronosHunter, AngaraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2FBEAFDD0FE8FD99E41C35C088AC5832386E807
 ```
 
 https://mybot314.ru/tekegram_catalog/

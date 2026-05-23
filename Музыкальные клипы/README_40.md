@@ -1,3 +1,114 @@
+###  Публикация: 1769768   (29119) от 31.01.2025
+
+РОМ – "Лишние рты" (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Монолог зарубежной работницы
+
+Отца все нет, а скоро ночь…
+Гудит метель в трубе холодной.(   Читать дальше...   )Жанр: РокПродолжительность: 00:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6930E68398B3AA17529D297AF2F849CF371B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778237   (28242) от 08.02.2025
+
+Полина Гагарина – Танец перед зеркалом (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Не бойся теней. Они означают, что рядом есть свет.
+В начале 2025 года Полина представила песню «Танец перед зеркалом».
+Танец перед зеркалом — мне хорошо,
+Танец перед зеркалом — вальс нагишом...Производство: РоссияЖанр: ПопСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 00:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB5B7B88BE9363E83825BAE3923B0845FBD5C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778868   (28042) от 10.02.2025
+
+Джизус & Юлия Савичева – Лето без тебя (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Юлия Савичева в последнее время тяготеет к утяжелённому звучанию, но продолжает всё сильнее углубляться в эту стилистику. Теперь дело дошло до дуэта с Джизусом, которого певица считает рок-звездой нового поколения.
+Для Джизуса этот фит – возможность выйти на новый уровень, рассказать о себе и своей музыке более широкой аудитории.Производство: Россия | SEVER Production CoЖанр: Поп-рокРежиссер: Константин ЧерепковАктеры: Саша Колесникова, Олег КузнецовЯзык: РусскийПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA09B0B65B61FA098C2F5EFFC47D823480613160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778924   (28030) от 10.02.2025
+
+Юлия Савичева – Девочка (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Песня «Девочка» задумывалась Юлией Савичевой как мотивационный гимн, призывающий девочек, девушек, женщин любить себя и не плакать из-за мелочей. После выхода mood video стало очевидно, что певица обращается в первую очередь к себе, может быть, поэтому Юля постеснялась называть «Девочку» клипом и считает ролик «настроенческим видео».Производство: Россия | SEVER Production Co.Жанр: ПопРежиссер: Константин ЧерепковАктеры: Варвара Макарова, Татьяна Романова, Глеб Замлелый, Даналаки Ион, Куликова Олеся, Пакалов АндрейЯзык: РусскийПродолжительность: 00:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B78F407050D8990763F3B0167B0367BFBDE20FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779183   (27835) от 12.02.2025
 
 NЮ – Некуда бежать (2022) WEBRip [H.264/1080p]
@@ -6,7 +117,7 @@ NЮ – Некуда бежать (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -59,7 +170,7 @@ STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -85,7 +196,7 @@ Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -111,7 +222,7 @@ Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +274,7 @@ STAYC - BEBE (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +300,7 @@ Girls' Generation - Paparazzi (2012) WEBRip [H.265/2160p] [60fps, AI Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +326,7 @@ Seogi - Nap (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +381,7 @@ KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +407,7 @@ Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +433,7 @@ NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +459,7 @@ HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +485,7 @@ STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +511,7 @@ Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +537,7 @@ Gorillaz - The Happy Dictator ft. Sparks (2025) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +563,7 @@ Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

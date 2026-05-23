@@ -1,3 +1,56 @@
+###  Публикация: 1369826   (899833) от 25.03.2020
+
+Крылатые монстры / Flying Monsters 3D with David Attenborough (2011) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Миллионы лет назад, когда на Земле царили динозавры, в воздухе царили летающие ящеры - птерозавры. В фильме известный натуралист и ведущий Дэвид Аттенборо рассказывает об этих существах.Производство: Великобритания, Atlantic ProductionsЖанр: Документальный, история, познавательныйРежиссер: Мэттью ДиасУчастники: Дэвид Аттенборо, Дуглас А. ЛоусонПеревод: Одноголосый авторский (В.Курдов)Субтитры: АнглийскиеПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEEAFCFEE26A772E97B721CD1B11C4BB766E6481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100382   (899663) от 04.02.2017
+
+Война за территорию. Львы и бегемоты / Turf War. Lions and Hippos (2013) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Дикая природа Африки - место, где выживают только сильные. В том мире главное - еда и вода. Когда наступает засуха - звери становятся особо агрессивными, стираются границы территорий, враждуют все за лучшее место под солнцем. Одну из таких войн вы увидите в фильме.
+Красивые величественные львы и мощные стойкие бегемоты сражаются за то, чтобы быть хозяевами у берегов (   Читать дальше...   )Телекомпания: ЮАР, Boksdocs Into Nature ProductionsЖанр: ДокументальныйРежиссер: Вилли СтинкампПеревод: ДублированныйПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BC683FFF4D23904196E425EBA53FD444159BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992916   (898746) от 03.03.2016
 
 Самое странное место в океане / The Sea's Strangest Square Mile (2011) HDTVRip [AVC H.264/1080p]
@@ -6,7 +59,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +137,7 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +163,7 @@ BBC: Охота на гравитационные волны / The hunt for grav
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +215,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +267,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +319,7 @@ N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +345,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +371,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +397,7 @@ Discovery. Техногеника. Карьер "Удачный" (2016) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +450,7 @@ NG: Христианство. Восхождение к власти / Иису�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +476,7 @@ Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +502,7 @@ BBC. Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +528,7 @@ NG: Самые страшные мировые морские катастроф
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +554,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -616,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6700505E7A01052E475C1B2946F037DC8130547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372484   (884959) от 03.04.2020
-
-NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сто сорок пять миллионов километров от Земли. Самый быстрый аппарат, созданный людьми - космический зонд "Паркер", он вторгается в фотосферу Солнца. Небольшой объект приближается к звезде, которая в миллион раз больше нашей планеты. Эта миссия считалась невыполнимой и потребовались поразительные инновационные технологии, чтобы осуществить её. Цель миссии (   Читать дальше...   )Производство: США / Thoroughly Modern Media, National Geographic, National Geographic ChannelЖанр: Документальный, космосРежиссер: Daniel M. SmithПеревод: Двуголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33F873C0FA06A82339B4C6E1727261C56A6CEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372872   (883336) от 04.04.2020
-
-BBC: Эйнштейн и Хокинг. Гении нашей Вселенной / Einstein and Hawking: Masters of our Universe (2019) IPTVRip [H.264] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о том, как два величайших ума XX-го века изменили всё, что мы знаем о нашей Вселенной. Что такое время на самом деле, как родилась Вселенная, как она работает. Эйнштейн и Хокинг являются одними из самых известных учёных в мире. Этот документальный фильм из двух частей переносит нас в прошлое - в две различные эпохи, когда Эйнштейн и Хокинг определили (   Читать дальше...   )Производство: Великобритания / BBC StudiosЖанр: Документальный, познавательный, космосРежиссер: Michael LachmannПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 2 x ~ 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F352D9C6AB3E2EAF4CF86074B31431B6E1BD2F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

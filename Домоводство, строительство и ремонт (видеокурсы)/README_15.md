@@ -1,3 +1,116 @@
+###  Публикация: 1783187   (25737) от 04.03.2025
+
+Ольга Пекарько | Волшебная азия (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+На курсе вы научитесь печь   азиатские  мучные изделия на закваске: китайские паровые булочки с начинкой, индийские лепешки, японский молочный хлеб, корейские пончики и турецкие  бублики.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D6B3DD7097B03B8F3CF225C7F7D3B5DD07D157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783297   (25639) от 05.03.2025
+
+Марина Берестова | Сборник курсов Быстрые решения для сада (2024) WEB-DLRip [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+1. Как и чем закрыть забор + 5 готовых решений
+
+Формат: видео мастер-класс
+Узнаете, какие растения закроют ваш забор так, что площадь вашего сада визуально будет казаться больше(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 00:40:46Реклама: Ватермарки и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B023EE8D5BAB21CF5B23530EA4DA3D226FECF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783326   (25633) от 05.03.2025
+
+Марина Кучеренко | Школа новичка в органическом земледелии (2020) WEB-DL  [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Базовый курс органического земледелия
+7 насыщенных занятий по основам органического и природосообразного земледелия. Будет полезен и новичкам и бывалым органическим земледельцам.
+
+Базовый Курс Органического Земледелия решает три основные задачи:(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:00:55Реклама: Ватермарки и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8320C8A4A57D4E472E9938721AE10C1773CDEF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783622   (25531) от 06.03.2025
+
+Умный садовник, Дмитрий Звонка | Курс «Сад мечты своими руками» (2020) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+В результате прохождения курса вы научитесь:
+• Выбирать качественные саженцы
+• Правильной посадке
+• Что и как делать после посадки(   Читать дальше...   )Производство: Умный садовникЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:45:09Реклама: Ватермарки и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEAB3C4CE46D44EACAA1CE54C4DADA97076A576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783535   (25512) от 06.03.2025
 
 Ольга Куликова | Детские торты (2021) WEB-DL [RU]
@@ -6,7 +119,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -112,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -141,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -167,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -196,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -225,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -253,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -281,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -309,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -338,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -364,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -393,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -419,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -445,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -472,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -499,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -528,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -557,7 +670,7 @@ George Vondriska | Создайте станцию для беспроводно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -583,7 +696,7 @@ Dale Barnard | Искусство и Ремесла Стиль Greene & Greene (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,111 +707,6 @@ Dale Barnard | Искусство и Ремесла Стиль Greene & Greene (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3184ED04D389FF739E14DBEE32ACCB38139F0B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796975   (18319) от 14.05.2025
-
-Woodsmith PBS | Woodsmith shop (Season 6) (2012) TVRip [EN, RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионное популярное американское шоу Woodsmith призвано помочь получить максимальную отдачу от Вашей деревообрабатывающей мастерской. Каждый эпизод является яркой живой презентацией советов и методик деревообработки, методам работы со станками и инструментами, применением и изготовлением различных приспособлений, которые сделают Ваш труд более производительным (   Читать дальше...   )Жанр: ДеревообработкаЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 13 ~ по 00:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3D0568B16FAD772123F5B18552A7DC23022FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797116   (18283) от 14.05.2025
-
-Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели связать носки крючком? Возможно, вы колебались, потому что не были уверены, что они будут удобными или будут хорошо сидеть. А может быть, вы просто не знаете, с чего начать. На этом занятии дизайнер по вязанию крючком Бренда К. Б. Андерсон расскажет вам о том, как связать базовый носок крючком, начиная с носка и выше. Это занятие подходит для (   Читать дальше...   )Жанр: РукоделиеЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316C5CDAC489D8B24A01C57A4F1E5ED71069B574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797250   (18262) от 15.05.2025
-
-George Vondriska | Создать невозможный стол (2024) WEBRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я давно хотел построить невозможный стол и наконец сделал это. Такие столы также называют тенсегрити-столами. Они отлично подходят для разговора, потому что кажется, что стол ничем не поддерживается.
-Мой стол использует слэбы с живым краем для верхней и нижней части, что добавляет еще одну визуально интересную деталь столу. В качестве альтернативы вы можете склеить (   Читать дальше...   )Жанр: ДеревообработкаЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334B2F1939CECC59D2A371859DD3A3E92E4DE10B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797446   (18095) от 16.05.2025
-
-Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изготовление кошельков, сумок и дамских сумочек - отличный способ попрактиковаться в шитье, использовать интересные ткани и создать что-то красивое и функциональное. На этом занятии вы узнаете советы и приемы, позволяющие придать вашим сумкам профессиональный вид. Кроме того, получите пошаговую инструкцию по изготовлению сумки с цветными вставками и разделительным (   Читать дальше...   )Жанр: РукоделиеЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DA4B0AF01AF665B6147055C7407AD32984A622
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1147034   (610894) от 01.07.2017
+
+Post Mortem (2003) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Париж двадцатых годов. В роскошном отеле происходит жуткое двойное убийство. Я пытался завязать с частным сыском и уйти на покой, но, видимо, от старых привычек трудно избавиться. Привет. Меня зовут Густав Макферсон, для друзей – просто Гас. Я сперва не хотел браться за это дело, но клиентка попалась больно хорошая. И я сейчас не о деньгах говорю. Женщины...Тип издания: LicenseРазработчик: MicroidsЖанр: Adventure, 3DЯзык озвучки: Английский, Немецкий, Французский, ИтальянскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E221A322A8CA2438A87F1F541737BB36C7E2B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147303   (609065) от 02.07.2017
+
+Unreal (2000) [En] (226/dlc) License GOG [Gold]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ваш тюремный корабль совершил вынужденную посадку на самой переменчивой, красивой и опасной планете во всей 3D-вселенной. Оглянитесь вокруг, и вы увидите кристально чистую воду, отражающую яркий свет, танцующие тени и древние инопланетные сооружения на горизонте. Раскройте тайны этого загадочного места и узнайте, как безжалостные захватчики поработили мирных местных (   Читать дальше...   )Тип издания: LicenseРазработчик: Epic MegaGames, Digital Extremes, Legend Entertainment CompanyЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4B20CCCFE53E0E9786EDCC7BC24AAEBA14ED7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525190   (608865) от 20.07.2012
 
 Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
@@ -6,7 +58,7 @@ Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Metal Fatigue (2000) [En] (1.04hf) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Command & Conquer 3: Tiberium Wars (2007) [Ru] (1.09) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Spider-Man: Friend or Foe [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Command & Conquer: Red Alert 3 (2008) [Ru/Multi] (1.12) License PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +505,7 @@ Disney Сollection: Aladdin, The Lion King, The Jungle Book (1993-1994) [En] (1.
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +531,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +557,7 @@ Command & Conquer: Red Alert 3 — Uprising (2009) [Ru] (1.12) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +583,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +609,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,60 +674,6 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9786C0B63BA1A5C4BA49C55A539AB01ABAC736A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840339   (576633) от 24.07.2015
-
-Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + Battle out of hell]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты - Painkiller. Твоя работа - зачищать местность от всякой нежити. Твоя цель - найти и уничтожить три демонических артефакта, питающих своей энергией сотни порождений тьмы... Бей всё это неупокоенное отродье, пока на твоём пути не останется ни одного, затем пройди по их дымящимся телам к артефактам и уничтожь их - раз и навсегда!
-
-Тебе придётся делать эту неблагодарную (   Читать дальше...   )Тип издания: RepackРазработчик: People Can FlyЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943D98E267E15A23CD52DEAB68A3E5B54D7920B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043254   (573983) от 15.08.2016
-
-Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нетривиальная и красочная игра, удачно сочетающая в себе стратегию в реальном времени и RPG с видом от третьего лица. Вашему персонажу, боевому магу-наемнику, предстоит принять участие в кровопролитной войне пяти богов. Выбрав одного из них, вы тут же попадете в немилось к остальным четырем.Тип издания: LicenseРазработчик: Shiny EntertainmentЖанр: Action, Strategy (Real-time), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EDE49559BCAC186F6D35072F3C518A20974326
 ```
 
 https://mybot314.ru/tekegram_catalog/

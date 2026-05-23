@@ -1,3 +1,81 @@
+###  Публикация: 1504966   (807815) от 25.10.2021
+
+Konohana Kitan | Загадочная история Коноханы [2017, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каких только удобств нет у людей! И рестораны, и клубы, и библиотеки, и гостиницы… А вы думали, что ёкаям этого не нужно? Они так же, как и мы, желают жить на полную катушку и с комфортом! Гостиница "Конохана” полностью соответствует притязательным желаниям ёкаев. Она оформлена в традиционном японском стиле, расположена на горячих источниках, а работают в ней (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: повседневность, фэнтези, романтикаРежиссер: Окамото ХидэкиЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EBFF3A4AFD808F1AF7E1EA0985AEE65B8F9F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504974   (807814) от 25.10.2021
+
+Boku no Hero Academia | Моя геройская академия OVA [2016-2017, OVA, 2 из 2] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Тренировка спасателей" - история о специальных тренировках, организованных для учеников класса A-1 академия Юэй. Смогут ли юные герои справиться с испытаниями, которые подготовили для них учителя? "Смертельная тренировка" происходит после арки стажировки в агентствах героев и рассказывает о совместном практическом занятии класса Идзуки и других (   Читать дальше...   )Производство: Япония, BONESЖанр: Приключения, комедия, сёнэнРежиссер: Кэндзи НагасакиЯзык озвучки: Японский и русскийПродолжительность: 2 эп. по 23 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B69FCCC4ECD90845470F108ABFF90821322A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497190   (807793) от 25.10.2021
+
+Boku no Hero Academia | My Hero Academia | Моя геройская академия [ТВ-2] [2017, TV, 26 из 26 + 1 SP] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В академии героев Юэй даже беспрецедентное жестокое нападение злодеев не может отменить главное событие года: школьный спортивный фестиваль. Известный во всей Японии и даже за её пределами, приковывающий взгляды тысяч зрителей, этот фестиваль — уникальная возможность для подрастающего поколения героев продемонстрировать свои способности как всем слоям общества, так (   Читать дальше...   )Производство: Япония, BONESЖанр: Приключения, комедия, сёнэн, мультсериалРежиссер: Кэндзи НагасакиЯзык озвучки: Русский, японскийПродолжительность: 26 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95953BD70E2C8628201C81EDD3BB79D6D3A5071A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379759   (807419) от 17.05.2020
 
 Toaru Majutsu no Index II | Некий Магический Индекс [TV-2] [2010, TV, 24 ep] BDRip 1080p raw+rus
@@ -6,7 +84,7 @@ Toaru Majutsu no Index II | Некий Магический Индекс [TV-2] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Angel Beats! | Ангельские Ритмы! [2010, TV, 13 ep + 3 sp] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +137,7 @@ BECK: Mongolian Chop Squad | БЕК: Восточная Ударная Груп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ Gokushufudou | Путь домохозяина [2021, Web, 10 из 10] WEB-DLRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ Mahoromatic: Motto Utsukushii Mono | Mahoromatic: Something More Beautiful | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Mahoromatic: Tadaima Okaeri | Mahoromatic: I'm Home | Махороматик: С
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ Mahoromatic Natsu no TV Special: Ecchi na no wa Ikenai to Omoimasu | Mahoromatic
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Mahoromatic: Automatic Maiden | Махороматик: Автоматическ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Kyou Kara Maou! R | Kyo Kara Maoh! R | God? Save Our King R | King From Now On! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | От
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ Human Lost: Ningen Shikkaku | No Longer Human | Human Lost: Исповедь н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ Goblin Slayer | Убийца Гоблинов [2018, TV, 12 ep] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ Sword Art Online II | Мастера Меча Онлайн II [ТВ-2] [2014, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note - Hakamori to Neko to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +532,7 @@ Kimi no Na wa | Твоё Имя [2016, Movie] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +559,7 @@ Jashin-chan Dropkick [TV-1] | Dropkick on My Devil! | Пинок с наскок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +586,7 @@ Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +612,7 @@ Fragtime | Осколки Времени [2019, Movie] BDRip 1080p 10-bit raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +638,7 @@ Tenki no Ko | Дитя Погоды [2019, Movie] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +664,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,86 +675,6 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04BB6CBD33E12EA5CFC06D98E03C3B951BEB51D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383056   (790570) от 03.06.2020
-
-Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Эта глупая свинья не понимает мечту девочки-зайки! [2018, TV, 13 ep + 5 SP] BDRip 1080p raw+rus
-
->>След.
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничем не примечательный школьник Сакута Адзусагава проводит всё своё свободное время в библиотеке. Однажды он встречает девушку в костюме кролика, которая старше его на год. Она представляется как Маи Сакурадзима — прославленная актриса и первая красавица школы. Девушка рассказывает, что все вокруг перестали «видеть» её, поэтому она оделась так вызывающе. По мнению (   Читать дальше...   )Производство: CloverWorks, ЯпонияЖанр: Комедия, РомантикаРежиссер: Масуй СойтиОзвучка: Двухголосая, Многоголосая закадровая; ДублированнаяСубтитры: Надписи, ПолныеЯзык: Продолжительность: 13 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D05C5FB5D46610A198726CA83C70E6431A3382A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388046   (789963) от 04.06.2020
-
-Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] BDRip 1036p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассники Таку и его друг Мацуо полны раздумий над своей будущей жизнью, когда красавица Рикако переводится в их провинциальную школу из Токио.
-Рикако - смышлёная, очаровательная и утончённая девушка, вынужденная поменять привычную ей столицу на тихий приморский городок. Возникает неизбежный любовный треугольник.Производство: студия Studio Ghibli / スタジオジブリЖанр: повседневность, романтикаРежиссер: Мотидзуки ТомомиПеревод: BurniN∙SnikerS & TFLOATER / Е. Шмагринская (Netflix) / Юлия Зыкова & Иван ЗыковСубтитры: •Продолжительность: 72 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6D9B3C8DEE2D224902CC8DE0C0527887121CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388074   (789960) от 04.06.2020
-
-Evangelion. 2.22 You Can [Not] Advance | Евангелион. 2.22 Ты (не) Пройдешь [2009, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ангелы продолжают свои непрерывные атаки, а в «Nerv» приходят два новых пилота: пилот павшего в первом же бою Евангелиона-05 Мари Илластриэс Макинами и пилот Евы-02, а позже Евы-03 Аска Лэнгли Сикинами.
-В то же время Гэндо Икари и «Seele» приступают к секретному проекту, в котором задействованы Рей с Синдзи.Производство: Khara, ЯпонияЖанр: Драма, Фантастика, МехаРежиссер: МасаюкиОзвучка: Одноголосая, Двухголосая закадровая; ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 01:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEE5AD0E21BA8E8DAF17338B615485DC547A22D
 ```
 
 https://mybot314.ru/tekegram_catalog/

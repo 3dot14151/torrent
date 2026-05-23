@@ -1,3 +1,55 @@
+###  Публикация: 1590699   (188364) от 15.11.2022
+
+BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265/2160p] [4K, HLG, 10-bit] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В этой эпической серии из шести частей исследуется обширное волшебное царство и застывшие миры удивительного разнообразия природы. От замёрзшего океана Арктики - до снежных лесов и великих равнин Крайнего Севера, от высокогорных вершин наших гор - до юга Антарктиды. Это последние места дикой природы на Земле, в которых могут обитать только животные с уникальными (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документальный, флора, фауна, исследованияРежиссер: Алекс Лэнчестер, Джейн Аткинс, Орла ДоэртиПеревод: одноголосый профессиональный (Jaskier)Субтитры: английские, английские (SDH)Продолжительность: 6x ~00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCE1D387D45BD49B6EB610D8DEC8EB2188CD641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661830   (188212) от 16.09.2023
+
+Акулий вулкан: Гавайи / Sharkcano: Hawaii (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Огонь... и вода. Благодаря им Гавайи стали раем для всех. В том числе и для 40 видов акул. Доктор Майкл Хайтхаус и аспирантка Френсис Фарабо изучают, почему эти огненные острова привлекают акул как магнитом.Производство: США, Pangolin Pictures, National GeographicЖанр: документальный, исследованияРежиссер: Кевин БачарУчастники: Фрэнсис Фарабо, Майк Хейтхаус, Джон СаланоаПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24F388A9494CE147C12FAD34BEECE17F6D9894E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663223   (187056) от 20.09.2023
 
 Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004) IPTVRip [H.264]
@@ -6,7 +58,7 @@ Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Тутанхамон: столетие тайн / King Tut: A Century
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery: Покушение на Гитлера / Virtual History: The Secret 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Discovery. Взрывая историю / Blowing up History (2022) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC: Приключeния Брайана Кокса в пространстве
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +396,7 @@ History Channel. Тайны древности. Варвары: Монголы /
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +423,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2023) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -397,7 +449,7 @@ Discovery: Современные Шерлок Холмсы / In the Mind of Cri
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -423,7 +475,7 @@ Discovery. Джереми Уэйд: Тайны океана / Mysteries of the D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +501,7 @@ Discovery. Московская осада / The Moscow Siege (2002) SatRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +527,7 @@ BBC: Мир природы. Лосось: Серебряный прилив / Th
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Discovery: Будущее с Джеймсом Вудсом / Futurescape with Ja
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +580,7 @@ NG: Момент смерти / Moment of Death (2008) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +606,7 @@ Discovery: Тайна убийства Наполеона / The Napoleon Murder 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +632,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B00B96167C08F6DC6928F3E8E4887FF9287768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595085   (176495) от 03.12.2022
-
-BBC. История Вселенной (Наша Вселенная) / Our Universe (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [EN, UKR / RU, UKR, EN Sub] (сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Насколько большая наша Вселенная? Есть ли жизнь на других планетах? Какие тайны хранят в себе космические просторы? Этими вопросами человечество задаётся уже много столетий, но найти точные ответы на них невозможно. Приоткрыть занавес над тайнами космоса помогут лучшие фильмы про вселенную, снятые в художественном и документальном жанре. Конечно, в художественном (   Читать дальше...   )Производство: США, BBC StudiosЖанр: документальный, природа, наука, исследованиеРежиссер: Наоми Остин, Стивен Кутер, Элис ДжонсПеревод: субтитрыЯзык озвучки: английский, украинский (дублированный)Субтитры: английские, русские, украинскиеПродолжительность: 6x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7ADC0322673E8EE3FF17BF0F4BC5234A0C8978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363420   (176454) от 06.12.2020
-
-Discovery: Техногенная катастрофа: Японская трагедия / Nuclear nightmare: Japan in crisis (2011) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176454.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 марта 2011 года в 14:46 по токийскому времени мир стал другим: мощное землетрясение вызвало к жизни чудовищное цунами, которое обрушилось на Японию. Силы природы вновь бросили вызов человеческой цивилизации, и люди сумели достойно его принять. Съемочная группа Discovery Channel отправилась к месту катастрофы, чтобы показать зрителям это противостояние в новых (   Читать дальше...   )Телекомпания: Discovery ChanelЖанр: ДокументальныйПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EBCC24C2E742163C0A43C31F1748092A76C5FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 241395   (441288) от 20.09.2018
+
+Ким Ки-Дук: фильмография / Kim Ki-Duk: filmography (1996-2008) DVDRip [H.264]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ким Ки-дук родился 20 декабря 1960 года. Он был трудным ребёнком, рос в селе, на севере провинции Кенсан. Переехавшие в город родители отдали подростка в сельскохозяйственную школу, откуда будущий художник и режиссёр пошёл работать на завод, а потом - на пять лет в морскую пехоту. В одном из интервью, Ким признаётся, что долгое время вообще не считал важными культурные (   Читать дальше...   )Жанр: ДрамаРежиссер: Ким Ки-ДукАктеры: Джо Одагири, На-йеон Ли, Mi-hie Jang, Тхэ-хён Ким, Пак Чи АПеревод: Многоголосый закадровыйПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86DDCF46B7E76FD940F360A7CE2ECF58AFB07EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164606   (438679) от 10.09.2017
+
+Superнянь 1-2 / Babysitting 1-2 (2014-2015) BDRip [H.264/1080p-LQ] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Влюбленная парочка Фрэнк и Соня приглашают своих друзей на отдых в Бразилию, в роскошный отель богатенького папы Сони. Планировалось, что это будет отдых мечты, а Фрэнк сделает Соне предложение посреди всей этой экзотики. Но его попытки получить одобрение отца оборачиваются полным провалом. Ведь с такими друзьями, как у него, и враги не нужны!
+Но настоящая катастрофа (   Читать дальше...   )Производство: Франция / Universal Pictures International (UPI)Жанр: комедияРежиссер: Николя Бенаму, Филипп ЛашоАктеры: Филипп Лашо, Алис Давид, Венсан Дезанья, Тарек Будали, Кристиан Клавье, Жюльен Аррути, Грегуар Людиг, Давид Марсе, Шарлотта Габрис, Бето БенитесПеревод: Дублированный (iTunes)Субтитры: Русские (полные), украинские (полные)Продолжительность: 01:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CCAB5644841441CF2B91119AD56C1034176DFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 655444   (437554) от 20.09.2020
 
 Горячие головы / Hot Shots! (1991, 1993) BDRemux [H.264/1080p] [Дилогия]
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_415822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_415447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AA7EB3443D71BB0B6276F0DBB3C98A78D3CD92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325192   (411783) от 15.09.2019
-
-Годзилла & Годзилла 2: Король монстров / Godzilla  & Godzilla: King of the Monsters (2014, 2019) BDRip [H.265/1080p] [10-bit] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411783.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает о героических усилиях криптозоологического агентства «Монарх» по сдерживанию гигантских монстров. Когда эти древние суперхищники, со временем превратившиеся в полузабытые мифы, восстают снова, чтобы сойтись в схватке, человечеству остаётся отойти в сторонку и постараться не погибнуть.Производство: США, Япония / Warner Bros., Legendary Entertainment, Disruption Entertainment, Toho CompanyЖанр: фантастика, боевик, триллер, приключенияРежиссер: Гарет Эдвардс, Майкл ДогертиАктеры: Аарон Тейлор-Джонсон, Элизабет Олсен, Кэн Ватанабэ, Салли Хокинс, Дэвид Стрэтэйрн, Брайан Крэнстон, Карсон Болд, Ричард Т. Джонс, Жюльет Бинош, Виктор Расук, Кайл Чандлер, Вера Фармига, Милли Бобби Браун, Кэн Ватанабэ, Чжан Цзыи, Брэдли Уитфорд, Чарльз Дэнс, Томас Миддлдитч, Аиша ХайндсПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 02:03:07 / 02:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FF759959D30FF123EFB104049FE02289D39B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325535   (411776) от 15.09.2019
-
-Назад в Будущее / Back to the Future (1985, 1989, 1990) BDRip [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411776.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Назад в будущее» (англ. Back to the Future) — научно-фантастический фильм в трёх частях о путешествиях во времени, описывающий альтернативные реальности маленького американского городка Хилл-Вэлли и нескольких проживающих там семей, поставленный режиссёром Робертом Земекисом и спродюсированный Стивеном Спилбергом, Фрэнком Маршаллом и Кэтлин Кеннеди. Первый фильм (   Читать дальше...   )Производство: США / Universal Pictures, Amblin EntertainmentЖанр: фантастика, комедия, приключенияРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Лиа Томпсон, Криспин Гловер, Томас Ф. Уилсон, Клодия Уэллс, Марк МакКлюр, Уэнди Джо Спербер, Джордж ДиЧенцо, Фрэнсис Ли МакКейн, Джеймс Толкан, Дж.Дж. КоэнПеревод: Дублированный, профессиональный двухголосыйСубтитры: отсутствуютПродолжительность: 01:56:01 / 01:47:59 / 01:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13CB545265B9EE533E3ADDC2E6D774A1CCC99461
 ```
 
 https://mybot314.ru/tekegram_catalog/

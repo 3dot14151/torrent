@@ -1,4 +1,112 @@
 https://t.me/izofen
+###  Публикация: 1872064   (1070235) от 
+
+TagScanner 6.1.21 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+TagScanner — это инструмент для организации и управления музыкальными архивами. Он умеет редактировать в пакетном режиме теги большинства современных аудио форматов, поддерживаются теги ID3v1 и ID3v2, Vorbis Comments, APEv2, WMA и MP4 (iTunes). Вы можете переименовывать файлы по информации из тэгов. Также программа позволяет сгенерировать тэг по имени файла/директории (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AB2B7FEE76981D51F18A688FE2B5FDEF11A5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872116   (1070188) от 
+
+MuseScore 4.7.1 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+MuseScore — это бесплатный нотный редактор с открытым исходным кодом для создания, редактирования и воспроизведения музыкальных партитур. Программа позволяет набирать ноты любой сложности, автоматически создавать партитуры, а также выводить их в формате PDF для печати или публикации.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE732D61F20A3963B76E97B6369EE5CD03C0475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871756   (1069952) от 
+
+Abelssoft Tagman 2025.11.02 [Multi]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Abelssoft Tagman — это удобная программа для автоматической организации музыкальной коллекции и редактирования ID3-тегов аудиофайлов. Она анализирует музыку с помощью технологии аудио-отпечатков (fingerprint), распознаёт композиции даже при отсутствии названий и автоматически добавляет информацию об исполнителе, альбоме, жанре, годе выпуска и обложках альбомов.
+ (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2ED84A5669E51092AF2EA025E48CF5BED755ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870269   (1069249) от 
+
+Simple Audio Sweeper 2.0078.341 [En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для самодельных аудиопроектов и всевозможных звуковых экспериментов.
+
+Автоматическое и ручное сканирование спектра звуковых частот для определения частотной характеристики системы.
+Простая генерация любой заданной звуковой частоты для тестирования аудиооборудования или выявления нежелательных резонансов.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF2F21A02070C796D5E9D528C8A3619BAAB109E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 20068   (1068501) от 
 
 Guitar Pro 5.2 + RSE
@@ -7,7 +115,7 @@ Guitar Pro 5.2 + RSE
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +141,7 @@ X Radio Stream Finder 2.1 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +167,7 @@ RarmaRadio Pro 2.77.9 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +193,7 @@ MuseScore 4.6.5 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -103,6 +211,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867836   (1067064) от 27.04.2026
+
+Nucleer Coffee - My Music Collection 3.4.16.175 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+My Music Collection - это самый полный музыкальный каталог, предназначенный для организации и управления музыкальными коллекциями любого типа, включая CD-диски, MP3-файлы или виниловые пластинки. Этот музыкальный органайзер позволяет создать упорядоченную базу данных компакт-дисков и просматривать ее содержимое, даже если диск лежит на полке или одолжен у вашего (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B8E5869F9A2C90FD1C492B1966976B9BA00FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867843   (1067063) от 27.04.2026
 
 X Radio Stream Finder 1.9 Portable [En]
@@ -111,7 +245,7 @@ X Radio Stream Finder 1.9 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +271,7 @@ X Radio Stream Finder 1.8 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +297,7 @@ X Radio Stream Finder 1.7 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +323,7 @@ X Radio Stream Finder 1.5 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +349,7 @@ SpotiFLAC 7.1.5 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +377,7 @@ X Radio Stream Finder 1.3 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +403,7 @@ X Radio Stream Finder 1.1 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +429,7 @@ SpotiFLAC 7.1.4 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +457,7 @@ SpotiFLAC 7.1.3 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +485,7 @@ ZP UI 2.0.0 [Ru] (авторский релиз)
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +512,7 @@ ZP UI 1.0.7 [Ru] (авторский релиз)
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +539,7 @@ RHVoice - синтезаторы речи SAPI 5  v4.0 - 4.8 для Balabolka [M
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +566,7 @@ Music Collector 21.01 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +592,7 @@ Denemo 2.6 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +618,7 @@ IK Multimedia Miroslav Philharmonik Orchestra & Choir Workstation 1.1 [Eng][VST,
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +645,7 @@ Similarity 1.8.1 build 1624 [Мульти/Русский]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +671,7 @@ Adobe Audition FLT Filters 2012 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,136 +691,6 @@ Lame(   Читать дальше...   )Название программы: Ado
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292166   (906130) от 07.02.2011
-
-AP Guitar Tuner 3.08 [Английский]
-
->>След.
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Phonics Guitar Tuner это быстрый и точный гитарный тюнер. Используя оригинальную технологию определения высоты тона, программа точно определяет ноты с задержкой, не превышающей 50 миллисекунд. К тому же алгоритм определения тона автоматически адаптируется к быстродействию процессора для более устойчивой работы. Программа проста в использовании, имеет красивый интерфейс и главное совершенно бесплатна. Мне кажется, это лучшая программа для настройки гитары с помощью компьютера!Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490530   (903599) от 29.02.2016
-
-Plug&Mix - V.I.P. Bundle v.2.0.0 x86.x64[VST][En]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903599.jpg" />
-</div>
-
-
-###  Подробнее
-
-В условиях современного рынка, музыкальная продукция постоянно развивается. Продюсерам и артистам необходимы профессионально звучащие плагины, которые еще и просты в использовании. Очень часто, драгоценное студийное время тратится впустую из-за слишком сложных аудио плагинов. Плагины необходимы чтобы раскрыть ваш потенциал, а не сдерживать его. В ответ на ваши запросы (   Читать дальше...   )Язык интерфейса: английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88F214997CF734FEE3F6A3979FFB710E5FF8AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997218   (870985) от 18.03.2016
-
-Nuance Vocalizer Expressive: Katya, Milena, Yuri, Allison, Susan 5.2.3 RePack by Zongot [Ru/En]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vocalizer Expressive представляет из себя движок для преобразования текста в речь, который оптимизирован для чтения длинного текста. Продвинутые алгоритмы цифровой обработки сигналов улучшают общую плавность голоса, а расширенный синтаксический анализ обеспечивает естественное звучание.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A75624322390D541B161B2856D4B8B33FF4EE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310196   (838833) от 17.03.2011
-
-Pinnacle Steinberg MyMp3PRO 5.1.0.21 Portable [ENG]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pinnacle myMP3PRO является совершенным инструментом для каталогизации и управления музыкой. myMP3PRO сочетает в себе высокое качество MP3 и MP3 Pro кодирования с профессиональным уровнем аудио редактирования, микширования, специальных эффектов и записи компакт-дисков возможности доставить невероятный контроль над вашей музыкальной библиотеки. Захват и хранение всей любимой музыку в пользовательские списки воспроизведения, добавлять пользовательские обработки эквалайзером и другие интересные эффекты, а затем сохранить ваши миксы на компакт-диск или в ваш портативный MP3-плеер.Язык интерфейса: ENG
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120149   (802844) от 30.03.2017
-
-Voxal Voice Changer Plus 2.0 [En]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Voxal Voice Changer - программа с помощью которой можно изменять голос, что достигается благодаря применению различных эффектов ( изменение высоты тона, добавление эха и др.) в режиме реального времени. Эффекты могут добавляться в любой последовательности, что позволяет до неузнаваемости изменить Ваш голос. Захват звука может осуществляться из разных источников, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FE868ED0A993747B429BF5780E651235F269C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

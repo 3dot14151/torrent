@@ -1,3 +1,55 @@
+###  Публикация: 545880   (805968) от 18.04.2014
+
+BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDRip [H.264/1080p] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Человеческий глаз - один из самых могущественных инструментов на свете. Но то, что он видит - неполная картина. Бок о бок со знакомым нам миром есть совсем другой мир. Невидимый мир. Он влияет на все аспекты жизни на земле. C помощью современной техники создатели этого научно-популярного фильма смогли проникнуть в этот тайный мир, раскрыть его секреты и показать (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC), Discovery ChannelЖанр: Документальный, научно-познавательныйРежиссер: Дэн Клифтон, Гэвин Максвелл, Мэтью ВортманПеревод: Двуголосый закадровый, профессиональный (студия "Кипарис")Субтитры: РусскиеПродолжительность: 3 x ~ 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2A1B5913403C53516FCBA88AC86F0D6A29A549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731450   (805843) от 23.04.2016
+
+NG. Файлы секретных служб: Охрана президента / Secret Service Files: Protecting the President (2012) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассказ об элитарной группе мужчин и женщин, чья работа - охранять президента США, даже если при этом их собственная жизнь подвергается риску.Жанр: Документальный, спецслужбы, историяПеревод: Одноголосый закадровый (профессиональный, студия АРК-ТВ)Продолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9877764E85223FDA2F239E2CF122D9385FEF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009229   (805840) от 23.04.2016
 
 BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 из 3)
@@ -6,7 +58,7 @@ BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC. Нетронутые уголки дикой природы / Nature's Micr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hu
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Discovery. Величайшая загадка Эвереста / Everest's Grea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ BBC: Шок и Трепет. История электричества. Искр
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Discovery. Чудаки и акулы / Jackass Shark Week (2021) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ BBC. Панорама. Нелегальная торговля органами 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +656,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,59 +667,6 @@ Porsche 991 — внутреннее обозначение для седьмо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D74411F43B18B58118DDFD7A612235C7AF3B4CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384541   (801474) от 21.05.2020
-
-NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801474.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Земле 38 видов диких кошек, и они живут и охотятся практически повсеместно. На протяжении миллионов лет они оттачивали свою стратегию нападения на жертву определенного размера. Посмотрите на стратегии охоты диких кошек, которые делают их, возможно, самым смертоносным существом на земле - от леопардов, лазающих по деревьям, ягуаров, способных разгрызть череп своей (   Читать дальше...   )Производство: США, Natural History New Zealand Ltd, Plimsoll ProductionsЖанр: Документальный, Природа, Фауна, ФлораПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A7D7849CFF2E61A59146323683F3CD1CB887A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384762   (801437) от 21.05.2020
-
-Discovery. COVID-19: Китай против вируса / COVID-19: Battling the Pandemic (2020) WEBRip [H.264/1080p-LQ] [PR]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня мы соблюдаем самый массовый карантин в истории человечества! Но с чего все началось в Китае, и как медики поняли, что что-то идет не так? На каких ошибках нам следует поучиться у китайцев и какие меры предпринять? И главное, как сегодня врачи и медики сражаются на передовой и смогут ли они победить вирус?
-Коронавирусная инфекция COVID-19 была впервые зафиксирована (   Читать дальше...   )Телекомпания: Китай, China International Capital Corporation, Discovery Networks Asia-Pacific, BilibiliЖанр: ДокументальныйРежиссер: Эрик ТомпсонПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10AD154C1C22EE82678A811B113B1FFD6F7AFBE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

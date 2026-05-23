@@ -1,3 +1,82 @@
+###  Публикация: 1214323   (764870) от 21.03.2018
+
+Портреты, гербы и печати Большой Государственной книги 1672 г (1903) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Расширение дипломатических отношений России с соседними странами в XVII веке послужило стимулом для изучения титулов и гербов иностранных государей. В 1672 г. по приказу царя Алексея Михайловича была составлена «Большая государственная книга, или Корень российских государей», получившая также второе название «Царский титулярник». Работа по составлению рукописи была (   Читать дальше...   )Жанр: История Отечества, альбом портретов, геральдикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC9C493B22C85C422B210D81540C10C2CFA0FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214157   (764868) от 21.03.2018
+
+Карманный почтовый атлас всей Российской империи, разделенной на губернии, с показанием главных почтовых дорог (1808) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В конце XVIII столетия кардинальным образом было реорганизовано картографическое дело в Российской империи, положившее начало независимой военно-топографической службе.
+Через малое время после вступления на престол Император Павел I обратил особое внимание на малое количество в России хороших карт. По его указу от 13 ноября 1796 года все карты Генерального штаба (   Читать дальше...   )Жанр: История ОтечестваФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722DF3053673A08AEB48694E7CC19EF82D6D77EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214270   (764864) от 21.03.2018
+
+Г. Майерс | История американских миллиардеров [Том 1] (1924) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Для удобства ориентировки в книге Майерса необходимо сказать несколько слов о процессе заселения и колонизации Северной Америки. В этом заселении принимали участие англичане, голландцы, шведы, французы и испанцы. Поселения голландцев и шведов (Новые Нидерланды и Новая Швеция) вскоре стали английскими владениями. Английская колонизация была всецело делом частной инициативы. (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DC224DD05B8D8D1E257B0A792EEA42B04E2174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126744   (764566) от 19.04.2017
 
 Л. де Ионг | Немецкая пятая колонна во второй мировой войне (1958) [DJVU]
@@ -6,7 +85,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -278,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -304,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -332,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -358,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -521,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -600,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,88 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6622F94C5FB8F645CB88DA350B1077A496C0785B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280568   (760525) от 03.02.2019
-
-Даниэль Шенпфлуг | Время кометы. 1918. Мир совершает прорыв (2019) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркой вспышкой кометы оказывается 1918 год для дальнейшей истории человечества. Одиннадцатое ноября 1918 года - не только последний день мировой войны, швырнувшей в пропасть весь старый порядок. Этот день - воплощение зародившихся надежд на лучшую жизнь. Вспыхнули новые возможности и новые мечты, и, подобно хвосту кометы, тянется за ними вереница картин и лиц.
-
-В (   Читать дальше...   )Жанр: Исторические науки, Всемирная историяПеревод: Ирина АлексееваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD08949A30C813482564169A0354C9DB29AC6450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280545   (760436) от 03.02.2019
-
-М. Н. Тихомиров | Псковское восстание 1650 года (1935) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760436.jpg" />
-</div>
-
-
-###  Подробнее
-
-В половине XVII века Московское государство, несомненно, переживало тяжелый кризис. Глубокое недовольство московскими порядками и новой династией охватывало широкие массы населения.
-
-Московские события 1648 г. не были изолированными. В 1648—1650 гг. восстания и волнения охватывают ряд городов Московского государства (Курск, Козлов, Устюг, Сольвычегодск и др.). Наибольшей (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3989E5CCFA434A3F31B392757764961E31BE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395077   (758507) от 08.07.2020
-
-Ричард Г. П. Мейсон, Джон Г. Кайгер | Краткая история Японии (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновленное и дополненное издание книги, ставшей с момента своего первого издания на английском языке одной из основополагающих книг в мировой японистике. В ней охвачены все важнейшие аспекты истории Японии – от первобытного и архаического периодов (ранние поселения, начало государственного объединения, создание единого государства, внешняя, внутренняя политика и (   Читать дальше...   )Жанр: Популярно об историиПеревод: Виктория СтепановаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19ED244A3D3A1047CCD34C1FEDCC68E21B36ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

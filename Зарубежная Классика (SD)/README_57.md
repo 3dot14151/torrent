@@ -1,3 +1,107 @@
+###  Публикация: 1035826   (611885) от 25.07.2016
+
+Три орлёнка / I 3 aquilotti (1942) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящается кадетам академии Военно-воздушных Сил, причем акцент на фашизме практически не делается. В массовке данного фильма снялось много настоящих кадетов, которые на момент выхода фильма - были либо мертвы, либо стали инвалидами. Когда кинолента была готова к показу, удача отвернулась от Италии, о чем данный фильм был лишним напоминанием. Сам фильм можно (   Читать дальше...   )Производство: ИталияЖанр: Военный, драмаРежиссер: Марио Маттоли / Mario MattoliАктеры: Микела Бельмонте, Леонардо Кортезе, Карло Минелло, Альберто Сорди, Галеаццо Бенти, Энрико Эффернелли, Паоло Карлини, Пьеро Карнабучи, Лео Каттоццо.Перевод: Одноголосый любительский закадровый den904Продолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D966A85EE1C8562362DD50B54F40CF59E5650B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294337   (611643) от 17.04.2019
+
+Бутон розы / Rosebud (1975) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа палестинских террористов захватывает яхту «Розовый бутон» и находившихся на ней пятерых дочерей миллионеров и требуют показать по телевидению пленку со своими требованиями. Секретный агент Мартин берётся выследить террористов…Производство: США / Oting SAЖанр: Боевик, Триллер, Драма, ПриключенияРежиссер: Отто ПреминджерАктеры: Питер О’Тул, Ричард Аттенборо, Клифф Гормен, Клод Дофен, Джон В. Линдсэй, Питер Лоуфорд, Раф Валлоне, Эдриенн Корри, Амиду, Йосси Шиллоах, Бриджитт Эриель, Изабель Юппер, Лалла Уорд, Ким КэтроллПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 02:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA3AF16CF58CB9E3A153394677887B755297C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341506   (611512) от 17.04.2019
+
+Великое безмолвие / Il grande silenzio (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главные герои фильма, основанного на реальных событиях 1898 года, — два охотника за головами. Первый из них немой и ему дали прозвище Молчун, а второй, Локо, наоборот очень разговорчив и необычайно жесток. Ему ничего не стоит убить женщину или ребенка, не говоря уже о мужчинах. Оба они оказываются в городке Сноу Хилл, который окружают горы и снега. Локо охотится (   Читать дальше...   )Производство: Италия, Франция. Adelphia Compagnia Cinematografica, Les Films CoronaЖанр: Драма, ВестернРежиссер: Серджио КорбуччиАктеры: Жан-Луи Трентиньян, Клаус Кински, Фрэнк Вулф, Луиджи Пистилли, Марио Брега, Карло Д’Анджело, Мариза Мерлини, Анна Мария Феррара, Мариса Сэлли, Раф БальдассарреПеревод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25901DACFE9D602F530BA6899F8574BA94DEA4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294088   (611507) от 17.04.2019
+
+Что нового, кошечка? / What's New Pussycat (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Патологический бабник Майкл всеми силами пытается сохранить верность своей девушке, но у него ничего не получается. От отчаяния он начинает ходить к психоаналитику. Но доктору самому нужна срочная психиатрическая помощь, как, впрочем, всем героям этой безумной комедии, снятой по первой пьесе Вуди Аллена.Производство: Франция, США / Famartists Productions S.A., Famous Artists ProductionsЖанр: КомедияРежиссер: Клайв ДоннерАктеры: Питер Селлерс, Питер О’Тул, Роми Шнайдер, Капюсин, Пола Прентисс, Вуди Аллен, Урсула Андресс, Эддра Гэйл, Катрин Шааке, Элеонор ИрПеревод: Профессиональный (двухголосый закадровый), авторскийСубтитры: АнглийскиеПродолжительность: 01:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3D42D5A46F22535AB9D654C0A8DFE6102752B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502445   (611500) от 17.04.2019
 
 Ограбление (Взломщики) / Le Casse (The burglar) (1971) DVDRip
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,111 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46475AFBAB213A31C4FBF6140EA638F557EE9E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525609   (605043) от 22.07.2012
-
-Мастер и Маргарита / Il Maestro e Margherita (1972) DVDRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая экранизация гениального романа Михаила Булгакова «Мастер и Маргарита», снятая Александром Петровичем. Работа Петровича в корне отличается от остальных экранизаций . Во-первых, она снята по сокращенной версии романа, напечатанной в 66-том году в журнале «Москва». Во-вторых, режиссер не просто ставил целью перенести роман на киноязык, а пытался переосмыслить (   Читать дальше...   )Жанр: Фэнтези, ДрамаРежиссер: Александр ПетровичАктеры: Уго Тоньяцци, Мимзи Фармер, Ален Кюни, Велимир «Бата» Живоинович, Павле Вуисич, Фабиян Совагович, Люба Тадич, Tasko Nacic, Данило Бата Стойкович, Fahro KonjhodzicПеревод: Одноголосый закадровый (любительский)Язык субтитров: АнглийскийПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E650DA90D5A74DD27B187619AB6D6BAA3D9B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037387   (604855) от 29.07.2016
-
-Дыра в голове / A Hole in the Head (1959) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тони Манетта управляет отелем в Майами, который не приносит прибыли. Но главная проблема его жизни даже не бесконечные долги, а излишний интерес к противоположному полу.
-Когда Тони обращается к своему флегматичному брату Марио с просьбой о деньгах, Марио ставит условие: беспутный брат должен жениться на «милой, тихой женщине», которую он сам, Марио, выберет для него. (   Читать дальше...   )Производство: США / Sincap ProductionsЖанр: КомедияРежиссер: Фрэнк КапраАктеры: Фрэнк Синатра, Эдвард Дж. Робинсон, Элинор Паркер, Кэролин Джонс, Тельма Риттер, Кинен Уинн, Джои Лэнсинг, Конни Сойер, Джеймс Комак, Даб ТейлорПеревод: Многоголосый закадровый (Петербург 5-й канал)Продолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E30E5B91C94BDCFF182E5E9D2A332E68B8C8BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038812   (604775) от 29.07.2016
-
-Тысячи приветствий / Thousands Cheer (1943) DVDRip [H.264] [АVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперная певица Кэтрин Джонс, оставив сцену, отправляется в часть к своему отцу полковнику, чтобы поднять боевой дух солдат перед отправкой на фронт и с тайной надеждой помирить своих родителей, которые уже много лет в разводе. Там она встречает бывшего знаменитого «летающего гимнаста», а ныне рядового Эдди Марша. Молодые люди влюбляются друг в друга…Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мьюзикл, Драма, Мелодрама, КомедияРежиссер: Джордж СидниАктеры: Кэтрин Грэйсон, Джин Келли, Мэри Астор, Джон Боулс, Бен Блу, Фрэнсис Рафферти, Мэри Эллиотт, Фрэнк Дженкс, Фрэнк Салли, Дик Симмонс, Джуди Гарлэнд, Ред Скелтон, Элианор Пауэлл, Люсиль Болл, Фрэнк Морган, Донна РидПеревод: Авторский (А.Яковлев)Продолжительность: 02:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708738B82DC5638872AD2AA929B27E44A605204F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037957   (604684) от 29.07.2016
-
-Диллинджер / Dillinger (1973) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма охватывает период с июня 1933 по июль 1934 гг. и рассказывает о судьбе знаменитого гангстера Джона Герберта Диллинджера, грабившего банки на Среднем Западе США. В центре сюжета - противостояние Диллинджера и специального агента ФБР Мэлвина Пёрвиса.Производство: США / American International Pictures (AIP)Жанр: Боевик, Драма, Криминал, БиографияРежиссер: Джон МилиусАктеры: Уоррен Оутс, Бен Джонсон, Мишель Филлипс, Клорис Личмен, Гарри Дин Стэнтон, Джеффри Льюис, Джон П. Райан, Ричард Дрейфусс, Стив Кэнэли, Джон Мартино, Рой Дженсон, Рид Морган, Фрэнк МакРей, Дэвид Дорр, Роланд Боб ХаррисПеревод: Профессиональный (многоголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2AD96CF350E6B2A4EF3AF04407F8093F39047A
 ```
 
 https://mybot314.ru/tekegram_catalog/

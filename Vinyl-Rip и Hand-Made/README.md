@@ -1,4 +1,353 @@
 https://t.me/izofen
+###  Публикация: 1872073   (1070225) от 
+
+After The Burial - Studio Albums (6 releases) (2006-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metalcore/Deathcore/Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+After the Burial — американская метал-группа из города Миннеаполис, штат Миннесота, сформированная в 2004 году.2006 - Forging A Future Self
+2008 - Rareform
+2010 - In Dreams
+2013 - Wolves Within(   Читать дальше...   )Жанр: Progressive Metalcore/Deathcore/DjentПродолжительность: 04:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF2DED4DCDA1AE27362F0F0F8D2AAC5DEC91D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872230   (1070117) от 
+
+James Last - East Meets West (1977) UK Tour '78, Limited Edition 2LP Set [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Folk, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Country And Western Dance Party
+A1 Orange Blossom Special
+A2a Irish Washerwoman
+A2b Gary Owen(   Читать дальше...   )Жанр: Jazz, Folk, Easy ListeningПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E52DC8F6CE99C7545BED80E4A2A0B51D6572013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871695   (1070000) от 
+
+Thyrfing - Studio Albums (8 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Viking/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Thyrfing - шведская блэк/фолк/викинг-метал группа, образованная в 1995 году в Стокгольме.
+Название группы происходит от королевского меча Тирфинг из скандинавской мифологии.1998 - Thyrfing
+1999 - Valdr Galga
+2000 - Urkraft
+2002 - VansinnesvisorЖанр: Viking/Black MetalПродолжительность: 06:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69293696A0B29D0C5F5AEC4D525D16DDD2CDD2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871922   (1069825) от 
+
+Vera Lynn - Spotlight On Vera Lynn (1979, 198) 24 Track Double Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+A1 Thank You For The Music
+A2 What I Did For Love
+A3 Are You Lonesome Tonight
+A4 I Wonder(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDEA9689B180D5720506128F657577942AC03E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871269   (1069768) от 
+
+Karl Richter - Bach, Organ Recital (1955) Organ of the Victoria Hall, Geneva [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Baroque, Organ>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+A1 Fantasia And Fugue In G Minor - "The Great" (BWV 542)
+A2 Choral Prelude "Wachet Auf" (BWV 645)
+B1 Choral Prelude "Kommst Du Nun, Jesu, Von Himmel Verunter" (BWV 650)
+B2 Choral Prelude "Von Himmel Hoch, Da Komm Ich Her" (BWV 606)(   Читать дальше...   )Жанр: Classical, Baroque, OrganПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D4952CF4D87E618BF69F1B5C2DE58345985814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871078   (1069334) от 
+
+Vera Lynn - Remembers (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+A1 White Cliffs Of Dover
+A2 Red Sails In The Sunset
+A3 It's A Sin To Tell A Lie
+Medley(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8996DA4B48CAAD502164BDA7B940F9E888F643C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871135   (1069289) от 
+
+Vera Lynn - Unforgettable Songs By Vera Lynn (1972) With Alyn Ainsworth & His Orchestra [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+A1 Put Your Hand In The Hand
+A2 Unforgettable
+A3 Morning Of My Life
+Medley(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD97BE2684764506F63A972253A481A53188E62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870539   (1069055) от 
+
+Disbelief - Studio Albums (12 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash/Sludge Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Disbelief — немецкая метал-группа, сформированная в городе Дармштадт земли Гессен, в 1990 году.1997 - Disbelief
+1998 - Infected
+2001 - Worst Enemy
+2002 - ShineЖанр: Death/Thrash/Sludge MetalПродолжительность: 10:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F88913C67429689AEBEDAB936DFA841B94C7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870534   (1069054) от 
+
+VA - The Vintage Years Of Musical Comedy (year unknown) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Musical, Comedy>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+A1 Just A Little Ring
+A2 Final Act II
+A3 Waltz
+A4 My Hero(   Читать дальше...   )Жанр: Musical, ComedyПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D09701D458CA3032E1D85D6D14DAA02FCCE713C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870662   (1068955) от 
+
+Guy Mitchell - 20 Golden Greats (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+A1 Singing The Blues
+A2 Chicka Boom
+A3 Heartaches By The Number
+A4 She Wears Red Feathers(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8A514231E2261B29223ECF9DD587A09A599159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870870   (1068824) от 
+
+Extol - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Extol — метал-группа из Норвегии, образованная в 1993 году.1998 - Burial
+1999 - Mesmerized (EP)
+2000 - Undeceived
+2001 - Paralysis (EP)Жанр: Progressive Death/Thrash MetalПродолжительность: 05:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B19656FC166D29B91245994100801481B47AC76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870916   (1068809) от 
+
+Cruel Force - Studio Albums (4 releases) (2010-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Speed/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Cruel Force - метал-группа из Рейнланд-Пфальца, Германия, существовала с 2008 по 2012 год. Воссоединилась в 2022 году2010 - The Rise Of Satanic Might
+2011 - Under The Sign Of The Moon
+2023 - Dawn of the Axe
+2026 - HanedaЖанр: Black/Speed/Thrash MetalПродолжительность: 02:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACAD3CD664028CA79D0768868EDAA353800DF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869453   (1068238) от 06.05.2026
 
 Vera Lynn - The World Of Vera Lynn Vol. 2 (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
@@ -7,7 +356,7 @@ Vera Lynn - The World Of Vera Lynn Vol. 2 (1970) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +385,7 @@ Vera Lynn - The Vera Lynn Collection (1961) 2 Records Set [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -65,7 +414,7 @@ Vera Lynn - Haar 26 mooiste songs / Wereldsuccessen (1975) [FLAC 2.0|192/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -94,7 +443,7 @@ Gordon And Sheila Macrae - Our Love Story (1960) [FLAC|Lossless|image + .cue] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -123,7 +472,7 @@ All That Remains - Studio Albums (10 releases) (2002-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -152,7 +501,7 @@ Udo Dirkschneider (U.D.O.; Dirkschneider & The Old Gang) - Studio Albums (23 rel
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -181,7 +530,7 @@ Parkway Drive - Studio Albums (8 releases) (2004-2022) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -210,7 +559,7 @@ MyGrain - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -239,7 +588,7 @@ Kalisia - Cybion (2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +615,7 @@ Monuments - Studio Albums (4 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +644,7 @@ Nat King Cole - Sings The Blues (1963) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +673,7 @@ Autumn Leaves - Studio Albums (2 releases) (1997-1999) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +700,7 @@ Decadence (a.k.a. Decadence Sweden) - Studio Albums (6 releases) (2005-2019) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +729,7 @@ Nat 'King' Cole - Unforgettable (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -394,351 +743,6 @@ A4 Lost April(   Читать дальше...   )Жанр: Jazz, Pop, SwingПр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:528696673B5CF98837E429AA4BD6FA4D1022C147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865058   (1065422) от 13.04.2026
-
-Orden Ogan - Studio Albums (9 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orden Ogan - рок-группа из Арнсберга, Северный Рейн-Вестфалия (Германия), основана в 1996 году.2004 - Testimonium A.D
-2008 - Vale
-2010 - Easton Hope
-2012 - To The EndЖанр: Power MetalПродолжительность: 08:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A82F311334FC9F43921B50C061CA010EE5B7612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865206   (1065369) от 14.04.2026
-
-Sacrilege (Sweden) - Studio Albums (2 releases) (1996-1997) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sacrilege - дэт-метал группа из Гётеборга, Швеция, существовавшая с 1993 по 1998 год.
-Группа распалась, когда Даниэль Свенссон присоединился к In Flames.1996 - Lost In The Beauty You Slay
-1997 - The Filth SeasonЖанр: Melodic Death MetalПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9688AB147D26CCBCAC693F79EF0F626AA6BBF068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865201   (1065368) от 14.04.2026
-
-Merle Haggard And George Jones - A Taste Of Yesterdays Wine (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065368.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Yesterday's Wine
-A2 I Haven't Found Her Yet
-A3 I Think I've Found A Way (To Live Without You)
-A4 Silver Eagle(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3B79AED564766A788A176A0B6A241594E656D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865193   (1065367) от 14.04.2026
-
-Merle Haggard And The Strangers - A Working Man Can't Get Nowhere Today (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065367.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Working Man Can't Get Nowhere Today
-A2 Making Believe
-A3 Blues Stay Away From Me
-A4 Got A Letter From My Kid Today(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E1377EB2F8EA098AFA95678670F6DBA684C5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864556   (1064814) от 
-
-Enforcer - Studio Albums (6 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enforcer - метал-группа из Стокгольма, Швеция, основана в 2004 году2008 - Into The Night
-2010 - Diamonds
-2013 - Death By Fire
-2015 - From BeyondЖанр: Heavy/Speed MetalПродолжительность: 04:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370CDFA5432186F5E0B675F21439B489BBB13CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864270   (1064615) от 
-
-Gorguts - Studio Albums (6 releases) (1991-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Avant-garde Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gorguts - канадская метал-группа, основана в 1989 году в Ричмонде, Квебек.1991 - Considered Dead
-1993 - The Erosion Of Sanity
-1998 - Obscura
-2001 - From Wisdom To HateЖанр: Technical/Avant-garde Death MetalПродолжительность: 03:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDB279E60BDAEFA5B6C8E4CEDE2986592D304B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864287   (1064613) от 
-
-Larry Gatlin - Rain Rainbow (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Rain
-A2 Found And Lost
-A3 Those Also Love
-A4 Healin' Sunshine(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E319FB00BCBECCAAAD09844D6B5A6D3E7B18C9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862453   (1064150) от 30.03.2026
-
-Sons of Eternity - Studio Albums (2 releases) (2023-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sons Of Eternity — метал-группа из Вюрцбурга, Бавария, Германия, образованная в 2020 году.2023 - End Of Silence
-2026 - Human BeastЖанр: Heavy/Power MetalПродолжительность: 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68643F3AC2ECED1FC8E98DBB3E14F78FDBD691C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862609   (1064048) от 31.03.2026
-
-Prelude - Owlcreek Incident (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk Rock, Acoustic, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064048.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Love Song
-A2 Me And The Boy
-A3 Old Sam
-A4 For A Dancer(   Читать дальше...   )Жанр: Folk Rock, Acoustic, Soft RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3543983DA89DCBFFD8052A7162E3F0B8F4B4FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862780   (1063898) от 01.04.2026
-
-Tommy Roe - Tommy Roe's 16 Greatest Hits (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063898.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sheila
-A2 Susie Darlin'
-A3 The Folk Singer
-A4 Everybody(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA0A0C74AEC823650725AD0A8A7B2ED14361EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863061   (1063706) от 02.04.2026
-
-Monolithe - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Funeral Doom/Melodic Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monolithe - французская дум-метал группа из Парижа, основана в 2001 году.2003 - Monolithe I
-2005 - Monolithe II
-2012 - Monolithe III
-2013 - Monolithe IVЖанр: Funeral Doom/Melodic Death/Doom MetalПродолжительность: 10:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F77303944793AC3C4728A474A9E388BF62BB8A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863795   (1063223) от 06.04.2026
-
-Anthemon - Studio Albums (5 releases) (1998-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anthemon - французская метал-группа, основанная в Париже в 1997 году и распавшаяся в сентябре 2007 года.1998 - Nocturnal Contemplations
-2000 - Talvi (EP)
-2003 - Arcanes
-2004 - DystopiaЖанр: Symphonic Gothic/Doom MetalПродолжительность: 03:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABFC7A71D69FB6E0CE4DD688655C8125DF030CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

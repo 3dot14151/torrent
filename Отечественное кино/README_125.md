@@ -1,3 +1,108 @@
+###  Публикация: 925026   (533324) от 10.08.2015
+
+Качели (2008) BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уходя на работу, он не знает, вернётся ли домой. Потому что рисковать жизнью - его профессия. Но иногда смертельное ранение может нанести любовь, потому что любовь, как пуля, бьет прямо в сердце.Вся жизнь героев этой ленты - Качели. То, задыхаясь от любви, они взлетают в облака, то с самого пика наслажденья падают вниз, в грязь и пустоту… Качели раскачиваются всё (   Читать дальше...   )Производство: Россия / Красная стрела / ЧерепахаЖанр: МелодрамаРежиссер: Антон СиверсАктеры: Мария Миронова, Андрей Мерзликин, Ксения Раппопорт, Вячеслав Разбегаев, Борис Хвошнянский, Хельга Филиппова, Максим Бритвенков, Олег Гаркуша, Анатолий Петров, Полина ИсаеваПродолжительность: 01:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA321D9AF8B6B408F433DCE2A9A8CEE5B4E2482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557661   (533279) от 19.06.2022
+
+Здравствуйте, мы ваша крыша! (2005) DVDRip [Режиссерская версия] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Провинциальный бизнесмен Каприщев должен вернуть долг. Пытаясь собрать нужную сумму, он лишается всех денег, ценных бумаг, любовницы, офиса и едва не самой жизни. В это же время маляр Дубровский, ремонтирующий офис Каприщева, неожиданно становится миллионером. Именно к нему непостижимым для самого Дубровского образом перекочевывают все активы бизнесмена…Производство: Россия / Русское Счастье Интертейнмент, Студия ЧерепахаЖанр: КомедияРежиссер: Виталий МухаметзяновАктеры: Семён Стругачев, Андрей Федорцов, Михаил Полицеймако, Евгений Булдаков, Михаил Козаков, Инга Маневич, Петр Коршунков, Михаил Богдасаров, Мария БерсеневаСубтитры: НетПродолжительность: 02:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31CE6926E239FB6051A72EE7FB2EC5DFD8018B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558226   (533277) от 19.06.2022
+
+Приплыли! (2022) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Незадачливый романтик Паша мечтает сделать предложение своей девушке, разыграв на яхте сцену из «Титаника». Однако у отца Паши совсем другие планы — яхта нужна ему, чтобы провернуть одну не очень законную операцию. В итоге морская прогулка оборачивается чередой безумных событий, в которой запланированное кораблекрушение будет далеко не самой большой проблемой.Производство: Россия / XOVP eXtraOrdinary Virtual ProductionЖанр: КомедияРежиссер: Юрий ЯрушниковАктеры: Владимир Яглыч, Роман Фомин, Маргарита Аброськина, Александр Соколовский, Игорь Золотовицкий, Мария Голицына, Василий КортуковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C38B7EF78FB9B502374DF60A9D0B9263E183BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924946   (533204) от 10.08.2015
+
+Ширли-мырли (1995) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Невероятная история о братьях - близнецах, никогда прежде не слыхавших друг о друге. Один из них, в младенчестве подброшенный в табор, стал цыганским бароном; другой рос в детском доме - и теперь он еврей - музыкант с мировым именем; третьего воспитывалародная тетя, и домашнее воспитание принесло свои плоды: он стал авторитетнейшим в СНГ вором и аферистом.
+ Именно (   Читать дальше...   )Производство: Россия / "Мосфильм"Жанр: КомедияРежиссер: Владимир МеньшовАктеры: Валерий Гаркалин, Вера Алентова, Инна Чурикова, Игорь Угольников, Армен Джигарханян, Олег Табаков, Леонид Куравлев, Нонна Мордюкова, Любовь Полищук, Сергей Баталов, Лев Борисов, Сергей Арцибашев, Михаил Кокшенов, Александр Панкратов-Черный, Александр Ворошило, Инна Кара-Моско, Евгений Герчаков, Всеволод Санаев, Владимир Меньшов, Нина Алисова, Алексей Булдаков, Евгений (   Читать дальше...   )Продолжительность: 02:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D15EACAC4C8A8122E0E857AC231A3BC0C93705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155278   (533036) от 03.08.2017
 
 Кинотавр Shorts (2016) WEB-DLRip [H.264/720p-LQ]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ Zомби каникулы (2013) Blu-Ray [1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E36C438CEA6049299AB0705B91A6BB8ED5B34E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313006   (528960) от 06.07.2019
-
-Железная пята олигархии (1998) VHSRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528960.jpg" />
-</div>
-
-
-###  Подробнее
-
-На темы романа Джека Лондона «Железная пята». Современная фантазия на темы романа Джека Лондона (с использованием цитат из указанной книги) и «Капитала» Карла Маркса в интерьерах Санкт-Петербурга конца 90-х под музыку групп «Колибри» и TEQUILAJAZZZ с весьма узнаваемым персонажем сходок и демонстраций — обреченным на вечное одиночество и постоянную неуспокоенность (   Читать дальше...   )Производство: Россия, Дебошир Фильм, Films UnlimitedЖанр: Драма, комедияРежиссер: Александр БашировАктеры: Александр Баширов, Сергей Дьячков, Константин Федоров, Евгений Фёдоров (II), Сергей Кагадеев, Рита Марго, Наталья Пивоварова, Александр Розанов, Ирина Шароватова, Инна ВолковаПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7A062C4F424B7628C5883BA297CF4F57B66410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052225   (528929) от 13.09.2016
-
-Бармен (2015) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вадик мечтает изменить свою скучную жизнь, но страх неудачи и неуверенность в себе мешают парню двигаться к цели. Все меняется, когда Вадик случайно забредает в пустой бар и выпивает коктейль по рецепту загадочного Бармена. Отныне он - мистер Харизма, и весь мир лежит у его ног. Даже красавица Юля, о которой раньше он не смел и мечтать, обратила на него внимание. (   Читать дальше...   )Производство: РоссияЖанр: Комедия, ФэнтезиРежиссер: Дина ШтурмановаАктеры: Виталий Гогунский, Иван Охлобыстин, Юлия Паршута, Юрий Стоянов, Жанна Эппле, Константин Крюков, Антон Богданов, Ольга Бузова, Евгения Ярушникова, Константин ФедоровПеревод: Не требуется (Русский, лицензия)Продолжительность: 01:31:57Реклама: Отсутствует.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FF1DAED38994FB221B20054E712D0B1CDE8910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240411   (528610) от 11.08.2018
-
-Воротничок (2017) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая скромная девушка покупает крахмальный воротничок, и он начинает управлять жизнью девушки, вопреки её желанию. Героиня оказывается перед выбором: либо подчиниться, либо бороться.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Виктория РунцоваАктеры: Павел Артемьев, Алла Будницкая, Виктория Рунцова, Даниил СпиваковскийСубтитры: ОтсутствуютПродолжительность: 00:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E69DD5C8FDDA7AC9CE758A7638F2311787818A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925993   (528567) от 13.08.2015
-
-Ужин в четыре руки (1999) IPTVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лейпциг, 1747 год. Гендель, любимец публики и сильных мира сего, приглашает Баха, кантора церкви Святого Фомы и отца двадцати детей, только что принятого в «Общество музыкальных наук», на обед в гостиницу. Агрессивный настрой первых минут этой встречи перерастает во взаимопонимание двух стареющих и слепнущих композиторов, мудрых, одиноких и одинаково несчастных.Производство: Россия, Partner Video FilmЖанр: Драма, историяРежиссер: Михаил КозаковАктеры: Михаил Козаков, Евгений Стеблов, Анатолий Грачёв, Миша КозаковПродолжительность: 2х~00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25494270DD3B6D94FDEB6E58C81FF5FE57347197
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,131 @@
+###  Публикация: 1618668   (249921) от 12.03.2023
+
+VA - Лучшие песни радио русский шансон 9 (2009) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. М. Шуфутинский и гр. Воровайки - Северная весна
+02. М. Бородин и гр. Алиби - Алиби
+03. М. Шелег и В. Снежная - Карточный домик
+04. Мафик - Обыкновенное чудо ( Remix )(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69ACED22E59361166AB7EA31387027CF5EAADEED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538941   (249482) от 24.03.2022
+
+VA - Шансон 2022 года (Музыкальный хит-парад) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Стас Михайлов - Одной тебе (3:15)
+02. Инна Вальтер - Грубая любовь (Dance Version) (3:46)
+03. Ярослав Сумишевский - Ты не суди меня (4:50)
+04. Ирина Круг - Фамилия (3:42)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDD595E74D44410D829C4C9E0D58D04A2C34D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493619   (248964) от 08.05.2012
+
+VA - 9 мая День Победы - 65 лет 1945-2010 (2010) [MP3|320 kbps]<Военная песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Сводка Совинформбюро 'О полной и безоговорочной капитуляции' - Юрий Левитан (0:40)
+02. Сводка Совинформбюро 'Акт о военной капитуляции Германии' - Юрий Левитан (5:11)
+03. Марш Преображенского полка, петровской эпохи - Отдельный показательный оркестр Министерства Обороны СССР (2:09)
+04. Баллада о солдате - Н. Абрамов (6:11)
+05. Песенка фронтового шофера - М. Бернес (2:41)
+06. Моя любимая - В. Власов (2:41)
+07. Давай закурим - К. Шульженко (2:30)
+08. Соловьи - В. Пучков (5:55)
+09. Вернулся я на Родину - Л. Утесов (2:36)
+10. Эх, дороги… - Г. Виноградов (2:58)(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF86674C50E17B57D81FAEBE35BDA661DA7F4042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493557   (248949) от 08.05.2012
+
+Елена Ваенга - Песни военных лет (2009) [MP3|320 кб/с]<Военная песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+2009Жанр: Военная песняПродолжительность: 00:49:00
+ 01. Казачка (Ансамбль)
+ 02. Попури, пляска (Ансамбль)
+ 03. Песня из кинофильма Белорусский вокзал (Елена Ваенга)
+ 04. Песня из телефильма Семнадцать мгновений весны (Елена Ваенга)
+ 05. Журавли (Елена Ваенга)
+ 06. Эта рота (Виталий Аксенов)
+ 07. На солнечной поляночке (Ансамбль)
+ 08. Землянка (Елена Ваенга)
+ 09. Подмосковные (Ленинградские) вечера (Елена Ваенга)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C262FCD53AC18E9DF37274B75C734DE004A3DA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493399   (248942) от 08.05.2012
 
 VA - 9 Мая: Лучшая 150-ка с праздником Победы! (2012) [MP3|256 кб/с]<Военная песня>
@@ -6,7 +134,7 @@ VA - 9 Мая: Лучшая 150-ка с праздником Победы! (2012
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -41,7 +169,7 @@ VA - День победы (2012) [MP3|174-320 кб/с]<Военная песн�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -76,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -111,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +268,7 @@ SK-AI project - Последнее лето (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -169,7 +297,7 @@ VA – Русский шансон часть 4 (1997) [MP3|320 Kbps] <Шанс�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -198,7 +326,7 @@ VA - Застольные от Петровича 40% - 96% (2004) 3 Альбо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -227,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -256,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -285,7 +413,7 @@ VA - Памяти Аркадия Северного (1995) [MP3|320 Kbps] <Ша�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -314,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -343,7 +471,7 @@ VA - Самые сливки шансона (2001) [FLAC|Lossless|tracks + .cue]
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -372,7 +500,7 @@ VA - Калина красная 3-Песни, спетые сердцем (1999
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -401,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -430,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -459,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -485,7 +613,7 @@ Various Artists - Чёрная кошка 1-2  (1999) [FLAC|Lossless|tracks + .c
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -514,7 +642,7 @@ VA - Русский шансон часть 6 (1999) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -543,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -572,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -601,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -630,7 +758,7 @@ VA - Привал романтиков 2 (2004) [FLAC|Lossless|tracks + .cue] <�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -644,122 +772,6 @@ VA - Привал романтиков 2 (2004) [FLAC|Lossless|tracks + .cue] <�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E252E26C82F869EB7D1EAF53576CAC58A6449EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378098   (241525) от 25.04.2020
-
-Владимир Базыкин - Когда освобожусь (2004) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кореша
-02. Когда освобожусь
-03. Долюшка
-04. Друг(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2DF872A6A9EC0CDD603DDB62AE0EC8EE68D1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378230   (241475) от 25.04.2020
-
-Мафик - Пацанский стиль (2013) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пацанский стиль (3:55)
-02. На квадрате (3:26)
-03. Поговори со мной (4:10)
-04. Много курю (3:45)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6207518C8751C27113C9542DA7D3D4B30DAD3179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626012   (240806) от 12.04.2023
-
-VA – Русский шансон часть 2 (1996) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Розенбаум - Одинокий волк
-02. М. Круг - Искры в камине
-03. А. Шапиро - Печаль
-04. Мишки на Севере - Золотые терема(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56785FF732DDFBE6D51B36C8614EE33AC7750356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545810   (240249) от 21.04.2022
-
-Александр Розенбаум - Симбиоз 2 (2022) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240249.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как я рано прожил жизнь
-2. Вчера достало, допекло
-3. Господи, когда все это было?
-4. Мама, послушай, случилось несчастье(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28E2E5D5E79FE53C8B3DD1835B58311600147D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1121285   (800500) от 02.04.2017
+
+Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah and Volmer (04:35)
+02. Nobody Ever Leaves (01:49)
+03. Bicycle (02:00)
+04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121071   (800498) от 02.04.2017
+
+Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Nick Cave & Warren Ellis - Comancheria (02:05)
+02. Townes Van Zandt - Dollar Bill Blues (03:01)
+03. Nick Cave & Warren Ellis - Mama's Room (02:49)
+04. Ray Wylie Hubbard - Dust of the Chase (05:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329E673917768170466EA41A9242B4FB551A3EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121073   (800494) от 02.04.2017
+
+David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. She Was Different (03:49)
+02. Doing a Good Thing (02:17)
+03. 3 Suspects (02:11)
+04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEFD027677F901F12DB02BDEA332E5B8D19E4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120721   (800483) от 02.04.2017
+
+Раймондс Паулс - В тональности Раймондса Паулса (1983) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Беспокойный пульс
+02. Печаль
+03. Испанский мотив
+04. Всё твоё(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE31549499C5DF3AF6297F5F7FBA7C32B99DC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121286   (800463) от 02.04.2017
+
+Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah and Volmer (04:35)
+02. Nobody Ever Leaves (01:49)
+03. Bicycle (02:00)
+04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625CDE32AE61D8E25C3377E01810ADB49687E00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120737   (800439) от 02.04.2017
+
+Cliff Carpenter - 6 альбомов (1972-1983) LP-Rip [MP3|320 Kbps] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Im Gluck
+02. Der Duft von Paris
+03. Kiss Me
+04. Morgen Fruh, Da Lachst Du Schon Wieder(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 04:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152D00B5996DAFAE04D8F99477078A2BBEE7DE09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121075   (800425) от 02.04.2017
+
+David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. She Was Different (03:49)
+02. Doing a Good Thing (02:17)
+03. 3 Suspects (02:11)
+04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E03AE893A3206B585512BE855DD41598E85CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121231   (800424) от 02.04.2017
 
 VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +209,7 @@ VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +264,7 @@ Systems In Blue - Symphony In Blue: The Very Best Of (2011) 2CD [MP3|320 Kbps] <
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +293,7 @@ Mark Mancina, VA - Moana / Моана (Оригинальный саундтре
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +322,7 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +351,7 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +380,7 @@ Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +409,7 @@ G.E.N.E. [Полная дискография] [1991-2000] [MP3|160 CBR] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -232,7 +435,7 @@ Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -261,7 +464,7 @@ Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -290,7 +493,7 @@ Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +522,7 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [FLAC|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +551,7 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +580,7 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +609,7 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +638,7 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +667,7 @@ VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +696,7 @@ VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean W
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +725,7 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,212 +739,6 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507287   (798447) от 04.11.2021
-
-David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798447.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Wilson (22.09.1945) - американский скрипач и музыкант, известный своими стилизованными аранжировками, как популярной музыки, так и оригинальных композиций. Кроме скрипки играет еще на фортепиано, гитаре, аккордеоне и флюгельгорне. Работал в оркестре Henry Mancini в последние годы его жизни. Его дискография насчитывает десять альбомов, у меня же в коллекции (   Читать дальше...   )01. Everybody Loves Somebody Sometime (4:06)
-02. Am I Blue (3:41)
-03. Go Away Little Girl (4:02)
-04. Come Rain or Come Shine (4:30)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507320   (798415) от 04.11.2021
-
-Clannad - Studio Albums (1973 - 2013) 13 CD [APE|Lossless|image + .cue] <Celtic, Irish Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clannad (Кла́ннад) — ирландская музыкальная группа.
-Музыку Clannad можно охарактеризовать как синтез кельтского фолка, рока, нью-эйдж и джаза. Поют на гэльском (ирландском) и английском языках.
-
-В состав группы входят Мойя Бреннан (Máire Brennan), её родные братья Кирон Бреннан (Ciarán Brennan) и Пол Бреннан (Pól Brennan), и двоюродные дяди Ноэль (   Читать дальше...   )1973 — Clannad (The Pretty Maid)
-1975 — Clannad 2
-1976 — Dúlamán
-1980 — Crann Úll(   Читать дальше...   )Жанр: Celtic, Irish Folk, New AgeПродолжительность: 09:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED50D7A15E5D5F8E5B641A6843E8AA292A09E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507657   (798086) от 06.11.2021
-
-Александр Зацепин - Оригинальная Музыка К Кинофильмам (2020) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Командир Счастливой "Щуки" 1972
-1-1		Вступление	2:36
-1-2		Встреча	2:05
-1-3		Давным-давно Была Война. 1-й Вариант	1:24(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 04:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D3304EA28538539524EBA2008FB99F15585A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385310   (797765) от 24.05.2020
-
-Shakti Loka - Deep Black (2020) [MP3|320 Kbps] <Ethnic, Trip-hop, Mantras>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adi Purusham (Intro)
-02. Ganga
-03. Bhajahu Re Mana
-04. Yamuna(   Читать дальше...   )Жанр: Ethnic, Trip-hop, Mantras, Psychedelic, Indie, SynthpopПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED61821B47E771064111CD186A14E584C316A43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011083   (796981) от 27.04.2016
-
-Carlos Garo - Entrance To The Parallel Universe (2015) [FLAC|Lossless|tracks] <New Age, Ambient, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entering the Universe    01:32
-02. Infinite Space    04:14
-03. Desert    05:06
-04. The World Keeps on Spinning    05:01(   Читать дальше...   )Жанр: New Age, Ambient, EnigmaticПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51807E2FDA5F9D69B5FB69FDB5E477AA3A27E474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199997   (796941) от 19.01.2018
-
-VA - Intimate Piano - Body & Soul (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henry Mancini & Orchestra - As Time Goes By (2:25)
-02. Gordon Langford & Orchestra - Body & Soul (2:37)
-03. Bill Synder - Cocktails for Two (2:52)
-04. Roger Williams - Dream a Little Dream of Me (3:12)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383AD32493426188965237095B41157FA79499D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200001   (796911) от 19.01.2018
-
-VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is A Many Splendored Thing (Gordon Langford, His Piano & Orchestra) (2:55)
-02. Moonglow (Douglas Gamley, His Piano & His Orchestra) (3:07)
-03. Rhapsody In Blue (Henry Mancini) (3:27)
-04. Moonlight In Vermont (Gordon Langford, His Piano & Orchestra) (2:57)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8FEDC6C2E584E08DAFAAEFAF99E497358A6B71
 ```
 
 https://mybot314.ru/tekegram_catalog/

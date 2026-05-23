@@ -1,3 +1,187 @@
+###  Публикация: 1052077   (527692) от 14.09.2016
+
+Альтамира / Altamira (2016) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм о жизни Марселино Санс де Саутуола, открывшего пещеру Альтамира. На сегодняшний день она внесена в список всемирного наследия ЮНЕСКО, однако при жизни Саутоле пришлось столкнуться с насмешками со стороны научного сообщества и жить с клеймом обманщика.Производство: Испания, Великобритания, ФранцияЖанр: Драма, ИсторияРежиссер: Хью ХадсонАктеры: Антонио Бандерас, Клеман Сибони, Руперт Эверетт, Хавиви, Ирена Эсколар, Николас Фэррел, Аллегра Аллен, Луис Солер, Tbata Cerezo, Голшифте Фарахани, Chantal GarsanПеревод: Многоголосый закадровый, любительский (СПД)Продолжительность: 01:33:38Реклама: присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E51799342C83FB9F626F2A57E00C2ACD649971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368627   (527246) от 29.07.2011
+
+Мультфильмы студии Арменфильм (1981-1985) TVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рисованая анимацияРежиссер: Роберт СаакянцПерсонажи: сказочныеПродолжительность: 7 мин. 30 сек.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4F967808FDD8849D186EFF9E27D6ECA0923C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052632   (527084) от 15.09.2016
+
+Q4OS 1.6.2 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64, 'RPI' port] 4xCD+1xImg
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
+
+Система базируется на Debian и использует в качестве графической оболочки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81A18DBC2F54F05A7B6123F3F1780ABCBDD6EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009920   (527028) от 15.09.2016
+
+8-Bit Armies (2016) [Ru/Multi] (0.73.620572/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+8-Bit Armies, бодрая стратегия, в которой можно разнести мир по кирпичикам. Война – мрачное, грязное, кровавое и трагическое дело, что и говорить. Редкое исключение – война виртуальная: тут бывает так, что на поле брани сходятся смешные квадратные человечки, которые разъезжают на квадратных танках, взлетают на квадратных истребителях и проливают квадратную кровь.Тип издания: LicenseРазработчик: PetroglyphЖанр: Real-Time StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED97401F400488C7CA96D4D41D50E6D45212351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559255   (526923) от 24.06.2022
+
+Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.145) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Леонардо, Микеланджело, Донателло и Рафаэль вновь объединяются, чтобы задать жару. Teenage Mutant Ninja Turtles: Shredder’s Revenge — это яркий, сделанный с любовью скроллер в жанре beat ’em up, в основе которого лежит легендарный образ черепашек из 1987 года. Эта игра — дань уважения классическим играм о черепашках, таким как Turtles In Time.Тип издания: RepackРазработчик: Tribute Games Inc.Жанр: Action, Arcade, 2DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE63B30D7FF0740FB35ECC6DE122C2BDC968AE67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156799   (526813) от 08.08.2017
+
+Corona Renderer 1.6.1 for 3ds Max 2012-2018 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это набирающий популярность инструмент для рендеринга в 3ds Max и Cinema 4D. Вполне может конкурировать с такими гигантами бизнеса как V-ray и MentalRay.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C412212BF9A13026C7EEDE8E3CE5CD2D0CC59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053073   (526430) от 16.09.2016
+
+Pure Chess (2016) [Ru/Multi] (1.0) License SKIDROW [Grandmaster Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шахматы! Одна из самых популярных игр в мире только что стала еще лучше! Pure Chess — версия «Гроссмейстер» — это совершенное воплощение величайшей игры всех времен и народов. В Pure Chess есть множество функций и понятное руководство, поэтому игра прекрасно подходит как гроссмейстерам, так и новичкам. Только Pure Chess — и других шахмат больше не нужно!Тип издания: LicenseРазработчик: RipstoneЖанр: Logic (Chess), 3DЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3318E8DEA8153B1F9C6CFF2F6945A1EF93F41900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 72750   (526420) от 16.09.2016
 
 FEM, FEM2, Киберсант-матрица, Киберсант-активатор, Money-empire, Киберсант-инвестор.
@@ -6,7 +190,7 @@ FEM, FEM2, Киберсант-матрица, Киберсант-активат�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_526420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +217,7 @@ qBittorrent 3.4.0 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +295,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.16.761.0/dlc) Repack  xatab [Digital 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +321,7 @@ Titanfall 2 (2017) [Ru/En] (2.0.7.0) Rip xatab [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +347,7 @@ Corel PaintShop Pro X9 Ultimate 19.0.2.4 RePack by KpoJIuK + Content Pack [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +373,7 @@ Adobe InDesign CC 2015 (v11.1.0) x86-x64 RUS/ENG Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +399,7 @@ Office Tab Enterprise 10.50 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_524248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +503,7 @@ W10 Digital Activation 1.4.6 by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +529,7 @@ Battlefield Hardline (2015) [Ru] (1.07.15.00) Repack xatab [Digital Deluxe Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +608,7 @@ ABBYY Lingvo Dictionaries 4.2.3 [Ru/Multi] - Оффлайн словарь
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +660,7 @@ CleanMyMac X 4.4.3.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,188 +674,6 @@ CleanMyMac позволяет избавиться от разнообразно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:729AE3136A0E49CBD26881285355CF79E3C54677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313587   (523429) от 09.07.2019
-
-HDD Low Level Format Tool 4.40 RePack (& Portable) by TryRooM [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523429.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDD Low Level Format Tool - утилита для низкоуровневого форматирования жесткого диска, а также внешних устройств, подключенных через интерфейс USB (например, флеш-карт). Кроме этого, HDD Low Level Format Tool умеет выдавать информацию S.M.A.R.T. Работает с SATA, IDE и SCSI HDD размером до 281 474 976 710 655 бит производства Maxtor, Hitachi, Seagate, Samsung, Toshiba, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CCB5F8000B6D417211AA1EB4D68AFCD1A91F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514720   (523312) от 26.06.2022
-
-Игра моей судьбы / Kaderimin Oyunu (2021-2022) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-26 из 26) SesDizi
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Асие 32-летняя молодая женщина, мать двоих детей. В юности она встретила Джемаля, они влюбились друг в друга и тайно женились. Спустя годы Джемаль заводит интрижку с Хелин Демирхан и когда выясняется, что она беременна, он выбирает её и богатую жизнь. Асие приходится одной справляться с двумя детьми. В её жизни появляется Махир, который вырос в пристройке особняка (   Читать дальше...   )Производство: Турция / NGMЖанр: драмаРежиссер: Эмре КабакусакАктеры: Ойкю Караель, Акын Акынёзю, Сарп Апак, Мерич Арал, Ешим Гюль, Эсра Дерманджиоглу, Мюфит Каяджан, Ираз Акчам, Улку Дуру, Каан Чакыр, Онур Бильге, Айча Коптур и др.Перевод: Двуголосый любительский (SesDizi)Язык озвучки: Русский, турецкийПродолжительность: ~02:13:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C697736938BA563C50FABC64526C05C4B429FD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927702   (523195) от 15.08.2015
-
-Астрономы обнаружили редкую планету, находящуюся в благоприятной зоне двойной звездной системы
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа астрономов, в состав которой вошли астрономы из университета Сан-Франциско (San Francisco State University), обнаружила еще одну из чрезвычайно редких планет, планету, которая вращается по орбите, проходящей по благоприятной для жизни зоне системы, в состав которой входят две звезды. На редкость таких планет указывает то, что планета Kepler-453b является всего (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928087   (522998) от 15.08.2015
-
-DriverPack Solution Online 16.5.0 Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522998.jpg" />
-</div>
-
-
-###  Подробнее
-
-DriverPack Solution Online - облегченная версия самого мощного менеджера установки драйверов, автоматически сканирует оборудование компьютера и предлагает скачать из Интернета неустановленные или устаревшие драйвера и программное обеспечение. Быстро, качественно и абсолютно бесплатно!Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E0B8D1204BEBB1220A6EBBE87968B5B78C0B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927967   (522988) от 15.08.2015
-
-Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack =nemos=
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры разворачивается спустя год после событий Metal Gear Solid: Peace Walker. Вам предстоит вновь вжиться в роль легендарного Снейка, известного также под псевдонимом Биг Босс. Задача: проникнуть на базу «Омега», где держат в плену Чико и Паз. Заложники владеют важными данными относительно самого Снейка и его частной военной организации. Обнародование этой (   Читать дальше...   )Тип издания: RepackРазработчик: Kojima ProductionsЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Multi8Язык интерфейса: Русский, Multi8
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C626349849DE74F455B2F040690599F68C16FC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927488   (522986) от 15.08.2015
-
-Heroes of Might & Magic III / Меч и Магия. Герои III. Возрождение Эрафии (2015) [Ru/En] (1.18/upd4) Repack R.G. Steamgames [HD Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обратите внимание: контент «Герои III – HD Edition» основан на оригинальной игре, вышедшей в 1999: Возрождение Эрафии. С ностальгией вспоминаете о бессонных ночах, проведенных в сражениях с Черными Драконами, Архангелами, Демонами и Чародеями? Настоящие фанаты Heroes of Might & Magic III, у нас есть отличные новости!Тип издания: RepackРазработчик: DotEmuЖанр: Strategy (Turn-based)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F337A710935ABC841EF998EDBC07D9AAD6CC9B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083298   (522683) от 10.07.2019
-
-The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.80.0.8) Repack R.G. Catalyst [Special Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522683.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls V: Skyrim Special Edition - это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все официальные дополнения к игре, вышедшие до момента релиза Special Edition. Кроме того, в Special Edition была переработана графика, добавлены новые (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C72F7E2F4CBE6F7B7AA0232E2F394B279C329C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

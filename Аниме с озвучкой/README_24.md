@@ -1,3 +1,107 @@
+###  Публикация: 1201249   (696360) от 23.04.2018
+
+Karakai Jouzu no Takagi-san / Насмешница Такаги-сан [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"И чего она докопалась до меня?” - вопрошает в который раз несчастный Нишиката, которому крайне повезло сидеть рядом с Такаги. Настолько повезло, что буквально ни дня не обходится без того, чтобы она его не подколола, не задела, не разыграла и не высмеяла. Причина такого поведения неизвестна, возможно, ей просто нравится издеваться над Нишикатой, ведь, несмотря (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Акаги ХироакиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E7C6CF60AF3C38D771D140BD83E0C28D521D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201250   (696358) от 23.04.2018
+
+Killing Bites / Смертельный укус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Соблазнившись на предложение друзей подцепить девчонку, Юя Номото согласился одолжить им свою машину и побыть для них в качестве водителя. Он думал, они сейчас поедут знакомиться с девушками, но итог оказался куда неожиданнее. Его друзья похитили школьницу и намерились её изнасиловать, а потом выбросить в безлюдном месте. Несмотря на то, что Юя был против такого, (   Читать дальше...   )Жанр: ужасы, фантастика, экшен, эттиРежиссер: Нисиката ЯсутоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D5FF527B33D340CA7EA909475B7AC38B70F354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201252   (696354) от 23.04.2018
+
+Kokkoku / Миг за мигом [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Семья Юкава владеет потрясающей способностью, у них есть артефакт, умеющий останавливать время! Этот артефакт передаётся из поколения в поколение, а сама способность является строгой тайной, настолько, что даже не все члены семьи в курсе, как уникальны их родственники. Конечно, Джури Юкава могла ещё очень нескоро узнать о таинственном камне, дарующем такую способность, (   Читать дальше...   )Жанр: приключенияРежиссер: Охаси ЁсимицуЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD4631D2806724AADD35D984D4EE2D33F9F0848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201251   (696352) от 23.04.2018
+
+Koi wa Ameagari no You ni / After the Rain / Любовь - словно прошедший дождь [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ученица старшей школы Акира Тачибана — тихая любезная девушка, которая раньше состояла в клубе лёгкой атлетики, но из-за перенесённой травмы потеряла былую форму. Она нашла прибежище в семейном ресторанчике, устроившись туда на подработку. Неожиданно для себя она понимает, что вопреки собственной воле влюбилась в своего начальника Масами Кондо — разведённого мужчину (   Читать дальше...   )Жанр: романтикаРежиссер: Ватанабэ АюмуЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B3366EA94B84D4EB607BC949F3331FE98A9CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201008   (696346) от 23.04.2018
 
 Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзюндзи [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
@@ -6,7 +110,7 @@ Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзю
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +137,7 @@ Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Takunomi / Выпиваем дома [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Pop Team Epic / Эпичная попса [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Sora Yori mo Tooi Basho / A Place Further Than the Universe / Место, что
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13 ep] WEB-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Overlord II / Повелитель 2 [2018, TV, 13 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Sanrio Danshi / Sanrio Boys / Парни из «Санрио» [2018, TV, 12 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] BDRip 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25 ep] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Gakusen Toshi Asterisk / The Asterisk War / Боевая академия гор
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying | Мой сэмпай �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +453,7 @@ Ushio to Tora / Усио и Тора TV-2 [2016, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +479,7 @@ Big Order / Приказ свыше [2016, TV, 10] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +505,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Mayoiga / The Lost Village / Пристанище потерянных [2016, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ Bishoujo Senshi Sailor Moon R: The Movie / Sailor Moon R: The Movie - Promise of
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Re-Kan! / Ре-Кан! [2015, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? / А ты думал, что дев
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ Gake no ue no Ponyo / Рыбка Поньо на утесе [2008] BDRip 720p ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +664,7 @@ Howl's Moving Castle / Ходячий замок [2004] BDRip 384p raw + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,111 +675,6 @@ Howl's Moving Castle / Ходячий замок [2004] BDRip 384p raw + rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08600A6DF7FBBF87AC1C1B83CFC5DE53D735DE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101717   (660799) от 01.06.2017
-
-Ao no Exorcist: Kyoto Fujouou Hen / Синий Экзорцист: Нечестивый король Киото [2017, TV, 12] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глаз Нечистого Короля украден из секретной комнаты в Академии. Рин и его друзья отправляются в Киото, где находится второй глаз.
-Долг семьи Рюджи - защита второго артефакта. Ведь если собрать вместе оба глаза, демоническая сущность вернет к жизни тысячи мертвых!Производство: Япония, A-1 Pictures Inc.Жанр: приключения, мистикаРежиссер: Хацуми КойтиПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83C6DDB8F846C383BDCA020E448CD98D050EEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198094   (658498) от 17.05.2018
-
-Mitsuboshi Colors / Трехцветные звездочки [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот пока все занимаются совершенно бессмысленными делами: ходят на работу, смотрят телевизор или просто читают книги, некоторые, между прочим, защищают город! Эта работа требует полной отдачи и полного погружения, так что не думайте, что всё так просто! «Трехцветные звёздочки» - так себя именуют три девочки. Маленькие авантюристки не страдают от дефицита воображения (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Кавамура ТомоюкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FB93717681C2C029639D9A6AC8CE320A1A92F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200849   (658456) от 17.05.2018
-
-Slow Start / Медленный старт [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда в жизни не всё получается так гладко, как этого хочешь. Стоит замечтаться, попялиться в школьное окно во время урока, как пропустишь очень важный материал. Ну а дальше по накатанной: плохая успеваемость приведёт к довольно-таки отвратительным оценкам знаний, вступительные экзамены в старшую школу сдать не получится. Не у всех порой выходит вовремя взять себя (   Читать дальше...   )Жанр: повседневность, комедияРежиссер: Хасимото ХироюкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4292164DA007B2768DC497440CD5AD45F556E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501646   (656834) от 26.03.2022
-
-Платиновый исход | Платиновый предел | Platinum End [2021, TV, 24 из 24] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь — безнадёга. Именно к такому выводу пришёл выпускник средней школы Мирай Какэхаши. Ещё в семь лет он потерял родителей, после чего его приютили дядя с тётей. В новой "семье" его били, морили голодом и заставляли работать. Окончательно разочаровавшись в жизни, наш герой решает прекратить свои страдания прыжком с крыши. Однако всё идёт не по плану, (   Читать дальше...   )Производство: Япония / Signal MDЖанр: Приключения, сверхъестественное, психология, мистика, драма, сёнэнРежиссер: Такахаси ХидэяЯзык озвучки: ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 24 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0EB26790F44EBD66FF291AA718E77B581B6D953
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1631927   (198779) от 08.05.2023
+
+Михаил Столбов | Как я вырастил новые зубы (2021) [MP3, YevGenius Voice]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+"...Все началось в 1978 году, когда я отбывал положенные три года срочной службы на Русском острове. Именно тогда и там мне табуреткой выбили практически все зубы. Тогда я страшно надеялся, что меня тут же комиссуют, но мне за казенный счет в течение недели смастерили вставные челюсти, и оставшиеся 2,5 года из-за своей картавости я был для всех «Шавкой». Вставные (   Читать дальше...   )Жанр: СамосовершенствованиеПродолжительность: 02:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DF2A66CA78518358260F3433076B3CCEA0694B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642373   (196539) от 27.06.2023
+
+Дэвид Чиверс, Том Чиверс | Цифры врут (2022) [MP3, Татьяна Фельгенгауэр]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Чтение на ночь сокращает жизнь. Видеоигры провоцируют массовые убийства. Газировка делает людей агрессивными. Что?! Нет!
+Каждый день медиа пишут о сенсационных открытиях и шокирующих результатах исследований. Но не всем им можно верить: статистические погрешности, намеренные фальсификации и неочевидные огрехи никто не отменял.
+Из-за пандемии COVID-19 человечество (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 05:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDD31CF0B48215A661E6E7BDE2FBC491A9FD87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643945   (196228) от 04.07.2023
+
+Ёсинори Нагумо | Метод Нагумо. Японская система (2019) [MP3, Максим Доронин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В последние годы ученые уделяют особое внимание гену сиртуину - тому самому, что отвечает за регенерацию клеток, молодость и красоту. Одним из условий активации этого гена, управляющего нашей жизнью, является "пустой желудок". Другими словами, ген не становится активным, если вы не голодны в течение определенного периода времени. Вполне вероятно, что люди, (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D4155E158E010E91F2EA2CF6D8AB63920E00FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645594   (195960) от 10.07.2023
 
 Митио Каку | Уравнение Бога. В поисках теории всего (2021) [MP3, Алексей Комиссаров]
@@ -6,7 +86,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -91,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -117,7 +197,7 @@ Drew Hernandez | Drew Hernandez Podcast (2023) [OPUS] [EN]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -146,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -172,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -198,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -225,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -252,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -280,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -306,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -334,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -361,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -388,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -415,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -441,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -468,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -495,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -522,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -549,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -577,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -603,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -615,86 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFF59BF959EB884FFDE81C8133CA2311AD95388D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589588   (189978) от 10.11.2022
-
-Валерий Михайлычев | Высокие вибрации (2022) [MP3, Сергей Курнаев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд по достижению счастья – это не лопатой целину поднимать. Это труд необычный, другой. Когда вы всё попробовали, а отношения не строятся, здоровье всё хуже и хуже, приличной работы не предвидится: самое время сменить частоту и услышать вселенную. Видеть, а не смотреть, Быть, а не присутствовать. Если знать, как работают высокие вибрации, – нерешаемых задач не (   Читать дальше...   )Жанр: Эзотерика, парапсихологияПродолжительность: 05:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4A48F2DECF42A7E65FA893B0F1520FEBE8B82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589926   (189766) от 11.11.2022
-
-Анатолий Баранов | Маленькие друзья больших людей. Истории из жизни кремлевского ветеринара (2022) [MP3, Алексей Воскобойников]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь – удивительная вещь, и иногда вокруг ветеринара, желающего просто лечить животных, начинают закручиваться настоящие шпионские интриги, политические заговоры и невероятные знакомства. С этим не понаслышке знаком знаменитый советский ветеринарный врач – Анатолий Евгеньевич Баранов. Ради спасения животных он рисковал карьерой, своими убеждениями и даже жизнью. (   Читать дальше...   )Жанр: Ветеринария, истории из жизниПродолжительность: 11:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F07B981BB354D264DBF783E43E52300A2D88E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589828   (189736) от 11.11.2022
-
-Евсей Гречена | История на пальцах. Польша (2021) [MP3, Дмитрий Шабров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развенчание самых известных мифов о Польше и ответы на наиболее интригующие вопросы!
-История человечества необъятна и необозрима. Она состоит из множества историй отдельных людей. Главные герои этой аудиокниги не всегда вершители судеб других людей, но, без сомнения, яркие и смелые личности, оставившие о себе память благодаря незаурядным личным качествам.
-В каждом (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 11:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A002FBCAE23F817D7B0E4AC1C90FC91EE88F1A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

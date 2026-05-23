@@ -1,3 +1,32 @@
+###  Публикация: 1426341   (214986) от 24.11.2020
+
+Hoffman Cruise - Odyssey (2020) [AAC|~305 Kbps] <Cyberpunk, Darksynth, Industrial>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Sirens Dance (3:15)
+02. Cyclops (3:23)
+03. Shoot Her (3:33)
+04. Run for Cover (3:31)(   Читать дальше...   )Жанр: Cyberpunk, Darksynth, IndustrialПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF7638447E78F89D8A3A85B1DC8155D2A6F9345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426340   (214945) от 24.11.2020
 
 Hoffman Cruise - Arrival (2018) [AAC|~305 Kbps] <Cyberpunk, Darksynth, Industrial>
@@ -6,7 +35,7 @@ Hoffman Cruise - Arrival (2018) [AAC|~305 Kbps] <Cyberpunk, Darksynth, Industria
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Opus III - Guru Mother (1994) [AAC|~293 Kbps] <Electronic, Techno, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -116,7 +145,7 @@ Space - Лучшие Хиты (2016) [AAC|~338 Kbps] <Electronic, Synthpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -145,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -197,7 +226,7 @@ Zodiac - Disco Alliance (2013) [AAC|~350 Kbps] <Electronic, Synthpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -226,7 +255,7 @@ Arkay Koo - Terra Server (2021) [AAC|~328 Kbps] <Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -255,7 +284,7 @@ VA - In Love with Lounge, Vol. 4 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -284,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -310,7 +339,7 @@ VA - Bedtime Stories, Vol. 1 (A One Night Lounge Affair) (2021) [AAC|~310 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -339,7 +368,7 @@ VA - Bossa & Latin Flavours (2021) [AAC|~339 Kbps] <Nu Jazz, Bossa Nova, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -368,7 +397,7 @@ VA - Lounge Erotique (Seductive Night in a Loungy Mood) (2015) [AAC|~326 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +452,7 @@ VA - Seduction (Chill out Dreams), Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +481,7 @@ VA - Bossa Lounge Covers (2021) [AAC|~339 Kbps] <Lounge, Downtempo, Bossa Nova, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +510,7 @@ VA - Dune 1 (2018) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -510,7 +539,7 @@ Andrea Scala - Coming Back, Leaving Again (2020) [AAC|~336 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -539,7 +568,7 @@ Giovanni Cigui - Rock (2020) [AAC|~360 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -568,7 +597,7 @@ Giovanni Cigui - Cheewi Beats (2020) [AAC|~344 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -597,7 +626,7 @@ VA - Dune 2 (2019) [AAC|~326 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -626,7 +655,7 @@ VA - Dune 3 (2021) [AAC|~338 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -655,7 +684,7 @@ Elton John - Jewel Box (2020) [AAC|~289 Kbps] <Pop, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -684,7 +713,7 @@ Pink Floyd - The Best of Pink Floyd: A Foot In the Door (2011) Remastered [AAC|W
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -698,32 +727,6 @@ Pink Floyd - The Best of Pink Floyd: A Foot In the Door (2011) Remastered [AAC|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0EDEE8F0875DDEDFBCAFAAF624AC53C76B10645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571109   (210178) от 20.08.2022
-
-Дневная смена / Day Shift (2022) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210178.jpg" />
-</div>
-
-
-###  Подробнее
-
-История трудолюбивого отца, который пытается обеспечить лучшую жизнь 8-летней дочери. Вот только его дневная работа уборщиком бассейнов — лишь прикрытие. Он зарабатывает, выслеживая и убивая вампиров.Производство: США / 87Eleven Entertainment, Impossible Dream EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Дж.Дж. ПерриАктеры: Джейми Фокс, Дэйв Франко, Наташа Лю Бордиццо, Миган Гуд, Карла Соуса, Стив Хоуи, Скотт Эдкинс, Оливер Мазуччи, Снуп Догг, Эрик ЛанжПеревод: Многоголосый профессиональный, дублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 01:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FBAAD91111D5F4DA169987A4C455A26178B1D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

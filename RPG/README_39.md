@@ -1,3 +1,81 @@
+###  Публикация: 1611322   (207629) от 11.02.2023
+
+Sylphy and the Sleepless Island (2021) [Multi] (v1/dlc) License GOG [18+]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Sylphy and the Sleepless Island повествует о приключениях Сильфи. Она живет в трущобах с больной сестрой и промышляет воровством, чтобы помогать своей родственнице. Однажды девушка узнает о существовании Сферы Бездны, что спрятана в хранилище Королевства Дизель. Героиня решает выкрасть реликвию на фестивале, но всё идёт не по плану. В итоге молодая женщина случайно (   Читать дальше...   )Тип издания: LicenseРазработчик: Milky WayЖанр: Role-playing, Adventure, NarrativeЯзык субтитров: Английский, Китайский (упрощенный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28083C0D28A822EC37FC187425FF54F74F5E90C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651112   (207132) от 05.08.2023
+
+Class of '09 (2021) [En] (1.0) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Это антивизуальный роман. Вместо того, чтобы играть за какого-то парня, волшебным образом способного заводить знакомства с красивыми аниме-девушками, вы играете за аниме-девушку и создаете массовый хаос в жизни ваших потенциальных "женихов". Искренняя комедия, социальная достоверность и эстетика конца 2000-х ждут вас в классе '09!Тип издания: LicenseРазработчик: SBN3Жанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC67D39779D86C935FE336970201BCE0E499A648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651121   (207052) от 05.08.2023
+
+Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Подготовьте следующего монарха, найдите ее хобби, обучите ее битве и подружитесь с гражданами, которых она однажды защитит. Погрузитесь в новое приключение в жанре симулятора воспитания и ролевой игры, где каждое принятое вами решение повлияет на будущее не только вашей дочери, но и всей империи! Добро пожаловать в королевство вулканов! Богиня вулканов благословила (   Читать дальше...   )Тип издания: SceneРазработчик: 养蛋人工作室 Egg HatcherЖанр: Инди, Ролевые игры, СимуляторыЯзык озвучки: Японский, Китайский (упрощенный)Язык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD946DC8742E009C09B1017D53D89CF58A539A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579856   (206997) от 29.09.2022
 
 Beacon Pines (2022) [En] (1.0.2) License GOG [Collector's Edition]
@@ -6,7 +84,7 @@ Beacon Pines (2022) [En] (1.0.2) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Liberte (2023) [En] (1.0.2.b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ False Myth (2022) [Multi] (v3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Nicktoons and The Dice of Destiny (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +266,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Din's Legacy (2019) [En] (1.013) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Queen's Wish: The Conqueror (2019) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.01.53364) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Phantom Brigade (2023) [Ru/Multi] (10688478) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Phantom Brigade - это гибридная тактическая ролева�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622411   (200613) от 28.03.2023
-
-SuccuSeka: Resist Succubus Temptation (2023) [Multi] (1.0a/dlc) License GOG [18+]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200613.jpg" />
-</div>
-
-
-###  Подробнее
-
-SuccuSeka: Resist Succubus Temptation - игра от компании Wakaba Syokei, разработанная для платформы PC. Проект совмещает в себе такие жанры и элементы, как визуальная новелла. Дополнительно игроки выделяют такие особенности игры, как казуальная игра, визуальная новелла, выбери себе приключение и несколько концовок. Игра рассчитана на одиночное прохождение, многопользовательские (   Читать дальше...   )Тип издания: LicenseРазработчик: Wakaba SyokeiЖанр: Ролевая игра, Визуальные новеллы, ДрaмаЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC260492F8A99FF0E72EF7AD7C8A6EE05E5DD95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623313   (200541) от 01.04.2023
-
-DeathKeep (1995) [En] (3.3) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой некромант сбежал из своей ледяной тюрьмы и сеет хаос в окрестных землях. Отправляйтесь в мрачную, замерзшую пустошь и положите конец ужасу. У вас есть 3 персонажа на выбор: мужчина-гном-боец, мужчина-маг-полуэльф-боец или женщина-маг-эльф, каждый из которых придает игре уникальную изюминку. Наблюдайте, как настроение игры усиливается по мере того, как кинематографические (   Читать дальше...   )Тип издания: LicenseРазработчик: Lion EntertainmentЖанр: Ролевая игра, ПриключениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16751F277FB86D6EA77B1B147966DD25B23AB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630506   (198990) от 01.05.2023
-
-ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последнее испытание: ваша судьба решается здесь! На Южные острова вновь упала тень. Кипящий ненавистью загадочный демон сеет повсюду ужас и собирает войска, готовясь напасть на приморский город Сетарриф. Ситуацию ухудшает извержение вулкана в горах недалеко от города. Безымянный герой объединяет силы со своими верными союзниками и храбро выступает навстречу новому (   Читать дальше...   )Тип издания: LicenseРазработчик: Spellbound StudiosЖанр: Экшны, Ролевая играЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC988B8557F22ED3DF065F009BA70E0283D30E81
 ```
 
 https://mybot314.ru/tekegram_catalog/

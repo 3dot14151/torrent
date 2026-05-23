@@ -1,3 +1,81 @@
+###  Публикация: 1332459   (308945) от 22.10.2019
+
+Король Лев / The Lion King (2019) BDRip [H.265/720p] [10-bit] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История об отважном львенке по имени Симба. Знакомые с детства герои взрослеют, влюбляются, познают себя и окружающий мир, совершают ошибки и делают правильный выбор.Производство: США / Walt Disney Pictures, Fairview EntertainmentЖанр: Мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Джон ФавроАктеры: Джеймс Эрл Джонс, Дональд Гловер, Чиветел Эджиофор, Джон Оливер, Джон Кани, Элфри Вудард, Джейдон Маккрэри, Шахади Райт Джозеф, Пенни Джонсон, Кигэн-Майкл КиПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH), английские (Full)Продолжительность: 01:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD53549A0324E42087EDEB2C656C5D770C3F1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729594   (308895) от 02.12.2013
+
+Джастин и рыцари доблести / Justin and the Knights of Valour (2013) BDRemux [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В далеком-далеком королевстве, где ранее отважные рыцари защищали королевство, а колдуны — обучали новичков, теперь все это забыто. Ныне здесь царит бюрократия и законы, а рыцари изгнаны. Джастин, сын Реджинальда — самого влиятельного адвоката в городе и внук сэра Роланда — самого легендарного рыцаря, несмотря на законы и мечтания отца отдать его в юридический колледж, (   Читать дальше...   )Производство: Испания. Ono, Aliwood Mediterráneo Producciones, Kandor GraphicsЖанр: Компьютерная анимация, ПриключенияРежиссер: Мануэль СисилияПеревод: ДублированныйПродолжительность: 01:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31A04642655E7DCF85F5A3EA7B1D3C0C6DD7451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260617   (308791) от 08.11.2018
+
+Пришельцы в доме / Luis and His Friends from Outer Space (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+У 12-летнего Луиса нет друзей, а у его отца постоянно не хватает на него времени, он увлечен уфологией и даже не догадывается, что те, кого он так жаждет найти, находятся прямо у него под носом. Луис становится единственным свидетелем аварийной посадки трех инопланетян рядом с их домом. Пришельцы быстро находят общий язык с мальчиком. Они ведут себя точь-в-точь как (   Читать дальше...   )Производство: Германия, Люксембург, Дания | A. Film, Fabrique d'ImagesЖанр: Фантастика, комедия, приключенияРежиссер: Кристоф Лауэнштайн, Вольфганг Лауэнштайн, Шон МакКормакПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4F5C6A1DEF0D4D5438EB9CDA361E4D8CA49E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076927   (308744) от 27.11.2016
 
 Санджай и его команда / Sanjay's Super Team (2015) BDRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E96ABAA0CCA35EB8428F6237F448ADAF8D93FC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585690   (302507) от 06.12.2012
-
-Паранорман, или Как приручить зомби / ParaNorman (2012) [1080p] BDRemux
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Производство: США | Laika EntertainmentЖанр: Мультфильм, Ужасы, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Крис Батлер, Сэм ФеллАктеры: В ролях: Коди Смит-МакФи, Таккер Албрицци, Анна Кендрик, Кейси Аффлек, Кристофер Минц-Плассе, Лесли Манн, Джефф Гарлин, Илэйн Стритч, Бернард Хилл, Джоделль Ферланд ...Перевод: ДублированныйЯзык субтитров: Русский (Full, Forced), Английский (SDH)Продолжительность: 01:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6994FEA2B8EBAD2CC0BED0108B58C7A711CAA567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585408   (302492) от 06.12.2012
-
-Паранорман, или Как приручить зомби / ParaNorman (2012) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Производство: США | Laika EntertainmentЖанр: Мультфильм, Ужасы, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Крис Батлер, Сэм ФеллАктеры: В ролях: Коди Смит-МакФи, Таккер Албрицци, Анна Кендрик, Кейси Аффлек, Кристофер Минц-Плассе, Лесли Манн, Джефф Гарлин, Илэйн Стритч, Бернард Хилл, Джоделль Ферланд ...Перевод: ДублированныйЯзык субтитров: Русский (Full, Forced), Английский (SDH)Продолжительность: 01:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6138CB63540DFB8EDBE7AE4B86D902671DC92B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250973   (302334) от 11.11.2018
-
-Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302334.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Дракула вместе со своими друзьями отправляется в круиз на шикарном лайнере. Развлечения там на любой вкус: от монстробаскетбола и экзотических экскурсий, до лунных ванн. Неожиданно Дракула влюбляется в капитана корабля — загадочную и прекрасную Эрику, и его дочка Мэвис понимает, что поездка может превратиться в кошмар: ведь Эрика хранит ужасный секрет, (   Читать дальше...   )Производство: США \ Columbia Pictures, Media Rights Capital, Sony Pictures AnimationЖанр: Фентези, Комедия, Приключения, Компьютерная анимацияРежиссер: Генндий ТартаковскийПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные)Продолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5B8D0CCEAD8859578A9D8F243EB63AEEDDED68
 ```
 
 https://mybot314.ru/tekegram_catalog/

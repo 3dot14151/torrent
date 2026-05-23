@@ -1,3 +1,29 @@
+###  Публикация: 478405   (86605) от 05.04.2012
+
+Warp [Ru] (RePack) 2012 | Fenixx
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Warp игрокам предстоит выступить в роли Нуля – смертоносного, но милого оранжевого малютки-пришельца, оказавшегося в непростой ситуации. Захваченный в плен группой жестоких ученых, которые собираются ставить на нем опыты, Нуль должен сбежать из исследовательской лаборатории, полагаясь только на свои уникальные способности. Игрокам предстоит определиться с планом побега: это может быть кровавая месть каждому попавшемуся на пути человеку или хорошо спланированное скрытное прохождение игровых эпизодов. Бесчисленное количество комбинаций способностей главного героя и возможность совершенствовать их позволяют игроку находить максимально эффективные пути для решения головоломок и продвижения по уровням игры Warp, оттачивая свое мастерство и устанавливая новые рекорды.Тип издания: RePackРазработчик: TrapdoorЖанр: Arcade / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41D6426F165EB4DBB2915E5B027C25DB210CD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477302   (86042) от 02.04.2012
 
 Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
@@ -6,7 +32,7 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -40,7 +66,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -67,7 +93,7 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -95,7 +121,7 @@ Mortal Kombat Ultimate HD M.U.G.E.N (P) [En] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -121,7 +147,7 @@ Dustforce [En] (RePack) 2012 | Anonymous
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -148,7 +174,7 @@ Blade Kitten (Р) [Ru] 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -175,7 +201,7 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -201,7 +227,7 @@ Panic In The Woods (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -227,7 +253,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -253,7 +279,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -279,7 +305,7 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -305,7 +331,7 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -331,7 +357,7 @@ Hex Gambit: Respawned (2024) [Ru/Multi] (1.0.34+9115b5b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -357,7 +383,7 @@ The Knight Witch (2022) [Ru/Multi] (59.40571) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +409,7 @@ Tchia (2024) [Ru/Multi] (1.0/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -409,7 +435,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Scene Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -435,7 +461,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -461,7 +487,7 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,7 +513,7 @@ ONE PIECE: PIRATE WARRIORS 4 (2020) [Ru/Multi] (1.0.8.0/dlc) Scene Rune [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -513,7 +539,7 @@ STAR WARS: Battlefront Classic Collection (2024) [Ru/Multi] (20240319/dlc) Repac
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -539,7 +565,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,7 +591,7 @@ PJ Masks Power Heroes: Mighty Alliance (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -591,7 +617,7 @@ War Tortoise (2024) [Ru/Multi] (10000) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,7 +643,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -643,7 +669,7 @@ Shadow Strikers (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -654,32 +680,6 @@ Shadow Strikers: Arena of Rivals - захватывающий файтинг, п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB0B08759973C72CD5DB835816BD32692B366090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714970   (60061) от 11.04.2024
-
-South Park: Snow Day! (2024) [Multi] (70374/dlc) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60061.jpg" />
-</div>
-
-
-###  Подробнее
-
-South Park: Snow Day! перенесет вас в хаотичный, заснеженный мир Южного парка в роли Нового ребенка. Это снежный день, самый волшебный день для любого ребенка, но снежная буря стала причиной не только закрытия школы. Объединитесь со знакомыми лицами Картмана, Стэна, Кайла и Кенни в совершенно новом, полностью 3D-приключении.Тип издания: RepackРазработчик: QuestionЖанр: Экшены, ПриключенияЯзык озвучки: Английский, Французский, Немецкий, ПортугальскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D1E304B1FEB423BA3D5E4B47954F916604257A
 ```
 
 https://mybot314.ru/tekegram_catalog/

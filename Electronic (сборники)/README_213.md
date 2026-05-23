@@ -1,3 +1,178 @@
+###  Публикация: 482292   (99707) от 15.04.2012
+
+VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. N.T.K. - Eternya 09:44
+ 02. Prahlad - Shantified (Smoke Sign rmx) 07:24
+ 03. Pop Art - Declaration Of A Nation 07:44
+ 04. Funk Truck - Overall (original mix) 07:39
+ 05. Ace Ventura - Genesis (Flegma & Nerso remix) 07:01
+ 06. Zyce & Nok - Wonderland (Unseen Dimensions remix) 07:17
+ 07. Unseen Dimensions - Airglow 06:42
+ 08. Gandulk & Odiseo - Time To Listen 07:39
+ 09. North Sector - Raw 06:56
+ 10. Flegma & Nerso - Sensei 07:56(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482288   (99693) от 15.04.2012
+
+VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Frost Raven - Points of Interest (Nimerix's Fullon mix) 08:20
+ 02. Hanzo - My World 06:08
+ 03. Shyisma - Slot 06:58
+ 04. Virtual Attack - Can't Stop 06:57
+ 05. Solar Spectrum - Space Travellers 07:26
+ 06. Day.Din - The Radio Star (original mix) 07:17
+ 07. Project Sketch - With A Herring 08:02
+ 08. Vice - With In (Phaxe Remix) 08:00
+ 09. DNA - Signal 5 (original mix) 07:08
+ 10. Potter And Neelix - On The Run (Fusi And Johnson remix) 08:13(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481321   (99328) от 12.04.2012
+
+VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Orion Signs - I Believe In Other Earth 08:25
+ 02. Aviron - Tonal (original mix) 07:08
+ 03. Smoke Sign - Out Of Body (original mix) 07:41
+ 04. Interactive Noise And Fabio And Moon - Coming Home Late 06:56
+ 05. Elevated Mix - Humidity Gro 07:23
+ 06. Principles Of Flight - Sputnik (White Russian edit) 07:44
+ 07. Inner Peace - Nothing Really Dies 06:46
+ 08. Rocky - Largetto (Gaudium remix) 07:45
+ 09. Felucia - Fly In The Sand 08:40
+ 10. Dimension X - Eyeless 11:30(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479095   (99284) от 11.04.2012
+
+Various Artists - Tranceffect 9 (2011) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto Vs Bastian - Dark Side of the Moon ({am} Extended Mix)
+ 02. Max Denoise - Sestrelia ({am} Extended Mix)
+ 03. Sunny Lax - Viva La Revolucion
+ 04. Faruk Sabanci feat. Antonia Lucas - No Way Out (Temple One Remix)
+ 05. Akira Kayosa & Hugh Tolland Feat Stine Grove - Always With You ({am} Extended Mix)
+ 06. Chakra - Love Shines Through ({am} Extended Mix)
+ 07. Federation - Innocent Desire (Phil Taylor Remix)
+ 08. Jordan Suckley - Flames (Sneijder 1AM Remix)
+ 09. Etasonic - One Thousand Miles To Moscow ({am} Extended Mix)
+ 10. DJ Dani & Luke Terry - Hope Is Gone(   Читать дальше...   )2011Жанр: Trance, Vocal TranceПродолжительность: 04:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91C67319043AAC00491FC859A08AB2FD952FC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479991   (99100) от 09.04.2012
+
+VA - In Da Club Vol.60 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Signum - Shamisan (Shogun Remix)
+ 002. Sean Tyas - Banshee
+ 003. Rafael Frost - Smash (Original)
+ 004. Veracocha - Carte Blanche (Alex M.O.R.P.H. Remix)
+ 005. Vertruda - Night Highway (Original)
+ 006. The Waves - Sakura (Luigi Lusini & Thomas Schwartz Mix)
+ 007. Pulser - In My World (Activa Remix)
+ 008. Orjan Nilsen - Shoutbox! (Cressida Remix)
+ 009. Ruben de Ronde - Forever In Our Hearts (Danny Chen Remix)
+ 010. Ray Costa - Rainy Days (Original)(   Читать дальше...   )2012Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB593E61996F2E170A1C6501DBDBB031BF40728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479946   (99007) от 08.04.2012
 
 VA - Trance Eve Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
@@ -6,7 +181,7 @@ VA - Trance Eve Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -41,7 +216,7 @@ VA - Easy Listening (2012) [MP3|320 кб/с]<Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -76,7 +251,7 @@ VA-Trance Eve Volume 24 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +286,7 @@ Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +321,7 @@ Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -181,7 +356,7 @@ VA - Big City Trance Volume 24 (05.04.2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +391,7 @@ Various Artists - Tranceffect 14 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -251,7 +426,7 @@ VA - Master Plan 2011 (2012) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -286,7 +461,7 @@ Various Artists - Tranceffect 16 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +496,7 @@ VA - Klubnye novinki Vol.58 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -356,7 +531,7 @@ VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -389,7 +564,7 @@ VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +597,7 @@ VA - Trance Cookbook Vol.22 (2012) [MP3|320 кб/с]<Uplifting Trance,Vocal Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +632,7 @@ VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -492,7 +667,7 @@ VA - House Vip (24.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +702,7 @@ VA - House Vip (26.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +737,7 @@ VA - House Vip (25.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -597,7 +772,7 @@ VA - Клубные Новинки Vol.57 from AGR (2012)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -632,7 +807,7 @@ VA - Klubnye novinki Vol.54 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -667,7 +842,7 @@ VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -702,7 +877,7 @@ VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -722,179 +897,6 @@ VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BBA65DA366CB75581C8A0E7196DC26C2CC39AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473773   (97809) от 27.03.2012
-
-VA - Dub Step vol.7 from AGR (2012) [MP3|256 kbps]<Dub Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cee - Mix Killa
-02. Meat Beat Manifesto - Less
-03. Shackleton - I Am Animal
-04. L-wiz - Lady Smilin
-05. Syncom - Beyond The Stars (SD Mix)
-06. Bass Clef - Life's Great In E8
-07. Deadbeat - Babylon Correction (feat. Paul St. Hilaire)
-08. Horsepower Productions - Damn It
-09. Boxcutter - Grub
-10. Goth - Trad (Cut End)(   Читать дальше...   )2012Жанр: Dub StepПродолжительность: 08:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3231220E6F4DB728207741F4B7849A6D930A17C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473798   (97795) от 27.03.2012
-
-VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geiom - Reminissin (feat. Marita)(Shackleton Refix)
-02. Alert - Any Less Dead
-03. Schaut! - Spacey Dub Chill
-04. Anstam - Aeto 2
-05. Boxcutter - Glyphic
-06. Mala - Changes
-07. Scorn - Super Mantis
-08. Silkie - Techno 22
-09. Vexd - Thunder
-10. George Lenton - Troll(   Читать дальше...   )2012Жанр: Dub StepПродолжительность: 08:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6785C069099DA21E9C529BEE66F557A30C8D6037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473210   (97758) от 27.03.2012
-
-VA - V2-GD [by Pack Master Ex.Mu.] (22.03.2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Maestropiano - Mad Radio Receiver (Original Mix) (03:40)
-02 - Atomic - Missile (Original Mix) (04:10)
-03 - BadKlaat - Head Top (Original Mix) (05:01)
-04 - Venture - Venom (Original Mix) (04:44)
-05 - Vylex - Super 9 (Original Mix) (05:02)
-06 - Bukez Finezt - Hungry Bowser (Original Mix) (04:57)
-07 - Balthazar - Eclipse (Original Mix) (04:52)
-08 - Addergebroed Feat. Maksim - Bodypop (Original Mix) (04:06)
-09 - BadKlaat - Freq Skank (Requake Remix) (04:38)
-10 - Habstrakt - My Culture (Addergebroed Remix) (04:40)22.03.2012Жанр: DubstepПродолжительность: 04:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200B867ADB20DE10B184ACA27BF01B8AF9949D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473405   (97661) от 25.03.2012
-
-VA - Trancern 33.4: Official Compilation (25.03.2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97661.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trancern 33.4: Official Compilation (25.03.2012)
-Год: 25.03.2012
-Жанр: Trance, Vocal Trance, Uplifting Trance
-Продолжительность: 03:34:09Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Andrew Rayel - 550 Senta (Aether Mix)
-002. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD886DAAB1D7FF788EB4A8E1713922F2C10DB0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471650   (97570) от 24.03.2012
-
-VA - HouseVip  (16.03.2012) [MP3|320 кб/с]<Electro house>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97570.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bootik, Tony Romera & Nick Mentes – Printemps 24 (Original Mix) (6:40)
- 2. Borgore – Flex Ft. Shay (4:33)
- 3. Chemical Brothers, Miles Dyson, Elite Force - Swoon Anthem (RVMPD) (7:00)
- 4. Copernico - I Believe (DJ Sequence Remix) (4:28)
- 5. Enzo Saccone Feat Mariela Adriana Donnaruma - Otra Vez (Extended Mix) (5:41)
- 6. Eva - Body On Mine (Mixin' Marc & Tony Svejda Peak Hour Dub) (5:30)
- 7. Hot Pink Delorean - Surf's Up (6:07)
- 8. Mohombi - In Your Head (La Clique & Jean Maxwell Extended Remix) (6:28)
- 9. Replug - Let's Rock (Steve Velocity All Smiles Remix) (6:25)
- 10. Telman and Audio Bastardz - Skyscraper (Club Mix) (5:45)16.03.2012Жанр: Electro houseПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6EC0CDE769A1E6CF7A5C3CE07563E686CB7540
 ```
 
 https://mybot314.ru/tekegram_catalog/

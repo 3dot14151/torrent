@@ -1,3 +1,85 @@
+###  Публикация: 1443290   (1027277) от 08.03.2021
+
+Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyclopedia [Updated Dec 2020] (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Энциклопедию Blender, самый полный учебный курс охватывающий все аспекты Blender, полностью бесплатного 3D пакета. Новейшая серия релизов версий 2.8x является самым большим обновлением на сегодняшний день, со многими новыми функциями и улучшениями.Производство: Udemy, CG MastersЖанр: 3D моделирование, Анимация, ШейдингПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 58:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83062CFE2F8A4419F00F9D98BBD8236DCBDDB0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453030   (1027159) от 09.03.2021
+
+Stephen Silver | Advanced Character Design (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы изучите дизайн персонажа на углубленном уровне, поэтому если вы уверены, что освоили основы, то будьте уверены - этот курс для вас.
+В курсеПроизводство: SchoolismЖанр: Создание видеоПродолжительность: 15:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD7AC651F07817361DD393A1BAD7358CEA1B71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454176   (1026516) от 13.03.2021
+
+Sephiroth Art | Gumroad collection - Tutorials & Brushes (2019) HDTV [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Коллекция уроков и поэтапных рабочих видео процесса отрисовки.
+
+Коллекция охватывает следующие темы:
+- Изометрическая казуальная графика(   Читать дальше...   )Производство: Sephiroth ArtЖанр: Обучающее видео, уроки, кистиЯзык озвучки: АнглийскийПродолжительность: 44:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C453813392F2C3CDEC9410B6707242F54C60CE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454454   (1026370) от 14.03.2021
 
 Mark Fancher | Rigid Body Destruction (2020) PCRec [En, Ru]
@@ -6,7 +88,7 @@ Mark Fancher | Rigid Body Destruction (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +115,7 @@ David Lesperance | Introduction to Game Art (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +271,7 @@ Thiago Klafke | Making an Office Environment in Unreal 4 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +324,7 @@ CGAim, Вячеслав Богданов | Intro в Blender (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +353,7 @@ Skillbox | 3D-аниматор с нуля до PRO (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +382,7 @@ Knower School | Игровая модель топора (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +410,7 @@ CG Cookie, Jonathan Lampel | Основы цифрового освещения 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +437,7 @@ Udemy | Создание персонажа в Blender 2.83 для игр / Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +464,7 @@ School xyz, Игорь Зверев | Hyper Casual (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +491,7 @@ Udemy | Blender Academy (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +517,7 @@ Skillbox, Лиза Ревзина и др. | UX-дизайнер с нуля д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -461,7 +543,7 @@ Udemy, Mrawan Hussain | Создание Jeep Willys MP 1942 от начала �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +570,7 @@ Help4d, Андрей Доронин | Базовый курс по Cinema 4D: А
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,7 +596,7 @@ Udemy, Mrawan Hussain | Создание и риггинг реалистичн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,7 +623,7 @@ Udemy, Mrawan Hussain |  Создание и риггинг Железного �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -568,7 +650,7 @@ WingFox, Maria Anikina | Создание реалистичных волос в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -594,7 +676,7 @@ ArtStation, Rico Cilliers | Скульптинг органики в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,84 +688,6 @@ ArtStation, Rico Cilliers | Скульптинг органики в Blender 2.9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C49436D823E07AAD271842BD5E0D402BBF8CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462479   (1021150) от 14.04.2021
-
-Jan Urschel | Введение в движок рендеринга Octane для Blender 2.83 / Intro to Octane for Blender 2.83 (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устали от рендеринга с Cycles и Eevee в Blender? Попробуйте Octane! Этот урок представляет собой введение в плагин Octane для Blender 2.83 и то, как я использую его в рабочем процессе концепт-дизайна. Я уже упоминал, что плагин бесплатный?!?!?Производство: GumroadЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 02:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5397FDB0A0E10B5838A8F94433A5DE3317AF551E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462388   (1021093) от 14.04.2021
-
-WingFox, Gavin O'Donnell | Стилизованная иллюстрация - Из Blender 2.90 в Photoshop / Stylised Illustration - Blender 2.90 to Photoshop Process (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021093.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уроке я покажу вам, как я перевожу свои идеи из 3D в 2D в дружественной для начинающих форме. Я также расскажу об освещении, кадрировании и создании прочной основы для закрашивания в Photoshop.Производство: WingFoxЖанр: 3D моделирование, РисованиеЯзык озвучки: АнглийскийПродолжительность: 14:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B4C3B417976DE2CD61EACFA54ADD8B53D5D1EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462616   (1020939) от 15.04.2021
-
-CG Cookie, Jonathan Lampel | Основы текстурирования в Blender 2.9 / Fundamentals of Texturing in Blender 2.9 (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как работает текстурирование в Blender? От текстур изображений и марринга до PBR и процедурного текстурирования - этот видеокурс научит вас текстурировать любую 3D-модель.Производство: CG CookieЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 09:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989DE2628B436CE9966419CE10B513E6D932B879
 ```
 
 https://mybot314.ru/tekegram_catalog/

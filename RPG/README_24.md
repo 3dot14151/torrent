@@ -1,3 +1,81 @@
+###  Публикация: 1040783   (585120) от 06.08.2016
+
+Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мальчик Коробо, как и любой ребенок его возраста, любит играть и обладает живым и богатым воображением. В один прекрасный день он пускается в небольшую погоню за стаей крыс, которых он обнаружил в своей комнате. Неожиданно он находит корону, надев ее, он стремительно переносится в волшебную страну и становится, судя по головному убору, полноправным ее правителем. (   Читать дальше...   )Тип издания: LicenseРазработчик: Marvelous, Inc.Жанр: RTS, Fantasy, RPGЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3868FE66790D5238335916647139D330DA7BF90A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040828   (585091) от 06.08.2016
+
+Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мальчик Коробо, как и любой ребенок его возраста, любит играть и обладает живым и богатым воображением. В один прекрасный день он пускается в небольшую погоню за стаей крыс, которых он обнаружил в своей комнате. Неожиданно он находит корону, надев ее, он стремительно переносится в волшебную страну и становится, судя по головному убору, полноправным ее правителем. (   Читать дальше...   )Тип издания: RepackРазработчик: Marvelous, Inc.Жанр: RTS, Fantasy, RPGЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B120082DC8273A73E48C34EC9D787ED5EA65BB3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184750   (584945) от 11.05.2019
+
+Titan Quest (2016) [Ru/Multi] (2.1/dlc) License PLAZA [Anniversary Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Titan Quest - Anniversary Edition, мифический набор, из которого так и рвётся наружу отполированный до блеска эпоc оригинальной экшен/RPG и дополнения The Immortal Throne. В эпоху древних богов, полководцев и царей страна, охваченная бедствием, молила о герое... То есть, о вас!Тип издания: LicenseРазработчик: THQ Nordic, Iron Lore EntertainmentЖанр: RPG (Rogue, Action), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CA7CDB6B0FB79A3AE73DCC05A75B0579F1D7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233722   (577512) от 01.07.2018
 
 Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.5.16.6) License PLAZA
@@ -6,7 +84,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.5.16.6) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Final Fantasy XIII-2 / Final Fantasy 13-2 (2014) [Ru] (1.0/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Children of Zodiarcs (2017) [En] (1.0.0.4) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Two Worlds (2007) [Ru/En] (1.07/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Children of Zodiarcs (2017) [Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ ICY (2015) [En] License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Pathologic 2 (2019) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Anima: Gate of Memories (2014) [Ru/Multi] (1.0) Repack Valdeni
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Xuan-Yuan Sword EX: The Gate of Firmament (2016) [En/Multi] (1.0) Repack АRMENI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Kyn (2015) [En/De] License FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ ICY (2015) [En] (1.0) Rip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Fall of the Dungeon Guardians (2015) [En/Multi] (1.0e) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Rage of the Battlemage (2016) [Ru/Multi] (1.0) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.2.6.3610r) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmente
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Blood & Gold: Caribbean! (2015) [Ru/En] (2.065/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ ATOM RPG - это постапокалиптическая инди-игра, в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2DE40E5B2189BC1B3F6AB5E687E8568D5C36C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305312   (556892) от 30.05.2019
-
-City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556892.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Медный город» — это беспощадная rogue-lite игра в восточной стилистике «1001 ночи». Ваш герой вооружен саблей и кнутом. С помощью кнута можно цепляться и задействовать механизмы, обезвреживать ловушки и оглушать врагов, разбивать предметы и просто атаковать врагов. Бейте и рубите, побеждайте толпы мертвецов силой и хитростью. Ваша задача — успеть добраться до следующего (   Читать дальше...   )Тип издания: RepackРазработчик: Uppercut Games Pty LtdЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726F9A8D7F81B19169D81D615B1048CC158CD79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153751   (556690) от 28.07.2017
-
-Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие в игре Yonder разворачивается на большом острове под названием Гемея. Его обширные просторы разделены на восемь областей, среди которых вы найдете и тропические пляжи, и заснеженные горные хребты. Каждая область отличается уникальной флорой и фауной, сменой времен года, а также дня и ночи. Гемея когда-то была настоящим раем на земле. Но теперь это только (   Читать дальше...   )Тип издания: RepackРазработчик: Prideful SlothЖанр: Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF2F11C0617B3D2B38D458B80960A08355BBE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305626   (556342) от 31.05.2019
-
-Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Король Теней проклял славный город Ледовицу. Под действием проклятья вечной мерзлоты его бывшие жители восстали из мёртвых в образе безумных призраков. Выжившие спрятались глубоко под землёй, откуда ведут отчаянную борьбу против этой неземной силы. Силы неравны, поэтому они вынуждены скрываться, пока Король Теней продолжает собирать армию нежити над ними.Тип издания: LicenseРазработчик: Devespresso GamesЖанр: Приключение, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6CFFEEF03149A71CB50542F6E4D9E5C1568E3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

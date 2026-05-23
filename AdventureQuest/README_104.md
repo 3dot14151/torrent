@@ -1,3 +1,107 @@
+###  Публикация: 1791010   (21787) от 11.04.2025
+
+The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь в невероятно красивый мир интригующих загадок и философских размышлений в The Talos Principle: Reawakened. Издание Definitive Edition предлагает вам снова поучаствовать в захватывающей истории The Talos Principle, отправившись в путешествие по дополненному и переработанному миру симуляции.Тип издания: RepackРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DF9E24E7408AE467C0F466C917BE276902DECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791008   (21772) от 11.04.2025
+
+The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь в невероятно красивый мир интригующих загадок и философских размышлений в The Talos Principle: Reawakened. Издание Definitive Edition предлагает вам снова поучаствовать в захватывающей истории The Talos Principle, отправившись в путешествие по дополненному и переработанному миру симуляции.Тип издания: RepackРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD8102BD0274A74EA758A67BD6DB384CC1D36CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758567   (21681) от 12.04.2025
+
+Dave the Diver (2023) [Ru/Multi] (1.0.4.1637/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: RepackРазработчик: MINTROCKETЖанр: Adventure, CasualЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05B1DB78FFD859F9535C8B790CF5A274E2DBF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791329   (21595) от 13.04.2025
+
+Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Готовы окунуться в лето, которое никогда не кончается? Тогда хватайте свои плавки и айда на Острова Венеры. В Venus Vacation Prism вы не просто турист - вы здесь главная заводила, босс курорта, вокруг которого вьются шесть красоток, каждая - как звезда с обложки. Только учтите, что вас ждут определённые сложности. Каждое ваше «да» или «нет» может обернуться то фейерверком (   Читать дальше...   )Тип издания: RepackРазработчик: Team NinjaЖанр: Adventure, First person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2CE47B52A350B672538BDD235D2713A705C2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756712   (21094) от 18.04.2025
 
 Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
@@ -6,7 +110,7 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Biped (2020) [Ru/Multi] (2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0 Build 8682/dlc) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Brassheart (2025) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Fort Solis (2023) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Blackwell Epiphany (2014) [En] (3.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Shivah (2013) [En] (3.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Resonance (2012) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Blackwell Convergence (2009) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +578,7 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Empty Desk (2025) [Ru/Multi] (1.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793757   (20230) от 26.04.2025
-
-Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы верите в сверхъестественное? Главный герой игры, видеограф Василий Панин тоже не верил, пока не оказался в старой советской квартире, посреди ночи. Он получил задание - снять поминки, которые продлятся до утра. Люди будут приходить и прощаться с покойным и всё это нужно запечатлеть на пленку. Однако, когда Василий попадает в квартиру он понимает, что выхода из (   Читать дальше...   )Тип издания: RepackРазработчик: REVVALUTION StudioЖанр: Инди, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C88EE88387217E6B609352B5647C9A5573D85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771234   (20226) от 26.04.2025
-
-Firmament (2023) [Ru/Multi] (2.0.8) Repack Let'sРlay [The Keepers' Bundle]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firmament - новая игра-приключение с загадками от легендарной студии, создавшей хиты Myst и Riven. Глубокий сюжет и тщательно проработанные детали погрузят вас в атмосферу покинутого мира, где вас будут ждать загадки 3 уникальных земель… и не только! Игра окутана уникальной стимпанк-эстетикой, которая сразу же захватит ваше внимание своей красотой и загадочностью. (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan Worlds IncЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C900DDEA1036A1B8288B77AF59097645E59E093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793934   (20105) от 27.04.2025
-
-True Fear: Forsaken Souls Part 3 (2025) [Ru/Multi] (1.1.1:11) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20105.jpg" />
-</div>
-
-
-###  Подробнее
-
-True Fear: Forsaken Souls Part 3 завершает популярную трилогию триллеров с затягивающей механикой point-and-click, сложными головоломками и жуткой атмосферой. Получите ответы на все вопросы, встретьтесь с демоном семьи Стоунхаус и прочувствуйте незабываемый финал этой хоррор серии.Тип издания: RepackРазработчик: Goblinz Enterprises LtdЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B493DDE02724561BAC601CFECC807C726947744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794033   (20083) от 27.04.2025
-
-In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20083.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Nightmare - это повествовательная приключенческая игра в жанре платформера с элементами квеста и хоррора. Она рассказывает о мальчике, ищущем любовь, который спасает себя, преодолевая свой страх. Окунитесь в леденящий душу мир фантазий и ужасов. Убежав от реальности, наш главный герой погружается в глубокий сон и оказывается в кошмарном мире сновидений.Тип издания: RepackРазработчик: Magic Fish GamesЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6DC6D240E95CEEDF68838D0B7B0AC141ECCE9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

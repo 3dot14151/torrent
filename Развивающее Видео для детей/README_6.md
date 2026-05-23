@@ -1,3 +1,55 @@
+###  Публикация: 393327   (434748) от 27.09.2011
+
+Говорим без ошибок (85-106 серии) (2007-2008) SATRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Куда доведёт тебя твой язык? Что такое "райские кущи"? Километр с "гаком" - это сколько? Что такое "с гуся вода", и вообще - с "гусЯ" или с "гУся"? С этими и многими другими трудностями русского языка школьникам помогут разобраться самые настоящие филологи.Куда доведёт тебя твой язык. Со многими трудностями русского (   Читать дальше...   )Производство: РоссияЖанр: Детский, Видеоуроки, ОбучающийРежиссер: Родион СоловьёвПеревод: Не требуетсяПродолжительность: 22 x ~00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2411F593F6D34416AE559D9025E8590DFD9AA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 393948   (430339) от 29.09.2011
+
+Говорим без ошибок (107-128 серии) (2007-2008) SATRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Куда доведёт тебя твой язык? Что такое "райские кущи"? Километр с "гаком" - это сколько? Что такое "с гуся вода", и вообще - с "гусЯ" или с "гУся"? С этими и многими другими трудностями русского языка школьникам помогут разобраться самые настоящие филологи.Куда доведёт тебя твой язык. Со многими трудностями русского (   Читать дальше...   )Производство: РоссияЖанр: Детский, Видеоуроки, ОбучающийРежиссер: Родион СоловьёвПеревод: Не требуетсяПродолжительность: 22 x ~00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B24F0856835E6410AEFF0FBF29ADB6793F3FD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 394316   (427858) от 30.09.2011
 
 Говорим без ошибок (129-150 серии) (2007-2008) SATRip
@@ -6,7 +58,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ InternetUrok | Чтение 1-4 класс (2011-2013) WEB-DLRip [H.264]
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ InternetUrok | Основы Безопасности Жизнедеятельн�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ InternetUrok | Окружающий мир 1-4 класс (2011-2013) WEB-DLRip 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ InternetUrok | Природоведение 5 класс (2011-2013) WEB-DLRip [
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +296,7 @@ InternetUrok | Литература 5-11 классы (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +323,7 @@ InternetUrok | Обществознание 6-11 классы (2011-2013) WEB-DL
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +350,7 @@ InternetUrok | География 6-10 классы (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +377,7 @@ InternetUrok | Химия 8-11 класс (2011-2013) WEB-DLRip [H.263/H.264]
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +404,7 @@ InternetUrok | Биология 6-11 классы (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +431,7 @@ InternetUrok | Информатика 5-11 класс (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +458,7 @@ InternetUrok | Математика для начальных и средних 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +485,7 @@ InternetUrok | Русский язык 1-9, 11 классы (2011-2013) WEB-DLRi
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +512,7 @@ InternetUrok | Английский язык 2-11 классы (2011-2013) WEB-D
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +539,7 @@ InternetUrok | Физика 7-11 класс (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +566,7 @@ InternetUrok | История 5-11 классы (2011-2013) WEB-DLRip [H.263/H.2
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +593,7 @@ InternetUrok | Алгебра и Геометрия 7-11 класс (2011-2013) 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7B5147F76C124185407C8E0D7958B7625765FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949220   (376395) от 23.10.2015
-
-Foxford | Программирование Java и Android, 9-11 классы (2014) CamRip [H.264]
-
->>След.
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376395.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части курса вы изучите базовый синтаксис Java, а так же глобальные идеи, стоящие за этим языком. Во второй части рассмотрим некоторые детали организации самого процесса разработки. А в третьей части курса будет обсуждаться разработка приложений для мобильной операционной системы Android - самой актуальной и развивающейся темы в программировании на сегодняшний (   Читать дальше...   )Производство: Фоксфорд / FoxfordЖанр: Программирование, Java, AndroidПродолжительность: 60:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FD756D1BD9AD6905D1EF3EA6A44921A9D1AAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949070   (376392) от 23.10.2015
-
-Foxford | Язык Python для начинающих,6–8 классы (2015) PCRec [H.264]
-
->>След.
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376392.jpg" />
-</div>
-
-
-###  Подробнее
-
-На занятиях этого курса вы будете изучать основы программирования на языке Python — от написания простейших программ в одну строку до написания игр.В курс включено изучение языка программирования как такового,его необходимых конструкций и возможностей.Вы научитесь реализовывать основные алгоритмы на языке Python и поработаете с графикой.Python — отличный язык для (   Читать дальше...   )Жанр: Phyton, программированиеПродолжительность: 36:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979ADD441FC2E2D33EF0200F0AC6D47756E4A317
 ```
 
 https://mybot314.ru/tekegram_catalog/

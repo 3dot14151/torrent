@@ -1,3 +1,353 @@
+###  Публикация: 1175495   (378460) от 18.10.2017
+
+Растровый клипарт - Оверлеи для оформления фотографий и бэкграундов. Часть 1 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник авторских оверлеев для быстрого оформления фотографий, фото-коллажей, создания бэкграундов, а также для оформления открыток, флайеров, постеров, баннеров и другого материала.Формат: PNGРазрешение файлов: 3600x2400, 5184x3456
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93624B6DD1ACF19531B5FA88467F931791FC846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415168   (378244) от 11.10.2020
+
+Экшены - GraphicRiver - XPRESSION | Watercolor Painting PS Action - 28522608 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«XPRESSION Watercolor Painting» - превратит ваши фотографии в потрясающие акварельные рисунки за несколько кликов. В результате вы получите очень реалистичный эскиз с большим количеством настроек.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1374C35F25566D53C8D758B1713F93BA5C3D686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415138   (378243) от 11.10.2020
+
+Звуковые библиотеки - Q Up Arts - California Keys [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клавишных инструментов:The Fazioli 10ft grand,Rhodes, Wurlitzer, Vox, FARFISA and Hammond organs,
+Мы записали этот великолепный инструмент в объемном звучании с 11 каналами микрофонов.
+Пианино представлено в стерео и объемном исполнении.
+Вы найдете эти инструменты чрезвычайно проигрываемыми и вдохновляющими.(   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKC, NKI, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23F7B9C3B93B4369E41997325010926C2E585B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415163   (378111) от 11.10.2020
+
+Экшены - GraphicRiver - Art Oil Painting Photoshop Action - 26513615 [ATN, TPL, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Art Oil Painting» - картина маслом, простое в использовании действие фотошоп превратит ваши изображения в шедевр художественного полотна. Лёгкость в настройках для улучшения конечного результата.Формат: ATN, TPL, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5892618F2115D0BA888CB397322BBB112F2D83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175617   (378056) от 18.10.2017
+
+Футажи - Tommy Video Backs - All Volumes [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Tommy Video Backs - All Volumes" - неофициальный сборник из 680 футажей-бэкграундов, охватывающий огромный спектр графических жанров от абстракции до медицины. Диапазон применения данных бэков так же довльно обширен, будь то конференции, презентации или спортивные мероприятия, концерты.Формат: MOVРазрешение файлов: 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AACE6F3928DB998F84754F463AA366095B2035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415370   (378018) от 11.10.2020
+
+Текстуры - CGAxis - PBR Textures Volume 1 – Stones [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+PBR Textures Volume 1 - Stones - это коллекция из 100 PBR-текстур камней, стен, тротуаров и бетона.
+Не полный сборник 13шт из 100.Формат: PNGРазрешение файлов: 4096x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A771F2E5F7121A671798AD8537A422D2170102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834431   (377641) от 25.10.2014
+
+Стили ProShow Producer - Collage Motion 3 (New Year) [PXS]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Зима близко" (Нед Старк).
+
+Стиль Collage Motion 3 (New Year)  для создания ваших новогодних или зимних роликов.Формат: PXS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84573A120D039AC536863D1379000F4D8C05050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254051   (377065) от 12.10.2018
+
+Экшены - JessicaDrossin - JD Special Effects [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+JD Special Effects - блёстки, светящаяся пыль и  светлячки, превосходный набор действий для качественного результата в создании красивых изображений - за короткое время, которое требуется для редактирования вручную.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B98C7738C0F7D9C65ED12A94EBFA16B84FAAED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949208   (377048) от 23.10.2015
+
+Векторный клипарт - Vintage backgrounds [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Декоративные шаблоны для дизайна.
+6 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2638603B472609EA5CD7480827253289218312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949207   (376892) от 23.10.2015
+
+Векторный клипарт - Vintage backgrounds with patterns [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Декоративные шаблоны для дизайна.
+9 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1B53AAAC14FFF17CE20B57DCD5559AF010C9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949203   (376883) от 23.10.2015
+
+Векторный клипарт - Luxury vintage vector backgrounds [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Роскошные винтажные векторные фоны.
+Декоративные шаблоны для дизайна.
+AI 8 | EPS 25 | + JPG PreviewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF4A3882F4E5E87E4D76250E3277089BFD70B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949204   (376731) от 23.10.2015
+
+Векторный клипарт - RETRO CARS [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ретро авто в векторе.
+6 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1082BD954497600BF9FE62A41D659DEE6DECE391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327298   (376377) от 24.09.2019
+
+Boom Box Library - ROBOTIC CREATIONS: HEADS UP DISPLAY SOUND DESIGN TOOLKIT [WAV, KONTAKT]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Библиотека звуковых эффектов Heads Up Display - это первый выпуск коллекции Robotic Creations. Каждая библиотека из коллекции Robotic Creations содержит звуковые эффекты, разработанные для соответствия пяти различным персонажам-роботам с их уникальными звуковыми характеристиками.
+Эти наборы инструментов для звукового дизайна включают в себя библиотеку SFX и специальное (   Читать дальше...   )Формат: WAV, KONTAKT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08353FA122205D456A8AA6512D741616BE3BCFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175711   (375863) от 19.10.2017
 
 Шаблоны - Шаблон фотокниги для новорожденного - Прелестный малыш [PSD]
@@ -6,7 +356,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +384,7 @@ Digital Juice - Ready2Go: Collection 21 (AE) (.djprojects)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +493,7 @@ Red Room Audio - Palette Symphonic Sketchpad v1.1 [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +598,7 @@ VideoHive, GraphicRiver, AudioJungle - Envato Bundle 2012 - 50 Premium Items Col
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -338,351 +688,6 @@ Clone - это умный плагин Photoshop, позволяющий лег�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A88D2F20D0665275C3BCF6BA424FAEB91F4072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415723   (373646) от 13.10.2020
-
-Скрипты - GraphicRiver – Vector Converter - Avatar - Photoshop Plugin - 25184547 [JSX]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертируйте фото в вектор за считанные минуты!
-Avatar 2.0 - это вторая расширенная многоязычная версия плагина «Avatar» для Photoshop, который позволяет конвертировать любое растровое изображение в векторный стиль и полностью редактируемые настоящие векторные формы. Теперь вы можете векторизовать что угодно! И даже больше… Наслаждайтесь! Первая версия плагина здесь. (   Читать дальше...   )Формат: JSX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6027D51AEF236E5A27EA640EA1EDD38A4C6ACA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069542   (372855) от 04.11.2016
-
-Футажи - VideoHive - Water Splash Pack - 12359650 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Water Splash Pack - 8 качественных футажей всплесков воды с прозрачным фоном.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C89EE274F85A37919BD784568AE06341C038D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254500   (372536) от 14.10.2018
-
-Экшены - Creative Market - Abstract Art Photoshop Action - 2776178 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abstract Art - экшен фотошоп с эффектом современной абстракции для вашего творчества. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1108F5BE6B58E56678814DF3D00082F5A792588A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254576   (372530) от 14.10.2018
-
-Экшены - GraphicRiver - WaterColor 3 IN 1 Bundle Photoshop Action - 22618267 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор действий фотошоп поможет преобразить ваши снимки наложением всевозможных удивительных профессиональных эффектов. После завершения работы экшена, конечный результат - полностью редактируемый, хорошо организованные слои / папки, и у вас есть полный контроль над ними, чтобы настроить свою работу по своему усмотрению.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75594D31E44B6C03931A5963A3903CDD0B8AB683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949968   (372323) от 25.10.2015
-
-Векторный клипарт - Seamless texture in the style of Damascus [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные текстуры в стиле Дамаск.
-11 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9470C4B485696810E9CD1B15F03C065295200598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327616   (372263) от 26.09.2019
-
-GraphicRiver - Tablet Pro Music App - 24696159 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальное приложение Tablet Pro Music - это макет, который может представить iPad Pro под разными углами, который вы можете использовать для своего дизайна.Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E80B94C43D5F65439574BECC1914307232C4BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 721536   (372189) от 11.11.2013
-
-Векторный клипарт - Год 2014-5 / Year 2014-5 [AI,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 2014Формат: AI,EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A14BE0A4CDB480946EA9FFA36EE1CCDBE7FD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327620   (372152) от 26.09.2019
-
-GraphicRiver - Note10 Kit - 24696269 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Note10 Kit Kit - это набор макетов , который представляет Galaxy Note 10 под разными углами, который вы можете использовать для своего дизайна.Формат: PSDРазрешение файлов: 4000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C21A7F5AC7EFD347588E6EF044A094F6A07CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950297   (372068) от 25.10.2015
-
-Векторный клипарт - Stock vector Vintage labels set [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор старинных этикеток.
-12 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46948A8106CEA63B3F57A9CCB93820C62B72885D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 721403   (372046) от 11.11.2013
-
-Векторный клипарт - Визитные карточки со смокингами / Tuxedo cards [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визитки со смокингами и котелками.
-Пригодятся настоящим джентльменамФормат: EPS с превью
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A3EC42875697FE80BCBE8D2D1827509E6595AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327622   (371996) от 26.09.2019
-
-Polaroid Scene creator [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polaroid Scene creator - это набор макетов , который представляет Polaroid, который вы можете использовать для своего дизайна.Формат: PSDРазрешение файлов: 2500x1669
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E08DE86B6493501C6566587AC2ECF3F9B161A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949987   (371969) от 25.10.2015
-
-Цифровые декорации - Призрачные явления / AtmosFEARfx - Ghostly Apparitions (2013) DVD5
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371969.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Цифровые декорации для любых случаев", - гласит слоган компании AtmosFX. Конкретно этот диск приурочен к празднику Хэллоуин и содержит компьютерную анимацию различных призраков.
-Предусмотрено 3 режима работы диска:
-* отображение на обычном мониторе/телевизоре,
-* проекция на стену,(   Читать дальше...   )Производство: AtmosFXЖанр: Анимация, КороткометражныйПеревод: ОтсутствуетПродолжительность: 64 ролика, от 00:00:12 до 00:02:19 каждый
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A95B48C68EA4123712D1EB9F7A91162FDCB9DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176248   (371906) от 21.10.2017
-
-Экшены - GraphicRiver - Wall Splatter Photoshop Action - 17253767 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wall Splatter - экшен фотошоп с эффектом красочных брызг. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C792B6432F53CF5F288953520867D9F46F50AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

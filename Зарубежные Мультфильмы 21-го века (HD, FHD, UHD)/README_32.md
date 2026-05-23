@@ -1,3 +1,81 @@
+###  Публикация: 1381893   (824103) от 08.05.2020
+
+Проект Альфа / Appleseed Alpha (2014) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Действие посвящено боевой биографии Дюнан и Бриарея до попадания в Олимп.Производство: Япония, США / Sola Digital Arts, Stage 6 Films, Lucent Pictures EntertainmentЖанр: Мультфильм, боевик, приключения, фантастикаРежиссер: Синдзи АрамакиПеревод: Многоголосый профессиональный, двухголосый закадровый (UKR)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12A8BCB85A9339F3A5FFD8EEFB681C0B6718D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116213   (824086) от 19.03.2017
+
+Лови волну 2 / Surf's Up 2: WaveMania (2017) WEB-DL [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+История о целеустремленном пингвине-серфингисте Коди Маверике. Вместе с бесславной командой он отправляется на поиски таинственного побережья, где, по легенде, бушуют самые крутые волны в мире. Но способны ли они затмить всё то, что оставил Коди ради них?Производство: США, Sony Pictures Animation, WWE StudiosЖанр: Мультфильм, Комедия, Семейный, СпортРежиссер: Генри ЮПерсонажи: Джон Сина, Марк Колэуэй, Пол Левески, Сарая-Джейд Бевис, Винс МакМахонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3C381B19C764E41CE043486CCA43F23A54ED2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881368   (824068) от 25.03.2015
+
+Песнь моря / Song of the Sea (2014) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о последней «селки» - мифическом существе, которое может перевоплощаться из тюленя в человека, и его путешествии к морю.Производство: Ирландия, Дания, Бельгия, Люксембург, ФранцияЖанр: Рисованная анимация, ПриключенияРежиссер: Томм МурПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: АнглийскийПродолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A19EAE4EE31D062BC1B7C7473A55BB5C83B767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 881400   (823950) от 25.03.2015
 
 Песнь моря / Song of the Sea (2014) BDRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -116,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -304,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_820431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -515,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F63D0456484BB2182A302B659C01E313489526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503870   (817496) от 20.10.2021
-
-100% Волк / 100% Wolf (2020) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фредди Люпин, потомственный наследник династии оборотней, попадает в большой конфуз, когда на его 13-й день рождения он вместо устрашающего волка превращается в... пуделя. Сможет ли Фредди вылезти из своей розовой шкуры и доказать, что он — настоящий волк?Производство: Австралия, Бельгия / Create NSW, Flying Bark Productions, Lotterywest, ReDefine, Screen Australia, ScreenWest, Siamese, Studio 100, The New South Wales GovernmentЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Алекс СтадерманнАктеры: Илай Суинделлс, Магда Шубански, Риз Дэрби, Акмаль Сале, Джейн Линч, Джай Кортни, Кэм Ральф, Лайам Грэхэм, Самара Уивинг, Лорен ГрэйПеревод: Дублированный (Баритон)Субтитры: АнглийскиеПродолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F80F8FAB574D2573A986F6B554A512D69A65534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197089   (816877) от 06.01.2018
-
-Тэд-путешественник и тайна царя Мидаса / Tadeo Jones 2: El secreto del Rey Midas (2017) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тэд, не самый удачливый и ловкий исследователь и путешественник, и его странноватые друзья, в числе которых настоящая мумия и смышленый пес Джефф, отправляются на розыски злобного богача Джека Рэкхема, похитившего Сару. Любимая Тэда обнаружила, где спрятаны сокровища легендарного царя Мидаса, и злодей надеется их заполучить. Но Тэд и его команда должны разрушить (   Читать дальше...   )Производство: Испания / Ikiru Films, Institut Catala de les Empreses Culturals (ICEC)Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Давид Алонсо, Энрике ГатоАктеры: Оскар Барберан, Мишель Хеннер, Адриана Угарте, Луис Посада, Мигель Анхель Хеннер, Хосе Корбачо, Росер Баталья, Рафаэль Калво, Давид Брау, Франческ БельдаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18D94448B9EC9535DCBEB3609C7D766B80F33E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382686   (816835) от 12.05.2020
-
-Вперёд / Onward (2020) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-эльфы Иэн и Барли Лайтфуты живут в волшебном мире, населенном троллями, гоблинами, гномами, кентаврами и единорогами. Когда-то их мир переполняла магия, но те времена прошли, и теперь сказочные существа летают на самолетах, пользуются автомобилями, и ведут в целом прозаичную жизнь. Однако неожиданная находка приводит к тому, что братья решают отправиться в (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дэн СкэнлонПеревод: дублированный (DUB iTunes)Субтитры: русские, английскиеПродолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90284B49039C4975C8614018E84634671127C2BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

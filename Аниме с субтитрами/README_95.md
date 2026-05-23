@@ -1,3 +1,108 @@
+###  Публикация: 736429   (223969) от 20.12.2013
+
+Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Древнее государство Парро пало от набега коварных и воинственных монгаулов. Королевская семья уничтожена, лишь в последнюю минуту придворный маг успевает телепортировать «две жемчужины» - младших принца и принцессу Ремуса и Ринду - в безопасное место. Увы, в горячке боя промашка вышла - наследники парросского престола попали не к родственникам, а в лес Руд, пользующийся (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Вакабаяси АцусиСубтитры: •Продолжительность: 26 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD2422EBCEE140B58AA2E9BD792BEE4C43C0E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501668   (223101) от 29.11.2021
+
+Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истребитель демонов: Поезд «Бесконечный» [ТВ] [2021, TV, 7 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Завершив оздоровительные тренировки в Доме бабочки, Тандзиро и его друзья отправляются выполнять новое задание. На поезде «Бесконечный» творится что-то неладное: в одночасье там исчезает более 40 человек! А значит, Тандзиро, Нэдзуко, Иносукэ и Дзэницу предстоит сразиться с могущественным демоном. Присоединившись к одному из сильнейших мечников, пламенному столпу (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 7 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715DA5474A1058755034AC31C4824941C3518F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965966   (221622) от 16.12.2015
+
+One Punch Man: Road to Hero / Ванпанчмен: Путь к становлению героем [2015, OVA, 1 эп.] DVDRip 576p Raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Вы устали от запоминания супер-атак и бесконечных доспехов, но душа просит адреналина и драк? Тогда эта новая экшен-комедия от студии Madhouse для вас!
+Главный герой не размахивает мечом, не выкрикивает боевой клич и вообще не отличается ничем особенно героическим. Всё в этом молодом человеке по имени Сайтама так и вопит: «заурядный» — и его лысая голова, и его хилое (   Читать дальше...   )Производство: Madhouse StudiosЖанр: приключения, комедияРежиссер: Нацумэ СингоСубтитры: РусскиеПродолжительность: 1 серия по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3072871032981E381DF470BAD2274F85FFB442C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342955   (221295) от 04.12.2019
+
+Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+После авиакатастрофы четыре старшеклассницы оказываются на необитаемом острове. Здесь нет ничего, поэтому они сами должны делать всё! И поедать всё (бе-е-е)! Хоть это и история выживания, но на самом деле у девушек всё хорошо. Пускай жизнь на необитаемом острове и включает в себя поедание цикад, создание солнцезащитного крема, изготовление ножей, охоту на кроликов (   Читать дальше...   )Производство: студия EzolaЖанр: приключения, комедияРежиссер: Нагаяма НобуёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B2F320091A95CB2A3E7A10B29E25CF54437EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543088   (221232) от 22.10.2022
 
 Tiger & Bunny 2 | Тигр и Кролик 2 [2022, Web, 25 эп.] WEBRip 1080p raw+eng
@@ -6,7 +111,7 @@ Tiger & Bunny 2 | Тигр и Кролик 2 [2022, Web, 25 эп.] WEBRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Hajimari no Boukensha-tachi: Legend of Crystania | Legend of Crystania: The Moti
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Levius | Левиус [2019, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +191,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. + OVA] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +217,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -139,7 +244,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +270,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Как я стала мальчиком-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +296,7 @@ Ninja Collection / Коллекция ниндзя [2020, TV, 13] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -219,7 +324,7 @@ Bungou Stray Dogs (2016) | Великий из бродячих псов [ТВ-2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +350,7 @@ Bloodivores | Кровопийцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +376,7 @@ The Big O | Большой О [1999, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +402,7 @@ Yuukai Anna | Anna (Kidnapper) | Анна-похитительница [2018, Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +428,7 @@ Mirai Nikki (2011) | The Future Diary | Дневник будущего [ТВ] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +454,7 @@ Angel Densetsu | Angel Legend | Легенда об Ангеле [1996, OVA, 2 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +480,7 @@ Dragon Ball GT / Dragonball GT / Драгонболл ГТ [1996, TV, 64 + sp] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +509,7 @@ Dragon Ball / Dragonball / Драгонболл [1986, TV, 153] DVDRip 540p Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -434,7 +539,7 @@ Dragon Ball Z / Dragonball Z / Драгонболл Зет [1989, TV, 291 + 2 SP
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -462,7 +567,7 @@ Gundam-san | Гандам-сан [2014, TV, 13 из 13] HDTV 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -488,7 +593,7 @@ Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -515,7 +620,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -541,7 +646,7 @@ Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -568,7 +673,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,110 +684,6 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E02D33C8E87FA019DFEE0D2E27BFBDCF459F031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251755   (213784) от 18.12.2018
-
-Souten no Ken: Regenesis 2 | Кулак синих небес: Перерождение [ТВ-2] [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Божественный кулак северной звезды — совершенное боевое искусство, что передавалось от мастера единственному преемнику. Оно берёт своё начало 1800 лет назад. Когда надобность в нем отпала, его прозвали учением бога смерти. Но в тридцатые годы XX века спокойствие мира вновь оказалось под угрозой, и Северной звезде придётся напомнить о себе. Продолжение истории.Производство: Polygon PicturesЖанр: приключенияРежиссер: Kazumi YoshioПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240DAEA502455DECE1ABB2F478F567FA7034AE3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344101   (213684) от 09.12.2019
-
-Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве духов (фильм первый) [1993, Movie] BDRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступили летние каникулы и Юсуке и Кувабарой наслаждаются свободным временем, занимаясь одним из своих любимых увлечений - ввязываются в групповые бои. Тем не менее, их отпуск подходит к концу, когда появляется Ботан и говорит им, что лорд Кёнма, принц мира Духов, был похищен. Похитители требуют Золотую печать в качестве выкупа - эта печать такая мощная, что даже (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: приключения, фэнтезиРежиссер: Абэ НориюкиПеревод: Юрий ЯворовскийЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDF192AFD18AADCF2F1C9C60A58B4820F9B8BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344102   (213679) от 09.12.2019
-
-Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie - Poltergeist Report | Отчет о буйстве духов (фильм второй) [1994, Movie] BDRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Духовный мир затоплен из-за необычного дождя, который переполняет реку Сандзу, лорд Кёнма чувствует приближение чрезвычайно сильного врага. Он доверяет богу смерти Ботан доставить духовному детективу Юсуке таинственный предмет, который должен быть защищен от вторгшегося врага. Однако к тому времени, когда Ботан находит Юсуке, она слишком слаба, чтобы объяснить (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: приключения, фэнтезиРежиссер: Иидзима МасакацуПеревод: Юрий ЯворовскийЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 93 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD615AC9A56F841C04B4AC87C1FC781992212E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344100   (213623) от 09.12.2019
-
-Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве духов [1992, TV, 112 из 112] BDRip 1080p 10-bit raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213623.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой истории главный герой погибает в самом начале… Неожиданно? Вот и на том свете не ожидали и не подготовили места для Юсукэ Урамэси, грозы города и вечного прогульщика школьных занятий. Явившаяся к призраку Юсукэ проводница душ по имени Ботан сообщила, что двери в рай и ад для него закрыты. И теперь у парня выбор – остаться неприкаянным духом или пройти испытание, (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: приключения, комедия, фэнтезиРежиссер: Абэ НориюкиПеревод: Юрий Яворовский, EterniaЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 112 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAEB47B9D5ABA89DE3CB6CCE9672461F4CB0B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

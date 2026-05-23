@@ -1,3 +1,109 @@
+###  Публикация: 1339571   (265320) от 20.11.2019
+
+Быть или не быть / To Be or Not to Be (1942) BDRip [H.264] [Criterion Collection]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в Польше до и во время немецкой оккупации. В одном театре Варшавы работают муж и жена — Йосиф и Мария Тура. Ставят антинацистскую пьесу, но ее запрещают, и приходится играть «Гамлета». Чрезвычайно тщеславный и ранимый Йосиф Тура играет самого принца датского, один из зрителей, молодой и красивый летчик, встает и уходит из зала в самый ответственный (   Читать дальше...   )Производство: США / Romaine Film CorporationЖанр: комедия, военныйРежиссер: Эрнст ЛюбичАктеры: Кэрол Ломбард, Джек Бенни, Роберт Стэк, Феликс Брессарт, Лайонел Этуилл, Стэнли Риджес, Сиг Руман, Томас Дж. Дуган, Чарльз Хэлтон, Джордж ЛиннПеревод: Дублированный, МногоголосыйСубтитры: Русские, АнглийскиеПродолжительность: 01:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92598C182D027BBB07CE1E113032E4EA33DD6F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187148   (265084) от 12.12.2017
+
+Соглядатай / Peeper (1975) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Пародия на фильмы о частных детективах 40-х годов, поставленная по книге Кита Лаумера «Упавший замертво». Майкл Константин нанимает сыщика, чтобы найти его давно пропавшую дочь: она должна унаследовать его деньги. Тот берется за дело, но ему постоянно мешают профессиональные убийцы. Поиски приводят сыщика в странную семейку прикованной к кровати матери, дочерей, (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Комедия, ДетективРежиссер: Питер ХайамсАктеры: Майкл Кейн, Натали Вуд, Китти Уинн, Майкл Константин, Тэйер Дэвид, Тимоти Кэри, Лиам Данн, Дон Кэлфа, Марго Уинклер, Харви Дж. ГолденбергПеревод: Многоголосый, двуголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91A2029E98E0B0EC32606593FA92F29817180E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266793   (264887) от 08.12.2018
+
+Манон с источника / Manon des sources (1986) BDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть экранизации романа Марселя Паньоля "Вода с холмов". Сюжет фильма «Жан де Флоретт» продолжается спустя примерно 15 лет.
+Манон было 8 лет, когда её отец-горбун умер, так и не найдя воду на своей земле. Ферму по дешевке прибирает семья Субейранов, когда-то специально засыпавшая источник.
+Восемнадцатилетняя красавица-пастушка Манон, уединенно живущая (   Читать дальше...   )Производство: Швейцария, Италия, Франция / DD Productions, Films A2, Radiotelevisione Italiana (RAI), Renn ProductionsЖанр: ДрамаРежиссер: Клод БерриАктеры: Ив Монтан, Даниель Отой, Эммануэль Беар, Ипполит Жирардо, Маргарита Лосано, Ивонн Гами, Тикки Ольгадо, Жан Бушо, Элизабет Депардье, Габриэль БакьеПеревод: Профессиональный (многоголосый, закадровый) CP-DigitalПродолжительность: 01:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655655C3085328F34396339A61A1199987665868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337648   (264491) от 21.11.2019
+
+Сияние / The Shining (1980) BDRip [US Director's Cut] [REMASTERED]
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — Джек Торренс — приехал в элегантный уединенный отель, чтобы поработать смотрителем во время мертвого сезона вместе со своей женой и сыном. Торренс здесь раньше никогда не бывал. Или это не совсем так? Ответ лежит во мраке, сотканном из преступного кошмара.Производство: США, Великобритания / Warner Bros., Hawk Films, Peregrine, Producers CircleЖанр: Ужасы, Триллер, Драма, ДетективРежиссер: Стэнли КубрикАктеры: Джек Николсон, Шелли Дювалл, Дэнни Ллойд, Скэтмэн Крозерс, Бэрри Нельсон, Филип Стоун, Джо Тёркел, Энн Джексон, Тони Бертон, Лия БелдамПеревод: Дублированный (Пифагор) + вставки MVO (Киномания)Субтитры: отсутствуютПродолжительность: 02:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6F8BFECE1CF3CAFBCB5F3E2D75AF4BC95BD678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191460   (264415) от 13.12.2017
 
 Короли солнца / Kings of the Sun (1963) DVDRip [H.264]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -572,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1684E704450868E5AD80E10EA1002B950359A977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503698   (260005) от 31.05.2012
-
-Последний император / The Last Emperor (1987) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был повелителем миллиарда человек. Ему было уготовано «десять тысяч лет счастья». Но мир древних традиций рухнул под напором века перемен… В 1908 году трехлетний Пу И, последний из династии, тысячи лет правившей «Поднебесной империей», был возведен на Трон Дракона. К императору-ребенку относятся как к божеству. Он может делать все, кроме одного - покидать пределы (   Читать дальше...   )Производство: Китай, Италия, Великобритания, Франция /  Recorded Picture Company (RPC), Hemdale, Yanco Films LimitedЖанр: Драма, Биография, ИсторияРежиссер: Бернардо БертолуччиАктеры: Джон Лоун, Джоан Чэнь, Питер О’Тул, Ин Жочэн, Виктор Вонг, Деннис Дун, Рюити Сакамото, Мэгги Хань, Рик Янг, Вивиан У, Кэри-Хироюки Тагава, Джейд ГоПеревод: Профессиональный многоголосый закадровый (Cinema Prestige)Субтитры: Русские, Английские (отдельно)Продолжительность: 02:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09379BD7C87FB30FCD8B5A7A9C7EDDCBD580D9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502997   (259967) от 31.05.2012
-
-Принц и танцовщица / The Prince and Showgirl (1957) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало прошлого века, Лондон. На коронацию нового короля прибыли многочисленные гости, среди них принц-регент королевства Карпатия Чарльз. Чтобы развлечься, он инкогнито посещает кабаре «Театр Авеню», где за кулисами знакомится с хорошенькими хористками. Одна из них, Элси, хотя и не обучена хорошим манерам, но может многому научить высокомерного принца…Жанр: Комедия, МелодрамаРежиссер: Лоуренс ОливьеАктеры: Мэрилин Монро, Лоуренс Оливье, Сибил Торндайк, Ричард Уоттис, Джереми Спенсер, Эзмонд Найт, Пол Хардвик, Розамунд ГринвудПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F5C85F693A0708F0F653C8412F3B6B28184C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503121   (259949) от 31.05.2012
-
-Иеремия Джонсон / Jeremiah Johnson (1972) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина XVIII-гo века. Иеремия Джонсон оказывается вдали от цивилизации, зимой в Скалистых горах северной Америки, где ему суждено выжить и полюбить этот суровый край. Он научится преодолевать суровые зимы, побеждать дикого медведя, выучит язык враждебно настроенных индейцев и женится на дочери вождя племени…Жанр: Драма, ВестернРежиссер: Сидни ПоллакАктеры: Роберт Редфорд, Уилл Гир, Делле Болтон, Джош Альби, Хоакин Мартинес, Эллин Энн МакЛери, Стефан Гираш, Ричард Ангарола, Пол Бенедикт, Чарльз Тайнер...Перевод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635FFA8573EF0EBD51ABCD765A9A5450EE295D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503906   (259936) от 31.05.2012
-
-Пленки Андерсона / The Anderson Tapes (1971) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отсидев десять лет в тюрьме за кражу, неисправимый вор Джон Андерсон выходит на свободу и сразу принимается за старое. Он едет к своей давней возлюбленной Ингрид, чтобы погостить в ее шикарной квартире, а заодно и обворовать всех ее зажиточных соседей. Вор не знает одного — в престижном доме установлена коварная система аудио и визуального наблюдения, которая записывает (   Читать дальше...   )Жанр: триллер, драма, криминалРежиссер: Сидни ЛюметАктеры: Шон Коннери, Дайан Кэннон, Мартин Болсам, Ральф Микер, Алан Кинг, Кристофер Уокен, Вэл Эйвери, Дик Энтони Уильямс, Гаррет Моррис, Стэн Готтлиб, Пол Бенджамин, Энтони Холланд, Ричард Б. Шалл, Конрад Бэйн, Маргарет Хэмилтон, Джудит Лоури, Макс Шоуолтер, Джанет Уорд, Скотт Джейкоби, Норман Роуз, Мэг Майлс, Джон Колл, Рауль Краушар, Джон Браден, Пола Трумен, Майкл Б. (   Читать дальше...   )Перевод: Профессиональный двухголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932193964B8813182412C5ECF7D2933597662002
 ```
 
 https://mybot314.ru/tekegram_catalog/

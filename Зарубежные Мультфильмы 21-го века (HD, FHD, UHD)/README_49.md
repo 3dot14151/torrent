@@ -1,3 +1,81 @@
+###  Публикация: 677555   (673468) от 09.07.2013
+
+Эрнест и Селестина: Приключения мышки и медведя / Ernest et Celestine  (2012) Blu-Ray [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Большая дружба начинается с малого… Она — маленькая мышка, он — огромный медведь. Она — ребенок, он — взрослый. Она мечтает быть художницей, хотя по правилам своего мира должна стать дантистом, он — музыкант и поэт, ведущий бездумную жизнь и никогда не имеющий куска хлеба на завтра. Они живут в разных мирах: для обитателей мышиного царства нет ничего более дикого, (   Читать дальше...   )Жанр: МультфильмРежиссер: Стефани Обье, Венсан Патар, Бенжамин РеннерАктеры: Ламбер Вильсон (Ernest, озвучка), Полин Бруннер (Celestine, озвучка), Энн-Мари Луп (La Grise, озвучка)Перевод: ДублированныйСубтитры: Русские, ФранцузскиеПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EFA85C6ED032270083F6CDB3E3A020C4C916D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797778   (672841) от 20.06.2014
+
+Ранго / Rango (2011) BDRip [1080p] [hand made 60fps] [Extended Cut]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Ранго — хамелеон, который живет в террариуме и считает себя героем, которому, к сожалению, никак не удается проявить свое бесстрашие. Но когда он внезапно оказывается в городке Грязь, у него появляется такая возможность. Ранго провозглашает себя борцом за справедливость и начинает вести себя как шериф на Диком Западе. Он еще не знает, что быть «хорошим парнем» в (   Читать дальше...   )Производство: СШАЖанр: Компьютерная анимация, Комедия, ПриключенияРежиссер: Гор ВербинскиПерсонажи: Джонни Депп, Айла Фишер, Эбигейл Бреслин, Нед Битти, Альфред Молина, Билл Найи, Стивен Рут, Гарри Дин Стэнтон, Тимоти Олифант, Рэй УинстонПеревод: ДублированныйЯзык субтитров: Rus (форс.), Rus (полные), Eng (полные)Продолжительность: 01:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657EDBC5A5DBEE1795835C0D5E8D43244CB18E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797780   (672735) от 20.06.2014
+
+Ранго / Rango (2011) BDRip [720p] [hand made 60fps] [Extended Cut]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Ранго — хамелеон, который живет в террариуме и считает себя героем, которому, к сожалению, никак не удается проявить свое бесстрашие. Но когда он внезапно оказывается в городке Грязь, у него появляется такая возможность. Ранго провозглашает себя борцом за справедливость и начинает вести себя как шериф на Диком Западе. Он еще не знает, что быть «хорошим парнем» в (   Читать дальше...   )Производство: СШАЖанр: Компьютерная анимация, Комедия, ПриключенияРежиссер: Гор ВербинскиПерсонажи: Джонни Депп, Айла Фишер, Эбигейл Бреслин, Нед Битти, Альфред Молина, Билл Найи, Стивен Рут, Гарри Дин Стэнтон, Тимоти Олифант, Рэй УинстонПеревод: ДублированныйЯзык субтитров: Rus (форс.), Rus (полные), Eng (полные)Продолжительность: 01:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5C1D889D65F403DFF92A1C249B8B413257044F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 899384   (672728) от 19.05.2015
 
 Безграничный Бэтмен: Животные инстинкты / Batman Unlimited: Animal Instincts (2015) BDRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82049ECD692875CBA19DEE2DFFE630E83E6739E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139317   (659808) от 02.06.2017
-
-Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город - Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, ДанияЖанр: Приключения, Детский, КукольныйРежиссер: Крис МакКейПерсонажи: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Сири, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (iTunes)Субтитры: русские (форсированные, полные), английские (полные)Продолжительность: 01:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8462C2F9D0924593B2D9A8C603232F1A40C8DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139221   (659718) от 02.06.2017
-
-Тачки 2 / Cars 2 (2011) BDRip [H.265/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молния МакКуин и его друг Мэтр отправляются в международное путешествие — когда МакКуин получает шанс участвовать в соревнованиях для самых быстрых машин в мире, Мировом Гран-При. Этапы этих престижных гонок заведут друзей в Токио, на набережные Парижа, на побережье Италии, и на улицы туманного Лондона.Производство: СШАЖанр: Приключения, Комедия, ДетскийРежиссер: Джон Лассетер, Брэд ЛьюисПерсонажи: Оуэн Уилсон, Ларри Кейбл Гай, Майкл Кейн, Эмили Мортимер, Эдди Иззард, Джон Туртурро, Брент Мусбургер, Джо Мантенья, Томас Кречманн, Питер ДжекобсонПеревод: ДублированныйСубтитры: НетПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87D99456EB3EAEC2763F5D8CAE06BE59C4C01E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902375   (659632) от 29.05.2015
-
-Железный человек и Халк: Союз героев / Iron Man & Hulk: Heroes United (2013) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно Халку не требуется чья то поддержка, чтобы справится с очередным противником и если кто-то решил сразится с ним, то этому глупцу самому придётся звать на помощь. Исключением является новый суперзлодей Ззакс - появившийся на свет в результате ядерной аварии на электростанции, он представлял из себя существо из чистой энергии, способное управлять техникой и (   Читать дальше...   )Производство: США, Marvel Studios, Walt Disney Studios Home EntertainmentЖанр: Компьютерная анимация, ПриключенияРежиссер: Эрик Радомски, Лео РайлиПерсонажи: Железный человек, Халк, Зззакс, МерзостьЯзык субтитров: Русский / АнглийскийПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB1C850C5F1148CDEE04B720CAC666A8B025000
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1844320   (1050038) от 25.12.2025
+
+Проекты - VideoHive - New Year | Countdown | 2026 - 61038427 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Представляю вашему вниманию отличную анимацию «Обратный отсчет до 2026 года!» для ваших творческих задач!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D90D7941C0E5BDB612D5799471DF77E0A57E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844331   (1050029) от 25.12.2025
+
+Проекты - VideoHive - Christmas Card - The Santa Claus Comes - 61047912 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Christmas Card - The Santa Claus Comes — это волшебная и трогательная анимированная видеооткрытка для After Effects, которая оживляет самую любимую рождественскую историю. Высококачественная 3D-анимация показывает, как Санта-Клаус на своих санях прибывает в заснеженный дом, чтобы оставить подарки под сияющей елкой.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960483EDAFCAA7D4354DCEB55EA718749F956D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844353   (1050013) от 25.12.2025
+
+Проекты - VideoHive - Happy New Year Greetings 2026 - 61050659 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+New Year Greetings 2026 — это яркий, динамичный и по-настоящему праздничный шаблон для After Effects, созданный, чтобы ворваться в новый год с максимальной энергией и блеском. Эффектное сочетание золотых акцентов, вспышек фейерверков, стильной современной типографики и абстрактных праздничных элементов создает атмосферу торжества и радостного предвкушения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42296D640345F81EF7322183D2A663147F1DC69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844464   (1049942) от 26.12.2025
+
+Проекты - VideoHive - Vertical Christmas Intro Pack - 61052879 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Vertical Christmas Intro Pack — это идеальный набор из нескольких атмосферных и уютных интро, созданных специально для вертикального формата социальных сетей. В эпоху TikTok, Reels и YouTube Shorts важно захватывать внимание зрителя с первой секунды, и этот пак блестяще справляется с задачей, погружая аудиторию в магию Рождества и Нового года прямо с экрана смартфона.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC58FD4D1B900D4EE04A2119882158B5602BA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844491   (1049932) от 26.12.2025
 
 Проекты - VideoHive - Christmas Box - 61078853 [AEP]
@@ -6,7 +110,7 @@
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спортивные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Christmas Opener — это сказочный и вдохновляющий ш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:105A1E875CBDBA5E063AA25900803DDAADBAB145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843470   (1049403) от 20.12.2025
-
-Проекты - VideoHive - Shredded Paper Transitions - 60997925 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shredded Paper Transitions — это динамичный и фактурный набор переходов для After Effects. Эффект бумаги, разрезанной шредером на полосы, добавляет видеоряду агрессивную динамику, гранжевую эстетику и ощущение физического взаимодействия с материалом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106E4DF01515E734A1B31E9FFE8F08E0B7553483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843307   (1049247) от 19.12.2025
-
-Проекты - VideoHive - Countdown Timeline - 60884123  [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Countdown Timeline — это стильный и функциональный шаблон для After Effects, объединяющий эстетику временной шкалы с динамикой отсчета времени.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90CC969FA312922310E0841BFB466CB37F733E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843340   (1049222) от 19.12.2025
-
-Проекты - VideoHive - Biological Intro - 60980177 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Biological Intro — это завораживающий и высокотехнологичный шаблон для After Effects, который погружает зрителя в таинственный микромир. Реалистичная анимация клеток, молекул ДНК и органических частиц создает атмосферу серьезных научных исследований и передовых медицинских технологий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE1DA8C61C8877A918E7956BAA3B1368963D8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843137   (1049149) от 18.12.2025
-
-Проекты - VideoHive - YouTube End Screen Promo Pack - Modern Outro and Subscribe Templates - 60883143 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте привлекательные финальные заставки для своих видео на YouTube с помощью этого современного и динамичного набора шаблонов для финальных заставок YouTube. Разработанный для авторов контента, каналов и брендов, этот шаблон поможет вам расширить аудиторию с помощью профессиональных призывов к подписке, превью следующего видео и ссылок на социальные сети.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E20A76D66D166C7646A35713A72E30F4F8F1EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

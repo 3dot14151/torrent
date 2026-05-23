@@ -1,3 +1,55 @@
+###  Публикация: 443734   (317281) от 05.11.2020
+
+Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 эпизодов] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+До чего же самовосприятие может отличаться от мнения окружающих! 15-летняя Савако Куронума – милая и мягкая девушка, желающая людям только добра. Но судьба и родители наградили ее внешностью героини пресловутого «Звонка», и одноклассники считают, что даже столкнуться с «Садако» - дурная примета, а стоит заговорить с ней - будешь проклят навеки. Скромность и застенчивость (   Читать дальше...   )Жанр: романтика, повседневность, школа, сёдзёРежиссер: Кабураки ХироПродолжительность: 00:25 x25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF59568AC0B574BAA5E8EC8193D320D01FD5B8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756470   (317278) от 05.11.2020
+
+Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Полиция Будущего OVA-2 [1990, OVA, 16] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Быстрое развитие технологий привело к созданию и распростронению лейборов – многоцелевых человекоподобных машин. Но с появлением, казалось бы, упрощающей жизнь, новинки в стране возник новый вид преступности. Для борьбы с подобного рода криминалом в Токийской полиции был создан второй специальный отряд для борьбы с преступностью, связанной с лейборами. Так возник (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Ёсинага НаоюкиСубтитры: •Продолжительность: 16 эп., 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CC49A8F80703D2205E3F89D2A6287CAA85989C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 877538   (317185) от 05.11.2020
 
 Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P raw
@@ -6,7 +58,7 @@ Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2015, TV, 24]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Natsume Yuujinchou / Тетрадь дружбы Нацумэ (первый се
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +139,7 @@ Karas /  Crow /  Карас  [2005, OVA,  6 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +165,7 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +194,7 @@ Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +220,7 @@ Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +246,7 @@ Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +272,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +298,7 @@ Project PAPO | Проект ПАПО [2006, OVA, 2 эп.] BDrip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +324,7 @@ Rain Town | Город дождя [2011, ONA, 1 эп.] BDrip 818p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +350,7 @@ Hi no Tori: Houou Hen | Phoenix: Karma Chapter | Жар-птица: Глава �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +376,7 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +402,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последне�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +428,7 @@ Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +456,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +482,7 @@ Hi no Tori 2772: Ai no CosmoZone | Phoenix 2772: Cosmos Zone of Love | Жар-п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +508,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +534,7 @@ Kidou Keisatsu Patlabor Reboot / Mobile Police Patlabor: Reboot / Полиция
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +560,7 @@ Choujikuu Seiki Orguss | Super Dimension Century Orguss | Оргусс [1983, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +587,7 @@ Choujikuu Seiki Orguss 02 | Super Dimension Century Orguss Two: Orguss 02 | Ор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +613,7 @@ Rinne no Lagrange: Kamogawa Days / Сердца твоего цветы [OVA][20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +639,7 @@ Tales of Vesperia: The First Strike / Сказания Весперии: Пер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +665,7 @@ Scryed / Скрайд [2001, TV,  26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,60 +678,6 @@ Scryed / Скрайд Год выпуска: 2001
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F864544AD290F6CFF34EB82903D9891356FC4EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306250   (314916) от 06.11.2020
-
-RahXephon TV / Ра-Зефон [ТВ] [2002, TV 26 эп. ] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314916.jpg" />
-</div>
-
-
-###  Подробнее
-
-RahXephon TV / Ра-Зефон [ТВ] Год выпуска: 2002
-Жанр:  фантастика, драма, романтика, меха
-Тип: TV(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A432F48AF1C5586492B086452FAFDCA3D6BDE5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317355   (314802) от 06.11.2020
-
-Phantom ~Requiem for the Phantom~ / Фантом: Реквием по Призраку [2009, 26 эп. + 12 SP] BDRip 1080p Raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зловещая организация «Инферно» расчищает дорогу к власти, одного за другим устраняя боссов американской мафии руками «Фантома» - легендарного киллера, не ведающего неудач. Кроме имени, о призрачном убийце мало что известно, ведь видевшие его «за работой» уже ничего не расскажут. Но то, что неведомо бывалым бандитам и вездесущим спецслужбам, случайно узнает молодой (   Читать дальше...   )Жанр: приключения, драма, нуарРежиссер: Масимо КойтиПродолжительность: 00:25 x26 + 00:07 x12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78D090606A79A9FE1367F7C415D385A67248F1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

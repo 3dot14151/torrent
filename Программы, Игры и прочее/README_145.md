@@ -1,3 +1,81 @@
+###  Публикация: 1729261   (53734) от 10.06.2024
+
+Погода Live / Weather Live 7.8.5 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Weather Live - красивый, стильный, удобный и функциональный прогноз погоды, что станет настоящим украшением рабочего стола за счёт своих отлично проработанных виджетов. Ну а возможность настроить их и подогнать под свои запросы лишь добавляет положительных впечатлений от Weather Live. Текущая температура, ветер, давление, влажность, осадки и сама вероятность их на (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 27.05.2024Разработчик: Mobile HeroesПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B7F566A08E58C4229F4DC28CCEC668EB580964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729212   (53731) от 10.06.2024
+
+Погода и Виджет - Weawow / Weather & Widget - Weawow 6.2.3 Lite-Mod by jӕzztrӕne [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Weawow - это максимально подробный прогноз погоды на любой интервал времени. Фото, опубликованные пользователями, подбираются под соответствующий прогноз погоды. Благодаря этому вы сможете увидеть предстоящие или текущие погодные условия даже по фотографиям. Также в вашем распоряжении будет анимационная радиолокационная карта: дождь, температура, движение, направление (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 06.06.2024Разработчик: weawow weather appПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C16495FCB4A06D1CF0A3717BC0D2A8DBD58E6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729302   (53730) от 10.06.2024
+
+Windfinder Pro: Wind & Weather 3.30.2 Mod by youarefinished [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Windfinder - вариация известного и популярного способа получения данных о погоде в нужном месте. Проект предлагает пользователям более профессиональную и функциональную платформу, чем обычные ресурсы подобного толка. Тут они найдут анимированную и детально проработанную карту. На ней будут расположены данные об ветре, волнах, приливах, осадках и так далее. Что делает (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.07.2023Разработчик: WindfinderПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FE15133E68BD1CD94F96EF38EBE1EEF68FF36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729233   (53722) от 10.06.2024
 
 Breezy Weather - прогноз погоды 5.2.4 [Ru/Multi]
@@ -6,7 +84,7 @@ Breezy Weather - прогноз погоды 5.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Weather Underground - прогноз погоды 6.17.0 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ MX Player 1.85.1 Mod by AjeethK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Before Launcher | Go Minimal 7.5.0-1172052821 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Nova Launcher Prime 8.0.18 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Knots 360 Pro (3D) v2.8 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +269,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by cvvar00 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +295,7 @@ PicWish: AI Photo Editor v1.6.15 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +322,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +348,7 @@ Minecraft: Pocket Edition 1.21.10.20.BETA Mod by MODAPKOKI [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +400,7 @@ BitTorrent Pro - Torrent App 8.2.7 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +452,7 @@ BIG Launcher 5.3.0 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +504,7 @@ Pro PDF Reader v1.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +530,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +556,7 @@ BitTorrent Pro - Torrent App 8.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +582,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +608,7 @@ ViewBox v1.8.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +634,7 @@ NewPipe Sponsor Block 0.27.0 Mod by N3k1t4_1996 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A02DF881196CBD078B4C9EB97B72E4FB9BCE30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730979   (52933) от 18.06.2024
-
-Smart Launcher 6.4 build 031 Lite-Mod by Number one' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Launcher - лаунчер являющийся одним из самых лучших в своём сегменте за счёт качеств, возможностей и функционала, и как следствие, очень популярным у пользователей мобильных устройств, что предпочитают искать и находить альтернативы стандартному и далеко не идеальному варианту. Людям предлагается максимальное удобство управления, что выливается в возможность (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 14.06.2024Разработчик: Smart Launcher TeamПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FA20DFB34502A134CA59FB1E5ABB2A26BD41E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730994   (52927) от 18.06.2024
-
-Zaycev.net v9.4.0 Mod by Timozhai  [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с Zaycev.net вы сможете не только слушать, но и скачать музыку бесплатно. Слушайте хиты проверенные временем и находите новинки музыки со всего мира. Так, как это удобно именно вам.Тип издания: PremiumРелиз состоялся: 17.06.2024Разработчик: Зайцев.нетПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCC02D2CE25E680166540F8449E416F53B9C8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730977   (52898) от 18.06.2024
-
-Smart Launcher 6.4 build 031 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Launcher - лаунчер являющийся одним из самых лучших в своём сегменте за счёт качеств, возможностей и функционала, и как следствие, очень популярным у пользователей мобильных устройств, что предпочитают искать и находить альтернативы стандартному и далеко не идеальному варианту. Людям предлагается максимальное удобство управления, что выливается в возможность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.06.2024Разработчик: Smart Launcher TeamПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB73294878363931B2842338D1028665AFF5761
 ```
 
 https://mybot314.ru/tekegram_catalog/

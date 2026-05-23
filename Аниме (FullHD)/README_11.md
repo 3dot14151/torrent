@@ -1,3 +1,62 @@
+###  Публикация: 292502   (906730) от 07.02.2011
+
+Heroic Age / Героический Эйдж [2007, TV, 26] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ответив на зов "Золотой расы", 3 расы собрались в одной вселенной ! Человеческая раса была последняя, 4-я раса , которая ответила на их зов и её прозвали "Стальной расой". Много времени прошло с того момента и человечеству угрожает уничтожение от "Серебряной расы". Дабы спасти всё человечество,
+ принцесса Дианейра отправляется на поиски (   Читать дальше...   )Жанр: приключения, романтика, фантастика, меха
+Тип: TV-сериал
+Количество серий: 26
+Продолжительность:  (26 эп.), 25 мин..(   Читать дальше...   )Режиссер: Судзуки Тосимаса
+
+Битрейт видео: 5000 Kbps
+Размер кадра: x264, 1920x1080(   Читать дальше...   )Субтитры: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE70799EF2CE4169E77662A403BE034F0AAED2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369268   (905577) от 22.03.2020
+
+Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается на колонизированном Марсе, примерно через полвека после того как человечество покинуло свою колыбель. В новом мире созданием художественных произведений занимается искусственный интеллект, людям же отведена роль потребителей. В огромном мегаполисе Альба Сити живёт 17-летняя Кэрол, работающая то тут, то там и пытающаяся стать музыкантом, но (   Читать дальше...   )Производство: студия BONES / ボンズЖанр: приключенияРежиссер: Ватанабэ СинъитироПеревод: Nisikino & Kotori & ArjentoЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71002B92399A48DBBCFD3476EC52E6BF68E99AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369277   (905557) от 22.03.2020
 
 Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных сумерках [2018, TV, 12 эп.] BDRip 1080p HEVC 10bit raw
@@ -6,7 +65,7 @@ Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных с�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +91,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +117,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +143,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +170,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +196,7 @@ Ni no Kuni | Другой мир | Вторая страна [2019, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +222,7 @@ Kaijuu no Kodomo | Children of the Sea | Дети моря [2019, Movie] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +248,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +274,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +300,7 @@ Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +326,7 @@ Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +352,7 @@ Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка А�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +378,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +404,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | KonoSuba Movie | Это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +430,7 @@ Wasteful Days of High School Girl | Бездельные дни старшекл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +456,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +482,7 @@ Musekinin Kanchou Tylor | The Irresponsible Captain Tylor | Безответст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +510,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +537,7 @@ Golden Time / Золотая пора [2013, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +563,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +589,7 @@ Denpa Onna to Seishun Otoko | Радиосигнал от чудачки, Юно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +615,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +643,7 @@ Ijiranaide, Nagatoro-san | Don't Toy With Me, Miss Nagatoro | Не издева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +670,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -622,64 +681,6 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0AC7904172C0380841E2196C8472934B08AB92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978974   (890194) от 06.09.2021
-
-Aria the Avvenire | Ария: Будущее [2015, OVA, 3 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонусные овашки к БД-переизданию первых трёх сезонов Арии. Описание первого сезона:
-
-Новая Венеция парит между прозрачно-синим небом и сине-прозрачной водой. По каналам скользят гондолы, над гондолами изогнулись мосты, а над мостами реют чайки…
-(   Читать дальше...   )Производство: Студия TYO AnimationsЖанр: повседневностьРежиссер: Сато ДзюнъитиПеревод: AragamiЯзык субтитров: РусскийПродолжительность: 3 серии по 16 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF19224805AB51586FAA1EDEED366E7DA15367FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494419   (889178) от 07.09.2021
-
-Kud Wafter | Куд Вафтер [2020, OVA] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889178.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОВА продолжает историю второго сезона 'Littel Busters!'.
-Герои сериала возвращаются после экскурсии по домам. В общежитии остаются Кудрявка Номи и Наоэ Рики.
-По воле случая (коммунальная авария с водопроводом) Рики негде переночевать, затопило мужскую половину общаги. А у Номи, как раз, в комнате отсутствует соседка. Звёзды сошлись, что называется.
-Удастся ли им (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключенияРежиссер: Судзуки КэнтароПеревод: ХельшиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 55 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47457BB7889948C52B332ADFA9BF277EE46A3972
 ```
 
 https://mybot314.ru/tekegram_catalog/

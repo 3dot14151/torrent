@@ -1,3 +1,110 @@
+###  Публикация: 1302754   (579075) от 17.05.2019
+
+Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лучшее, что есть в мировом рэпе и хип хопе. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rap & Hip Hop - Intro
+01. 50 Cent - In Da Club
+02. Xzibit & Snoop Dogg & Dr. Dre - X
+03. Down Low - Potion(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 02:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279CA724CFAE2882F6CEC29C1F68C9EEF886FC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360925   (578611) от 09.07.2011
+
+MEDINA - FOR ALTID (2011) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новый сингл Датской певицы  Медины (Medina) - "For Altid" 2011. Датская певица Medina, исполнительница нашумевшего дэнс-хита "You & I", представила свою новую песню "For Altid" пока на датском языке, но в ближайшее время ожидается англоязычная версия песни, которая будет называться Forever. Песня, кстати, очень похожа на её предыдущую работу "Gutter".Жанр: ВидеоклипРежиссер: N/AАктеры: MedinaПеревод: ОтсутствуетПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12C36E37661FCB64FA2FD781A5940836180A6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361253   (576955) от 10.07.2011
+
+Beyonce - Best Thing I Never Had (2011) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сегодня стала доступна еще одна лирическая баллада от мисс Beyonce Knowles - "Best Thing I Never Had"-2011, которая войдет в четвертый сольный альбом Beyonce – "4". Клип снимали на Ямайке. Продюсером трека является Symbolyc One.Жанр: ВидеоклипРежиссер: Энтони МэндлерАктеры: BeyonceПеревод: ОтсутствуетПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA7710EE9F9243308094CB7F54BAD928519AE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361211   (576949) от 10.07.2011
+
+Лед Зеппелин / Led Zeppelin - "Baby, I'm gonna leave you" (1969) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCKАктеры: Led ZeppelinПеревод: ОтсутствуетПродолжительность: 03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A233786D0E6550125ACEA253DE1C46B06EB1304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528494   (573316) от 28.07.2012
 
 Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720p] WEBRip
@@ -6,7 +113,7 @@ Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +194,7 @@ The Eagles - Hotel California (2005) HDTV [MPEG-2/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +278,7 @@ Avril Lavigne - Rock N Roll (2013) HDTV [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +331,7 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -253,7 +360,7 @@ VA - Летний марафон № 178 / Видеоклипы (Зажигат�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -282,7 +389,7 @@ Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -311,7 +418,7 @@ VA - Летний марафон № 179 / Видеоклипы (Зарубеж�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -340,7 +447,7 @@ VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -369,7 +476,7 @@ VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +534,7 @@ VA - Летний марафон № 180 / Видеоклипы (Новинки 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +563,7 @@ Herbie Hancock - Future2Future (2002) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +651,7 @@ Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,7 +680,7 @@ Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,7 +709,7 @@ Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,116 +723,6 @@ Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45ACA999CED0157B17C1D13A94344CACC2A4800E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924887   (536924) от 08.08.2015
-
-Сборник видеоклипов -  русские  Хиты (2015) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов -  русские  ХитыЖанр: PopПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD118C680525476A2906409415B26F87EBFDC26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695887   (535896) от 05.09.2013
-
-Сборник клипов - VA - Various Music part. 45 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Akcent feat. Dollarman - Spanish Lover 2K13 (Notrack edit) (VJ Tony Video Edit) 1080p (3:25)
-2. Alex Gaudino feat. Mario - Beautiful 1080p (3:44)
-3. Alex Hepburn - Under 1080p (4:07)
-4. Alexander Popov - Moscow Subway 1080p (3:45)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C85D6E9034D4CB586502D45F804C8DC8F6AAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365183   (534476) от 24.07.2011
-
-Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Good Quality][Rock][LDRip][2xDVD9]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта двухдисковая версия Greatest Flix I & II - является качественным аппаратным LDRip'ом, сделанным при помощиЖанр: МузыкаПеревод: Не требуетсяФормат: 2xDVD9Продолжительность: DVD1 - 1:13:24 + 0:17:34; DVD2 - 1:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8629057C37CD770ACD1AE1B46FDAEF05FC44F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926553   (533322) от 10.08.2015
-
-VA - Летний марафон № 181 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (10.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alen Hit - My Heart Is Broken (Official Video) (00:04:19)
-2. Aly & Fila with SkyPatrol ft. Sue McLaren Running (Official Video) (00:05:39)
-3. Andrei Leonte - Hesitate To Love (Official Video) (00:03:07)
-4. Austin Mahone - Dirty Work (Official Video) (00:05:12)(   Читать дальше...   )Жанр: Pop, Dance, Latino, House, Indie, Chill OutПродолжительность: 01:35:25 + 00.03.56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9588241D8693541E689D7125CBA78D3362C619
 ```
 
 https://mybot314.ru/tekegram_catalog/

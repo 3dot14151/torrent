@@ -1,3 +1,55 @@
+###  Публикация: 1418842   (346446) от 25.10.2020
+
+NG: Затерянный храм империи инков / Lost Temple of The Inca (2019) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Легендарный археолог Иоганн Рейнхард посвятил свою карьеру поискам затерянных храмов империи инков, обнаружив их все, кроме одного - Аусангате, названного в честь одной из самых почитаемых гор в Перу. Теперь, когда Рейнхарду за семьдесят, он передал эстафету ученому-экологу Престону Соуэллу, раскопавшему древнее сооружение на берегу горного озера возле горы Аусангате, (   Читать дальше...   )Производство: США, Bedrock Film Works, Off the Fence, National GeographicЖанр: Документальный, история, исследованияРежиссер: Джим АйкманПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1821DF20F0A1417BB7A7624BE15FA8668740466B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418844   (346438) от 25.10.2020
+
+NG: Затерянный храм империи инков / Lost Temple of The Inca (2019) WEB-DLRip [H.264/720p-LQ] [PR]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Легендарный археолог Иоганн Рейнхард посвятил свою карьеру поискам затерянных храмов империи инков, обнаружив их все, кроме одного - Аусангате, названного в честь одной из самых почитаемых гор в Перу. Теперь, когда Рейнхарду за семьдесят, он передал эстафету ученому-экологу Престону Соуэллу, раскопавшему древнее сооружение на берегу горного озера возле горы Аусангате, (   Читать дальше...   )Производство: США, Bedrock Film Works, Off the Fence, National GeographicЖанр: Документальный, история, исследованияРежиссер: Джим АйкманПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79819ED0D4FE56991248687014A8D0F315DFEAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257504   (345657) от 26.10.2018
 
 NG. Франциск-бунтарь / Rebel Pope (2016) DVB
@@ -6,7 +58,7 @@ NG. Франциск-бунтарь / Rebel Pope (2016) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +113,7 @@ Discovery: Мятежники ледяного озера / Ice Lake Rebels (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +139,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DL [H.264/1080p] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +165,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DLRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +191,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ NG: Чудеса инженерии / Big Bigger Biggest (2008-2009) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ NGW. Дикий Нил / Wild Nile (2014) HDTVRip [H.264/720p-LQ] (1-3 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ NG: Топ 10 Мегамонстры / Top 10 Biggest Beasts Ever (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Discovery. Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ NG: От колыбели до могилы / Cradle to Grave (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ Discovery: Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ NG. Первая мировая война: тоннели смерти / WWI: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ NGW. Дикая природа Коста-Рики / Wild Costa Rica (2000) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ NGW. Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ NGW. Самая большая в мире белая акула / World's Bigge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CCCF1B7797029F10DC0365CE20C3F2F563C4758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579100   (340788) от 25.09.2022
-
-NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Африканский континент является домом для огромного количества различных видов, но из всех животных и птиц наибольшего почтения заслуживают львы. Это история о трех львиных прайдах, их борьбе за власть на запретной территории. "Болотный" прайд - маленький, но мудрый. "Баобабовый" прайд - более 30 сильных охотников. Прайд "Нджаа" - свирепые (   Читать дальше...   )Производство: Австрия, Германия, США, Франция, Terra Mater Factual Studios, Doclights / NDR Naturfilm, National Geographic, ARTE FranceЖанр: документальный, природа, флора, фаунаРежиссер: Оуэн ПрюммПеревод: дублированный (Велес)Субтитры: английскиеПродолжительность: 3x ~00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE275B6F773A202B566C2F1129DF382BBED76B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257980   (340726) от 28.10.2018
-
-NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/1080p] (сезоны 1-2, серии 1-14)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в путешествие длиною в день, которое покажет дневные и ночные ритмы жизни самых различных уголков мира. Мы увидим, как ведут себя и как живут на протяжении дня уникальные и удивительные животные.Производство: Новая Зеландия, Natural History New Zealand, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Эндрю УотерворфПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818715552C5E0DC69CA506E63E874EE4953EA72B
 ```
 
 https://mybot314.ru/tekegram_catalog/

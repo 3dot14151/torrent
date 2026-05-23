@@ -1,82 +1,12 @@
-###  Публикация: 541134   (501705) от 31.08.2012
+###  Публикация: 537879   (504901) от 28.08.2012
 
-Circle Of Light - Rebirth (2012) [MP3|~256кб/с ]<Hard Rock>
+Mixed Wallpapers (21.08.12) [Wallpapers]
 
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501705.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Circle Of Light (4:20)
-2.  Circus Comes To Town (4:31)
-3.  Sail Into The Heavens (2:42)
-4.  Modern Day Vampire (3:46)
-5.  Rebirth (5:18)
-6.  Rest In Peace (5:06)
-7.  Silent Night (4:47)
-8.  Every Dog Has Its Day (2:50)
-9.  On A Clear Night (2:48)
-10.  Try To Stop Me Now (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6083A325AFE87DD966C44764576C306FF7044122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541692   (501699) от 31.08.2012
-
-VA - Armada Top 15 September (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren Pres. Gaia - J'ai Envie De Toi (7:03)
-02. Markus Schulz feat. Adina Butar - Caught (6:07)
-03. Dash Berlin feat. Chris Madin - Silence In Your Heart (7:16)
-04. Ashley Wallbridge feat. Audrey Gallagher - Bang The Drum (7:31)
-05. Christian Burns & Stefan Dabruck - Bullet (6:18)
-06. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (7:25)
-07. Justin Michael feat. AJ from Saint Motel - Eyes Closed (6:06)
-08. Paul Oakenfold feat. J Hart - Surrender (6:14)
-09. Milan & Phoenix - Istanbul (Not Constantinople) (4:19)
-10. Stefan Dabruck & Tocadisco - Saturn (5:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDAC360F852D958F57697B3628A5FF3D248BCEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541558   (501697) от 31.08.2012
-
-Nature Wallpapers (30.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +16,7 @@ Nature Wallpapers (30.08.12) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:902981529816412871B3D8C483373858D3D9461E
+magnet:?xt=urn:btih:C80AC4957036491FA961FD5D057240C1146B74F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -94,34 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 541492   (501694) от 31.08.2012
+###  Публикация: 539427   (504900) от 28.08.2012
 
-VA - Школьная пора в ритме Hip-Hop (2012) [MP3|320 кб/с]<Hip-Hop, Pop>
+Ships Wallpapers (26.08.12) [Wallpapers]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. С.Семёнов - Маленький школьник (1:27)
-02. Джимми Гидрапон - Школьная пора (1:44)
-03. Школа - Школьный хип-хоп (3:19)
-04. Муза Скат - Выпускник серьезных школ (3:26)
-05. Достала-ла-ла - родная школа (3:30)
-06. Лаки Гёрл Ли - Школа) (3:34)
-07. Дочь монро и кеннеди - моя учительница - гоблин (3:37)
-08. Drake - Куда уходит школьная пора (3:49)
-09. Калининградский Хип-Хоп - Прощай школа (4:38)
-10. Учат в школе - Учат в школе (4:12)Жанр: Hip-Hop, PopПродолжительность: 01:31:35
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E91C6A801655588F07C11CC15870F6DAEF07DCA
+magnet:?xt=urn:btih:61BFC4C90BAFA101AEEA915431414336A6BFBCFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,30 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 539292   (501690) от 31.08.2012
+###  Публикация: 540546   (504899) от 28.08.2012
 
-Eastand - Прошлое должно быть забыто [EP] (2012) [MP3|320 кб/с]<Alternative Metal / Post-Hardcore>
+Термит & Иллюминатор - Новогодний  (2001) [FLAC|Lossless]<Ambient, Chillout>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1. Лишь Слова
-2. Каждый Раз
-3. Вечность
-4. Эхо Февраля
-5. Смысл
-6. Fairytale (Alexander Rybak Cover)Жанр: Alternative Metal / Post-HardcoreПродолжительность: 00:25:29
+Странный симбиоз двух музыкальных начал, породивший в итоге неожиданный результат. Безграничная музыкальная фантазия, уводящая слушателей в эфемерное пространство иллюзий, умело создаваемых музыкантами. Стремительные ритмические завихрения, тесно переплетенные с мягкими мелодиями и атмосферными звуковыми конструкциями, создают завораживающий (гипнотизирующий) музыкальный коктейль. Качественные гитарные и клавишные аранжировки, вкупе с остальными инструментами, смешиваются с космическими напряжёнными шумами. Это придаёт музыке эффект напора, движения вперёд.01. Термит - Белоснежная :: 02:18
+02. Иллюминатор - Ты спишь :: 06:11
+03. Термит - Эдельвейс :: 06:07
+04. Термит - Апрель :: 10:16Жанр: Ambient, ChilloutФормат: Mini-CD, Web trackПродолжительность: 00:24:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E32C3FC20DB04CAF942FEA398B61F6119A85EF5F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +79,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564074   (501678) от 17.07.2022
+###  Публикация: 540362   (504897) от 28.08.2012
 
-Aiseesoft Mac Screen Recorder 2.1.12 [Multi]
+История французских спецслужб [3 серия] / Histoire des services secrets français (2010) SATRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Получите самый простой, но профессиональный способ записи экрана и создания снимков экрана. Aiseesoft Screen Recorder — лучшее программное обеспечение для записи экрана, позволяющее записывать любые действия на компьютере Mac. Он может работать как хороший рекордер видеоигр, захват вызовов Skype, приложение для записи видео YouTube и многое другое для захвата любой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2008-2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+Французские спецслужбы считаются не только старейшими в Европе, но и самыми элегантными и коварными. Фильм студии PROGRAM 33 рассказывает об образовании и истории создания французских спецслужб.
+3 серия - История французских спецслужб. "Серьёзное недопонимание. 1981-1989 г.г"Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC931D3B28FE6047E8004EFE71A2B7155E5D6BBC
+magnet:?xt=urn:btih:B0EFB9B197306D1E22498F053294466E970EB148
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,28 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564008   (501677) от 17.07.2022
+###  Публикация: 539306   (504896) от 28.08.2012
 
-Fellowship - The Saberlight Chronicles (2022) [MP3|320 Kbps] <Symphonic Power Metal>
+Best HD Wallpapers Pack (24.08.12) [Wallpapers]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Until the Fires Die (05:14)
-02. Atlas (04:54)
-03. Glory Days (04:53)
-04. Oak and Ash (04:52)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:02:32
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:880C82ED5C34509593D23DF0763D411C78949151
+magnet:?xt=urn:btih:0B19F16564F3D22CDFEC89CD3E136D2143EFE3AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,194 +132,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564170   (501676) от 17.07.2022
+###  Публикация: 539947   (504895) от 28.08.2012
 
-Eliza Toth - Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Any Video Converter Professional 3.5.0 RePack (& portable) by KpoJIuK [MULTi / Русский]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Trailblaze (00:02:55)
-02 - Oak (00:04:25)
-03 - Love Me Like Water (00:04:13)
-04 - On the Trail (00:03:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7438E458BA2CF7F6E8A893C5C84FFA7C8A52AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564016   (501675) от 17.07.2022
-
-Alestorm - Seventh Rum Of A Seventh Rum (2022) [FLAC|Lossless|image + .cue] <Power Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal).01. Magellan's Expedition (4:39)
-02. The Battle of Cape Fear River (3:06)
-03. Cannonball (3:57)
-04. P.A.R.T.Y. (3:23)(   Читать дальше...   )Жанр: Power Metal, FolkПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60734E813FA423FBCF9AAAEC9FF51D8489A55E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564020   (501674) от 17.07.2022
-
-Fallen Sanctuary - Terranova (2022) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая Power Metal группа FALLEN SANCTUARY, которую возглавляют Georg Neuhauser, фронтмен австрийских симфо-металлистов SERENITY, и Marco Pastorino, гитарист итальянских мелодик-металлистов TEMPERANCE выпустили дебютный альбом  "Terranova" 24 июня 2022 года на лейбле AFM.01. Terranova
-02. Now And Forever
-03. Broken Dreams
-04. Rise Against The World(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B51173DE49A0A4FA08A881971B3FFA06182100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564158   (501673) от 17.07.2022
-
-Это случилось при свете дня / Es geschah am hellichten Tag (1958) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501673.jpg" />
-</div>
-
-
-###  Подробнее
-
-В лесу, поблизости от дороги найдена убитая девочка. Полиция в растерянности - два похожих убийства, произошедших несколько лет назад, так и остались нераскрытыми. Уличный торговец Жакье сразу попадает под подозрение, хотя именно он указал полиции на местонахождение тела девочки. Но комиссар Маттей уверен в его невиновности. Комиссару показывают рисунок убитой девочки, (   Читать дальше...   )Производство: Испания, Германия (ФРГ), Швейцария, CCC Filmkunst GmbH, Chamartín Producciones y Distribuciones, Praesens-FilmЖанр: драма, криминал, триллерРежиссер: Ладислао ВайдаАктеры: Хайнц Рюман, Зигфрит Штейнер, Зигфрид Ловиц, Мишель Симон, Генрих Гретлер, Герт Фрёбе, Берта Древс, Эвальд Бальзер, Роджер Ливси, Мария Роса СальгадоПеревод: любительский одноголосыйСубтитры: русские (gera), немецкие, английскиеПродолжительность: 01:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E202440726230DBEAD2F66B84AF290AD673E1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564108   (501672) от 17.07.2022
-
-Петр Орловец | Приключения Шерлока Холмса против Ната Пинкертона в России (2020) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501672.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы знали, что знаменитый лондонский сыщик с Бейкер-стрит Шерлок Холмс и его незаменимый помощник и компаньон доктор Ватсон, боролись с преступностью не только в туманном Альбионе, но и в далекой России. Более того, на бескрайних российских просторах Холмсу суждено было встретиться с еще одним прославленным детективом – Натом Пинкертоном. Уверены, эта встреча не (   Читать дальше...   )Жанр: Исторические детективы, Исторические приключения,Продолжительность: 05:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4457C8BC59B2F99CCD237BDFB58CD9B6C965D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564204   (501671) от 17.07.2022
-
-Kingpin Private Browser 2.0.24 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingpin browser — полнофункциональный браузер в режиме инкогнито и adblock всегда включаемым. Он не запоминает историю, пароли или cookies.
-Браузер использует поисковик Yandex в качестве дефолта (может быть изменен на Google или DuckDuckGo в параметрах настройки). Браузер может использоваться для просмотра информации деликатного характера, покупок онлайн и банковского (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.05.2022Разработчик: © Limelick Software s.r.o.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499D2DB4A665385F789501D6DD2ECA551FD983CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563990   (501670) от 17.07.2022
-
-DubVision & Third Party - S2O Songkran Music Festival Korea, South Korea (2022) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501670.jpg" />
-</div>
-
-
-###  Подробнее
-
-DubVision @ S2O Songkran Music Festival Korea, South Korea 2022-07-10:
+Any Video Converter Pro - это программа для конвертирования видео файлов. Она позволяет перекодировать популярные видео форматы (AVI, MOV, RM, MPEG, DVD, WMV, MP4 и FLV) в DVD, VCD, MP4 или FLV. В утилите присутствует возможность использовать для кодирования файлов как готовые профили с установленными параметрами видео, которые ориентированы на определенные устройства (бытовой DVD-проигрыватель, мобильный телефон), так и самостоятельно подбирать свои настройки конвертирования. Перед началом кодирования видео, его можно просмотреть во встроенном проигрывателе.
 
-01. DubVision - No More w/Dave Kurtis - Raise Your Hands
-02. Afrojack - ID (Co-Prod. by Magnificence)(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:47:29
+(   Читать дальше...   )Название программы: Any Video Converter ProfessionalЯзык интерфейса: MULTi / Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D404249E1B34B47FDF0964EA70AFCEAAF99300FC
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -410,26 +160,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564078   (501669) от 17.07.2022
+###  Публикация: 537874   (504894) от 28.08.2012
 
-Vinegar 2.3.9 [En]
+Computer Desktop Wallpapers Collection (21.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9487E9B30D8A4CFBB4BD0FB250066A8A2A80EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538602   (504893) от 28.08.2012
+
+Monjes Budistas - Sakya Tashi Ling (2005) [MP3|~245 кб/с (V0)]<New Age, Enigmatic, Ambient, Ethnic>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-YouTube5 был расширением Safari, когда Flash был еще в ходу. Он заменил проигрыватель YouTube (написанный на Flash) <video> тегом HTML .
-И теперь ситуация с проигрывателем YouTube стала настолько плохой, что нам нужно другое расширение, чтобы исправить это. Вот где на помощь приходит Vinegar. Vinegar также заменяет проигрыватель YouTube с минимальным <video> (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2022Разработчик: © 2022 Zhenyi TanПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+01. My spirits flies to you
+02. Secret energy
+03. The other side
+04. River of light
+05. I wanna fly
+06. Om sai ram
+07. Way to Kundalini
+08. Blessings for life
+09. Emotions
+10. Urban Buddishm(   Читать дальше...   )Жанр: New Age, Enigmatic, Ambient, EthnicПродолжительность: 00:50:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD0DF2A2486D8688342450D43B48A2640E50EE80
+magnet:?xt=urn:btih:696D797AD09D4D0ADC83867540FF5B3832993FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -437,25 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564229   (501668) от 17.07.2022
+###  Публикация: 539410   (504892) от 28.08.2012
 
-А.М. Брагин | Знакомые незнакомцы (1992) [PDF]
+Художник Ivan Berryman [Графика]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Короткие рассказы о животных для дошкольного возраста.Жанр: Познавательная литература, энциклопедия, путеводительФормат: PDF
+Художник Ivan Berryman
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C3585351C25466C6EA236800A7AAAE219D5DC9A
+magnet:?xt=urn:btih:232D9A1CA32789B26C57757982775E280D05B480
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,28 +247,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564175   (501667) от 17.07.2022
+###  Публикация: 539430   (504891) от 28.08.2012
 
-Martina - Disco 'Round The World (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Wallpapers - Ангелы (26.08.12) [Wallpapers]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Central Park (7:35)
-02. Touch Me (7:12)
-03. Panchuco (3:02)
-04. Disco Around The World (10:56)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:18
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD54451F9566D0F006848ED3CD575F1BD9D902A2
+magnet:?xt=urn:btih:95AEAF7DE37777613D59D7D91180FF44BD07DE05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,28 +273,275 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563988   (501666) от 17.07.2022
+###  Публикация: 540330   (504888) от 28.08.2012
 
-Midnight Road - Ready For The Fight (2022) [MP3|320 Kbps] <Melodic Hard Rock>
+Mistic - Mistic (2006) [MP3|192 кб/с]<New age, Gregorian Chant>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Mistic
+02 - 10 Przykazan
+03 - Statki Na Niebie
+04 - Zaluje
+05 - Kiedy Powiem Sobie Dosc
+06 - Wiara
+07 - Kropla Deszczu
+08 - Kolysanka Dla Nieznajomej
+09 - To Co Dobre
+10 - Imie Deszczu(   Читать дальше...   )Жанр: New age, Gregorian ChantПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76125D3E0A8DDBBB1485473B0B2DC69B9CBEB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540037   (504886) от 28.08.2012
+
+Газета | Час України № 10 [2004] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Краснодарский выпуск газеты.
+ Полностью посвящён президентским выборам на Украине - "проянуковичевская" агитация.
+ Издание распространяется бесплатно.
+
+В номере 20 страниц формата А3, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17F4F7DE0DD15F21ADF0DB6B840F364C74BF53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538175   (504885) от 28.08.2012
+
+VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native American, Ethno, New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Sacred Ground - Bill Miller (6:21)
+2. Can You Hear The Call - Robert Mirabal (6:37)
+3. Mountain Song - Star Nayea And Primeaux & Mike (6:00)
+4. Spirit Wind - Bill MIller (5:05)
+5. Seeking Light - Joanne Shenandoah (6:13)
+6. Raven - Little Wolf Band (5:43)
+7. People Of Yesterday - Robert Mirabal (5:00)
+8. Prayers In The Wind - Little Wolf Band (4:07)
+9. Let Us Dance - Primeaux & Mike And David Carson (5:16)
+10. Mother Earth - Walela And Joanne Shenanadoah (4:50)Жанр: Native American, Ethno, New Age, Ambient, DowntempoПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA3F30A0A8C6B3D3A041E558DB36B1D33A3D960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540340   (504884) от 28.08.2012
+
+Павел Попович. Космические приключения (2008) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм о Поповиче Павеле Романовиче – пилоте космического корабля «Восток-4», подполковнике; командире космического корабля «Союз-14», полковнике. Лётчике-космонавте СССР № 4 и 6-м космонавте мира.Жанр: Телепередача, ДокументальныйПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA7598A36944D58819DF8029C48B7421B2C7164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540354   (504881) от 28.08.2012
+
+Журнал | Вкусно и полезно №49 [сентябрь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Вкусно и полезно» - это коллекция лучших рецептов, собранных за всю историю журнала «Домашний очаг» и много интересных сведений и дополнений: знакомство с различными кухнями мира, интервью с лучшими поварами столицы - представителями восточной и европейской кухни, рецепты фирменных блюд самых известных ресторанов Москвы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF27F569477DD5C0FE8A41A543588E74DF2FC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539406   (504880) от 28.08.2012
+
+Kuang Hong [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Kuang Hong
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC808BE84A230A3C5E540EDF8247D65DF968239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539936   (504879) от 28.08.2012
+
+VA - I love Electro Music vol.1 (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 13
+2. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 16
+3. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 2
+4. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 7
+5. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 8
+6. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 9
+7. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 14
+8. Alex Sayz ft Nadia Ali - Free To Go (Original Mix)
+9. Alexander Popov Feat. Kyler England - My World (Dub Mix Edit)
+10. Bel Suono & DJ Magic Finger  - Te Quiero(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219D00CEBE765877F2C61AE83A1FA479D6D1A31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540317   (504877) от 28.08.2012
+
+Григорий Горин (1998) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Интервью с драматургом, сценаристом Григорием Гориным о жизни и творчестве.Литературную деятельность начал с сочинения сценок для студенческого «Клуба весёлых и находчивых» (КВН).
+Горин любил рассматривать всем известные истории с необычного угла зрения. У него Мюнхгаузен — честнейший человек, а граф Калиостро — понаехавший в Россию жулик-гастарбайтер.
+Каждый год Горин выдавал на-гора что-то безусловно годное: театральную пьесу, киносценарий, книгу. В мире кино сначала приобрёл известность как автор сценария (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 00:21:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB12598F6BD20DC27867C5716ED4AD0F3DD7DC45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538164   (504876) от 28.08.2012
+
+Charlie Shred - Charlie Shred (2012) [FLAC|Lossless]<Power Metal/Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Ready For The Fight (03:56)
-02. Voodoo Queen (03:38)
-03. Road To Death (03:49)
-04. Red Lips (03:26)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:36:22
+01. Arise (0:48)
+02. Panic (4:25)
+03. Death Comes to All (5:04)
+04. The Rose (3:56)
+05. Tainted Inside (3:34)
+06. Time to Die (3:00)
+07. The Ancestors Guide (3:15)
+08. Game Over (5:12)
+09. Wellcome to Hell (4:11)
+10. Fall Down (6:30)(   Читать дальше...   )Жанр: Power Metal/Heavy MetalПродолжительность: 00:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:163599ECC3AFB5073CD517A719BB06AEAB852124
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,25 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564110   (501665) от 17.07.2022
+###  Публикация: 540297   (504875) от 28.08.2012
 
-Таблоид / Tabloid (2010) DVDRip
+Загадочная птица Моа / The Mystery Of The Giant Birds (2001) TVRip
 
->>Документалистика и Телепередачи
->>нет
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В 1977 году 28-летняя Джойс МакКинни отставная королева красоты из Вайоминга — идеалистка, мечтательница и, как позже выяснится, успешная голливудская девушка по вызову, — прилетела в Англию спасать жениха от окрутивших его мормонских миссионеров.Телекомпания: США / Air Loom Enterprises, Moxie PicturesЖанр: Документальный, криминалРежиссер: Эррол МоррисПеревод: Двуголосый профессиональный (24ДОК)Язык озвучки: РусскийПродолжительность: 01:27:47
+Новая Зеландия - царство птиц, родина моа - самой большой птицы на свете. Существовала ли она на самом деле? Или это всего лишь легенда.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9A31AA1E49653993C070D4D8E243117677534E2
+magnet:?xt=urn:btih:ADB5274881E6A53B07FB70C8BD7A098C7E5B94B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,25 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564140   (501664) от 17.07.2022
+###  Публикация: 539402   (504872) от 28.08.2012
 
-Военная приемка.  “НИТИ”. Подводный. Закрытый. Ядерный (17.07.2022) WEBRip [H.264/1080p-LQ]
+СОБР «БУЛАТ» [Графика]
 
->>Документалистика и Телепередачи
->>нет
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Атомное сердце подводных лодок и радиоактивные опыты в лабораториях, секреты устройства ядерных реакторов и самые смелые способы их испытаний. Главный герой этого выпуска «Военной приемки» - «НИТИ», научно-исследовательский технологический институт имени академика Александрова. Распложенный на берегу Балтийского моря, в сотне километров от Санкт-Петербурга «НИТИ» (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаРежиссер: Александр ШильниковСубтитры: ОтсутствуетПродолжительность: 00:40:00
+Расположение СОБР «БУЛАТ» КМ ГУВД Московской области. Во время съёмок бойцам СОБРа было предложено при всякой возможности действовать (ходить, сидеть, бежать и целиться) как в боевой обстановке.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94C98ECF90C97F6926F88DE33C2992D3D4402AD4
+magnet:?xt=urn:btih:6A21C78A0093B1AC6E53681217BB56D22F6E1619
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,57 +601,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563951   (501663) от 17.07.2022
+###  Публикация: 540435   (504870) от 28.08.2012
 
-Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box Set, 6 CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501663.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Collaborator:
-01. Yes - I've Seen All Good People (6:55)
-02. Yes - Heart of the Sunrise (10:41)
-03. Yes - And You & I (10:09)(   Читать дальше...   )Жанр: Jazz, RockПродолжительность: 06:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D75854817C54656B1CA02950B0B14250AA8B0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564019   (501662) от 17.07.2022
-
-Свой Путь - Пустозвон (2022) [MP3|320 Kbps] <Rock>
+Parkket - Научиться летать (2012) [MP3|320 kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Это рок [00:04:21]
-02 - Песенка старого панка [00:03:20]
-03 - Время [00:05:18]
-04 - Анархия [00:03:55](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:35
+01. Научиться летать (03:44)
+02. Сумерки (06:06)
+03. Жизнь как вино (03:27)
+04. Я не такой как ты (03:08)
+05. До свидания (03:21)
+06. Не уходи (02:52)
+07. Не плачь (03:12)
+08. Ночь (03:07)
+09. Наше время прошло (04:31)
+10. Друзья (03:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADDCED33CA3FEAE2F60ABFAAC7F986FDBB654A16
+magnet:?xt=urn:btih:F46D1F7DED9E55AD2D94916FF23AFAA2760713E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,25 +636,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564267   (501661) от 17.07.2022
+###  Публикация: 539940   (504868) от 28.08.2012
 
-Киногоризонты (2020) WEBRip [H.264/1080p-LQ]
+СтраХовидлО - Кровь (2012) [MP3|128 кб/с]<Pagan Metal>
 
->>Документалистика и Телепередачи
->>Посвящение искусству
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Зритель увидит эксперименты подробно объясняющие, как создавались настоящие кино-открытия, посетит хранилище с пленочными исходниками революционного в техническом исполнении фильма «Война и Мир», сравнит систему стереокино и современный кинотеатр IMAX. Спикеры и ведущие попробуют рассказать просто о сложном, чтобы ответить на вопрос о том, как разработки отечественных (   Читать дальше...   )Производство: Россия, киностудия им. М.ГорькогоЖанр: документальный, история, кинематографРежиссер: Владислав АриаларЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:31
+1. Русичи
+2. Смута
+3. Заветы
+
+Группа «Жанр: Pagan MetalПродолжительность: 00:14:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6D0305EC1887DB6D139A674027A3D1CBBB2D91F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +666,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564239   (501660) от 17.07.2022
+###  Публикация: 539369   (504867) от 28.08.2012
 
-Big Story - Beast (2022) [MP3|320 Kbps] <Alternative-Rock>
+Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrumental>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Rabbit [00:04:03]
-02 - Daydream [00:03:32]
-03 - Losing Sleep [00:03:06]
-04 - Listen [00:03:55](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:38:12
+(30:03) 1. Raga Jhinjhoti
+(27:30) 2. Raga DarbariЖанр: Relax, Meditative, InstrumentalПродолжительность: 00:57:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95B39519616D656B14C67FD1131FE618BDD7D95C
+magnet:?xt=urn:btih:6E9AE7003FFBB5955B30AB2D377EFB9579781A1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,25 +693,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564180   (501659) от 17.07.2022
+###  Публикация: 539309   (504866) от 28.08.2012
 
-Лео Перуц | Мастер страшного суда (2005) [MP3, Виктор Рудниченко]
+3D Wallpapers (24.08.12) [Wallpapers]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-«Мастер Страшного суда» - самый известный роман Лео Перуца. В центре действия романа - череда загадочных смертей нескольких человек, принадлежащих миру искусства. Каждый из них совершил самоубийство, повинуясь чьему-то внушению. Мистический колорит этой прозы, вызывающей в памяти атмосферу книг Гофмана и Майринка, сочетается с увлекательной интригой.Жанр: Зарубежная проза, Детектив, РоманПродолжительность: 06:28:00
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFB31FC28B4A21D5F4C865B9696019E62E5D411D
+magnet:?xt=urn:btih:18C54C0B9BA7EF5FD54A9193510BE11BAD685A55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,27 +719,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 541412   (501632) от 31.08.2012
+###  Публикация: 540241   (504864) от 28.08.2012
 
-Полицейский по найму / Rent-a-Cop (1987) DVDRip
+7 душ / Dood eind (2006) DVDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В результате неудачно проведенной операции по поимке торговцев наркотиками, чикагский полицейский Фрэнк Черч потерял своегонапарника и два миллиона долларов. Он вынужден уйти из полиции и стать наемным охранником.
-
-Делла Робертс, проститутка по вызову, преследуемая таинственным убийцей-психопатом, нанимает Фрэнка, чтобы найти и обезвредить маньяка. Став свидетельницей жестокого убийства, она сама превратилась в мишень…Жанр: Боевик, Триллер, КомедияРежиссер: Джерри ЛондонАктеры: Берт Рейнолдс, Лайза Миннелли, Джеймс Римар, Ричард Мейсер, Дайонн Уорвик, Берни Кейси, Робби Бенсон, Джон Стэнтон, Джон П. Райан, Ларри ДолгинПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 01:32:24
+Семеро бывших одноклассников едут в лес на пикник. На них нападают дикие собаки, и они прячутся в заброшенном доме. В доме живет призрак девушки, убитой 300 лет назад в этом доме семью местными ребятишками. Чтобы освободиться из вечного плена, призраку нужно забрать с собой 7 жертв. И тогда сбудется древнее пророчество. Выхода из дома нет, и для друзей начинается борьба за выживание.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Эрвин Ван Ден ЭсхофАктеры: Эверон Джексон Хьюи, Анньек Файфер, Эльвиен Тюльнер, Мэдс Уиттерманс, Арам ван де Рест, Миха ХульшофПеревод: Многоголосый закадровыйПродолжительность: 01:34:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F4154868C05043512F824D3B47EA9589AE081FA
+magnet:?xt=urn:btih:B7067EDEE8A8CE0DDBEC90D5CB033C2CCEBF28D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

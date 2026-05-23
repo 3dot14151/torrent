@@ -1,3 +1,55 @@
+###  Публикация: 1478738   (1010077) от 20.06.2021
+
+Бурдж-Халифа. Вертикальный город / Burj Khalifa. Dubai's Vertical City (2011) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Мега-Проекты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это история самой высокой башни, построенной человеком. Это история рабочих и инженеров, поднявшихся на 800 метров. Это история мужчин и женщин, работающих и живущих внутри здания. Мы проникнем далеко за кулисы: и эта история будет полная блеска и эмоций. Это уникальная история Бурдж-Халифа - самого высокого здания в мире, первого вертикального города.Производство: ОАЭ, GTV DubaiЖанр: Документальный, познавательный, инженерияРежиссер: Бербель ДжексПеревод: Двуголосый закадровый, профессиональный (Видеофильм)Субтитры: Русские, английскиеПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF218A3D2A6546B4CB84C8BF5DE39A727B45647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474936   (1009757) от 22.06.2021
+
+Разрушая границы: научный взгляд на нашу планету / Breaking Boundaries: The Science of Our Planet (2021) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>Мир будущего
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Аттенборо и ученый Йохан Рокстрём исследуют разрушение экосистем Земли и то, как этот кризис можно предотвратить.Производство: США, Silverback FilmsЖанр: Документальный, познавательныйРежиссер: Джон КлейПеревод: Двуголосый закадровый, профессиональный (VSI Moscow)Субтитры: Русские (Forced, Full), английские (Forced, SDH), украинскиеПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9A01A1CD2B7CE37261F8D93D64A9DC1A26C5F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 212776   (1009071) от 27.06.2021
 
 NG: Последствия: Когда Земля перестанет вращаться / Aftermath: When the Earth stops spinning (2010) SATRip
@@ -6,7 +58,7 @@ NG: Последствия: Когда Земля перестанет вращ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC: Горизонт. Хаббл. Открытие тайн космоса / Ho
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) HDTV [H.264/1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Discovery. Золотой прииск Фредди Доджа / Gold Rush: Fred
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +292,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ BBC. Тайные правила современной жизни: Алгори
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Discovery: Разрушители легенд / MythBusters (2013) WEB-DL [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +370,7 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Discovery. Жизнь с Тиграми / Living with Tigers (2003) TVRip (се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +422,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +448,7 @@ BBC. Королева Виктория и её девять детей / Queen V
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +474,7 @@ NG: Загадки королевской кобры / Secrets of the King Cobra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +500,7 @@ NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +526,7 @@ NG. Чудесная посадка на Гудзон / Miracle Landing on the H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +552,7 @@ BBC. Связанные: Шесть ступеней отдаления / Connec
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +579,7 @@ NG. Огромная акула-молот / Mega Hammerhead (2016) WEB-DL [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +605,7 @@ NG. Человек против акулы / Man vs Shark (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,7 +631,7 @@ BBC: Не могу выбросить тебя из головы / Can't Get You
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -605,7 +657,7 @@ PBS. Секреты Колизея / Colosseum. Roman Death Trap (2015) WEB-DL [
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,58 +668,6 @@ PBS. Секреты Колизея / Colosseum. Roman Death Trap (2015) WEB-DL [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99F4ABEC864CB984481528CD601C649D0BE8B852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487009   (1004277) от 02.08.2021
-
-Быстрее света. Мечта о межзвёздных полётах / Faster Than Light: the Dream of Interstellar Flight (2017) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунуться в неизвестность, увидеть, что за горизонтом, найти новые звезды, новые миры... Человечество с давних времен мечтает об этом. Сегодня ученые считают, что в нашей галактике находится как минимум 9 миллиардов звездных систем, похожих на Солнечную, с планетами, подобными Земле. Но в процессе поиска других обитаемых миров остается один вопрос. Как мы туда попадем? (   Читать дальше...   )Производство: США, Нидерланды, Spitz Creative Media, Thomas Lucas Production, Mirage3DЖанр: Документальный, наука, космосРежиссер: Томас ЛукасПеревод: Дублированный (Видеофильм ТВ)Субтитры: АнглийскиеПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EFBF3D0B7220385CDD95C50C1FF45CD5E9B24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487197   (1004006) от 03.08.2021
-
-Discovery. Последние дни динозавров / Last Day Of The Dinosaurs (2010) BDRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почувствуйте себя в гуще событий во время одного из самых драматических событий в истории Земли: гигантские цунами, ужасные метеоритные дожди, невероятной силы землетрясения, извержения вулканов, огненные бури, кислотные дожди и, как результат, - настоящая ядерная зима. Что произошло на нашей планете много тысяч лет назад, когда ее населяли одни динозавры? Почему (   Читать дальше...   )Производство: Великобритания, Канада, Dangerous Films, Handel Productions, Discovery ChannelЖанр: Документальный, история, палеонтологияРежиссер: Ричард ДэйлПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F32AC2113436F4DC943FBD26A6565B35FEE745
 ```
 
 https://mybot314.ru/tekegram_catalog/

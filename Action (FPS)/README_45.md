@@ -1,3 +1,107 @@
+###  Публикация: 1732793   (52001) от 26.06.2024
+
+Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда человечество оказалось перед угрозой уничтожения от столкновения Земли с гигантским астероидом, лидеры всех наций приняли решение создать специальные ковчеги, в которых избранные нашли бы убежище глубоко под поверхностью планеты... Именно они должны возродить жизнь на Земле, после того как минует опасность.Тип издания: RepackРазработчик: id SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA49D6618A875C69D628A19AE0351276EAD53BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733399   (51745) от 28.06.2024
+
+Diatomic (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Diatomic - непринужденный аркадный шутер, где вам необходимо просто убивать врагов любыми способами. Постоянное движение – это секрет победы, ведь только так можно выжить, отталкивайтесь от стен, скользите, уворачивайтесь, используйте спринт, а также свой абордажный крюк, который поможет перемещаться буквально по воздуху. Вас будет ждать немногим более тридцати разнообразных (   Читать дальше...   )Тип издания: LicenseРазработчик: DiatomicStudiosЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C279FCED825B824986EF53B962EDEF9BD6F66562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693771   (51574) от 30.06.2024
+
+Generation Zero (2019) [Ru/Multi] (2780013/dlc) Scene Tenoke
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Игра, где выжить - означает победить. Проект, который приносит реалии того, что было бы, если человечество создало роботов, способных использовать оружие так, как им вздумается. Generation Zero показывает нам Швецию 1980 года. На всей планете случился апокалипсис, а по улицам теперь ходят неизвестные машины, которые уничтожают всё на своём пути.Тип издания: SceneРазработчик: Systemic ReactionЖанр: Экшены, Выживание, ШутерыЯзык озвучки: Английский, ШведскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4ADC039FD06D0412AA2556450ABE88E8E73E203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733656   (51558) от 30.06.2024
+
+Doom 3: BFG Edition (2012) [Ru/En] (1.14) Repack dixen18
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Doom 3: BFG Edition - это переиздание Doom 3. Жанр и смысл переизданий очень темны. Но интуитивно понятно, что новая версия - это как встретить очень старого друга после долгой разлуки. Игра та же, но где-то что-то подшили, что-то подлатали, что-то добавили. Из образцовых проектов реанимации классики вспоминается Baldur’s Gate 2 Big World Project, в которую помимо (   Читать дальше...   )Тип издания: RepackРазработчик: id SoftwareЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC92894D236577BE9B17EC3FD7A3E1C135E3280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733638   (51532) от 30.06.2024
 
 Dead War: Rise of Zombies / Dead War: Rise of Combat (2024) [En] (1.0) Repack FitGirl
@@ -6,7 +110,7 @@ Dead War: Rise of Zombies / Dead War: Rise of Combat (2024) [En] (1.0) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Starsand (2022) [Ru/Multi] (1.0.9) License GOG [Digital Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Wolfenstein: Youngblood (2019) [Ru/Multi] (11991189/dlc) Repack Decepticon [Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.102179.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.18898) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ TeleMorpher (2024) [Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Scene PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Succubus (2021) [Ru/Multi] (15112813/dlc) Scene Rune [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru/En] (1.0.9/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Borderlands 3 (2019) [Ru/Multi] (11919094/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ No Man's Sky (2016) [Ru/Multi] (5.00.1/dlc) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Trepang2 (2023) [Ru/Multi] (77.00/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Deadlink (2022) [Ru/Multi] (1.2.27806) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896CFED4C1D1780B5AA7235BB5B235D2850C54D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701681   (47620) от 07.08.2024
-
-Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это научно-фантастическая игра на выживание в жанре "ужасы", в которой сочетаются свободное исследование мрачного мира, сложные бои, уникальный крафтинг и нелинейный сюжет. Попробуйте выжить и раскрыть запутанные тайны Чернобыля в воссозданной с помощью 3D-сканирования реальной Зоне отчуждения. Помните, что присутствие военных – не единственная ваша проблема.Тип издания: RepackРазработчик: The Farm 51Жанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44A5DFE49AC5A9EBA1AC1655947047F97B84BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741507   (47591) от 07.08.2024
-
-PATHOGEN X (2024) [Ru/Multi] (1.0.0.6) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47591.jpg" />
-</div>
-
-
-###  Подробнее
-
-PATHOGEN X - это не совсем обычная видеоигра. Забудьте о спасении принцесс и накоплении очков. Это детище BraveCat Studios бросает вас с головой в таинственный мир, стирая границы между геймером и участником. Это как шагнуть в запутанный лабиринт. Каждое ваше движение посылает рябь по цифровой неизвестности. Здесь нет ни руководства, ни четких целей.Тип издания: RepackРазработчик: BraveCat'StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2459A8C60A8A41AD10F241E8315EF7E38117F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742114   (47311) от 10.08.2024
-
-VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47311.jpg" />
-</div>
-
-
-###  Подробнее
-
-В вымышленной стране восточно-европейского типа, уже долгие годы сидит у власти диктатор. Правитель был сущим параноиком и устраивал массовые зачистки и убийства тех, кто был против него. Для обеспечения тотального контроля над обычными гражданами, людям начали вживлять в шею чип для отслеживания их перемещения. Всем людям выдали одинаковую одежду с определённым (   Читать дальше...   )Тип издания: SceneРазработчик: Narko GamesЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E24EFB450634641934A2A671B5FDAC24D61268D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742198   (47305) от 10.08.2024
-
-STAR WARS: Battlefront (2015) [Ru/Multi] (1.0.7.64833) Repack FitGirl
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Wars: Battlefront 2015 – космический шутер, основанный на событиях одноименной вселенной. Сюжет разворачивается в то же время, игроку доступны все эпичные битвы, когда-либо происходившие в галактике: баталия на снежной планете Хот, сражение в лесах Эндора, оборона Татуина и прочие военные действия, повлиявшие на ход истории. Бейтесь на земле или садитесь за (   Читать дальше...   )Тип издания: RepackРазработчик: DICE, DICE Los AngelesЖанр: Action, ShooterЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D35C325A2CD7AF1E8A89FD0119E94B7C49BC2AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

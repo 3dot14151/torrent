@@ -1,38 +1,3 @@
-###  Публикация: 484678   (89290) от 18.04.2012
-
-VA - За Рулем с Авторадио - Зарубежные Хиты 90-Х (2012) [MP3|256 kbps]<Pop | Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua - Around The World
-02. Bomfunk MC's - Uprocking Beats
-03. Shaggy - Boombastic
-04. Ultra Nate - Free
-05. Tlc - No Scrubs
-06. Tom Wilson - Techno Cat
-07. Mc Sar - Another Night
-08. Scooter - Call Me Manana
-09. Captain Hollywood - Over & over
-10. Moloko - Sing It Back(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCD68D42729ED102C0057DFDE3B70C48849AE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484394   (89148) от 18.04.2012
 
 VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop>
@@ -41,7 +6,7 @@ VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -76,7 +41,7 @@ VA - NeРусский Шторм 57 (2012) [MP3|320 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +76,7 @@ VA - XXXL Союз 70: Парад хитов Русский (2012) [MP3|256 kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +111,7 @@ VA - MAXI. Все хиты весны на Русском Радио (2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -181,7 +146,7 @@ VA - Фестиваль Авторадио 80-90-Х 50/50 (2012) [MP3|256 kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +181,7 @@ VA - ЕвроХит Топ-40 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -251,7 +216,7 @@ VA - Новинки Эфира Love Radio 11 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -286,7 +251,7 @@ VA - Потап и Настя в кругу друзей (2012) [MP3|192-256 kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +286,7 @@ VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -356,7 +321,7 @@ VA - Disco Hits 90's Русский (2012) [MP3|256 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -391,7 +356,7 @@ VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +391,7 @@ VA - В Машину! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -461,7 +426,7 @@ VA - Europa Plus Включи Весь Мир! Весна 50/50 (2012) [MP3|128 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -496,7 +461,7 @@ VA - Лучшие Песни Русского Радио 5 (2012) [MP3|256-320 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +496,7 @@ VA - Музыка для отличного настроения (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,7 +531,7 @@ VA - Топ 100 Продвинутый Русский (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -601,7 +566,7 @@ VA - Южный Хит Парад (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -636,7 +601,7 @@ VA - Топ 100 Europa Plus 4 50/50 (2012) [MP3|256-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -671,7 +636,7 @@ VA - Убойные хиты Europa Plus 3 50/50 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -706,7 +671,7 @@ VA - Super Italo Disco (2012) [MP3|128 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -741,7 +706,7 @@ VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -776,7 +741,7 @@ VA - Любимые весенние хиты (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -811,7 +776,7 @@ VA - Звездная 200-ка (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -846,7 +811,7 @@ VA - Французская музыка в подарок (2012) [MP3|256 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -881,7 +846,7 @@ VA - Хиты Авторадио Русский №20 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -901,6 +866,41 @@ VA - Хиты Авторадио Русский №20 (2012) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85AFDA6616103EEEB53FEF69C1002787DEE4AEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476350   (85891) от 02.04.2012
+
+VA - Дискотека Бездна Original 50/50 vol. 3 (2012) [MP3|128-320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Meg, Timati, Sergey Lazarev - Moscow To California
+002. Far East Movement Feat. Justin Bieber Redfoo - Live My Life (Party Rock Remix)
+003. Dj Nil Sexy Liya - На Краю У Рая (Extended Mix)
+004. Tacabro - Tacata (Radio Edit)
+005. Джиган Feat Жанна Фриске - Ты Рядом (Dj Meg Nerak Remix)
+006. Nick Cox Feat. Lil Lee - Good Sex Beat (Radio Edit)
+007. Лавика - В Городе Весна (Dj Melloffon Remix)
+008. Toni Braxton - I Heart You
+009. Пропаганда - Нет-Да
+010. Simple Plan Feat. Sean Paul - Summer Paradise(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A520584EA4957F78BDFC4E0A532DF0095FAA3531
 ```
 
 https://mybot314.ru/tekegram_catalog/

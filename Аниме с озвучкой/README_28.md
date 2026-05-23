@@ -1,3 +1,111 @@
+###  Публикация: 1303146   (575543) от 19.05.2019
+
+Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [2001, Movie] DVDRip 576p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Запертая отцом-королём до замужества в высокой башне замка, принцесса Аритэ коротает дни, созерцая мир, открывающийся из окна. Иногда она украдкой ускользает из дворца, чтобы понаблюдать простой люд в его обыденных трудах. Рыцари королевства соперничают за право жениться на ней и править подвластными землями, пытаясь добыть для неё самые ценные сокровища магии, созданные (   Читать дальше...   )Производство: Япония,Жанр: фэнтези, драма, приключенияРежиссер: Катабути СунаоПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4CF3CB5303F88C32C4FD5B859063557C5FD6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303239   (575542) от 19.05.2019
+
+Rean no Tsubasa | The Wings of Rean | Крылья Рин [2005, ONA, 6 эп.] DVDRip 720p Hi10p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Судзуки усиленно разыскивался Американской армией и полицией, поскольку его недоделанные друзья, развлекаясь запусканием ханаби с тротилом, разнесли к чёрту американскую военную базу. Судзуки же, уйти не успел. И вот улепётывая со всех ног по-пляжу от разъярённой американской военщины явилось ему виденье чудное. Разверзлись хляби морские, и снизошёл на них свет божественный (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастика, мехаРежиссер: Томино ЁсиюкиПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 6 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4AEEE902165116C62C8B78E51C495D2B164559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300100   (575541) от 19.05.2019
+
+Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивительный мир Эль-Хазард OVA-1 [1995, OVA, 7 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В прошлом, в параллельном мире «Эль Хазард» обитала высокоразвитая цивилизация, войны которой затрагивали даже соседние миры. В итоге эта цивилизация уничтожила сама себя. Однако, после неё сохранилось множество артефактов и в частности, орбитальное орудие «Око Бога». Коренное население Эль Хазарда — люди и разумные жуки, багромы, с ужасом вспоминают древние войны (   Читать дальше...   )Производство: Япония,Жанр: приключения, комедия, романтика, фэнтезиРежиссер: Хаяси ХирокиПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 7 эп. по 29 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302C33E061B532D7108F2B9413E0A1364236A405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303199   (575540) от 19.05.2019
+
+Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [2017, TV, 12 эп.] HDTVRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Название аниме довольно прозрачно отражает его суть: оно повествует о мести парня по имени Макабэ Масамунэ. А месть, как говорится, - это блюдо, которое подают холодным. Своё блюдо наш герой готовил и планировал в течение нескольких, а точнее, восьми лет! Но зачем же идеальному, накачанному красавчику, спортсмену, отличнику, любимчику всех девушек заниматься такими (   Читать дальше...   )Производство: Япония,Жанр: комедия, романтикаРежиссер: Минато МирайПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Одноголосая, студияПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC44AEE5EF4273082AD6A8E709ED74AC1810242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 688541   (574778) от 12.08.2013
 
 Gekijouban Hunter x Hunter: Phantom Rouge / Охотник х Охотник (фильм первый) [2013, MV] BDRip 720p raw + rus
@@ -6,7 +114,7 @@ Gekijouban Hunter x Hunter: Phantom Rouge / Охотник х Охотник (ф
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +141,7 @@ Isshuukan Friends / One Week Friends / Друзья на неделю [2014, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +168,7 @@ Sasameki Koto / Whispered Words / Я тихо прошепчу [2009, TV, 13 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +195,7 @@ Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +221,7 @@ Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +248,7 @@ Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Маги�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +275,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] BDRip 400p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +301,7 @@ Soul Link | Связь душ [2006, TV, 12 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +327,7 @@ Chirin no Suzu | Ringing Bell | Колокольчик Чирина [1978, Movie
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +353,7 @@ Yume de Aetara | If I See You in My Dreams | Увидеть тебя в моих
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +379,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +405,7 @@ Tetsuwan Birdy Decode: The Cipher | Birdy the Mighty Decode: The Cipher | Мог
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +431,7 @@ Tetsuwan Birdy Decode:02 | Birdy the Mighty: Decode | Могучая Берди 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +457,7 @@ Shin Kimagure Orange Road: Soshite, Ano Natsu no Hajimari | Новые капр�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +483,7 @@ Kidou Senshi Gundam 0080: Pocket no Naka no Sensou | Mobile Suit Gundam 0080: Wa
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +510,7 @@ Megazone 23 | Мегазона 23 [1985-1989, OVA, 4 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +536,7 @@ Tetsuwan Birdy Decode | Birdy the Mighty Decode | Могучая Берди [Т�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +562,7 @@ Lost Universe / Затерянная Вселенная [1998, TV, 26 из 26] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +588,7 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель вол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +614,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +640,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +668,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,113 +680,6 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1096B58FCCF42CC116316141DB7F76F8F6C1FEBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307976   (554282) от 12.06.2019
-
-Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie 2) | Легенда о героях Галактики: Золотые крылья [1992, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй полнометражный фильм раскрывает зрителю некоторые интересные подробности детства Райнхарда и его первые шаги на поприще военной службы. Показаны ключевые события, которые повлияли на становление характера и мировоззрения будущего выдающегося главнокомандующего Империи, а так же его лучшего и единственного друга - Зигфрида Кирхайса.Производство: Япония,Жанр: фантастика, драмаРежиссер: Симидзу КэйдзоПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Одноголосая, студияПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586A4768B5FC4835460F0118EF7633E59694A0EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307972   (554279) от 12.06.2019
-
-Ginga Eiyuu Densetsu | Legend of the Galactic Heroes | Легенда о героях Галактики OVA-1 [1988, OVA, 110 эп.] BDRip 720p Hi10p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554279.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Легенда о героях Галактики» представляет собой экранизацию цикла романов популярного писателя-фантаста Ёсики Танаки. История человечества всегда была историей войн, во все времена, во все эпохи. И во все эпохи находятся люди, оставляющие след в истории, чьи имена выжжены на ее скрижалях. Этих людей называют героями, и их судьба - изменить мир. Сюжет переносит нас (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастика, драмаРежиссер: Исигуро НоборуПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Одноголосая, студияПродолжительность: 110 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C292A956B98ADEC16118DDAF3CD4A2906A8D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309274   (551699) от 18.06.2019
-
-Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes (Movie 3) | Легенда о героях Галактики: Увертюра к новой войне [1993, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм является приквелом к OVA-сериалу «Легенда о героях Галактики» и более подробно рассказывает о битве при Астарте. История рассказывает об очередном этапе длительного противостояния между Галактической Империей и Союзом Свободных Планет. История фокусируется на действиях двух талантливых лидеров вооруженных сил Империи и Союза: Райнхарде фон Лоэнграмме и Яне (   Читать дальше...   )Производство: Япония,Жанр: фантастика, драмаРежиссер: Симидзу КэйдзоПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Одноголосая, студияПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED080C4024EA34124A87685A895A3E13B491BAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815803   (551151) от 24.08.2014
-
-Noragami / Бездомный бог [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ято – бродячий японский бог в образе худощавого синеглазого юноши в спортивном костюме. В синтоизме сила божества определяется числом верующих, а у нашего героя - ни храма, ни жрецов, все пожертвования умещаются в бутылке из-под сакэ. Парень в шейном платке подрабатывает мастером на все руки, малюя объявления на стенах, но дела идут совсем худо. Даже языкастая Маю, много лет работающая синки – Священным оружием Ято – покинула хозяина. А без оружия младший бог не сильнее обычного смертного мага, приходится (вот (   Читать дальше...   )Жанр: романтика, комедия, драма, приключения, фэнтезиРежиссер: Тамура КотароПеревод: Jenia aka Zub & Мария ГостюхинаФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC87EFC3E3323B225094A2B64FEA7C6C1C3D4CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1342899   (825616) от 07.05.2020
+
+Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Виолетта Эвергарден, молодая девушка, чья жизнь — не что иное, как война, послушно служит под командованием майора Гилберта Бугенвиллеи из армии Ляйденшафтлиха.
+После серьёзных увечий, оставивших её без рук и разделивших с Гилбертом, она покинула поле боя и была взята под опеку бывшим командующим армии Клаудией Ходжинсом, который после окончания войны основал почтовую (   Читать дальше...   )Производство: Kyoto Animation, ЯпонияЖанр: Повседневность, ДрамаРежиссер: Исидатэ ТайтиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 25 мин.; 1 Эпизод 34 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5117BC59BB705AC08A659CCAB393EF954A97C778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381542   (825615) от 07.05.2020
+
+Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Отважный молодой воин Гатс испытывает судьбу в качестве наёмника на передовой. Роковая встреча сводит Гатса с харизматичным и беспощадным юношей по имени Гриффит. Возглавляя непобедимый отряд, известный как «Банда Ястреба», Гриффит владеет грозной силой, несравнимой ни с чем. Движимые стремлением к статусу, «ястребы» проявляют невиданную доселе доблесть в военных (   Читать дальше...   )Производство: Oriental Light and Magic, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Такахаси НаохитоОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 25 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817765260D1B8A99404DCE92263315001CA8B186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360458   (825614) от 07.05.2020
+
+Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+И вот вышла многопользовательская игра нового поколения — игра, где смерть реальна и бегство невозможно. Единственный выход — дойти до конца. А называется игра «Sword Art Online».
+Не зная этой правды, десять тысяч игроков, используя нейрошлемы компании «Агис», зарегистрировались одновременно и тем самым положили начало смертельной битве, длящейся уже два долгих года. (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Приключения, Фэнтези, Романтика, ДрамаРежиссер: Ито ТомохикоОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 25 Эпизодов по 23 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C246D97DA922A989AF07CB5E23B76918EECB514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360028   (823833) от 08.05.2020
 
 DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: Orion no Ya | Может, я встречу тебя в подземелье? Стрела Ориона [2019, Movie] BDRip 1080p raw+rus
@@ -6,7 +86,7 @@ DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +112,7 @@ Sword Art Online: Extra Edition | Мастера Меча Онлайн: Посл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -60,7 +140,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -87,7 +167,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka | Is It Wrong
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -113,7 +193,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -139,7 +219,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -165,7 +245,7 @@ Ergo Proxy | Эрго Прокси [2006, TV, 23 эп.] BDrip 1080p Hi10P raw + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -191,7 +271,7 @@ Altered Carbon: Resleeved | Видоизменённый углерод: Вос�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +297,7 @@ Ni no Kuni | Вторая страна [2019, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +323,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма Голоса [2016, Movie] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +349,7 @@ Tokyo Ghoul | Токийский Гуль [ТВ-1] [2014, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +401,7 @@ Strike the Blood | Удар Крови [TV-1] [2013, TV, 24 ep] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +427,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Eternal | Pretty Guardians Sailor Moon Et
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +456,7 @@ Blend S | Садистская Смесь [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +482,7 @@ Sword Art Online: Ordinal Scale | Мастера Меча Онлайн: Поря
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +508,7 @@ Ruby Weiss Blake Yan (RWBY) / Red White Black Yellow (RWBY) / Красная, Б
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +535,7 @@ Robot Carnival | Карнавал роботов [1987, OVA, 9 из 9] BDRip 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +561,7 @@ Kaguya Hime no Monogatari / The Tale of the Princess Kaguya / Сказание �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +587,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +613,7 @@ Tokyo Ghoul Root A | Токийский гуль [ТВ-2] [2015, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +639,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +666,7 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,84 +677,6 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9BE72C279B8F560622480526DDC96884F240369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504966   (807815) от 25.10.2021
-
-Konohana Kitan | Загадочная история Коноханы [2017, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каких только удобств нет у людей! И рестораны, и клубы, и библиотеки, и гостиницы… А вы думали, что ёкаям этого не нужно? Они так же, как и мы, желают жить на полную катушку и с комфортом! Гостиница "Конохана” полностью соответствует притязательным желаниям ёкаев. Она оформлена в традиционном японском стиле, расположена на горячих источниках, а работают в ней (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: повседневность, фэнтези, романтикаРежиссер: Окамото ХидэкиЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EBFF3A4AFD808F1AF7E1EA0985AEE65B8F9F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504974   (807814) от 25.10.2021
-
-Boku no Hero Academia | Моя геройская академия OVA [2016-2017, OVA, 2 из 2] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807814.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Тренировка спасателей" - история о специальных тренировках, организованных для учеников класса A-1 академия Юэй. Смогут ли юные герои справиться с испытаниями, которые подготовили для них учителя? "Смертельная тренировка" происходит после арки стажировки в агентствах героев и рассказывает о совместном практическом занятии класса Идзуки и других (   Читать дальше...   )Производство: Япония, BONESЖанр: Приключения, комедия, сёнэнРежиссер: Кэндзи НагасакиЯзык озвучки: Японский и русскийПродолжительность: 2 эп. по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B69FCCC4ECD90845470F108ABFF90821322A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497190   (807793) от 25.10.2021
-
-Boku no Hero Academia | My Hero Academia | Моя геройская академия [ТВ-2] [2017, TV, 26 из 26 + 1 SP] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807793.jpg" />
-</div>
-
-
-###  Подробнее
-
-В академии героев Юэй даже беспрецедентное жестокое нападение злодеев не может отменить главное событие года: школьный спортивный фестиваль. Известный во всей Японии и даже за её пределами, приковывающий взгляды тысяч зрителей, этот фестиваль — уникальная возможность для подрастающего поколения героев продемонстрировать свои способности как всем слоям общества, так (   Читать дальше...   )Производство: Япония, BONESЖанр: Приключения, комедия, сёнэн, мультсериалРежиссер: Кэндзи НагасакиЯзык озвучки: Русский, японскийПродолжительность: 26 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95953BD70E2C8628201C81EDD3BB79D6D3A5071A
 ```
 
 https://mybot314.ru/tekegram_catalog/

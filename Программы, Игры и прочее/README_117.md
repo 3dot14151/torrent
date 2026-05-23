@@ -1,3 +1,83 @@
+###  Публикация: 1435074   (145278) от 27.12.2020
+
+Day R Premium v1.677 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Day R Survival – интересная игра в которой вам предлагают вернуться в то время когда СССР еще существует. Но жизнь на земле изменилась. Война всегда была беспощадной. В 1985 году СССР потерпело поражение от неизвестного врага. Буквально вся страна превратилась в радиоактивную пустыню за несколько дней и теперь ужасные чудовища, которые подверглись мутации от колоссальной (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25 декабря 2020 г.Разработчик: tltGamesПоддерживаемая ОС: Android 4.0+Жанр: СтратегииЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC507992DBAF3F85E9CE501C62D8A593275AA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678449   (145248) от 21.11.2023
+
+Aimp v4.05.1382 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+AIMP - это легковесный мобильный аудиоплеер построенный на основе плейлистов для ОС Android.
+
+Программа может некорректно работать на устройствах под управлением оболочки MIUI.Тип издания: FreeРелиз состоялся: 13.11.2023Разработчик: AIMP DevTeamПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BFC93C1D65E3C5E00280582F93A5DA465BFC77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520139   (145184) от 26.12.2021
+
+Топливомер: Расход топлива v3.6.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Топливомер поможет вести учет заправок и рассчитает средний расход топлива (газ, бензин, ДТ, электро).Тип издания: Пиратка (Pro)Релиз состоялся: 21 декабря 2021 г.Разработчик: Artem KrutПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5C5F41D128946E9D71A80D043052021AF322A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520089   (145032) от 26.12.2021
 
 English Idioms & Slang Phrases v1.2.6 [Ru]
@@ -6,7 +86,7 @@ English Idioms & Slang Phrases v1.2.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +114,7 @@ TOEFL Vocabulary v1.7.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +170,7 @@ Meditative Mind v2.96  [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -143,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -172,7 +252,7 @@ Vetcalculators v2.9.91 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -199,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -228,7 +308,7 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +334,7 @@ SuperLingo: учи английский, китайский язык и боле
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -283,7 +363,7 @@ Santa 3D Live Wallpaper 1.4.1 Premium [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -312,7 +392,7 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -338,7 +418,7 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -364,7 +444,7 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -390,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -416,7 +496,7 @@ Garmin: City Navigator Taiwan 2015.40 [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -442,7 +522,7 @@ Garmin: AnaDigit Map 6.41 (Greek Anavasi TopoNavigator) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -468,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -494,7 +574,7 @@ aCalendar+ Calendar & Tasks v2.5.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -520,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -547,7 +627,7 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,7 +655,7 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -602,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,87 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:785C69CDF1B99E04B4E6185EE6A18228D8815F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435571   (139142) от 30.12.2020
-
-Caustic 3 v3.2.0 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caustic 3 – редактор электронной электронной музыки для андроид устройств. Скачиваем, устанавливаем и создаем свои уникальные музыкальные композиции с помощью таких инструментов как синтезаторы и drum машины. Программа содержит систему многоканального создания аудио трека. Множество эффектов, микшеров и остальных инструментов помогут вам создать уникальные треки (   Читать дальше...   )Тип издания: Mod (Pro)Релиз состоялся: 1 февраля 2017 г.Разработчик: Single Cell SoftwareПоддерживаемая ОС: Android 2.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09F5AB22E529E7D4E351770EA3CFF890836453F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436006   (138972) от 30.12.2020
-
-Страницы Рождество раскраска v15.4.0 Premium [En]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождественская книга раскраски и живопись. Бесплатное приложение для всех, кто любит Санта-Клаус, рождественские деревья, олени, подарки или эльфы. Покрасьте свои карточки и отправьте рождественское приветствие или пожелайте семье или друзьям ..
-
-Это приложение предназначено для развлечения и простоты использования для смешанной аудитории всех возрастов, от молодых (   Читать дальше...   )Тип издания: Пиратка (Mod)Релиз состоялся: 18 декабря 2020 г.Разработчик: Coloring GamesПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7DB026982223EA81B287B64E7E7438965B67AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520789   (138647) от 30.12.2021
-
-Контакты & Телефон - drupe v3.8.7 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138647.jpg" />
-</div>
-
-
-###  Подробнее
-
-★★★Используется TNW, Forbes, Android police, AndroidPIT, NYT и другими★★★
-Забудьте о традиционных приложениях-телефонных книгах! Мы соберем все ваши контакты и приложения для общения в одном месте, доступном со всех экранов. Хотите связаться с другом? Набрать номер? Или просто написать сообщение? Для этого просто перетащите контакт (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 1 декабря 2021 г.Разработчик: drupe - Contacts & Caller IDПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA1F8FE4C609E62A1F18791EEA30FC4F6136C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

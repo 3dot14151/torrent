@@ -1,3 +1,113 @@
+###  Публикация: 1634219   (198215) от 19.05.2023
+
+Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 2nd Season | Classroom of the Elite II | Добро пожаловать в класс превосходства [ТВ-2] [2022, TV, 13 из 13] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e.
+
+Описание к первому сезону
+(   Читать дальше...   )Производство: студия Lerche / ラルケЖанр: драма, повседневностьРежиссер: Киси СэйдзиЯзык озвучки: Японский, русский (AniLibria, AniFilm)Субтитры: Русские (Сrunchyroll, Alvakarp)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC629D1D6DC8B27215BE596A6AE11C6686924D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635166   (197996) от 25.05.2023
+
+Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Невинность [2004, Movie] BDRip 4K HDR 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Близкое будущее, 2032 год. Техника достигла невиданного прогресса, люди делят мир с киборгами и роботами. Бато — дeтeктив отдела полиции по борьбе с терроризмом. Он — живой киборг, оснащенный искусственными руками, ногами и прочими частями тела. Остался лишь его прежний мозг да память о ней, о Мотоко Кусанаги.
+Вместе с напарником Тогусой Бато расследует серию убийств (   Читать дальше...   )Производство: Япония / Bandai Visual Co. Ltd.Жанр: аниме, мультфильм, фантастика, фэнтези, боевик, триллер, драмаРежиссер: Мамору ОсииАктеры: Акио Юцука, Ацуко Танака, Коити Ямадэра, Тамио Оки, Ютака Накано, Наото Такэнака, Гоу Аоба, Ёсукэ Асакура, Питер Эмшвиллер, Юдзуру Фудзимото и др.Перевод: Многоголосый профессиональный (R5, MC Entertainment)Язык озвучки: русский, японскийСубтитры: русские (forced, full) (PGS), японские (forced, full) (PGS)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E51330011EB64263F67B9FD71F17662C22BC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639078   (197170) от 11.06.2023
+
+Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | В подземелье я пойду, там красавицу найду! 4 [2022, TV, 22 из 22] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашный искатель приключений Белл Кранел поднял свой уровень, но он еще не может почивать на лаврах в подземельях. Семье Гестии еще предстоит пройти долгий путь, прежде чем она сможет сравняться с другими семьями Орарио.
+
+Но не успел Белл отправиться на следующее задание, как сообщество искателей приключений сотрясают сообщения о жестоком убийстве! Один из верных (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Татибана ХидэкиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 22 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5B5FFB4ACCE54A2B209AD0F0F022F34A380AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640557   (196944) от 18.06.2023
+
+Black Clover: Mahou Tei no Ken | Black Clover: Sword of the Wizard King | Чёрный клевер: Меч короля магов [2023, Movie] WebRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+На фестивале магических битв «Триумф», который проходит в славном Королевстве Клевера раз в десять лет, Аста намерен показать себя и вновь сразиться со своим другом детства Юно. Но радость предвкушения достойной битвы была прервана появлением Конрада Лето, прошлого короля магов. Вместе с приспешниками Конрад Лето планирует уничтожить Королевство Клевера, а на его (   Читать дальше...   )Производство: Япония / студия PierrotЖанр: Сёнен, экшен, комедия.Режиссер: Аятака ТанэмураЯзык озвучки: Русский (DejzDub)Субтитры: ОтсутствуютПродолжительность: 113 мин 01 секРеклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D1685BC15D60C4B7381AB10B5048A9F261D53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629120   (196724) от 21.06.2023
 
 В другом мире со смартфоном [ТВ-2] | Isekai wa Smartphone to Tomo ni. 2 | In Another World with My Smartphone 2 [2023, TV, 12 из 12] WebRip 396p Raw+Rus
@@ -6,7 +116,7 @@
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -34,7 +144,7 @@ Tsugumomo | Цугумомо [2017, TV, 12 эп.] BDRip HEVC 10-bit raw+eng+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -64,7 +174,7 @@ Bakuman | Бакуман [ТВ-1] [2010, TV, 25] BDRip HEVC 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -90,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -117,7 +227,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -144,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -171,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -198,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -225,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -252,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -279,7 +389,7 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -305,7 +415,7 @@ Douluo Dalu | Dou Luo Da Lu | Soul Land | Боевой континент [2018-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -331,7 +441,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -357,7 +467,7 @@ Rozen Maiden | Девы Розена [ТВ-1] [2004, TV, 12 эп.] BDRip 1080p 1
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -383,7 +493,7 @@ Paprika | Паприка [2006, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -409,7 +519,7 @@ Hanma Baki: Son of Ogre 2nd Season | Baki Hanma 2nd Season | Баки — сын
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -435,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -462,7 +572,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг королей [2021, TV, 23 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -488,7 +598,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай в серых тонах [2015,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -514,7 +624,7 @@ Grisaia no Meikyuu: Caprice no Mayu 0 | The Labyrinth of Grisaia: The Cocoon of 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -540,7 +650,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -566,7 +676,7 @@ Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -577,113 +687,6 @@ Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C674DFA1531DF100E3A077F80CBE4D8FBC51C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590316   (188933) от 13.11.2022
-
-Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её заветное желание [2020, Movie] BDRip 804p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жозе взяла себе имя героини романа Франсуазы Саган. Девушка прикована к инвалидному креслу и почти всё время проводит за чтением и рисованием. Знакомство и дружба со студентом Цунэо начинает менять её взгляды на жизнь, да и сам парень теперь смотрит на мир по-другому.Производство: студия Bones / ボンズЖанр: романтикаРежиссер: Тамура КотароЯзык озвучки: Японский, русский (Reanimedia)Субтитры: Английские, русские (Alisma, Reanimedia)Продолжительность: 1 эп. по 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161E257BFFF7E339941641BB30BBE8D4D6C27F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661993   (188216) от 16.09.2023
-
-Otonari ni Ginga | A Galaxy Next Door | Галактика по соседству [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итиро Куга рисует мангу и в одиночку воспитывает маленьких сестру и брата. Поскольку Итиро остался без ассистентов, издатель подыскивает ему нового помощника, и на просьбу откликается загадочная девушка, которая оказывается принцессой звёздного народа.
-© crunchyrollПроизводство: студия Asahi Production / 旭プロダクションЖанр: романтика, повседневностьРежиссер: Кимура РюйтиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE1AD107DBFE150087CCC8DB1D35AA8EAB6197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663005   (187411) от 19.09.2023
-
-Аяка | Ayaka | Ayaka: A Story of Bonds and Wounds [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юкито Янаги — юный сирота, которому постоянно снятся одни и те же сны: о его отце, о родных островах Аякаджима и о каких-то странных созданиях. Возможно, эти сны так бы и остались загадкой, если бы вдруг не объявился тот, кто взял и отправил парня на его малую родину. Правда, теперь на Аякаджиме всё по-другому: там обитают драконы, а также и те таинственные существа (   Читать дальше...   )Производство: Япония / Студия Studio Blanc.Жанр: Приключения, фэнтезиРежиссер: Нагаяма НобуёсиЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Arato, MefistoO, Renie, SlivciS, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155296BFE34914B73EA339F16898FAE8FCEC8462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663263   (187084) от 20.09.2023
-
-Из мечтателя в реалиста | Yumemiru Danshi wa Genjitsushugisha | The Dreaming Boy is a Realist [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ватару Саджо без ума от своей одноклассницы, красотки Айки Нацукавы, но при этом совсем не стесняется с ней общаться, строя планы о прекрасном совместном будущем. Но вот однажды, как гром среди ясного неба, к нему приходит осознание, что он ей совсем не пара. Твёрдо решив, что вместе им не быть, он начинает её сторониться, чем приводит девушку в замешательство. "Он (   Читать дальше...   )Производство: Япония / Студия Studio Gokumi, AXsiZЖанр: Комедия, романтика, повседневностьРежиссер: Кога КадзуомиЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Itashi, Lupin, NeoNoir (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C90670BF713624BE5076058A11712EA7541F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

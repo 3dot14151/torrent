@@ -1,3 +1,206 @@
+###  Публикация: 1169632   (401596) от 29.09.2017
+
+Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - A Clock in New York
+02 - I Want Him Resplendent
+03 - Leopold Chases Stuart to Brooklyn
+04 - That Was Your Best_(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034EAA79C1BAD3B3BF50B1ACFE40A180D1EE5738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169619   (401554) от 29.09.2017
+
+Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Ocean Colour Scene - Hundred Mile High City
+02 - Tom, Nick & Ed - 'It's a Deal, It's a Steal'
+03 - James Brown - The Boss
+04 - Skanga - Truely, Madly, Deeply(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5D69D0AEC8478570FE3D98138817750088CA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169850   (401516) от 29.09.2017
+
+Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Drinking With Dolly (3:16)
+02 - Winnebago (3:22)
+03 - Selfish (3:47)
+04 - Ugly (3:47)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF94E6C0A558AAF9D0521FDDDAC31FDBA9B9AE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168914   (401216) от 29.09.2017
+
+Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Unleashed (feat. Merethe Soltvedt) [05:25]
+02. One Above All (feat. C.C. White & Felicia Farerre) [03:49]
+03. Impossible (feat. Merethe Soltvedt) [08:55]
+04. Rune (feat. Uyanga Bold) [03:34](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 03:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DCD735EA65BD086F5C246400152F1B9EDE0E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170205   (400578) от 30.09.2017
+
+Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Anthem
+02. Crystal Light
+03. Free
+04. That June Feeling(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C9FB4D9394A7BF477964735423B32D783CB122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170058   (400521) от 30.09.2017
+
+Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowland
+02. Mindscapes
+03. Old Glow
+04. Panoramas(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6368FD23C843FA5F5F38170818BFC9447C52F489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169978   (400505) от 30.09.2017
+
+Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sovereign
+02. Dreamweaver
+03. Unbroken
+04. Daybreak(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51EDDB4FCF4153C873707FB5EDA37F804A1FDDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169976   (400314) от 30.09.2017
 
 Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps] <Ambient, New-Age, Electronic>
@@ -6,7 +209,7 @@ Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Johannes Linstead - Azul (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Oystein Sevag - 2 albums (2010, 2012) [MP3|320 кб/с]<New age, Jazz>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +360,7 @@ VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +389,7 @@ Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +418,7 @@ VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, E
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +447,7 @@ The Daydream - 10 albums (2001-2012) [MP3|320 кб/с]<New Age, Neoclassical, In
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +482,7 @@ Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -308,7 +511,7 @@ Delerium - Music Box Opera (2012) [MP3|320 кб/с]<New Age, Ambient, Chillout, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -343,7 +546,7 @@ Randy Newman - Maverick (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +575,7 @@ Delerium - Music Box Opera (2012) [FLAC|Lossless]<New Age, Ambient, Chillout, Do
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -407,7 +610,7 @@ David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +639,7 @@ Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +668,7 @@ Jesse Cook - Beyond Borders (2017) [MP3|320 Kbps] <Instrumental, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +697,7 @@ Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversa
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +726,7 @@ Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +755,7 @@ VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,209 +769,6 @@ VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E27E4541CC9E6BA987D6FBAC859DAF222F03FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171444   (395697) от 05.10.2017
-
-Thomas Newman - The Shawshank Redemption (1994) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - May
-02 - Shawshank Redemption (Stoic Theme)
-03 - New Fish
-04 - Rock Hammer(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C254D1A5D2004BB605A31A3D8F1603DE9B19522F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171580   (395646) от 05.10.2017
-
-Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|Lossless|tracks] <Folk, Cardiowave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро 0:37
-02. Кокон 4:41
-03. Зафиксировать вечность 4:21
-04. Небо хочет упасть 3:42(   Читать дальше...   )Жанр: Folk, CardiowaveПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFBEA27DEC0997095D2F4B0EF425B35DBAFDCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171893   (394845) от 06.10.2017
-
-Elizabeth Cook - This Side of the Moon (2004) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cupid (2:50)
-02 - Funny Side of Love (2:07)
-03 - Before I Go That Far (3:21)
-04 - Here's to You (2:59)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D80FDF50B194D7923921ABB46906D809608E263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172075   (394842) от 06.10.2017
-
-Roger Subirana - The Round Dimension (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantis (04:01)
-02. Vikings (03:59)
-03. As the Rain (04:26)
-04. Spheres (04:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC79164D03FD232B4FA9DCE4A96449813417D54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172131   (393924) от 07.10.2017
-
-Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [FLAC|Lossless|WEB-DL|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Deal With The Devil
-02. Don't Deal With The Devil (Instrumental)
-03. Introduction
-04. Tutorial(   Читать дальше...   )Жанр: Score / Jazz, Stage & ScreenПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF54F5712F7A5197C9EEBCC355F5FF90483DB00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171826   (393706) от 07.10.2017
-
-Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по лезвию 2049 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2049 (03:37)
-02. Sapper's Tree (01:36)
-03. Flight to LAPD (01:47)
-04. Summer Wind (02:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D319390D819994669DC890EB4553B645D45D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172136   (392902) от 08.10.2017
-
-Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Deal With The Devil
-02. Don't Deal With The Devil (Instrumental)
-03. Introduction
-04. Tutorial(   Читать дальше...   )Жанр: Score / Jazz, Stage & ScreenПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340C29F5700769848F3D079CC5F558A91FD55DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

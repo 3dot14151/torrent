@@ -1,3 +1,58 @@
+###  Публикация: 498407   (254221) от 18.05.2012
+
+Е.А. Васильева | Правила чтения английских слов для ленивых [2010] [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга - пособие "Правила чтения английских слов для ленивых" ознакомит вас с правилами чтения односложных, двусложных и многосложных слов английского языка, что в дальнейшем поможет выработать и закрепить навык быстрого правильного чтения слов данных групп при минимальном использовании транскрипции.
+Материал в пособии изложен в виде таблиц и моделей. Это поможет вам с легкостью усвоить правила чтения английских слов.2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08AAF25CFB67F581CBE5368B7897605E0983E8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498482   (254188) от 18.05.2012
+
+Е.А. Васильева | 2000 английских слов за 1 неделю Уникальная техника запоминания [2008] [FB2]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Данная книга позволяет решить проблему запоминания новых слов, т.е. наконец-то запомнить все 2000 слов без зубрежки и сэкономить драгоценное время.
+В книге изложена новая система ускоренного запоминания английских слои - "english-память", которая включает в себя "ключи для запоминания" каждого слова. Для лучшего запоминания слов использована тройная группировка: по частям речи, по темам, по ситуациям употребления. Кроме того, даны два вида Транскрипции (международная и "русская"), что позволяет "с нуля" запоминать слова.
+В  книге впервые изложены авторские техники запоминания "Техника запоминания символов международной транскрипции", "Техника запоминания правил чтения" и "Техника запоминания числительных".2008Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7193E6D4ACCC7548DA858B543273E424D126AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836748   (254087) от 12.11.2025
 
 Людмила Герасимова | Английский за чашкой кофе. Учи, когда удобно тебе (2025) [PDF]
@@ -6,7 +61,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -119,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -146,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -172,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -198,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -224,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -250,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -279,7 +334,7 @@ Redman Stuart | English Vocabulary in Use. Pre-intermediate and Intermediate (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -306,7 +361,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Intermediate (2015) [PDF] [Student's
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -332,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -358,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -384,7 +439,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Upper-Intermediat
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -411,7 +466,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Elementary (2017)
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -438,7 +493,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Pre-intermediate (2015) [PDF] [Stude
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -465,7 +520,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Advanced Plus (2019) [PDF] [Student'
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -492,7 +547,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Starter (2015) [PDF] [Student's book
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -519,7 +574,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Elementary (2015) [PDF] [Student's b
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -546,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -599,7 +654,7 @@ T&P Books Publishing | Русско-турецкий тематическии�
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -626,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -637,63 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD8B156D1E0327D563561194DE37845712629A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585747   (225398) от 09.12.2012
-
-Подборка | Oxford University Press: Business Result [PDF, DOC, +AudioCD] [En]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс делового английского Business Result помогает учащимся развивать необходимые навыки делового общения быстро и эффективно. Это возможно благодаря программе, направленной на коммуникацию, мультимедийной поддержке, а также благодаря советам экспертов одной из лидирующих бизнес-школ мира.
-
-Ключевые характеристики:
-•Программа обеспечивает владение навыками делового общения в режиме «узнай и используй».
-•Случаи из деловой практики дают возможность аутентичного погружения в реалии делового англоязычного мира.
-•«Мнение эксперта» от Крэнфилдской школы Менеджмента предлагает авторитетный деловой комментарий по каждому случаю из практики.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794DE88B15BEFE42649BA79705E23A5F086C29CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965684   (223849) от 15.12.2015
-
-Н.М. Дюканова | Английский язык в менеджменте (2015) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для всех, кто интересуется практикой современного менеджмента, неотъемлемой частью которого является профессиональный уровень владения английским языком. Особое внимание уделяется развитию навыков делового письма; приводятся тексты, где рассматриваются основные сферы менеджмента и бизнес-коммуникаций. Построение разделов — простое и (   Читать дальше...   )Жанр: Английский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD74974C2417F11AE7D27FDC444CF37E7667E9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

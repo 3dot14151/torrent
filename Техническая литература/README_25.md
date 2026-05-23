@@ -1,3 +1,109 @@
+###  Публикация: 1253541   (378924) от 11.10.2018
+
+Брайан Хуанг, Дерек Ранберг | Arduino для изобретателей. Обучение электронике на 10 занимательных проектах (2019) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно рассмотрено 10 занимательных проектов с платой Arduino Uno (светофор, светодиодный экран, светочувствительный ночник, мини-теплица, мобильный робот, миниатюрное пианино и др.). Описаны принципы работы и взаимодействие различных электронных компонентов, чтение принципиальных и монтажных схем, создание и тестирование прототипов с помощью беспаечной (   Читать дальше...   )Жанр: Радиоэлектроника и схемотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689DC10F503296EC6CA28A218E5D1BAE46A1A6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175397   (378476) от 18.10.2017
+
+Б.И. Фираго, Л.Б. Павлячик | Регулируемые электроприводы переменного тока (2006) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Изложены вопросы теории регулируемого электрического привода переменного тока, которые не получили достаточно полного освещения в современной научно-технической литературе. Книга включает анализ энергетических проблем мягкого пуска и торможения асинхронных электроприводов, описание методов расчета механических и электромеханических характеристик асинхронных короткозамкнутых (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54CA6C7E6047DDDC4408CCAA034D6CE6CA5B7A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175271   (378461) от 18.10.2017
+
+А.П. Кашкаров | Микромеханические системы и элементы (2018) [PDF, RTF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эволюционное развитие техники подошло к рубежу крупных изменений; открылись новые интересные задачи – разведка полезных ископаемых, предсказание землетрясений, сверхточное измерение положений железнодорожных путей и нефтепроводов, инновации в медицинской технике и др. В четырех тематических главах книги рассматриваются измерительные и силовые электронные датчики (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF, RTF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A03D242919DD775AA36190588E052CD77692B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175273   (378327) от 18.10.2017
+
+А.П. Кашкаров | Система спутниковой навигации ГЛОНАСС (2018) [PDF, RTF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Глобальная навигационная спутниковая система (ГЛОНАСС), разработанная в советское время для военных целей, сегодня активно применяется в транспортной инфраструктуре как государственных, так и коммерческих объектов на суше, воде и в воздухе, в том числе на объектах транспорта экстренных служб.
+
+ Главная задача ГЛОНАСС – определять местоположение и скорость движения (   Читать дальше...   )Жанр: Системы связиФормат: PDF, RTF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB848E2E8A338042992FCB9DB3F293EFA7AFBA13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175878   (376003) от 19.10.2017
 
 Александр Горбунов | Жизнь без проводов. Как изготовить ветроэлектростанцию для электроснабжения дома (2017) [PDF, EPUB]
@@ -6,7 +112,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +431,7 @@ LG Electronics | Мониторы LG. Схемы и сервис-мануалы 
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +458,7 @@ Rob Mannion / Роб Манион | Out of thin air / Из ниоткуда (200
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,113 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40CA5046EF1BE22615F61F78A732F6D3FD131364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418775   (346003) от 25.10.2020
-
-В.А. Петин | 77 проектов для Arduino (2020) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346003.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлено 77 экспериментов для Arduino — ценнейшего практического материала для обучения. Каждый эксперимент подразумевает поэтапное изучение электроники и программирования путем создания проектов на Ардуино. Процесс обучения от начала работы до готового устройства занимает не очень много времени. В рамках этой программы обучения можно собрать полноценный (   Читать дальше...   )Жанр: Электроника и схемотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A234E1D8DC52848C9E461564293900D51961814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953855   (344649) от 06.11.2015
-
-Е.С. Матвеев | Днепровские гидроузлы (1980) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрывается сложный путь формирования архитектуры гидроузлов днепровского каскада в процессе их проектирования, строительства и эксплуатации. Рассматриваются решения генеральных планов гидроузлов, влияние днепровского каскада на формирование новой пространственной среды .
-Книга рассчитана на архитекторов и градостроителей.
-
-Благодарность за материал - 47654oleggЖанр: Архитектура, СтроительствоФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173A330D398A863767E05280C3957683CD17B0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179830   (344317) от 02.11.2017
-
-В.Ю. Ломоносов и др. | Электротехника (1990) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приводятся основные понятия об элементах электрической цепи, методах расчета простых цепей постоянного и переменного тока. Дается общее описание физических процессов, происходящих в электрическом и магнитном полях. Излагается принцип действия полупроводниковых приборов, электрических машин и аппаратов, электроизмерительных приборов. Приводятся сведения о применении (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353C7767E3379EC6641CE58198BD05D4B0577DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180505   (339504) от 04.11.2017
-
-Подборка | Схемы и сервис-мануалы популярных автомагнитол (2006) [PDF] [En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Схемы и сервис-мануалы автомагнитол таких фирм как: ACURA, AUDI, HINO, HONDAGM, FIAT, FORD, LEXUS, MAZDA, MITSUBISHI, NISSAN, PORSCHE ,RENAULT, SAAB, SEAT, SUBARU, TOYOTA, OPEL, BMW, CITROEN, DAIHATSU, VW.Жанр: АудиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750EA337B22F8BDD6FE4A0B7857ACDDEC3780393
 ```
 
 https://mybot314.ru/tekegram_catalog/

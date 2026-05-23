@@ -1,3 +1,107 @@
+###  Публикация: 1501479   (154466) от 19.12.2021
+
+Кафе из другого мира [ТВ-2] | Isekai Shokudou 2 | Restaurant to Another World 2 [2021, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ресторан вновь открывает свои двери, неся с собой новые блюда и персонажей. Он находится на цокольном этаже многоквартирного дома, недалеко от делового района, отмечен вывеской с изображением кошки и называется "Дом Кота". По будням это вполне обычное заведение, но по субботам ресторан принимает очень необычных гостей. В эти часы открываются двери во множество (   Читать дальше...   )Жанр: Комедия, повседневность, фэнтезиРежиссер: Дзимбо МасатоЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C0E56ED9567C3604CC2C0089750E225E2FAB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601042   (153872) от 29.12.2022
+
+Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: Воспоминания о былом наследницы Тускур [2018, OVA, 1 из 1] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История из детства Куон.Производство: White FoxЖанр: приключения, фэнтезиРежиссер: Мотонага КэйтароПеревод: NachtwandlerЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 1 эп. на 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E1A9349AADF9256845795A37543E4D760C9DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601038   (153381) от 29.12.2022
+
+Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Недостаточно выиграть войну – надо сохранить и укрепить молодую империю Тускуру, названную в честь мудрой женщины, когда-то спасшей главного героя и нынешнего правителя. Мир – это, конечно, хорошо, но как, скажите, править государством, когда во дворце творится черт-те что?! То неизвестный младенец ставит на уши полстраны, то какие-то клоуны похищают любимую Эруру, (   Читать дальше...   )Производство: Chaos Project / カオスプロジェクトЖанр: приключения, фэнтези, эттиРежиссер: Кацура КэнъитироПеревод: Hollow (эпизоды 01-02 + спешиал 01), DeepKamate (эпизод 03), Term (спешиалы 02-03)Язык озвучки: японский, русский (только в эпизодах 01-03)Субтитры: русскиеПродолжительность: 3 эп. по 30 мин. + 3 спешиала по 13-18 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9971EA19A0514A7D8591518316C970D00458091E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601040   (153351) от 29.12.2022
+
+Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Прославленный: Маска лжеца [2015, TV, 25 + 8] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Белый бог» Хакуоро ушел, но обещал вернуться, а тем временем мир далекого будущего не стоит на месте – зверолюди, сменившие человечество, активно развиваются, осваивая новые земли, строя государства и сражаясь с чудовищами, наследием былых катаклизмов. Юная путешественница Куон находит в горах беспамятного паренька человеческой расы и дает ему имя Хаку (догадались, (   Читать дальше...   )Производство: White FoxЖанр: приключения, фэнтезиРежиссер: Мотонага КэйтароПеревод: Nachtwandler (эпизоды 01-25), Zabr (спешиалы 01-08)Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 25 эп. по 25 мин. + 8 спешиалов (склеены в 2 файла по 12 мин.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CFE6E6313024C07364C08517EF346C22035576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601032   (153344) от 29.12.2022
 
 Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прославленный [2006, TV, 26 + 4] BDRip 1080p raw+rus
@@ -6,7 +110,7 @@ Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прослав�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Пр
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Tejina Senpai | Фокусница-старшеклассница | Magical Semp
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshin
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Absolute Duo / Абсолютный Дуэт [2015, TV, 12 ep] BDRip Hi10p 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Chio-chan no Tsuugakuro | Дорога в школу Чио-чан [2018, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +348,7 @@ Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +374,7 @@ Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +400,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +481,7 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +561,7 @@ Occultic;Nine / Оккультная девятка [2016, TV, 12 ep] WEB-DL 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +588,7 @@ Subete ga F ni Naru: The Perfect Insider / Everything Becomes F: The Perfect Ins
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +640,7 @@ Ihara Saikaku Koushoku Ichidai Otoko | The Sensualist | Мужчина, неср
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +666,7 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -573,110 +677,6 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1D9721ACB158522E87D7B9868109FF9015E9B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063064   (143482) от 28.12.2016
-
-Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тоёхиса Симадзу — легендарный самурай эпохи Сэнгоку — принимает участие в великой битве при Сэкигахаре. В неравной схватке с отрядом вражеского полководца по имени Наомаса Ии он получает тяжелое ранение. Истекающий кровью, Тоёхиса с трудом пытается уйти с поля боя, но, вдруг, неизвестным образом попадает в длинный коридор из дверей, где его ожидает человек в очках. (   Читать дальше...   )Жанр: приключения, комедия, историяРежиссер: Судзуки КэнъитиСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF1AA72F42E87CC72C5B08E9D0F2011C0DA6726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241744   (143304) от 27.12.2018
-
-Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 14 из 14] WEB-DL 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о вас. Эта история о вашем теле. По последним данным человеческое тело состоит из приблизительно 37 триллионов клеток. Каждая из них неустанно работает на благо мира, который мы называем своим телом. Эритроциты разносят кислород, лейкоциты сражаются с бактериями… Всевозможные клетки исполняют свой долг невзирая на любые трудности. Долгожданная экранизация (   Читать дальше...   )Производство: Студия David Production / デイヴィッドプロダクションЖанр: комедияРежиссер: Судзуки КэнъитиЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 14 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13389E1BA70E0A7FF3556DBF5E58CCCBCC2538D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172932   (142996) от 28.12.2017
-
-Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каких только удобств нет у людей! И рестораны, и клубы, и библиотеки, и гостиницы… А вы думали, что ёкаям этого не нужно? Они так же, как и мы, желают жить на полную катушку и с комфортом! Гостиница "Конохана” полностью соответствует притязательным желаниям ёкаев. Она оформлена в традиционном японском стиле, расположена на горячих источниках, а работают в ней (   Читать дальше...   )Жанр: фэнтези, повседневностьРежиссер: Окамото ХидэкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC871614D1071202E56A9DF1F0A1BAA21F03C92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173698   (142990) от 28.12.2017
-
-Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / Путешествие Кино: Прекрасный Мир [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающий мир, полный путешествий, приключений и новых знакомств ждёт вас в этом аниме! Юная девушка в детстве осталась без отчего дома и попала на воспитание к таинственной женщине, которая умеет ловко обращаться с оружием. Научившись всему, что полезно для самостоятельной жизни, девушка решила отправиться в путешествие. У неё было множество навыков, но для (   Читать дальше...   )Жанр: приключения, драма, повседневностьРежиссер: Тагути ТомохисаЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6057850A07C2A67026D94CA78216472BEB30E26A
 ```
 
 https://mybot314.ru/tekegram_catalog/

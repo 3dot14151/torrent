@@ -1,3 +1,178 @@
+###  Публикация: 694564   (546670) от 29.08.2013
+
+VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Alexander Popov - Moscow Subway (Official Music Video)
+02.Ali - Cocoon (Official Music Video)
+03.Armin van Buuren feat. Cindy Alma - Beautiful Life (Official Music Video)
+04.Armin van Buuren feat. Jacqueline Govaert - Never Say Never (Official Music Video)(   Читать дальше...   )Жанр: Музыка, TranceПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4830C0249FD0F1C5AC67F9159372EB956149836A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238537   (546127) от 30.07.2018
+
+Сборник клипов - Lite Fitness от ALEXnROCK часть 1 (2018) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник делал на заказ для фитнесс зала. В него вошли ритмичные клипы с танцевальной поп музыкой периода 2010 - 2018. Он подойдет для любых физических упражнений и танцев, да и просто побалдеть под крутую попсу. Обложка и блин для диска есть в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
+001 Andreea Balan - Trippin
+002 Armin van Buuren feat. Josh Cumbee - Sunny Days (Club Mix)
+003 Alex Spite - Sky(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 03:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37945BF39FFA59100F1EE383AA34A089C2598F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694861   (545822) от 30.08.2013
+
+Серия "SOLOS: The Jazz Sessions" - James Blood Ulmer (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Are You Glad To Be In America?
+02. Black Sheep
+03. Satisfy (Story Of My Life)
+04. Secret(   Читать дальше...   )Жанр: Jazz, harmolodics, free funk, blues, electric bluesПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275F678F173D160DF93338509B5063CF9C607BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694871   (545780) от 30.08.2013
+
+Серия "SOLOS: The Jazz Sessions" - John Abercrombie (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Open Land
+02. Improvisation #3 (Improvisation on How Deep Is the Ocean)
+03. Alice in Wonderland
+04. Jazz Folk(   Читать дальше...   )Жанр: Progressive jazz, jazz fusion, post-bop, hard bop, avant-garde jazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F121EA600F57B12642BC96BF6DD5459A3E3D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048354   (545551) от 03.09.2016
+
+Kiss. Rocks Vegas 2014 (2016) HDTV [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выступление американского Hard rock бэнда Kiss на сцене The Joint at Hard Rock Hotel в Лас Вегасе nov 05-23, 2014
+Запись концерта  2014. Eagle Rock Entertainment издала блюрик. А спутниковая трансляция и соответственно, запись, была сделана в 2016 году. Так что можно считать это выпуск 2016.01. Detroit Rock City
+02. Creatures Of The Night
+03. War Machine (Gene breathes fire)
+04. Lick It Up(   Читать дальше...   )Производство: ORF3Жанр: Hard rock, Heavy metal, Glam metalПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E786CA7ACFB77C1DA50CBC08409729DB954504E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048917   (545464) от 03.09.2016
+
+Kiss - Rocks Vegas (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Oчередной подарок от Eagles Rock: Kiss качают Вегас! Запись сделана в том же самом зале The Joint в Hard Rock отеле в Лас-Вегасе, Невада. Антураж был сделан в классическом стиле середины 70-х, начиная с костюмов и кончая сценическими штучками. Было всё - извергание огня, вознесение под крышу, полёты на невидимых верёвочках, стрельба фейерверками посредством гитарного (   Читать дальше...   )01. Detroit Rock City
+02. Creatures Of The Night
+03. Psycho Circus
+04. Parasite(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:28:12 + 00:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AFD1500CF1D41945F63748B1ED870CFA36DA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310772   (545136) от 26.06.2019
 
 Сплин - Unplugged. Усадьба Jazz (22.06.2019) WEBRip [H.264/1080p-LQ]
@@ -6,7 +181,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +207,7 @@ Iron Maiden - The Book Of Souls: The Live Chapter (2017) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +292,7 @@ VA - Летний марафон № 180 / Видеоклипы (Новинки 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -204,7 +379,7 @@ Herbie Hancock - Future2Future (2002) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -233,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -262,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -291,7 +466,7 @@ The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +495,7 @@ U.D.O. - Navy Metal Night (2015) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +642,7 @@ Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -548,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,172 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ED91C12A3E63E84B840870A8AFF5BD0BB060505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818641   (539476) от 04.09.2014
-
-Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grimes - Genesis
-02. Ellie Goulding - You My Everything
-03. Chase & Status Feat. Jacob Banks - Alive
-04. CHVRCHES - The Mother We Share(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D552E5DA267DB785BAE8C7A6D36FD80A2119E9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818488   (539475) от 04.09.2014
-
-Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.I. & Lil Wayne - Wit Me
-02. Ciara Feat. Nicki Minaj - I'm Out
-03. Tinie Tempah Feat. 2 Chainz - Trampoline
-04. Jay Sean Feat. Rick Ross - Mars(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FC65D9F6E97D52CE52949A38E90E600412E1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818371   (539467) от 04.09.2014
-
-Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicki Minaj - Pound The Alarm
-02. Timbaland Feat. Ne-Yo - Hands In The Air
-03. Tulisa - Young
-04. Alexandra Burke - Let It Go(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45ACA999CED0157B17C1D13A94344CACC2A4800E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511876   (538720) от 05.08.2018
-
-Сурганова и оркестр - концерт на Красной площади <Rock>   (2012.12.06) TvRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана Сурганова и оркестр на гала-концерте  в Москве на Красной площади 12. 06. 2012 года, в рамках празднования Дня России.1. Увидимся скоро
-2. АпрельскаяЖанр: RockПродолжительность: 00:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A6465AC7E53952658541D9313CBC2AF102EC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696803   (538103) от 04.09.2013
-
-Михаил Булгаков - Мольер (Кабала святош) (1988) SATRip (МХАТ им. А.П. Чехова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Спектакль, драмаРежиссер: Адольф ШапироАктеры: Олег Ефремов, Наталья Тенякова, Иннокентий Смоктуновский, Олег Табаков, Вячеслав Невинный, Ирина Юревич, Ольга Барнет, Павел Белозеров, Юрий Кочнев, Виктор КулюхинПродолжительность: 02:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906109FA9501983174B7F9E699601491105E288E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532250   (537855) от 07.08.2012
-
-Цирк дю Солей: Большое путешествие / Cirque du Soleil: Journey of Man (2000) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цирк… Атмосфера чуда и праздника витает в воздухе. Арена притягивает взгляды. И вот гаснет свет, дирижер взмахивает палочкой, оркестр берет первые такты… Представление начинается, и зал замирает в ожидании сказочного действа…Жанр: короткометражка, мюзикл, фэнтези, драма, семейныйАктеры: Иэн МакКеллен, Никки Дьюхерст, Брайан Дьюхерст, Anait Karagyezyan, Крис Ван Вагенен, Кенни Раскин, Cully Smoller, Михаил Маторин, Ив Декосте, Marie-Laure MesnageПеревод: дублированныйСубтитры: Русские, АнглийскиеПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7B1CD0339E2B9A8E64D02187C17346739846EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

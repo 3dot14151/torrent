@@ -1,3 +1,196 @@
+###  Публикация: 721798   (369674) от 12.11.2013
+
+Журнал | Cosmopolitan [Россия] №12 (декабрь 2013)  [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь и добивается (   Читать дальше...   )Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA59C5F761328FB9C414F3D52B76EA9AE7045968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575593   (368073) от 15.11.2012
+
+Журнал | Cosmopolitan [Россия] №12 (декабрь 2012) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь и добивается (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A22786F71F7D0631337042A7E474CF0A260BA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070598   (366670) от 07.11.2016
+
+Каталог | Madeleine Feeling (Осень-Зима 2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Madeleine это модные тенденции и предложения, собранные в одном каталоге. В новой коллекции представлена роскошная одежда класса люкс, подчеркивающая женское очарование и обаяние. Убедитесь в этом сами! Madeleine представляет коллекцию элегантной одежды с классическим дизайном и бесподобным качеством.
+
+Каталоги Madeleine:
+ Каталог | Madeleine Accessoires (Осень-Зима (   Читать дальше...   )Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABF016F6999CE2E0A2C59455F87372A12B9BC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070490   (366669) от 07.11.2016
+
+Каталог | Madeleine Accessoires (Осень-Зима 2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каталог Madeleine Accessoires осень-зима 2016 представляет женские аксессуары класса Люкс. Высококачественные изделия изготовлены из натуральной кожи и замши. Стильные аксессуары дополнят и завершат деловой образ бизнес-вумен.
+
+Каталоги Madeleine:
+ Каталог | Madeleine Christmas (2016)Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBB624D550CA3C53104222CDC866B352C9D397A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070612   (366668) от 07.11.2016
+
+Каталог | Madeleine Magazin (Осень-Зима 2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новое приложение от каталога Madeleine - Madeleine Magazine 2016 приглашает вас окунуться в неповторимый и прекрасный, сдержанный мир Лондона . Тенденции и веяния в современной моде разбавлены своим исключительно британским вкусом. В итоге получилась уникальная и по-настоящему интересная коллекция, которую fashion-критики назвали бы стиль Лондона.
+
+Каталоги Madeleine: (   Читать дальше...   )Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCD57FE84ECF6C574A2DA690DFD3C3D41554866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070620   (366661) от 07.11.2016
+
+Каталог | Madeleine Favourites (Осень-Зима 2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Предпочитаете элегантный и непринужденный стиль? Будьте уверены, что каталог Madlen покорит вас! В нем представлена красивая женская одежда в самых разных вариациях. Это костюмы, свитера, платья, пиджаки, юбки, пальто. Отдельной линейкой презентованы роскошные модели для домашнего отдыха: пижамы, халаты, пеньюары, костюмы в спортивной манере. Всю одежду отличает (   Читать дальше...   )Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F33B1B7BBF993A55F712501CFD318AFE7847AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070477   (366639) от 07.11.2016
+
+Каталог | Madeleine Christmas Специальный рождественский выпуск (2016) [PDF] [De]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы уже давно ждете приглашения на новогоднюю вечеринку? Специальный рождественский выпуск каталога Madeleine Christmas подготовил для Вас дефиле роскошных новогодних нарядов и готов сделать Ваш выход неотразимым. Пришла Ваша очередь стать Снежной королевой!
+
+Каталоги Madeleine:
+ Каталог | Madeleine Accessoires (Осень-Зима 2016)Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F19A6526B5FCA1AB73802C67E8287768A25287A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070389   (366553) от 07.11.2016
 
 Каталог | Quelle Новогодний (Осень-Зима 2016) [PDF]
@@ -6,7 +199,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,188 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0DCFD9FB719397D8071DAA85E427795D4B4F9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725844   (342693) от 23.11.2013
-
-Журнал | Vogue [Россия] №12 (декабрь 2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Vogue поистине легенда в мире моды, ведь он издаётся уже более 120 лет. Журнал печатается в 19 странах мира, его аудитория огромна и он по праву занимает первое место. Меняются эпохи, а Vogue по-прежнему является для женщин путеводителем в мире моды. Лучшие модели, коллекции и тренды всё это можно найти на страницах Vogue. Частично удалена реклама.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B7B2E1B824B6D87ABB523F0C26362E78D722E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180255   (342229) от 03.11.2017
-
-Журнал | Худеем правильно №11 (ноябрь 2017) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание предлагает уникальную систему импульсного похудения и управления весом. Эксклюзивные рецепты вкусных блюд для похудения; советы ведущих диетологов, психологов; анализ самых современных методик снижения веса и коррекции фигуры.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAA7E28B9B2036A7D78C990419A85CC625348A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180257   (342212) от 03.11.2017
-
-Журнал | Караван историй №11 (ноябрь 2017) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание стало настоящим хитом на издательском рынке и сегодня, несомненно, является лидером рейтинга женских журналов. Уникальность издания заключается в нестандартном содержании: материалы о ярких интересных личностях подаются в очень глубоком и объемном изложении и иллюстрируются эксклюзивными фотографиями, часто из личных архивов героев.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9ABEE28A1F8FA9937645B2956F45D4D6AAE4BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726119   (340704) от 24.11.2013
-
-Журнал | Cosmopolitan [Украина] №12 (декабрь 2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340704.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Cosmopolitan" – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D32E4BFA385E5FC46D67B6D3BB1C6395DE3DEC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413901   (329456) от 22.11.2011
-
-Журнал | Women’s Health [Россия] №2 (декабрь 2011) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Women’s Health – качественное издание о здоровом образе жизни в формате модного глянца. Это живой, веселый и практичный журнал для современных, активных женщин, он не только о здоровом образе жизни и фитнесе, но и о красоте, стиле, сексе и отношениях.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79F5C0375B90E786AB46F6A02DE9FB9E8E1A31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842880   (326575) от 20.11.2014
-
-Журнал | Glamour [Россия] №11, 12 (ноябрь-декабрь 2014) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326575.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Glamour" - это пропуск в красивую жизнь. Наш журнал будет большое внимание уделять моде и красоте. Он станет вашим гуру в вопросах создания собственного стиля, независимо от вашего бюджета. Легкий и компактный, "Glamour" идеально вписывается в нашу жизнь.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F99E315F2906C96BE880D2D8A2F6B70F181CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415720   (324946) от 27.11.2011
-
-Журнал | Vogue [Россия] №12 (декабрь 2011) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vogue полностью посвящен моде, служит источником вдохновения и советчиком по стилю. Подиум, новости моды и красоты, последние тенденции, интервью с дизайнерами и моделями, фоторепортажи с лучших светских вечеринок и многое другое вы найдете на страницах этого журнала. ЖурналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4FC679FC7FAA81468EC9B49109489E1CFF8656
 ```
 
 https://mybot314.ru/tekegram_catalog/

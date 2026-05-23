@@ -1,3 +1,111 @@
+###  Публикация: 122854   (1027291) от 08.03.2021
+
+Digital Juice / Цифровой Сок (2002, 6 эп.) DVDRip 400p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборный винегрет-солянка. По другому данную работу и не назовёшь. Отдалённо напоминает ставшие уже классикой жанра Memories (Воспоминания) -- потому как всё так же состоит из нескольких никоим образом не взаимосвязанных друг с другом сюжетов, совершенно разных по своей графике и рисунку.
+"Digital Juice" - это не просто экспериментальная анимация, это то, (   Читать дальше...   )Жанр: фантастикаРежиссер: Моримото КодзиПродолжительность: 6 эп. ~по 3 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567475D76FDE70284666DAF406EDCF3EE316CBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 115943   (1027284) от 08.03.2021
+
+Hajime no Ippo - Mashiba vs Kimura / Первый шаг - Масиба против Кимуры [2003, OVA] DVDrip raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+(с) petr159 world-art.ru
+
+Из названия сразу понятно что серия посвящена бою Машиба и Кимуры. Серия не хуже предыдущих, тем кто смотрел сериал стоит посмотреть.
+Если раньше мы видели бои Кимуры лишь эпизодами и не могли полностью увидеть его мастерства, то здесь он раскроется по полной. Да и Машиба проявит себя неплохо.Жанр: спорт, боевые искусства, сёнэнРежиссер: Нисимура СатосиПродолжительность: 60 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F0F7F89DE845DA9522942BF1FC0754FE1EA823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453176   (1027242) от 09.03.2021
+
+Ayu Mayu Gekijou | Театр Аю и Маю [2006, OVA, 4 + 3 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф "Беспокойных сердец". Он расскажет нам о ежедневных приключениях Аю и Маю - работников ресторана "Небесный Храм"Производство: Студия Picture Magic / ピクチャーマジックЖанр: комедияРежиссер: Сага СатосиПеревод: neutralЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 4 эп. по 4 мин. + 3 SP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E9CC3E7EDD6A760A81CC0B7CA857A57D16985F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453181   (1027231) от 09.03.2021
+
+Akane Maniax | Фанаты Аканэ [2004, OVA, 3 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Года Дзёдзи студент, переведённый в академию Хакурё. В первый же учебный день он признался в любви с первого взгляда Судзумии Аканэ и тут же предложил встречаться. Эти два, противоположные во всём, персонажа пытаются сблизится друг с другом благодаря недюжинным усилиям Дзёдзи.Производство: Студия Silver / シルバーЖанр: комедия, драма, романтикаРежиссер: Ватанабэ ТэцуяПеревод: iншы & Dialog & AtlasЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 26 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB774A0511D5F68C44F8EA6A637F4B128E753CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453217   (1027210) от 09.03.2021
 
 Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 26] BDRip 720p 10bit raw
@@ -6,7 +114,7 @@ Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +140,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, Web, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +166,7 @@ Sky Girls / Небесные девочки [2007, TV, 26 + 9 sp] DVDrip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +194,7 @@ Maris the Chojo | The Supergal | Марис Сильнейшая [1986, OVA] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +220,7 @@ Big Wars: Kami Utsu Akaki Kouya ni | Большие Войны [1993, OVA] DVDRi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +246,7 @@ Dengeki Oshioki Musume Gootaman / Butt Attack Punisher Girl Gautaman / Гаут�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +275,7 @@ Ame to Shoujo to Watashi no Tegami | Rain, the Little Girl, and My Letter | До
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +301,7 @@ Saishuuheiki Kanojo: Another Love Song | SaiKano: Another Love Song | Моя д�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +328,7 @@ Key the Metal Idol / Кии - металлический идол [1994, OVA, 15
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +356,7 @@ Digital Devil Monogatari Megami Tensei / Digital Devil / Повесть о ци�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +382,7 @@ Kaidoumaru | Kai Doh Maru | Кайдомару [2001, OVA] DVDRip 368p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +408,7 @@ Green Legend Ran | Зеленая легенда Рана [1992, OVA, 3 из 3] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +436,7 @@ Otogizoushi | Otogi Zoshi | Отогидзоси [2004, TV, 26 из 26] DVDRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +462,7 @@ Trava: Fist Planet | Трава: Межпланетный кулак [2002, OVA,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +488,7 @@ Kakurenbo | Hide and Seek | Kakurenbo: игра в прятки [2004, Movie] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +514,7 @@ Twilight Q / Twilight Q / Сумерки Къю [1987, OVA, 2 эп.] DVDRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +541,7 @@ Adachi to Shimamura | Adachi and Shimamura | Адати и Симамура [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +567,7 @@ Bus Gamer | Бизгеймер (Бизнес-игрок) [2008, OVA, 3 из 3] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +593,7 @@ Ningyo no Kizu | Mermaid's Scar | Шрам русалки [1993, OVA] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +619,7 @@ Ningyo no Mori | Mermaid Forest | Лес русалок OVA [1991, OVA] DVDRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +645,7 @@ Master Mosquiton 99 | Master of Mosquiton '99 | Хозяйка Москитон�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +671,7 @@ Asu no Yoichi! | Samurai Harem | Ёити завтрашнего дня [2009, T
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,110 +682,6 @@ Asu no Yoichi! | Samurai Harem | Ёити завтрашнего дня [2009, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F63EAF9E9944E6DEF277C21EB416B969FE870A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454420   (1026381) от 14.03.2021
-
-Keisatsu Sensha Tai TANK SWAT 01 | TANK S.W.A.T. 01 | Танковый спецназ 01 [2006, OVA] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Славный экипаж танка-малютки "Бонапарт" под руководством Леоны Одзаки, служащий в составе танковой полиции города Ньюпорта, получает ответственное задание - вернуть дискеты с секретной информацией, выкраденные криминальными элементами из правительственных архивов. Ребята успешно выполняют свою миссию, но в заложниках у преступников оказывается участница (   Читать дальше...   )Производство: Ginga Teikoku, Agent 21Жанр: приключения, фантастика, мехаРежиссер: Романов ХигаПеревод: WergilЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C3F839FC6782299A8E171D8269CAEFF153126E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454215   (1026355) от 14.03.2021
-
-Issho ni Training: Training with Hinako | Утренняя гимнастика с Хинако [2009, OVA] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая девушка по имени Хинако превращается в аниме-девушку. Теперь, когда она играет в аниме, она стремится оставаться в форме и вдохновляет зрителя к тренировкам вместе с ней.Производство: Студия Studio Hibari / スタジオ雲雀Жанр: эттиРежиссер: Судзуки ИкуПеревод: KirakishouЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD037EE14B1F49CA017D0B3D42284ECDD919743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454219   (1026348) от 14.03.2021
-
-Issho ni Sleeping: Sleeping with Hinako | Спим вместе с Хинако [2010, OVA] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хинако, бывший человек, ныне живущий в мире аниме, заснула. Это фильм о её беззащитном сне.Производство: Студия Studio Hibari / スタジオ雲雀Жанр: эттиРежиссер: Кимура СинъитироПеревод: StormHeartЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 46 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21989291895CA7E776AE12D49963F8A2DA9C6E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454223   (1026342) от 14.03.2021
-
-Issho ni Training Ofuro: Bathtime with Hinako & Hiyoko | В ванне с Хинако и Хиёко [2010, OVA+SP] DVDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зрителям предлагается повторять упражнения в ванной и после ванны с Хинако и новым персонажем Хейко.Производство: Студия Studio Hibari / スタジオ雲雀Жанр: эттиРежиссер: Кимура СинъитироПеревод: RaveForceЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 35 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596CF269EF910DCFC2EC43C937A28531D4779824
 ```
 
 https://mybot314.ru/tekegram_catalog/

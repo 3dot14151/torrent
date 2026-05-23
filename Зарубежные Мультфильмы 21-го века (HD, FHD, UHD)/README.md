@@ -1,4 +1,109 @@
 https://t.me/izofen
+###  Публикация: 1871584   (1070050) от 
+
+Экзорцизм. Хроники: Начало / Toemalog / Exorcism Chronicles: The Beginning (2024) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+145-й настоятель тайного храма, сотни лет проведя в изгнании, готовится провести зловещий ритуал, чтобы обрести силу абсолютного зла. Его пытаются остановить хранители храма — представители разных религий.Производство: Корея Южная / Locus Studio, ShowboxЖанр: мультфильм, фэнтези, боевикРежиссер: Ким Дон-чхольАктеры: Чхве Хан, Нам До-хён, Чон Ю-джон, Ким Ён-у, Ким Мин-джу, Хон Сын-хё, Хван Чхан-ён, Пхё Ён-джэПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, КорейскийСубтитры: Русские (Forced, Full), Корейские, АнглийскиеПродолжительность: 01:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3758FE09A6BF98A301BAC329C8D352F7BFC2811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871585   (1070049) от 
+
+Экзорцизм. Хроники: Начало / Toemalog / Exorcism Chronicles: The Beginning (2024) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+145-й настоятель тайного храма, сотни лет проведя в изгнании, готовится провести зловещий ритуал, чтобы обрести силу абсолютного зла. Его пытаются остановить хранители храма — представители разных религий.Производство: Корея Южная / Locus Studio, ShowboxЖанр: мультфильм, фэнтези, боевикРежиссер: Ким Дон-чхольАктеры: Чхве Хан, Нам До-хён, Чон Ю-джон, Ким Ён-у, Ким Мин-джу, Хон Сын-хё, Хван Чхан-ён, Пхё Ён-джэПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, КорейскийСубтитры: Русские (Forced, Full), Корейские, АнглийскиеПродолжительность: 01:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE7B747AB4A7C943B884102604FF2E67BAA6CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870872   (1069442) от 
+
+Хроники Риддика: Темная ярость / The Chronicles of Riddick: Dark Fury (2004) BDRip [H.265/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Анимационная лента «Хроники Риддика: Темная ярость» сюжетно связана с первой частью фильма о приключениях отважного героя. Здесь мы увидим, что случилось с уцелевшими членами экипажа, покинувшими планету, кишащую ужасными монстрами из первой части под названием «Черная дыра».
+В представленной картине наш герой попадает в руки охотников за головами, которые решили (   Читать дальше...   )Производство: США / Universal Animation Studios, Universal Cartoon StudiosЖанр: короткометражный, фантастика, боевикРежиссер: Питер ЧонАктеры: Вин Дизель, Риана Гриффит, Кит Дэвид, Роджер Л. Джексон, Тресс МакНилл, Ник Чинланд, Дуайт Шульц, Сарж, Джулия Флетчер, Хеди Барресс и другиеПеревод: Дублированный (Первый канал), многоголосый (Universal Pictures Russia)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7565E39A2580F97ED5B059EC10C71BFDC7FDD94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869868   (1069257) от 
+
+В чужой шкуре / Swapped (2026) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Handmade Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Маленькое лесное существо Олли и величественная птица Айви, которая охотится на него, волшебным образом меняются телами. Чтобы снова оказаться в своей шкуре, им приходится объединить силы и вместе отправиться в приключение.Производство: Испания, США / Skydance Animation, Skydance ProductionsЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Нэйтан ГреноАктеры: Майкл Б. Джордан, Джуно Темпл, Седрик «Развлекатель», Жустина Мачадо, Нейт Торренс, Кемден Брукс, Táta Vega, Амбика Мод, Лолли Адефопе, Джон РатценбергерПеревод: Дублированный (Videofilm Int.)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CAEFFB13707DA4F7E894723E7674E848B3E6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869748   (1068510) от 
 
 Я, Франкельда / Soy Frankelda / I'm Frankelda (2025) WEB-DL [H.264/1080p] [ESP / RU Sub]
@@ -7,7 +112,7 @@ https://t.me/izofen
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +349,7 @@ GOAT: Мечтай по-крупному / GOAT (2026) UHD BDRemux [H.265/2160p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +375,7 @@ GOAT: Мечтай по-крупному / GOAT (2026) BDRip [H.264/1080p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +401,7 @@ GOAT: Мечтай по-крупному / GOAT (2026) BDRip [H.264/720p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -567,112 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6145CD58C401F69AF9D4E78281807A3F9660B873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862013   (1064407) от 28.03.2026
-
-Губка Боб: В поисках квадратных штанов / The SpongeBob Movie: Search for SquarePants (2025) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Губка Боб и Патрик отправляются в самые глубины океана, чтобы встретиться с призраком Летучего Голландца. В пути их ждут захватывающие испытания, загадочные морские тайны и новые открытия. Тем временем мистер Крабс и Сквидвард идут по следу Губки Боба и пытаются его спасти.Производство: США / Nickelodeon Movies, Paramount PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дерек ДраймонАктеры: Том Кенни, Клэнси Браун, Роджер Бампасс, Билл Фагербакки, Кэролин Лоуренс, Мистер Лоуренс, Джордж Лопес, Айс Спайс, Артуро Кастро, Шерри КолаПеревод: Дублированный (Продубляж, укр. LeDoyen), Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2136CF1CA1720586ED340E9D3F5F7D9499CB496A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862208   (1064298) от 29.03.2026
-
-Ледниковый период (2002) / Ice Age (2002) UHD WEB-DL [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается 20 тыс. лет назад. Чтобы избежать приближающегося из-за наступления ледникового периода холода, животные мигрируют на юг. Однако некоторые из них всё-таки решают остаться — одинокий, угрюмый мамонт Манфред, а также бесшабашный ленивец Сид.
-Случайно эта парочка наталкивается на человеческого детёныша. Они решаются вернуть его людям и отправляются (   Читать дальше...   )Производство: США / Twentieth Century Fox, Blue Sky StudiosЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Крис Уэдж, Карлос СалданаПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEB060A92C23D5E470D1C4911DBB1887A6FC2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862211   (1064296) от 29.03.2026
-
-Ледниковый период 2: Глобальное потепление (2006) / Ice Age: The Meltdown (2006) UHD WEB-DL [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саблезубый тигр Диего, мамонт Манфред, грызун Скрэт и ленивец Сид дожили до глобального потепления. С одной стороны, это круто — ледяная пустыня превратилась в настоящий аквапарк, где можно принимать теплые ванны и резвиться под сенью струй. С другой — не очень: стремительный паводок идет прямиком к их родной долине.
-Теперь ответственным животным придется спасать (   Читать дальше...   )Производство: США / Twentieth Century Fox, Blue Sky StudiosЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Карлос СалданаПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831F666D4F40FC7CC6C947CFFCEA015F732F865F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862215   (1064292) от 29.03.2026
-
-Ледниковый период 3: Эра динозавров (2009) / Ice Age: Dawn of the Dinosaurs (2009) UHD WEB-DL [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064292.jpg" />
-</div>
-
-
-###  Подробнее
-
-К событиям «Ледникового периода 3» жизнь главных героев мультфильма потерпела некоторые изменения. Мамонты Манфред и Элли ожидают появление на свет своего детёныша; саблезубый тигр Диего впал в раздумье о том, не стал ли он слишком «мягкотелым» в компании своих друзей; ленивец Сид, бредя желанием создать собственное племя, решился украсть несколько яиц динозавра. (   Читать дальше...   )Производство: США / Twentieth Century Fox, Blue Sky StudiosЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Карлос Салдана, Майк ТёрмайерПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE61A19D426A9FEB7F520893F52220694F05AF79
 ```
 
 https://mybot314.ru/tekegram_catalog/

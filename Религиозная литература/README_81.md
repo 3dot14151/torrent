@@ -1,3 +1,107 @@
+###  Публикация: 1418752   (346804) от 25.10.2020
+
+Митрополит Нектарий (Антонопулос) | Святая Гора. Гора, которую я немного узнал, но сильно полюбил (2019) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — плод многолетней работы хорошо известного на Святой Горе высокопреосвященного Нектария, митрополита Арголидского. С юности полюбив Афон, он на протяжении нескольких десятилетий по нескольку раз в год посещал Святую Гору. Все свои беседы с афонскими старцами автор пуктуально записывал сначала в свой дневник, а затем и на магнитофон. В результате у него (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9673EB7CCB39F783A894E226D1D57E7AB4A5F324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 725044   (345961) от 22.11.2013
+
+Свящ. А.М. Темномеров | Учение Священного Писания о смерти, загробной жизни и воскресении из мертвых (1899) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+От автора: "Между многими вопросами верующего разума вопрос о смерти человека и его дальнейшей судьбе является, бесспорно, одним из самых настойчивых. Самая жизнь только тогда получает смысл и должное направление, когда человек убедится в бесконечном продолжении своего существования и признает другой мир, в котором могут найти осуществления все законные стремления (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FC9BB34BB2534BD8694BD61EE58FB20BD7EDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330113   (345747) от 08.10.2019
+
+Диакон Илья Кокин | Страх возводит стены, любовь строит мосты (2018) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих лет автор читал лекции и проводил беседы со старшеклассниками и студентами. Оказалось, что из всего многообразия тем слушателей сильнее всего волновали две: тема страха (и всего, что с ним связано, — тревоги, смерти и т. п.) и тема любви (в первую очередь между мужчиной и женщиной). Отталкиваясь от этих двух тем, разбирая наши главные страхи (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F3A39EDB9B6CB40B15230F025CAD9B04413C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954186   (344764) от 06.11.2015
+
+Анатолий Алексеевич Спасский | Эллинизм и христианство (2006) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эллинизм и христианство - одна из самых известных работ русского историка древней Церкви Анатолия Алексеевича Спасского (1866-1916). Она посвящена полным захватывающего интереса взаимоотношениям древней греко-римской культуры и новой, по тем временам, богооткровенной религии - христианства. Сложная область культурно-философских понятий эллинизма и христианства рассмотрена (   Читать дальше...   )Жанр: Монография, история раннего христианстваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E67DA2188A756F8F7B160042D783CCD23922019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418868   (344708) от 26.10.2020
 
 Пётр Давыдов | Чудеса как признак жизни (2019) [EPUB]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Firmin-Didot et Ciz (изд.) | Восточная патрология [Patrolo
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,118 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4FBD4CA67FB535D6CC70CC64B2264155645B6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420310   (333996) от 31.10.2020
-
-Диакон Георгий Малков, Пётр Малков | У пещер «Богом зданных». Псково-Печерские подвижники благочестия ХХ века (2019) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псково-Печерский монастырь известен каждому православному человеку. Многие, посетив обитель однажды, вновь и вновь стремятся в ней побывать. Сюда людей привлекает живописный уголок Псковской земли, непрекращающаяся с самого открытия монастыря молитва, а главное, истинные подвижники, чьи имена и труды прославили древнюю обитель.
-
-Наставления Псково-Печерских старцев, (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26EEC8B4BA5DBEEB751AEA6B68025E25283E6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419376   (333984) от 31.10.2020
-
-Т. Рарова (сост.) | Война и вера (2019) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Война и вера» состоит из реальных историй времён всех войн ХХ и начала XXI столетий. Каждый рассказ являет чудо, как свершившийся факт, даёт убедиться, что невозможное возможно.
-
-Для удобства чтения сборник разделён на восемь частей, соответствующих разным темам: о непобедимости Креста, о силе веры, о защите неправедно осуждённых, о помощи Господа, Пресвятой (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B88EDCA67D3EB2DD4A9BAA00863F6D1086548A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420138   (333903) от 31.10.2020
-
-Иван Ильин | Россия. Путь к возрождению (2017) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вам издание трудов известного русского философа, писателя и публициста Ивана Александровича Ильина (1883–1954), посвящённых извечным темам поиска пути духовного, нравственного обновления и возрождения. «Задача моей книги – указать на этот путь и утвердить его верность» – так сам философ определил цель своей книги.
-
-Это издание – великолепный подарок (   Читать дальше...   )Жанр: Православие. ФилософияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1541163CCE83712690B8A249F169540BDF26585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331215   (333546) от 14.10.2019
-
-Преподобный Серафим Саровский | Духовные наставления и пророчества (2018) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Серафим — русский «учительный старец», через затвор и «умное» молитвенное делание обретший дар прозорливости и способности духовного врачевания душ человеческих. В книге собраны духовные наставления и пророчества особенно почитаемого на Руси святого.
-
-«Излишнее попечение о вещах житейских свойственно человеку неверующему и малодушному. И горе нам, если (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAE893F9B14FB8973E2CD163FCCF45022E84B7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

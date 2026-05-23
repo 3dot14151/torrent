@@ -1,3 +1,86 @@
+###  Публикация: 550469   (457152) от 22.09.2012
+
+Илья Варшавский | Сборник ( 9 книг) [1959-1992] [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Илья Варшавский (1908-1974) - советский писатель-фантаст появился «как беззаконная комета среди расчисленных светил».
+  Судите сами: апрель 1962 г. — первая публикация («Наука и жизнь», 1962, № 4), скромно подписанная — «инженер И. Варшавский», июнь 1962 г. — вторая публикация, рассказ «ИНДЕКС Е-81» (Техника – молодежи, 1962, № 6) — и сразу Национальная премия на международном конкурсе фантастических рассказов, высокая оценка, данная Станиславом Лемом, первым, еще не опубликованным рассказам Варшавского.
+12 лет работы в фантастике, практически ежегодные публикации в журналах и сборниках, пять авторских книг, изданных при жизни, около ста рассказов и коротких повестей…Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F236AC523E5F010B3B3195E5E9F5F99431409145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321678   (456699) от 25.08.2019
+
+Афанасий Афанасиевич Фет | Собрание сочинений и писем в 20-ти томах [6 книг] (2002-2015) [DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Настоящее собрание сочинений и писем Афанасия Афанасьевича Фета (1820–1892) представляет собой первую попытку издания в возможной полноте всего многообразного наследии великого русского поэта. Стихотворения, художественная проза, переводы, мемуары, письма распределяются по жанрово-хронологическому принципу.Жанр: Классическая литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651825D3E99B12E9F94F1495CB57F72C97AE3E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550642   (454775) от 23.09.2012
+
+Борис Штерн | Полное собрание сочинений [1987-2002] [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Борис Гедальевич Штерн (14 февраля 1947, Киев — 6 ноября 1998, там же) — украинский писатель-фантаст. Член Союза писателей СССР (1988). Лауреат премий «Лучший писатель-фантаст Европы» (Еврокон-1984), «Старт» (1989), «Странник» (1995, 1998), «Бронзовая улитка» (1995,1998), «Чумацкий шлях», «Великое Кольцо».
+Самобытнейший писатель, прочитав хотя бы один рассказ которого, уже не забудешь автора никогда.
+Борис Штерн обладает уникальным стилем и чувством юмора.
+Здесь собраны все произведения Штерна (которых, увы, не так уж и много...).Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561D31199CEE4FC1924AF7192FB0A3DD3D7009D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550640   (454656) от 23.09.2012
 
 Илья Арсёнов  | Сборник [2009-2012] [FB2,RTF]
@@ -6,7 +89,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -599,87 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B58E3F5FE09A8300CB26215EFCF6A58A14B2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948584   (411107) от 20.10.2015
-
-Владимир Личутин | Собрание сочинений [18 книг] (1976-2015) [FB2, DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Личутин яркий представитель русской прозы, причём все его произведения связаны с его родными краями, с жизнью деревни на побе­режье Белого моря. Кроме непосредствен­ных впечатлений об этой хорошо известной и близкой ему жизни Личутин умело использует материал фольклористических экспедиций, в которых он принимал участие. Для его произведений характерна свободная композиция. (   Читать дальше...   )Жанр: История, приключения.Издательство: Роман-газета , ИТРК , Современник и др.Формат: FB2, DJVUКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63936B31B86A28359C73999622C5369998D411CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396714   (410889) от 07.10.2011
-
-Михаил Юрьевич Лермонтов | Полное собрание сочинений в двух томах (одной книге) [1900] [DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Юрьевич Лермонтов (3 (15) октября 1814, Москва — 15 (27) июля 1841, Пятигорск) — русский поэт, прозаик, драматург, художник, офицер.
-Вслед за Полным энциклопедическим собранием А. С. Пушкина позвольте предложить полное собрание сочинений другого великого русского поэта - Михаила Юрьевича Лермонтова. К сожалению, это уже не «Библиотека великих писателей» с (   Читать дальше...   )Формат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E00CEAEEA07034F58FC31DF75D508D9085B7910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396756   (410881) от 07.10.2011
-
-Николай Васильевич Гоголь | Полное собрание сочинений в одном томе [1911] [DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Васильевич Гоголь (1809 - 1852) – писатель, драматург, публицист, критик. Родился в селе Сорочинцы Полтавской губернии.
-Обучение в биографии Гоголя проходило в Полтавском училище, затем в Нежинской гимназии, где он изучал юстицию. В 1828 году в жизни Гоголя случился переезд в Петербург, там он служил чиновником.
-Произведение Гоголя «Басаврюк» было опубликовано (   Читать дальше...   )Жанр: Классическая литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03231784B80501AE29B230821A8CEA9A7DD9B217
 ```
 
 https://mybot314.ru/tekegram_catalog/

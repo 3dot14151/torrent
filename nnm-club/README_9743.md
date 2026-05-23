@@ -1,25 +1,22 @@
-###  Публикация: 1537164   (669316) от 15.03.2022
+###  Публикация: 1223586   (672940) от 05.05.2018
 
-Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+Сердце из стали (Кровоточащая сталь) / Ji qi zhi xue / Bleeding Steel (2017) BDRip [H.264/720p] [MVO]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-A1 Well Known Lady
-A2 Good Loving Woman
-A3 Encore After Encore
-A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:36:52
+Специальный агент Линь, защищая гениального ученого, разрабатывавшего биологическое оружие, от внезапного нападения вооруженной группы элитных наёмников, возглавляемых беглым биороидом, получает тяжелые ранения и чудом остаётся жив, благодаря своевременной медицинской помощи и передовым технологиям. И теперь, работая под прикрытием, наш герой должен стать незримым (   Читать дальше...   )Производство: Китай, Гонконг / Heyi Pictures, Sparkle Roll Media, Village Roadshow Pictures AsiaЖанр: Боевик, Фантастика, ТриллерРежиссер: Чжан ЛицзяАктеры: Джеки Чан, Шоу Ло, Нана Оу-ян, Эрика Сяхоу, Каллэн Мулвей, Тесс Хобрич, Ким Джинджелл, Дэмиен Гарви, Боуи Лам, ElenaПеревод: Многоголосый закадровый (HDrezka Studio), многоголосый закадровый (Студия "Paradox" & Omskbird records), многоголосый закадровый (Ворон, Wenlana, Skys, Azazel),Субтитры: Русские, АнглийскиеПродолжительность: 01:50:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
+magnet:?xt=urn:btih:7CEA8BB783F46B1ADF22D953D6A461BD75580334
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537169   (669315) от 15.03.2022
+###  Публикация: 1223391   (672939) от 05.05.2018
 
-Caravan Palace - Caravan Palace (2008) [AAC|~337 Kbps] <Jazz, Neo Swing, Electro Swing, Gypsy>
+Поезд на Париж / The 15:17 to Paris (2018) WEB-DL [H.264/1080p-LQ]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-01. Dragons (4:06)
-02. Star Scat (3:51)
-03. Ended with the Night (5:00)
-04. Jolie Coquine (3:45)(   Читать дальше...   )Жанр: Jazz, Neo Swing, Electro Swing, GypsyПродолжительность: 00:54:46
+В центре сюжета события, произошедшие ранним вечером 21 августа 2015 года, когда весь мир, затаив дыхание, наблюдал за предотвращением террористической атаки в скоростном поезде N 9364. Террорист из Марокко с автоматом и большим количеством боеприпасов открыл в поезде стрельбу с целью убить более пятисот человек.
+Фильм основан на реальных событиях.Производство: США / Malpaso Productions, Village Roadshow Pictures, Warner Bros. PicturesЖанр: Триллер, драма, историяРежиссер: Клинт ИствудАктеры: Спенсер Стоун, Энтони Сэдлер, Алек Скарлатос, Джуди Грир, Дженна Фишер, Рэй Корасани, Тони Хейл, Томас Леннон, Синква Уоллс, Лиллиэн Соланж БодуанПеревод: Дублированный (iTunes)Субтитры: Русские (Full)Продолжительность: 01:33:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E123E87F3B2920C1B85380B7D4D8A510E4D1232
+magnet:?xt=urn:btih:3784280C32A69EB42C658B559B754B3958A7E604
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537118   (669314) от 15.03.2022
+###  Публикация: 899634   (672933) от 19.05.2015
 
-Valentina Studio Pro 12.0.7 [Multi/Ru]
+Auslogics Disk Defrag Free 5.4.0.0 RePack by RedGrant [Ru/En]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Auslogics Disk Defrag - программа, призванная помочь избавиться от часто возникающей проблемы жестких дисков - фрагментации. Программа очень проста в использовании и работает достаточно быстро, поскольку не требует много времени на анализ. После завершения (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7D31B13AD6C5A7BE9AB00D39549FA201E94D7CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537127   (669313) от 15.03.2022
+###  Публикация: 899594   (672930) от 19.05.2015
 
-VA - Sunrise Avenue, Vol. 7 (20 Lounge & Chill-Out Pearls) (2016) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Opera 29.0.1795.60 Stable [Multi/Ru]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-01. Glenn Edwads - Pure Water (Ibiza Sunset Mix) (4:30)
-02. Brian Connors - Tropical Sunset (Original Mix) (4:08)
-03. Gore Fontaine - Hindu Love (Original Mix) (3:25)
-04. Jason Chambers - Black Horse (Original Mix) (3:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:33
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CF34105366D2B76A1C9F7612CD0AE34E1F935106
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537124   (669312) от 15.03.2022
+###  Публикация: 885085   (672929) от 19.05.2015
 
-VA - Sunrise Avenue, Vol. 5 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~338 Kbps] <Lounge, Chill Out, Downtempo>
+Причуды науки / Perversions of Science (1997) VHSRip (сезон 1, серии 1-10 из 10) Андрей Дольский
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-01. Gary Cools - Watching from Above (Original Mix) (6:00)
-02. Jamie Rogers - Look Out (Original Mix) (3:11)
-03. Daniel Oliveira - Exeter (Original Mix) (3:29)
-04. Earl Coppens - Illusions of Dreams (Original Mix) (4:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:28:04
+Сериал является спин-оффом более успешного проекта HBO — «Байки из склепа». Фантастические истории связаны между собой только рассказчиком — «сексуальным, но металлическим» роботом женского пола по имени Хром.Кошмарные истории, сфокусированные в основном на вторжении инопланетян и путешествиях во времени.Производство: США , HBOЖанр: фантастика, ужасыРежиссер: Тоуб ХуперАктеры: Морин Тифи, Жанетт Льюис, Адам Аркин, Кит Кэрредин, Лолита Давидович, Питер Джейсон, Гретхен Палмер, Лин Шэй, Джереми Лондон, Джефф Фэйи и др.Перевод: Одноголосый, авторский - Андрей ДольскийПродолжительность: ~00:25:00 серия
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C5CA0BD1EFB6B66D435159BE632C52A51E62A2E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +129,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537113   (669311) от 15.03.2022
+###  Публикация: 899301   (672927) от 19.05.2015
 
-Антей (изд.) | Аборт - узаконенное детоубийство (2012) [PDF, DJVU]
+Скандал / Scandal (2015) WEB-DLRip [H.264/1080p] (сезон 4, серия 15 из 22) [EN / EN Sub]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Зарубежные сериалы
+>>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-В сборник вошли проповеди православных священников и другие материалы, выражающие позицию Христианской Церкви, осуждающей аборт как убийство.
-
-Приводятся неоспоримые доказательства такой оценки абортов как из Священного Писания, так и ссылаясь на данные науки, с целью спасти человеческие жизни и уберечь женщин от убийства своих детей.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+Серия 15 - The Testimony of Diego Munoz
+Специалист по связям с общественностью Оливия Поуп, ранее работавшая на президента США, создает свое антикризисное агенство, цель которого — устранять проблемы высокопоставленных клиентов до того, как они станут всеобщим достоянием. Но если Вы посвящаете 24 часа в сутки решению проблем других людей, у Вас просто не будет времени, (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, детективРежиссер: Том Верика, Оливер Бокельберг, Эллисон Лидди, Стив Робин, Жанно Шварц, Рэндолл Зиск, Марк Тинкер, Тони Голдуин, Пол МакКрейн, Стивен КреггАктеры: Керри Вашингтон, Дэрби Стэнчфилд, Кэти Лоус, Гильермо Диас, Джефф Перри, Джошуа Малина, Беллами Янг, Тони Голдуин, Коламбус Шорт и др.Перевод: отсутствуетЯзык субтитров: английскийПродолжительность: 00:43:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31D8E9D2B7655D653FD697CB5112363152F820F7
+magnet:?xt=urn:btih:10ADF2B51122DDA6626C15CEE461DDF12B010014
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536258   (669310) от 15.03.2022
+###  Публикация: 899650   (672924) от 19.05.2015
 
-AngelMaker - Sanctum (2022) [MP3|320 Kbps] <Deathcore>
+Windows Repair (All In One) 3.2.0 Pro + Portable [En]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-01. Slaughter
-02. Creators Conscience
-03. Eating the Body of God
-04. Effulgence(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:45:06
+Windows Repair - инструмент все-в-одном для ремонта системы . Предназначен для восстановления различных параметров Windows к их значениям по умолчанию. Помогает исправить большинство известных проблем, в том числе ошибки реестра и права доступа к файлам, а (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8509DBC36FAA9291F735A282AE2BA29AAD2E6A09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,25 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537222   (669309) от 15.03.2022
+###  Публикация: 899608   (672921) от 19.05.2015
 
-Борис Заходер | Сказка про доброго Носорога (1980) [PDF]
+Reg Organizer 7.12 DC 19.05.2015 + Portable [Ru/En]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Рассказ в стихах про Носорога с чувствительной кожей. Для детей дошкольного возраста. Иллюстрации Т.Зуйковой.Жанр: Стихи, РассказФормат: PDF
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра (   Читать дальше...   )Язык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11A14B8C706F035C95DB091BD9CC035AF93717E3
+magnet:?xt=urn:btih:8610ED78C09FB95443B96A7A0624C76DA8D097A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,109 +208,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537291   (669308) от 15.03.2022
+###  Публикация: 509963   (672916) от 13.06.2012
 
-Мэри Пикфорд. Тэсс из Страны бурь / Tess of the Storm Country (1922) TVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимательный зритель конечно же скажет - "стоп-стоп, позвольте, я уже видел эту фильму с милейшей Мэри Пикфорд, буквально совсем недавно, вот же, это было в 1914 году". И будет прав. Есть такой фильм. И именно с Мэри Пикфорд. Дело в том, что практически с рождением и взрослением кинематографа появилось и такое понятие как "ремейк". Вот он и есть. (   Читать дальше...   )Производство: США, Mary Pickford CompanyЖанр: Драма, мелодрама, немое киноРежиссер: Джон С. РобертсонАктеры: Мэри Пикфорд, Ллойд Хьюз, Глория Хоуп, Дэвид Торренс, Форрест Робинсон, Джин Хершолт, Дэнни Хой, Роберт Расселл, Гас Савилл, Madame De BodamereПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 01:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81659AEB5FCFA08169A628A2C5C20DECDFD4CE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137252   (669307) от 25.05.2017
-
-Pam Taylor Band - Hot Mess (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile Again  (04:01) 
-02. Hot Mess  (03:55) 
-03. Whatcha Doin'  (04:27) 
-04. It's So Easy  (04:26) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716F4B659B3622D898206B2B6DDA96FEEC5FDA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137084   (669306) от 25.05.2017
-
-Журнал | Elle Decoration [Россия] №6 (15) (июнь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669306.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F27B1E1EFD9599860697D5C781C022766547B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137014   (669305) от 25.05.2017
-
-VA - Electro House Rarty. Volume. №2 (2017) [MP3|320 Kbps] <Club House, Electro House, Remix>
+VA - Asia Lounge (2012) [MP3|320 кб/с]<Ethnic, Lounge, Relax>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-01. Aine Aura - Uncover (Mountain Of Youth Remix)
-02. Croatia Squad - The Dance Machine (Original Mix)
-03. Dizco Dudes - World to Me (Radio Edit)
-04. Amade Landan - Inside (Original Mix)(   Читать дальше...   )Жанр: Club House, Electro House, RemixПродолжительность: 07:04:18
+1. Dubsahara - Zentropy (7:11)
+2. Seoan & Friends - Mystery Of God feat. Seoan (3:54)
+3. Rain In Eden - Rumi (5:06)
+4. Bally Sagoo - Dil Cheez (4:07)
+5. Summer Chill - Journei (5:41)
+6. Red Buddha - Preaching of Buddha (5:27)
+7. James Asher - Red desert (5:39)
+8. Natacha Atlas - Amulet (Aywah Remix) (5:21)
+9. Jef Stott - Junjura (5:45)
+10. Aquila - Song of Laya (2:54)2012Жанр: Ethnic, Lounge, RelaxПродолжительность: 04:32:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1359D4D637C6FFCCC97F33D4B69F256C579A6D7F
+magnet:?xt=urn:btih:BC90E022A3900DBBF15C4343B4F1E54B21138E3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,25 +243,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137185   (669304) от 25.05.2017
+###  Публикация: 510057   (672912) от 13.06.2012
 
-Газета | 1000 секретов [Украина] №10 (май 2017) [PDF]
+[Wallpapers]Зимняя сказка
 
->>Журналы
->>Домоводство (журналы)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+Обои для рабочего стола.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BFE07871557B00FE63FE3A6D9F14318239953FA
+magnet:?xt=urn:btih:0695CE3C49F360D436539D3F66E5F20AACDF0F86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,28 +269,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137268   (669303) от 25.05.2017
+###  Публикация: 510141   (672901) от 13.06.2012
 
-Tranceway - Around The World (2017) [MP3|320 Kbps] <Goa Trance>
+Querembas - Pornocracia (2012) [MP3|320 кб/с]<Alt. Metal/Nu-Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-01. A Mind Trip (7:33)
-02. Alchimia (8:11)
-03. Human Evolution (7:41)
-04. Psychedelic Mirage At Timbuctu (8:18)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:12:06
+01. Orgia En El Convento
+02. Hay Que Matarlos A Todos
+03. Toxic Love
+04. El Mundo Gira
+05. Amanecer
+06. Clandestina
+07. Prefiero Morirme
+08. Sex Machine
+09. Another Life
+10. No Me Importa(   Читать дальше...   )2012Жанр: Alt. Metal/Nu-MetalПродолжительность: 00:32:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC4C4D534DE428115C3D501AFF5A17531C5DC18D
+magnet:?xt=urn:btih:4598A83A5B9B0AA8B34181765565A4715BC5751A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,28 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136976   (669302) от 25.05.2017
+###  Публикация: 1536656   (672898) от 13.03.2022
 
-VA - The Art of Electronic Music: Deep House Edition (2017) [MP3|320 Kbps] <Funky, Club House>
+Bastard of Loran - Beckoning the Red Moon (2021) [FLAC|Lossless|image + .cue] <Symphonic, Melodic Black Metal>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-01. CamelPhat - Siren Song - Radio Edit
-02. AMinusLex - Nepal - Radio Edit
-03. E.M.C.K. - Be Yourself - Radio Edit
-04. Paris Avenue - Better Day (In Lifetimes) - Radio Edit(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:04:46
+01. Embraced by Her Queer Scent 04:34
+02. Blood Rapture Under Twilight 04:31
+03. The Hunter 05:59
+04. Beckoning 03:03(   Читать дальше...   )Жанр: Symphonic, Melodic Black MetalПродолжительность: 00:34:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B09D0C49D9C2E8BD2B279C47BB4FBEEA3FFF72D
+magnet:?xt=urn:btih:D6D4BFBC0E3117D151F77237CAC50ABEE301A696
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,195 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137080   (669301) от 25.05.2017
+###  Публикация: 1536731   (672897) от 13.03.2022
 
-Журнал | Садовод и огородник №10 (422) (май 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669301.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75876770AC4ED006C63770B55E5EA0224D8940AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137300   (669300) от 25.05.2017
-
-Script - Electronic And Spatial (unknown) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Script - редкое французское космическое диско высшей категории конца 70-х. Прозорливый меломанский глаз сразу обнаружит здесь обработки знаменитых мелодий группы Space и сольно Didier Marouani, Space Art, композиции из фильмов "Звездные Войны", "Стар Трек" и другие необходимые для коллекции вещи. Год выпуска ориентировочно - 1979.01. Star Wars (4:04)
-02. 2001 A Space Odissey (4:18)
-03. Star Trek (2:44)
-04. The Eve Of The War (The War Of The Worlds) (3:35)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EEC59811ADCF988F0EFA1454891DF50E919545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137025   (669299) от 25.05.2017
-
-Selwyn Birchwood - Don't Call No Ambulance (2014) [MP3|320 Kbps] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addicted (02:34)
-02. Don't Call No Ambulance (03:51)
-03. Walking In The Lion's Den (03:39)
-04. The River Turned Red (04:16)(   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F915F2191C458F741CCB61313939B732432A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137127   (669298) от 25.05.2017
-
-VA - Jazz Dictionary U (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cedar Walton Trio - Ugetsu (6:04)
-02. John Di Martino Romantic Jazz Trio - Ugly Beauty (5:37)
-03. Dan Nimmer Trio - Uh Huh (5:16)
-04. Enrico Rava - Un Bel Di, Vedremo (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A272E77939B04D3B09540269606CB28FF5703E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137094   (669297) от 25.05.2017
-
-Журнал | Золотые рецепты наших читателей №10 (188) (май 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61D1A03FD3D9F51617D1766AA72C37A1E3024BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137137   (669296) от 25.05.2017
-
-Chastity Brown - Silhouette Of Sirens (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, RnB, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive Slow (4:19)
-02. Wake Up (4:21)
-03. Carried Away (4:04)
-04. Whisper (4:43)(   Читать дальше...   )Жанр: Blues, RnB, FolkПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30300C9081D74F418EE3E50D7C69AC9594BC286A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137214   (669295) от 25.05.2017
-
-Email Archiver Enterprise 3.7.1 [En]
+XCap 1.2.4 [En]
 
 >>Программы для macOS
->>Офис, Интернет для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Архивирование электронной почты может быть болезненным опытом. Упростите свою жизнь с Email Archiver
-Email Archiver - с помощью этого приложения вы можете архивировать и хранить всю вашу почту или отдельные письма в формате PDF. Удобство использования такого подхода неоспоримо, т.к. для того, чтобы прочитать почтовые сообщения, не требуется собственно Mail.app.
- (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Palmer Andersen Design & Development Ltd.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+Утилита XCap - создана специально для цифровых микроскоповТип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 SHIH-CHUEH CHENПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Традиционный китайский и Упрощенный китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A2728E09945C7AFA769BB975500F474B3D12ACB
+magnet:?xt=urn:btih:D73521719E66D1DBF8AB6BD926DCA8745128779E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +359,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137194   (669294) от 25.05.2017
+###  Публикация: 1536749   (672896) от 13.03.2022
 
-Журнал | Автопарк. 5 колесо №3 (92) (май 2017) [PDF]
+Nevercenter CameraBag Pro 2021.5.0 [En]
 
->>Автомобили
->>Автомобильные журналы
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-«Автопарк. 5 колесо» - Полноцветное издание рынка коммерческого автотранспорта. Основная цель - предоставление участникам рынка коммерческого транспорта объективной информации о существующих практических решениях, применяемых в данной сфере, а также о текущих тенденциях развития рынка в целом и его сегментов. Над созданием журнала работает профессиональная команда (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 NEVERCENTERПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C337F5264693008D1E288B9E362E0B4B91A533C9
+magnet:?xt=urn:btih:0489391E50668DACCF025D8B3A5F7F738DD830F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,27 +385,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137200   (669293) от 25.05.2017
+###  Публикация: 1536574   (672895) от 13.03.2022
 
-Orion PDF Author 2.98 [Multi]
+Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Stoner Metal>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте PDF-документы, опираясь на интуитивные средства редактирования, которые могут работать как с графическим, так и с текстовым контентом в попытке сократить время обработки
-
-Orion PDF Author разработан для того, чтобы помочь вам создавать профессионально выглядящие PDF-документы, которые включают в себя как текст, так и графический контент, не тратя слишком (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 мая 2017Разработчик: Aidaluu Inc.Поддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Английский, Немецкий, Французский и др
+01. Prelude To (00:35)
+02. The Void (07:33)
+03. Backlash (05:26)
+04. Never Look Back (03:29)(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Stoner MetalПродолжительность: 00:55:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B32C5FD8C6A2B17D9A18BF0E442FBD8312139BE
+magnet:?xt=urn:btih:8C5321DE8081FD420CEBD82B2F0FB37826DB6EE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +414,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137031   (669292) от 25.05.2017
+###  Публикация: 1536687   (672894) от 13.03.2022
 
-VA - Jazz Dictionary F (2017) [MP3|320 Kbps] <Jazz>
+The Bob Dorough Quartet - An Excursion Through "Oliver!": Songs From The Hit Show (1954) 2009, Classic Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Piano Jazz>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-01. Stefano Bollani Trio - Falando De Amor (3:47)
-02. Dan Nimmer Trio - Falling in Love with Love (6:06)
-03. Claude Williamson Trio - Feelin' Fine (5:07)
-04. Eric Alexander Quartet - Feelin' Good (7:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:51
+01. Food, Glorious Food [5:24]
+02. Oliver! [4:26]
+03. Boy for Sale [4:19]
+04. Where Is Love? [2:06](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:48:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEF50557041F1023813690D8E629EEDF741A9C0C
+magnet:?xt=urn:btih:98B499CAEA9A427D7D698B7ACD31D3F3B9C1038B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,25 +443,286 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136921   (669291) от 25.05.2017
+###  Публикация: 1536714   (672893) от 13.03.2022
 
-Андрей Сахаров | Воспоминания. Часть 2 (2015) [MP3]
+VA - Il Caffe Italiano Trieste (Italian Lounge Espresso Music) (2016) [AAC|~336 Kbps] <Jazz, Nu Jazz, Lounge>
 
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
 ###  Подробнее
 
-В книгу воспоминаний Андрея Дмитриевича Сахарова - физика, создателя советской водородной бомбы (1953), академика Академии наук СССР (1953), лауреата Сталинской (1953) и Ленинской (1956) премий, трижды Героя Социалистического Труда (1954, 1956, 1962), общественного деятеля, диссидента, одного из лидеров правозащитного движения в СССР, лауреата Нобелевской премии (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 36:10:47
+01. Cocktail Martino, Federico Straga' - E la Chiamano Estate (3:12)
+02. Tonisterical - Frogs (2:22)
+03. Montefiori Cocktail - Sunny (4:33)
+04. Orchestra Volare - Arriva la Bomba (2:34)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27D6AE2973FDE6F01D1D98D4292BAED90019FC1A
+magnet:?xt=urn:btih:32822E4179D58A9F484D5AB7049AF3DB0FFD9F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536712   (672892) от 13.03.2022
+
+VA - Il Caffe Italiano Roma (Italian Lounge Espresso Music) (2016) [AAC|~335 Kbps] <Jazz, Nu Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Orchestra Volare - Roma Nun Fa la Stupida Stasera (3:20)
+02. Italian Secret Service - Via Beato Angelico (7:46)
+03. Matteo Brancaleoni, Rosario Fiorello, Fabrizio Bosso - L'italiano (3:28)
+04. Cocktail Martino, Francesca Gramegna - Estate (3:56)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9728479AE295E52F87BA3AF7B70D87EB0CAFF068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536755   (672891) от 13.03.2022
+
+Obsidian Black - Judgement Day (2022) EP [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Life in a Beautiful Storm (04:23)
+02. Judgement Day (05:16)
+03. Lights in the Dusk (Re-Recorded) (03:59)
+04. Gates of Babylon (03:46)(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C55B1A8B216F6F013F0E985231A1DC9A5A1F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536716   (672890) от 13.03.2022
+
+VA - Il Caffe Italiano Bologna (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Montefiori Cocktail - Riviera Beat (5:02)
+02. Matteo Brancaleoni - Cosa hai messo nel caffè (3:20)
+03. Massimo Guerra Xtet - Futura (6:33)
+04. Italian Secret Service - Italian melody (4:50)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C950F2B4E8EE9C0018BFDCDE96642C50E2CB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536842   (672889) от 13.03.2022
+
+EdgeView 3 v3.3.8 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536730   (672888) от 13.03.2022
+
+VA - Class of '87 (2022) [AAC|~339 Kbps] <Pop, Rock, Alternative>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. R.E.M. - It's The End Of The World As We Know It (And I Feel Fine) (4:07)
+02. Sting - Englishman In New York (4:27)
+03. Public Image Limited - Seattle (2011 Remaster) (3:41)
+04. The Northern Pikes - Teenland (4:00)(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 01:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165830AAC72E060BB2DE8910ECD4F32DBCB0042E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536715   (672887) от 13.03.2022
+
+VA - Il Caffe Italiano Milano (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Papik, Alan Scaffardi - Prendila così (3:40)
+02. Matteo Brancaleoni - Una Carezza In Un Pugno (3:07)
+03. Zerosospiro - C'èun Tic (2:55)
+04. Parma Brass Quintet - Via con me (3:15)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D06AF6C583EAEA85B6073206E5D547066D7691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536732   (672886) от 13.03.2022
+
+De-Arrow - De-Arrow (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Rock 'N' Roll Nights (3:47)
+02. We've Got The Wings (4:27)
+03. First Break Of The Heart (4:30)
+04. Feelin' Fine (4:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E90F9ABE9C8DEA81CF89E0E564737893001A6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536724   (672885) от 13.03.2022
+
+VA - Electronica Royale, Vol. 1 (Organic Downtempo Vibes Deluxe) (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Warrior - Excalibur (Electronic Dub Mix) (4:45)
+02. Intergalactic Traveller - Ursa Major (Minimal Mix) (5:05)
+03. Once Upon A Time - Feel Alone (4:38)
+04. Electric Echoes - I Go Now (3:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, AmbientПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB39FCA160F438ACF8F8AB1521AC1EF2F87EFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536719   (672884) от 13.03.2022
+
+VA - Il Caffe Italiano Torino (Italian Lounge Espresso Music) (2017) [AAC|~333 Kbps] <Jazz, Nu Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Matteo Brancaleoni - Volare (Nel Blu Dipinto di Blu). (2:48)
+02. Papik, Alan Scaffardi - Che Sarà (4:05)
+03. Giuseppe Milici - Dimmi cos'è (3:45)
+04. Melania - Caruso (4:42)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D05E09A1A8F311F8911116414BBBC83FC63BFC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

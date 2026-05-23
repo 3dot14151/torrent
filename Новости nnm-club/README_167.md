@@ -1,3 +1,185 @@
+###  Публикация: 803890   (477104) от 19.09.2014
+
+За пределами / Выжившая / Род человеческий / Extant (2014) WEB-DL [H.264/720p-LQ] (Сезон 1, серии 1-13 из 13) BaibaKo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молли Уотс только что вернулась домой из 13-месячной одиночной космической экспедиции. Все это время женщина-астронавт провела на космической станции совершенно одна. И от того совершенно немыслимым кажется ей известие о том, что она беременна. Как это могло произойти? Что теперь будет с семьей Молли — ее мужем Джоном и сыном-андроидом Итаном? И как это невероятное (   Читать дальше...   )Жанр: Фантастика, триллер, драмаРежиссер: Пэрис Барклай, Мэтт Эрл Бисли, Аллен КултерАктеры: Холли Берри, Брэд Бейер, Горан Вишнич, Пирс Гэнон, Камрин Менхейм, Тайлер Хилтон, Серджо Харфорд, Грэйс Гаммер, Майкл О’Нил, Жанетта Арнетт и др.Перевод: Профессиональный многоголосый закадровый - BaibaKoОзвучка: Ольга Мотрич, Anna_Smile, Олекса Мельник и Андрей КорзаченкоФормат: MKVПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A05EA1483D6D157ED912F33FD70B31FC7516D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804360   (477102) от 19.09.2014
+
+За пределами / Выжившая / Род человеческий / Extant (2014) WEB-DLRip (Сезон 1, серии 1-13 из 13) (NewStudio)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Футуристический триллер о женщине-астронавте, которая возвращается на Землю после космической экспедиции и пытается наладить отношения с семьей, но ее поступки загадочным образом изменяют ход истории всего человечества.Жанр: Фантастика, триллер, драмаРежиссер: Пэрис Барклай, Мэтт Эрл Бисли, Аллен КултерАктеры: Холли Берри, Брэд Бейер, Горан Вишнич, Пирс Гэнон, Камрин Менхейм, Тайлер Хилтон, Серджо Харфорд, Грэйс Гаммер, Майкл О’Нил, Жанетта Арнетт и др.Перевод: Профессиональный многоголосый закадровый - NewStudioФормат: AVIПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0EB1D39E972958802AC9298C90D7A3D03A10C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938809   (476965) от 20.09.2015
+
+Win 7 PE x86 compact by Xemom1 (18.09.15) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Минимальная сборка, которую можно использовать не только как LivePE, но и вместо boot.wim в дистрибутивах. Для этого необходимо переименовать XM86.wim - в boot.wim, и заменить с помощью UltraIso в дистрибутиве. На рабочий стол выведен ярлык "W7-10_setup", который запускает установку Windows (для стандартных дистрибутивов). В случаи нестандартного, необходимо (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834E7060D22C62E54F17469E60F0E53DEB44A8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 777205   (476945) от 20.09.2015
+
+Katawa Shoujo / Disability Girls/ Калечные девы (2012) Ru,En,Fr,Es,Jp (Win, Nix, Mac)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разработчик: Four Leaf Studios (http://www.katawa-shoujo.com/)Жанр: Визуальная Новелла/Комедия/Драма/Романтика/УцугэЯзык интерфейса: Русский, English, Français, Español Internacional, 日本語
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF8487FCF547660971CACC9809393B3459851CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319959   (476667) от 15.08.2019
+
+Горизонт (2019) WEBRip [H.264] (сезон 1, серии 1 из ??) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На города обрушивается эпидемия неизвестного вируса, который за считанные минуты распространяется и заражает любого человека. Небольшой группе людей все же удается выжить, укрывшись вместе с военнослужащими под командованием полковника ГРУ в специальном бункере, где на протяжении трех лет ученые и военные пытаются создать вакцину от вируса.Производство: Россия / ТНТ-PREMIER StudiosЖанр: фантастикаРежиссер: Олег ТрофимАктеры: Алексей Кравченко, Илья Маланин, Ирина Старшенбаум, Федор Воронцов, Филипп Авдеев, Вань Шень, Илья Кипоренко, Марина Кондратьева, Кристина Кучеренко, Алла Малкова, Юрий Климов и др.Продолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9705B42C6BE40D7C78DA55218D696437240DB520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405630   (476541) от 02.09.2020
+
+Эстонским лихачам предложат вместо штрафа 45 минут стоять на обочине
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Правительство Эстонии одобрило предложение парламентской правовой комиссии изменить закон о дорожном движении в части наказания за незначительное превышение скорости.Депутаты предложили давать в таких случаях водителю выбор: оплатить штраф или выбрать другой законный метод воздействия, например 45-минутную "успокоительную остановку", сообщили "Интерфаксу" (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057051   (476508) от 27.09.2016
+
+Special [K] Utility for Sierra 1.0 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это утилита для использования SpecialТип издания: macOS SoftwareРелиз состоялся: 22.09.2016Разработчик: charlienПоддерживаемая ОС: maOS 10.12 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF7B17CE68821A6983007EA6E6EB3855E153EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056984   (476493) от 27.09.2016
 
 Acronis True Image 20.0.5554 / Universal Restore 11.5.40028 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
@@ -6,7 +188,7 @@ Acronis True Image 20.0.5554 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0.3/upd3/dlc) Repack =nem
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_475514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +344,7 @@ Windows 10 HSL/Pro 1803 x64 by kuloymin v14.1 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +373,7 @@ Mass Effect 2 (2010) [Ru/En] (1.2/dlc) Repack xatab [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +399,7 @@ Trend Micro Titanium Maximum Security 2013 v6.0 rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +425,7 @@ Kaspersky Free Antivirus 17.0.0.611.0.1532.0 (d) Repack by LcHNextGen [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +507,7 @@ Microsoft Office for Mac Standard 2019 16.28.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +534,7 @@ Microsoft Office 2016 Professional Plus Install v3.0 by Ratiborus [Multi/Ru] (о
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +560,7 @@ Video Repair Utility 1.9.0.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_474630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -433,7 +615,7 @@ IObit Driver Booster Pro 4.0.3.322 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +641,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.2/dlc) License CODEX [Field Marshal Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +667,7 @@ Fallout Tactics: Brotherhood of Steel (2001) [Ru/Multi] (1.27) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,188 +678,6 @@ Fallout Tactics: Brotherhood of Steel (2001) [Ru/Multi] (1.27) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD18215376F220AE47673092E81CBFF40740584A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004460   (474469) от 28.09.2016
-
-Enter the Gungeon (2016) [Ru/Multi] (1.0.10/dlc) License GOG [Collector`s Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enter the Gungeon - это подземное приключение со стрельбой. Банде неудачников с нечистой совестью предстоит палить во все стороны, уворачиваться от пуль и собирать добычу - только так они отыщут легендарное сокровище подземелья Gungeon - оружие, способное уничтожить прошлое. Выберите персонажа и пробейтесь через толпы врагов на самое дно подземелья.Тип издания: LicenseРазработчик: Dodge RollЖанр: Arcade (Shoot'em up), Top-downЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF1D8B99211DBD4126A7A1C6131AB783EAFCCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357719   (474373) от 03.09.2020
-
-Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.11.006) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте игру, во многом определившую жанр тактики в реальном времени. Commandos 2 HD Remaster – дань уважения шедевру, разработанному Pyro Studios. Попробуйте Commandos 2 Men of Courage в высоком разрешении, с переработанной системой управления, новым интерфейсом и обучающим режимом. Возглавьте элитную группу коммандос, которая должна проникнуть на вражескую территорию (   Читать дальше...   )Тип издания: RepackРазработчик: Yippee! Entertainment, Pyro StudiosЖанр: Strategy (Real-time), Action, 3DЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB5CB6453110D769D536324DE40B293444F37F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404136   (473870) от 02.08.2022
-
-Factorio (2020) [Ru/Multi] (1.1.61) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473870.jpg" />
-</div>
-
-
-###  Подробнее
-
-FACTORIO — это игра, в которой вы строите фабрики и поддерживаете их работу. Вы будете добывать ресурсы, исследовать новые технологии, создавать инфраструктуру, автоматизировать производство и сражаться с врагами. На начальном этапе игры Вы будете вручную рубить деревья, добывать руду и создавать простые манипуляторы и транспортные конвейеры, но через некоторое время (   Читать дальше...   )Тип издания: RepackРазработчик: Wube Software LTD.Жанр: StrategyЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6C8A64E79D14B43BFEA061729430699B6307F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385856   (473553) от 10.09.2011
-
-Тор / Thor (2011) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпическое приключение происходит как на нашей планете Земля, так и в вымышленном королевстве богов Асгарде. В центре истории — Могучий Тор, сильный, но высокомерный воин, чьи безрассудные поступки возрождают древнюю войну в Асгарде. Тора отправляют в ссылку на Землю, лишают сил и заставляют жить среди обычных людей в качестве наказания…Производство: США / Paramount Pictures, Marvel EntertainmentЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Кеннет Брэна, Джосс УидонАктеры: Крис Хемсворт, Натали Портман, Энтони Хопкинс, Том Хиддлстон, Стеллан Скарсгард, Кэт Деннингс, Кларк Грегг, Идрис Эльба, Колм Фиор, Рэй СтивенсонПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E485CB2AF9297C402A6B4CBA12F087F9E1F9DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244225   (473526) от 05.09.2018
-
-Shadows: Awakening (2018) [Ru/Multi] (1.11) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadows: Awakening — это продолжение знаменитой серии игр о Королевствах ереси. Члены тайного ордена Пента Нера мертвы, а их души поглощены Пожирателями — злыми демонами, которые способны вытягивать воспоминания и личность из своих жертв, превращая их затем в марионеток.Тип издания: RepackРазработчик: Games FarmЖанр: RPG (Open World), Action, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617347A1561B5CE20339A51ECC62F0908543ECFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160541   (473390) от 25.08.2017
-
-DAEMON Tools Lite Full Pack 10.6.0.0283 RePack by KpoJIuK (25.08.2017) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daemon Tools - маленький по размеру, но мощный по возможностям эмулятор CD/DVD-драйвов - позволяет "подцепить" любой образ диска, сделанный какой-нибудь утилитой для копирования дисков (например, CloneCD), т.е. может работать с какими угодно "дисками" - даже с PlayStation. Точно также в этот эмулятор можно "вставить" скопированные на (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A069C2B03DBB5D4F3BB3189003982BF35BA6456F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939347   (472957) от 22.09.2015
-
-Ученые создали систему, внутри которой находится самая "тихая" область пространства в мире
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_472957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе то, что вы ассоциируете с "самой тихой тишиной". Наверняка в голову вам придет безветренная ночь в пустыне, в месте, удаленном от цивилизации и издаваемых ею звуков, или пребывание в глубине пещеры, там, где проникновению звуков мешают огромные массы горных пород над головой. Независимо от того, что вы себе вообразили, вы находитесь очень (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

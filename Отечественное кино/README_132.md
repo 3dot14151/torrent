@@ -1,3 +1,109 @@
+###  Публикация: 543339   (495791) от 05.09.2012
+
+Он, она и я (2006) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В дорогой частной клинике судьба сводит двоих — умирающего от неизлечимой болезни миллионера-газопромышленника Дмитрия Белявского и молодого, невероятно обаятельного телеведущего Дениса Ганина. Их возникшая с первого взгляда дружба длится всего десять дней — именно столько проживет Дмитрий от момента их встречи, — но это будут десять дней, которые потрясут мир обоих.Жанр: Драма, МелодрамаРежиссер: Константин ХудяковАктеры: Александр Галибин, Иван Ургант, Екатерина Гусева, Юлия Рутберг, Юрий Беляев, Елена БутенкоПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5019E278E23D896A832CEB0FC5607755146F713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243054   (495730) от 25.08.2018
+
+Ключи (2018) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Валерий и его сын Славка на каникулы приезжают в деревню, проведать родные края, тем более, что должно исполниться 10 лет, как не стало матери Валерия. Об этом узнаёт Мария, сестра Валерия, которая живёт у тёти Ани с немым сыном Родькой. Когда то давно, Валерий выгнал Марию с сыном из, отчего дома, обвинив её, в том, что она повинна в смерти матери, с тех пор они (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Александр ФомичёвАктеры: Никита Манец, Иван Бычков, Мария Полякова, Иван Кашин, Михаил Авдеев, Елена Михальцева, Татьяна Смирнова, Максим ЛевинСубтитры: ОтсутствуютПродолжительность: 00:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90438EDDEC2058EC744A04E92B2DC1FCDD697077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543328   (495591) от 05.09.2012
+
+Час пик (2006) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кризис среднего возраста совпадает для героя с неприятным открытием: подглядев в свою карту у врача во время планового обследования, он читает, что смертельно болен и жить ему осталось несколько месяцев.
+
+И благополучная жизнь влиятельного человека меняется. Не потому, что он принял какие-то решения, а потому что его болезнь сподвигла окружающих ему эти решения навязать. (   Читать дальше...   )Жанр: ДрамаРежиссер: Олег ФесенкоАктеры: Константин Хабенский, Екатерина Гусева, Анна Ковальчук, Андрей МерзликинПродолжительность: 01:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170EF8F50470387E3D319650C8CA167151F7BE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543327   (495590) от 05.09.2012
+
+Человек, который знал всё (2009) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Александр Безукладников в результате попытки самоубийства вдруг обретает феноменальную способность мгновенно получить ответ на любой вопрос. Скромный и безобидный, он становится лакомой дичью для всех — женщин, криминальных авторитетов и даже международных спецслужб. Одни пытаются его использовать, другие уничтожить. Но «маленький человек» продолжает жить по законам (   Читать дальше...   )Жанр: ДрамаРежиссер: Владимир МирзоевАктеры: Екатерина Гусева, Егор Пазенко, Егор Бероев, Татьяна Лютаева, Максим Суханов, Ольга Лысак, Игорь Гаспарян, Николай Кириченко, Алексей Завьялов, Татьяна ПискареваПродолжительность: 01:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82EA60BF88544DCE9306CD71BE2D089D9A62079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157946   (495545) от 14.08.2017
 
 Цветы от победителей (1999) HDTV [H.264/1080i-LQ]
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_489532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -565,113 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Историко-революционный фильм для детей младшего, старшего, зрелого и пожилого возраста, о тех далеких, незабываемых временах, когда еще были СССР, КПСС и КОЛБАСА по 2 руб. 20 коп.
 Намечено проведение важных переговоров между президентами двух великих держав - СССР и США. Однако русская мафия, пустившая корни в Америке, ставит проведение столь важного саммита под (   Читать дальше...   )Жанр: КомедияРежиссер: Леонид ГайдайАктеры: Дмитрий Харатьян, Армен Джигарханян, Андрей Мягков, Келли МакГиллис, Елена Бушуева, Александр Лойе, Руслан Ахметов, Аркадий Инин, Мамука Кикалейшвили, Леонид Куравлев, Вячеслав Разбегаев, Муза Крепкогорская, Юрий Волынцев, Евгений Весник, Михаил КокшеновПродолжительность: 01:30:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469980   (488970) от 27.08.2020
-
-Фига.Rо (2009) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды утром в рекламной компании «Фига.Rо» появляются двое: красивая девушка и мужчина, цитирующий Монтеня. Через две минуты парочка берет в заложники бизнесмена Ивана, хозяина офиса, окна которого выходят на здание спецслужб…Производство: РоссияЖанр: Комедия, драмаРежиссер: Рано КубаеваАктеры: Андрей Молочный, Иван Охлобыстин, Светлана Ефремова, Дарья Якамасова, dj SMASH, Егор Андреев, Фарида Муминова, Светлана Германова, Дима РоманидиПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9243DBDEC1DD11C140EC06058C51B329408C478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821429   (488086) от 14.09.2014
-
-Соседи по разводу (2013) HDTVRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рита и Сергей — бывшие супруги. Живя в одной квартире, оба лелеют одну мечту — поскорее разменять ее и разъехаться. Конфликт разрастается. Дочь Катя в этой партизанской войне занимает позицию наблюдателя, надеясь на то, что родители, как взрослые, разумные люди, разберутся сами.
-Муж Кати Славик по воле случая вынужден поселиться у враждующих супругов. Перед Ритой (   Читать дальше...   )Производство: Россия/кинокомпания "УПС"Жанр: КомедияРежиссер: Михаил ХерсонскийАктеры: Анна Ардова, Леонид Громов, Даниил Дорошенко, Кристина Киселева, Виталина Библив, Алексей Смолка, Любовь Тимошевская, Нина Антонова, Андрей Дебрин, Дмитрий Лаленков и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFFF7D68BDA00CF0D4A9FFCF36036E9FCB9EA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565434   (488059) от 26.07.2022
-
-Бультерьер (2022) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс Холодов — одна из главных звезд смешанных боевых искусств. После серьезной травмы на ринге он выбывает из борьбы за титул чемпиона мира и его жизнь идет под откос. В поисках точки опоры он решает вернуться к корням и уезжает на побережье. Там он случайно находит брошенного бультерьера, в котором обретает родственную душу. Заботясь о новом друге вместе с девушкой (   Читать дальше...   )Производство: Россия / Русский Голливуд, All MediaЖанр: драма, спортРежиссер: Василий БыстровАктеры: Владимир Минеев, Александр Михайлов, Мирослава Михайлова, Анастасия Красовская, Виталий Кищенко, Севастьян Бугаев, Лев Семашков, Амаду Мамадаков, Сергей Комаров, Сергей СелинПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD78B66A05EC8938EFB40747DD1EA333FE70E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544837   (487426) от 09.09.2012
-
-Антидурь (2007) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пpoвaлить зaдaниe, yгpoбив пo oшибкe в Лoндoнe извecтнoгo oлигapxa?! Taкoгo cпeцcлyжбы нe пpoщaют! Гepoи фильмa, cпeцaгeнты Bиктop Beльмишeв и Bлaд Кoшкин, oкaзывaютcя «cпиcaнными» в нeпoнятнoe зaвeдeниe co cтpaнным нaзвaниeм «Aнтидypь», гдe иx бoccoм oтнынe cтaнoвитcя cypoвый пoлкoвник Зинaидa Mopoз и нe дaeт cocкyчитьcя кpиминaлиcт Hикoлaй Paкoв.
-
-Haши гepoи coвceм (   Читать дальше...   )Жанр: Боевик, Комедия, КриминалРежиссер: Владимир ЩегольковАктеры: Дмитрий Дюжев, Владимир Турчинский, Татьяна Догилева, Александр Баширов, Игорь Миркурбанов, Владимир Симонов, Василий СтрельниковСубтитры: отсутствуютПродолжительность: 01:31:12
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,81 @@
+###  Публикация: 1700214   (25474) от 07.03.2025
+
+Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack Decepticon [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Lies Of P была вдохновлена знаменитой историей о Пиноккио, но демонстрирует более жестокую и мрачную версию сказки. Чтобы стать человеком недостаточно доброты и любви, ведь людская сущность обладает и кровожадными чертами, где каждый готов бороться за власть или место под солнцем любыми способами. Многое предстоит построить на лжи, главное не запутаться в ней, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: NEOWIZЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9096EBC55960DA4A0A3A859D443BDD7B1C2E84CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776438   (25471) от 07.03.2025
+
+Citizen Sleeper 2: Starward Vector (2025) [En] (1.1.31) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Citizen Sleeper 2: Starward Vector - это ролевой проект, где действие разворачивается в обширной, хаотичной научно-фантастической вселенной. Вы играете за Спящего, андроида с неисправным телом и прошлым, которое вы не можете вспомнить. Заплатив за свою голову, вы оказываетесь в бегах в Звездном поясе, где собраны места обитания, построенные в поясе астероидов, и (   Читать дальше...   )Тип издания: LicenseРазработчик: Jump Over The AgeЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93583406D04D5018B6F4EFB738AEA1B7EE330AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646501   (25462) от 07.03.2025
+
+1428: Shadows over Silesia (2022) [Multi] (1.1.36/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1428: Shadows over Silesia – темное экшен-приключение, события которого разворачиваются в Средневековой Европе. На фоне реальных исторических событий вас ждут сложные головоломки, тяжелые бои, а также скрытые проходы и важные решения. Европа переживает период религиозных потрясений, и многие проповедники предсказывают, что конец света уже близок. 1428 год, Гуситы (   Читать дальше...   )Тип издания: LicenseРазработчик: KUBI GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Английский, ЧешскийЯзык субтитров: Английский, Чешский, Немецкий, Венгерский и другиеЯзык интерфейса: Английский, Чешский, Немецкий, Венгерский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A78F78BAF4404E2E913391062791A324CDF43A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770798   (25398) от 07.03.2025
 
 YIIK: A Postmodern RPG (2019) [Multi] (1.5.003) License GOG
@@ -6,7 +84,7 @@ YIIK: A Postmodern RPG (2019) [Multi] (1.5.003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1655.fb15f73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +266,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +422,7 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.1hf) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +656,7 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -589,84 +667,6 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6381F85ABDB83AE237A90E0D8757A1CFBB5745B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745866   (24320) от 18.03.2025
-
-Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24320.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приключениях Dance of Cards придется выживать на борту загадочного корабля "Магнифика", где шестнадцать человек отправились в долгое плаванье. Оказавшись взаперти, люди сталкиваются с криминальными происшествиями, вынуждающими их бороться за собственную жизнь в карточных азартных играх. Пользователи будут принимать участие в покерных схватках с другими (   Читать дальше...   )Тип издания: LicenseРазработчик: GoodMorningMrFrogЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Испанский, Японский и другиеЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98DE5AF911630A61272ED833E765CFCA5720861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786206   (24199) от 19.03.2025
-
-Gone Rogue (2023) [Ru/Multi] (1.18) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gone Rogue можно назвать иммерсивным симулятором вора. Технически это изометрический стелс-экшен с элементами тактической ролевой игры. Показанные в проекте события разворачиваются на территории альтернативной Европы. Действие происходит в середине 20-го века. Сюжет повествует о приключениях жителя некого антиутопического тоталитарного государства.Тип издания: RepackРазработчик: AskaLot GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A46B9BC09338FAAC3D903F33651727508A90027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786039   (24189) от 19.03.2025
-
-Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исцелите разум своих пациентов. В Wantless вы играете за Эйрис, одного из последних оставшихся Транспозеров - врачей, которые могут проникать в измученные умы своих пациентов, чтобы облегчить их мучения, стереть воспоминания или даже больше. Противостоите ужасам, ставшим явью, бедам и зловещим мыслям в этой быстрой и сложной тактической ролевой игре. Оттачивайте (   Читать дальше...   )Тип издания: RepackРазработчик: Drop Rate StudioЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E5539A873FD65995E1CFB60DE37C2ACD5B0079
 ```
 
 https://mybot314.ru/tekegram_catalog/

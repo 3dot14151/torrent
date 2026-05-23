@@ -1,3 +1,55 @@
+###  Публикация: 1196120   (825975) от 01.01.2018
+
+Souryo to Majiwaru Shikiyoku no Yoru ni... | Жаркая ночка с монахом [2017, TV-версия, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Горячая романтическая история начинается с того, что молодая девушка, только что пережившая тяжёлый разрыв отношений, вновь видится со своей первой любовью на школьной встрече выпускников. За годы Куджо превратился в красавца-мужчину… который, правда, является бритоголовым монахом и главным жрецом в семейном храме. Героиня думала, что монахам не позволено иметь романтических (   Читать дальше...   )Производство: Студия Seven / セブンЖанр: романтикаРежиссер: Араки ХидэкиПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1AA258FE11D5D82E90086F77DB9CF750D61619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381811   (824100) от 08.05.2020
+
+Black Clover (2017) | Чёрный клевер [2017, TV, 1-90 из >141 + OVA] BDRip 1080p 10bit raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Демоны никогда не сулили ничего хорошего. Издавна все твердят беречься от них, люди создают различные обереги, чтобы спасти свою душу. Но однажды демоны и вовсе распоясались, и начали представлять собой нешуточную угрозу для всего человечества, да такую, что вся раса людей оказалась под угрозой вымирания. Но спасение пришло, откуда не ждали. Один волшебник решил (   Читать дальше...   )Производство: Студия Studio Pierrot / studioぴえろЖанр: приключения, фэнтезиРежиссер: Ёсихара ТацуяПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: >141 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F9AC4E6E8516F8233A7FCE566E16A8859B6D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503208   (822919) от 17.10.2021
 
 Hadashi no Gen 2 | Barefoot Gen 2 | Босоногий Гэн 2 [1986, Movie] BDRip 1076p 10-bit raw
@@ -6,7 +58,7 @@ Hadashi no Gen 2 | Barefoot Gen 2 | Босоногий Гэн 2 [1986, Movie] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - Cadenza | Мелодия воро
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hadashi no Gen | Barefoot Gen | Босоногий Гэн [1983, Movie] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Kishibe Rohan wa Ugokanai | Так говорил Рохан Кисибэ [2017,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Time Travel Shoujo: Mari Waka to 8-nin no Kagakusha-tachi | Девушки, пу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Strike the Blood III | Удар крови [OVA-3] [2018, OVA, 10 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ Mewkledreamy | Мяу, исполняющая мечты [ТВ-1][2020, TV, 48 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Honoo no Tenkousei | Blazing Transfer Student | Огненный новичок 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +270,7 @@ Darker Than Black: Ryuusei no Gemini | Darker Than Black: Gemini of the Meteor |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +298,7 @@ Bishoujo Senshi Sailor Moon | Pretty Soldier Sailor Moon | Красавица-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +325,7 @@ Ikkitousen / Ikki Tosen / Школьные войны (сезон первый) 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +351,7 @@ Ikkitousen: Extravaganza Epoch | Школьные войны Эпоха феер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +377,7 @@ Love Live! School Idol Project (2014) / Love Live! 2 / Живая Любовь! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +403,7 @@ Kero-chan ni Omakase! | Предоставьте это Кэро! [2000, Movie] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +429,7 @@ Cardcaptor Sakura: Clear Card Hen | Card Captor Sakura: Clear Card Hen | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +456,7 @@ Cardcaptor Sakura | Card Captor Sakura | Сакура - собирательни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +482,7 @@ Rosario to Vampire Capu2 / Вампир + крестик 2 [2008, TV, 13] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +510,7 @@ Okusama ga Seitokaichou! Plus! / My Wife is the Student Council President+! / М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +562,7 @@ Komori-san wa Kotowarenai! / Komori-san Can't Decline / Безотказная �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +588,7 @@ Pan de Peace! / Хлеб мира! [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +614,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / This Art Club Has a Problem! / У этог
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +640,7 @@ Love Live! Sunshine!! / Живая любовь! Сияние!! [ТВ-3] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +666,7 @@ Strike the Blood: Kieta Seisou Hen | Удар крови: Потерянное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -625,58 +677,6 @@ Strike the Blood: Kieta Seisou Hen | Удар крови: Потерянное �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A4B123ED8C455A8AB4EE9D350A0B10F54B62369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505132   (806153) от 26.10.2021
-
-Highlander: The Search for Vengeance | Горец: В поисках мести [2007, Movie] BDRip 1032p 10-bit eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колин Маклауд, бессмертный шотландский горец, путешествует вместе с призраком-остряком Амерганом в поисках бессмертного тирана Маркуса Октавиуса, который несколько столетий назад на плоскогорьях Шотландии убил возлюбленную Колина. Нью-Йорк, когда-то великий город, теперь погружён под воду, и над поверхностью моря возвышается лишь одна высокая крепость, крепость Маркуса (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: приключения, фантастикаРежиссер: Кавадзири ЁсиакиПеревод: DuskerЯзык озвучки: английскийСубтитры: русскиеПродолжительность: 87 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62ECD1D3E8808C697CBF121E54EADB1B1C3070D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371013   (804164) от 19.05.2020
-
-High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804164.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в 1991 году, когда 2D-файтинги пользовались широкой популярностью среди молодежи. Главный герой – Харуо Ягучи, ученик шестого класса, чья жизнь сосредоточена только на видеоиграх. Он ничем не привлекательный парень, вовсе не обладающий чувством юмора, не имеющий друзей среди сверстников. Единственное, что получается у него лучше всего – убивать (   Читать дальше...   )Производство: J.C.StaffЖанр: комедия, романтикаРежиссер: Ямакава ЁсикиПеревод: AnimeJoyЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 9 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055337DEEF3041392462CDB5F63573F9C7A1FFA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

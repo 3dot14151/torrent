@@ -1,3 +1,148 @@
+###  Публикация: 1481083   (1008467) от 02.07.2021
+
+VA - Beatport Deep House: Sound Pack #310 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Nopi - Coral Soul
+002. The Official Bug - Soul Food
+003. Phonika - Abandoned By Mercy
+004. Hernan Cerbello - Roasted(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4728FAB8C423B0D3440934049AD44C77CB81AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481302   (1008345) от 03.07.2021
+
+VA - Beatport Drum And Bass: Sound Pack #311 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Degs, Nutone - The Connection
+002. Bartholomew Kind - Get Well Soon
+003. Heist - Back To Hers
+004. Flipnosis - Playing With Fire(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 08:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF0DBF869DA12C11B2E8EF1A3303C2CBF21D938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481734   (1007999) от 05.07.2021
+
+VA - Record Super Chart 03.07.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (3:20)
+02. Nessa Barrett feat. jxdn - la di die (3:15)
+03. Inna - Flashbacks (2:57)
+04. Markul, Джарахов - Я в моменте (2:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E03BE929205C5E56B12368B66CF0EDAAC9A20CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482043   (1007790) от 07.07.2021
+
+VA - A Quantum State: Synth Electronic Mix (2021) [MP3|320 Kbps] <Synthetic, Syntwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Third Son - Everything In It’s Right Place
+002. Dmx Krew - Solar Transit
+003. Monday In Neptune - Laurence
+004. Anton Mazo - Surrealism(   Читать дальше...   )Жанр: Synthetic, Syntwave, ElectronicПродолжительность: 11:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB693A6D9C74CFCA675C1A16492A40B7DB080B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482081   (1007786) от 07.07.2021
+
+VA - Beatport Tech House: Sound Pack #313 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Julian Iannone - Eclipse
+002. Greg Delon - Cezar
+003. Rex The Dog - Crasher
+004. Roc - Vocalicious(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5AE8A85813AE54232847688DBDE4348C5EC767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482077   (1007777) от 07.07.2021
 
 VA - Beatport Funky House: Sound Pack #312 (2021) [MP3|320 Kbps] <Funky, Disco House, Jackin House>
@@ -6,7 +151,7 @@ VA - Beatport Funky House: Sound Pack #312 (2021) [MP3|320 Kbps] <Funky, Disco H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Exotic Ethnic House (2021) [MP3|320 Kbps] <Ethnic house, electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Private Summer Theme: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Beatport Electro House: Sound Pack #314 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - EDC: Deep House Cafe Del Mar (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Record Super Chart 10.07.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Neon Mania: Synth Electronic DJ Mixtape (2021) [MP3|320 Kbps] <Synthwave, S
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - D&B Master Box (2021) [MP3|320 Kbps] <Drum & Bass, Dubstep, Bassline>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Electro House: Late Night Party (2021) [MP3|320 Kbps] <House, Electro, Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Record Super Chart 24.07.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Beatport Hard Dance: Electro Sound Pack #319 (2021) [MP3|320 Kbps] <Hardsty
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - Beatport Hardstyle: Sound Pack #326 (2021) [MP3|320 Kbps] <Hardstyle, Hard 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - Beatport Electro House. Sound Pack #323 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Beatport Drum And Bass: Sound Pack #324 (2021) [MP3|320 Kbps] <D&B, Basslin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - Beatport Electro House: Sound Pack #320 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Fantasmatic: Synthwave MPM (2021) [MP3|320 Kbps] <Synthwave, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Hard Dance Clubbing: Hardstyle Megaset (2021) [MP3|320 Kbps] <Hard Dance, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - Tech Athletics Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,151 +745,6 @@ VA - Tech Athletics Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC3BA6F41B077AB1C421FB0D0C45F161F022EC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486932   (1004369) от 02.08.2021
-
-VA - Hardstyle Fitness Collection (2021) [MP3|320 Kbps] <Hardstyle, hard dance, electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B-Front - Thank God For Music
-002. Frequencerz - Perfect Unity
-003. Fracus & Hartshorn - Ready For Love
-004. Ophidian - The Middle Children(   Читать дальше...   )Жанр: Hardstyle, hard dance, electroПродолжительность: 09:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542A0FE96493B393476C0B323C99F1DF556BA627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486960   (1004366) от 02.08.2021
-
-VA - Techno Night: Future Electro Session (2021) [MP3|320 Kbps] <Techno, Electronic, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004366.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luke's Anger - Schlongfingers
-002. Filipe Barbosa - Minis
-003. Hannibal Peck - Room 607
-004. Assad Harri - Perceptive Permanence(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 12:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD98382EE9B4D6C432098883A69F6331A558A441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349508   (1004302) от 02.01.2020
-
-VA - Hi Games Vol.4 (Chiptune Edition) (2020) [MP3|320 Kbps] <Chiptune>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vince Kaichan - Drag Strike
-02. H-Mister - Destination
-03. Glenntai, RoBKTA - ASGORE (from UNDERTALE)
-04. Jredd - Moon Glider(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D04DEB92B18DD99DCD8AFB31C2610595702365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349588   (1004271) от 02.01.2020
-
-VA - Hardstyle Dance Music For Fitness Vol.03 (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estasia - Queen Of The South
-002. Audiofreq - Sky Fall
-003. Dj Allan Xp - Laser Battle
-004. Matt Cubero - Cedan(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, ElectroПродолжительность: 09:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D2100EBB87508DFBFEAAFC80154773D0778C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349591   (1004267) от 02.01.2020
-
-VA - Cyber Space: Future Synth Electronic (2020) [MP3|320 Kbps] <Synthwave, Synthetic, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004267.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Collective Machine - Mamba
-002. Sporting Life - Approach
-003. Future Beat Alliance - Machines Can Help
-004. Frédéric Auger - Dark Liquid(   Читать дальше...   )Жанр: Synthwave, Synthetic, ElectronicПродолжительность: 13:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D21921854A09B3D4CF09BFFD31B8E50B3F25226
 ```
 
 https://mybot314.ru/tekegram_catalog/

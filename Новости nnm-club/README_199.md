@@ -1,3 +1,188 @@
+###  Публикация: 894886   (346072) от 05.11.2015
+
+WWE 2K15 (2015) [Multi] (v.1.0) Repack R.G. Games
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В новом сезоне знаменитой серии симуляторов реслинга результатом тесного сотрудничества Visual Concepts со студией Yuke’s стали интересные нововведения и усовершенствования геймплея, звукового оформления и визуальной составляющей игры, благодаря которым WWE 2K15 по праву можно назвать самым достоверным, динамичным и зрелищным выпуском серии на сегодняшний день.Тип издания: Переупакованная лицензияРазработчик: Yuke's и Visual ConceptsЖанр: Arcade (Fighting) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Итальянский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88864BC797B6E14EAE28EF15F2CD19DB1EC1AA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922961   (346067) от 05.11.2015
+
+Уэнделл Одом | Официальное руководство Cisco по подготовке к сертификационным экзаменам CCENT/CCNA ICND1 100-101 + DVD, Приложение (2015) [PDF, ISO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нынешнее академическое издание - исчерпывающий справочник и учебное пособие, знакомящие с фундаментальными концепциями работы с сетями и вспомогательными приложениями. Автор бестселлеров и опытный преподаватель Уэнделл Одом делится советами по подготовке к экзамену, помогая вам выявить свои слабые стороны, улучшить концептуальные знания и практические навыки.Жанр: Компьютерные сетиФормат: PDF, ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02175B2081A077787BE4F4479229852D3E5E7EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953667   (346065) от 05.11.2015
+
+Девушка без комплексов / Trainwreck (2015) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Стильная квартирка в Нью-Йорке, заводные подруги и работа в модном мужском журнале — что еще нужно современной девушке? Разве что приличный парень. Вот только одна загвоздка: похоже, моногамия — не ее конек.Производство: США, Apatow Productions and Universal Pictures.Жанр: Мелодрама, КомедияРежиссер: Джудд АпатоуАктеры: Эми Бет Шумер, Колин Куинн, Девин Фабри, Карла Оудин, Джош Сегарра, Райан Фаррелл, Роберт Е. Торрес, Джим Флорентайн, Бобби Келли, Дэн Содер, Джон Сина, Дэйв АттелльПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC133AAAEA8A9DA3C121C7595B50204928D04E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418670   (345960) от 25.10.2020
+
+Ведьмы / The Witches (2020) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В конце 1967 года после гибели родителей мальчик переезжает жить к бабушке. Та вскоре замечает, что в их городке отираются ведьмы, которые не прочь превратить её в внука в какое-нибудь животное, поэтому решает спрятаться в шикарном отеле на побережье, где работает её кузен. Бабуля думала, что там они встретят только скучающих богатых постояльцев, но именно в этом (   Читать дальше...   )Производство: Мексика, США / Warner Bros., ImageMovers, Double Dare YouЖанр: Фэнтези, комедия, приключения, семейныйРежиссер: Роберт ЗемекисАктеры: Джазир Бруно, Октавия Спенсер, Энн Хэтэуэй, Стэнли Туччи, Коди-Лей Истик, Крис Рок, Брайан Бовелл, Joseph Zinyemba, Джозетт Саймон, Джонатан ЛивингстоунПеревод: Профессиональный многоголосый, любительский многоголосыйСубтитры: Русские (форс), английскиеПродолжительность: 01:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA25E2E61016F5B711B8ED8BB1FEFCAF27CAAB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044025   (345109) от 08.10.2019
+
+XIII (2003) [En] (1.0upd) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Он очнулся на заброшенном пляже. Он ничего не помнит и единственная его зацепка - знак XIII, вытатуированный на груди и ключ от сейфа в банке Нью-Йорка. Впереди его ждет смертельные загадки прошлого и темнейшие коридоры власти Америки. Не зная своего прошлого и не ведая о будущем, он пытается разгадать тайну своей личности. Кто он?Тип издания: LicenseРазработчик: UbisoftЖанр: Action (Shooter), 3D, 1st Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F035754F03E85EA42A333239D83F7359294C315D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256979   (344717) от 26.10.2018
+
+Ремнант: Всё ещё вижу тебя / I Still See You (2018) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Загадочная аномалия стирает границы между миром живых и мёртвых. Бесплотные призраки погибших людей внезапно вторгаются в дома и жизни своих близких и столь же неожиданно исчезают. Ремнанты. Никто не знает откуда они взялись и зачем пришли. Вероника решает сделать шаг в потусторонний мир для того, чтобы разгадать эту тайну. Но путь ей преграждает таинственный убийца (   Читать дальше...   )Производство: США / Gold Circle FilmsЖанр: ТриллерРежиссер: Скотт СпирАктеры: Белла Торн, Дермот Малруни, Ричард Хэрмон, Луис Хертэм, Сара Томпсон, Шон Бенсон, Хью Диллон, Эми Прайс-Фрэнсис, Арден Альфонсо, Алисса ВыспяньскийПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA82B9B8A32374252F750EF0A9BFDBBBF1638F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580036   (344529) от 24.11.2012
+
+King's Bounty: Воин Севера - Коллекционное Издание \ King's Bounty: Warriors of the North - Valhalla Edition [Ru/En] (Steam-Rip/1.3.1/DLC) 2012 | R.G. Игроманы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+King’s Bounty: Воин Cевера - продолжение культовой приключенческой саги.
+
+Действие игры пройдет в уже известном вам мире Эндории: в Дарионе, в подземельях гномов, а также на землях викингов, куда не заплывал даже знаменитый Билл Гилберт.
+(   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Разработчик: 1C-SoftClub/Katauri InteractiveЖанр: Tactical role-playing gameЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7FC31BEDF8156F311F907BE61472E71D14C46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579301   (344523) от 24.11.2012
 
 Assassin's Creed III/3 [Ru/En/Multi18] (L/1.01) 2012 l RELOADED
@@ -6,7 +191,7 @@ Assassin's Creed III/3 [Ru/En/Multi18] (L/1.01) 2012 l RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -36,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -63,7 +248,7 @@ Adobe Photoshop CS6 13.0.1.3 Extended [Multi] [x86, amd64] (wine)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +302,7 @@ Adobe Illustrator CC2018 v22.0.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +356,7 @@ Windows 10 Pro 2004 b19041.572 x64 ru by SanLex (edition 2020-10-26) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +486,7 @@ The Fall of the Dungeon Guardians (2015) [En] (1.0) License HI2U
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +538,7 @@ Log Horizon 2 / Лог Горизонт (ТВ-2) [2014, TV, 25 ep] BDRip Hi10p 7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_343083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -406,7 +591,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +619,7 @@ Discovery. Битвы роботов / BattleBots (2018) HDTVRip [H.264/720p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +673,7 @@ AAct 4.2.8 Portable by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,194 +684,6 @@ AAct - KMS-активатор для операционных систем Windo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D796AAA33D420B6D159EE28C6617BCFA9141AF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722971   (342073) от 23.11.2013
-
-New Super Mario Bros. Wii Mods [Wii] [NTSC] [ENG] (2013)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342073.jpg" />
-</div>
-
-
-###  Подробнее
-
-New Super Mario Bros. Wii (далее NSMBW) стал настоящей сенсацией для Wii, возродив классический платформер от Nintendo и вознеся его на вершину жанра, в немалой степени благодаря возможности одновременной игры вчетвером. Как только приставку удалось взломать, незамедлительно образовались сообщества фанатов, разобравшие NSMBW по кирпичикам и изучившие все его внутренности. (   Читать дальше...   )Тип издания: ПираткаРазработчик: RVlution TeamЖанр: PlatformerЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B88A83D47BBDCCA007E42673738F5095A3F491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725030   (342062) от 23.11.2013
-
-Фантом / Phantom (2013) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан советской подводной лодки держит в своих руках судьбу всего мира. Вынужденному покинуть свою семью, ему приходится возглавить секретную миссию окутанную тайной…Производство: США, Trilogy Entertainment GroupЖанр: ТриллерРежиссер: Тодд РобинсонАктеры: Эд Харрис, Дэвид Духовны, Уильям Фихтнер, Лэнс Хенриксен, Джонатон Шек, Джейсон Бех, Дагмара Доминчук, Дерек Магияр, Шон Патрик, Флэнери Джейсон, Грей-Стенфорд.Перевод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC532DFDBA864A714432D4D4EC697E3995572B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073374   (341974) от 17.11.2016
-
-Специалист | CEH v9 часть 1. Этичный хакинг и тестирование на проникновение (2016) PCRec [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Certified Ethical Hacking
-
-Вы получите знания и навыки, необходимые для успешного выявления и устранения проблем безопасности в смешанных компьютерных сетях. Курс посвящен уникальным хакерским техникам и методам взлома в контексте применения оборонительных практик и рекомендаций, изложенных настоящими хакерами. Курс одобрен министерством обороны США и является официальной (   Читать дальше...   )Жанр: БезопасностьПродолжительность: 24:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FA2D68351A992331A4F2A8505A8DDB41E2DEBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579889   (341902) от 25.11.2012
-
-Dark Souls prepare to die edition [Xbox 360] [RUS] [Pal] [XGD3/LT+3.0/15574] (2012)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
- Каждое испытание представляет собой головоломку с бесконечным количеством решений. Вам пригодится, в первую очередь, умение стратегически мыслить, чтобы победить многочисленных противников и завершить свой путь.Тип издания: ПираткаЖанр: RPGЯзык интерфейса: Russian
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537C92127F9792958D6D8D3EE82D796F16B37347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126079   (341606) от 03.11.2017
-
-Asura (2017) [En/Ch] (Build ID 29000/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341606.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Asura» - игра, в которой вы будете играть за демона низшего ранга. Вы будете проходить свой путь от самого начала и до конца, переживая сюжеты, которые происходят от случайно сгенерированных залов. Сюжет не сложен, а даже по-детски прост, а вот сам процесс игры в некоторых моментах заставит насладиться сложностями. Представленное вам дерево навыков будет постоянно (   Читать дальше...   )Тип издания: LicenseРазработчик: Ogre Head StudioЖанр: Экшн, Ролевая игра, РогаликЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76A02251B330BE2788515A3E8A42B5E46FA786D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953988   (341428) от 07.11.2015
-
-Японские исследователи сделали небьющееся стекло, которое по прочности не уступает стали
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа исследователей из Института индустриальных наук (Institute of Industrial Science) Токийского университета разработала и опробовала на практике новую технологию изготовления практически небьющегося стекла, которое имеет прочность, сопоставимую с прочностью высококачественной стали. Наличие стекла, обладающего такими уникальными свойствами, может привести к (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954433   (341255) от 07.11.2015
-
-Windows 7 Professional SP1 IDimm Edition х86/x64 v.21.15 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341255.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Сборки представлены в виде двух отдельных образов: х86 и х64.
-• Сборки основаны на официальных образах MICROSOFT MSDN:
-ru_windows_7_professional_with_sp1_x86_dvd_u_677084.iso
-ru_windows_7_professional_with_sp1_x64_dvd_u_677024.iso(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6B05674CFA39709D5DF8BFB890F5343A6184D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

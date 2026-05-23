@@ -1,3 +1,162 @@
+###  Публикация: 570422   (390207) от 05.11.2012
+
+Daniel Bedingfield - Secret Fear (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7FEE134A1DA073E6FDD9288AC2B86186C88535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570622   (390111) от 05.11.2012
+
+Mungo Jerry - Video Collection (70-77) (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ещё одна забытая британская рок-группа 70-х и если кто не видел и тем более не слышал этих веселых и жизнерадостных парней то непременно советую посмотреть этот сборник с ранними песнями!Жанр: Музыка,Glam RockПродолжительность: 00:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80695A7B4C954BA9909C486C27D7D5B992ACE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570817   (389243) от 06.11.2012
+
+Christina Aguilera - Your Body (2012) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F72ADF9B96CBC0FCD00AF52A444AD5DDD566CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571524   (388270) от 07.11.2012
+
+Space RockerZ & Ellie lawson - Under The Same Sky (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FD97FCDB8D88360ACE155F76385251609529BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571527   (388261) от 07.11.2012
+
+Master and Ian Carey - Lights Out (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACBEE445D1D357AE4A20913D5176E735D85F7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 718780   (388237) от 04.11.2013
+
+Black Country Communion - Live Over Europe (2011) BDRemux [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Live Over Europe – концертное издание англо-американской рок-супергруппы, записанное на 14 HD камер летом 2011 года в городах Германии: Гамбурге, Мюнхене и Берлине и выпущенный 24 октября 2011 года. Группа первоначально была задумана во время совместного концерта для Guitar Center (сеть магазинов музыкальных инструментов со штаб-квартирой в Калифорнии, США) Joe Bonamassa (   Читать дальше...   )01. Revolution Of The Machine (Intro)
+02. Black Country
+03. One Last Soul
+04. Crossfire(   Читать дальше...   )Производство: Mascot RecordsЖанр: Hard Rock, Blues RockФормат: MKVПродолжительность: 01:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6277FD97ED1B7FB44DB601114007D55C7F7D4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571523   (388016) от 07.11.2012
 
 Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
@@ -6,7 +165,7 @@ Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +191,7 @@ Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +217,7 @@ Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +324,7 @@ Nirvana - Live At Reading Festival (1992) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -194,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +413,7 @@ Dio - Holy Diver Live (2010) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -280,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -310,7 +469,7 @@ Aerosmith - Music From Another Dimension! (Deluxe Edition) (Bonus DVD) (2012) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_383065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -342,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +640,7 @@ Dream Theater - Live at Luna Park (2013) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +669,7 @@ A-HA - Live In Giske Norway (2017) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -548,179 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD501D8897E930947976F9CE4BC9A1EEA2D678B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326854   (380505) от 22.09.2019
-
-Сборник клипов - Золотой хит от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380505.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые лучшие клипы от отечественных музыкантов, с 2000 по 2016 год. Ремастеринг видео и звука. Это 2я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Золотой хит 2 — Вступление
-01. Валерий Меладзе — Иностранец
-02. Ани Лорак — Обними меня
-03. Dino MC47 & Иракли — Сделай шаг(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DB169C35F95EE3C0D301CB8A280DA07AF597DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573508   (380428) от 10.11.2012
-
-Наталка Полтавка (1936) DVD5[ukr]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380428.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пьесе И.Котляревского. Украинская девушка Наталка, дочь бедной вдовы Терпелихи, скучает по своему любимому Петру, который ищет для себя и Наталки счастливую судьбу на чужбине. Однажды в дом Терпелихи приходит Выборный, чтобы просватать девушку за местного пана Возного. Престарелый барин противен Наталке, а Петро, будто чувствуя, что опаздывает, спешит в родные края...Жанр: Мелодрама, МьюзиклРежиссер: Иван КавалеридзеАктеры: Е.Осмяловская, С.Шкурат, Ю.Шестаковская,М.Литвиненко-Вольгемут, И.Паторжинский, М.Платонов, Г.МанькоПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573284   (379956) от 10.11.2012
-
-Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) Blu-ray [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379956.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 27 июля 1986г. Queen дали крупнейший концерт из когда-либо проходивших на Nepstadium в Будапеште перед лицом восьмидесятитысячной толпы ликующих фанатов. Венгрия всё ещё оставалась за «железным занавесом», до падения Берлинской стены оставалось три года, и концерт имел настолько большое значение для руководства страны, что была собрана группа из лучших венгерских (   Читать дальше...   )01. One Vision
-02. Tie Your Mother Down
-03. In the Lap of the Gods. . .Revisited
-04. Seven Seas of Rhye(   Читать дальше...   )Производство: Венгрия, Канада, США | Eagle Rock EntertainmentЖанр: RockСубтитры: Английские, Французские, Немецкий, Испанские, Итальянский, Португальский
-
-За предоставленный материал большое спасибоПродолжительность: 01:31:08 + 00:26:53 (Бонусы)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 152805   (379910) от 14.11.2009
-
-Nirvana - Live At Reading Festival [1992] (2009) DVD-9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Breed
-3. Drain You
-4. Aneurysm(   Читать дальше...   )Жанр: GrungeПеревод: ОригинальныйПродолжительность: 01:37:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 404651   (379775) от 30.10.2011
-
-Шоу Аниты Цой - Твоя А (2011.10.29) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379775.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 сентября в Государственном Кремлёвском дворце состоялась премьера грандиозного проекта, уникального шоу, над созданием которого трудились лучшие творческие силы России, а также специалисты из Венгрии, Голландии, Германии и Украины. Всего над концертом работали более 300 человек. В основу программы легла глубокая, прекрасная музыка - мелодический поп-рок из нового (   Читать дальше...   )01. Живущая в сети
-02. Ну и пусть
-03. Убегай, беги
-04. Разбитая любовь(   Читать дальше...   )Жанр: Концерт, Музыкальное шоуПродолжительность: ~ 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914F6E61AE31B26C949853DD93B4829482449880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948795   (379375) от 22.10.2015
-
-Муслим Магомаев. Записи 1963-1973 годов (2007) DVDRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время
-02. Три минуты молчания
-03. В этот день
-04. Вдоль по Питерской(   Читать дальше...   )Производство: РоссияЖанр: МузыкальныйАктеры: М.МагомаевПродолжительность: 02:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAE2F822B125EB2500F68DD7DE84C96887AD1A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1465785   (1018689) от 28.04.2021
+
+Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В 2014 году инопланетяне предстали перед человечеством и предложили сделку. За каждую тонну известняка они пообещали дать людям одну мощную боевую единицу под названием Exoframe — это трёхметровая меха, которая эффективнее, дешевле и проще в эксплуатации, чем какое-либо другое оружие землян. После этого «бартера» обстановка на Земле начала стремительно меняться. (   Читать дальше...   )Производство: Buemon / 武右ェ門Жанр: приключения, фантастика, мехаРежиссер: Сирато СэйитиЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 6 эп. по 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9BA4523FC3A1BB99A56512E1E9B08244C0A29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467040   (1017882) от 03.05.2021
+
+Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Обычному старшекласснику Канамэ Судо приходит сообщение с приглашением в загадочную мобильную игру «Darwin's Game». Стоило ему запустить приложение, как он стал частью игры, в которой игроки сражаются между собой, причём каждому из них дана сверхъестественная способность — сигил. Сможет ли Канамэ победить сильных противников и выжить в игре, где цена ошибки — смерть? (   Читать дальше...   )Производство: Студия NexusЖанр: приключенияРежиссер: Токумото ЁсинобуЯзык озвучки: Японский, РусскийСубтитры: #1: Русские, ASS, Полные+надписи |Продолжительность: 11 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82FC12BD517C9CC6F7806BFB61F3B581D2FB83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467241   (1017868) от 03.05.2021
+
+Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не любит [2020, Movie] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Каждый рассуждает о любви по-своему. Для Юны романтика превыше всего, в то время как Акари чересчур приземлённа и практична в своих взглядах. Но девушки есть девушки. А что насчет парней? Те, оказывается, недалеко ушли от своих подруг. У Кадзуоми ветер в голове, и парень будто ничего не смыслит в вопросах любви. А вот Рио времени зря не теряет и не упускает ни одной (   Читать дальше...   )Производство: A-1 PicturesЖанр: комедия, романтикаРежиссер: Куроянаги ТосимасаЯзык озвучки: японский, русскийСубтитры: отсутствуютПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD58687280A182E51309C37D9BCF01A2A8B5FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462740   (1017330) от 06.05.2021
 
 Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | Может, я встречу тебя в подземелье? [ТВ-3] [2020, TV, 12 из 12 + OVA] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +84,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Mach Go Go Go | Speed Racer | Гонщик Спиди [1967, TV, 52 из 52] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Eizouken ni wa Te o Dasuna! | Keep Your Hands Off Eizouken! | Руки проч�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Ме
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Ги�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Fruits Basket the Final TV-3 | Корзинка фруктов: Финал ТВ-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +424,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Я 300 ле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +452,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken / The Slime Diaries: That Time I G
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +480,7 @@ Zombie Land Saga Revenge / Зомбиленд. Сага [ТВ-2] [2021, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +508,7 @@ Majo Minarai o Sagashite | Looking for Magical Doremi | Дореми: В пои�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +534,7 @@ Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сил�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +561,7 @@ Kamisama ni Natta hi | The Day I Became a God | День, когда я стал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +587,7 @@ Zoku Natsume Yuujinchou | Тетрадь дружбы Нацумэ [ТВ-2] [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +613,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Мастер Муси: Тень, погл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +640,7 @@ Tales of Vesperia: The First Strike | Сказания Весперии: Пер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -588,7 +666,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,85 +677,6 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F454812CCE85125D45CD2E82B007B1C8BCE74590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342251   (984294) от 25.01.2020
-
-Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение аниме-сериалаПроизводство: Madhouse Studios, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Ито НаоюкиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 25 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2BB0C7942D0C53010A1804EC500719113DD3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358921   (966920) от 09.02.2020
-
-Bougyaku Sareta Tamashii no Jukyou | Corpse Party: Tortured Souls | Вечеринка Мёртвых: Истязаемые Души [2012-2013, OVA, 4 ep + 1 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история начинается в начальной школе «Небесное воинство», где происходят таинственные исчезновения учеников. Весь город взбудоражен этими событиями, и вскоре удаётся найти виновника — сумасшедшего учителя, перерезавшего своих жертв ножницами.
-После этих трагических событий школу сносят, а на её месте возводят другую под названием Академия Кисараги. Но события (   Читать дальше...   )Производство: Asread, ЯпонияЖанр: Триллер, УжасыРежиссер: Иванага АкираОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 4 Эпизода по 29 мин.; 1 Эпизод 11 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A39EF8006B899CFD7F6ECF9064228677A969090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359138   (965824) от 10.02.2020
-
-Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война тануки в период Хэйсэй [1994, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная Япония. Владения людей всё больше расширяются, и они, вырубая леса, постепенно лишают мест обитания народ тануки — енотовидных собак-оборотней. Чтобы сохранить свой дом на холмах в предместьях Южного Токио, молодёжь тануки активно практикуется в искусстве превращения. За помощью от известных тануки-мастеров магии отправляются подготовленные гонцы. Тануки (   Читать дальше...   )Производство: Япония. Studio GhibliЖанр: комедия, драма, фэнтезиРежиссер: Такахата ИсаоЯзык озвучки: Русский и английскийСубтитры: Русские, английскиеПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053D9F2F6D29D019E41DC9D7176024E957FDE70F
 ```
 
 https://mybot314.ru/tekegram_catalog/

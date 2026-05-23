@@ -1,3 +1,81 @@
+###  Публикация: 1758199   (31960) от 05.01.2025
+
+Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Repack seleZen [Deluxe Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вас ждёт Тедас - красочный мир, полный суровой дикой природы, коварных лабиринтов и сияющих городов, а также жестоких сражений и тайной магии. И теперь два порочных древних бога вырвались из оков вековой тьмы и одержимы желанием уничтожить мир. Тедасу нужен кто-то, на кого можно положиться. И этим новым героем Dragon Age станет Рук. Будьте тем, кем захотите, и играйте, (   Читать дальше...   )Тип издания: RepackРазработчик: BioWareЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC3D5C4CFFA9D2BF5120B33CDC034515DC9817C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767089   (31846) от 06.01.2025
+
+Heads Will Roll Reforged (2023) [Ru/En] (2.02b/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Heads Will Roll: Reforged позволит игроку примерить на себя роль обычного средневекового солдата, волею судеб оказавшегося в эпицентре легендарной Столетней войны между королями Англии и Франции. Вы начинаете свой путь простым пехотинцем, единственной целью которого является выживание, но при должном уровне мастерстве, хитрости, а также пролитой крови, вы вскоре (   Читать дальше...   )Тип издания: RepackРазработчик: 1917 StudiosЖанр: Ролевые игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80AA153F8F8164B72C2988B90638CE69725E49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771352   (31787) от 06.01.2025
+
+Coromon (2022) [Ru/Multi] (1.3.6) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Coromon – ролевое инди-приключение про приручение животных для их дальнейших поединков между собой, по типу Покемонов. Этот проект использует раритетное пиксельное визуальное оформление как дань уважения игровой индустрии прошлого века. Камера находится под углом для создания изометрического взгляда на окружающий мир, который гораздо более осматривается при таком (   Читать дальше...   )Тип издания: RepackРазработчик: TRAGsoftЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE877AA706CBFEFBCFC1C4DD5B97B9E3D3CCA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771547   (31731) от 07.01.2025
 
 G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
@@ -6,7 +84,7 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ For The King II (2023) [Ru/Multi] (1.3.5) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Pyrrhic Tales: Prelude To Darkness (2002) [En] (1.8) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.7 51 47889/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dungeon Defenders: Going Rogue (2022) [En] (0.9.34625EA) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.7.19/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Bloodstained Ritual of the Night (2019) [Ru/Multi] (1.06/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +604,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Tales of Graces f возвращается в красивой версии, в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B99913C125B3765C1F0862D686B7208CE1F934A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772986   (30091) от 23.01.2025
-
-The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте на место заброшенного робота в игре The Redundant - захватывающем приключенческом экшене с различными способами прохождения. Попробуйте себя в роли CF5 - заброшенного робота на таинственном объекте, который осаждают полчища пораженных вирусом машин. По мере исследования объекта вы распутаете запутанную историю, изолируя каждую секцию от сети, пока не стало (   Читать дальше...   )Тип издания: RepackРазработчик: 7gizmo LtdЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4402D7B2FF39E8E9075F50795973D23D4FABC9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774838   (30044) от 23.01.2025
-
-Perennial Order (2024) [Ru/Multi] (1.0.3) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perennial Order черпает вдохновение в таких играх, как Hollow Knight, Titan Souls, Dark Souls и Shadow of the Colossus. Perennial Order - это растительный 2D-хоррор, где ты сразишься с боссами в атмосферном мире тёмного фэнтeзи, населённом заражёнными чудовищами-мутантами. Исследуй загадочные земли в одиночку или с другом в локальном или онлайн-мультиплеере для 2 (   Читать дальше...   )Тип издания: RepackРазработчик: Gardenfiend GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D2C2BB32EE7894BB2A34D7B47E98278CADD588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762073   (29975) от 24.01.2025
-
-Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Patch 5/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждёт Тедас - красочный мир, полный суровой дикой природы, коварных лабиринтов и сияющих городов, а также жестоких сражений и тайной магии. И теперь два порочных древних бога вырвались из оков вековой тьмы и одержимы желанием уничтожить мир. Тедасу нужен кто-то, на кого можно положиться. И этим новым героем Dragon Age станет Рук. Будьте тем, кем захотите, и играйте, (   Читать дальше...   )Тип издания: RepackРазработчик: BioWareЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE93A0E7226B4CC0702EE9A4791EE2D431F15EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

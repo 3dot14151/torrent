@@ -1,3 +1,57 @@
+###  Публикация: 445872   (274956) от 27.11.2018
+
+Миллениум: Трилогия Девушка с татуировкой дракона / Девушка, которая играла с огнем / Девушка, которая взрывала воздушные замки / Man som hatar kvinnor / Flickan som lekte med elden / Luftslottet s ...
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Микаэль Блумквист — талантливый журналист, который верой и правдой добивается справедливости в самых скандальных делах — неожиданно терпит фиаско в своей деятельности, в результате чего вынужден отбыть срок лишения свободы.
+В то же время влиятельный человек Хенрик Вангер поручает ему дело о пропаже его племянницы, которая таинственным образом исчезла из имения Вангеров, (   Читать дальше...   )Жанр: Триллер, Детектив, КриминалРежиссер: Дэниэл Альфредсон / Daniel AlfredsonАктеры: Микаэл Нюквист, Нуми Рапас, Лена Эндре, Анника Халлин, Джейкоб Эрикссон, София Ледарп, Андерс Албом, Георги СтайковПеревод: Профессиональный (многоголосый закадровый)Субтитры: Русские
+АнглийскиеФормат: MKVПродолжительность: 02:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAF6AFBA4CF3693B3A2C7418FDB553AA263D794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849313   (274712) от 17.12.2014
+
+Затоичи: Слепой Фехтовальщик / Zatoichi: The Blind Swordsman (1962-2003) BDRip [H.264/720p-LQ]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Слепого массажиста Затойчи нанял Сукедзоро Ииока, считая, что сражение с его соперником Сигезо Сасагава неизбежно. Затойчи — известный фехтовальщик, и Сукедзоро считает, что он удачно вложил свои деньги. Его противник нанял ронина Мики Хиратэ, не менее известного мастера меча. По стечению обстоятельств между этими двумя фехтовальщиками появляется дружба и взаимное (   Читать дальше...   )Жанр: Боевик, Драма, ПриключенияРежиссер: Токуцо Танака, Кенжи Мисуми, Кимиёси Ясуда, Шинтаро Катцу,  Такеши КитаноАктеры: Шинтаро Катцу, Шигеру Амачи, Масяо Банри, Руюзо Шимада, Ейджиро Янаги, Такеши КитаноПеревод: Одноголосый закадровый, любительский - RussianGuy27Язык субтитров: АнглийскийПродолжительность: 27 x ~ 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77A4F81C28927F9C2943FF304885196795BB465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 122021   (273838) от 28.11.2018
 
 Одиннадцать, Двенадцать, Тринадцать друзей Оушена. Трилогия / Ocean's Eleven, Ocean's Twelve, Ocean's Thirteen. Trilogy (2001 - 2007) [720p] BDRip
@@ -6,7 +60,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -626,62 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B70450C3C9141AEACDA55951932AB4BE59A3250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638685   (247696) от 09.06.2023
-
-Пираты Карибского моря: Пенталогия / Pirates of the Caribbean: Pentology (2003-2017) WEBRip [H.264/1080p] [Open Matte]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь харизматичного авантюриста, капитана Джека Воробья, полная увлекательных приключений, резко меняется, когда его заклятый враг — капитан Барбосса — похищает корабль Джека, Черную Жемчужину, а затем нападает на Порт Ройал и крадет прекрасную дочь губернатора, Элизабет Свонн.
-Друг детства Элизабет, Уилл Тернер, вместе с Джеком возглавляет спасательную экспедицию (   Читать дальше...   )Производство: США, великобритания / Walt DisneyЖанр: фэнтези, боевик, приключенияРежиссер: Гор Вербински, Роб Маршалл, Хоаким Роннинг, Эспен СандбергАктеры: Джонни Депп, Джеффри Раш, Орландо Блум, Кира Найтли, Джек Девенпорт, Джонатан Прайс, Ли Аренберг, Маккензи Крук, Дэмиан О’Хейр, Джиллз НьюПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 02:23:15 / 02:30:39 / 02:48:30 / 02:16:24 / 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130F0AF3C8C843629C6E8C792820A519627CFD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449452   (247114) от 08.07.2023
-
-Кловерфилд / Cloverfield (2008, 2016, 2018) BDRip [H.264] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прощальную вечеринку уезжающего в Японию Роба прерывает громогласный рык —
-нечто напало на Нью-Йорк, сея панику, разрушения и пожирая людей.
-Армия бессильна против гигантского монстра, Манхэттен объявлен закрытой зоной,
-но где-то неподалеку от Центрального парка в беду попала девушка Роба.Производство: США / Bad Robot, Paramount PicturesЖанр: Ужасы, фантастика, триллер, детективРежиссер: Мэтт Ривз, Дэн Трахтенберг, Джулиус ОнаАктеры: Лиззи Каплан, Джессика Лукас, ТиДжей Миллер, Майкл Сталь-Дэвид, Майк Фогель, Одетт Эннэйбл, Анжул Нигам, Марго Фарли, Тео Росси, Брайан Клагман, Джон Гудман, Мэри Элизабет Уинстэд, Джон Галлахер мл., Дуглас М. Гриффин, Сюзанн Крайер, Брэдли Купер, Сумали Монтано, Фрэнк Моттек, Гугу Эмбата-Ро, Дэвид Ойелоуо, Даниэль Брюль, Джон Ортис, Крис О’Дауд, Аксель Хенни, Чжан (   Читать дальше...   )Перевод: Дублированный, многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (Full, forced), английские (Full)Продолжительность: 01:24:40 / 01:43:35 / 01:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F818140D3EDECDAA403D1B3014D21745B43516C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

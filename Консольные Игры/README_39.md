@@ -1,29 +1,3 @@
-###  Публикация: 1568556   (459321) от 09.08.2022
-
-Stray (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stray переносит игрока в далекое будущее, мир киберпанка. История рассказывает о приключениях потерявшегося кота, который ищет дорогу домой. Бродячее животное очутилось в городе-крепости Коулун, из которого не просто найти выход. Здесь давно не живут люди, и улицы заполнены роботами. Узнайте секреты давно покинутого поселения. Подружитесь с летающим дроном B12, который (   Читать дальше...   )Тип издания: LicenseРазработчик: BlueTwelve StudioЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D36484A6988F40BCEB0CE6F5B4B1B595414C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161518   (458463) от 01.09.2017
 
 Heavenly Sword (2007) [PS3] [EUR] 3.40 [Repack / 1.10] [Ru/Multi]
@@ -32,7 +6,7 @@ Heavenly Sword (2007) [PS3] [EUR] 3.40 [Repack / 1.10] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +32,7 @@ Jurassic World Evolution (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.34 / DLC] [R
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +58,7 @@ Vampyr (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dead or Alive 5 [Xbox360] [ENG] [PAL] [LT+ 2.0] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +116,7 @@ Damage Inc. Pacific Squadron WWII (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +142,7 @@ Operation Flashpoint: Dragon Rising (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +169,7 @@ LEGO Marvel Super Heroes 2 (2017) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +195,7 @@ Ragnarok Odyssey ACE (2013) [PS3] [USA] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +221,7 @@ Dead Space 3 + DLC (2013) [Xbox360] [RegionFree] [FreeBoot] [Repack] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +247,7 @@ Clash of the Titans  (2010) [PS3] [EUR] 3.21 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +274,7 @@ One Piece: Unlimited Cruise 2 - Awakening of a hero [WII] [PAL] [ENG] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +300,7 @@ Othercide (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.1.0.5] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +328,7 @@ Burnout Paradise Remastered (2018) [PS4] [EUR] 5.05 [HEN] [License / DLC] [Ru/Mu
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +354,7 @@ History Civil War: Secret Missions (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +380,7 @@ Uncharted: Drake's Fortune [PS3] [EUR] [En] [1.94] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +406,7 @@ Uncharted 2: Among Thieves [PS3] [EUR] [Ru] [2.80] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +432,7 @@ Max Payne 3 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +458,7 @@ LEGO Batman 3: Beyond Gotham (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +486,7 @@ Shantae: Half-Genie Hero (2016) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / DLC]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +512,7 @@ Fable: The Journey [ENG] (LT+3.0/15574) [KINECT] (RegionFree) (XGD3) (2012) [Xbo
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +538,7 @@ Transformers Devastation (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +564,7 @@ Red Dead Redemption: Game of the Year Edition [Xbox 360] [English] [Region Free]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,7 +596,7 @@ Motorcycle Club (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -650,7 +624,7 @@ Far Cry 5 (2018) [PS4] [EUR] 9.0 [HEN] [License / 1.16 / DLC] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -676,7 +650,7 @@ Hitman: Absolution (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] [Russ
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -689,6 +663,32 @@ Hitman: Absolution – долгожданное продолжение сери�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C597298A3CB6305E72B1CB2C079BE842942532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943965   (444230) от 05.10.2015
+
+Rayman Origins (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Неунывaющий Рэймен, создaнный орденоносным рaзрaботчиком Мишелем Aнселем, возврaщaется к истокaм легендaрной серии, зaвоевaвшей признaние миллионов игроков. В волшебной стрaне сновa неспокойно, и рaзобрaться с ситуaцией может только он - герой всех времен: Рэймен! В компaнии своего лучшего другa Глобоксa и двух волшебников нa все руки он отпрaвляется восстaнaвливaть (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Ubisoft MontpellierЖанр: Arcade / Adventure / Platformer / 3DЯзык озвучки: ВымышленныйЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3F2BC293E3B146F23711305443B3003A368945
 ```
 
 https://mybot314.ru/tekegram_catalog/

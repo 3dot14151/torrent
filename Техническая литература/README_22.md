@@ -1,3 +1,108 @@
+###  Публикация: 928519   (521539) от 17.08.2015
+
+Moeller GmbH | Справочник по схемам электрических подключений.  Автоматизация и распределение электроэнергии (2008) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Справочник предлагает ценные практические советы по вопросам электротехники – как для людей, проходящих обучение, так и для опытных практиков. Все схемы составлены надлежащим образом и тщательно протестированы.Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD94E00A540E4847400282F7F4D313DCE967A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928863   (520609) от 18.08.2015
+
+В.А Зайцев, В.А. Третьяков | Срок службы радиоламп (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются вопросы правильной эксплуатации электровакуумных приборов с целью увеличения их срока службы и надежности, даются практические рекомендации.Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D9339832778C2C23B1E86060895E7D538F0671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928912   (520589) от 18.08.2015
+
+К.И. Дроздов | Справочник по западно-европейским приемным лампам (1948) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В настоящую книгу включены основные справочные сведения по приемно-усилительным лампам западно-европейского ассортимента, не обходимые для правильной эксплуатации, налаживания и ремонта приемно-усилительной и измерительной аппаратуры, в которой применяются указанные лампы. Особая нужда в подобных справочных данных возникает при замене ламп в этой аппаратуре лампами (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A14C0AF882EA2C3D6DBED2939BD5C369DF4B731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929200   (519556) от 19.08.2015
+
+Б.Б. Гурфинкель | Приемно-усилительные электронные лампы (1949) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге даются основные сведения по приемно-усилительным лампам и лампам вспомогательного назначения как старых, так и новых типов, находящих применение в радиолюбительской практике, а также в практике технического персонала, занимающегося обслуживанием, наладкой и ремонтом радиовещательной и телевизионной приемной аппаратуры.
+Даются сведения по ряду новых типов (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC06B95460AA738EE0512FF9C0174155052DBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535043   (518963) от 14.08.2012
 
 Ю.С.Мельников  | Помощь проектировщика по проектированию вентиляции [2002] [PDF]
@@ -6,7 +111,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,113 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA086E3C4FF05159D30E2AE8F001A8620B019C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243250   (493537) от 26.08.2018
-
-А.П. Кашкаров, А.Л. Бутов | Радиолюбителям: схемы для дома (2008) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведено описание устройств различного назначения (звуковые и световые сигнализаторы, терморегуляторы, охранные устройства и др.), выполненных на недорогих элементах и доступных начинающим радиолюбителям для повторения. Рассмотренные конструкции могут быть изготовлены самостоятельно и будут полезны в дома, на даче, в автомобиле. Отдельные узлы, описанные в книге, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F85A12AF3456FF24BA086F0D16ECCD258A4F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382679   (492869) от 01.09.2011
-
-А.А. Савельев | Современные кровли. Устройство и монтаж [2010] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание изготовления кровель опирается на инструкции ведущих производителей кровельных систем. Узлы и конструкции различных кровель во многом (но не во всем) взаимозаменяемые. Трубные разделки, карнизные и коньковые узлы, ендовы и фронтонные свесы, описанные в одной кровельной системе, с некоторыми доработками могут быть применены в другой. Теплоизоляция и вентиляция мансардных крыш применяются для всех видов кровельных покрытий.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158851   (489801) от 17.08.2017
-
-Андрей Кашкаров | Персональные видеорегистраторы для личной безопасности (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первыми (2014 год) персональными видеорегистраторами (нательными камерами) оснащали полицейских, медиков бригад скорой помощи, спасателей, охотников лесного ведомства и других госслужащих.
-Сегодня это уже массовый продукт, который способен помочь широкому кругу лиц, включая даже охотников, а также владельцев оружия.
-В книге представлено масштабное описание современных (   Читать дальше...   )Жанр: Радиоэлектроника, СправочникиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFC72934B4EF7A5344793EDBF1D06BE08DFB663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159252   (486027) от 19.08.2017
-
-А.А. Коннов, А.Е. Пескин (сост.) | Микросхемы для современных импортных телевизоров - 4 (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный выпуск продолжает серию справочников «Энциклопедия ремонта» и является четвертой книгой, посвященной микросхемам для современных зарубежных телевизоров. Приводятся структурные схемы, назначения выводов и цоколевки более трехсот популярных микросхем, нашедших применение в цветных телевизорах производства стран Европы и Азии.
-В книге приведены микросхемы следующих (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E620DE15EB8B6297C665C002DACC7FC04FA9FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

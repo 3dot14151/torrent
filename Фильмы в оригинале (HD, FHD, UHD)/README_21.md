@@ -1,3 +1,81 @@
+###  Публикация: 1395378   (754917) от 10.07.2020
+
+Грейхаунд / Greyhound (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [EN / RU, EN, FR, GER etc. Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Early in World War II, an inexperienced U.S. Navy captain must lead an Allied convoy being stalked by Nazi U-boat wolfpacks.Производство: China, Canada, USA / Columbia Pictures, Stage 6 Films, Zhengfu PicturesЖанр: Action, Drama, History, WarРежиссер: Aaron SchneiderАктеры: Tom Hanks, Stephen Graham, Elisabeth Shue, Michael Benz, Rob Morgan, David Maldonado, Jimi Stanton, Matt Helm, Tom Brittney, Manuel Garcia-RulfoПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: Russian (Full), English, Arabic, Bulgarian, Czech, Danish, German, Greek, Spanish, Estonian, Finnish, French, Hebrew, Hindi, Hungarian, Indonesian, Italian, Japanese, Lithuanian, Latvian, Malay, Dutch, Norwegian, Polish, Portuguese, Slovak, Slovenian, Swedish, Tamil, Telugu, Thai, Ukrainian, Vietnamese, ChineseПродолжительность: 01:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6E8F9DED86D5810BBCCB7878AFBEC6A615C661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215858   (754481) от 28.03.2018
+
+Величайший шоумен / The Greatest Showman  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Финеас Тейлор Барнум всегда мечтал войти в историю, но все его занятия не приносили ему удовольствия. И когда, казалось, весь мир обернулся против него, он решает пойти вслед за своей мечтой. Барнум создает завораживающее представление-сенсацию, которое стало рождением мирового шоу-бизнеса.Производство: США / Chernin Entertainment, TSG Entertainment, Twentieth Century FoxЖанр: драма, биография, мюзиклРежиссер: Майкл ГрэйсиАктеры: Хью Джекман, Зак Эфрон, Мишель Уильямс, Ребекка Фергюсон, Зендея, Кила Сеттл, Яхья Абдул-Матин II, Остин Джонсон, Эллис Рубин, Скайлар Данн, Кэмерон Сили, Сэм ХамфриПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E573866C66B005DEAC0A36E044462DE388062A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216003   (754378) от 28.03.2018
+
+Все деньги мира / All the Money in the World  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Во всем мире не было человека богаче, чем Пол Гетти. Принадлежать к его роду - все равно что быть богом. Однако, когда в Риме неизвестные похищают его внука, нефтяной магнат, ко всеобщему шоку, наотрез отказывается платить выкуп. И тогда единственной надеждой для матери мальчика становится таинственный сотрудник службы безопасности самого Гетти...Производство: США / Imperative Entertainment, Panorama Films, RedRum Films, Scott Free Productions, TriStar ProductionsЖанр: триллер, драма, криминал, детектив, биографияРежиссер: Ридли СкоттАктеры: Мишель Уильямс, Кристофер Пламмер, Марк Уолберг, Ромен Дюрис, Тимоти Хаттон, Чарли Пламмер, Чарли Шотуэлл, Эндрю Бакан, Марко Леонарди, Джузеппе Бонифати, Николас Вапоридис, Андреа ПьедимонтеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 02:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB472CDFEBA552B132A258DEC24D3694BDC8FCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215736   (754373) от 28.03.2018
 
 Призрачная нить / Phantom Thread (2017) WEB-DL [H.264/1080p-LQ] [EN / RU, EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8299D0562CE819B03C8D9CFB1783C15B89E16F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017996   (732502) от 29.05.2016
-
-Пеле: Рождение легенды / Pele: Birth of a Legend (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биографическая лента о самом знаменитом футболисте планеты. Создатели фильма сосредоточились на ранних годах Пеле, его взаимоотношениях с отцом. Особая роль отведена состоянию в бразильском обществе после катастрофического поражения от сборной Уругвая в 1950 году. Тогда мальчишка из бедных кварталов решил доказать, что с бразильским футболом не покончено, и его страна (   Читать дальше...   )Производство: США, Imagine Entertainment, Seine Pictures, Zohar InternationalЖанр: Драма, Биография, СпортРежиссер: Джефф Цимбалист, Майкл ЦимбалистАктеры: Винсент Д’Онофрио, Родриго Санторо, Диего Бонета, Колм Мини, Тоня Корнелисс, Сеу Жоржи, Кевин де Паула, Свен Холмберг, Андре Маттос, Сет Майклс...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15E5A9D5B74D43DCD7F14E6E194BAD975D627F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283930   (730592) от 19.02.2019
-
-Вход в никуда / Enter Nowhere (2011) BDRip [H.264/1080p] [EN / EN, RU Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730592.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета фильма — несколько человек, оказавшихся волей случая в безлюдном сверхъестественном лесу. Мистические обстоятельства приводят героев в пустующую сторожку, где их судьбы переплетаются самым жестоким образом.Производство: США, Caliber Media CompanyЖанр: Триллер, Детектив, ФантастикаРежиссер: Джек ХеллерАктеры: Кэтрин Уотерстон, Скотт Иствуд, Сара Пэкстон, Шон Сайпос, Кристофер Денэм, Джесси Перез, Лей Лезарк, Вик ФиналборгоПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельно), Английские (форсированные, полные (отдельно))Продолжительность: 01:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386447E7CFEBBAB18ACCFE7B7F87871D5D14939A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530042   (730517) от 09.02.2022
-
-King’s Man: Начало / The King's Man (2021) WEB-DL [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingsman — организация супершпионов, действующая на благо человечества вдали от любопытных глаз. И один из первых и самых талантливых оперативников в истории организации — Конрад, молодой и наглый сын герцога Оксфордского. Как и многие его друзья, он мечтал служить на благо Англии, но в итоге оказался втянут в тайный мир шпионов и убийц.Производство: Великобритания, США / 20th Century Studios, Marv Films, Marv StudiosЖанр: боевик, триллер, приключенияРежиссер: Мэттью ВонАктеры: Харрис Дикинсон, Даниэль Брюль, Рэйф Файнс, Аарон Тейлор-Джонсон, Рис Иванс, Джемма Артертон, Мэттью Гуд, Том Холландер, Бранка Катич, Стэнли ТуччиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EFFCF14F26C552C7D20479595D61C578D5B99D
 ```
 
 https://mybot314.ru/tekegram_catalog/

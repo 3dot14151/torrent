@@ -1,3 +1,109 @@
+###  Публикация: 1428561   (179524) от 02.12.2020
+
+Любовь без размера (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Маша поет и танцует «на бэках» у московской звезды. Однако ей уже за тридцать, и продюсер намекает, что грудь больше не проходит по «профстандартам». Девушка решает исправить ситуацию, но для этого нужно поехать с «бывшим» к подножию Эльбруса. На оздоровительном курорте ее ждет неожиданная встреча и совершенно новые жизненные перспективы.Производство: Россия / Киностудия им. М. Горького, ООО «Компания «Новые люди»Жанр: Мелодрама, комедияРежиссер: Мария ШульгинаАктеры: Светлана Ходченкова, Максим Лагашкин, Иван Колесников, Софья Лебедева, Ирина Демидкина, Гэ Ян, Дмитрий Астрахан, Юлия АугПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9F5AB662EC91E43B841042014A5BB46F861482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196911   (179455) от 28.11.2022
+
+На свете живут добрые и хорошие люди (2010) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Если Ваша любимая жена пытается Вас убить… Если Ваш отец считает себя реинкарнацией Чапаева… Если неожиданно выясняется, что Вы хотите быть не учителем истории, а водителем трамвая… Если Ваши сотрудницы вдруг начинают перед Вами раздеваться прямо на рабочем месте… Если все вокруг только пьют, поют, пляшут и дерутся, и никто не хочет работать…. .. это значит, что (   Читать дальше...   )Производство: Россия,  продюсерский центр "Золотой век", кинокомпания "ЛеопАРТ"Жанр: Драма, мелодрамаРежиссер: Дмитрий АстраханАктеры: Сергей Горобченко, Владимир Кабалин, Марина Иванова, Лариса Грибалева, Арина Ефремова, Андрей Дубровский, Мария Возба, Сергей Власов (IV), Семён Фурман, Раиса Грибович, Екатерина Макеева, Света Хомчик, Елена Акулёнок, Филипп ПанковПродолжительность: 01:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8235F0441C5D6217E4509329ECBD8E53015D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196629   (179453) от 02.12.2020
+
+Прячься! (2010) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На затерянной высоко в горах метеостанции несут службу несколько человек. Однажды они перестают выходить на связь, руководство высылает на станцию спасателей, которые находят распахнутые настежь двери, еще теплые угли в котельной, неработающую радиостанцию — и никого.
+
+Подозреваются все, кто находился на станции: двое метеорологов с безупречным послужным списком (   Читать дальше...   )Производство: Россия, Германия,  компания "Стар Медиа", кинокомпания СТВ, телеканал "Россия" при участии Amselfilm ProductionsЖанр: ТриллерРежиссер: Джонни О’РайллиАктеры: Алексей Гуськов, Сергей Гармаш, Марина Александрова, Сергей Юшкевич, Петр Логачев, Антон Шагин, Егор Пазенко, Владимир Гусев, Оксана Кутузова, Игорь Жижикин, Александр ТютинПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A66F6E1D36975A302611B96C5B291459D190AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428648   (179201) от 03.12.2020
+
+Залиния (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+У пятилетней Алины есть крыша над головой, но нет дома. У неё есть родители, но нет семьи. Её окружают новые и старые лица, но она одинока. Девочке приходится проходить через испытания потери, рано осознавать, что такое смерть и предательство и познавать жестокость окружающего мира, в котором каждый остаётся сам за себя.Производство: Россия / Ливандия ЭнтертейнментЖанр: ДрамаРежиссер: Вадим ДубровицкийАктеры: Анна Дубровская, Федор Лавров, Владислав Абашин, Вероника Поваляева, Елизавета Зарубина, Ярослава Базаева, Илария Гребенникова, Тимур Виснянкин, Василиса Неструева, Наталья СавченкоСубтитры: ОтсутствуютПродолжительность: 02:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60C9C64E79E6E19A0E380B587A63714313C3B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666332   (179167) от 04.10.2023
 
 Квест (2023) WEB-DLRip [H.264/1080p] [PR]
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -451,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -477,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -567,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0164721CBBE245DDF6881892CDA87D8F1EAAB558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 238167   (176960) от 02.12.2022
-
-Мой лучший друг, генерал Василий, сын Иосифа (1991) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой любитель спорта Василий Сталин на тренировке заметил молодого, дерзкого, подающего надежды паренька Всеволода Багрова. Его прямота и талант полюбились генерал-лейтенанту. Вскоре Всеволод стал величайшим советским футболистом и хоккеистом, его имя было на устах почти у каждого гражданина огромной страны, а рядом всегда оставался человек, считавший себя его (   Читать дальше...   )Производство: СССР, Ленфильм, Ленинтерфильм, KraunЖанр: драма, комедия, биография, спортРежиссер: Виктор СадовскийАктеры: Борис Щербаков, Владимир Стеклов,  Андрей Болтнев, Ирина МалышеваПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CA72895F36593E1639408FEF69FDAF2148EACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 56732   (176934) от 02.12.2022
-
-Пять бутылок водки (2001) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о закулисной жизни обычного московского бара, где отношения между хозяином, «крышей» и работниками очень напоминают семейные. Однако в отличие от семьи этих людей связывает совместное дело, роли в котором далеко не равноценны. Отношения подчинения и угнетения пронизывают собой всю жизнь героев этого фильма.Производство: Россия / Зелёный слоникЖанр: драма, комедияРежиссер: Светлана БасковаАктеры: Александр Маслаев, Денис Васильев, Сергей Пахомов, Владимир Епифанцев, Диллон Олойеде, Мария БолтневаСубтитры: ОтсутствуютПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375CDCFBC064A2CD7BD557F52C3C2BFF7B549DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595045   (176542) от 03.12.2022
-
-Злоумышленник (2022) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пацана, скручивающего гайки с железной дороги, допрашивает молодой следователь. Каждый уверен, что правда на его стороне. Но ни один не догадывается о масштабах катастрофы.Производство: РоссияЖанр: Короткометражный, драма, детективРежиссер: Илья ХрамовАктеры: Влад Ташбулатов, Олег Отс, Лев Бабенко, Константин Карташов, Мария Божьева, Виктория Таранец, Артём МельничукСубтитры: отсутствуютПродолжительность: 00:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2FB059083C01D64A619EEC133A688EE238224A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429586   (176541) от 06.12.2020
-
-Гагарин. Первый в космосе (2013) BDRip [H.265/1080p] [10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящён первым шагам человечества на пути освоения космоса и непосредственно судьбе первого космонавта Ю. А. Гагарина. Основной лейтмотив — борьба за право быть первым: соревнование в первом отряде космонавтов; конкуренция технологий в ракетостроении; противостояние сверхдержав — СССР и США.Производство: Россия / Kremlin FilmsЖанр: драма, биография, историяРежиссер: Павел ПархоменкоАктеры: Ярослав Жалнин, Михаил Филиппов, Владимир Стеклов, Ольга Иванова, Вадим Мичман, Даниил Воробьев, Надежда Маркина, Виктор Проскурин, Инга Стрелкова-Оболдина, Сергей КалашниковСубтитры: ОтсутствуютПродолжительность: 01:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889A2E1B7B1E833229C1747D95AE1ECCDFD52E01
 ```
 
 https://mybot314.ru/tekegram_catalog/

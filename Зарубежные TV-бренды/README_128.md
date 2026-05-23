@@ -1,3 +1,55 @@
+###  Публикация: 1330019   (29528) от 28.01.2025
+
+BBC: Вулканы в космосе / Space Volcanoes (2017) HDTV [H.264/1080i] (Сезон 53, эпизод 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ландшафты нашей планеты сформированы вулканической активностью. Человечество издавна знакомо с разрушительной красотой вулканов. Но лишь сравнительно недавно выяснилось, что вулканизм существует и за пределами Земли. На планетах и спутниках в солнечной системе есть вулканы, значительно превосходящие размерами своих земных собратьев. И по нашей Луне когда-то текли (   Читать дальше...   )Производство: Великобритания, США, A BBC Studios, Science ChannelЖанр: Документальный, научно-популярный, космосРежиссер: Эндрю ТомпсонПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56205D8806FEA5EAF02F039391DC5D940D9B27F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122333   (29334) от 30.01.2025
+
+BBC: Horizon. Тёмная сторона Всемирной Паутины / Inside the Dark Web (2014) HDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Должна ли сеть быть свободной? Или ее нужно контролировать? Многие обеспокоены тем, что правительство и разнообразные корпорации могут следить за каждым нашим шагом. Есть люди, которые раз за разом отвечают на это, изобретая все новые системы защиты своей информации. Однозначны ли эти технологии? Ведь в интернете можно купить все - от оружия до личных данных кредитных (   Читать дальше...   )Телекомпания: Великобритания, BBC Science Production LondonЖанр: Документальный, научно-популярный, интернетРежиссер: Майкл РэдфордУчастники: Джулиан Ассанж, Джейкоб Эпплбаум, Дэвид Чаум, Евгений Касперский, Джулия Анджвин, Аманда Дрю, Тим Бернерс-Ли, Стив Крокер, Брюс ШнайерПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4059F9B57C8CFC64903E90133D7FB9CA5AF250B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395638   (29303) от 30.01.2025
 
 BBC: Теории заговора: Тайное правительство и Джордж Сорос / The Conspiracy Files: The Billionaire Global Mastermind (2019) WEB-DLRip [H.264/1080p-LQ]
@@ -6,7 +58,7 @@ BBC: Теории заговора: Тайное правительство и �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +85,7 @@ BBC. Подделка или удача / Fake or Fortune? (2011) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +112,7 @@ BBC. История возникновения лекарств (Спасите�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +138,7 @@ BBC. Охота / The Hunt (2015) BDRemux [H.264/1080p] (сезон 1, сери�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +164,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +216,7 @@ BBC: Чем мы кормим наших детей? / What Are We Feeding Our K
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +244,7 @@ BBC. Чудеса природы: жизнь на краю Земли / Earth's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +271,7 @@ BBC: Плотоядные. Касатка  / Wildlife Specials. Killer Whale (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +297,7 @@ BBС. Внутренняя вселенная: Тайная жизнь клет�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +323,7 @@ BBC. Операция Стоунхендж: Тайна, скрытая под к
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +349,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +375,7 @@ BBC. Суперчувство / Суперчувства животных / Supe
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +401,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +453,7 @@ BBC: Саймон Шама - История Британии / BBC: Simon Schama
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -479,7 +531,7 @@ BBC: Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +557,7 @@ NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +609,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +635,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -609,7 +661,7 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,58 +672,6 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7AD7CA7CB6ED8088D3FC40F645B0F0C8F1A01E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795219   (19463) от 03.05.2025
-
-Пропавшие девушки: Лонг-айлендский убийца / Gone Girls: The Long Island Serial Killer (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) Red Head Sound
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал рассказывает о череде загадочных исчезновений женщин в Лонг-Айленде, которые долгое время оставались нераскрытыми. Исчезнувшие, как правило, были молодыми и социально уязвимыми, и лишь спустя годы после первых сообщений полиция начинает обнаруживать тела, похороненные вдоль пустынной дороги. История обретает огласку, когда одна из жертв успевает (   Читать дальше...   )Производство: США / Archer Gray, Story SyndicateЖанр: документальный, криминалРежиссер: Лиз ГарбусУчастники: Нэйт Терани, Изабелла Викторсон, Аарон Пек, Роберт Колкер, Мелисса Кэнн, Джон Рей, Джералдин Харт, Сара Карнес, Рэй Тирни, Жаклин ГаллуччиПеревод: Многоголосый профессиональный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29167A4F3A4EB79E4D973E61AEC7C2927991F417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242588   (19221) от 06.05.2025
-
-BBC: Я и гравитация. Сила, формирующая нашу жизнь / Gravity and Me. The Force That Shapes Our Lives (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она определяет облик всей нашей вселенной и способна изменять наш вес. Профессор Аль-Халили рассказывает много интересного о гравитации, о новейших исследованиях и интерактивных экспериментах на эту тему.Телекомпания: Великобритания, Furnace for BBCЖанр: Документальный, наукаРежиссер: Эндрю СмиттПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55ED6ED8E918C440213235B2521D45050A129884
 ```
 
 https://mybot314.ru/tekegram_catalog/

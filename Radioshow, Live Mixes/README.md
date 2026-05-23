@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1871296   (1069544) от 
+
+VA - Ori Uplift - Uplifting Only Episode 692 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Madwave & XiJaro & Pitch – Nothing Set In Stone (Fan Favorite (690))
+02. Darren Bax & Alaera – In My Memory
+03. New World – Fields Of La Tourette (Fan Favorite (689))
+04. Roger Shah & Kristina Sky ft. Emma Shaffer – Take Me Back(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E2D503F8F352BF2722AA165DC91DEBB11B746D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871042   (1069299) от 
+
+VA - Armin van Buuren - A State Of Trance 1277 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond ft. Justine Suissa - When I Look Into Your Eyes
+02. Armin van Buuren & Andrew Bayer - Serendipity
+03. Ferry Corsten & Ruben de Ronde Pres. NRG2000 & AVIRA - Rise Up (Progressive Pick)
+04. Atlantis vs. Avatar ft. Miriam Stockley - Fiji (Oliver Smith Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF05AAA2056C9ACE16A2828339283D4ED9B87FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870260   (1069240) от 
+
+Korolova - Tomorrowland Friendship Mix (2026-05-07) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. KREAM & Korolova - Annihilation
+02. Korolova & JOA - My Mind
+03. Korolova & R3HAB - ID
+04. Agents Of Time & Korolova ft. Conor Ross - Made For Love(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B69B9186329CFB2D7DB7E662D26706073A075D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869822   (1068444) от 
 
 VA - Ori Uplift - Uplifting Only Episode 691 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -7,7 +94,7 @@ VA - Ori Uplift - Uplifting Only Episode 691 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Armin van Buuren - A State Of Trance 1276 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Mixadance 001-500 (2004-2014) <Electro House, Progressive House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Ori Uplift - Uplifting Only Episode 690 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Armin van Buuren - A State Of Trance 1275 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Ori Uplift - Uplifting Only Episode 689 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Armin van Buuren - A State Of Trance 1274 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +296,7 @@ DJ Sinatra - Deep n Funky Show #10 Guest Mix by Booka Shade (2015) [mp3|320kbps|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Ori Uplift - Uplifting Only Episode 688 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Armin van Buuren - A State Of Trance 1273 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +383,7 @@ DJ Klyomin - DANCETERAPIA - Nostalge Mix #211 (2023) [MP3|320 Kbps] <Club House,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +412,7 @@ DJ Sinatra - Deep n Funky Show #10 Guest Mix by Booka Shade (2015) [FLAC|Lossles
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Ori Uplift - Uplifting Only Episode 687 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Armin van Buuren - A State Of Trance 1272 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Ori Uplift - Uplifting Only Episode 686 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Armin van Buuren - A State Of Trance 1271 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Ori Uplift - Uplifting Only Episode 685 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Armin van Buuren - A State Of Trance 1270 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Ori Uplift - Uplifting Only Episode 684 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Armin van Buuren - A State Of Trance 1269 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Ori Uplift - Uplifting Only Episode 683 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Armin van Buuren - A State Of Trance 1268 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Ori Uplift - Uplifting Only Episode 682 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Ori Uplift - Uplifting Only Episode 682 (2026) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52EC4C005602FC44C97151996B9F26EBA027561B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857538   (1059655) от 06.03.2026
-
-VA - Armin van Buuren - A State Of Trance 1267 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	BLR & Amber Revival - Untouchable
-02.	David Guetta & Kiko & Olivier Giacomotto – Prayer
-03.	Sander van Doorn & Crooked Bangs - My Body
-04.	Tiësto & Brieanna Grace - Beautiful Places(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0096FD0133606340C0FF52E1FEEC8D29D2B1EB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856277   (1058943) от 27.02.2026
-
-VA - Ori Uplift - Uplifting Only Episode 681 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ReOrder & Breakevin – Struggle for pleasure
-02. Manuel Rocca & NELLY TGM – Love Is In The Air (Pre-release Pick)
-03. SoundLift – Horizonte (Andy Blueman Remix) (Orchestral Uplifting Classic)
-04. Ciaran McAuley & Deirdre McLaughlin – Why Do We Hide (Fan Favorite (675))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCB763452631C8D08497B35FC4C78013A94E17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856268   (1058929) от 27.02.2026
-
-VA - Armin van Buuren - A State Of Trance 1266 (UNFILTERED, NOW&WOW, Netherlands) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Farius – Tense
-02. MRPHLNDR – D-TUNE
-03. OTTAGON – The Underground
-04. ID – ID(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3540171D09CE02EADDD0995A0940159269C59DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1694772   (120913) от 26.01.2024
+
+Миграция / Migration (2023) WEB-DL [H.264/1080p] [UKR, EN / EN Sub] [Line]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Семейство крякв находится в затруднительном положении: пока отец Мак Маллард доволен тем, что его родные всегда будут в безопасности, живя в пруду в Новой Англии, мама Пэм стремится встряхнуть их и показать своим детям — сыну-подростку Дэксу и маленькой дочке Гвен — каким большим и многогранным может быть мир.
+После того, как семейство мигрирующих уток приземляется (   Читать дальше...   )Производство: США, Франция, Канада, Universal Pictures, Illumination EntertainmentЖанр: мультфильм, приключения, комедия, фэнтезиРежиссер: Бенжамин Реннер, Гейло ХомсиАктеры: Кумэйл Нанджиани, Треси Газаль, Элизабет Бэнкс, Каспар Дженнингс, Изабела Мерсед, Дэнни ДеВито, Кэрол Кейн, Аквафина, Кигэн-Майкл Ки, Дэвид МитчеллПеревод: Дублированный (укр. Line)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DBFB7388C066D8761C33C5FB9946AC469317A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694759   (120824) от 26.01.2024
+
+Тролли 3 / Trolls Band Together (2023) BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [UKR, EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Розочка узнает, что её возлюбленный Цветан когда-то был частью её любимого бойз-бэнда «Братаны» вместе со своими четырьмя братьями. Группа распалась, когда Цветан был ещё младенцем, и с тех пор он не видел своих братьев, но когда одного из них похищают неизвестные злодеи, Цветан и Розочка отправляются в путешествие, чтобы наконец-то воссоединить семью с помощью волшебной (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Уолт Дорн, Тим ХейцАктеры: Джастин Тимберлейк, Анна Кендрик, Зои Дешанель, Давид Диггс, Кристофер Минц-Плассе, Эндрю Рэннеллс, Трой Сиван, Кунал Найяр, Кевин Майкл Ричардсон, Кид КадиПеревод: Дублированный (укр. Rakuten)Язык озвучки: украинский, английскийСубтитры: английские (Full, SDH, Commentary)Продолжительность: 01:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95575FA83CD47CC39DFE0123D0D3BD57C5D1A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694963   (120746) от 27.01.2024
+
+Миграция / Migration (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Семейство крякв находится в затруднительном положении: пока отец Мак Маллард доволен тем, что его родные всегда будут в безопасности, живя в пруду в Новой Англии, мама Пэм стремится встряхнуть их и показать своим детям — сыну-подростку Даксу и маленькой дочке Гвен — каким большим и многогранным может быть мир.
+
+После того, как семейство мигрирующих уток приземляется (   Читать дальше...   )Производство: США, Франция, Канада / Universal Pictures, Illumination EntertainmentЖанр: мультфильм, приключения, комедия, фэнтезиРежиссер: Бенжамин Реннер, Гейло ХомсиПеревод: профессиональный многоголосый (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанские, французскиеПродолжительность: 01:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EDD9BA50715AB6797802F4962A0EEC391612A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693973   (120742) от 27.01.2024
 
 Заветное желание / Wish (2023) WEB-DL [H.264/1080p]
@@ -6,7 +87,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -595,86 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D186123EE90B277BA1D458485D9A268F306CCB3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700723   (116919) от 18.02.2024
-
-Время Ибларда / Iblard Jikan / Iblard Time (2007) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это проект о выдуманном мире Наохисы Иноэ. Обрывки забытых воспоминаний... Ностальгия по дням, которые когда-нибудь обязательно вернутся... Иблард создан именно из этого. Это мир, который можно найти во всех его рисунках.Производство: Япония / Studio Ghibli, Tokuma ShotenЖанр: аниме, мультфильм, короткометражка, фэнтезиРежиссер: Наохиса ИноэПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: ЯпонскийСубтитры: отсутствуютПродолжительность: 00:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CBCBF37A2BE8608BD7BF40CB741759658D7C3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700856   (116754) от 19.02.2024
-
-Ариэтти из страны лилипутов / Karigurashi no Arrietty / The Secret World of Arrietty (2010) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116754.jpg" />
-</div>
-
-
-###  Подробнее
-
-История маленьких существ, которые живут рядом с людьми, одалживая вещи по чуть-чуть. Их существование хранится в секрете, но юная Ариэтти нарушает запрет. Её обнаруживает 14-летний Сё, и они становятся лучшими друзьями.Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, фэнтезиРежиссер: Хиромаса ЁнэбаясиПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF7432B511DE2D33B59D07F5B2951E4772FDF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700991   (116720) от 19.02.2024
-
-Со склонов Кокурико / Kokuriko Zaka Kara / From Up on Poppy Hill (2011) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116720.jpg" />
-</div>
-
-
-###  Подробнее
-
-1963 год, близ Иокогамы. Отец Уми Мацудзаки — командир корабля, погиб 10 лет назад во время Корейской войны, когда девочка была совсем маленькой. Пока мама в отъезде, девочке приходится вести хозяйство, в частности, не забывать каждое утро поднимать флажки — такое правило установил отец, чтобы видеть с моря, что его ждут дома.
-
-В городке имеется школьный клуб, с (   Читать дальше...   )Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, драма, мелодрамаРежиссер: Горо МиядзакиПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: русские (full, forced)Продолжительность: 01:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA02CB29AAA3D63A8965BBB098E94A16862DBDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

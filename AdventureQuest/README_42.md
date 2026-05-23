@@ -1,3 +1,107 @@
+###  Публикация: 962320   (456638) от 06.10.2016
+
+Dreamfall Chapters (2014-2016) [Ru/Multi] (5.3.1) License GOG [Special Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Dreamfall Chapters — это сюжетно-ориентированная эпизодическая адвенчура о выборе и последствиях, сновидениях и реальности, магии и науке, хаосе и порядке, а также сломленных героях, действия которых могут изменить ход истории во всех мирах. Действие игры разворачивается в двух параллельных мирах. Первый выдержан в стиле мрачного футуристического киберпанка, другой (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Thread Games и Blink StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893A172149A07CC7EE88A6A07616A1270365A686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408446   (455010) от 12.09.2020
+
+The Unfinished Swan (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+От создателей игры What Remains of Edith Finch. Исследуйте таинственный, совершенно белый пейзаж игры The Unfinished Swan: разбрызгивая краску, постепенно открывайте мир вокруг. Десятилетний сирота Монро идет за лебедем, который вышел из незаконченной картины и скрылся в нереальном, сказочном королевстве. В каждой главе ждут сюрпризы, новые способы постигать этот (   Читать дальше...   )Тип издания: RepackРазработчик: Giant SparrowЖанр: Adventure, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F522E7E73B60C762431E97C5DE7E47AB5FB099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247344   (454305) от 14.09.2018
+
+Disneyland Adventures (2018) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Магия Disneyland становится ближе, чем когда-либо! Отправляйтесь в страну, где сбываются мечты и оживают герои любимых историй… не выходя из дома! Прогуляйтесь по огромному парку развлечений Disneyland®: от Main Street U.S.A. до Critter Country; помогите Питеру Пэну одолеть капитана Крюка; поздоровайтесь с Микки Маусом и обнимите Белоснежку.Тип издания: LicenseРазработчик: Frontier Developments, Asobo StudioЖанр: , Adventure (Quest), Action, 3D, ArcadeЯзык озвучки: Немецкий, Английский и другиеЯзык субтитров: Английски, Немецкий и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89114B5EE00411D74103D133FA2F284B3DE07417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060815   (452571) от 08.10.2016
+
+Deponia Doomsday (2016) [Ru/Multi] (1.1.0246) License PROPHET
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В одну роковую ночь Руфус проснулся от жуткого кошмара: в нем он принес себя в жертву во имя спасения Депонии. Но какой ценой? На планету обрушился летающий город Элизиум. Будучи последним выжившим депонийцем, он сражался с воинственными дикарями, но вскоре понял, что выход у него только один: Он должен взорвать Депонию!Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, QuestЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB65F40007F3CFE5A4EB492662F3373E27DDCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060859   (452364) от 08.10.2016
 
 Agatha Christie: The ABC Murders (2016) [Ru/Multi] (1.02) License PROPHET
@@ -6,7 +110,7 @@ Agatha Christie: The ABC Murders (2016) [Ru/Multi] (1.02) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Old House (2020) [Ru/En] (1.0) Steam-Rip CHRONOS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Brothers: A Tale of Two Sons (2013) [Ru/Multi] (1.0/u1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ The Beginner's Guide (2015) [Ru/En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Battle Chef Brigade (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ The Whispered World  / Ускользающий мир [Ru] (L) 2010
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Penumbra: Black Plague / Пенумбра 2: Дневники мертвецов
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +349,7 @@ Lost Horizon 2 (2015) [En] (1.0.3) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +375,7 @@ Solstice (2016) [En] (1.4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd1/dlc) License HOODLUM [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +427,7 @@ Transference (2018) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +453,7 @@ LOST EMBER (2019) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +479,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04a) Repack xatab (обновляема�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +505,7 @@ My Brother Rabbit (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Late Shift (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Stay Close (2016) [En] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +583,7 @@ Beatbuddy: Tale of the Guardians (2013) [Ru/Multi] (1.2.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +609,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.5898046) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +635,7 @@ A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) License GOG [Digital Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +661,7 @@ Still Life 2 (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,111 +672,6 @@ Still Life 2 (2009) [Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F28FBE5BBE1D1476A74704021F01A17528EE3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002402   (429676) от 18.10.2016
-
-Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episodes 1-8]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений.
-Сюжет Minecraft: Story Mode, как сейчас принято, поделен на пять эпизодов, составляющих первый сезон. Протагонистом (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3953B86B8F96475A808737025DF146C79E9904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324125   (429221) от 07.09.2019
-
-Okaeri (2019) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Okaeri — японская игра ужасов о девочке из средней школы и ее матери, которая недавно переехала в новый дом. Сейчас 6:00 вечера, и я возвращаюсь домой, ожидая приветствия от твоей мамы, вместо этого она обнаруживает неожиданные вещи, происходящие на ее глазах.Тип издания: LicenseРазработчик: Yasuka TairaЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C9CE9D3866F93BEA49C93D4C1ED135E7F7B365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145463   (428732) от 12.10.2009
-
-Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. Механики [Dilogy / Дилогия]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осень 2008 года. Агент ФБР Виктория Макферсон отправляется в штат Мэн для расследования убийства Одри Данниген. Фотографии с места преступления не оставляют сомнений - маньяк, известный как «Палач Восточного побережья», вновь начал собирать кровавую жатву. Убийца не поленился тщательно вымыть труп, при вскрытии не было обнаружено никаких улик. Преступник снова не (   Читать дальше...   )Тип издания: REPACKРазработчик: GameCo StudiosЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946285   (428627) от 12.10.2015
-
-Toren (2015) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428627.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе мира игры лежит древний бразильский фольклор, переиначенный в одну изящную легенду о башне, построенной волшебником для того, чтобы достичь луны. Солнцу, однако, высокомерие колдуна не понравилось: возмущенное светило отказалось покидать небесные просторы и тем самым обрекло человечество на гибель. Единственной надеждой на спасение стало Лунное Дитя – щекастая (   Читать дальше...   )Тип издания: ЛицензияРазработчик: SwordtalesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: -/-Язык субтитров: Русский, Английский, Французский, Немецкий, Бразильский португальский, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Бразильский португальский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA0DC0D6558B20DD302C6A96E71C2A52EEC55F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

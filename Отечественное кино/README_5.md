@@ -1,3 +1,108 @@
+###  Публикация: 1436885   (1042732) от 02.01.2021
+
+Развода не будет (2018) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Канун Нового года. Лидия видит дурной сон, бросает в деревне своих коров и мчится в Москву проведать своих дочерей и внуков. Вместе с чемоданами, подарками и гостинцами она приезжает к своей старшей замужней Катерине. Но выясняет, что дочка многого ей не рассказывала. Катерина изменилась и начала новую жизнь. Похудела, занимается фитнесом, ведёт правильный образ (   Читать дальше...   )Производство: Россия / Производство компании "Маркес"Жанр: МелодрамаРежиссер: Сергей БыстрицкийАктеры: Ирина Бякова, Леонид Громов, Линда Лапиньш, Андрей Кузичев, Анна АндрусенкоСубтитры: ОтсутствуютПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A427DFB284A4BEA836883C5E8B2FAC0CBB0F20BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436869   (1042725) от 02.01.2021
+
+Тобол (2019) BDRip [H.265/1080p] [10-bit] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Молодой офицер новой гвардии Петра I Иван Демарин по заданию царя отправляется в глубину Сибири — в пограничный Тобольск. Здесь Иван встречает свою первую любовь и вместе со своим полком оказывается втянутым в заговор местных князей, охотящихся за золотом Яркенда. Его крепость окружена полчищами диких джунгар, а помощи ждать неоткуда.Производство: Россия / СургутИнформТВ, Продюсерский центр «Прайм», Solivs, Yellow, Black & WhiteЖанр: история, драмаРежиссер: Игорь ЗайцевАктеры: Илья Маланин, Дмитрий Назаров, Дмитрий Дюжев, Евгений Дятлов, Агата Муцениеце, Александр Лазарев мл., Андрей Бурковский, Юлия Макарова, Павел Табаков, Еркебулан ДаировПеревод: Не требуется (Русский) - Лицензия (BD GER)Субтитры: отсутствуютПродолжительность: 01:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEB7521AECCC4BF911188913FBF6A6260CA3D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436980   (1042693) от 02.01.2021
+
+Мажор. Фильм (2021) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мажор виртуозно сбегает из тюрьмы и начинает новую жизнь. Новую сладкую жизнь! Соколовский вливается в светскую тусовку, где все сидят на новом синтетическом наркотике, и его снова окружают тачки, виллы и топ-модели. Друзья, враги и ФСБ идут по следу Мажора, пытаясь понять, какую игру он затеял и на чьей он стороне. Игорь же пытается понять, кто он сам — предатель, (   Читать дальше...   )Производство: Россия / Продюсерская компания «Среда»Жанр: Боевик, КомедияРежиссер: Максим Полинский, Николай БулыгинАктеры: Павел Прилучный, Евгений Стычкин, Агния Дитковските, Дарина Эрвин, Даниил Воробьев, Владимир Селезнев, Дмитрий Шевченко, Александр Обласов, Игорь Жижикин, Павел Чинарёв и др.Перевод: Не требуется (Русский)Субтитры: Русские (форс. вшитые)Продолжительность: 01:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD7303CF0DD2103B7722FCC013C9EFE7F8FC3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437172   (1042480) от 03.01.2021
+
+Потусторонний звонок (2020) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа Дмитрия Стаина "Не бери трубку!"
+Миша возвращается с работы и на его телефон приходят странные звонки. Парень не отвечает, но догадывается, что это связано со смертью его мамы, и что за всем этим стоит демон, который сделает все, чтобы Миша ответил на звонок.Производство: РоссияЖанр: Короткометражный, триллер, драмаРежиссер: Евгений ГудковАктеры: Константин Захаров, Александр Афиногенов, Светлана Волкова, Генадий Смагин, Денис ВолковСубтитры: английские (hardsub)Продолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBF3AA53C684AED63957D5524E3669D731059FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610346   (1042354) от 07.02.2023
 
 Мама, я приеду (2022) WEBRip [H.264/1080p]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Turbo (2016) WEBRip [H.264/1080p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A09C41788AE5CBBB2B5AB36AB01A9E8FD78F11C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438859   (1040457) от 10.01.2021
-
-Вратарь Галактики (2020) BDRip [H.265] [10-bit] [FRA Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040457.jpg" />
-</div>
-
-
-###  Подробнее
-
-2071 год. Галактические войны разрушили Луну и изменили климат на Земле. Москва – в тропических лесах, а Нью-Йорк покрылся льдом. Над Москвой возвышается огромный инопланетный корабль-стадион, на котором проходят зрелищные межгалактические соревнования по космоболу — игре, объединившей в себе спорт и гладиаторские бои. За матчами следит вся галактика. Играть в космобол (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», Бонанза Студио, Кинокомпания CTBЖанр: Приключения, фантастикаРежиссер: Джаник ФайзиевАктеры: Евгений Романцов, Мария Лисовая, Виктория Агалакова, Иван Иванович, Елизавета Тайченачева, Евгений Миронов, Юлия Винс, Христина Блохина, Валерия Букина, Станислав РогачевПеревод: Не требуется (русский) (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F9B487E26B31D20BB779DA5B3DCB58808C1784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437880   (1040255) от 11.01.2021
-
-Чего хочет Слава? (2020) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ироничная комедия от создателей сериалов «Мир! Дружба! Жвачка!», «Физрук» и «Сладкая жизнь». Слава —девушка, привыкшая жить эмоциями, ее поступки импульсивны и непредсказуемы. В канун Нового года Слава загадывает желание, чтобы ее муж Валя стал крутым стартапером в Силиконовой долине, а она «всего-навсего» – супервумен, которая спасет Мир. Но время идет, а чудо не (   Читать дальше...   )Производство: Россия / Good Story mediaЖанр: Драма, комедия, мелодрамаРежиссер: Оксана БычковаАктеры: Александр Алябьев, Александр Паль, Александра Ревенко, Артем Сучков, Ия Сухиташвили, Мадлен Джабраилова, Надежда Лумпова, Руслан БратовСубтитры: ОтсутствуютПродолжительность: 01:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71AE1F83DE6D991CCC0AF0E61A1A7F3EE1F2EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612492   (1040237) от 15.02.2023
-
-Призрачно-белый / Achrome (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марис — деревенский дурачок, воспитанный старшим братом. Следуя за братом, он уходит из мирной деревни и устраивается на военную службу. Там он встречает молодую женщину Лию, осужденную на смерть. Её глазами Марис видит себя. Для Лии и для всех, кто в будущем встретит его имя в архиве, Марис останется убийцей.Производство: Россия, Израиль, Германия / Antipode Sales International, Ark Pictures, Legrain ProductionsЖанр: драма, военный, историяРежиссер: Мария ИгнатенкоАктеры: Георгий Бергал, Клавдия Коршунова, Андрей Кривенок, Надежда Зеленова и др.Перевод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E363E8D2379EF0DCB93DDBA3070F8FC8871FCFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439033   (1040210) от 11.01.2021
-
-Презумпция виновности (2020) WEB-DL [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040210.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о группе молодых людей, которые становятся участниками эксперимента по созданию беспристрастной судебной системы под руководством искусственного интеллекта. Постепенно судебное слушание превращается в неподдающийся контролю процесс над самими участниками, которым предстоит узнать к чему приводит «сон разума» и потакание собственным эгоистическим инстинктам, (   Читать дальше...   )Производство: Россия / «КОСМОСФИЛЬМ», Fastmovie, Air FilmЖанр: ДрамаРежиссер: Олег АсадулинАктеры: Донатас Грудович, Анастасия Клюева, Григорий Зельцер, Данил Стеклов, Мария Смольникова, Хильда Кармен, Сергей ЧудаковПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A043A8BADDB4F5AAE8AE05DF95B1D36B80A43A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1741789   (47432) от 08.08.2024
+
+Огни рампы / Limelight (1952) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Стареющий клоун Калверо спасает от самоубийства соседку, девушку-танцовщицу, вынужденную из-за болезни покинуть балетную труппу. Так начинается эта дружба-любовь, которая, по мнению Калверо, не может иметь продолжения - слишком велика разница в возрасте...Производство: США / Charles Chaplin ProductionsЖанр: драма, мелодрама, музыкаРежиссер: Чарли ЧаплинАктеры: Чарли Чаплин, Клер Блум, Найджел Брюс, Бастер Китон, Сидни Чаплин, Норман Ллойд, Андре Эглевский, Мелисса Хейден, Марджори Беннетт, Вилер ДрайденПеревод: дублированный, профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A8D458205460E66CF934BD9C7DDE14EFD25D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740517   (46896) от 13.08.2024
+
+Путешествие в Италию / Viaggio in Italia (1954) BDRip [H.264] [MVO] [Criterion collection]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм в общих чертах основан на романе "Дуэт" Колетт (1934)... Богатая английская пара приезжает в Италию, чтобы получить наследство - виллу на неаполитанском заливе, и проводит несколько дней в этом прекрасном месте. Однако отношения супругов находятся на грани разрыва...Производство: Франция, Италия / Francinex, Italia Film, Junior Film, Les Films Ariane, Socit Gnrale de CinmatographieЖанр: драма, мелодрамаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Джордж Сандерс, Мария Мобан, Пауль Мюллер, Наталия Рэй, Джеки Фрост, Адриана ДаниелиПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5C8F22E8787892257D40FA3354E7923EB90877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744041   (46329) от 19.08.2024
+
+Борсалино / Borsalino (1970) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация новеллы Эжена Саккомано «Бандиты в Марселе». Действие фильма происходит в Марселе в 30-х годах XX века. Два хулигана, Франсуа Капелла и Рок Сиффреди, объединяются, чтобы контролировать нелегальный бизнес и всю организованную преступность города.Производство: Франция, Италия / Adel Productions, Marianne Productions S.A., Mars FilmЖанр: драма, криминалРежиссер: Жак ДереАктеры: Жан-Поль Бельмондо, Ален Делон, Катрин Рувель, Мишель Буке, Франсуаза Кристоф, Коринн Маршан, Николь Кальфан, Жюльен Гиомар, Марио Давид, Даниэль ИвернельПеревод: Многоголосый профессиональный (Первый канал), авторский (Леонид Володарский)Язык озвучки: русский, французскийСубтитры: русские, английские, французские (forced, SDH)Продолжительность: 02:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FC2A6959A51146F58EFBD1B62173B80D4BC218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744332   (46093) от 21.08.2024
+
+Вызов Робину Гуду / A Challenge for Robin Hood (1967) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Кузен Робина, молодого нормандского дворянина, ложно обвиняет его в убийстве другого кузена. Мотивы обвинителя, вступившего в коррумпированный союз с Ноттингемским шерифом, корыстны – они хотят забрать у Робина фамильные земли, которые он унаследовал. Преследуемый людьми шерифа, Робин вынужден бежать в Шервудский лес. Там он знакомится с Малышом Джоном и его бандой, (   Читать дальше...   )Производство: Великобритания / Hammer Film Productions, Seven Arts ProductionsЖанр: приключенияРежиссер: Си-Эм Пеннингтон-РичардсАктеры: Бэрри Ингэм, Джеймс Хэйтер, Леон Грин, Питер Блайт, Гэй Хэмилтон, Элфи Бэсс, Дженни Тилль, Джон Арнатт, Эрик Флинн, Джон ГуголкаПеревод: Многоголосый профессиональный (Лексикон)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33A1A256858F2C67A43CC3C6A9D7F89B916EB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744785   (45282) от 29.08.2024
 
 Наши мужья / I nostri mariti (1966) WEB-DLRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8054CA96A017F96C99DE04EEF9B27C699CF2E2E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757042   (39305) от 25.10.2024
-
-Ведьмы / Haxan (1922) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39305.jpg" />
-</div>
-
-
-###  Подробнее
-
-О фильме: Издревле люди пытались объяснить непонятные им явления вмешательством злых и добрых высших сил. Так появилась вера людей в бога и дьявола. В Средние века массовое помешательство и охота на ведьм достигли апогея — быть старой и страшной или молодой и красивой считалось достаточным основанием для обвинения в колдовстве и сговоре с Дьяволом...Производство: Дания, Швеция / Aljosha Production Company, Svensk Filmindustri (SF)Жанр: ужасы, историяРежиссер: Беньямин КристенсенАктеры: Беньямин Кристенсен, Астрид Хольм, Элисабет Кристенсен, Карен Винтер, Марен Педерсен, Кате Фабиан, Оскар Стрибольт, Клара Понтоппидан, Алисе О'Фредерикс, Элит Пио, Оэ Хертель, Иб Шёнберг, Фредерик Кристенсен, Хенри Симан, Кнуд РассовПеревод: авторскийЯзык озвучки: русский, шведскийСубтитры: русские (liosaa), английские, шведские интертитрыПродолжительность: 01:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2B7CADCE21B578BB59106AD6AF91B1CA591CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757081   (39280) от 25.10.2024
-
-Жилец / The Lodger: A Story of the London Fog (1927) BDRip [H.264] [RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе «Жильё» 1913 года Мари Беллок Лаундс и пьесе «Кто он?», написанной в соавторстве с Беллок Лаундс... В Лондоне объявился новый серийный убийца, нападающий по ночам на молодых блондинок и оставляющий на месте преступления клочки бумаги с подписью «Мститель». В то время как весь город взбудоражен этими событиями, в одном из домов появляется мужчина (   Читать дальше...   )Производство: Великобритания / Carlyle Blackwell Productions, Gainsborough PicturesЖанр: драма, криминал, детектив, триллерРежиссер: Альфред ХичкокАктеры: Мари Олт, Артур Чесни, Джун, Малкольм Кин, Айвор Новелло, Реджинальд Гардинер, Ив Грэй, Альфред ХичкокПеревод: субтитрамиЯзык озвучки: нетСубтитры: русскиеПродолжительность: 01:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D5002F5E8756EA8E4BD7893EE966E42BEF1E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755514   (39232) от 26.10.2024
-
-Враг мой / Enemy mine (1985) HDRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звёздная война. Человечество схлестнулось с расой драков («драконов» в другом переводе). Враг беспощаден и отталкивающе уродлив: драки похожи на ящериц, с которых заживо содрали кожу. К тому же они однополые гермафродиты (вот срамота!). В одном бою офицер земного космофлота Уиллис Дэвидж сбивает истребитель драка, но и сам теряет корабль и весь экипаж. Два звездолёта (   Читать дальше...   )Производство: США, Германия (ФРГ), Великобритания / Twentieth Century Fox, Kings Road Entertainment, SLM Production GroupЖанр: фантастика, боевик, драма, приключенияРежиссер: Вольфганг ПетерсенАктеры: Деннис Куэйд, Луис Госсет мл., Брайон Джеймс, Ричард Маркус, Кэролин МакКормик, Бампер Робинсон, Джим Мапп, Лэнс Кервин, Скотт Крафт, Лу Майклс и др.Перевод: ДублированныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060991D79A2782A0390159CFB0BE125765822C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757458   (39099) от 27.10.2024
-
-Жить своей жизнью / Vivre sa vie: Film en douze tableaux (1962) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм из двенадцати эпизодов (сцен) повествует о молодой женщине Нане. Она хочет быть независимой, свободной, жить своей жизнью, однако сталкивается с банальными материальными трудностями. Свобода оказывается лишь иллюзией. Чтобы выжить, ей приходится продавать себя. Нана становится проституткой…Производство: Франция / Les Films de la Pléiade, Pathé Consortium CinémaЖанр: драмаРежиссер: Жан-Люк ГодарАктеры: Анна Карина, Сади Реббо, Андре С. Лабарт, Гилейн Шлюмберже, Жерар Хоффман, Моник Мессин, Поль Павель, Димитри Динефф, Петер Кассовиц, Эрик Шлюмберже, Брайс Парен, Анри Атталь, Жиль Кеан, Одиль Жофруа, Альфред АдамПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050B2915F0D87DB6C9B2471F179EE9CEB565CD79
 ```
 
 https://mybot314.ru/tekegram_catalog/

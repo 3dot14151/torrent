@@ -1,3 +1,109 @@
+###  Публикация: 1433342   (161049) от 20.12.2020
+
+Air Master | Воздушный мастер [2003, TV, 27] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Маки Айкава – застенчивая старшеклассница огромного роста. Маки Айкава – бывшая «королева гимнастики» японских островов. Маки Айкава – знаменитый уличный боец по прозвищу «Воздушный Мастер». Маки Айкава – кумир, соперник, друг, идол и просто любимая женщина.
+
+Итак, жизнь Маки Айкавы, «Воздушного Мастера»: ее победы (реже – поражения), ее друзья и враги, странствия (   Читать дальше...   )Производство: Студия Toei Animation / 東映アニメーションЖанр: боевые искусства, комедия, приключенияРежиссер: Нисио ДайсукэПеревод: Nolf, RoRay, MokonaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 27 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6242D97E1EA7585BC2E1FA6737E96AE8C329557F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581500   (161015) от 21.12.2022
+
+Mob Psycho 100 III | Моб Психо 100 [ТВ-3] [2022, TV, 12 эп.] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Кагеяма Шигео, также известный как «Моб», — мальчик, у которого есть проблемы с самовыражением, но который оказался могущественным эспером. Моб полон решимости жить нормальной жизнью и подавляет свое экстрасенсорное восприятие, но когда его эмоции достигают уровня 100%, с ним происходит что-то ужасное! Поскольку он окружен лже-эсперами, злыми духами и таинственными (   Читать дальше...   )Производство: Студия Bones / ボンズЖанр: приключения, комедияРежиссер: Татикава ЮдзуруЯзык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA234F10E3AE33FA8F94CBEF464373ECF918ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347208   (160950) от 21.12.2022
+
+Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136 из 136] HDTVRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение всеми любимой истории из детства, про мальчика Эша Кетчума (Сатоши) и его партнера Пикачу. В этом сезоне к ним присоединяться Го со своим покемоном Хибани. Они вдвоем станут младшими исследователями в лаборатории профессора Сакураги. В этом сезоне будут представлены все регионы, которые появились в предыдущих сезонах аниме про покемонов, от  Канто  до  нового (   Читать дальше...   )Производство: Oriental Light and MagicЖанр: приключенияРежиссер: Томиясу ДайкиПеревод: Русские субтитры отЯзык озвучки: ЯпонскийСубтитры: ASS, Русские, Отключаемые (встроенные)Формат: MKVПродолжительность: 136 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D16A7FDBAB910B6E3FDC5DF3B70B8431AC3F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580556   (159525) от 24.12.2022
+
+Koukyuu no Karasu | Raven of the Inner Palace | Ворона в гареме [2022, TV, 13 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Во внутреннем дворце живёт одна из супруг императора, которую тот никогда не навещал. Она известна как Супруга-Ворон. Одни люди, видевшее её, утверждают, что она старая, а другие — что она молодая. Ходят слухи, что она владеет магией и может выполнить любую просьбу от наведения смертельного проклятия до поиска потерянных вещей. Новый император отправляется навестить (   Читать дальше...   )Производство: Студия BN Pictures / バンダイナムコピクチャーズЖанр: фэнтезиРежиссер: Мияваки ТидзуруПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F28B6E7810E323B5DC4CD91B44CB874CDA4267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582068   (159524) от 24.12.2022
 
 Shinmai Renkinjutsushi no Tenpo Keiei | Магазинчик начинающего алхимика [2022, TV, 12 эп. + 12 SP] WEB-DL 720p raw
@@ -6,7 +112,7 @@ Shinmai Renkinjutsushi no Tenpo Keiei | Магазинчик начинающе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Берсерк: Золотой в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Hoshi no Samidare | Lucifer and the Biscuit Hammer | Люцифер и биск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +216,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +242,7 @@ Bocchi the Rock! / Одинокий рокер! [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +268,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +294,7 @@ Ou-sama Game The Animation / King's Game The Animation / Королевская 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +320,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] HDTV 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +346,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуяшики [2017, TV, 11 эп.] WEB-DL
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +372,7 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +398,7 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +424,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Izetta, Die Letzte Hexe / Изе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +450,7 @@ Yakunara Mug Cup mo Niban Kama / Let's Make a Mug Too 2 / Давайте тож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +479,7 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +505,7 @@ Dynamic Chord | Динамический аккорд [2017, TV, 12] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +531,7 @@ Dies Irae | Судный день [2017, TV, 11 + SP] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +557,7 @@ Uchi no Shishou wa Shippo ga Nai | My Master Has No Tail | У моего мас�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +583,7 @@ Chuubyou Gekihatsu Boy | Outburst Dreamer Boys | Сумасшедшие ребя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +609,7 @@ Juuni Taisen | 12 войн [2017, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +635,7 @@ Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods | Избранный �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +661,7 @@ Haikyuu!! To the Top (2020) | Волейбол [ТВ-4, часть II] [2020, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,111 +672,6 @@ Haikyuu!! To the Top (2020) | Волейбол [ТВ-4, часть II] [2020, TV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FBD19BFDB8D9F39EF9D7B440C355CAFA9B51FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243111   (154883) от 20.12.2018
-
-Ani ni Tsukeru Kusuri wa Nai! 2 | В случае с братом медицина бессильна! [ТВ-2] [2018, TV, 24] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о девушке Миао, которая бьет своего тупого старшего брата Фэн.
-Продолжение истории.Производство: FanworksЖанр: комедия, повседневностьРежиссер: RarekoПеревод: Наталия ИшоваЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF128F68057A4581EA4D7B3D3EDE58B4CBAA3456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508345   (154841) от 19.12.2021
-
-Sankaku Mado no Sotogawa wa Yoru | The Night Beyond the Tricornered Window | Ночь по ту сторону треугольного окна [2021, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромный работник книжного магазина по имени Микадо Косукэ, к собственному несчастью, может видеть различных призраков и духов. Невероятно талантливый, но неуклюжий в общении оммёдзи Хиякаве Рихито, не боится ничего ни в мире живых, ни в мире мертвых. Однажды они встретились, и так возник странный рабочий дуэт, расследующий жуткие инциденты, чьи методы... не всегда (   Читать дальше...   )Производство: Студия Zero-G / ゼロジーЖанр: триллерРежиссер: Иванага ДайдзиПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE57EA6DD242ED370D5F3BEDF2DF20F813113D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499695   (154727) от 19.12.2021
-
-Isekai Shokudou 2 | Restaurant to Another World 2 | Кафе из другого мира [ТВ-2] [2021, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неподалёку от офисного квартала, в небольшом подвальчике располагается ресторан заморской кухни «У кота». Шесть дней в неделю он мало чем отличается от ему подобных, но каждую субботу она закрывается для привычных посетителей и открывает свои двери для гостей из разных уголков другого мира. Это добрая история посвящена как самим удивительным гостям ресторана и их (   Читать дальше...   )Производство: Студия OLM / オー・エル・エムЖанр: комедия, повседневность, фэнтезиРежиссер: Дзимбо МасатоПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F992BC5F37506DDAB8215CD7F257679F068D017B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172689   (154677) от 25.12.2017
-
-Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154677.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далёком будущем на Земле родились 28 представителей расы «самоцветов». Каждый из них имеет собственное предназначение, и за каждым из них охотятся живущие на шести лунах «лунные люди», цель которых — сделать из «самоцветов» украшения. Фос (или Фосфофиллит) — одна из «самоцветов», не имеющая собственного предназначения и считающаяся одной из самых слабых и бесполезных (   Читать дальше...   )Производство: Orange / オレンジЖанр: приключенияРежиссер: Кёгоку ТакахикоПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5C320214060EBC8E17BB10397122ADD4D3DABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

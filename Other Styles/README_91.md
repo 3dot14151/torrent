@@ -1,3 +1,206 @@
+###  Публикация: 1043147   (572709) от 16.08.2016
+
+VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Bonnie "Prince" Billy - The Dragon Song (02:29)
+02. Lindsey Stirling - Something Wild (feat. Andrew McMahon In the Wilderness) (03:44)
+03. The Lumineers - Nobody Knows (03:09)
+04. St. Vincent - Something on Your Mind (03:01)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD17C13FBFDF1B71C7FAFCADF9A2849A00A83499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043146   (572683) от 16.08.2016
+
+VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Bonnie "Prince" Billy - The Dragon Song (02:29)
+02. Lindsey Stirling - Something Wild (feat. Andrew McMahon In the Wilderness) (03:44)
+03. The Lumineers - Nobody Knows (03:09)
+04. St. Vincent - Something on Your Mind (03:01)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC25BB8D15609D2BE62169B7038C40CD18A1B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234227   (572491) от 04.07.2018
+
+Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellar
+02. Taiyo
+03. Brassy Sunrise
+04. Ghostly Disco(   Читать дальше...   )Жанр: Ambient, Downtempo,New AgeПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A46CEB1A0BFDF0392C0B7E0CD2DA815D41B6B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043144   (572371) от 16.08.2016
+
+Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечность (Music From The Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Logo And Prosper (01:45)
+02. Thank Your Lucky Star (02:13)
+03. Night On The Yorktown (05:34)
+04. The Dance Of The Nebula (02:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988DB1F52AD8FE0EC354C1E2E9B7A5EEE8BFE53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554789   (572324) от 02.06.2022
+
+Vartra - Luna Noua (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Flori (00:02:47)
+02 - Primovara (00:04:17)
+03 - Luna Noua (00:05:14)
+04 - Mrza (00:02:14)(   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7CD6B0FEF44F6E8D49723DED58157380439533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043422   (572309) от 16.08.2016
+
+VA - Mirror's Edge (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (05:34)
+02. Edge & Flight (06:56)
+03. Jacknife (06:25)
+04. Heat (07:01)(   Читать дальше...   )Жанр: Score, Soundtrack, Psybient, IDM, Downtempo, Ambient, Breakbeat, Electro •Продолжительность: 07:35:16 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD0A59C54F4EB4A537772B5F4414991658DA40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554988   (572250) от 02.06.2022
+
+Olga Stankevich - Alone With the City (2014) [FLAC 2.0|48/24|WEB-DL|tracks] <Instrumental Pop, Piano>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Moscow Midnight (3:26)
+02. Beyond the Time (4:33)
+03. Smile (3:09)
+04. Recalcitrance (5:17)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04380B740E6D18E8CB38BA41C8E69E5A5663669F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043142   (572203) от 16.08.2016
 
 Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечность (Music From The Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
@@ -6,7 +209,7 @@ Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечнос�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music f
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Piano Dreamers - Indie Pop Piano (2015) [MP3|320 кб/с]<New Age, Piano, Classi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Ennio Morricone - Once Upon A Time... (2 CD) (2007) [MP3|320 кб/с]<Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +331,7 @@ Shelby Lynne - Just A Little Lovin' (2008) [FLAC|Lossless|image + .cue] <Folk, C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +360,7 @@ Vyanah - Zen Relaxation (2019) [MP3|320 Kbps] <New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +389,7 @@ TagTraumer - Zuviel ist nicht genug (2001) [MP3|320 Kbps] <Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +419,7 @@ Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +448,7 @@ Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +476,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music f
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +505,7 @@ Ramin Djawadi, VA - Game of Thrones / Игра престолов: Season 1-8 (C
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +534,7 @@ Jean Michel Jarre - Cities In Concert Houston Lyon (2014) Live [MP3|320 кб/с]
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +563,7 @@ Medusa - Exploration (2000) [MP3|320 кб/с]<New age,Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -395,7 +598,7 @@ Erotic Moods - Эротические настроения (2004) [MP3|256 кб/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +672,7 @@ Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|ima
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +701,7 @@ Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +730,7 @@ Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +765,7 @@ James Newton Howard - Snow White & The Huntsman (2012) [FLAC|tracks+.cue]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,211 +779,6 @@ James Newton Howard - Snow White & The Huntsman (2012) [FLAC|tracks+.cue]<OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D098ED511B015CD638CF4B885C106951F3A98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921862   (568124) от 29.07.2015
-
-Joe Hisaishi - Sonatine (1999) [FLAC|tracks+.cue]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonatine I - Act Of Violence (03:40)
-02. Light And Darkness (06:49)
-03. Play On The Sands (04:43)
-04. Rain After That (00:26)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E828710FD44174ECB809AD7E0A3B6593D6444680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921930   (568053) от 29.07.2015
-
-David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-2014) Season 1-3 [MP3|260-320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How It Was Done (02:45)
-02. God Rest His Soul (01:44)
-03. Floating Dust (03:29)
-04. #SherlockLives (02:50)(   Читать дальше...   )Жанр: OSTПродолжительность: 03:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E737FD4F189B973B054C00E83C28BBA897705897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921967   (568026) от 29.07.2015
-
-Luca Stricagnoli - Luca Stricagnoli (2015) [MP3|320 кб/с] <Instrumental, Acoustic, Guitar, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с гитарной сенсацией из Италии - Лука Стриканьоли (Luca Stricagnoli).
-Лука является одним из самых захватывающих новых музыкантов виртуозно владеющий акустической гитарой. Он обходит нормальные пределы классической аккустички и адаптирует её к любому музыкальному жанру: от поп-музыки до рока, от саундтреков к оригиналу.
-
-Он довольно молод, всего каких (   Читать дальше...   )01. Thunderstruck (4:11)
-02. Braveheart (3:15)
-03. Conquest of Paradise (2:18)
-04. Paradise (3:38)(   Читать дальше...   )Жанр: Instrumental, Acoustic, Guitar, New AgeПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E32D1DB88B4DA739137E78829EBDEA36999DA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529267   (567596) от 31.07.2012
-
-Wil Bolton - Under A Name That Hides Her (2012) [MP3|320 кб/с]<Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567596.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:43) 1. Clearing
-..(6:21) 2. Blackpoint
-(5:42) 3. Skyview
-(5:53) 4. Barbed
-(6:29) 5. Dissolve
-(6:23) 6. PassingЖанр: Meditative, AmbientПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AF65E4A428142D768A2F17E29CFE161A0DBD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120070   (567127) от 22.07.2017
-
-Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [MP3|320 Kbps] <Disco, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152189   (566849) от 22.07.2017
-
-Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - The Mole (05:36)
-02. Hans Zimmer - We Need Our Army Back (06:28)
-03. Hans Zimmer - Shivering Soldier (02:52)
-04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B6391B532DC859FF29DD1DB3E9A4A741E397DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152190   (566821) от 22.07.2017
-
-Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - The Mole (05:36)
-02. Hans Zimmer - We Need Our Army Back (06:28)
-03. Hans Zimmer - Shivering Soldier (02:52)
-04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B57E9D06CFA17781CAACC15FB888616775B333
 ```
 
 https://mybot314.ru/tekegram_catalog/

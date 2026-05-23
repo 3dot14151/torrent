@@ -1,3 +1,90 @@
+###  Публикация: 1064868   (423913) от 21.10.2016
+
+Armin van Buuren - Club Embrace (2016) [MP3|320 Kbps] <Progressive House, Deep House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - Club Embrace (Intro) (3:44)
+02. Armin Van Buuren - Hymne (Martin Roth Remix) (3:32)
+03. Armin Van Buuren Feat. Sharon Den Adel - In And Out Of Love (Diversion Remix) (3:07)
+04. Armin Van Buuren - In 10 Years From Now (Naden Remix) (3:36)(   Читать дальше...   )Жанр: Progressive House, Deep House, Progressive TranceПродолжительность: 03:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D622EF808F77FF8818083754FFE7787AAA0987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324630   (423098) от 10.09.2019
+
+VA - Bikini Beach, Vol. 10 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1.YAKO BEATZ - Zero (2:03)
+2.Dippu - Sweet Cake (3:20)
+3.DJ K-NEXT - Dream (4:26)
+4.Gerrox - Shadows (3:32)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748DBBF170714D9017FB50420262D9E186513308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375953   (422793) от 10.09.2019
+
+Utah M. Paul - Дискография  44CD Taboo Records (1997-2010) [MP3|320 kbps]<House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Justus Kohncke - Yacht (Robert Babicz mix) (08:13)
+02. Jeremiah, Bradler - Turmoil (Original Mix) (02:48)
+03. Jim Rivers - I Go Deep (Original Mix) (03:35)
+04. Kriece - Cork In The Ocean ( Jim Rivers Mix) (06:56)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AB36637252DB82BD3BFDAE15FB9C413F194E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250899   (422656) от 29.09.2018
 
 VA - Deep House & Deep Techno #03: Best Of 5 Years (2018) [MP3|320 Kbps] <Deep House, Deep Techno>
@@ -6,7 +93,7 @@ VA - Deep House & Deep Techno #03: Best Of 5 Years (2018) [MP3|320 Kbps] <Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Manhattan Deep Vibes Compilation: 2012 Deep House Compilation (2012) [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +157,7 @@ VA - Ibiza Closing Chillhouse (2016) [MP3|320 Kbps] <Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -99,7 +186,7 @@ Pierre Ravan - KaRavan: With Love from Dubai to Ibiza - Vol. 9 (2015) [MP3|320 �
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +215,7 @@ VA - Dance Religion 16 (House and Dance Tunes from Heaven) (2018) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +244,7 @@ Faithless - 2.0 (Remixes & Hits) (2015) 2CD [MP3|320 кб/с]<House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +273,7 @@ VA - Sexy House Bombs Vol.1: Cool Uplifting House Tunes for Clubbers Desires (20
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +302,7 @@ VA - Moments Of House Music Vol.5 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +331,7 @@ VA - Ministry Of Sound - Chilled House Winter (unmixed tracks) (2016) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +360,7 @@ VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -308,7 +395,7 @@ VA - Jewels & Gems Vol.1: Selection Of Deep House (2016) [MP3|320 Kbps] <Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -337,7 +424,7 @@ VA - Fashion Week Vol.3: Catwalk House & Beats (2016) [MP3|320 Kbps] <Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -366,7 +453,7 @@ VA - Deep Down Underground Vol.1 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -395,7 +482,7 @@ VA - Lucid Sounds, Vol. 21: A Fine and Deep Sonic Flow of Club House, Electro, M
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +511,7 @@ VA - Treasure Cast Vol.1: Deep Sound Soul (2016) [MP3|320 Kbps] <Deep House, Tec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +540,7 @@ VA - Kontor Top Of The Clubs - The Biggest Hits Of The Year MMXVI (2016) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +569,7 @@ VA - Deep House Relax (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +598,7 @@ VA - Kingside Main Stage 2017 (Compilation) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +627,7 @@ Lorenzo Chiabotti - Adnur EP (2015) [MP3|320 кб/с]<Electronic, House, Minimal
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,7 +656,7 @@ VA - Ibiza 2015: Essential Funky House Vol. 2 (2015) [MP3|320 кб/с]<House, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +685,7 @@ VA - The Sound of Kingside 2017 (Compilation) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -627,7 +714,7 @@ VA - Classic Workout Songs (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -656,7 +743,7 @@ VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -670,99 +757,6 @@ VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3EF515D0A713ED603FF5090E7ECF1A48784E687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560369   (407504) от 14.10.2012
-
-VA - World Club Tour Amsterdam: The Amsterdam Club Sound Collection (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falko Niestolik - Explore (Brockman & Basti M Full Vocal Mix)
-02. Eriq Johnson - Should I Like This (Incognet Remix)
-03. Stan Kolev - Love Revolution (Matan Caspi Tribolution Remix)
-04. Joe Flex - Manhattan (Paul Strive Remix)
-05. Chriss Ortega - When You Say (Fine Touch Remix)
-06. Tune Brothers - Diamonds (Francesco Gomez Remix)
-07. Dimitri Vangelis - Ignited (Original Mix)
-08. Marc Vedo - Lullabyes (Original Mix)
-09. Vengerov - Kazantip Intro (Matt Caseli & Danny Freakazoid Remix)
-10. Felix Leiter - Better Days (Original Mix)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4E99C4278918EDB0A8488E06DD8D2ABDC9F452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413995   (406809) от 06.10.2020
-
-VA - Kontor Sports: Nonstop Powermix 2020.05 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Kontor Sports-Nonstop Powermix 2020.05 (Continuous DJ Mix) 1:01:59
-02. Armin van Buuren feat. Bonnie McKee - Lonely For You (Jerome Remix) 2:59
-03. Loud Luxury feat. Morgan St. Jean - Aftertaste 3:17
-04. Nora En Pure & Lika Morgan - In The Air Tonight (Croatia Squad Remix) 3:05(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5B8A91665F6614F9D8AEB324D50FFD91C6502E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414019   (406807) от 06.10.2020
-
-VA - Kontor Sports: Nonstop Powermix 2020.04 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Kontor Sports-Nonstop Powermix 2020.04 (Continuous DJ Mix) 1:01:18
-02. Jerome - Take My Hand 2:43
-03. Sondr & VIZE feat. Lilly Ahlberg - Kids (feat. Lilly Ahlberg) 2:28
-04. Micar - This Time It's My Life 3:07(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F5AD27AADD53CEF295B48CA7563BAD8693D68B
 ```
 
 https://mybot314.ru/tekegram_catalog/

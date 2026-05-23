@@ -1,3 +1,108 @@
+###  Публикация: 1722296   (55870) от 21.05.2024
+
+Человек из Рио / L'Homme de Rio (1963) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Похищена бесценная индейская статуэтка, а вместе с ней и дочь хозяина сокровища — красавица Аньес. Жених девушки Адриан отправляется в погоню за похитителями. Он не представляет, какие испытания его ждут впереди.Производство: Франция, Италия / Dear Film Produzione, Les Films Ariane, Les Productions Artistes AssociésЖанр: боевик, мелодрама, комедия, приключенияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Франсуаза Дорлеак, Жан Сервэ, Роже Дюма, Даниэль Чеккальди, Милтон Рибейро, Убираси Де Оливейра, Сабу ду Бразил, Адольфо Чели, Симона РенанПеревод: Дублированный (К.ст. Горького)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2560EEB42E2B168F055640BEFFCBBDE0E2E23DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 393572   (55753) от 22.05.2024
+
+Риллингтон Плейс, дом 10 / 10 Rillington Place (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лондон. 1944 год. Ночью, во время бомбежки, женщина проникает в полуразвалившийся дом. Там она встречает Джона Кристи, пятидесятилетнего дружинника. Он хочет помочь женщине избавиться от кашля, надевая кислородную маску. Но та неожиданно начинает задыхаться. Тогда Кристи бросается на женщину, насилует и душит. После этого он зарывает труп у себя в саду, где уже находятся (   Читать дальше...   )Жанр: Драма, Триллер, ДетективРежиссер: Ричард ФлайшерАктеры: Ричард Аттенборо, Джуди Гисон, Джон Хёрт, Пэт Хейвуд, Изобель Блэк, Мисс Райли, Филлис МакМэйхон, Рэй Баррон, Дуглас Блэкуелл, Джимми Гарднер, Эдвард ЭвансПеревод: Одноголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 01:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EDB8127BDA062F42257B93B6D99C1ACF35DA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723382   (55570) от 24.05.2024
+
+Зуд седьмого года / The Seven Year Itch (1955) BDRip  [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Книгоиздатель Ричард Шерман женат уже семь лет. Его жена и сын в очередной раз уезжают за город на каникулы. Недолго длится одиночество Ричарда, неожиданно на его балкон падает огромный горшок с томатами, и виной этому соседка с верхнего этажа — белокурая модель.
+Ричард предлагает красотке зайти к нему в гости и что-нибудь выпить. Шикарная блондинка в глубоком декольте (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Charles K. Feldman GroupЖанр: мелодрама, комедияРежиссер: Билли УайлдерАктеры: Мэрилин Монро, Том Юэлл, Эвелин Кийес, Сонни Тафтс, Роберт Штраусс, Оскар Хомолка, Маргарит Чэпман, Виктор Мур, Долорес Роздейл, Дональд МакБрайд и другиеПеревод: Дублированный, многоголосый  профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44F7AD6B698F09991A65B7399BBECC0F1C3BB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723693   (55516) от 24.05.2024
+
+Лили / Lili (1953) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная картина о судьбе доверчивой девушки Лили, волею случая попавшей в цирк. Там она научится по другому смотреть на жизнь, встретит новых друзей и найдёт свою любовь.Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: мюзикл, драма, мелодрамаРежиссер: Чарльз УолтерсАктеры: Лесли Карон, Мел Феррер, Жан-Пьер Омон, Жа Жа Габор, Курт Казнар, Аманда Блейк, Алекс Джерри, Ральф Думке, Вилтон Графф, Джордж БакстерПеревод: Многоголосый профессиональный (Рен-ТВ)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2574F2CE55B2BE033A60E6C0A9BAD4E126B9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723916   (55470) от 25.05.2024
 
 Атлантида, погибший континент / Atlantis, the Lost Continent (1961) DVDRip [AVO]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:462814F71E12FB63CE79A0851C57A31448B51487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741789   (47432) от 08.08.2024
-
-Огни рампы / Limelight (1952) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стареющий клоун Калверо спасает от самоубийства соседку, девушку-танцовщицу, вынужденную из-за болезни покинуть балетную труппу. Так начинается эта дружба-любовь, которая, по мнению Калверо, не может иметь продолжения - слишком велика разница в возрасте...Производство: США / Charles Chaplin ProductionsЖанр: драма, мелодрама, музыкаРежиссер: Чарли ЧаплинАктеры: Чарли Чаплин, Клер Блум, Найджел Брюс, Бастер Китон, Сидни Чаплин, Норман Ллойд, Андре Эглевский, Мелисса Хейден, Марджори Беннетт, Вилер ДрайденПеревод: дублированный, профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A8D458205460E66CF934BD9C7DDE14EFD25D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740517   (46896) от 13.08.2024
-
-Путешествие в Италию / Viaggio in Italia (1954) BDRip [H.264] [MVO] [Criterion collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм в общих чертах основан на романе "Дуэт" Колетт (1934)... Богатая английская пара приезжает в Италию, чтобы получить наследство - виллу на неаполитанском заливе, и проводит несколько дней в этом прекрасном месте. Однако отношения супругов находятся на грани разрыва...Производство: Франция, Италия / Francinex, Italia Film, Junior Film, Les Films Ariane, Socit Gnrale de CinmatographieЖанр: драма, мелодрамаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Джордж Сандерс, Мария Мобан, Пауль Мюллер, Наталия Рэй, Джеки Фрост, Адриана ДаниелиПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5C8F22E8787892257D40FA3354E7923EB90877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744041   (46329) от 19.08.2024
-
-Борсалино / Borsalino (1970) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация новеллы Эжена Саккомано «Бандиты в Марселе». Действие фильма происходит в Марселе в 30-х годах XX века. Два хулигана, Франсуа Капелла и Рок Сиффреди, объединяются, чтобы контролировать нелегальный бизнес и всю организованную преступность города.Производство: Франция, Италия / Adel Productions, Marianne Productions S.A., Mars FilmЖанр: драма, криминалРежиссер: Жак ДереАктеры: Жан-Поль Бельмондо, Ален Делон, Катрин Рувель, Мишель Буке, Франсуаза Кристоф, Коринн Маршан, Николь Кальфан, Жюльен Гиомар, Марио Давид, Даниэль ИвернельПеревод: Многоголосый профессиональный (Первый канал), авторский (Леонид Володарский)Язык озвучки: русский, французскийСубтитры: русские, английские, французские (forced, SDH)Продолжительность: 02:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FC2A6959A51146F58EFBD1B62173B80D4BC218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744332   (46093) от 21.08.2024
-
-Вызов Робину Гуду / A Challenge for Robin Hood (1967) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кузен Робина, молодого нормандского дворянина, ложно обвиняет его в убийстве другого кузена. Мотивы обвинителя, вступившего в коррумпированный союз с Ноттингемским шерифом, корыстны – они хотят забрать у Робина фамильные земли, которые он унаследовал. Преследуемый людьми шерифа, Робин вынужден бежать в Шервудский лес. Там он знакомится с Малышом Джоном и его бандой, (   Читать дальше...   )Производство: Великобритания / Hammer Film Productions, Seven Arts ProductionsЖанр: приключенияРежиссер: Си-Эм Пеннингтон-РичардсАктеры: Бэрри Ингэм, Джеймс Хэйтер, Леон Грин, Питер Блайт, Гэй Хэмилтон, Элфи Бэсс, Дженни Тилль, Джон Арнатт, Эрик Флинн, Джон ГуголкаПеревод: Многоголосый профессиональный (Лексикон)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33A1A256858F2C67A43CC3C6A9D7F89B916EB76
 ```
 
 https://mybot314.ru/tekegram_catalog/

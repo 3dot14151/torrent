@@ -1,3 +1,56 @@
+###  Публикация: 920938   (562284) от 01.08.2015
+
+Робокоп: Трилогия / RoboCop: Trilogy (1987/1990/1993) BDRip [H.264/1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Могущественная корпорация, создавшая знаменитого Робота-полицейского, разрабатывает грандиозный проект по переустройству Детройта. Но его осуществлению препятствуют жители бедных кварталов, для которых не нашлось места в идеальном городе будущего.
+Бесстрашный Робокоп оказывается между двух враждующих лагерей. Как собственность корпорации, он обязан подчиниться несправедливому (   Читать дальше...   )Производство: США / Orion Pictures CorporationЖанр: Фантастика, Боевик, КриминалРежиссер: Пол Верховен, Ирвин Кершнер, Фред ДеккерАктеры: Питер Уэллер, Нэнси Аллен, Дэн О’Херлихи, Ронни Кокс, Кертвуд Смит, Мигель Феррер, Роберт Дукуй, Рэй Уайз, Фелтон Перри, Пол МакКрейн, Джесси Д. Гойнс, Дель Самора, Кэлвин Джанг, Рик Либерман, Ли де БруПеревод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 01:42:46 | 01:56:40 | 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DF60D0F5AD1B4C351EC7020953D4BC87EF7361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309099   (550167) от 20.06.2019
+
+Еще не человек 1, 2 / Всё еще не человек /  Not Quite Human 1, 2  / Still Not Quite Human (1987 / 1989 / 1992) TVRip [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В заключительном фильме про юношу-андроида, мечтающего стать человеком, доктор Карсон берёт сына с собой на конференцию по робототехнике. Но на конференции учёного похищают и заменяют андроидом. Смогут ли Чип и его новые друзья спасти доктора Карсона из рук опасного конкурента?Производство: США  /  Walt Disney ProductionsЖанр: фантастика, комедия, семейныйРежиссер: Эрик ЛюкАктеры: Алан Тик, Кристофер Ним, Бетси Палмер, Адам Филипсон, Роза Невин, Кен Поуг, Джей Андервуд, Роберт Меткаф, Шила Мегилл, Джерри Вассерман и др.Перевод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: ~ 01:20:26Реклама: отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7611AE0677079340661952D7C2C715A7E1594DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 815898   (549964) от 25.08.2014
 
 Хищник: Трилогия / Predator: Trilogy (1987,1990,2010) BDRip [H.264/720p-LQ] [Hi10P]
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C24143D5B173DC8700E8B0FE9A9C3E749E287561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377943   (506242) от 21.08.2011
-
-90-е годы: Дилогия / Anni 90: Dilogy (1992-1993) DVDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть итальянской комедии "90-е годы". В фильме занято много известных актеров. Сюжеты экстравагантны до предела: Папу Римского закладывают как главу мафиозного Купола. Защищенный секс в п/эт комбинезоне, двух презервативах и метре скотча. Дела и прочие совершенно необычные, только в Италии возможные, обстоятельства не дают человеку возможности пописать (   Читать дальше...   )Производство: Италия / Filmauro DistribuzioneЖанр: КомедияРежиссер: Энрико ОлдоиниАктеры: Кристиан Де Сика, Массимо Болди, Нино Фрассика, Андреа Ронкато, Кэрол Олт, Франческо Бениньо, Анна Фальчи, Надя Ринальди, Сильвио Спаччези, Тано ЧимарозаПеревод: Одноголосый закадровый (присутствует ненормативная лексика)Продолжительность: 01:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6543326339C75F30259E8B210C9ECE4EDA5909EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233455   (504315) от 05.09.2010
-
-Чужой против Хищника / AVP: Alien vs. Predator (2004, 2007) [H.264/720p-LQ] BDRip (дилогия)
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атакованный «Предалиеном», жутким гибридом Хищника и Чужого, корабль Хищников терпит крушение в лесах, окружающих маленький техасский городок. И пока на сигнал о помощи, посланный в момент падения, спешит подкрепление, Чужие успевают инфицировать половину населения города.Жанр: Ужасы, Фантастика, Боевик, Триллер, ПриключенияРежиссер: Пол У. С. Андерсон.Актеры: Стивен Паскуале, Рейко Эйлсворт, Джон Ортиз, Джонни Льюис, Эриель Гейд, Кристен Хагер, Сэм Траммелл, Роберт Джой, Дэвид Петкау, Том Вудрафф мл. и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

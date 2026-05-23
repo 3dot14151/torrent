@@ -1,3 +1,107 @@
+###  Публикация: 1251755   (213784) от 18.12.2018
+
+Souten no Ken: Regenesis 2 | Кулак синих небес: Перерождение [ТВ-2] [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Божественный кулак северной звезды — совершенное боевое искусство, что передавалось от мастера единственному преемнику. Оно берёт своё начало 1800 лет назад. Когда надобность в нем отпала, его прозвали учением бога смерти. Но в тридцатые годы XX века спокойствие мира вновь оказалось под угрозой, и Северной звезде придётся напомнить о себе. Продолжение истории.Производство: Polygon PicturesЖанр: приключенияРежиссер: Kazumi YoshioПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240DAEA502455DECE1ABB2F478F567FA7034AE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344101   (213684) от 09.12.2019
+
+Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве духов (фильм первый) [1993, Movie] BDRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Наступили летние каникулы и Юсуке и Кувабарой наслаждаются свободным временем, занимаясь одним из своих любимых увлечений - ввязываются в групповые бои. Тем не менее, их отпуск подходит к концу, когда появляется Ботан и говорит им, что лорд Кёнма, принц мира Духов, был похищен. Похитители требуют Золотую печать в качестве выкупа - эта печать такая мощная, что даже (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: приключения, фэнтезиРежиссер: Абэ НориюкиПеревод: Юрий ЯворовскийЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDF192AFD18AADCF2F1C9C60A58B4820F9B8BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344102   (213679) от 09.12.2019
+
+Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie - Poltergeist Report | Отчет о буйстве духов (фильм второй) [1994, Movie] BDRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Когда Духовный мир затоплен из-за необычного дождя, который переполняет реку Сандзу, лорд Кёнма чувствует приближение чрезвычайно сильного врага. Он доверяет богу смерти Ботан доставить духовному детективу Юсуке таинственный предмет, который должен быть защищен от вторгшегося врага. Однако к тому времени, когда Ботан находит Юсуке, она слишком слаба, чтобы объяснить (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: приключения, фэнтезиРежиссер: Иидзима МасакацуПеревод: Юрий ЯворовскийЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 93 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD615AC9A56F841C04B4AC87C1FC781992212E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344100   (213623) от 09.12.2019
+
+Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве духов [1992, TV, 112 из 112] BDRip 1080p 10-bit raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В этой истории главный герой погибает в самом начале… Неожиданно? Вот и на том свете не ожидали и не подготовили места для Юсукэ Урамэси, грозы города и вечного прогульщика школьных занятий. Явившаяся к призраку Юсукэ проводница душ по имени Ботан сообщила, что двери в рай и ад для него закрыты. И теперь у парня выбор – остаться неприкаянным духом или пройти испытание, (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: приключения, комедия, фэнтезиРежиссер: Абэ НориюкиПеревод: Юрий Яворовский, EterniaЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 112 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AAEB47B9D5ABA89DE3CB6CCE9672461F4CB0B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541865   (213227) от 19.06.2022
 
 Paripi Koumei | Ya Boy Kongming! | Тусовщик Кунмин [2022, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +110,7 @@ Paripi Koumei | Ya Boy Kongming! | Тусовщик Кунмин [2022, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Healer Girl | Девушки-целительницы [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru / Величайший По
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Shachiku-san wa Youjo Yuurei ni Iyasaretai. | Корпоративная раб�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Стать наст�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Date a Live IV / Рандеву с Жизнью 4 [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +269,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic / Госпожа Кагуя: В лю�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -194,7 +298,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -220,7 +324,7 @@ Komi-san wa, Komyushou Desu. (2022) | Komi Can't Communicate | У Коми пр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -246,7 +350,7 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai 2 / Love Live! Nijigasaki Hig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -275,7 +379,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +405,7 @@ Birdie Wing: Golf Girls Story | Бёрди винг: История гольфи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -327,7 +431,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -353,7 +457,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -382,7 +486,7 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -408,7 +512,7 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -434,7 +538,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -460,7 +564,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -486,7 +590,7 @@ Iwa Kakeru! Sport Climbing Girls | Держись крепче! Скалолаз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -512,7 +616,7 @@ Kaguya-sama wa Kokurasetai: First Kiss wa Owaranai | Kaguya-sama: Love is War - 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -538,7 +642,7 @@ Atasha Kawajiri Kodama Da yo: Dangerous Lifehacker no Tadareta Seikatsu | I'm Ko
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,7 +668,7 @@ Majutsushi Orphen Hagure Tabi: Seiiki Hen | Волшебник-воин Орфе
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -575,110 +679,6 @@ Majutsushi Orphen Hagure Tabi: Seiiki Hen | Волшебник-воин Орфе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA50CAF5D93F7224F6256658A6938F127BF58C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643715   (209953) от 02.07.2023
-
-Fate/strange Fake: Whispers of Dawn | Судьба/странная подделка: Шёпот рассвета [2023, Special] WebRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает о Фальшивой Войне Святого Грааля, основанной на Третьей Войне Святого Грааля, происходившей в городе Фуюки. После её завершения базирующаяся в США организация магов, отличная от лондонской Ассоциации Магов, использовала данные о ней для своего собственного ритуала. Семьдесят лет спустя город Сноуфилд в Калифорнии избрали Священной Землёй для собственной (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Энокидо СюнПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 55 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EEBCDE319EFCA3412FB02C57361228A5890F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605377   (209767) от 17.01.2023
-
-Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настала пора Назарику выйти из тени. Следуя своему великому плану, Айнз Уол Гоун создал свою страну — Колдовское Королевство — и, заключив ложный союз с Империей Багарут, с лёгкостью захватил Эрантел. Присвоив титул Короля-заклинателя, он взошёл на трон своего нового царства. Цель велика — под стать правителю: создать утопичное и процветающее королевство, основанное (   Читать дальше...   )Производство: студия Madhouse / マッドハウスЖанр: приключения, фэнтезиРежиссер: Ито НаоюкиПеревод: CrunchyRoll (только ТВ, спешалы без перевода)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин. + 13 SP по 2 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDBD672F72E066E5E0C312D3E303E42E286A7BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563338   (208202) от 13.09.2022
-
-Meng Qi Shi Shen | Cinderella Chef 3 | Очаровательная богиня еды 3 [2022, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Е Цзяяо, редактор журнала современная кухня, перемещается в период династии Хуай Сун, став Е Цзинсюань - старшей дочерью губернатора Янчжоу и становится наложницей Ся Чхуньюя, третьего человека в деревне Черного Ветра. Ся Чхуньюй на самом деле - шпион, он подозревает, что его новую наложницу подослал к нему глава деревни, чтобы за ним следить. Однако, острота ума (   Читать дальше...   )Производство: КитайЖанр: Комедия, Драма, Гурман, Романтика, ИсторическийРежиссер: Цзя ФэйПеревод: официальный (crunchyroll)Язык озвучки: КитайскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B93BE9115F0EC4B1E36D783E157413631021E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609972   (208147) от 05.02.2023
-
-Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 OVA] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208147.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередном альтернативном Эдо людям не дают житья насекомые. Да не простые клопы с тараканами, а гигантские демонические жучары с пауками, которым человека перекусить – что нам спичку сломать. Для защиты города по просьбе жителей сегунат Токугава создал Жучиный приказ, чьи бойцы неустанно истребляют членистоногую нечисть с помощью верных мечей, взрывчатки и Великой (   Читать дальше...   )Производство: Студия Seven Arcs / セブン・アークスЖанр: приключения, фэнтезиРежиссер: Хамана ТакаюкиПеревод: fynnley (1-6); lethal, Lyserg17 (7-26); Fallen Serrafim (OVA)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A9FC8307F1958018F645334844412A75D6E6BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

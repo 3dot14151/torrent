@@ -1,3 +1,212 @@
+###  Публикация: 1260276   (311837) от 07.11.2018
+
+VA - E-Energy vol. 1-16 (2014-2016) [MP3|320 Kbps] <Ambient, Chillout, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Brynskikh - Dreams (8:09)
+02. Aleksey Kovalenko - Morning Lounge (5:28)
+03. Amure - Right Back (6:38)
+04. Arcanacrux - Tron (4:42)(   Читать дальше...   )Жанр: Ambient, Chillout, Instrumental, New AgeПродолжительность: 25:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC79E4EE435AC286C6D89F35975F7E997B132AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260281   (311691) от 07.11.2018
+
+Евгений Алексеев - Piano Tribute to Гражданская Оборона (2018) [MP3|320 Kbps] <Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Все песни данного альбома (кроме бонус-трека) написаны Егором Летовым (1964-2008), легендарным российским рок-поэтом и музыкантом, основателем и лидером группы "Гражданская Оборона". Его песни знают и любят миллионы людей по всему бывшему СССР самых разных поколений и социальных групп. Это, скорее, редкое исключение, чем правило для России. Я уверен, что (   Читать дальше...   )1. Моя Оборона
+2. Со Скоростью Мира
+3. Всё Как У Людей
+4. Без Меня(   Читать дальше...   )Жанр: PianoПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9880F290AC523095BBF7FAE1A67E28A46634B03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332274   (311679) от 21.10.2019
+
+Laura Sullivan - Paris Enjoue (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. La vie en rose (Instrumental)	01:54
+2. La vie en rose (Solo Piano)	01:54
+3. Les Champs-Élysées (Instrumental)	02:20
+4. Les Champs-Élysées (Solo Piano)	02:20(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5DA7086849D678C757935B0569332A0C64172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845447   (311027) от 28.11.2014
+
+Альфред Шнитке - Сказка странствий (музыка из к/ф) (2004) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+24 ноября исполнилось 80 лет со дня рождения Альфре́да Га́рриевича Шни́тке (нем. Alfred Schnittke; 1934—1998). Это имя советского-российского композитора, пожалуй самое известное за рубежом на сегодняшний день. Не ординарные взгляды  выдающегося музыканта-философа на всевозможные аспекты искусства ХХ столетия и искусства прошедших столетий, на исполнительскую (   Читать дальше...   )01. Под рождество (Из к/ф 'Сказка странствий', 1983)  (3:43)
+02. Сказка странствий (Из к/ф 'Сказка странствий', 1983)  (2:10)
+03. Вальс-раздолье (Из к/ф 'Сказка странствий', 1983)  (3:54)
+04. По радуге (Из к/ф 'Приключения Травки', 1976)  (1:46)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC5D49E151CECA6A3A3548A6E7DB854390D0412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584448   (310400) от 03.12.2012
+
+Ансамбль БЛАГОВЕСТ - Славянский глас (2012) [FLAC|Lossless]<Folklore>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Добрий вечiр тобi
+02. Баллада о 12 Разбойниках
+03. Вниз по матушке, по Волге
+04. Вдоль по Питерской
+05. Ах ты, степь широкая
+06. Дед Пахом, во кузнице
+07. Ой, горе, горе
+08. Вдоль да по речке
+09. Ой, сiвы конь бяжыць
+10. Черный ворон(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470B13173163BCF560CF1D8624075AB51C002311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183489   (310209) от 13.11.2017
+
+Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Aq Awakening (04:35)
+02. Not Cranky (03:40)
+03. Sirus Bound (05:27)
+04. Blue Float (05:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C60FE44C31E2E8B9D78F6AF7F770182B511E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960029   (310196) от 27.11.2015
+
+Wayne Gratz - Spring Rain / Piano and Rainfall (2005) [FLAC|tracks+.cue]<New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rain On the Pond 05:43
+ 02. Glasses Of the Sun 03:56
+ 03. Good Question 02:41
+ 04. As I Fall 04:08(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73DD0AF8060FC869C2410E5B9F7C3CFBC2A0E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183291   (310088) от 13.11.2017
 
 Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
@@ -6,7 +215,7 @@ Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +244,7 @@ Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +273,7 @@ David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +331,7 @@ Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +360,7 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +389,7 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +418,7 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +447,7 @@ Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +476,7 @@ Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +505,7 @@ Kathryn Louderback - Christmas Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +534,7 @@ Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +592,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +621,7 @@ Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +650,7 @@ The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +679,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +708,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,215 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96AB133D2C2A464069014FB5FC645D4C6C2415B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260596   (307293) от 09.11.2018
-
-Баян Mix - Танцы мира (2016) [MP3|320 Kbps] <Instrumental, Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чардаш (3:17)
-02. Болгарский танец (4:02)
-03. Сиртаки (3:49)
-04. Лезгинка (3:09)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4B4C3BA9A65F2923FA39AB4B1EE974DB7041BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260594   (307291) от 09.11.2018
-
-Баян Mix - Альбом №1 (2013) [MP3|320 Kbps] <Instrumental, Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карнавал (3:32)
-02. Рэд танго (3:02)
-03. Катя (2:53)
-04. Ты так далеко (4:51)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C4CDC835E86E32D38618BD2079B4147E3A3943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077001   (306787) от 28.11.2016
-
-Kris Kristofferson - Live At The Big Sur Folk Festival (2016) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306787.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. If You Don't Like Hank Williams (2:09)
- 2. The Law Is For Protection Of The People (3:28)
- 3. Band Introduction (1:28)
- 4. The Pilgrim, Chapter 33 (3:27)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D680430182903BD13C16A335AF033929829815EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077171   (306601) от 28.11.2016
-
-Harlow Monroe - Piano Christmas (2016) [MP3|320 Kbps] <Instrumental, Jazz, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All I Want for Christmas (02:51)
-02.  Baby, It's Cold Outside (03:29)
-03.  Breath of Heaven (04:41)
-04. Christmas Time Is Here (02:24)(   Читать дальше...   )Жанр: Instrumental, Jazz, Easy ListeningПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BD4A63FEE01471B573143A2AE0C759144CC26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332802   (305513) от 24.10.2019
-
-Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dona Nobis Pacem (8:06)
-02. Gloria (10:50)
-03. Kyrie (7:44)
-04. Mea Culpa (6:19)(   Читать дальше...   )Жанр: Chants, WorldПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030BA877F83BBB5C8F7471F0E1A34767C831191C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584828   (305469) от 05.12.2012
-
-VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305469.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beenie Man - King Of The Dancehall
-002. Beenie Man feat. Miss Thang - Dude
-003. Beenie Man - Miss L.A.P.
-004. Beenie Man feat. So Solid Crew - Yagga Yo
-005. Damian Marley - Hey Girl
-006. Damian Marley - Welcome To Jamrock
-007. Lady Saw - Strip Tease
-008. Lady Sovereign - Random
-009. M.I.A. - Fire Fire
-010. Mr. Vegas feat. Wayne Anthony - Pull Up(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 06:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFFD49B7111A95752AAF3480E8BEAFD79C95B8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333172   (305269) от 24.10.2019
-
-Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sander van Zanten - Prelude (07:33)
-02. Sander van Zanten - Awakening (Interlude) (00:46)
-03. Sander van Zanten - Separation (02:24)
-04. Sander van Zanten - Preparations (04:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B299F023BDE4C5E79BF110645DB86ACA6C528D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

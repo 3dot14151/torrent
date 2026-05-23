@@ -1,3 +1,55 @@
+###  Публикация: 1672794   (167559) от 29.10.2023
+
+Жизнь на нашей планете / Life on Our Planet (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) [EN / RU, EN Sub]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этом новаторском документальном сериале о природе — необыкновенное путешествие жизни: завоевание Земли, адаптация и выживание на протяжении миллиардов лет.Производство: США, Amblin Television, Silverback Films, NetflixЖанр: документальный, история, исследованияРежиссер: Адам Чэпман, Софи Лэнфиар, Барни РевиллУчастники: Морган ФриманПеревод: субтитры (Катерина Яцук, Netflix)Язык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 1x 00:40:00 + 7x ~00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062C4DCDF5086EC8F5B19CD66362F442B8515F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516119   (167509) от 09.12.2021
+
+NG: Война Гитлера против прессы / Hitler's Battle Against the Press (2018) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В 1920-х годах журналисты газеты «Мюнхенер Пост» (Münchner Post) уже видели опасность, исходившую от Гитлера. Решительно и бесстрашно они писали об угрозе национал-социализма. Гитлер называл эту газету «мастерской дьявола» и угрожал её сотрудникам с помощью своих головорезов. Сегодня эти смелые редакторы и их газета оказались в полном забвении. Только одна книга (   Читать дальше...   )Производство: США, Германия / National Geographic ChannelЖанр: Документальный, ИсторияРежиссер: Уте Бёнэн, Геральд ЭндресПеревод: Одноголосый профессиональный (Студия «Велес»)Субтитры: ОтсутствуютПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E36933423E780D56046A7574152F6DCCE9620BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515901   (167472) от 09.12.2021
 
 BBC. Становление континентов / Rise of the Continents (2013) WEB-DL [H.264/1080p] (серии 1-4 из 4) [AVO]
@@ -6,7 +58,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +85,7 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +137,7 @@ NG: С точки зрения науки: Предотвратить конец
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ NG: Неразгаданные тайны Солнца / Dark Secrets of the Sun
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +241,7 @@ NG. Потерянный мир Майя / Lost World of the Maya (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +371,7 @@ BBC: Археология. Тайная история / Archaeology: A Secret H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +397,7 @@ NG: На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +449,7 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +475,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +501,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Discovery. Насекомые "Чужие" (Молящийся Богомол) /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +579,7 @@ NG. Экстремальное путешествие: Вторая мирова
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +605,7 @@ NG: Добро пожаловать на Землю / Welcome to Earth (2021) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +631,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1741D90F294DC40D9E3409B13211906A49AEC93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599062   (160009) от 22.12.2022
-
-BBC. История Вселенной (Наша Вселенная) / Our Universe (2022) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Насколько большая наша Вселенная? Есть ли жизнь на других планетах? Какие тайны хранят в себе космические просторы? Этими вопросами человечество задаётся уже много столетий, но найти точные ответы на них невозможно. Приоткрыть занавес над тайнами космоса помогут лучшие фильмы про вселенную, снятые в художественном и документальном жанре. Конечно, в художественном (   Читать дальше...   )Производство: США, BBC StudiosЖанр: документальный, природа, наука, исследованиеРежиссер: Наоми Остин, Стивен Кутер, Элис ДжонсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английские (SDH, full)Продолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4130636A615EF2DB3939404449A4E937DF7D9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599571   (159543) от 24.12.2022
-
-BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.264/1080p] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159543.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой эпической серии из шести частей исследуется обширное волшебное царство и застывшие миры удивительного разнообразия природы. От замёрзшего океана Арктики - до снежных лесов и великих равнин Крайнего Севера, от высокогорных вершин наших гор - до юга Антарктиды. Это последние места дикой природы на Земле, в которых могут обитать только животные с уникальными (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документальный, флора, фауна, исследованияРежиссер: Алекс Лэнчестер, Джейн Аткинс, Орла ДоэртиПеревод: одноголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:57:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F44D0E1014D9DE640195568063946DCEF85A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

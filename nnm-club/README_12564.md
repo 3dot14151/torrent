@@ -1,175 +1,18 @@
-###  Публикация: 1307642   (554792) от 10.06.2019
+###  Публикация: 1556881   (557130) от 11.06.2022
 
-3D модели - TurboSquid - 2018 Toyota Camry - 1147597 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554792.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки  ToyotaФормат: V-Ray|*.max, 3DS, C4D, FBX, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009E527922EA79AC015B8A54E4A5BBB4C7581FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307578   (554789) от 10.06.2019
-
-Батальон (2018) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554789.jpg" />
-</div>
-
-
-###  Подробнее
-
-1999 год: Югославия находится на пике распада, а албанское население навсегда хочет избавить свою землю от сербов. Аэропорт Приштина — важный стратегический объект, и если его займёт Армия освобождения Косово во главе с Брахимом, то местные албанцы устроят настоящий геноцид сербского народа. Чтобы не допустить передачу оружия косовским боевикам и не дать захватить (   Читать дальше...   )Производство: РоссияЖанр: военный, боевик, драма, историяРежиссер: Алексей БыстрицкийАктеры: Максим Щеголев, Дмитрий Ульянов, Александр Бухаров, Михаил Бабичев, Полина Ястребова, Пьер Бурель, Александр Замураев, Андрей Стоянов, Пётр Королёв, Илья Волков и др.Продолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C9D4B4797819288438EA2A6EA6AACD623AC5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307487   (554788) от 10.06.2019
-
-Батальон (2018) SATRip (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554788.jpg" />
-</div>
-
-
-###  Подробнее
-
-1999 год: Югославия находится на пике распада, а албанское население навсегда хочет избавить свою землю от сербов. Аэропорт Приштина — важный стратегический объект, и если его займёт Армия освобождения Косово во главе с Брахимом, то местные албанцы устроят настоящий геноцид сербского народа. Чтобы не допустить передачу оружия косовским боевикам и не дать захватить (   Читать дальше...   )Производство: РоссияЖанр: военный, боевик, драма, историяРежиссер: Алексей БыстрицкийАктеры: Максим Щеголев, Дмитрий Ульянов, Александр Бухаров, Михаил Бабичев, Полина Ястребова, Пьер Бурель, Александр Замураев, Андрей Стоянов, Пётр Королёв, Илья Волков и др.Продолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909767B096C7C94A82941960F5D677DBCB4E9A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307712   (554785) от 10.06.2019
-
-Space Rangers HD: A War Apart / Космические рейнджеры HD: Революция (2013) [Ru] (2.1.2288.3) Repack Other s
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554785.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Космические рейнджеры HD: Революция» — официальное самостоятельное дополнение к культовому отечественному проекту «Космические рейнджеры 2», разработанное компанией СНК-Games в сотрудничестве с фанатами серии. Основное нововведение «Революции» — сюжетная ветвь, посвященная противостоянию пиратской экспансии. Пока Коалиция сосредоточенно вела борьбу с доминаторами, (   Читать дальше...   )Тип издания: RepackРазработчик: CHK-Games, Elemental Games,Жанр: Strategy, RPG, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6041AFC55717DC60A1F4574902AEF9F567C6CBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307492   (554784) от 10.06.2019
-
-Черный ястреб / Падение черного ястреба / Black Hawk Down (2001) WEB-DLRip [H.265/1080p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сомали, 1993 год. Страна вымирает от голода, число жертв превысило триста тысяч человек. Миротворческие силы ООН пытаются восстановить порядок и организовать поставки продовольствия. В помощь им Вашингтон выслал полтысячи человек из элитных подразделений американской армии, знаменитые отряды «Дельта» и армейских рейнджеров. В городе Могадишо хозяйничает и творит (   Читать дальше...   )Производство: США, Великобритания / Revolution Studios, Jerry Bruckheimer Films, Scott Free ProductionsЖанр: Драма, Военный, ИсторияРежиссер: Ридли СкоттАктеры: Джош Хартнетт, Юэн МакГрегор, Эрик Бана, Уильям Фихтнер, Сэм Шепард, Джейсон Айзекс, Том Сайзмор, Рон Элдард, Том Харди, Николай Костер-ВальдауПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3FB4BA461DACAF16FC4A9A41B5ED38066CB461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307668   (554780) от 10.06.2019
-
-Проекты - VideoHive - Aurus | Digital Intro - 23853777 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554780.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Aurus | Digital Intro» - стильный проект для создания элегантной текстовой подложки с эффектом "помеха" при оформлении фильма.
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5F2976A0000C2DE05ED3EFB21E777097F1C187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296642   (554778) от 10.06.2019
-
-Экран переводчик v1.34.03 [En]
+Всей работы - на одну ночь / All in a Night's Work (1961) BDRip [H.264] [MVO]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_554778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Просто положите палец на экран. Обнаруживать текст и мгновенно переводить более 50 разных языков. Это приложение может «видеть» напечатанный текст и переводить более 50 других языков мгновенно. Браузер, SNS, игры, фотографии, документы и т. Д. Все можно перевести.Тип издания: Пиратка (Mod: удалена реклама и открыты платные языки)Релиз состоялся: 25.05.2019Разработчик: LangsLabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+Дядя Тони Райдера, богатый издатель журналов, только что умер. Молодой плейбой Тони наследует газету, но совет директоров считает, что он не подходит для этой задачи. А детектив отеля сообщает Тони о девушке, которая была замечена убегающей из номера отеля Палм-Бич его дяди, одетая только в турецкое полотенце и серьгу, в ночь его смерти. Тони обнаруживает, что молодая (   Читать дальше...   )Производство: США, Wallis-HazenЖанр: комедияРежиссер: Джозеф ЭнтониАктеры: Дин Мартин, Ширли МакЛейн, Клифф Робертсон, Чарльз Рагглз, Норма Крэйн, Джек Уэстон, Джон Хадсон, Джером Кауэн, Гэйл Гордон, Ральф ДумкеПеревод: профессиональный многоголосый (Paramount Channel)Субтитры: английскиеПродолжительность: 01:34:09
 
 ## Скачать торент
 ```bash
@@ -181,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307522   (554776) от 10.06.2019
+###  Публикация: 1556682   (557129) от 11.06.2022
 
-Блуждающая Земля / Liu lang di qiu (The Wandering Earth) (2019) WEB-DLRip [MVO]
+Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 
->>Зарубежное кино
->>Азиатское кино (SD)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В ближайшем будущем становится известно, что Солнце скоро погаснет, и Солнечная система будет разрушена. Тогда человечество запускает масштабный проект под названием «Блуждающая Земля», цель которого - с помощью сложных технических приспособлений сдвинуть Землю и полететь искать новое пристанище.Производство: Китай /  Beijing Jingxi Culture & Tourism Company, China Film Company LimitedЖанр: Фантастика, БоевикРежиссер: Франт ГвоАктеры: Джеки Ву, Цюй Чусяо, Ли Гуанцзе, Нг Ман-Тат, Чжао Цзиньмай, Цюй Цзинцзин, Чжан Ичи, Ян Хаоюй, Аркадий Шароградский, Ли ХунчэньПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (форс., полные) | ВнешниеПродолжительность: 02:05:30
+1. Connections
+2. The Cycle
+3. Ebb & Flow
+4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53FF27640398DC9BC5A492876A4512EE6BB3793B
+magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,163 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307582   (554775) от 10.06.2019
+###  Публикация: 1556767   (557128) от 11.06.2022
 
-Игры разумов / The Professor and the Madman (2018) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Англия середины XIX века. Оксфордский профессор Джеймс Мюррей работает над первым в истории словарем английского языка, а его главным соратником становится заключенный психиатрической клиники для особо опасных преступников — доктор Уильям Майнор. Гений Майнор или сумасшедший, хитроумный преступник, ведущий дерзкую игру, чтобы вырваться на свободу, или одержимый ученый? (   Читать дальше...   )Производство: Ирландия / Fastnet Films, 22h22, Caviar Antwerp NVЖанр: Триллер, драма, детектив, биографияРежиссер: Фарад СафиниаАктеры: Мэл Гибсон, Шон Пенн, Натали Дормер, Дженнифер Эль, Стивен Диллэйн, Йоан Гриффит, Джереми Ирвин, Эдди Марсан, Стив Куган, Лоуренс ФоксПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D61836DE266A2170CF1EA7B5A58C2B1E71C4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307637   (554774) от 10.06.2019
-
-Миа и белый лев / Mia et le lion blanc (2018) BDRemux [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миа вместе с семьей переезжает в Южную Африку из Лондона, где ее родители покупают ферму по разведению львов. Девочку ничего не радует на новом месте, ей хочется вернуться в Лондон, где остались ее друзья и беззаботная подростковая жизнь. Но внезапно на нее сваливается забота о маленьком белом львенке по имени Чарли, который остался без родителей. И вся ее жизнь (   Читать дальше...   )Производство: Франция, Германия, ЮАР / Canal+Жанр: драма, приключения, семейныйРежиссер: Жиль де МэтрАктеры: Даниа Де Вилье, Мелани Лоран, Лэнгли Кирквуд, Райан Мак Леннан, Лайонел Ньютон, Лиллиэн Дюбэ, Брэндон Оре, Пол Дэвис, Эшли ХарвиПеревод: Дублированный (iTunes)Субтитры: Французские (full)Продолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03954957C9E193CC7B14E535FC4BBFC93D24B757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306621   (554773) от 10.06.2019
-
-БэдКомедиан / BadComedian (2011-2019) WEB-DLRip [H.264] (серии 1-140 из ХХХ) [MP4|736x480/1920x1080] (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554773.jpg" />
-</div>
-
-
-###  Подробнее
-
-BadComedian — псевдоним Евгения Баженова и название его основного канала на YouTube. Псевдоним является сочетанием имени персонажа Комедиант из фильма «Хранители» и слова «плохой», подразумевающего, что Баженов считает свои обзоры более саркастическими, нежели юмористическими. Создаёт критические обзоры, в основном на российские фильмы, реже — на зарубежные.
-
-Раздача (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Евгений БаженовЯзык озвучки: русскийСубтитры: русские, украинские, английские (отдельными файлами)Продолжительность: ~62:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2512EDDC3F3E9A4B3BE49A97BA1937DDE074217D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307568   (554771) от 10.06.2019
-
-VA - This Merry Planet - Space Voyage #1 (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Schaltkreis Wassermann - Space Shuttle (12'' Maxi Version) (04:41)
-02.Oliver's Planet - Planetarium (10:22)
-03.Angella Dean - World X (05:03)
-04.Michael Stearns - Craft (Dimensional Release) (06:29)(   Читать дальше...   )Жанр: Electronic, Synth-pop, AmbientПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A3573D333E53B3F027750FA91BE8B51CE76262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307532   (554770) от 10.06.2019
-
-Блуждающая Земля / Liu lang di qiu (The Wandering Earth) (2019) WEB-DL [H.265/1080p] [MVO]
-
->>След.
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554770.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ближайшем будущем становится известно, что Солнце скоро погаснет, и Солнечная система будет разрушена. Тогда человечество запускает масштабный проект под названием «Блуждающая Земля», цель которого - с помощью сложных технических приспособлений сдвинуть Землю и полететь искать новое пристанище.Производство: Китай /  Beijing Jingxi Culture & Tourism Company, China Film Company LimitedЖанр: Фантастика, БоевикРежиссер: Франт ГвоАктеры: Джеки Ву, Цюй Чусяо, Ли Гуанцзе, Нг Ман-Тат, Чжао Цзиньмай, Цюй Цзинцзин, Чжан Ичи, Ян Хаоюй, Аркадий Шароградский, Ли ХунчэньПеревод: Профессиональный многоголосый (HDRezka Studio, КОЛОБОК), Авторский (Андрей Дольский)Субтитры: Русские (форс., полные), Английские (полные, SDH), Китайские (2 вида)Продолжительность: 02:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B575F5F6FAD95A3D7581E127D0E5456D754F575B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236213   (554765) от 16.07.2018
-
-Alkoholizer - Drunk or Dead... (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Sun of the Endless Night - Life... a Tragedy Tainted by Malevolence (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro #01:49
-02. Pay With Your Blood #03:42
-03. Sardinian Beer #03:18
-04. Age of Misery #02:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:31:25
+01.Open Skies closed Minds 01:52
+02.Who let the Night in? 02:36
+03.Where there is God there is Nothing 03:59
+04.Once upon a Death 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FAF235B2BC5887429B82F9373394466E38CCD00
+magnet:?xt=urn:btih:E523E28B6BB3EA5E188A9D6577342716AAF8B08B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236201   (554764) от 16.07.2018
+###  Публикация: 1556698   (557127) от 11.06.2022
 
-Autism - Interval (2016) Segment [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
+Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal, Metalcore>
 
->>Electronic
->>IDM (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. High^ (03:25)
-02. Home (feat. Minute Fourie) (03:25)
-03. Meaningless (05:07)
-04. Hurt (01:24)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:38:58
+1. How To Leave Painlessly
+2. Disintegrate
+3. Constrict
+4. Red Light Gossip(   Читать дальше...   )Жанр: Post-Hardcore, Alternative Metal, MetalcoreПродолжительность: 00:35:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE842D36B825F0DAEBB0CDDF2CBBA79414AF0064
+magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,24 +111,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236045   (554763) от 16.07.2018
+###  Публикация: 1556771   (557126) от 11.06.2022
 
-Joachim Kuhn New Trio - Love & Peace (2018) ACT [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Irdorath - Gotterdammerung MMXXII (2022) [FLAC|Lossless|tracks] <Black Metal>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_554763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Love and Peace [2:00]
-02. Le Vieux Chateau [4:13]
-03. The Crystal Ship [3:20]
-04. Mustang [5:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:38
+01 - Der flammen Preis (00:03:00)
+02 - Windgeist (00:03:36)
+03 - Form des Todes (00:06:01)
+04 - Bald ersaeuft die Menschenbrut (00:03:33)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EB5CC23B1933A54347DC460D8ED49499B75C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556693   (557125) от 11.06.2022
+
+Kardashev - Liminal Rite (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Deathcore, Atmospheric>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. The Approaching of Atonement
+2. Silvered Shadows
+3. Apparitions in Candlelight
+4. Dissever(   Читать дальше...   )Жанр: Death Metal, Post-Metal, Progressive Metal, Deathcore, AtmosphericПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B3C830AAE81D8FA2BFBA6471EED26788FC32F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556765   (557124) от 11.06.2022
+
+Amethyst - Time Of Slaughters (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Pandemonium (instrumental)01:38
+02.Subversive Mind 06:21
+03.Time of Slaughters 05:17
+04.Entrapped 05:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B246F699A27FAD09593E364F27DB53C4625EB901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556843   (557123) от 11.06.2022
+
+AudioLab v1.2.95 Mod by Alex.Strannik [Ru/Multi]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+AudioLab является наиболее передовым, современным, быстрым, профессиональным аудио редактором, который имеет все функции, которые вы хотели бы когда-либо.Тип издания: Пиратка (В модификации получен PRO, удалена аналитика и реклама)Релиз состоялся: 27.04.2022Разработчик: HitroLabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
 
 ## Скачать торент
 ```bash
@@ -429,27 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236221   (554761) от 16.07.2018
+###  Публикация: 1556680   (557122) от 11.06.2022
 
-Наталия Черных | Подвижницы. Святые женщины нашего времени (2016) [FB2, PDF]
+NateWantsToBattle - The Critical Hits (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Pop Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Во времена гонений, когда число священников сократилось до минимума, именно женщины стали проводниками христианства. Матери, сестры, помощницы, нянечки, соседки — эти женщины сохраняли, растили и кормили Церковь.
-
-Эта книга — о таких женщинах-подвижницах XX века, их судьбах и характерах. Героини рассказов теперь считаются великими старицами и стали объектами всеобщего (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+1. Hero of Our Time
+2. The Evil King
+3. Drowning
+4. Mangled(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Pop RockПродолжительность: 01:21:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A606800235133432FAE4DC1D492275F17A2BD368
+magnet:?xt=urn:btih:0D5F6E084D71ABCFAED2165A11977F67E3D5EC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,28 +253,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236198   (554760) от 16.07.2018
+###  Публикация: 1556801   (557121) от 11.06.2022
 
-Pressure Of Speech - Art Of The State (1994) North South [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental, Ambient>
+Ларс Браунворт | Морские волки. История викингов (2022) [MP3, Владимир Овуор]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Reverberations (02:13)
- 02. Paralaxx (07:05)
- 03. Jah-eli (03:38)
- 04. A-Morphic (04:36)(   Читать дальше...   )Жанр: IDM, Techno, Experimental, AmbientПродолжительность: 01:03:46
+В 793 г. н. э. норвежские воины напали на английский остров Линдисфарн и полностью его опустошили. Волна за волной скандинавские «морские волки» следовали за добычей, землей или славной смертью в битве. Большая часть Британских островов пала под их мечами, а континентальные столицы Париж и Аахен были по очереди разграблены. Повернув на восток, они плыли по неизведанным (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно об историиПродолжительность: 09:26:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1318F4AD65CDAC85E1007A4342FF71451B7E3F2
+magnet:?xt=urn:btih:66F8E555CFC70ADA7895C28AB33B201DDD0DA47E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,25 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235436   (554759) от 16.07.2018
+###  Публикация: 1556701   (557120) от 11.06.2022
 
-Жан Расин | Сочинения [2 тома] (1937) [DJVU]
+Secrets - The Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Жан Расин (1639 - 1699) - знаменитый французский драматург XVII в., "самый образцовый поэт классицизма", как определил его современник, известный теоретик классицистического направления Никола Буало. Его творчество представляет собой вершину французского классицистического театра. В первый том вошли трагедии и комедии "Андромаха", "Сутяги", (   Читать дальше...   )Жанр: История, искусство, прозаФормат: DJVU
+1. The Collapse
+2. Get Outta My Head
+3. Falling Out
+4. Parasite(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:37:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0314D38EA723F7D42C0957A8F707F9AE4373CDB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,25 +308,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236242   (554758) от 16.07.2018
+###  Публикация: 1556642   (557119) от 11.06.2022
 
-Kinza Browser 4.8.2 [Multi/Ru]
+The Silverblack - Judgment (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Modern Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Kinza Browser - японский браузер на базе Chromium с дополнительными настройками, такими как жесты мышью, супер перетаскивание, управление поведением вкладок, многофункциональная боковая панель (закладки, RSS, история).Язык интерфейса: Русский, Английский, другие
+1. Judgment (feat. Burton C. Bell from Fear Factory)
+2. Punishment
+3. A Lifetime Ago
+4. Chasing Ghosts(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:38:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94FFD27937215676D5745D077E1F10ED5AEDB164
+magnet:?xt=urn:btih:21FA57BD7913065C00BFF1FDD1EC79F1418F52DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,143 +337,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236055   (554757) от 16.07.2018
+###  Публикация: 1556478   (557118) от 11.06.2022
 
-VA - Ketnet Hits - Summer Edition (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554757.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01
-01. Regi - Ellie (feat. Jake Reese)
-02. Lost Frequencies & James Blunt - Melody
-03. Niels Destadsbader - Verover Mij (Uit Liefde Voor Muziek)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D321DF571ABB6AC6C0E773AA17FBA45A64CFBF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236157   (554756) от 16.07.2018
-
-VA - Split Dimension 1-3 (2011, 2012) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keen K - Ouverture Imaginaire (4:13)
-02. Keen K - Touch Me (3:32)
-03. Keen K - Night Dancer (4:24)
-04. Keen K - Metaphysical (3:27)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Electro, Synth-popПродолжительность: 01:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAB9E96443A2A9FF46B40E53D63EC66B37FD0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236229   (554754) от 16.07.2018
-
-Владимир Максимов | Снег, уходящий вверх… (2016) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554754.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новую книгу известного сибирского прозаика Владимира Максимова вошли повести и рассказы разных лет. Но все вместе они создают удивительную и своеобычную картину жизни Восточной Сибири, так похожую и непохожую на жизнь Европейской России…
-
-Здесь и романтика юности, жажда познания мира и самих себя, охватившие героев повести «Мы никогда уже не будем молодыми» – сотрудников (   Читать дальше...   )Жанр: Современная русская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11DDE56800F01ED945003474AB32E453DE870BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236279   (554753) от 16.07.2018
-
-Yura Yura - 2 Albums (2013-2016) Hands Productions [FLAC|Lossless|tracks+.cue] <Industrial, Rhythmic Noise, Tribal, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helm (02:04)
- 02. Cavale (05:20)
- 03. Paoma (05:42)
- 04. Nigra (07:02)(   Читать дальше...   )Тип издания: CD •Жанр: Industrial, Rhythmic Noise, Tribal, Experimental •Продолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2986391999D3C0060C5A95ACD6612FBDA5C3AED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236123   (554752) от 16.07.2018
-
-Anna Tatangelo - Ragazza di periferia (2007)  [FLAC|Lossless|tracks + .cue] <Pop>
+Bee Gees - Idea (1968) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Essere una donna Mastered (4:03) bonus track
-02. Colpo di fulmine (3:30) bonus track
-03. Quando due si lasciano (3:35)
-04. Dimmi dimmi (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:00
+01. Let There Be Love (3:35)
+02. Kitty Can (2:42)
+03. In The Summer Of His Years (3:13)
+04. Indian Gin And Whisky Dry (2:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DB52E64EED0E602B6CE41DA84E195A715CE3C08
+magnet:?xt=urn:btih:752C312B6E44B77F1596D3A191CA8D3DAC095307
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,27 +366,364 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236335   (554751) от 16.07.2018
+###  Публикация: 1556878   (557117) от 11.06.2022
 
-А. М. Носков | Скандинавский плацдарм во второй мировой войне (1977) [DJVU]
+To/Die/For - Cult (2015) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
->>Научная и техническая литература
->>Историческая литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В книге исследуются стратегическое и экономическое значение скандинавского плацдарма во второй мировой войне, борьба за него империалистических группировок, анализируются особенности боевых действий в условиях Заполярья и приморского театра военных действий.
-
-Основываясь на большом фактическом материале, в том числе на новых документах из зарубежных архивов, автор (   Читать дальше...   )Жанр: История, политология, экономика, дипломатияФормат: DJVU
+To/Die/For — финская готик-метал-группа. Основана в 1996 году под названием Mary-Ann, с 2000 года стала называться To/Die/For (умереть за...)01. In Black
+02. Screaming Birds
+03. Unknown III
+04. Mere Dream(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA531C0E5789C700D19EA5E4C907C10DA7F47BE1
+magnet:?xt=urn:btih:B8D6D3A7E2493CC64A997DF34C503EC765C1709B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556692   (557116) от 11.06.2022
+
+Future Palace - Run (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Paradise
+2. Dead Inside
+3. Flames
+4. Locked(   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C745A3A03124C8F7EBAFDF862A01CA1A4C7EBB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556691   (557115) от 11.06.2022
+
+FALSET - Monarch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+1. Monarch
+2. Lullabies
+3. Medulla Oblongata
+4. Eyes of a Snake(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556689   (557114) от 11.06.2022
+
+Downset - Maintain (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore, Rap Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Maintain
+2. Blackest Of Days
+3. New Respect
+4. Won't Forget(   Читать дальше...   )Жанр: Rapcore, Hardcore, Rap MetalПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537DFD509948406FF8E371AB2AE8E59FE2484A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556790   (557113) от 11.06.2022
+
+Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Prologue (00:01:35)
+02 - Behind The Shades (00:07:14)
+03 - Dreammaster (00:04:09)
+04 - Living The Dream (00:03:44)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636F667715888EF42EDA31F8C0076325A3E3729B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556817   (557112) от 11.06.2022
+
+Журнал | Popular Woodworking №265 (2022) [PDF][En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Журнал, посвященный столярному делу. Проекты, идеи, обзоры материалов и инструментов. Многочисленные идеи и проекты от создателей одного из популярнейших изданий для любителей столярного дела. Журнал является одним из основных ресурсом для энтузиастов работы с деревом, от среднего уровня мастерства до профессионалов в своем делеЖанр: Столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305343   (557111) от 30.05.2019
+
+Векторный клипарт - Vector Amphibians #05 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Земноводные
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27A27C800D9B4788E3C72525EC21FC8DA183619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305323   (557110) от 30.05.2019
+
+EdgeView 2 v2.788 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 2 - это новейший просмотрщик изображений; вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения; вы также можете напрямую подключиться к FTP и открывать файлы; EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2019Разработчик: DONGJIN HANПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8BC0D7C566C2A5F310F3778CBFB46FB8CD3721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305234   (557109) от 30.05.2019
+
+А. М. Минасян | Диалектика и софистика [опыт философской дискуссии] (1985) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В монографии доктора философских наук А. М. Минасяна с принципиальных позиций марксизма-ленинизма разоблачаются современные многочисленные софистические ухищрения буржуазной, ревизионистской идеологии, софистические фальсификации принципов материалистической диалектики. Последовательно вскрывается научная несостоятельность софистики во всех сферах современной идеологической (   Читать дальше...   )Жанр: История, науковедение, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC7AAA36727A2A0091CD24FE587D9C74BE044CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305302   (557108) от 30.05.2019
+
+VA - Diary Of The Setting Sun (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Lounge Pilots - Any Lounge Color
+002. Molda Sensa - Trawler
+003. Moby - The Waste Of Suns
+004. Too Ugly - Gold Coast(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 09:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB328C4C4F93D967CD93AFB78F05EF96172F00A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305378   (557107) от 30.05.2019
+
+Векторный клипарт - Vector Animal Collection #70 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A435073145DF1ABD9150C6119724BC7F01BD175F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305357   (557106) от 30.05.2019
+
+Векторный клипарт - Vector Animal Collection #67 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176A411B6AAD8D3589BE2BDFC178D1AA3C4EFF00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305303   (557105) от 30.05.2019
+
+VA - Cyberspace: Techno Electronic Mix (2019) [MP3|320 Kbps] <Electronic, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Unifire - Bang The Underground
+02. Wasted Penguinz - Not That Easy
+03. Diginsect - Shadowblast (Original Mix)
+04. Gal Tsadok-Hai - The Green Eden(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 08:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BF7B15AF6ACFDB243872138C1A4B6FB76B18E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

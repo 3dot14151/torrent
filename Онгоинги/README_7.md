@@ -1,3 +1,55 @@
+###  Публикация: 1806454   (692) от 27.09.2025
+
+Tougen Anki | Legend of the Cursed Blood | Тёмный демон [2025, TV, 12 из 24 эп.] WEBRip 720p raw
+
+>>След.
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В незапамятные времена демоны-óни безжалостно терроризировали невинных людей, пока не родился на свете герой Момотаро, посланный Небесами. Так гласит легенда. Однако, пусть это и звучит как сказка, на самом деле история Момотаро реальна. К сожалению, герою не удалось извести всех демонов, но его благородное дело продолжили его потомки, унаследовавшие вместе (   Читать дальше...   )Производство: студия Studio Hibari / スタジオ雲雀Жанр: приключeния, фэнтезиРежиссер: Нонака АтоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FFD722EBFA37EB715EDA0F7474B113457366A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805694   (669) от 27.09.2025
+
+Yofukashi no Uta Season 2 | Песнь ночных сов [ТВ-2] [2025, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Коу преодолевает свое замешательство по поводу становления вампиром и решает «понравиться» Назуне, в то время как Назуна решает заставить Коу «влюбиться» в нее. Не понимая даже, что такое «любовь», они проводят ночи вместе в безумии. Тем временем детектив Угуису Анко приближается к своему заговору по убийству вампиров, а не только Назуны. Слабость вампира — это «все, (   Читать дальше...   )Производство: LIDENFILMSЖанр: комедияРежиссер: Итамура ТомоюкиПеревод: AlvakarpЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17F4597F756B3FB0347EC21B35592FCFF2D2F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805248   (664) от 27.09.2025
 
 Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX Baтapи-кyнa нa гpaни кpaxa [2025, TV, 13 из 24] WEBRip 720p raw
@@ -6,7 +58,7 @@ Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Isekai Mokushiroku Mynoghra / Apocalypse Bringer Mynoghra / Апокалипси
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Kaijuu 8 Gou (2025) | Kaiju No. 8 (2025) | Кайдзю номер 8 [ТВ-2] [2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Game Center Shoujo to Ibunka Kouryuu / Cultural Exchange with Game Center Girl /
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Seishun Buta Yarou wa Santa Claus no Yume o Minai / Этот глупый сви
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +217,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +244,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шальной �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

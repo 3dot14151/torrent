@@ -1,3 +1,57 @@
+###  Публикация: 1310434   (769049) от 27.06.2020
+
+Алые Паруса-2019. Выпускной бал в Санкт-Петербурге (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Алые паруса» — праздник выпускников ленинградских школ, появление которого в конце 60-х навеяла невероятная популярность одноименного фильма по повести Александра Грина. Первый праздник состоялся 27 июня 1968 года. В этот день ленинградские школьники впервые увидели на Неве бригантину под алыми парусами, ставшую впоследствии эмблемой праздника.
+Традиция всем городом (   Читать дальше...   )Производство: Россия / Пятый каналЖанр: Музыкальный, ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFBCBDE2FAEBCE71C8B07343AF4488CC7A55AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310437   (769048) от 27.06.2020
+
+Алые Паруса-2019. Выпускной бал в Санкт-Петербурге (2019) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Алые паруса» — праздник выпускников ленинградских школ, появление которого в конце 60-х навеяла невероятная популярность одноименного фильма по повести Александра Грина. Первый праздник состоялся 27 июня 1968 года. В этот день ленинградские школьники впервые увидели на Неве бригантину под алыми парусами, ставшую впоследствии эмблемой праздника.
+Традиция всем городом (   Читать дальше...   )Производство: Россия / Пятый каналЖанр: Музыкальный, ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFD20F1B63DF02F1FFBB96172203120DAEDF275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393004   (768944) от 28.06.2020
 
 МОТ - Концерт на платформе МТС Live (2020) WEBRip [H.264/1080p-LQ]
@@ -6,7 +60,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +193,7 @@ Depeche Mode - Live Spirits / Spirits in the Forest (2020) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +219,7 @@ King Diamond - Songs for the Dead Live (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +245,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +298,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +327,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +356,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +385,7 @@ Alestorm - Концерт в Тилбурге / Alestorm - Live in Tilburg (2021
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +414,7 @@ Karnivool - Концерт в театре Хита Леджера / Karnivool -
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +440,7 @@ Epica - Концертное шоу Omega Alive / Epica - Omega Alive (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -445,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +608,7 @@ A MusiCares' Tribute to Paul McCartney (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +638,7 @@ Mylene Farmer - Avant que l'ombre... A Bercy (2006) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +696,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -656,66 +710,6 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E9849628C114DD2FC20175257516C2B971B051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887013   (758984) от 12.04.2015
-
-A MusiCares Tribute to Barbra Streisand (2012) BDRip [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия концерта, состоявшегося 11 февраля 2011 года в Лос-Анджелесе, и посвященного Барбре Стрейзанд, которая на только что завершившейся церемонии Грэмми была объявлена персоной года.
-«Персона года» — престижная награда благотворительной организации «MusiCares», учрежденной «Американской академией звукозаписи» в 1989 году. Присуждается ежегодно (с 1991 года) за выдающиеся заслуги в музыке и активную благотворительную деятельность.За образ диска благодарим PeterGriffin01. Down With Love / Get Happy/ Make Someone Happy – Diana Krall
-02. Guilty – Seal
-03. Somewhere – Leona Lewis
-04. On a Clear Day (You Can See Forever) / Lazy Afternoon – Herbie Hancock and Nikki Yanofsky
-05. My Man – Lea Michele(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F707DDB94381557D802071A49A5ACFBA1ABB182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887644   (758862) от 12.04.2015
-
-Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся 12 апреля 2013 года в Teatro Caupolicаn в Сантьяго (Чили) в рамках "Сталинград" тура... Группа Accept - один из ведущих коллективов западногерманского металла, на ряду со Scorpions продвинули немецкий рок и метал к международным чартам..[01] Intro
-[02] Hung, Drawn And Quartered
-[03] Hellfire
-[04] Restless And Wild(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4BB837737C01887A9B316DAE4C8E7919A56AE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

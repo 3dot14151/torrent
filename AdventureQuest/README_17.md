@@ -1,3 +1,107 @@
+###  Публикация: 1375852   (861456) от 16.04.2020
+
+Sunwards (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Sunwards — это сложная приключенческая игра основанная на снах, которые всегда появляются во время борьбы с депрессией. Впечатления от некоторых снов фрагментируются в памяти, и объединяются, чтобы в седующий раз сформироваться в единый уникальный мир – сон волшебника. У каждого человека в сердце живет свой волшебник, это фантастическое и грустное путешествие в мире (   Читать дальше...   )Тип издания: RepackРазработчик: 黑鸦BlackCrowЖанр: Adventure, Action (Slasher), RPG, 3rd Person, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806874984655672AA72EF91C4935BE6A1CAA9C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498057   (859350) от 25.09.2021
+
+The Plane Effect (2021) [Ru/Multi] (1.01.2166) License DOGE
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Изометрическое приключение в антиутопии: одинокий офисный работник пытается вернуться домой и сталкивается с непреодолимыми препятствиями. Эта необычная игра создана экспертами по спецэффектам и отличается чудесной графикой. Сегодня Ваш последний рабочий день. Пора покинуть рабочее место и вернуться домой, но в Вашу жизнь вторглась космическая аномалия сверхъестественной (   Читать дальше...   )Тип издания: LicenseРазработчик: Innovina/StudioKikuЖанр: Adventure, PuzzleЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D255A23DE3D6C8AE0A5EE5706C6EFD81F3207FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498139   (859348) от 25.09.2021
+
+Sable (2021) [En] (3.2.9) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в незабываемое путешествие вместе с Сэйбл, скользите через бескрайние пустыни и завораживающие пейзажи, осматривайте остовы космических кораблей и открывайте для себя чудеса древних цивилизаций. Исследуйте пустыню, оседлав верный ховербайк, взбирайтесь на занесённые песком монументальные руины и встречайтесь с другими кочевниками, раскрывайте давно (   Читать дальше...   )Тип издания: LicenseРазработчик: ShedworksЖанр: Adventure, Puzzle, Platformer, RacingЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A7BEB0C9724290236F7BB8603EBB14B2CC51D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162951   (859242) от 25.09.2021
+
+Black Mirror 3: Final Fear / Черное зеркало 3 (2011) [Ru/Multi] (1.01) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие заключительной части полюбившейся многим серии «Черное зеркало» начинается сразу же после неожиданного финала предыдущей игры. Еще совсем недавно Даррен Майклс был тихим продавцом в сонном городке Новой Англии. Сейчас же он преступник, почти не отдающий себе отчета в происходящем, когда за тысячи километров от дома полицейские наручники смыкаются на его (   Читать дальше...   )Тип издания: LicenseРазработчик: Cranberry ProductionЖанр: Приключение, Квест, ХоррорЯзык озвучки: Английский, Немецкий, ЧешскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14DA251AB7C86C40FDF606CDCDC90D951624F3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000453   (858852) от 25.03.2016
 
 Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1.7.5.808) Repack R.G. Catalyst
@@ -6,7 +110,7 @@ Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Addams Family: Mansion Mayhem / Семейка Аддамс: Переполох 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Biped (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Count Lucanor (2016) [En/Multi] (1.0.16) Repack ARMENIAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En] (1.0.8767.0) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Ni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack R.G.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Hero of the Kingdom: The Lost Tales 1 (2020) [Ru/Multi] (1.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ I Saw Black Clouds (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Terrarium Land (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ NightCry (2016) [En/Jap] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Shattering (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Impostor Factory (2021) [Ru/Multi] (7455447) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Amigdala (2016) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Layers of Fear (2016) [Ru/Multi] (5.1.3.48304/upd 2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Layers of Fear - жуткий психологический триллер, с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF0016BB37C870596FFAC0B68727450BB104CED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002810   (846202) от 01.04.2016
-
-Adam's Venture: Origins (2016) [Ru/Multi] (1.0) License CODEX
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в рискованное путешествие в игре Adam’s Venture: Origins! Действие игры разворачивается в бурные 20-е годы. Вместе с помощницей Эвелин вам предстоит исследовать древние развалины, искать таинственные артефакты, а самое главное - обойти злодейскую компанию Clairvaux.Тип издания: LicenseРазработчик: Vertigo GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8BCEFBC96BAF1E6DFC3B589C99BBB655CBA0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499741   (845817) от 03.10.2021
-
-Dap (2021) [En] (1.0.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческий хоррор о сборе и защите стай хрупких существ под названием Daps. Проведите своих Daps в безопасное место в устрашающе красивом мире, отбиваясь от различных угроз, решая головоломки и избегая инфекции, которая превращает Ваших товарищей во что-то инопланетное и устрашающее. Исследуйте атмосферный пиксельный мир, ведя своих Daps через проницаемое царство (   Читать дальше...   )Тип издания: LicenseРазработчик: Melting ParrotЖанр: Horror, Adventure, Action, CraftingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF92EC03BA420CFEA083A7D92B3811781541C3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499700   (845815) от 03.10.2021
-
-Meridian 157 (2019-2021) [Ru/Multi] (1.0.6/1.0.6/1.0.6.0/1.0.3.0) Repack Other s [Prologue, Chapter 1-3]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Meridian 157 — это тетралогия, сфокусированная на занимательных головоломках, захватывающих визуальных эффектах и увлекательной сюжетной линии, где вы играете в роли детектива Дэвида Зандера.Тип издания: RepackРазработчик: NovaSoft Interactive Ltd.Жанр: Adventure (Point & Click), Puzzle, Logic, CasualЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B893D8CF05B9D4EA253F50B7419249A04BC967F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003212   (844734) от 02.04.2016
-
-Heaven's Hope (2016) [En/De] (1.0) License CODEX [Special Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heaven's Hope рассказывает историю ангела Талореля, который в буквальном смысле свалился с неба. Он оказался на Земле 19 века неподалеку от городка Надежда Небес, потеряв свой ореол и крылья. Теперь ему предстоит найти способ вернуться домой. Но наш мир чужд Талорелю, и ему нужна помощь старых друзей с небес и новых неожиданных спутников, которых он встретит во время (   Читать дальше...   )Тип издания: LicenseРазработчик: Mosaic Mask StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593DE1CD83028A4FEFCFB4C65CFFE73D23F82C4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

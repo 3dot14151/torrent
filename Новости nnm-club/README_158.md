@@ -1,3 +1,187 @@
+###  Публикация: 932332   (508756) от 29.08.2015
+
+Acronis True Image 2016 19.0 Build 5576 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48DC892877094841EA9F4888B9F31CA02ABA2DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932325   (508748) от 29.08.2015
+
+Reg Organizer 7.20 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561A6F2417886E26ADE98A90C8B22A7BA53183CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932329   (508747) от 29.08.2015
+
+VMware Workstation 12 Pro 12.0.0 build 2985596 RePack by KpoJIuK [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FBFEC8C4B57D3B3DC42BEA55F9DFDA588E8B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932533   (508746) от 29.08.2015
+
+Microsoft Office 2016 Professional Plus Preview 16.0.4229.1020  (x86-x64) by Ratiborus 2.9 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866333D3F030EAD0920DF5D7638388B987745279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932577   (508738) от 29.08.2015
+
+Adobe Photoshop CC 2014.2.3 (20150807.r.342) RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2014 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B402A31248CD06D399D196D6B192D63084DD70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538756   (508123) от 24.08.2012
+
+Dark Souls: Prepare To Die Edition [Ru] (RePack) 2012 l kuha
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Dark Souls – новая ролевая игра от компании FromSoftware, создавших игру Demon’s Souls. В Dark Souls вы встретите множество знакомых элементов: вселенная в стиле "темного фэнтези", мрачные подземелья, сражения с наводящими ужас врагами и уникальные возможности взаимодействия с другими игроками. Dark Souls – это не прямое продолжение Demon's Souls, а скорее духовный наследник игры. Приготовьтесь увидеть новый, погрузившийся в отчаяние мир, который вы сможете свободно исследовать. Приготовьтесь услышать новую, загадочную историю, сюжет которой развивается вокруг королевской короны и угасающего пламени в сердце мира. Но прежде всего, приготовьтесь умереть. Вас ждет множество смертельных ловушек, полчища гротескных монстров, невероятно могущественные демоны и драконы. Чтобы справиться с испытаниями этого неумолимого мира, вам придется учиться на смертельных ошибках. Но вы будете не одни. В Dark Souls в вашем мире могут появляться души других игроков, чтобы вы могли учиться на их неудачах, а они, в свою очередь, на ваших. К тому же вы сможете призывать игроков или вторгаться в чужие миры, чтобы сражаться в PVP-битвах. В Dark Souls есть костры, которые играют роль точек сохранения. Во время отдыха у костра ваше здоровье и мана восстанавливаются, а все враги возрождаются. Помните: в Dark Souls нет ни одного по-настоящему безопасного места. По мере прохождения игры уровень сложности будет повышаться, так что Dark Souls станет для вас самым серьезным игровым испытанием в этом году. Сможете ли вы пережить тысячи смертей и увековечить свое наследие?(   Читать дальше...   )Тип издания: RePackРазработчик: FromSoftwareЖанр: Action / RPG / FantasyЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F7D3361DD7A49CFDE617590B49C9C36A5E6E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538746   (508107) от 24.08.2012
+
+Ubuntu 12.04.1 LTS [i386 + x86-64] (2xDVD)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кейт Стюарт (Kate Stewart) объявила о выпуске Ubuntu 12.04.1, первом из регулярных планируемых обновлений в  течение всего жизненного цикла продукта Ubuntu LTS:
+
+Команда Ubuntu рада объявить о выпуске Ubuntu 12.04.1 LTS (Long-Term Support) для версий  рабочего стола , сервера, облака. В релизе добавлена поддержка Calxeda ECX-1000 семейства SoC. Внесены также обновления в ряд приложений.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515440   (508102) от 24.08.2012
 
 Рухнувшие небеса / Сошедшие с небес / Falling Skies (2012) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) LostFilm
@@ -6,7 +190,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_507890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -89,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +352,7 @@ Bitdefender Total Security 2015 19.2.0.151 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_507725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -225,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -251,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -277,7 +461,7 @@ Kholat (2015) [Ru/Multi] (1.01) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +487,7 @@ Nvidia DriverPack v.431.60 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_506849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,190 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933033   (506781) от 31.08.2015
-
-VIA High Definition Audio Driver 6.0.11.1000 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506781.jpg" />
-</div>
-
-
-###  Подробнее
-
-VIA Vinyl HD Аудио кодеки представляют собой новое поколение качества звучания с поддержкой высокой четкости HD Аудио стандарта и объемного звука. VIA Vinyl High Definition audio кодек, совместим с технологией Intel High Definition Audio и поддерживает стерео 24-битным разрешением и до 192 кГц частоты дискретизации для ЦАП/АЦП.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A937CF25C2BC9F3C63ED296A94A5B7B0A3A7D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933272   (506780) от 31.08.2015
-
-AusLogics BoostSpeed 8.0.2.0 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960DC3A606D49F06E3F7743830082F7563BEFCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908275   (506773) от 31.08.2015
-
-Чёрная материя / Тёмная материя / Dark Matter (2015) WEB-DLRip (сезон 1, серии 1-13 из 13) BaibaKo
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экипаж заброшенного космического корабля пробуждается от анабиоза, без воспоминаний о том, кто они и как они поднялись на борт. Сталкиваясь с угрозами на каждом шагу, они должны работать вместе, чтобы выжить. Их путешествие наполнено местью, предательством и скрытыми тайнами.Производство: КанадаЖанр: фантастикаРежиссер: Рон Мерфи, Т.Дж. Скотт, Паоло БарзменАктеры: Марк Бендавид, Мелисса О’Нил, Энтони Лемке, Алекс Маллари мл., Джоделль Ферланд, Роджер Р. Кросс, Зои Палмер, Дэвид Хьюлетт, Джессика Сайпос, Расселл Юэнь и др.Перевод: Многоголосый профессиональный (BaibaKo)Озвучка: Елена Григорьева, Юлия Котурбаш, Олекса Мельник и Артемий МиронПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C591381CAA35EC33542CB0998C1BCDDA4AA2195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711245   (506772) от 31.08.2015
-
-Клуб Винкс / Winx Club (2013) WEB-DLRip/HDTVRip (Cезон 6, серии 1-26 из 26)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы еще не успели соскучиться по новым эпизодам с невероятными приключениями шестерки фей Винкс? Тогда спешим обрадовать! Они уже соскучились по Вам и начали новый сезон увлекательнейшего мультипликационного сериала о волшебстве и приключениях, об опасностях и загадках!
-В новом сезоне фей Винкс ждет особенное испытание - легенды и сказания! Если раньше волшебницы (   Читать дальше...   )Жанр: Мультсериал, Анимация, Приключения, ФэнтезиПеревод: Любительский (закадровый, многоголосный)Продолжительность: Каждая серия ~ 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D1AD490F126CE158AA0ADBFFA60BBB7C340A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293694   (506720) от 25.07.2019
-
-Загадки Египта / Egypt's Unexplained Files (2018) HDTVRip [H.264/1080p-LQ] (серии 10 из 10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний Египет - одна из величайших цивилизаций, насчитывающая 3000 лет истории. С помощью новейших технологий мы изучим самые упрямые загадки Египта.Производство: Великобритания, 360 Production, TSB Media Rights ProductionЖанр: Документальный, история, исследованияРежиссер: Имоджен Ашпорт, Сара Хант, Алекс ВудПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631B29A6BF5A40E35C9CF4381AC251279B53BD28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316411   (506706) от 25.07.2019
-
-Adobe Premiere Pro CC 2019 13.1.4.2 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2019 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425F6F42A356EED51D2BC9C9B2DF1565971791D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409593   (506174) от 26.08.2012
-
-Цель - Луна / Moonshot (2009) [720p] BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506174.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июля 1969 года человек впервые ступил на лунную поверхность. Этот фильм — грандиозная реконструкция одного из самых незабываемых событий человеческой истории. Миллиарды людей по всему миру, затаив дыхание, следили за опасной миссией космического корабля Apollo 11, завершившейся абсолютным триумфом.
-На фоне хорошо известных фактов миссии Apollo 11 в картине разворачивается (   Читать дальше...   )Жанр: Докудрама, драмаРежиссер: Ричард ДэйлАктеры: Джеймс Марстерс, Эндрю Линкольн, Урсула Бертон, Дэниэл Лапэйн, Уильям Хоуп, Анна Максвелл Мартин, Колин Стинтон, Майкл Дж. Рейнольдс, Найджел Уитми, Ричард Диллэйн, Коша Энглер, Тревор Уайт, Йен Портер, Мартин МакДугалл, Дженнифер Вудворд, Натан Нолан, Патрик Полетти, Келли Керслэйк, Каллум МаруллоПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7661F64D69EA9F47845230AA57FE51EC90B9A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1499393   (58730) от 24.04.2024
+
+INDUSTRIA (2021) [Ru/Multi] (1.3.2) License GOG
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+INDUSTRIA – шутер от первого лица, который переносит вас из Восточного Берлина в параллельную реальность незадолго до окончания холодной войны. В поисках пропавшего коллеги по работе вы раскрываете тёмное прошлое мистического и сюрреалистического мира стимпанка.Тип издания: LicenseРазработчик: BleakmillЖанр: Action, Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533F5A930691CA221FAA3A6425210B25A27DF4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718525   (58574) от 25.04.2024
+
+Rise of the Triad: Ludicrous Edition (2023) [Multi] (11830638) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Rise of the Triad: Ludicrous Edition – эпическая реинкарнация культового шутера 90-х годов, который привносит в мир игр невиданный взрыв черного юмора и смертельно захватывающих перестрелок. События разворачиваются в закатах 20 века, когда ваша корпорация получает тревожные сообщения о таинственной организации, спасшейся от кары в 40-х и теперь, зловеще улыбаясь, (   Читать дальше...   )Тип издания: RepackРазработчик: Nightdive Studios, Apogee Software, New Blood InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830154EA4F7DDEC8CFECA53B1A646285E9B4D154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768774   (58527) от 26.04.2024
+
+Return to Castle Wolfenstein (2001) [Ru/En] (1.42c) Rip R.G. Механики
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие Return To Castle Wolfenstein разворачивается в 1943 году во время Второй Мировой Войны, когда Третий Рейх любой ценой пытался повернуть ход войны в свою пользу. Немецкие специалисты из секретных подразделений СС ставили жестокие эксперименты над людьми, пытаясь использовать магию и науку в одном флаконе. Самым масштабным проектом нацистов стала операция (   Читать дальше...   )Тип издания: RepackРазработчик: Gray Matter Studios и Nerve SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C76C6D8350B8CB56CE3DE86F9A674C7EF92E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675952   (58518) от 26.04.2024
+
+Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Динамичный жесткий шутер от первого лица перенесет вас в кибер-город будущего Парадайз. Джонни Турбо, наполовину человек, наполовину машина, предстоит очистить город от андроидов, которыми управляет передовой искусственный интеллект Син, решивший захватить мировое господство. Остановите его здесь и сейчас, иначе человечество полностью исчезнет с лица Земли.Тип издания: SceneРазработчик: Trigger Happy InteractiveЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B32D7C6AC7C77154D040BA8CDCAA9A86382B96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718902   (58409) от 27.04.2024
 
 Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
@@ -6,7 +110,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Rise of the Triad (2013) [En] (1.5.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Unholy Village (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Soviet Soldier / История советского Солдата (2024) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Scene Rune [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Scene Tenoke [Alex Murphy Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack FitGirl [Apex Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ RIPOUT (2024) [Ru/Multi] (1.0:01) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ RIPOUT - это хоррор-шутер с режимом совместной �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:186466CF1388484970B125CF734D08B2EB048FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727716   (54514) от 03.06.2024
-
-BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) Repack FitGirl [Complete Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54514.jpg" />
-</div>
-
-
-###  Подробнее
-
-BioShock Infinite - продолжение атмосферного шутера с видом от первого лица, который повествует о события до первой BioShock. Игра перенесет вас в Америку 1912 года - в удивительный летающий город Колумбию. В роли сыщика Букера Де Витта вы займетесь поиском и спасением девушки Элизабет, которая обладает уникальными способностями. Выбраться из Колумбии, которая ежесекундно (   Читать дальше...   )Тип издания: RepackРазработчик: Irrational GamesЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Польский, Корейский и другиеЯзык интерфейса: Русский, Английский, Польский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C84D572ACB00353AF6C6F62F3D2069CA5170DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727492   (54512) от 03.06.2024
-
-Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Borderlands 2 - это приключенческий ролевой экшен, продолжающий сюжет оригинального Borderlands. С момента событий оригинальной игры прошло 5 лет. Мужчина по прозвищу Красавчик Джек, глава корпорации "Гиперион", присвоил себе заслуги Охотников за Хранилищем и объявил себя Диктатором Пандоры.Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Action (Shooter)Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD97F660F1A7B94D7CA418B6EA8054D8D905ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727773   (54438) от 04.06.2024
-
-Titanfall 2 (2016) [Ru/En] (2.0.11.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Titanfall 2 - соревновательный экшен с видом от первого лица в футуристическом сеттинге. В продолжении вас ожидают новые виды титанов и оружия, а также драматический сюжет, главной темой которого является связь между человеком и роботом. Главный герой - новобранец сил Ополчения. Он и его товарищи борются за независимость от «злой» корпорации IMC, которая уже долгие (   Читать дальше...   )Тип издания: RepackРазработчик: Respawn EntertainmentЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821256A5B3CFCBFA92E13BCF25867897F28FA47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727746   (54437) от 04.06.2024
-
-Crysis: Remastered (2020) [Ru/En] (1.2.0) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crysis Remastered - Вы суперсолдат Пророк, облаченный в нанокостюм и намеревающийся спасти человечество, используя самое смертоносное оружие на свете. Crysis сочетает в себе потрясающую графику и игровой процесс в жанре "песочницы", что делает его уникальным шутером.Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFA43CCACA4C1B448CA9DA021144136A41EEE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

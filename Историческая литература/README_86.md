@@ -1,3 +1,85 @@
+###  Публикация: 1424185   (229365) от 16.11.2020
+
+Пётр Панкратов | Добрые люди. Хроника расказачивания (2013) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В книге Петра Панкратова «Добрые люди» правдиво описана жизнь донского казачества во время гражданской войны, расказачивания и коллективизации.
+
+Просто и безхитростно, не смакуя ужасы, автор рассказывает о событиях гражданской войны, ломке старой, устоявшейся за века, жизни казачества, о голоде, о «строительстве нового мира», а правильнее сказать, о выживании под (   Читать дальше...   )Жанр: ИсторияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626273D3ECC59E9C2913B60AB66DEA2BB0DC0E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341747   (228982) от 29.11.2019
+
+Николас Рейнольдс | Писатель, моряк, солдат, шпион. Тайная жизнь Эрнеста Хемингуэя, 1935–1961 гг (2020) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Полная история скрытой стороны жизни Хемингуэя, в том числе связь с советскими спецслужбами и такими американскими ведомствами, как ФБР, Госдепартамент, разведуправление ВМС и Управление стратегических служб, предшественник ЦРУ. Книга представляет собой литературную биографию, написанную в духе триллера.
+Она значительно расширяет существующие представления о загадочной (   Читать дальше...   )Жанр: БиографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766E2330C79D5A9AB50DC4DDF500AC741A34394F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586463   (228872) от 08.12.2012
+
+Сергей Лесной | История руссов. Славяне или норманны? [2012] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о происхождении русского государства и его культуры, вопрос становления Киевской Руси и возникновения Руси Новгородской, истоки славянской общности, языка и государственности, - вот главные темы, на протяжении многих лет интересовавшие русского эмигранта, биолога-энтомолога Сергея Яковлевича Парамонова (литературный псевдоним Сергей Лесной). В своих работах ("Слово о полку Игореве", "Откуда ты, Русь?", "Влесова Книга", "Пересмотр основ истории славян" и др.) он аргументированно, с привлечением многочисленных источников, разоблачает устоявшиеся мифы древней русской истории. Издательство предлагает вниманию читателей первый том самого известного труда С. Лесного "История руссов в неизвращенном виде", изданного в 10 выпусках за собственный счет автором в 1953-1960 гг. В настоящем томе С. Лесной исследует вопросы взаимоотношений Древней Руси с ее соседями - Византией и Скандинавией, истории призвания варягов на Русь и раннего христианства на Руси.
+Почему новгородцы (   Читать дальше...   )Формат: PDF интерактивное оглавление
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AFE1A230B26087F78B065559FCCADCEDC97322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236839   (228078) от 29.11.2019
 
 Тереза О'Нилл | Это неприлично. Руководство по сексу, манерам и премудростям замужества для викторианской леди (2018) [FB2]
@@ -6,7 +88,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -451,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -477,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -531,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -597,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04377A6452B96FD12731B3CB77B12C0F1D557160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513865   (218859) от 02.12.2021
-
-Книжная серия | Белое движение [18 книг] (2001-2006) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читателям предлагается серия художественной исторической прозы «Белое движение» от издательства «Астрель». Во все времена наиболее трагичными для государств и народов были события, связанные с внутренними политическими конфликтами. Не была исключением и Гражданская война в России 1917-1922 гг.
-Авторы книг исторической серии пытаются с позиции сегодняшнего дня ответить (   Читать дальше...   )Жанр: Военная история, Биографии и мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABCF77B7288671CA3C75F5329497CA4CE7637F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425894   (218387) от 22.11.2020
-
-Г.В. Майорова | Александр Васильевич Колчак: «Нет ничего выше Родины и служения Ей» (2016) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218387.jpg" />
-</div>
-
-
-###  Подробнее
-
-В несколько необычном изложении в книге рассказано о судьбе адмирала русского флота Александра Васильевича Колчака, известного в нашей истории полярного исследователя и учёного, мастера минного дела и строителя кораблей, командующего Черноморским флотом и Верховного правителя России, возглавившего Белую гвардию в годы Гражданской войны и расстрелянного большевиками (   Читать дальше...   )Жанр: История. Биографии и Мемуары. Документальная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4A7A6740A8021F215BFC270FCF9565E26BFED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 66227   (218329) от 02.12.2021
-
-Стивен Слейтер | Геральдика. Иллюстрированная энциклопедия (2005) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание представляет собой перевод с английского книги Стивена Слейтера «The Complete Book of Heraldry» с включением главы «Геральдика России», написанной заслуженным членом Всероссийского геральдического общества, герольдом Русской геральдической коллегии, членом Международного Консорциума по изучению церковной геральдики и сфрагистики (Люксембург), кандидатом (   Читать дальше...   )Жанр: Военное дело/Энциклопедия/ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FBBAE80B24C66DE227AC8C296EF4C0A784B44D
 ```
 
 https://mybot314.ru/tekegram_catalog/

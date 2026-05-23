@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1871353   (1069539) от 
+
+GstarCAD Professional 2021 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+GstarCAD - это программа для создания чертежей в формате DWG/DXF, ставшем общепринятым стандартом.Она является не только достойной заменой AutoCAD, но и по соотношению цена/качество отличной альтернативой распространенным российским и зарубежным «аналогам автокад» и САПР, таким как Bricscad, Btocad, Nanocad, progeCAD, ZWCAD, Infrasoftcad. Благодаря применению в GstarCAD (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4AE90781C5F5111BDEE552FC46F43334FC1591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870356   (1069197) от 
+
+KiCad 10.0.2 Portable by 7997 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+KiCad – уникальный в своем роде программный продукт, позволяющий открывать, создавать, разрабатывать электронные схемы для последующего вывода дизайна печатной платы в интерактивном просмотре. По сути, это целый комплекс программ, относящийся к отдельному классу EDA – Автоматизация проектирования электроники. Встроенные компоненты позволят не только создать, но также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576411DF2D6CD2850CC57B8B59FE514BD15D79C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870216   (1068651) от 
+
+KiCad 10.0.2 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+KiCad – уникальный в своем роде программный продукт, позволяющий открывать, создавать, разрабатывать электронные схемы для последующего вывода дизайна печатной платы в интерактивном просмотре. По сути, это целый комплекс программ, относящийся к отдельному классу EDA – Автоматизация проектирования электроники. Встроенные компоненты позволят не только создать, но также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD5B4ABECCF43528FA7A7CD02257A8531CF37F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867190   (1066798) от 
 
 KiCad 10.0.1 [Multi/Ru]
@@ -7,7 +85,7 @@ KiCad 10.0.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +111,7 @@ Autodesk AutoCAD Mechanical 2027 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +139,7 @@ AnyLogic Professional 8.9.8 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -89,7 +167,7 @@ Autodesk AutoCAD 2027 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -115,7 +193,7 @@ KiCad 10.0.0 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +219,7 @@ KiCad 10.0.0 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +245,7 @@ Proteus Professional 9.1 SP2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -194,7 +272,7 @@ JMAG Designer 18.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +299,7 @@ AVEVA Process Simulation 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +325,7 @@ Siemens Solid Edge 2026.2510 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +351,7 @@ Siemens Simcenter Amesim 2404 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -299,7 +377,7 @@ ESI SimulationX 4.1.1.63427 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +403,7 @@ DS DYMOLA 2023x Refresh 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +482,7 @@ InfineonSpice 2025.04.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -432,7 +510,7 @@ QSPICE 2026.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -460,7 +538,7 @@ Missler Topsolid 7.17.400.000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -488,7 +566,7 @@ DipTrace 5.2.0.4 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +592,7 @@ Altium Designer 26.1.1 Build 7 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +618,7 @@ SkyCAD Electrical Pro 1.3.61.23785 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +644,7 @@ Altair PSIM 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +670,7 @@ Keysight Advanced Design System 2026 Update 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,86 +681,6 @@ Keysight Advanced Design System 2026 Update 1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD9718FDE5B7F4F488826B4912B863062B8504A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611075   (1041509) от 10.02.2023
-
-Autodesk AutoCAD 2023 Portable by conservator [Ru/En]
-
->>След.
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041509.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD является мировым лидером среди решений для 2D- и 3D-проектирования. Будучи более наглядным, 3D моделирование позволяет ускорить проектные работы и выпуск документации, совместно использовать модели и развивать новые идеи. Для AutoCAD доступны тысячи надстроек, что позволяет удовлетворить потребности самого широкого круга клиентов.
-Представлены русская и английская (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10095D322D405CC27576428F456DD06A4BBBD67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616345   (1036387) от 02.03.2023
-
-Zuken CADSTAR 16.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплекс средств проектирования CADSTAR компании Zuken предоставляет одно из самых оптимальных решений по соотношению цена/производительность в мире САПР на платформе персональных компьютеров. Вся система в целом содержит полный набор необходимых инструментов и включает в себя средства схемного ввода, размещения, ручной, интерактивной и автоматической трассировки, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8570317F81064EDA191699D81661A34C7602A635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617132   (1035520) от 05.03.2023
-
-Proteus Professional 8.15 SP1 Build 34318 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proteus Professional — пакет программ для автоматизированного проектирования электронных схем. Пакет представляет собой систему схемотехнического моделирования, базирующуюся на основе моделей электронных компонентов принятых в PSpice.
-Отличительной чертой пакета Proteus Professional является возможность моделирования работы программируемых устройств: микроконтроллеров, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A531AA6A190D9F4EC353499337F8D3CB7176D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

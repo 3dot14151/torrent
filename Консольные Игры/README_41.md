@@ -1,29 +1,3 @@
-###  Публикация: 1323955   (429241) от 07.09.2019
-
-Disney-Pixar Up (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взрослая история, рассказанная в мультфильме- так можно охарактеризовать блистательную картину «Вверх» от компании Disney и студии Pixar. Удивительная, захватывающая, сказочная история пожилого человека, на склоне лет решившего воплотить мечту всей жизни, трогает за живое и детей, и их родителей- каждое поколение находит в ней что-то свое. Благодаря игре Up (Вверх) (   Читать дальше...   )Тип издания: LicenseРазработчик: Heavy IronЖанр: Adventure, 3D PlatformerЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721C4E8B1DF39899D9BE30E4900A36B46E6EBDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 829798   (428097) от 11.10.2014
 
 Pure [PS3] [EUR] [En] [2.41] [Cobra ODE / E3 ODE PRO ISO] (2008)
@@ -32,7 +6,7 @@ Pure [PS3] [EUR] [En] [2.41] [Cobra ODE / E3 ODE PRO ISO] (2008)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +34,7 @@ Mirror’s Edge [PS3] [EUR] [Ru] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +60,7 @@ Need For Speed: Hot Pursuit (Limited Edition) [PS3] [EUR] [En] [3.50] [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +88,7 @@ Saw: dilogy (2009 - 2010) [Xbox360] [RegionFree] 8507 - 8955 [FreeBoot] [Unoffic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +115,7 @@ Smart as... / Умник?!  (2012) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru/E
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +141,7 @@ Saint Seiya: Soldiers' Soul (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +168,7 @@ WWE All Stars [PS3] [EUR] [En] [3.56] [Cobra ODE / E3 ODE PRO ISO] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +194,7 @@ UFC Undisputed 3 [PS3] [EUR] [En] [4.01] [Cobra ODE / E3 ODE PRO ISO] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +222,7 @@ Assassin's Creed II Game Of The Year Edition [PS3] [RUS] [PAL] [3.55 Kmeaw] (200
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +248,7 @@ Call of Duty: Black Ops III (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +274,7 @@ WRC 5 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En/Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +300,7 @@ Street Fighter X Tekken [PS3] [EUR] [Ru/En] [3.73] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +326,7 @@ Ratchet & Clank: All 4 One [PS3] [RUS] [PAL] [3.55 Kmeaw] [Rip] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +356,7 @@ The Evil Within + DLC + TU (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +382,7 @@ Mafia II / Мафия 2 + DLC (2010) [Xbox360] [RegionFree] [FreeBoot] [License]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +408,7 @@ FIFA 2020 (2019) [PS4] [EUR] 7.55 [HEN] [License / 1.25] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +434,7 @@ Castle of Illusion Starring Mickey Mouse HD (2013) [Xbox360] [RegionFree] [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +462,7 @@ Homefront: Ultimate Edition (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +488,7 @@ Alien Rage (2013) [PS3] [EUR] 4.40 [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +514,7 @@ Mass Effect: Andromeda (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.10] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +541,7 @@ Cadence of Hyrule (2019) [Switch] [USA] 10.1.0 [NSP] [Unofficial / 1.4.0 / DLC] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +567,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,7 +595,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 4.80 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -649,7 +623,7 @@ Prototype 2 [PS3] [EUR] [Ru] [4.11] [Cobra ODE / E3 ODE PRO ISO] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -675,7 +649,7 @@ Metal Gear Solid VR Missions [PS1] [En] (1999)
 >>PS1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -686,6 +660,32 @@ Metal Gear Solid VR Missions [PS1] [En] (1999)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72F69E7D362EECF09BF621D6DB8F105E8D9F8616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066132   (413305) от 25.10.2016
+
+Need for Speed: The Run (2011) [Xbox360] [PAL] 14699 [FreeBoot] [License / TU4] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это The Run. Подпольные гонки с сумасшедшими ставками. Единственный способ сохранить жизнь - первым прибыть из Сан-Франциско в Нью-Йорк. Нет ограничений скорости. Нет правил. Нет союзников. Все, что у вас есть - ваше водительское мастерство и четкое понимание того, что вам противостоят сотни лучших в мире гонщиков на самых опасных трассах в стране. В Need for Speed (   Читать дальше...   )Тип издания: LicenseРазработчик: EA Black BoxЖанр: RacingЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0992DFD57A80699A8C73988F4D06F6361FBD9C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

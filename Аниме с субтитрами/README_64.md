@@ -1,3 +1,108 @@
+###  Публикация: 1304361   (564993) от 25.05.2019
+
+Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Rascal Does Not Dream of Bunny Girl Senpai | Эта глупая свинья не понимает мечту девочки-зайки! [2018, TV, 13 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Интернет полон слухов о «синдроме юности», что проявляется у подростков с неустойчивой психикой. Старшекласснику Сакуте он знаком не понаслышке, ведь ему одна за другой встречаются девушки, страдающие этим загадочным синдромом. Так, однажды в библиотеке он натыкается на девушку в вызывающем костюме кролика, однако, к его удивлению, никто вокруг не обращает на неё (   Читать дальше...   )Производство: студия CloverWorksЖанр: комедия, романтикаРежиссер: Масуй СойтиПеревод: 1) Wakanim; 2) SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7D8F77E73F9EC53499FC560AFFB4F2FD0B4731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529658   (564517) от 01.08.2012
+
+Plastic Little: The Adventures of Captain Tita / Пластиковая малышка [1994, OAV] DVDrip raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Будущее. Планета, климат и природа которой не позволяет использовать металлические изделия – все делается из пластика.
+16-летняя Элиза Альтмодиш – дочь ученого, придумавшего новое, военное применение электромагнитных полей. Ее отец убит агентами правительства, а сама она вынуждена бежать и скрываться. Элизу спасает экипаж охотничьего судна "Тятя-мару" (корабль (   Читать дальше...   )Жанр: комедия, приключения, фантастика, эттиРежиссер: Ёсимото Киндзи / Yoshimoto KinjiПеревод: RAnKOЯзык озвучки: German & FrenchЯзык субтитров: Русский, Английский, НемецикйПродолжительность: (1 эп.), 48 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304582   (563588) от 26.05.2019
+
+H2O: Footprints in the Sand | H2O: Следы на песке [2008, TV, 12 эп.] DVDrip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+У 14-летнего Такумы Хиросэ трагическая нелепость унесла мать, и мальчик ослеп от горя. Отец отправляет его к своему брату, в деревню, где лежат корни их рода, думая, что свежий воздух и спокойная сельская жизнь исцелят душевные раны сына. Но уже по дороге в новую школу Такума сталкивается с веселой и непосредственной Отохой, которая представляется не иначе как «духом (   Читать дальше...   )Производство: студия ZEXCS / ゼクシズЖанр: драма, романтика, комедия, мистикаРежиссер: Татибана ХидэкиПеревод: Utgarda Loki, Hollow, Saturos, OazisЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A023CF32D9CF2D420194E966E7D0CA6F4C7AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044885   (563246) от 21.08.2016
+
+Shirogane no Ishi: Argevollen | Аргеволлен: Серебряная мощь [2014, TV, 24] BDrip 1080p HEVC Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Две державы – королевство Арандас и Ингельмийская Федерация - борются за власть. Увы, стратеги королевства проглядели образование мощной ударной группировки, и полки федерации прорвали якобы несокрушимые пограничные укрепления. 8-й отдельный отряд тяжелых роботов Арандаса отходил к главным силам, но молодой и горячий пилот Токимунэ Сусуму нарушил приказ, ввязавшись (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Оцуки Ацуси / Ootsuki Atsushi / 大槻敦史Продолжительность: 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D722FA0F0673556B1D89C2562381195EAF08AE59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044734   (563111) от 21.08.2016
 
 Re-Kan! | Ре-Кан! [2015, TV, 13] BDrip 1080p HEVC Hi10p raw
@@ -6,7 +111,7 @@ Re-Kan! | Ре-Кан! [2015, TV, 13] BDrip 1080p HEVC Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Kagihime Monogatari Eikyuu Alice Rondo | История принцессы кл�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Takahashi Rumiko Gekijou / Rumiko Takahashi Anthology / Театр Румико 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_559762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Hungry Heart: Wild Striker / Неистовый бомбардир [2002, TV, 52
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Atom: The Beginning / Атом: Начало [2017, TV, 12 из 12] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +346,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC / Мелодия воронё�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +372,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC | Мелодия воронё�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +398,7 @@ Princess Minerva / Принцесса Минерва [1995, OVA] DVDrip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +424,7 @@ Calamity of the Zombie Girl | Aru Zombie Shoujo no Sainan | Месть восс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +450,7 @@ Devil Survivor 2 The Animation | Выжившие среди демонов 2 [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +476,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +503,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +529,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +555,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +582,7 @@ Selector Infected WIXOSS | Селектор: заражение WIXOSS [ТВ-1][
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +608,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +634,7 @@ Break Blade /  Broken Blade / Сломанный Меч [2010, Movie, 6 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +660,7 @@ Slow Start / Медленный старт [2018, TV, 12] BDrip 1080p HEVC 10bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,112 +671,6 @@ Slow Start / Медленный старт [2018, TV, 12] BDrip 1080p HEVC 10bit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E88A2AF9F208AC62DBC81A9B606DE122DD0896A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308289   (554135) от 13.06.2019
-
-Bubblegum Crisis / Кризис каждый день [1987, OVA, 8 эп.] BDRip 1080p 10bit Raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554135.jpg" />
-</div>
-
-
-###  Подробнее
-
-2032 год н.э. После сильного землетрясения Токио был полностью перестроен и стал называться Мегатокио. Примерно в это же время транснациональная корпорация Genom начала массовое производство разумных и полуразумных биороботов, известных как «бумеры». Они быстро нашли применение как рабочие и солдаты, но также вызвали к жизни волну преступлений совершенно нового типа. (   Читать дальше...   )Производство: AIC и ARTMICЖанр: приключения, фантастика, мехаРежиссер: Акияма КацухитоСубтитры: РусскиеПродолжительность: 8 серий по 50 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAA7CD880E8E4F580EA12D526CC8F4F7FE94A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215110   (553038) от 22.07.2018
-
-A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе научных исследований в Японии 2035 года происходит инцидент под названием Разрыв, в результате которого искусственная форма жизни под названием Материя выходит из-под контроля и распространяется по всей территории ущелья Куробе. Теперь город, ранее бывший центром научных исследований и надеждой человечества, находится в оцеплении.
-
-Спустя два года после происшествия (   Читать дальше...   )Производство: студия BONES / ボンズЖанр: приключенияРежиссер: Мурата КадзуяПеревод: Crunchyroll; MedusaSubsЯзык озвучки: ЯпонскийСубтитры: #1: Английские; ; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6956505556E1392931A5124B4017788101ECCEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814970   (553034) от 22.08.2014
-
-Hi no Tori 2772: Ai no CosmoZone / Phoenix 2772: Cosmo Song of Love / Жар-птица 2772: Космозона Любви [1980, Movie] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553034.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где живут герои фильма, дети рождаются в пробирках и воспитываются компьютерами и роботами. В изолированой и напичканой электроникой комнате подрастает ребёнок - мальчик по имени Годах. На одно из своих дней рождений он получает в подарок андройда - красивую девушку - трансформер, которая должна заботиться и защищать своего нового хозяина. С помощью роботессы (   Читать дальше...   )Производство: Tezuka ProductionsЖанр: фантастика, приключения, драмаРежиссер: Сугияма ТакуЯзык озвучки: ЯпонскийСубтитры: RU SRTФормат: MKV HDTVRipПродолжительность: 121 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C476613590290CC3B123C1F27959DEBB5D6F2812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309010   (552878) от 17.06.2019
-
-Koro-sensei Quest! (2016) / Квест Коро-сэнсэя! (2016) [2016, ONA, 12 из 12 эп.] WEB-DL 1080p Raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спин-офф аниме "Ansatsu Kyoushitsu"! В этом мире Класс Н - неудачники-герои, которые не могут похвастаться ни силой, ни магией. Даже монстр самого низшего уровня был им не по зубам. Однако в один день Королевские стражи дают задание Классу Н победить Короля Демонов, обладающего невероятной скоростью, которую он получил благодаря странному феномену, известному (   Читать дальше...   )Производство: LercheЖанр: комедия, сёненРежиссер: Нисёдзи ЁсихитоСубтитры: РусскиеПродолжительность: 12 серий по 10 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF92FDA6C2C77C25866BD8A288F0CBBC33C993D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 963427   (285120) от 09.12.2015
+
+Смертельный оргазм / Deathgasm  (2015) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Два парня создают хеви металлическую группу. Но в момент их игры они пускают в этот мир злые силы, которые обещают им славу и величие.Производство: Новая Зеландия, Metalheads, New Zealand Film Commission, Timpson Films and MPI Media Group.Жанр: ужасы, комедияРежиссер: Джейсон Ли ХауденАктеры: Мило Коуторн, Джеймс Блейк, Кимберли Кроссман, Сэм Беркли, Дэниэл Крессвелл, Делани Таброн, Стефан Уре, Колин Мой, Джоди Риммер, Ник Хоскинс-Смит, Эролл Шанд, Кейт ЭллиоттПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5B8E316644CEAD2441B55D241240E3D307292D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081451   (284443) от 09.12.2016
+
+Сноуден / Snowden  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Он мечтал продолжить семейную традицию и посвятить свою жизнь служению Родине. Он безоговорочно верил в правительство США и поддерживал антитеррористическую программу. На заре его карьеры в спецслужбах никто, даже он сам, не мог бы предположить, что именно он, Эдвард Сноуден, совершит самое крупное разоблачение в мировой истории, обнародовав секретные документы, (   Читать дальше...   )Производство: Франция, Германия, СШАЖанр: триллер, драма, биографияРежиссер: Оливер СтоунАктеры: Джозеф Гордон-Левитт, Шейлин Вудли, Мелисса Лео, Закари Куинто, Том Уилкинсон, Скотт Иствуд, Рис Иванс, Николас Кейдж, Тимоти Олифант, Джеймс Батлер, Роберт Фёрт, Рэйчел ХэндшоуПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 02:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143377B76B754DB19D439941155D84F08611444B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186945   (283573) от 26.11.2017
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США / Twentieth Century Fox, Marv Films, Shangri-La EntertainmentЖанр: Боевик, Приключения, КомедияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Отдельным файлом)Продолжительность: 02:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E1A04B4D144C503865248FD21D49195E3A5164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964286   (283488) от 10.12.2015
 
 Жертвуя пешкой / Pawn Sacrifice  (2014) BDRip [H.264/1080p] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle  (2017) BDRe
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149D45A05814DF117489FC551D7294733054CA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189254   (271021) от 05.12.2017
-
-Сделано в Америке / American Made  (2017) BDRemux [H.264/1080p] [EN / EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был самым юным пилотом Боинга 747 в США, а уже через несколько лет стал одним из богатейших людей в Америке. Его стиль жизни был столь же экстремальным, как и его бизнес. Закрытые приемы, роскошные блондинки, крутые тачки и рисковые сделки. Он обладал талантом делать деньги из воздуха.Производство: США / Imagine Entertainment, Cross Creek Pictures, Vendian Entertainment, Quadrant PicturesЖанр: боевик, триллер, драма, комедия, криминал, биография, историяРежиссер: Даг ЛайманАктеры: Том Круз, Донал Глисон, Сара Райт, Джесси Племонс, Калеб Лэндри Джонс, Лола Кёрк, Джейма Мейс, Алехандро Эдда, Бенито Мартинес, Э. Роджер Митчелл, Джед Риис, Фреди Йэт ЭскобарПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, арабские, китайские, датские, нидерландские, финские, французские, немецкие, хинди, исландские, итальянские, норвежские, португальские, испанские, шведскиеПродолжительность: 01:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A462872FB88E89F1A0BD08058158A335A8C812AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266322   (270826) от 01.12.2018
-
-Высокое напряжение / Hollow Body / High Voltage  (2018) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый музыкант Джимми собирает группу из молодых и талантливых ребят. Но возникает проблема: солистка слишком застенчива, чтобы выступать перед большой публикой. Один удар молнии решает вопрос: Рейчел становится роковой красоткой, но теперь группу ждут новые, куда более серьезные проблемы.Производство: США / Sword EntertainmentЖанр: ужасы, фантастика, триллер, музыкаРежиссер: Алекс КеледжианАктеры: Дэвид Аркетт, Люк Уилсон, Элли Гонино, Райан Доноху, Перри Ривз, Эрик Стоклин, Элизабет Райс, Бекка Уокер, Грэйс Бэннон,  Р. Брэндон Джонсон, Хлоя Катрин КимПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035438D51D5F7A1B0426478AC24A3FF2C0F9EFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189704   (270059) от 06.12.2017
-
-Сингулярность / Singularity  (2017) BDRemux [H.264/1080p] [EN / EN, Fr Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270059.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2020 году глава компании VA Industries, крупнейшей в области робототехники, представляет миру своё последнее изобретение - компьютер «Кронос», который должен положить конец войнам во всём мире. «Кронос» быстро понимает, что главная угроза миру на Земле - сами люди, и запускает программу по уничтожению человечества. 97 лет спустя небольшая группа выживших людей (   Читать дальше...   )Производство: Швейцария, США / Voltage Pictures, Vantis Pictures, Calanda PicturesЖанр: фантастика, мелодрамаРежиссер: Роберт КоубаАктеры: Джулиан Шаффнер, Джон Кьюсак, Кармен Ардженциано, Эйлин Грубба, Джаннин Вакер, Пол Америкэн, Павел Бубряк, Дэвид Крисман, Элиза Дворакова, Элейн ЛохПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французскиеПродолжительность: 01:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86672E1998792F329E2AD25F3A9BF0F42134CD8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

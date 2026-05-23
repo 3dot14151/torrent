@@ -1,3 +1,56 @@
+###  Публикация: 1387367   (791193) от 02.06.2020
+
+NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы.
+И евразийские рыси в Европе и длиннохвостые кошки в Индии имеют одну общую особенность: они представляют собой смертельно опасные машины для убийства. Это настоящие чемпионы в области охоты.Производство: Испания, Nat Geo WildЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DA2DB1D4AB39BCCB6818A00B127B5B66114A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387655   (791190) от 02.06.2020
+
+NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WEBRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы.Медведи считаются одними из самых грозных хищников на земле. В период смены сезонов в организме медведя происходят глубокие изменения, позволяющие им выжить в самых суровых условиях.Производство: Испания, Nat Geo WildЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C33CDE837A6710ED68C5B62D6BD75C1DE292B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387478   (791168) от 02.06.2020
 
 DV: Изящество логики / The Joy of Logic (2013) IPTVRip [H.264]
@@ -6,7 +59,7 @@ DV: Изящество логики / The Joy of Logic (2013) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +86,7 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +138,7 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +164,7 @@ DV: "Вояджер" - полет за пределы Солнечной сис�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +190,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +216,7 @@ Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +268,7 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +294,7 @@ History Channel: Тайны коптских мумий / Coptic Mummies of Anti
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +320,7 @@ Animal Planet. Кошек не любить нельзя / Must love cats (2012)
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +372,7 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +398,7 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +424,7 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +450,7 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +476,7 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +502,7 @@ BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +528,7 @@ BBC: Вулканы Солнечной системы (Космические В
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +554,7 @@ BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +581,7 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +634,7 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +660,7 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,58 +671,6 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385807A1B814C071DF1934CDBAC8E40A0A7CD1FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277261   (786996) от 19.01.2019
-
-Animal Planet: Дом для рептилий. Подпольный бар для песчаных удавчиков / Scaled (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F3F67704E4E75215F03F5465E19645D4FF38FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277264   (786995) от 19.01.2019
-
-Animal Planet: Дом для рептилий. Принцесса и Питон / Scaled (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A6A7F45AC0DA332F07AF7714D9B3575053E9ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

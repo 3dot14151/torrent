@@ -1,3 +1,55 @@
+###  Публикация: 1349288   (138165) от 31.12.2019
+
+Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в августе [2019, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Цубаса Арихара поступает в государственную школу Ригахама, но вдруг узнаёт, что там нет бейсбольного клуба. Она с нетерпением ждала занятий бейсболом в старшей школе, так что девушка решает создать собственный бейсбольный кружок. Вот только заинтересовал он либо тех, кто к бейсболу не имеет никакого отношения, либо тех, кто давно бросил занятия. Всех героинь ждут (   Читать дальше...   )Жанр: повседневность, спортРежиссер: Кудо СусумуПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7A7DE0C928B94D0764F28DF074D9489217E1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349291   (138117) от 31.12.2019
+
+Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные светлячки: Вечные летние каникулы [2012, Movie] WebRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Год назад в автокатастрофе у Юты погибает отец. Сейчас, во время летних каникул, он пытается вернуть утраченные простые детские радости лета: ловлю жучков, запуск фейерверков. Неожиданно начинается гроза, Юта поскальзывается и ударяется головой. Придя в себя он обнаруживает, что местность вокруг слегка изменилась. Оказывается парень перенесся на 30 лет в прошлое. (   Читать дальше...   )Производство: студия Toei Animation / 東映アニメーションЖанр: романтика, повседневностьРежиссер: Уда КоносукэПеревод: zafhosЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B70B3CCD40DE71FDDCE9D913E043CC9EE00F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349286   (138067) от 31.12.2019
 
 Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эскадрилья Котобуки [2019, TV, 12 эп.] BDRip 1080p HEVC 10bit raw
@@ -6,7 +58,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Santa Company | Компания Санты [2014, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sword Art Online: Alicization | Мастера меча онлайн: Алиси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Arknights: Holy Knight Light / Рыцари ковчега: Святые рыц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +294,7 @@ Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +346,7 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +372,7 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +398,7 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +426,7 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +504,7 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +530,7 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +556,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +582,7 @@ Tokyo Revengers: Tenjiku Hen | Tokyo Revengers: Tenjiku Arc | Токийские
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +610,7 @@ Pokemon Concierge | Покемон: Консьерж [2023, TV, 4 эп.] WEB-DL 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +636,7 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +662,7 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -621,60 +673,6 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B27BEE6C4C83607339C41F17E8F746434941E1EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691788   (123166) от 13.01.2024
-
-Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | Кайна в великом Снежном море (фильм) [2023, Movie] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дeйcтвиe paзвopaчивaeтcя в миpe, кoтopый пoглoщaeт Beликoe cнeжнoe мope. Чeлoвeчecтвo влaчит жaлкoe cyщecтвoвaниe нa чём-тo пoд нaзвaниeм Teнмaкy (гдe-тo тyт кaлaмбyp c япoнcким oбoзнaчeниeм пaлaтки), чтo тянeтcя oт кopнeй дo вepшин гигaнтcкиx opбитaльныx дepeвьeв. B цeнтpe пoвecтвoвaния — мaльчик Kaйнa, кoтopый живёт нa Teнмaкy, и Лилиxa, пpинцecca мaлeнькoгo гocyдapcтвa (   Читать дальше...   )Производство: студия Polygon Pictures / ポリゴン・ピクチュアズЖанр: приключенияРежиссер: Андо ХироакиПеревод: CrunchyRollСубтитры: Английские; Русские; Multi-SubПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CC45B83EE4F0F605BDE7197C7BEE2B1324D0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691827   (123146) от 13.01.2024
-
-Seishun Buta Yarou wa Odekake Sister no Yume o Minai | Rascal Does Not Dream of a Sister Venturing Out | Этот глупый свин не понимает мечту сестры на прогулке [2023, Movie] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позади изнурительный декабрь, близится окончание учебного года. У Сакуто и Маи осталось не так много времени, ведь Маи в этом году оканчивает школу. Тем временем Каэдэ, сестра Сакуто, планирует поступить в школу, где учится брат.
-
-Продолжение истории.Производство: студия CloverWorksЖанр: комедия, романтикаРежиссер: Масуй СойтиПеревод: Funimation; AniLibriaЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3935D97473BC39FB45EC30CC510F126A6A22977D
 ```
 
 https://mybot314.ru/tekegram_catalog/

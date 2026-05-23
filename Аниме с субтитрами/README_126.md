@@ -1,3 +1,114 @@
+###  Публикация: 1753445   (33587) от 20.12.2024
+
+Mahou Tsukai ni Narenakatta Onnanoko no Hanashi. | История девушки, которая не смогла стать магом [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Куруми Мирай учится в первом классе средней школы.
+Она училась в младших классах магической школы Редрун, единственного в мире учебного заведения для магов, одобренного Международной лигой магов и способного по окончании работать в королевских семьях, и всегда была лучшей в классе. Однако когда она подала документы в старшую школу и сдала экзамен, чтобы поступить (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ватанабэ ТакасиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61711D0496EDEB885F658E2DA3106AFB300B9F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753444   (33469) от 21.12.2024
+
+The Idolmaster Shiny Colors 2nd Season | Идолмастер: Яркие цвета [ТВ-2] [2024, TV, 12] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории.
+
+Агентство «283 Продакшн» готовит четыре новых группы к важнейшему конкурсу W.I.N.G. Путь на вершину непрост, и девушкам придётся не только укрепить отношения, но и найти собственные краски. Окрылённые надеждами, будущие звёзды тянутся к бескрайнему небу.Производство: студия Polygon Pictures / ポリゴン・ピクチュアズЖанр: повседневность, музыкальныйРежиссер: МанкюПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Multi-SubПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F3CD8A18A47FED7EF7A5F8B854859117712BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752361   (33433) от 22.12.2024
+
+Nageki no Bourei wa Intai Shitai / Let This Grieving Soul Retire! / Скорбящий пpизpaк хочет уйти в отставку [2024, TV, 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Наступил золотой век для кладоискателей, которые в поисках славы, несмотря на опасности, совершают набеги на хранилища сокровищ по всему миру. Неизмеримые богатства, слава и власть ждут тех, кто одержит победу.
+«Давайте станем охотниками за сокровищами!»
+Это обещание, данное Краем Андреем и его друзьями, закончилось печально, когда юный Край понял, что в нем нет (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Таката МасахироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25ADEEC7DB111304B303DB69C06803CAFB18B25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752350   (33401) от 22.12.2024
+
+Tensei Kizoku, Kantei Skill de Nariagaru 2 / Переродившись аристократом, я использую свой навык оценки, чтобы возвыситься 2 [2024, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон Tensei Kizoku, Kantei Skill de Nariagaru.
+
+Описание на первый сезон:Однажды по пути с работы Арс Лоувент умирает и перерождается слабым аристократом в другом мире. Но, разумеется, не простым: он обладает навыком, позволяющим оценивать способности и таланты окружающих. И вот с этим-то навыком он и создаст себе команду, которая позволит ему выжить и возвыситься (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Като ТакаоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD978F4B93C8C24A0F5F2CEAE565B6BF59C28B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753838   (33399) от 22.12.2024
 
 Kimi wa Meido-sama. / You Are Ms. Servant. / Ты — горничная [2024, TV, 12] WEBRip 720p raw
@@ -6,7 +117,7 @@ Kimi wa Meido-sama. / You Are Ms. Servant. / Ты — горничная [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +143,7 @@ Party kara Tsuihou Sareta Sono Chiyushi, Jitsu wa Saikyou ni Tsuki / Целит�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +169,7 @@ Ao no Exorcist: Yuki no Hate Hen | Blue Exorcist: Beyond the Snow Saga | Син�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +196,7 @@ Ranma 1/2 (2024) | Ранма 1/2 (2024) [2024, TV, 12 эп.] WebRip 720p 10-bit
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +222,7 @@ Hoshi Furu Oukoku no Nina | Nina the Starry Bride | Нина в королевс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +248,7 @@ Kabushikigaisha Magilumiere | Magilumiere Co. Ltd. | Компания Маги-�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +274,7 @@ Raise wa Tanin ga Ii | Yakuza Fiance | Незнакомцы в другой жи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +300,7 @@ Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника миф
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +328,7 @@ MF Ghost (2024) | MF Призрак 2 [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +354,7 @@ Love Live! Superstar!! 3 / Живая любовь! Суперзвёзды!! 3 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +383,7 @@ Natsume Yuujinchou Shichi | Natsume's Book of Friends Season 7 | Тетрадь 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +409,7 @@ Sengoku Youko / Ёко из Сэнгоку [2024, TV, 35] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +435,7 @@ Yarinaoshi Reijou wa Ryuutei Heika o Kouryakuchuu | На этот раз оде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +461,7 @@ Tasuketsu: Fate of the Majority | Tasuuketsu | Правило большинст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +487,7 @@ Shin Tennis no Ouji-sama: U-17 World Cup Semifinal | Новый принц те�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +513,7 @@ Yeosin Gangnim | True Beauty | Истинная красота [2024, Web, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +539,7 @@ Blue Lock vs. U-20 Japan | Синяя тюрьма: Блю Лок [ТВ-2] [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +567,7 @@ Kami no Tou: Koubou-sen | Tower of God: Workshop Battle | Башня Бога: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +593,7 @@ Kamonohashi Ron no Kindan Suiri 2nd Season  | Безумные расследо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +619,7 @@ Wasurenagumo | Li'l Spider Girl | Паучонок [2012, Special] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +647,7 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +673,7 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,112 +686,6 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BC1BE7C42ADDF76CB0C7D5874A6E6540D55190E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771588   (31669) от 07.01.2025
-
-Ishura | Исура [ТВ-1] [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альтернативный мир. На человечество совершает нападение Король демонов, что быстро берёт под контроль огромные территории. Когда это происходит, то люди решают сплотиться и не дать себя полностью поработить. Так появляются личности с уникальными способностями, что совместными усилиями побеждают врага. Король Демонов не просто отброшен, но и убит, а это позволяет (   Читать дальше...   )Производство: Passione, SanzigenЖанр: приключения, фэнтезиРежиссер: Такахаси ТакэоПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9EA45A2C034D3A90864AF096FD1EC44D5923EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775417   (29711) от 26.01.2025
-
-Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + SP] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29711.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из незримых миров правят суккубы, властительницы которых, чтобы сохранять могущество и долголетие, должны регулярно питаться жизненной силой мужчин других рас. Примерно как вампиры, только э-э… биологическая жидкость требуется другая. Юная принцесса Астаротта (для друзей – Лотта) вступает в возраст, когда пора заводить свой гарем, тут и начинаются проблемы. (   Читать дальше...   )Производство: Студия Diomedea / ディオメディアЖанр: комедия, этти, мистикаРежиссер: Оидзаки ФумитосиПеревод: WitwoodЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + SP по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FADE82F400A763D738222B839D950C1E08ACCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769149   (29225) от 31.01.2025
-
-Shiguan Daliren: Yingdu Pian | Time Agent: Bridon Arc | Агент времени: Арка Инду [2024, Web, 6 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы спасти погибшего Чэн Сяоши, Лу Гуан возвращается к началу, повторяя путь судьбы. Однако в «Фотостудии времени» появляется фотография, содержащая подсказки о родителях Чэн Сяоши. Чтобы раскрыть правду, Лу Гуан нервно отправляется в Брайдон с Чэн Сяоши. Дружелюбная топ-модель Ся Фэй, эксцентричный лидер Чайнатауна Вейн и таинственно появляющийся Лю Сяо... Столкнувшись (   Читать дальше...   )Производство: КитайЖанр: приключения, путешествие во времениРежиссер: Ли ХаолинПеревод: официальный (Crunchyroll)Язык озвучки: КитайскийСубтитры: Русские (мультисаб)Продолжительность: 6 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0DE515F8FED1DE8A3270645B2984C8FC13C30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755998   (28103) от 10.02.2025
-
-Nanatsu no Taizai: Mokushiroku no Yonkishi 2 | The Seven Deadly Sins: Four Knights of the Apocalypse 2 | Семь смертных грехов: Четыре всадника Апокалипсиса 2 [2024, TV, 12 эп. ] WEBRip 1080 raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28103.jpg" />
-</div>
-
-
-###  Подробнее
-
-6ой сезон Семи смертных грехов с новыми героями
-
-Продолжение историиПроизводство: студия Telecom Animation Film / テレコム・アニメーションフィルムЖанр: приключения, фэнтeзи, комедияРежиссер: Кодайра МакиПеревод: AnilibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CCA260E4D62E4CB45FDBB7D951DB6CBB77BDD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

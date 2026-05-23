@@ -1,3 +1,29 @@
+###  Публикация: 1412070   (420005) от 28.09.2020
+
+Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пётр Гриль и время мудреца | Питер Грилл и время мудреца [2020, TV, 12 из 12] HDTVRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обаятельный и привлекательный Питер Грилл может претендовать на звание идеального мужчины. Он не только хорош собой и харизматичен, но ещё и многого сумел добиться. Его сила принесла ему огромную славу. После многочисленных соревнований, он был признан сильнейшим бойцом на материке. А ещё, у него есть невероятно привлекательная девушка, которую зовут Ливилия. Пара (   Читать дальше...   )Производство: Япония, WolfsbaneЖанр: Этти, комедия, фэнтези, приключения, мультсериалРежиссер: ТацумиЯзык озвучки: Русский (Berofu, Eva, MissClick, TimMachineСубтитры: НетПродолжительность: 12 х ~ 00:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF60CEEEB2EC43FE41E40A3BF68EFA1AB7BB5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412778   (413135) от 01.10.2020
 
 Dakaretai Otoko 1-i ni Odosarete Imasu | Dakaichi: I'm Being Harassed by the Sexiest Man of the Year | Угроза для парня №1 [2018, TV, 13 эп.] WEBRip 720p raw+rus
@@ -6,7 +32,7 @@ Dakaretai Otoko 1-i ni Odosarete Imasu | Dakaichi: I'm Being Harassed by the Sex
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Overlord III / Повелитель [ТВ-3] [2018, TV, 13 ep] WEB-DL 720p Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Keppeki Danshi! Aoyama-kun / Cleanliness Boy! Aoyama-kun / Чистюля Аоя
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Re:Creators / Воссоздающие [2017, TV, 22 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Koi to Uso / Love and Lies / Любовь и ложь [2017, TV, 12] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Isekai Shokudou / Restaurant to Another World / Ресторанчик из ин
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Saiyuuki Reload Blast / Saiyuki Reload Blast / Путь на запад: Взр�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Dive!! / Дайв!! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Knight's & Magic / Рыцари и Магия [2017, TV, 13 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Clannad After Story / Кланнад. Продолжение истории / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +320,7 @@ Action Heroine Cheer Fruits | Героиня поддерживает фрукт
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +348,7 @@ Kaito x Ansa | Кайто и Анса [2017, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +374,7 @@ Ikemen Sengoku: Toki o Kakeru ga Koi wa Hajimaranai | Красавчики из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +400,7 @@ Jikan no Shihaisha / Chronos Ruler / Повелители Времени [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +426,7 @@ Isekai wa Smartphone to Tomo ni / In Another World With My Smartphone / В ин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +452,7 @@ Motto To Love-Ru: Trouble / Любовные неприятности (ТВ-2) [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +480,7 @@ Shingeki no Bahamut: Virgin Soul / Rage of Bahamut: Virgin Soul / Ярость �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +506,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e / Добро пожаловат�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +558,7 @@ Joker Game / Игра Джокера [2016, TV, 12 ep + 2 sp] WEB-DL 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +584,7 @@ Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +610,7 @@ Shokugeki no Souma: Ni no Sara / Кулинарные Поединки Сомы:
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +636,7 @@ Gekijouban Fate/Stay Night: Unlimited Blade Works / Fate/Stay Night: Unlimited B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -638,7 +664,7 @@ Machikado Mazoku | Demon Girl Next Door | Городская демонесса 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -649,32 +675,6 @@ Machikado Mazoku | Demon Girl Next Door | Городская демонесса 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E39486F5B883C3C6E3DE8ABC76BF697726A6C25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256656   (353564) от 22.10.2018
-
-Grand Blue / Grand Blue Dreaming / Бескрайняя синева [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный и полный сил Йори Китахара только лишь начинает свой первый год обучения в университете, в красивом приморском городе Изу, берег которого омывают большие океанские волны. Здесь почти всегда светят обжигающие лучи сияющего солнца, дует свежий морской бриз. Атмосфера города располагает к отдыху, разнообразным приключениям и приятному времяпровождению. Но парень (   Читать дальше...   )Жанр: повседневность, комедияРежиссер: Такамацу СиндзиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AD56DB7E987E6F299E7B9B69AD4FBFCC96F7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

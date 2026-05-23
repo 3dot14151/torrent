@@ -1,3 +1,173 @@
+###  Публикация: 583269   (46786) от 15.08.2024
+
+Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xDVD9)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+23 ноября 1993 года вышел в продажу Live Shit: Binge & Purge бокс сет состоящий из 3-х дисков с аудиозаписью концерта в Sports Palace, Мехико, Мексика (25, 26, 27 февраля и 1, 2 марта 1993 года). И 3-х VHS кассет с видеозаписью концерта в Seattle Coliseum, Сиэтл, США (29 и 30 августа 1989 года) и концерта в San Diego Sports Arena, Сан Диего, США (13 и 14 января (   Читать дальше...   )Жанр: Музыка, КонцертАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Jason NewstedПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 03:19:21 + 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 56839   (46784) от 15.08.2024
+
+Metallica - The Videos 1989-2004 (2006) DVD-9
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Свершилось - Metallica наконец-то выпустила все свои видеоклипы на отдельном DVD. Впервые на DVD видео "2 of One", который ранее выпускался только на VHS. Североамериканцы впервые увидели клип "Mama Said", который никогда там не транслировался по телевидению. Также на диске 11-минутная версия клипа "The Unforgiven" и трейлер фильма "Some (   Читать дальше...   )One 7:41
+Enter Sandman 5:28
+The Unforgiven 6:21
+Nothing Else Matters 6:24(   Читать дальше...   )Жанр: Thrash MetalФормат: DVD videoКачество: DVD9Продолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13D03A5F1BE0C28C6CFA302237E5DFF8B813BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443110   (46735) от 15.08.2024
+
+Ретро / МХТ им. Чехова (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Московского художественного театра им. А.П. Чехова.
+Пьеса Александра Галина - это трогательная история о том, что обрести себя и встретить родную душу можно в любом возрасте и при самых странных обстоятельствах.
+Людмила и ее муж Леонид решают поженить ставшего вдовцом отца и приглашают без его ведома на смотрины трех старушек. Старушки приходят не в то (   Читать дальше...   )Жанр: трагикомедия, спектакльРежиссер: Андрей МягковПродолжительность: 01:22:15 + 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAA0648857E2F1FFE639D669363255F4DFCC553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103191   (46734) от 15.08.2024
+
+Жан Мари Люсьен Пьер Ануй - Не будите мадам (2003) TVRip (Театр им. Моссовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Эта пьеса Жана Ануя о судьбе человека, целиком посвятившего себя театру. Ее герой - режиссер Жюльен Палюш - принципиален во всем: и в творчестве, и в жизни; формула «гений и беспутство» - не для него. Его фантастическая увлеченность новыми театральными идеями притягивает к нему самых разных людей. Часто в его памяти возникают образы прежних спутников жизни, они переплетаются (   Читать дальше...   )Производство: Россия, Театр им. МоссоветаЖанр: Спектакль, драмаРежиссер: Юрий ЕреминАктеры: Георгий Тараторкин, Татьяна Бестаева, Ольга Остроумова, Евгения Крюкова, Александр Яцко, Александр Леньков, Марина Кондратьева, Дмитрий Журавлев, Вячеслав Бутенко, Александр БобровскийПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85196DF50D3B7CF2033AA29665445E3FC0B6F543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 124408   (46685) от 16.08.2024
+
+Eurythmics Ultimate Collection  (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+. . . Eurythmics" получили признание, благодаря качеству своих песен и сумели остаться фаворитами в средствах информации. Леннокс - одна из наиболее визуально поразительных женских исполнителей, с голосом редкого качества.
+
+. . . Энни Леннокс можно с полным основанием назвать одной из ведущих певиц Великобритании восьмидесятых годов. Концерты Eurythmics - это, (   Читать дальше...   )Жанр: РокПеревод: ОригинальныйПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22B95AD279DE9D61647D9526254C5F07D473879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206735   (46684) от 16.08.2024
+
+Dire Straits - Rockpalast (1979) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+This FULL DIGITAL RECORDING & NOT RE-ENCODED torrent comes from a RE-BROADCAST (APRIL 27/28, 2007)
+FULL DIGITAL RECORDING & NOT RE-ENCODED01. Down To The Waterline
+02. Six Blade Knife
+03. Once Upon A Time In The West
+04. Lady Writer(   Читать дальше...   )Жанр: RockРежиссер: 1Festival (Germany)В ролях: Mark Knopfler: Guitar, Vocals
+David Knopfler: Guitar, Vocals
+John Illsley: Bass, Vocals
+Pick Withers: DrumsФормат: DVD VideoКачество: DVD5Продолжительность: 01:24:43 + 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1374F61F33AA88C29C02EE406EDD4AFBF295D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589698   (46678) от 16.08.2024
 
 Metallica - Quebec Magnetic (2012) DVD9+DVD5
@@ -6,7 +176,7 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +202,7 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +231,7 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +257,7 @@ Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +286,7 @@ Grand Funk & Mark Farner (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -145,7 +315,7 @@ Styx -Counght In The Akt- 1984 (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -177,7 +347,7 @@ LIVING LOUD - Live Sydney Fox Studios (2004) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -203,7 +373,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -232,7 +402,7 @@ Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -261,7 +431,7 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -290,7 +460,7 @@ Rainbow - Live In Munich (1977) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +492,7 @@ VA - Live At Knebworth (2002) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +544,7 @@ The Doors - Live In Europe - 1968 (DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +573,7 @@ The Doors - Live At The Isle Of Wight Festival '1970 (2018) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -488,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -514,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -541,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,168 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5EAE96166F6119DCD1DABB152E462A426542AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744398   (45963) от 22.08.2024
-
-Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45963.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Personal Jesus» (с англ. — «Личный Иисус») — 23-й сингл британской группы Depeche Mode, выпущенный в Великобритании 29 августа 1989 года, и первый сингл с альбома Violator. Текст был написан Мартином Гором.Жанр: synthpopУчастники: Дэйв Гаан, Мартин Гор, Энди Флетчер, Винс Кларк, Алан УайлдерПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037D34E0EB41E1597AA9C93161F3287BD84852F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458438   (45959) от 23.08.2024
-
-Единственный большой концерт группы ДДТ в 2020 году (11.10.2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Шевчук: Я понял, что нужно немного рассказать об этом  концерте. Каждый год в столице Башкирии, городе Уфа проходят фестивали, посвященные дню республики. Когда нам предложили принять участие на этом  празднике, мы сначала засомневались - коронавирус и т.д. и т.п. (год не играли полным составом). Но все знают, как я тепло отношусь к Уфе и Башкирии и мы не смогли (   Читать дальше...   )Производство: Россия / БСТ, Парк "Ватан", г. Уфа.Жанр: КонцертРежиссер: Ярослава ФеоктистоваПродолжительность: 02:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8022315AC5D88E30B10BADDACA0DEC7183CA9325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383165   (45955) от 23.08.2024
-
-Guns N' Roses - Use Your Illusion Ultimate (1998) 2 x DVD9/5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Use Your Illusion Ultimate - двойной DVD группы Guns N' Roses. Первый диск включает в себя концерт состоящий из 2-х частей Use Your Illusion I и Use Your Illusion II. Фильм снят в Tokyo Dome, Япония в 1992 году, во время 28-месячного тура Use Your Illusion. Второй - видеоклипы Welcome To The Videos.Жанр: Hard RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 03:01:04 + 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680D371936FF0916B876A88CF294CB844A6354AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470721   (45944) от 23.08.2024
-
-Квартет И - Разговоры мужчин среднего возраста о женщинах, кино и алюминиевых вилках (2008) [H.264] CamRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45944.jpg" />
-</div>
-
-
-###  Подробнее
-
-О чем говорят мужчины, когда они одни? Это тайна, которую пытаются разгадать женщины на протяжении веков. Может быть, действительно о футболе? Или об аккумуляторах? О чем-о чем, ну, уж конечно, не о нас, женщинах. Или все-таки? А если и говорят, то что именно? От этих вопросов и загадок голова кругом идет.
-
-Театр "Квартет И" приоткроет завесу тайны и введет (   Читать дальше...   )Жанр: Комедия, спектакльРежиссер: Сергей ПетрейковАктеры: Леонид Барац, Александр Демидов, Камиль Ларин, Ростислав ХаитЯзык: русскийПродолжительность: 01:00:22+00:58:41+00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5375E76041119B69A8F85458D5E5D7583C869202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514077   (45929) от 23.08.2024
-
-Топаз (1976) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль поставлен по одноименной пьесе французского драматурга, прозаика и киносценариста Марселя Паньоля.
-Топаз и его друг - учителя в дорогой школе-пансионе. Основная забота директора школы - не обидеть богатых родителей своих учеников. Учитель Топаз допустил ошибку, и вскоре был уволен. Он вынужден искать частные уроки, в процессе поисков он знакомится с (   Читать дальше...   )Жанр: Телеспектакль, комедияРежиссер: Георгий ЗелинскийАктеры: Евгений Стеблов, Наталья Варлей, Владимир Кенигсон, Всеволод Якут, Игорь Старыгин, Альберт Филозов, Татьяна КречетоваПродолжительность: 01:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BBF987A01122638B258AC1D3440483A37A1561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182846   (45927) от 23.08.2024
-
-Rainbow - Live In Japan 1984 (2015) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Rainbow в Nippon Budokan (Tokyo, Japan) 1984 года01. Intro
-02. Spotlight Kid
-03. Miss Mistreated
-04. I Surrender(   Читать дальше...   )Производство: Ward RecordsЖанр: Hard RockСубтитры: Японские иероглифы на английскую речьПродолжительность: 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496604699D986EAF94CD8665174EA2C7576A62E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

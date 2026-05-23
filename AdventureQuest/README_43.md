@@ -1,3 +1,108 @@
+###  Публикация: 1002402   (429676) от 18.10.2016
+
+Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episodes 1-8]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений.
+Сюжет Minecraft: Story Mode, как сейчас принято, поделен на пять эпизодов, составляющих первый сезон. Протагонистом (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3953B86B8F96475A808737025DF146C79E9904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324125   (429221) от 07.09.2019
+
+Okaeri (2019) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Okaeri — японская игра ужасов о девочке из средней школы и ее матери, которая недавно переехала в новый дом. Сейчас 6:00 вечера, и я возвращаюсь домой, ожидая приветствия от твоей мамы, вместо этого она обнаруживает неожиданные вещи, происходящие на ее глазах.Тип издания: LicenseРазработчик: Yasuka TairaЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C9CE9D3866F93BEA49C93D4C1ED135E7F7B365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145463   (428732) от 12.10.2009
+
+Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. Механики [Dilogy / Дилогия]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Осень 2008 года. Агент ФБР Виктория Макферсон отправляется в штат Мэн для расследования убийства Одри Данниген. Фотографии с места преступления не оставляют сомнений - маньяк, известный как «Палач Восточного побережья», вновь начал собирать кровавую жатву. Убийца не поленился тщательно вымыть труп, при вскрытии не было обнаружено никаких улик. Преступник снова не (   Читать дальше...   )Тип издания: REPACKРазработчик: GameCo StudiosЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946285   (428627) от 12.10.2015
+
+Toren (2015) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В основе мира игры лежит древний бразильский фольклор, переиначенный в одну изящную легенду о башне, построенной волшебником для того, чтобы достичь луны. Солнцу, однако, высокомерие колдуна не понравилось: возмущенное светило отказалось покидать небесные просторы и тем самым обрекло человечество на гибель. Единственной надеждой на спасение стало Лунное Дитя – щекастая (   Читать дальше...   )Тип издания: ЛицензияРазработчик: SwordtalesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: -/-Язык субтитров: Русский, Английский, Французский, Немецкий, Бразильский португальский, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Бразильский португальский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA0DC0D6558B20DD302C6A96E71C2A52EEC55F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946338   (426681) от 13.10.2015
 
 Антология Gabriel Knight (1993-2014) [Ru/En] (1.0) License GOG
@@ -6,7 +111,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Path to Mnemosyne (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/Multi] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Trollhunters: Defenders of Arcadia / Охотники на троллей: За�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ Octave (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +372,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack CoolGames [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +398,7 @@ Best Month Ever! (2022) [Ru/Multi] (1.0.0_020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +424,7 @@ Jotun (2015) [Ru/Multi] (11-09-2019) License GOG [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +450,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) License GOG [Alone Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +476,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (1.0) License [20th Anniversa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +503,7 @@ Projection: First Light (2020) [Ru/Multi] (2.0.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +529,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +555,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +581,7 @@ The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +607,7 @@ Full Throttle (1995) [Ru/En] (2.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +633,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +659,7 @@ Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +670,6 @@ Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:491125655F4FECB2504D239CD1DDE71A25564D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066813   (409076) от 27.10.2016
-
-The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409076.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Deep Paths: Labyrinth Of Andokost - является РПГ игрой от первого лица. Игроку предстоит бродить по темным подземельям и уничтожать монстров применять традиционный пошаговый бой. Игроки исследуют огромный лабиринт, наполненный опасными существами и скрытыми сокровищами, дабы разгадать древнюю тайну зла! Благодаря богатой 3D-графики старой школы, чувство ретро (   Читать дальше...   )Тип издания: LicenseРазработчик: Steve JarmanЖанр: Adventure, Quest, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1C0F9C8B2F57203720D692DF862586C44F7552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948743   (408944) от 21.10.2015
-
-Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408944.jpg" />
-</div>
-
-
-###  Подробнее
-
-События Tales from the Borderlands разворачиваются в той же вселенной, что и трёх шутеров от Gearbox Software и 2K Games, после событий Borderlands 2. Взглянуть на происходящее предлагается глазами двух совершенно новых героев - работающего в корпорации «Гиперион» (Hyperion) уборщика Риса (Rhys) и мошенницы Фионы (Fiona). Рис мечтает стать новым Красавчиком Джеком (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Telltale Games и Gearbox SoftwareЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51634AD3C047F6B692D00FE64457E70C27FF405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168523   (408556) от 24.09.2017
-
-Figment (2017) [Ru/Multi] (1.0) Repack CoolGames
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная игра, которая разворачивается в тайных уголках человеческого сознания... Добро пожаловать в мир Figment. Странный сюрреалистический мир; место, наполненное нашими тайными мыслями, желаниями и воспоминаниями, населенное множеством голосов, которые мы слышим в голове. Этот разум долгие годы был тихим и спокойным. Но теперь что-то изменилось. Здесь начали (   Читать дальше...   )Тип издания: RepackРазработчик: Bedtime Digital GamesЖанр: Action, Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF6C8F2928552429D9B586B08C9E6501136EA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317916   (408300) от 17.09.2019
-
-The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вступление в культ добровольно. Здесь вас принимают, как родню. Здесь вас понимают. Здесь вас обволакивают словами, которые важнее, чем сама истина – они лечат все раны и заполняют все прорехи. В конце 70-х Миссию Коллективной Справедливости возглавляют харизматичные Айзек и Ребекка Уокеры. Их называют радикалами. Чтобы скрыться от преследования правительства США, (   Читать дальше...   )Тип издания: LicenseРазработчик: Paranoid ProductionsЖанр: Adventure (Top-Dawn), Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский и другиеЯзык интерфейса: Русский, Английский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D09B6EDD017155F27F7A172D81DE12705CF4E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

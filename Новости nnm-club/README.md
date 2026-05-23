@@ -1,4 +1,138 @@
 https://t.me/izofen
+###  Публикация: 35932   (1070222) от 
+
+Beethoven - Complete Beethoven Edition (1997) 87CD [APE|Lossless|image + .cue] <Classical>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Disc: 1 (BPO/Herbert Von Karajan)
+1. Sym No.1 in C, Op.21: 1. Adagio Molto – Allegro Con Brio
+2. Sym No.1 in C, Op.21: 2. Andante Cantabile Con Moto
+3. Sym No.1 in C, Op.21: 3. Menuetto. Allegro Molto E Vivace(   Читать дальше...   )Жанр: ClassicalПродолжительность: 100:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3416EDC1DBF2F93ADD412E67F2B3816CDBE35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872056   (1070158) от 
+
+В РЖД рассказали, когда в поездах будет стабильный интернет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+РЖД ожидают, что запуск высокоскоростного интернета во всех поездах в России станет возможен в 2028 году, но все будет зависеть от наличия оборудования, сообщил РИА Новости замгендиректора компании Евгений Чаркин.Он напомнил, что проект по запуску высокоскоростного стабильного интернета в поездах РЖД реализуют вместе с компанией "Бюро 1440". В частности, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871066   (1069524) от 
+
+КРОС: ограничения в интернете вызвали тревожность [у россиян]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ограничения интернета в 2026 г. обеспокоили россиян в два раза больше, чем тревожила тема заражения коронавирусом в 2020 г. Такие данные следуют из «Национального индекса тревожностей россиян», составленного КРОС [Компания развития общественных связей].Эта тема вышла на первое место впервые с 2022 г.Исследователи КРОС называют основной причиной беспокойства блокировку (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870875   (1068804) от 
+
+Первую отечественную BIOS исключили из реестра российского ПО
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Российский BIOS разработки «Группы Рикор» исключили из реестра отечественного ПО. Как выяснил CNews, запись о системе базового ввода-вывода была удалена по поручению Минцифры от 12 мая 2026 года — формально из-за неактуальности сведений в реестре. В ведомстве пояснили, что запрашивали у правообладателя обновление данных, но ответа не получили, поэтому решение об (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869269   (1068438) от 
+
+Цветок на броне. Как блондинка ростом полтора метра стала Героем Союза
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+30 апреля 2026 года в широкий прокат вышел фильм о Герое СССР Лидии Литвяк, над которым его создатели работали 7 лет. Снималась картина, в том числе на народные деньги.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869599   (1068354) от 07.05.2026
 
 Windows 11 Pro 25H2 26200.8246 x64 by SanLex [Lightweight] [Ru/En] (2026.05.07)
@@ -7,7 +141,7 @@ Windows 11 Pro 25H2 26200.8246 x64 by SanLex [Lightweight] [Ru/En] (2026.05.07)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +274,7 @@ Lisuan Technology стала четвертым производителем в�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +352,7 @@ Emirates оснащает системой Starlink все свои самоле
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +587,7 @@ Telegram обновил протокол по противодействию ц�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +639,7 @@ Telegram начнет помечать пользователей со стор�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -539,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 
 На американском рынке зафиксировано заметное снижение цен на DDR5-память после нескольких месяцев роста. По данным мониторинга ритейлеров, в ряде случаев стоимость комплектов снизилась до 100 долларов.
 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862795   (1063685) от 03.04.2026
-
-Max получил лицензию на защиту конфиденциальной информации
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мессенджер Max получил лицензии на техническую защиту конфиденциальной информации, а также на разработку соответствующих средств, следует из реестров ФСТЭК России.Эти лицензии в большинстве случаев выдаются бессрочно, такого характера они и у Max. Для российского мессенджера обе выданы 11 марта.Лицензия на защиту информации нужна компаниям, которые имеют - внедряют, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863119   (1063404) от 04.04.2026
-
-Эксперт рассказал, как Telegram может обойти все блокировки, включая отключение интернета
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мессенджер Telegram сможет обходить практически любые блокировки, включая отключение интернета, если в сервисе появится поддержка автономной сети Mesh. Об этом  рассказал эксперт по информационной безопасности (ИБ) и председатель совета по противодействию технологическим правонарушениям Координационного совета негосударственной сферы безопасности РФ (КС НСБ) Игорь (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863116   (1063240) от 06.04.2026
-
-В РФ хотят сократить количество провайдеров. Минцифры обсуждают ужесточение правил лицензирования связи
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минцифры совместно с участниками рынка рассматривают новые условия выдачи лицензий на оказание услуг связи в РФ. По информации источников «Известий», это пока предварительные предложения.Среди ключевых изменений: введение трех типов лицензий с ценой от 1 млн до 50 млн руб., запрет выдачи разрешений индивидуальным предпринимателям, а также возможность лишать лицензии (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863750   (1063175) от 06.04.2026
-
-Cколько весил и сколько стоил первый в мире жёсткий диск объёмом 1 Гбайт
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063175.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1981 году компания IBM выпустила первый в мире жёсткий диск, ёмкость которого превышала один гигабайт. Это была система хранения данных под названием IBM 3380 Direct Access Storage Device. Её базовый модуль (HDA, герметичный блок головок и дисков) с девятью 14-дюймовыми пластинами внутри мог хранить 1,26 Гбайт данных, что было в четыре раза больше, чем у предшественника (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863788   (1063125) от 07.04.2026
-
-Германия запретила выпускать мужчин из страны без разрешения
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063125.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала 2026 года в Германии начал действовать запрет для мужчин в возрасте от 17 до 45 лет по выезду из страны более чем на три месяца.Нововведение в закон распространилось на любые длительные поездки — оно касается случаев выезда по учебе, работе и даже путешествий. Меру ввели на постоянной основе, в том числе и в условиях мирного времени, которое не касается (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

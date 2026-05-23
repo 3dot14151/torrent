@@ -1,3 +1,56 @@
+###  Публикация: 1384541   (801474) от 21.05.2020
+
+NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На Земле 38 видов диких кошек, и они живут и охотятся практически повсеместно. На протяжении миллионов лет они оттачивали свою стратегию нападения на жертву определенного размера. Посмотрите на стратегии охоты диких кошек, которые делают их, возможно, самым смертоносным существом на земле - от леопардов, лазающих по деревьям, ягуаров, способных разгрызть череп своей (   Читать дальше...   )Производство: США, Natural History New Zealand Ltd, Plimsoll ProductionsЖанр: Документальный, Природа, Фауна, ФлораПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A7D7849CFF2E61A59146323683F3CD1CB887A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384762   (801437) от 21.05.2020
+
+Discovery. COVID-19: Китай против вируса / COVID-19: Battling the Pandemic (2020) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сегодня мы соблюдаем самый массовый карантин в истории человечества! Но с чего все началось в Китае, и как медики поняли, что что-то идет не так? На каких ошибках нам следует поучиться у китайцев и какие меры предпринять? И главное, как сегодня врачи и медики сражаются на передовой и смогут ли они победить вирус?
+Коронавирусная инфекция COVID-19 была впервые зафиксирована (   Читать дальше...   )Телекомпания: Китай, China International Capital Corporation, Discovery Networks Asia-Pacific, BilibiliЖанр: ДокументальныйРежиссер: Эрик ТомпсонПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AD154C1C22EE82678A811B113B1FFD6F7AFBE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376437   (801298) от 21.05.2020
 
 Эпоха искусственного интеллекта / The Age of A.I. (2019) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-6 из 8)
@@ -6,7 +59,7 @@
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ BBC. Панорама. Харви Вайнштейн: вся подноготн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +215,7 @@ NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +241,7 @@ Discovery. Техногеника. Стратегические Бомбарди
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +267,7 @@ BBC. Самые милые животные / Super Cute Animals (2014) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +319,7 @@ BBC. Великий рифт: Дикое сердце Африки / Great Rift:
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +345,7 @@ BBC Horizon: Хаббл. Открытие тайн космоса / Hubble: The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +371,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +397,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +449,7 @@ NGW: Холодное королевство снежного барса / The F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +501,7 @@ NG: Самый опасный наркотик / The World`s Most Dangerous Drug
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +527,7 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +579,7 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +631,7 @@ History Channel. Нацистский "Титаник" / The Nazi Titanic (2012)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_797345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -604,7 +657,7 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,58 +668,6 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECBD6C0189DE7D49E0EB255DDA19C43C6D30813D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508566   (797338) от 08.11.2021
-
-Вся правда о стрессе / The Truth about Stress (2017) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это программа о том, почему мы испытываем слишком много стресса в нашей повседневной жизни, как его можно уменьшить и даже превратить в полезную энергию. Фиона Филлипс решила изучить механизмы стресса и понять, как он влияет на наше здоровье и счастье. Вместе с командой специалистов и несколькими добровольцами Фиона погружается в разные ситуации,вызывающие стресс, (   Читать дальше...   )Производство: Великобритания, Blink (for BBC), Tin Roof Media ProductionsЖанр: Документальный, познавательный, научно-популярныйРежиссер: Сара СапперПеревод: Двуголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6819CBF4A8952E55C62E5738B537EFC1B48F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508435   (797332) от 08.11.2021
-
-NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уверенная и сильная самка леопарда по имени Олимба правит исключительно большой территорией вдоль реки Луангва в Замбии в Африке. Она грозный охотник, отважный правитель и преданная мать. Она только что родила двух крошечных детенышей, самца и самку. Поскольку она сталкивается со сложной задачей материнства, это постоянная битва за успешную охоту, защиту своей главной (   Читать дальше...   )Производство: Австрия / Kurt Mayer Film, Into Nature Productions, ORF, Arte WDRЖанр: ДокументальныйРежиссер: Уилл Стинкамп, Лианн СтинкампПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E458F1256E59594027ACCA3E2F630CB1F6297FEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

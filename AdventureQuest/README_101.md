@@ -1,3 +1,107 @@
+###  Публикация: 1120918   (25499) от 07.03.2025
+
+The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Андергасте, жители которого считаются исключительно суеверными, король Эффердан ожидает официального визита высокопоставленных чиновников. Столетиями королевство не ладило с соседней Нострией, но теперь, похоже, прочный мир не за горами. Однако королю не дает покоя нашествие ворон, которые ведут себя необычайно агрессивно и даже нападают на людей.Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62690C401E886146068CD86AE4436B198EBA5E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713808   (25492) от 07.03.2025
+
+Peaks of Yore (2023) [En] (1.9.7a/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Peaks of Yore - захватывающая экшен-адвенчура, погружающая в сложный мир альпинизма. Действие разворачивается в 1887 году, в то время, когда альпинизм только зарождался и увлекался, и она предлагает уникальный опыт всем, кто отправляется в виртуальное восхождение. Игроки исследуют захватывающие дух ландшафты Великих Галов - региона, напоминающего величественные Альпы. (   Читать дальше...   )Тип издания: LicenseРазработчик: Anders Grube JensenЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18176D76BCA9EC77C2C66368DCEA7CC6BE959FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783831   (25481) от 07.03.2025
+
+Lyndaria Lust Adventure (2024) [Ru/Multi] (1.2.b/dlc) Repack Let'sРlay [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Lyndaria - нелинейная эротическая визуальная новелла, действие которой разворачивается на затерянном острове, населенном племенами фурри. Наивную, но отважную героиню - Маю ждут захватывающие приключeния, пикантные и опасные! Таинственный и неизведанный остров в Атлантическом океане. Кусок земли, который не нашли ни корабли, ни вездесущие спутники. Но один человек (   Читать дальше...   )Тип издания: RepackРазработчик: Lustration TeamЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CD104A66420E656BE71C14AB3224F7353E199B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722863   (25473) от 07.03.2025
+
+Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License GOG [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+После событий второй части "Рейв-бизнес" Ицуки и его банды близок к тому, чтобы сдвинуться с мертвой точки. Ицуки смотрит на Мерил Хэтэуэй, молодую девушку, которую часто видят сопровождающей Котоко, как на противовес жестокости Умон-кай, и ищет способ уничтожить их раз и навсегда.Тип издания: LicenseРазработчик: Purple SoftwareЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (традиционный, упрощенный)Язык интерфейса: Английский, Китайский (традиционный, упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B5CA2AB6E57202B76C8EB70C588C00EF623AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783664   (25451) от 07.03.2025
 
 Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
@@ -6,7 +110,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Biohazard: Siberia (2025) [En] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Dark Return (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +318,7 @@ UNCURSED (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +396,7 @@ MainFrames (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ House of Caravan (2015) [Ru/Multi] (1.0.1) Scene PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.0720.01/dlc) License GOG [Digital Deluxe Bun
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Worldless (2023) [Ru/Multi] (1.3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C50C6692D89C3BAA552485BE0F7E638A1846204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785474   (24489) от 16.03.2025
-
-The Test: Reality Check (2025) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24489.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Test: Reality Check - это одна из нескольких частей продолжающегося социального эксперимента, которую можно отнести к атмосферным, психологическим симуляторам с элементами ужасов. Погрузитесь в собственную психику и получите ответы на вопросы, которые вы прятали глубоко внутри. Раскройте свой разум невиданными ранее способами и получите новые знания, просто пройдя (   Читать дальше...   )Тип издания: RepackРазработчик: Randumb StudiosЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1448865AA54F4A63464CDB2E0F4DEA013FF47143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785676   (24396) от 17.03.2025
-
-Siberian Way (2025) [Ru/En] (1.1.2) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Siberian Way – детективная триллер-новелла. Погрузись в мрачную историю, где каждый твой выбор не только определит судьбу героя, но и изменит ход расследования. Игра для всех любителей заснеженной Сибири, Убийства в Восточном экспрессе и мистических сюжетов. Конец XIX века. На одном из участков строительства магистрали происходит череда загадочных и жестоких убийств. (   Читать дальше...   )Тип издания: RepackРазработчик: RootGameЖанр: Приключенческие игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B655CE95EBDA1639CC2DF389697BDE8DB93171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785873   (24309) от 18.03.2025
-
-Hauntsville (2025) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24309.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли безымянного странника, вы попадаете в город-призрак на фронитре. Все исчезли, включая рабочих и лошадей, которые должны были перевезти вас через гору. Но вой вдалеке предвещает, что одним вам быть недолго. Проверь-ка свои железки, дружище, ведь лишь они отделяют тебя от монстров, которые таятся повсюду на Проклятом Западе.Тип издания: RepackРазработчик: Michael JanischЖанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20207073B153BC6D6CA82B80BB6E564F071D1F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784253   (24228) от 19.03.2025
-
-Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытайте ошеломительные моменты, погружаясь в разнообразные миры Split Fiction, новаторского совместного приключения от студии, создавшей It Takes Two - игру года 2021. Мио и Зоя - писательницы-антиподы: одна пишет научную фантастику, другая - фэнтези. Они оказываются заперты в собственных сюжетах, после того, как их подключили к машине, созданной, чтобы украсть (   Читать дальше...   )Тип издания: RepackРазработчик: Hazelight StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5814B893471F3BD3E3E71144FE8AD00F27E1CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

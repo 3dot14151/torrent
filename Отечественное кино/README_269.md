@@ -1,3 +1,107 @@
+###  Публикация: 1806257   (11846) от 11.07.2025
+
+Натурщица (2007) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Она была светской львицей. Художники писали ее портреты, а поэты посвящали стихи. Но сейчас Софья Пшебышевская приезжает в Тифлис в компании господина Эшенбаха, который подчеркнуто сдержан и даже холоден. Их взаимотношения - словно сжатая пружина, готовая лопнуть в любой момент. Вот только когда это случится? Драма столкновения двух миров, где фоном служат события (   Читать дальше...   )Производство: Россия / РоссфильмЖанр: ДрамаРежиссер: Татьяна ВоронецкаяАктеры: Виктория Толстоганова, Даниил Спиваковский, Николай Фоменко, Даниил Страхов, Виталий Егоров, Татьяна Кравченко, Людмила Полякова, Марк Рудинштейн, Марина Орлова, Мария ЛеоноваСубтитры: отсутствуютПродолжительность: 01:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCA6CA0200502585CB9F1D7D65E8249C66055EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806217   (11801) от 11.07.2025
+
+Правильный (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Трагедия на ночной дороге оказывается под взором невидимого наблюдателя, который толкает ее виновника на судьбоносную дуэль.Производство: РоссияЖанр: короткометражный, триллер, драмаРежиссер: Рустам БекмуратовАктеры: Николай Киселёв, Алексей Савченко, Наталья Киселёва, Александр Баринов, Николай Онищук, Григорий Кузнецов, Игорь Рагнар, Роман СадовПродолжительность: 00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE953DEDA50AC743D17E86218446B73E4F0A166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806236   (11799) от 11.07.2025
+
+Последняя жертва (2024) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Одинокий парень с маниакальными наклонностями знакомится в интернете с очередной очаровательной девушкой. Но в какой-то момент ситуация выходит из-под контроля.Производство: РоссияЖанр: короткометражный, триллерРежиссер: Милана ГасановаАктеры: Рамазан Баратов, Милана Гасанова, Константин Пателицин, Игорь Андреев, Роман Кустов, Николай Косенко, Валерия Твердохлебова, Мария Лях, Маргарита Ямпилец, Анастасия ПисареваПродолжительность: 00:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0301E3C33CE613B9B7D88E878AE809B95DF03EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806378   (11723) от 12.07.2025
+
+Жили-были (2017) WEBRip [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Старинная деревня в русской глубинке. Из жителей только два одиноких немолодых мужчины и внезапно овдовевшая женщина. Один из друзей решает, что пора завязывать с одиночеством и собирается предложить вдове руку и сердце. Но второй мужчина в корне с этим не согласен и тоже претендует на вакантное место. Лучшие друзья объявляют друг другу войну.Производство: Россия / Продюсерский центр Фёдора ДобронравоваЖанр: Комедия, драмаРежиссер: Эдуард ПарриАктеры: Фёдор Добронравов, Ирина Розанова, Роман Мадянов, Виктор Супрун, Владимир Капустин, Альбина Евтушевская, Алексей Ведерников, Ирина Сойкина, Владимир КарповСубтитры: ОтсутствуютПродолжительность: 01:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E063346FC7ED45A27B106414DA7B1221AE4ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806489   (11647) от 13.07.2025
 
 Ниша (2022) WEBRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF191C8636B55335EAD145F9F4DE3DF96BF05D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809768   (9663) от 01.08.2025
-
-Мастер и Маргарита (2023) BDRip [H.264/1080p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва, 1930-е годы. Известный писатель на взлёте своей карьеры внезапно оказывается в центре литературного скандала. Спектакль по его пьесе снимают с репертуара, коллеги демонстративно избегают встречи, в считанные дни он превращается в изгоя. Вскоре после этого, он знакомится с Маргаритой, которая становится его возлюбленной и музой. Воодушевлённый ее любовью и (   Читать дальше...   )Производство: Россия / АМЕДИА, Профит, Марс Медиа ЭнтертейнментЖанр: драма, фэнтези, мелодрамаРежиссер: Михаил ЛокшинАктеры: Аугуст Диль, Юлия Снигирь, Евгений Цыганов, Клас Банг, Юрий Колокольников, Алексей Гуськов, Кеша, Юрий Борисов, Алексей Розин, Данил СтекловПеревод: Не требуется (Русский)Субтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655542A4F06C591FB779A31267B88F234545124C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809769   (9633) от 01.08.2025
-
-Мастер и Маргарита (2023) BDRip [H.264/720p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва, 1930-е годы. Известный писатель на взлёте своей карьеры внезапно оказывается в центре литературного скандала. Спектакль по его пьесе снимают с репертуара, коллеги демонстративно избегают встречи, в считанные дни он превращается в изгоя. Вскоре после этого, он знакомится с Маргаритой, которая становится его возлюбленной и музой. Воодушевлённый ее любовью и (   Читать дальше...   )Производство: Россия / АМЕДИА, Профит, Марс Медиа ЭнтертейнментЖанр: драма, фэнтези, мелодрамаРежиссер: Михаил ЛокшинАктеры: Аугуст Диль, Юлия Снигирь, Евгений Цыганов, Клас Банг, Юрий Колокольников, Алексей Гуськов, Кеша, Юрий Борисов, Алексей Розин, Данил СтекловПеревод: Не требуется (Русский)Субтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F8E60869F0E64009C2E361BB0C7ED95D984BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 394472   (9608) от 02.08.2025
-
-Честь имею! (4 серии из 4) (2004) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его зовут капитан Числов. Он воюет на территории Чеченской республики. У него, как и у его товарищей, мало стимулов рисковать жизнью. У него нет денег, нет квартиры, нет семьи… Его предают и там, в бою, и здесь — в мирной, обычной жизни.
-   Об этом ему скажет очень красивая и очень богатая женщина далеко от войны, в прекрасном и безопасном Петербурге. Но у него есть (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Виктор БутурлинАктеры: Александр Лазарев мл., Евгения Крюкова, Андрей Фролов, Наталья Круглова, Владислав Юрчикевич, Роман Золотов, Анжелина Карелина, Сергей Астахов, Артем Алексеев, Александр СаюталинФормат: AVIКачество: DVDRipПродолжительность: 4 x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EF31CE23F7B7185E77DE17EA8EFDD844BDDFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357923   (9592) от 02.08.2025
-
-Второе дыхание (2008) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой картины – молодой прожигатель жизни Павел Макаров. Проснувшись после очередной вечеринки, он обнаруживает рядом с собой незнакомую девушку, которая всерьез предлагает жениться на ней, но получает отказ. Дочь местного авторитета, она не привыкла слышать слово «нет». И теперь Макарову грозят серьезные неприятности: ему приходится срочно покинуть родной (   Читать дальше...   )Жанр: Боевик, ВоенныйРежиссер: Михаил ТуманишвилиАктеры: Екатерина Климова, Никита Емшанов, Максим Щеголев, Всеволод Шиловский, Петр Красилов, Денис НикифоровПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8981CE6BB6F9107C3CD5D425B3B062334661519C
 ```
 
 https://mybot314.ru/tekegram_catalog/

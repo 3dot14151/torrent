@@ -1,3 +1,56 @@
+###  Публикация: 943039   (446916) от 04.10.2015
+
+Сокровища нации: Польский тупик (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В августе мир взорвала новость о сенсационной находке. Неизвестные кладоискатели заявили, что обнаружили в горах Польши легендарный немецкий поезд с сокровищами, который нацисты вывезли из Германии в 1945 году за несколько дней до взятия Берлина. В настоящий момент официальные власти не подтвердили обнаружение поезда-призрака. Однако уже объявили, что Россия в любом (   Читать дальше...   )Телекомпания: РЕН-ТВЖанр: ДокументальныйПродолжительность: 01:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBE145E44D14F9A182EF62F00C5CECB1FDC2CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943860   (445214) от 05.10.2015
+
+С. Смирнов. Рассказы о героях. А. Колесников
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В гостях на передаче настоящий герой Великой Отечественной Войны Александр Иванович Колесников.
+О его боевом пути в годы войны снят художественный фильмТелекомпания: Белорусское телевидениеЖанр: ТелепередачаПродолжительность: 00:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C4D347C4CBD87E98EA2AD381873D555E8B46FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943850   (445059) от 05.10.2015
 
 Атомная бомба Адольфа Гитлера. Версии (2015) SATRip [H.264]
@@ -6,7 +59,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ BBC - Вторая Мировая Война: 1941г и Человек из Ст
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +242,7 @@ National Geographic. Последние шаги Гитлера / Hitler's Last 
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +268,7 @@ NG. Последние шаги Гитлера / Hitler's Last Stand (2019) HDTV
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +346,7 @@ History Channel. Поле битвы 360°. Авианосец «Энтерпр�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +398,7 @@ History Channel. Высадка союзников в Нормандии. Нер
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +425,7 @@ History Channel. Высадка союзников в Нормандии. Нер
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +452,7 @@ History Channel. Высадка союзников в Нормандии: Нер
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +478,7 @@ History Channel. Поле битвы 360°. Авианосец «Энтерпр�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +504,7 @@ History Channel. Вторая мировая война: взгляд из ко�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +530,7 @@ History Channel. Вторая мировая война: взгляд из ко�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +608,7 @@ History Channel. Вторая мировая война: взгляд из ко�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADA9A741BD83748F74FE84A4B9A87DF48444C4C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324885   (382786) от 21.09.2019
-
-Величайшие события Второй мировой войны (Важнейшие ... в цвете) / Greatest Events of WWII in Colour (... World War II ...) (2019) HDTVRip [H.264/1080p-LQ] (серии 10 из 10)
-
->>След.
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающий рассказ историков, проиллюстрированный тщательно отреставрированными и раскрашенными документальными кадрами, оживляет чрезвычайно важную эпоху в истории. От немецкой «Молниеносной войны» с Францией, героической защиты Великобритании, кровавого перелома под Сталинградом, нападения японцев на Перл-Харбор и американского ответного удара при Мидуэй - до (   Читать дальше...   )Производство: Великобритания, Head Gear Films, Metrol Technology, World Media Rights ProductionsЖанр: Документальный, война, историяРежиссер: Ники БолстерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635BBB670954F9F9D7DB543081302CC6FC0729EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173018   (380944) от 17.10.2017
-
-Правда о Пёрл-Харборе / Pearl Harbor: The Truth (2016) HDTVRip [H.264/720p-LQ] (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380944.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 75-й годовщине внезапного нападения японцев на Пёрл-Харбор. Остается много вопросов, в частности, что Вашингтон знал о предстоящем нападении и какие действия предпринимал? Было перехвачено огромное количество радиограмм между Токио и его посольством. Почему о них не знал ни один высших офицеров, ответственных за защиту Оаху?
-Захватывающий сериал из двух частей (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, историяРежиссер: Кристофер СпенсерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 1 х ~ 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BCAC7699D3FD38576D1A61572A6A20E008E0C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

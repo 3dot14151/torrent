@@ -1,3 +1,107 @@
+###  Публикация: 1705277   (63617) от 08.03.2024
+
+Холоп 2 (2023) WEBRip [H.265/1080p] [10-Bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Гриша, бывший мажор, побывавший холопом и ставший человеком, после путешествия в «прошлое» чутко реагирует на любую несправедливость. И, конечно, не может пройти мимо беспредела, который творит наглая и избалованная Катя. Ничего удивительного, что вскоре мажорка обнаруживает себя в другом времени.Производство: Россия / Телеканал «Россия 1», Централ Партнершип, MEM Cinema Production, START, Yellow, Black & WhiteЖанр: КомедияРежиссер: Клим ШипенкоАктеры: Аглая Тарасова, Милош Бикович, Иван Охлобыстин, Александр Самойленко, Мария Миронова, Ольга Дибцева, Наталья Рогожкина, Олег Комаров, Софья Зайка, Сергей СоцердотскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328BAD24CFED6A7F38489521107731736C228277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705416   (63595) от 08.03.2024
+
+С 8 марта, мужчины! (2014) WEB-DL [H.265/720p] [10-Bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Анна Беркутова — блондинка в броне из мини-юбки и глубокого декольте. Ее оружие — красота, ум и абсолютная уверенность в том, что она знает мужчин. Она ведет важный проект в Сколково и собирается замуж за богатого иностранца. Но в день ее рождения, 8 марта, ее четкая, как финансовый отчет, судьба меняется: Аню бросает жених, ее проект крадут из Сколково, а сама она (   Читать дальше...   )Производство: Россия, Беларусь / Москит, БеларусьфильмЖанр: Мелодрама, комедияРежиссер: Артем АксененкоАктеры: Мария Берсенева, Максим Виторган, Светлана Иванова, Михаил Башкатов, Вера Алентова, Константин Лавиш, Ксения Бородина, Владислав Лисовец, Стивен Нельсон, Алексей КлимушкинПеревод: Оригинал (iTunes Russia)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CB87E4A7E1EDBE9A9F4F154237A437724FFB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705269   (63591) от 08.03.2024
+
+Холоп 2 (2023) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Гриша, бывший мажор, побывавший холопом и ставший человеком, после путешествия в «прошлое» чутко реагирует на любую несправедливость. И, конечно, не может пройти мимо беспредела, который творит наглая и избалованная Катя. Ничего удивительного, что вскоре мажорка обнаруживает себя в другом времени.Производство: Россия / Телеканал «Россия 1», Централ Партнершип, MEM Cinema Production, START, Yellow, Black & WhiteЖанр: комедияРежиссер: Клим ШипенкоАктеры: Аглая Тарасова, Милош Бикович, Иван Охлобыстин, Александр Самойленко, Мария Миронова, Ольга Дибцева, Наталья Рогожкина, Олег Комаров, Софья Зайка, Сергей СоцердотскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1877AA6FD927872BF355DEAA5E3312CCC2E0234B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705283   (63582) от 08.03.2024
+
+Холоп (2019) WEB-DLRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодой мажор Гриша заигрался в красивую жизнь и решил, что ему всё дозволено. Он натворил много дел, и теперь ему грозит тюрьма. Чтобы исправить своего сына, отчаявшийся отец-олигарх идёт на крайние меры. Вместе с психологом он придумывает уникальный проект: на базе заброшенной деревни воссоздаётся атмосфера России XIX века, а Гриша попадает в подстроенную аварию (   Читать дальше...   )Производство: Россия / Yellow, Black & White, MEM Cinema Production, Централ партнершип, Фонд киноЖанр: КомедияРежиссер: Клим ШипенкоАктеры: Милош Бикович, Александра Бортич, Александр Самойленко, Иван Охлобыстин, Мария Миронова, Олег Комаров, Ольга Дибцева, Кирилл Нагиев, Сергей Соцердотский, Софья ЗайкаПеревод: не требуется (Русский) iTunesСубтитры: русскиеПродолжительность: 01:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E13BD5FCE352C5F58EB28A337A393930C4B066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524740   (63568) от 09.03.2024
 
 Монгол / Mongol (2007) BDRemux [H.264/1080p] [Directors Cut]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECFBB3627660E94337989505CFEB09557CB12288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702023   (60665) от 05.04.2024
-
-Мира (2022) BDRemux [H.264/1080p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. 15-летняя Лера Арабова живет во Владивостоке. Ее отец много лет работает на орбитальной космической станции и давно потерял контакт с дочерью, превратившись лишь в голос в телефоне. После того как на город обрушивается метеоритный дождь, у Леры остается только один шанс спасти близких и город от новой катастрофы. В этом ей помогает отец, использующий (   Читать дальше...   )Производство: Россия / Кинокомпания Флагман, АМЕДИА, Марс Медиа ЭнтертейнментЖанр: фантастика, приключения, драмаРежиссер: Дмитрий КиселёвАктеры: Вероника Устимова, Анатолий Белый, Александр Петров, Агния Воробьева, Евгений Егоров, Дарья Мороз, Максим Лагашкин, Кристина Корбут, Марина Бурцева, Андрей СмоляковПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33496F6CC0DE85B3CFC718839E35460D15D834E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713772   (60629) от 06.04.2024
-
-Командир (2024) WEBRip [H.265]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геннадий Зайцев — обычный подросток в глухой уральской деревне. Он вырос в многодетной семье без отца, но сумел пережить трудности военного детства и послевоенной разрухи, и стать у истоков создания антитеррористического подразделения «Группа «Альфа». 1 декабря 1988 года в г. Орджоникидзе (ныне Владикавказ) террористы захватывают в заложники 32 ребёнка, учительницу (   Читать дальше...   )Производство: Россия / EGO ProductionЖанр: драма, боевикРежиссер: Александр Гурьянов, Тимур ХванАктеры: Кирилл Зайцев, Александр Жуков, Никита Буреев, Артём Ткаченко, Валерий Баринов, Нелли Пшенная, Сергей Маховиков, Владимир Зайцев, Вадим Андреев, Борис КаморзинПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A021E801C089FB06A0F43DDB000F7856AF68219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713660   (60606) от 06.04.2024
-
-Командир (2024) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геннадий Зайцев — обычный подросток в глухой уральской деревне. Он вырос в многодетной семье без отца, но сумел пережить трудности военного детства и послевоенной разрухи, и стать у истоков создания антитеррористического подразделения «Группа «Альфа». 1 декабря 1988 года в г. Орджоникидзе (ныне Владикавказ) террористы захватывают в заложники 32 ребёнка, учительницу (   Читать дальше...   )Производство: Россия, EGO ProductionЖанр: драма, боевикРежиссер: Александр Гурьянов, Тимур ХванАктеры: Кирилл Зайцев, Александр Жуков, Никита Буреев, Артём Ткаченко, Валерий Баринов, Нелли Пшенная, Сергей Маховиков, Владимир Зайцев, Вадим Андреев, Борис КаморзинПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 02:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402F64898C3238013425A07C3EB98CC7AB4ED612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713560   (60575) от 06.04.2024
-
-Магазинчик на колесах (2024) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надя Дьяконова работает продавщицей в маленьком деревенском магазине, когда на неё сваливается кредит. Это неприятный сюрприз от мужа Михаила, который ушёл к соседке Лере, так и не разведясь с Надей. Что ещё хуже – кредит взят под залог Надиного дома. На деньги банка Михаил купил фургончик-автолавку, а сам исчез в неизвестном направлении. Вместе с участковым Игнатом (   Читать дальше...   )Производство: Россия | «КиноХит Продакшн»Жанр: Детектив, мелодрамаРежиссер: Сергей БорчуковАктеры: Лидия Ефанова, Максим Емельянов, Михаил Богдасаров, Александр Андриенко, Александр Печенин, Анна Гуляренко, Анна Золотухина, Олег Миляховский, Валерий Афанасьев, Алёна ЯковлеваСубтитры: ОтсутствуютПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0012B07C7EE639B8C03C1442E65FA60ECB3184E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

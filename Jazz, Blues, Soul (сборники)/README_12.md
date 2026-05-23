@@ -1,90 +1,3 @@
-###  Публикация: 1142061   (640650) от 15.06.2017
-
-VA - Blues Hits - (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640650.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Albany Down - Mercy
-002 Albert Castiglia - Drowning At The Bottom
-003 Alvin Lee - My Baby's Come Back To Me
-004 Ana & Milton Popovic - I'm Losing You(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 11:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3E946DABF70AC8D0027760AC2264AEAB0939E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033417   (639769) от 10.07.2016
-
-VA - Jazz Erotica - Sinfully Glamorous Naughty Smooth Jazz Music for Seductive Erotic Romance (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemonjazz - Close Your Eyes - Erotic Sunset to Sunrise Mix
-02. Kool Keys - All This Time - Midnight Passion Mix
-03. Burning Lipps - Near or Far - Erotic Beach Love Mix
-04. Cool Swings - Just A Boy - Horny Instrumental Mix(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6AEEDFA6761E586F9EE58F31E3622CCE57D8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228434   (637371) от 31.05.2018
-
-VA - Blues Rock Drive 4 [4CD] (2018) [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danielle Nicole - Pusher Man (03:44)
-02. Per Frost - Black Crow Blues (04:10)
-03. Beth Hart & Joe Bonamassa - Why Don't You Do Right (04:34)
-04. Robbert Fossen Band - Still Called The Blues (03:37)(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 04:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E67BBCAA789524FE956B80D24A92C821013608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143219   (637078) от 17.06.2017
 
 VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
@@ -93,7 +6,7 @@ VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +35,7 @@ VA - Relaxing Instrumental Jazz Music (2017) [MP3|320 Kbps] <Smooth Jazz, Instru
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +64,7 @@ VA - Good To Be Alive (2019) [MP3|320 Kbps] <Blues, Rock Blues, Country>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +93,7 @@ VA - American Road Blues (2016) [MP3|192-320 Kbps] <Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +122,7 @@ VA - When My Day Comes (2019) [MP3|320 Kbps] <Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +151,7 @@ VA - Blue Pills Lounge: Love Making, Tantric Massage, Smooth Jazz (2016) [MP3|32
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +180,7 @@ VA - Les divas du jazz (Remastered) (2013) [MP3|320 кб/с]<Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +209,7 @@ VA - Blues Collection 10 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +238,7 @@ VA - Blues: Love & Devotion (2016) [MP3|320 Kbps] <International, Jazz, Vocal,Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +267,7 @@ VA - Back in Blue (A Blues Tribute to AcDc) (2016) [MP3|320 Kbps] <Blues, Blues 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +296,7 @@ VA - Funky Summer Jazz (2015) [MP3|320 кб/с]<Jazz, Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +325,7 @@ VA - Oriental Blues Vol.02 (2018) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +354,7 @@ Janis Joplin - Greatest Hits (2018) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +383,7 @@ VA - Instrumental Smooth Jazz (2018) [MP3|320 Kbps] <Instrumental, Smooth Jazz, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +412,7 @@ VA - Coffe Table Jazz Lounge (2016) [MP3|320 Kbps] <Acid jazz, Lounge>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +441,7 @@ VA - The Sun In My Hands: Instrumental Chill Jazz (2016) [MP3|320 Kbps] <Chill, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +470,7 @@ VA - Midnight Passion Elite Jazz (2016) [MP3|320 Kbps] <Jazz, Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +499,7 @@ VA - Blues Forever vol.57 - vol.60 (2016) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +528,7 @@ VA - Soft Soul & Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +557,7 @@ VA - Blues Forever vol.61 - vol.64 (2016) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +586,7 @@ VA - Swing Jazz Improvization (2018) [MP3|320 Kbps] <Swing Jazz, Electro Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -702,7 +615,7 @@ VA - Time for Jazz: Mellow Cafe Jazz, Soul Imagine Jazz Music (2016) [MP3|320 Kb
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -731,7 +644,7 @@ VA - Blues Rock Drive 3 [4CD] (2016) [MP3|320 Kbps] <Blues, Blues Rock, Hard Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -745,6 +658,93 @@ VA - Blues Rock Drive 3 [4CD] (2016) [MP3|320 Kbps] <Blues, Blues Rock, Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD622CFAEDBB3391558BD2B9F811ACB7CCFD1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548311   (598027) от 03.05.2022
+
+VA - Velour Mood (2CD) (2022) [MP3|320 Kbps] <Soul, Funk, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мягкость, меланхоличность и лиричность композиций сборника "Velour Mood", а так же аранжировка в духе классических "барных" инструментальных джаз компиляций раскрывается в совершенно неожиданном ключе и за счет вокала, который является центральным образом музыкальной картины.CD 01:
+
+001. Sault - London Gangs
+002. Damos Room - Soft Bodied(   Читать дальше...   )Жанр: Soul, Funk, JazzПродолжительность: 13:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D857444D2BB3FBE5AAD00CA171985E246F9335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039099   (597486) от 31.07.2016
+
+VA - Hot Sex (Smooth Jazz for Sensual, Sexy Love Making) (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Pieranunzi - Prolusion
+02. Harry Evans - Jewel
+03. Piano Jazz Calming Music Academy - Get Up, Stand Up
+04. Enrico Pieranunzi - The Flight Of Belphegor(   Читать дальше...   )Жанр: JazzПродолжительность: 02:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457F8FEADA1203E9A349A02FFEC9F3861C4D0244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039339   (595891) от 01.08.2016
+
+VA - Bossa Brasilia - Brazilian Jazz & Bossa Nova (2016) [MP3|320 Kbps] <Jazz, Bossa Nova>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Q - Treehouse (Vocal)
+02. Dynamedion GbR - Let's Fly to Rio
+03. Steve Rice Productions - Summer Bossa (Elevator Remix)
+04. Synapse - Sugar Loaf(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 02:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE13A26EAC920092CA6A17E7F7D95F155D4B947
 ```
 
 https://mybot314.ru/tekegram_catalog/

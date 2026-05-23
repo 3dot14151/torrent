@@ -1,3 +1,107 @@
+###  Публикация: 1859281   (1060797) от 15.03.2026
+
+Millennium Dream (2026) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Millennium Dream - это разработанный одним человеком симулятор ходьбы и фотографии, в основе которого лежит эстетика «китайского дримкора» (Chinese Dreamcore). Вы погрузитесь в тщательно выстроенные сны о былых днях... Вздремнуть в своей кровати ленивым, залитым солнцем полднем; пройтись по пешеходной улице, где когда-то после школы вы гуляли с мамой и где до сих (   Читать дальше...   )Тип издания: RepackРазработчик: LucidDreamLabЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: Китайский (упрощенный, традиционный)Язык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEDFD833C14E705B589CC51F4D4C822FB5798FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858938   (1060786) от 13.03.2026
+
+Legends of Savvarah: Flowers and Scorpions (2026) [Ru/En] (Build 21632093) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Никария - агент Чазира, слуга таинственного бога Дадара, которая после мистического ритуала перестала быть человеком. Теперь все ее тело - это оружие. Оружие, в руках Дадара. У нее нет моральных преград. Цель оправдывает любые средства, а воля Дадара выше всякого закона. Чазир направляет Никарию в другую страну в качестве шпиона. Ей предстоит встретиться с другими (   Читать дальше...   )Тип издания: RepackРазработчик: ST SinovarЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44BCC17F1C6E68BCC474B7B63CED0C92EA15928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858866   (1060684) от 13.03.2026
+
+Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (3.0 build 21763011/dlc) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Русы против ящеров 2 – это кооперативный слешер-экшен от легендарной команды theBratans, они же Smola Games, разработчика франшизы "Русы против ящеров". Заслуженно отмеченная наградами франшиза возвращается с новой, революционной главой. Мерзкие ящеры, подгоняемые своими тайными покровителями, получили новые ящерские технологии и вновь коварно напали на (   Читать дальше...   )Тип издания: RepackРазработчик: the Bratans, Smola Game StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1451AAB65341CA728CDFBE1322BE437365A480F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858869   (1060682) от 13.03.2026
+
+Out of Sight (2025) [Ru/Multi] (1.1.93/dlc) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Out of Sight - атмосферный хоррор, сочетающий перспективу от первого и второго лица с леденящей душу озвучкой. Попробуйте пережить это жуткое эмоциональное путешествие. Мир с новой точки зрения. Обретя зрение благодаря любимому Тедди, Софи понимает, что должна найти выход, пока не стало слишком поздно. Опасность подстерегает за каждым углом - один неверный шаг, скрипящая (   Читать дальше...   )Тип издания: RepackРазработчик: The GangЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC0EA483E3812812491131DED0F5C7D302FB216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858878   (1060677) от 13.03.2026
 
 The Green Light (2026) [Ru/Multi] (0.1) Repack FitGirl
@@ -6,7 +110,7 @@ The Green Light (2026) [Ru/Multi] (0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Green Light (2026) [Ru/Multi] (0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.0/dlc) Repack dixen18 [Digital Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Log.in (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Choice of Life: Samosbor (2025) [Ru/Multi] (Build 21269692) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Onirism (2025) [Ru/Multi] (Build 2213289) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack sel
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Neva (2024) [Ru/Multi] (Build 21964472/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Roots Devour (2026) [Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Last Express (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Children Of Morta (2019) [Ru/Multi] (1.3.376/dlc) Repack FitGirl [Complete Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +474,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Last Express (2013) [Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (269) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Dofamine (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.1180.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (2.0.38/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (2.2)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Forgotton Anne (2018) [Ru/Multi] (Build 20250418/dlc) Repack Let'sРlay [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Forgotton Anne (2018) [Ru/Multi] (Build 20250418/dlc) Repack Let'sРlay [Collect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C04954CAEA484163A29A9083D3995B8055D4C45D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854405   (1057464) от 17.02.2026
-
-Disney Villains Cursed Cafe (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Villains Cursed Café - это визуальная новелла с элементами алхимии, в которой игроки управляют кафе в современном мире, помогая культовым диснеевским злодеям воплотить их мечты через волшебные эликсиры. Игроки создают напитки, влияющие на судьбы персонажей - от гольфа для Гастона до театра для Крюка. Disney Villains Cursed Cafe предлагает уютный, стильный (   Читать дальше...   )Тип издания: RepackРазработчик: Bloom Digital MediaЖанр: Казуальные игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6FBCDCBB59074B5DBED75D289AF8BC276D3902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853910   (1057011) от 15.02.2026
-
-Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ступайте в окутанные легендами земли, где охотница Ро отправляется в путь, чтобы вернуть своего сына из мертвых. Погрузитесь в глубины мира духов, расколотого на четыре части и 13 отдельных регионов. Сражайтесь с более чем 30 типами врагов и используйте потенциал более 160 карт, создавая уникальные архетипы и множество мощных комбинаций. Вас ждет мрачное путешествие (   Читать дальше...   )Тип издания: LicenseРазработчик: The Outer ZoneЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73E8C166B120105E3B67946826C3A48FD57077D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853856   (1057001) от 15.02.2026
-
-Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (20251218) Scene Rune [Enhanced]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Senua's Saga: Hellblade 2 - продолжение ролевого экшена про кельтскую воительницу Сенуа. События сиквела переносят в Исландию, а история напрямую продолжает предыдущую часть. Основная идея игры состоит в том, чтобы показать свое видение шаманизма нордических земель. Игра опирается на кельтскую и скандинавкую мифологии. В центре истории героиня предыдущей части - (   Читать дальше...   )Тип издания: SceneРазработчик: Ninja TheoryЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6F4E9C9C17A2C2C95AD99CCC0F11C9A68DC311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851814   (1055421) от 04.02.2026
-
-Super Drift Blade (2025) [Multi] (1.0.3.1) Repack Necros
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Drift Blade - это инди-экшен с элементами RPG и рогалика, выполненный в 2D-стиле с рисованной, красочной графикой. Большинство ваших средств действия были отобраны у вас. В каждой реинкарнации двигайте мышью, чтобы убивать монстров, взламывать головоломки, заблокированные знаниями, и исследовать скрытые пути! Пройдите дальше за ограниченное время и откройте (   Читать дальше...   )Тип издания: RepackРазработчик: LiujiajunЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, Японский, КитайскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8B3474CE88865F01C1153982DA799395522D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

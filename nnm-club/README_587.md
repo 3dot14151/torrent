@@ -1,100 +1,24 @@
-###  Публикация: 1847728   (1052337) от 16.01.2026
+###  Публикация: 1850284   (1054152) от 27.01.2026
 
-Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.1176/dlc) Repack FitGirl
+Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automation Study Guide: In-Depth Guidance and Practice (2025) [PDF, EPUB] [EN]
 
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quarantine Zone: The Last Check - симулятор сотрудника карантинного поста, где на игрока возложена ответственность за принятие судьбоносных решений в условиях зомби-апокалипсиса. Процедура досмотра прибывающих беженцев требует скрупулезности, ведь необходимо выявлять тревожные признаки: от кашля и подозрительных ран до аномального пульса и зеленоватого оттенка кожи.Тип издания: RepackРазработчик: Brigada GamesЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490F45389DA7A803E0A6C13718ABFE46A9599E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847735   (1052336) от 17.01.2026
-
-Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14334.20468 (2026.01) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BDF41C054765AC0BE3462FB222F8D1B2C28EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847736   (1052335) от 14.01.2026
-
-SoftPerfect NetWorx 26.1 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052335.jpg" />
-</div>
-
-
-###  Подробнее
-
-SoftPerfect NetWorx - утилита для учета интернет-трафика и мониторинга скорости Интернета на вашем компьютере. Программа работает с любым кабельным или беспроводным подключением, а также модемом, предоставляя удобную статистику, отчеты и графики. Вы сможете измерить реальную скорость и загрузку вашего интернет-подключения, просматривать ежедневные, недельные и месячные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AB79C49B936F8CC4CAC767A5F6DBF629B074D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847665   (1052334) от 14.01.2026
-
-Мухтар. Он вернулся (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-20 из 20)
-
->>Отечественные сериалы
+>>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Трое недисциплинированных сотрудников полиции из разных районов Москвы оказываются на грани увольнения. Один превышает полномочия, запугивая наркокурьера, вторая случайно ранит сослуживца, а третий — не без «помощи» любимого пса — вступает в конфликт с начальником опергруппы. В итоге руководство решает дать им второй шанс: Котова с Мухтаром, внуком и тёзкой легендарной (   Читать дальше...   )Производство: Россия | Студия 2ВЖанр: детектив, комедияРежиссер: Валерий Ибрагимов, Евгения ЮстусАктеры: Александр Носик, Дмитрий Кривошеев, Александр Ляпин, Валерия Бурдужа, Даниил Буров, Александр Тютин, Игорь Лагутин, Антон Юрьев, Анастасия Кравченя, Елизавета Пащенко и др.Продолжительность: ~00:44:00 серия
+With the Ansible automation tool, developers and system administrators in the enterprise can automate the provisioning, configuration, and management of distributed and on-premises systems. This study guide prepares you for the Red Hat Certified Engineer (RHCE) certification exam, 90% of which covers Ansible.
+
+Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать дальше...   )Жанр: Linux Certification Guides, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4C8BDAFF90BEC997BCF31D69CBE7758A291DEA3
+magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,315 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847648   (1052333) от 14.01.2026
+###  Публикация: 1850283   (1054151) от 27.01.2026
 
-Хорошие новости / Good News / Gutnyuseu / Gut Nuiuseu (2025) WEBRip [DVO]
+Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python. Your Practical Guide to Building Smart AI Systems with Machine Learning and Deep Learning (Rheinwerk Computing) (20 ...
 
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052333.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1970 году террористы из Красной армии Японии захватывают пассажирский самолёт, чтобы угнать его в Пхеньян. Правительство Южной Кореи предлагает план, по которому один из аэропортов этой страны должен быть замаскирован под северокорейский, чтобы обманом заставить угонщиков совершить посадку.Производство: Корея Южная / Star PlatinumЖанр: комедия, историяРежиссер: Пён Сон-хёнАктеры: Соль Гён-гу, Хон Гён, Рю Сын-бом, Такаюки Ямада, Киппэй Сина, Ким Сон-о, Сё Касамацу, Наиру Ямамото, Пак Ён-гю, Сиро Сано и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F643806551A44BCF467B3257638B4F7FB9A1CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847647   (1052332) от 14.01.2026
-
-Хорошие новости / Good News / Gutnyuseu / Gut Nuiuseu (2025) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052332.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1970 году террористы из Красной армии Японии захватывают пассажирский самолёт, чтобы угнать его в Пхеньян. Правительство Южной Кореи предлагает план, по которому один из аэропортов этой страны должен быть замаскирован под северокорейский, чтобы обманом заставить угонщиков совершить посадку.Производство: Корея Южная / Star PlatinumЖанр: комедия, историяРежиссер: Пён Сон-хёнАктеры: Соль Гён-гу, Хон Гён, Рю Сын-бом, Такаюки Ямада, Киппэй Сина, Ким Сон-о, Сё Касамацу, Наиру Ямамото, Пак Ён-гю, Сиро Сано и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C834C8F2FBAE5F596D31D3D085CF53B5E0B354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847759   (1052331) от 14.01.2026
-
-Cryptosis - Celestial Death (2025) [FLAC|Lossless|image + .cue] <Thrash, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue / Awakening 1:16
-02. Faceless Matter 3:52
-03. Static Horizon 5:10
-04. The Silent Call 5:02(   Читать дальше...   )Жанр: Thrash, Progressive MetalПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84448E2293303B8256A415114357E16651C27782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847760   (1052330) от 14.01.2026
-
-Между вчера и завтра / Zwischen gestern und morgen / Between Yesterday and Tomorrow (1947) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052330.jpg" />
-</div>
-
-
-###  Подробнее
-
-В послевоенной Германии группа бывших постояльцев возвращается в роскошный мюнхенский отель, где их преследуют воспоминания о прошлом, связанном с Нелли Дрейфус, еврейкой, погибшей в нацистскую эпоху.Производство: Германия / Bavaria Film, Neue Deutsche Filmgesellschaft (NDF)Жанр: драма, мелодрама, военныйРежиссер: Харальд БраунАктеры: Хильдегард Кнеф, Винни Маркус, Сибилла Шмиц, Вилли Биргель, Виктор де Кова, Виктор Штааль, Карста Лёкк, Адольф Гондрелл, Вальтер Киаулен, Эрих ПонтоПеревод: Авторский (Юрий Сербин)Язык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1D750C2BEF3397E8524599788E96F9C0F8EC9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847766   (1052329) от 14.01.2026
-
-Поймать монстра / Dust Bunny (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восьмилетняя (по другим данным — десятилетняя) девочка по имени Аврора убеждена, что монстр, живущий под её кроватью, съел её семью. Она нанимает своего таинственного соседа, считая его охотником на чудовищ. На самом деле мужчина — профессиональный киллер. Он соглашается помочь, подозревая, что родители девочки могли стать случайными жертвами его собственных врагов-наемников. (   Читать дальше...   )Производство: СШАЖанр: фэнтези, боевик, драмаРежиссер: Брайан ФуллерАктеры: Софи Слоун, Мадс Миккельсен, Сигурни Уивер, Давид Дастмалчян, Ребекка Хендерсон, Шила Атим, Нора Трокан, Roland Szóka, Каспар Филлипсон, Лине КрусеПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6326CF48D42CCB1DB0350030C0A29160EDF6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847764   (1052328) от 14.01.2026
-
-Морская полиция: Начало / NCIS: Origins (2024-2025) WEB-DLRip (сезон 1, серии 1-18 из 18) TVShows
-
->>Зарубежные сериалы
->>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1991-й год. Молодой Лерой Джетро Гиббс, только что получивший должность специального агента, приступает к работе в недавно созданном офисе NCIS в Кэмп-Пендлтоне. Он попадает в суровую и разнообразную команду под руководством легендарного Майка Франкса. В процессе работы Гиббс сталкивается с первыми серьезными расследованиями, учится применять свои навыки и адаптироваться (   Читать дальше...   )Производство: США / CBS Studios, Ceci Bear Productions, J. bird, Wings ProductionsЖанр: драма, криминалРежиссер: Ханель М. Кулпеппер, Нильс Арден Оплев, Джессика ЛориАктеры: Остин Стоуэлл, Кайл Шмид, Мэриэл Милл, Тайла Аберкрамби, Дайни Родригес, Калеб Фут, Патрик Фишлер, Бобби Мойнахан, Тонанцин Кармело, Джулиан ШэмпПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CF8B5F49FFAA48AA23457F09B4BCDDCAC568B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847762   (1052327) от 14.01.2026
-
-Морская полиция: Начало / NCIS: Origins (2024-2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-18 из 18) TVShows, LE-Production
-
->>Зарубежные сериалы
->>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052327.jpg" />
-</div>
-
-
-###  Подробнее
-
-1991-й год. Молодой Лерой Джетро Гиббс, только что получивший должность специального агента, приступает к работе в недавно созданном офисе NCIS в Кэмп-Пендлтоне. Он попадает в суровую и разнообразную команду под руководством легендарного Майка Франкса. В процессе работы Гиббс сталкивается с первыми серьезными расследованиями, учится применять свои навыки и адаптироваться (   Читать дальше...   )Производство: США / CBS Studios, Ceci Bear Productions, J. bird, Wings ProductionsЖанр: драма, криминалРежиссер: Ханель М. Кулпеппер, Нильс Арден Оплев, Джессика ЛориАктеры: Остин Стоуэлл, Кайл Шмид, Мэриэл Милл, Тайла Аберкрамби, Дайни Родригес, Калеб Фут, Патрик Фишлер, Бобби Мойнахан, Тонанцин Кармело, Джулиан ШэмпПеревод: Многоголосый (TVShows, LE-Production)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04D560EBE362DB9E449D68F3D202FCB42441FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847761   (1052326) от 14.01.2026
-
-На быстрых лошадях / On Swift Horses (2024) BDRip [H.265/1080p] [10-bit] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052326.jpg" />
-</div>
-
-
-###  Подробнее
-
-История разворачивается в 1950-е годы после Корейской войны. Молодожены Мюриэл и Ли переезжают в Калифорнию, чтобы начать новую жизнь, но их стабильность рушится с приездом харизматичного брата Ли — Джулиуса, азартного игрока с тайнами. Герои оказываются втянуты в опасный «любовный четырехугольник», исследуя свою идентичность и запретные желания в репрессивной Америке (   Читать дальше...   )Производство: США / Cor Cordium Productions, FirstGen Content, Killer FilmsЖанр: драма, мелодрамаРежиссер: Даниэль МинаханАктеры: Джейкоб Элорди, Дейзи Эдгар-Джонс, Уилл Поултер, Джейсон Кравиц, Дэн Мартин, Эндрю Кинэн-Болджер, Чад Коу, Бун Платт, Тед Бартон, Дон СуэйзиПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced), АнглийскиеПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE605B02607841B08BA64041CD3AC53CAFEF4C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847737   (1052325) от 14.01.2026
-
-Юлия Гиппенрейтер | Большая книга общения с ребенком (2021) [MP3, Леонтина Броцкая]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая книга для родителей, которые хотят услышать своих детей и быть услышанными ими.
-"Большая книга общения с ребенком" – представляет собой дополненное и переработанное издание книг «Общаться с ребенком. Как?», «Продолжаем общаться с ребенком. Так?» и специальных глав, посвященных детям из книги «У нас разные характеры. Как быть?». Тексты расширены, (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Книги для родителейИздательство: АСТПродолжительность: 14:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AA92666C90B12860084831A9E6B7AE14249F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847771   (1052324) от 16.01.2026
-
-Канун нового страха / New Fears Eve (2025) WEBRip [H.264/720p] [VO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда троих сотрудников компании "Хупер Индастриз" заставляют остаться на корпоративную новогоднюю вечеринку, они готовятся максимально скучно провести время. Но неожиданно на празднике объявляется незваный гость – серийный убийца по прозвищу Доктор в причудливом костюме. И празднование Нового года превращается в кровавую резню, в которой выживут лишь редкие (   Читать дальше...   )Производство: США / Blood Moon PicturesЖанр: ужасы, комедияРежиссер: Эрик Хаскиссон, П.Дж. СтарксАктеры: Фелисса Роуз, Дэйв Шеридан, Ханна Файрман, Лили Клер Харви, Джеффри Реддик, Джейсон Кроу и др.Перевод: Одноголосый любительский (datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61ED585FCAB90525A5EEFBAB1A5FA117A95D82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847770   (1052323) от 14.01.2026
-
-DU Meter 9.20 Build 4884 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052323.jpg" />
-</div>
-
-
-###  Подробнее
-
-DU Meter - программа для подсчета реального входящего и исходящего сетевого трафика. Возможности: полностью настраиваемые объем трафика и предупреждения о времени модемного соединения; настраиваемая ежедневная, еженедельная и ежемесячная статистика (как по трафику, так и по времени соединения) с возможностью экспортировать данные в форматы Excel, Word, HTML, Text (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA017B3F3E359120D55EF1CB82F3BE9C53B20E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847772   (1052322) от 14.01.2026
-
-Мастер и Маргарита (2005) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) [Цифровая реставрация]
-
->>Отечественные сериалы
+>>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-1930-е годы. В Москве появляется загадочный иностранец, который представляется Воландом. Вместе с ним в жизнь советского города вторгается чертовщина и мистика, а прислуга этого господина сводит с ума обывателей и морочит им голову. Но есть у визита Воланда и оборотная, скрытая от простых смертных сторона.Производство: Россия / Госкино, РТР-ФильмЖанр: триллер, драма, мелодрама, детектив, мистика, экранизацияРежиссер: Владимир БорткоАктеры: Анна Ковальчук, Александр Галибин, Олег Басилашвили, Владислав Галкин, Кирилл Лавров, Александр Абдулов, Александр Филиппенко, Сергей Безруков, Александр Баширов, Валентин Гафт и др.Субтитры: русскиеПродолжительность: ~ 00:50:00 серия
+Neural networks are at the heart of AI—so ensure you’re on the cutting edge with this guide! For true beginners, get a crash course in Python and the mathematical concepts you’ll need to understand and create neural networks. Or jump right into programming your first neural network, from implementing the scikit-learn library to using the perceptron learning algorithm. (   Читать дальше...   )Жанр: Introductory & Beginning Programming, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22BF17F2D51BECD92532FADD1E26B325C978BB55
+magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,26 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847774   (1052321) от 14.01.2026
+###  Публикация: 1850282   (1054150) от 27.01.2026
 
-JetBrains RubyMine 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
+Bernd Oggl, Michael Kofler | Docker. Practical Guide for Developers and DevOps Teams - Unlock the Power of Containerization. Skills for Building, Securing, and Orchestrating with Docker (Rheinwerk  ...
 
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
-Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
+Learn the ins and outs of containerization in Docker with this practical guide! Begin by installing and setting up the platform. Then master the basics: get to know important terminology, understand how to run containers, and set up port redirecting and communication. You’ll learn to create custom images, work with commands, and use key containerization tools. Gain (   Читать дальше...   )Жанр: Software Design Tools, Computer Operating Systems, Computer Network AdministrationЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A22AB4A3351F050802078AB76556EFE84EF8E838
+magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,25 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847731   (1052320) от 14.01.2026
+###  Публикация: 1850280   (1054149) от 27.01.2026
 
-Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госпожа Вампир по соседству [2018, TV, 12 эп.] BDRip 1080p raw+rus
+Michael Kofler | Linux. The Comprehensive Guide to Mastering Linux—From Installation to Security, Virtualization, and System Administration Across All Major Distributions (Rheinwerk Computing) (202 ...
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Любовь нечаянно нагрянет, когда её совсем не ждёшь! Акари Амано с первого взгляда влюбляется в девушку-вампира Софи Твайлайт, которая спасает её из беды. Вскоре это слепое увлечение перетекает в совместное проживание: Софи приходится принять свою новую соседку. А Софи и сама не является типичным представителем расы вампиров — людей она не трогает, ведь ей привычнее (   Читать дальше...   )Производство: Япония, Studio GokumiЖанр: комедия, повседневность, вампиры, паранормальноеРежиссер: Акитая НориакиЯзык озвучки: Русский закадровый (KANSAI Studio)Субтитры: ASS (Русский, Crunchyroll)Продолжительность: ТВ, 12 серий по 24 мин.
+Beginner or expert, professional or hobbyist, this is the Linux guide you need! Install Linux and walk through the basics: working in the terminal, handling files and directories, using Bash, and more. Then get into the nitty-gritty details of configuring your system and server, from compiling kernel modules to using tools like Apache, Postfix, and Samba. With information (   Читать дальше...   )Жанр: Computer Operating Systems, Linux Networking & System Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D44493D4FDB47DB24A4C0C2CDB3D94A9C3D48EF
+magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,25 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847775   (1052319) от 14.01.2026
+###  Публикация: 1850275   (1054148) от 27.01.2026
 
-JetBrains PyCharm Professional 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
+Torsten T. Will | C++. The Comprehensive Guide to Mastering Modern C++ from Basics to Advanced Concepts with Hands-on Examples, and Best Practices for Writing Efficient, Secure, and Scalable Code ( ...
 
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
+If you need to know C++, look no further! This comprehensive guide has everything you need to master the modern C++23 language, from syntax fundamentals to advanced development concepts. Follow practical code examples as you learn object-oriented programming, work with standard library containers, program concurrent applications, and more. Don’t just learn how to (   Читать дальше...   )Жанр: Object-Oriented Software Design, C++ Programming Language, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6C90ADC763644450227F30FA29F234D1916A505
+magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,25 +130,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847777   (1052318) от 14.01.2026
+###  Публикация: 1850272   (1054147) от 27.01.2026
 
-Двое под одним зонтом: Апрельская сказка (1983) WEBRip [H.264/1080p]
+Christopher Negus | Linux Bible. 11th Edition (2026) [PDF, EPUB] [EN]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Жонглер Дан красив и беззаботен. Любимец женщин, он не горит желанием быть героем арены. Однако встреча с Ольгой, не сомневающейся в его таланте, заставляет Дана подумать о новом цирковом номере...Производство: СССР / Одесская киностудияЖанр: мюзикл, мелодрама, комедияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Наталья Андрейченко, Ивар Калныньш, Елена Сафонова, Иннокентий Смоктуновский, Елена Яковлева, Евгений Биляуэр, Людмила Лобза и др.Субтитры: русскиеПродолжительность: 01:27:17
+The industry gold standard in Linux guides, fully updated
+In the newly updated eleventh edition of the Linux Bible, veteran Linux author and trainer Christopher Negus walks you through the latest and most popular Linux distributions, including Red Hat Enterprise 9, Ubuntu 24 LTS, and Fedora 41. Whether you're a brand new or power user, you'll learn hands-on ways (   Читать дальше...   )Жанр: Linux & UNIX Administration, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: SybexФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:225BCD78DFEE06D7491C2391211C23470AA20CF5
+magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,25 +157,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845646   (1052317) от 14.01.2026
+###  Публикация: 1850271   (1054146) от 27.01.2026
 
-Чудеса на виражах / TaleSpin (1990–1991) DVDRip [H.265/1080p] [10-bit] (сезон 1, серии 1-65 из 65) [Handmade Upscale AI]
+Тони Парсонс | Сборник аудиокниг [2 книги] (2013-2015) [AAC, Nikosho]
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Аудио и Видео
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Весёлое и опасное путешествие по небесным просторам в компании весёлого пилота-толстяка Балу и его отважных друзей. Воздушные пираты, погони за сокровищами и настоящая дружба.Производство: США, Тайвань, Франция, Южная Корея, Япония, Disney Television AnimationЖанр: рисованная анимация, приключенияРежиссер: Джэми Митчелл, Роберт Тейлор, Ларри ЛэтэмАктеры: Эд Гилберт, Джим Каммингс, Сэлли Стразерс, Р.Дж. Уильямс, Пэт Фрэли, Чарльз Адлер, Чак МакКанн, Фрэнк Уэлкер, Жанна Майклс, Тони ДжейПеревод: Дублированный (ТСК)Язык озвучки: Русский, АнглийскийСубтитры: английские, французскиеПродолжительность: ~00:23:00 серия
+Эта маленькая светлая книга возвращает человеку его естественное величие и неповторимую ценность. Тайна, которой нет, то единственное и прекрасное, что никогда нам не изменит, не будет никем похищено или разрушено. Тони Парсонс один из немногих, кто говорит о высочайших наслаждениях духа столь просто и доступно.
+Освобождение по своей природе очевидно, просто и естественно, (   Читать дальше...   )Жанр: АдвайтаИздательство: Аудиокнига своими рукамиПродолжительность: 01:25:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2682134ECF7FBC0932B3ABA5D027C94D8E9E8847
+magnet:?xt=urn:btih:50E6432EBF630C7F3F21293C3EC5A09D84D14B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,25 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847779   (1052316) от 14.01.2026
+###  Публикация: 1850264   (1054145) от 27.01.2026
 
-Google Chrome 144.0.7559.60 Stable + Enterprise [Multi/Ru]
+Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Научная и техническая литература
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:518960F2D8F7674AD505E7356FF5DDC2EB441C6E
+magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,25 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847784   (1052315) от 14.01.2026
+###  Публикация: 1850265   (1054144) от 27.01.2026
 
-Мученицы / Martyrs (2008) BDRip [H.264]
+Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Франция. Начало 70-х. Маленькая Люси, почти год считавшаяся пропавшей без вести, обнаружена бредущей по проселочной дороге. Ребёнок находится в состоянии сильного шока и не может рассказать о случившемся. Пятнадцать лет спустя девушка с сильным посттравматическим синдромом вламывается в загородный дом респектабельной пары среднего возраста, живущей с двумя детьми-подростками. (   Читать дальше...   )Производство: Канада, Франция / Eskwad, Wild Bunch, TCB FilmЖанр: ужасы, триллерРежиссер: Паскаль ЛожьеАктеры: Морьяна Алауи, Милен Джампаной, Катрин Беджин, Патриция Туласне, Джульетт Госселин, Ксавье Долан, Изабель Шассе, Эмили Мискджьян, Майк Шуте, Гаелль Коэн, Ани Паскаль, Джесси Пэм, Эрика Скотт, Луиз Бойсверт, Жан-Франсуа БодроПеревод: профессиональный многоголосый (R5 СP-Digital), профессиональный двухголосый (Интерфильм), авторский (Дмитрий Есарев; Вячеслав Замез)Язык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:39:33
+Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A55323BE69B96F20CC1A9EFDD71F11E413F07036
+magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,25 +236,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847783   (1052314) от 14.01.2026
+###  Публикация: 1850268   (1054143) от 27.01.2026
 
-Abyssus (2025) [Ru/Multi] (1.2.55683/dlc) Repack Let'sРlay
+Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
 
->>Win Игры
->>Action (FPS)
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Вместе с друзьями окунитесь в стремительный многопользовательский шутер Abyssus. Сражайтесь на великолепных, созданных вручную уровнях в этом приключении в жанре «упрощенного рогалика», которое проверит ваши тактические навыки на прочность. Используйте мощное оружие, питаемое силой глубин, и оснастите его древними технологиями, чтобы получить преимущество над врагами. (   Читать дальше...   )Тип издания: RepackРазработчик: DoubleMoose GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
+
+In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E7B3A447D7721661EDAF6E2ED307903158F730C
+magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,27 +264,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847785   (1052313) от 14.01.2026
+###  Публикация: 1850269   (1054142) от 27.01.2026
 
-Александр Куприн, Антон Чехов и др. | Новогодние рассказы (2026) [MP3, Александр Васильев]
+Andrew Tanenbaum, Herbert Bos | Modern Operating Systems. 5th Edition (2023) [PDF] [EN]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-«Новогодние рассказы» русских писателей читает Заслуженный артист РФ Александр Валерьянович Васильев.
-1. Рассказ «Бедный принц» (1909) А.И. Куприна входит в сборник «Детские рассказы». Впервые опубликован «Петербургская газета», № 1, 1 января 1910 в году.
-2. Рассказ «Детвора» (1886) А.П. Чехова входит в сборник «Пестрые рассказы». Впервые опубликован «Петербургская (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:51:43
+Modern Operating Systems incorporates the latest developments and technologies in operating systems (OS) technologies. Author Andy Tanenbaum's clear and entertaining writing style outlines the concepts every OS designer needs to master. In-depth topic coverage includes processes, threads, memory management, file systems, I/O, deadlocks, interface design, multimedia, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D41B285846621251463628FF4BCC061A9ABED468
+magnet:?xt=urn:btih:B4CE95A007BAA059E295740DCC0FD5CE2A4100A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,27 +290,404 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847782   (1052312) от 14.01.2026
+###  Публикация: 1850304   (1054141) от 27.01.2026
 
-Vermocracy - Studio Albums (3 releases) (2020-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+VA - Magical Melodies: Nicolai, Rossini, Gounod, Brahms, Tchaikovsky, Wagner - Overture, Waltz and other (1968) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Vermocracy - австрийская дэт-метал группа из Вены, основана в 2017 году.2020 - Vermocracy
-2022 - Age of Dysphoria
-2026 - Of Failing and FadingЖанр: Melodic Death MetalПродолжительность: 01:56:31
+A1 The Vienna State Opera Orchestra - The Merry Wives Of Windsor : Overture Nicolai
+A2 The Beecham Promenade Orchestra - The Thieving Magpie : Overture Rossini
+A3 The Vienna State Opera Orchestra - Faust Waltzes Gounod
+B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) Brahms(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
+magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850341   (1054140) от 27.01.2026
+
+The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Dave (LP Version)
+A2 Hard Times
+Lazun Gemmun - The Boomtown Rats Live
+B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, Synth-popПродолжительность: 00:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850380   (1054139) от 27.01.2026
+
+Проекты - VideoHive - Phone Notifications (Liquid Glass Style) - 61576187 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Автоматизированные уведомления в стиле «жидкого стекла»: создавайте мобильные уведомления в стиле «жидкого стекла» за считанные минуты с помощью этого шаблона. Настройте все параметры в интуитивно понятной панели управления всего за несколько кликов. Встроенные звуковые эффекты и пошаговое видеоруководство делают настройку доступной даже для новичков.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AD609373CACC0607A65CB27539D48406038907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850383   (1054138) от 27.01.2026
+
+Пресеты - Alex Hutchinson - Lightroom & ACR Preset Pack: 35mm Film [XMP, LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Это мой набор пресетов для Adobe Lightroom и Photoshop. Пресеты не универсальны, но достаточно близки к идеалу.
+
+Эта коллекция пресетов разрабатывалась годами, в течение которых я снимал на плёнку и стремился воспроизвести тонкий цветовой баланс в своих цифровых работах.
+(   Читать дальше...   )Формат: XMP, LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7030EA925623A519FD3599B46C2CD1240D26DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850385   (1054137) от 27.01.2026
+
+Perfectly Clear WorkBench 5.0.1.3057 + AddonsPack [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA45E4166DD6F0AB0575AECC84390F10CBA9A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849747   (1054136) от 15.02.2026
+
+Книга Илая / The Book of Eli (2009) BDRip [H.265/2160p] [4K, HDR10+, 10-bit] [handmade Upscale]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+После мировой катастрофы Америка превратилась в выжженную пустыню. По бескрайним дорогам, кишащим бандами, враждующими между собой за воду и еду, странствует мудрый Илай. Однажды он прибывает в мрачные края, где когда-то была цветущая Калифорния, а теперь это сущий ад, где бесчинствует тиран Карнеги.Производство: США / Alcon Entertainment, Silver PicturesЖанр: фантастика, боевик, драмаРежиссер: Альберт Хьюз, Аллен ХьюзАктеры: Дензел Вашингтон, Гари Олдман, Мила Кунис, Рэй Стивенсон, Дженнифер Билз, Малкольм МакДауэлл, Фрэнсис де ла Тур, Майкл Гэмбон, Том Уэйтс, Ивэн ДжонсПеревод: Дублированный (Пифагор), Многоголосый профессиональный, Авторский (Сербин, Гаврилов, Есарев)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC72BBDFABBF2FB6BB37EC872C45A348BCBC7776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850390   (1054135) от 27.01.2026
+
+Анаконда / Anaconda (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures, Fully Formed Entertainment, TSG EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон Биллингсли, Себастьян СероПеревод: Дублированный (MovieDalen)Субтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F0F14A7C79AB5FD98E3FF289F4CCEF50126414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850391   (1054134) от 27.01.2026
+
+Елена Логунова | Ванна с шампанским (2025) [MP3, Дарья Копысова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Индия негодовала: ее жених не смог выбить у начальства отпуск, а теперь поездка в Рим накрывается медным тазом! Составить девушке компанию согласился брат, известный дизайнер Казимир, но если бы она знала, чем все закончится! Увидев в одном из римских сквериков бесхозную старинную ванну, он вознамерился увезти ее с собой, чтобы выгодно продать одному из постоянных (   Читать дальше...   )Жанр: Иронический детективИздательство: ЭксмоПродолжительность: 08:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F20F132AD5C6640CD3D111A2B3A238EB8C5B09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849686   (1054133) от 27.01.2026
+
+В России снова планируют выпускать собственные процессоры: для этого власти создают крупную корпорацию с бюджетом в 1 триллион рублей⁠⁠
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В рамках плана развития микроэлектроники в России правительство собирается создать мегакорпорацию под названием «Объединенная микроэлектронная компания» (ОМК), на развитие которой в период до 2030 года направят триллион рублей, в том числе 750 миллиардов — из федерального бюджета.Основные детали плана:
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850378   (1054132) от 27.01.2026
+
+Дмитрий Балашов | Похвала Сергию (2025) [MP3, Александр Аравушкин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Роман «Похвала Сергию» посвящен грандиозной фигуре преподобного Сергия Радонежского – подвижника, чудотворца, уже при жизни почитавшегося наравне со святыми, а также исторического деятеля, благословившего князя Дмитрия Донского на битву на Куликовом поле. Писатель и историк Дмитрий Михайлович Балашов, автор знаменитого исторического цикла «Государи Московские», неоднократно (   Читать дальше...   )Жанр: Проза, историяИздательство: Азбука-АттикусПродолжительность: 47:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B6232871360F15D94B1DB7984A4814FFA36EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850384   (1054131) от 27.01.2026
+
+Тайниковский | Моя героическая ферма (Том 1) (2025) [MP3, Игорь Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Надоело на протяжении сотен и тысяч лет противостоять ордам демонов и их владыке? Терять, друзей, союзников и верных соратников? Выживать в самых опасных местах, теряться в лабиринтах, или пропадать в болотах? Тогда эта книга для вас!
+Пособие от Великого Героя о том, как бросить охоту на демонов и начать выращивать овощи)
+Главы первой книги каждый день, кроме выходных!Жанр: Фэнтези, боевик, юморИздательство: ЛитРесПродолжительность: 07:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CC7BCC8FA6122C113B0D6293D3E914756F5FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850394   (1054130) от 27.01.2026
+
+Заклятие / The Conjuring (2013) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эд и Лоррейн Уоррены — детективы, которые расследуют паранормальные дела. Однажды к ним обращается семья, страдающая от злого духа. Уоррены, вынужденные сражаться с могущественной демонической сущностью, сталкиваются с самым пугающим случаем в своей жизни.Производство: США / Evergreen Media, New Line Cinema, Safran Company, TheЖанр: ужасы, детективРежиссер: Джеймс ВанАктеры: Вера Фармига, Патрик Уилсон, Рон Ливингстон, Лили Тейлор, Шэнли Касвелл, Хейли МакФарланд, Джои Кинг, Маккензи Фой, Кайла Дивер, Шэннон Кук-ЧунПеревод: дублированный официальный (Мосфильм-Мастер, Постмодерн), профессиональный двухголосый (SDI Media), авторский (Василий Горчаков, Андрей Дольский, Михаил Яроцкий), любительский одноголосый (Хихикающий доктор)Язык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8EEA94A0F86EE9B35AAD4A010C6E41BE8B1B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850387   (1054129) от 27.01.2026
+
+Тайниковский | Моя героическая ферма (Том 2) (2025) [MP3, Игорь Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Надоело на протяжении сотен и тысяч лет противостоять ордам демонов и их владыке? Терять, друзей, союзников и верных соратников? Выживать в самых опасных местах, теряться в лабиринтах, или пропадать в болотах? Тогда эта книга для вас!
+Пособие от Великого Героя о том, как бросить охоту на демонов и начать выращивать овощи)
+Главы первой книги каждый день, кроме выходных!Жанр: фэнтези, боевик, юморИздательство: ЛитРесПродолжительность: 06:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3254E8F042A6CEAF3D68F29B21D32612CF6185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850395   (1054128) от 27.01.2026
+
+Анаконда / Anaconda (2025) WEB-DLRip [H.264]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures Corporation, Fully Formed Entertainment, TSG EntertainmentЖанр: Боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон БиллингслиПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C08E71C28A9E54E81A50C6E16F25FC57693D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850389   (1054127) от 27.01.2026
+
+Том Сойер / Tom Sawyer (1917) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Одна из первых экранизаций известного произведения Марка Твена о детстве обыкновенного американского мальчика Тома Сойера, живущего в небольшом городке у своей тёти Полли, которая после смерти матери мальчика занимается его воспитанием. Семья Тома вполне благополучна. Мальчик всегда сыт, одет и регулярно посещает школу. Однако маленькому проказнику для счастья этого (   Читать дальше...   )Производство: США / Oliver Morosco Photoplay CompanyЖанр: приключения, семейный, экранизация, немое киноРежиссер: Уильям Десмонд ТейлорАктеры: Джек Пикфорд, Джордж Хэкэторн, Элис Марвин, Эдит Чэпман, Роберт Гордон, Энтрим Шорт, Клара Хортон, Хелен Гилмор, Карл Гетц, Олив ТомасПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A4851EAF07E863AFBE940F0B318C536A4ED1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1041013   (584456) от 07.08.2016
+
+Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk, Soul,  Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 I Can't Stop Loving You
+A2 Georgia On My Mind
+A3 Hit The Road Jack
+A4 Take These Chains From My Heart(   Читать дальше...   )Жанр: Funk, Soul,  Rhythm & BluesПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72222CA9D886E21DFC7CEDA0568C75FE740FF782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041019   (584429) от 07.08.2016
+
+Группа Стаса Намина - Сюрприз Для Мсье Леграна (1983) Repress 1984 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+А1 Подводный Замок
+А2 Лето Пикассо
+А3 Друг Покинул Этот Мир
+А4 Парафраз На Темы Песен(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040839   (584266) от 07.08.2016
+
+C.C. Catch - Diamonds: Her Greatest Hits (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Euro Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+sideA
+A1 House Of Mystic Lights (Long Version - Dance Mix)
+A2 Are You Man Enough
+A3 'Cause You Are Young(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EE639E50570487C1163D810A3F99B680BA2D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041132   (584154) от 07.08.2016
+
+Supertramp - Breakfast in America (1979) Reissue, 2013, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Art Rock, Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Breakfast in America — шестой студийный альбомы группы Supertramp, выпущенный в 1979 году. Альбом стал самым успешным у Supertramp - всего в мире было продано свыше 20 миллионов его копий и самым успешным английским альбомом во Франции.01. Gone hollywood
+02. The logical song
+03. Goodbye stranger
+04. Breakfast in america(   Читать дальше...   )Жанр: Art Rock, Pop Rock, Classic RockПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C92B31BF8648921209C5D98214A4F0336E0BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041078   (584150) от 07.08.2016
+
+Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Soul, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Back to Black — второй и последний студийный альбом британской певицы Эми Уайнхаус, выпущенный 4 октября 2006 года на Island Records. Большинство музыкальных критиков положительно отозвались об альбоме, оценив талант автора в песнях, написанных Уайнхаус под влиянием классического соула и спродюсированных Саламом Реми и Марком Ронсоном. На 50-й церемонии «Грэмми» (   Читать дальше...   )01. Rehab
+02. You Know I'm No Good
+03. Me & Mr. Jones
+04. Just Friends(   Читать дальше...   )Жанр: Soul, JazzПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F70B632E8E3AAACD753BA1AA7915891210D206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301234   (584015) от 12.05.2019
 
 VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
@@ -6,7 +151,7 @@ VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +180,7 @@ Luciano Pavarotti - Ti Adoro (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Clas
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +209,7 @@ Bad Company - 10 From 6 (1985)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +238,7 @@ Billy Idol - Rebel Yell (1983) [APE 2.0 24/192|image (Vinyl-Rip)]<Pop Rock/Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +273,7 @@ Sandra - Into A Secret Land (1988) [APE 2.0 24/96|image (Vinyl-Rip)]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +307,7 @@ Uriah Heep - Firefly (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +336,7 @@ Def Leppard - Diamond Star Halos (2022) 2xLP [FLAC 2.0|192/24|tracks|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +365,7 @@ Rammstein - Rammstein (2019) [FLAC|192/24|Lossless|tracks|Vinyl] <Industrial Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +394,7 @@ Supertramp - ...famous last words... (1982) [FLAC 2.0 24/96|image (Vinyl-Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -278,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +452,7 @@ Manfred Mann's Earth Band - Chance (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -336,7 +481,7 @@ VA - Честно говоря-2 - Советская Эстрада 70-80 гг.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -365,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -394,7 +539,7 @@ Symphony X - Дискография (10 releases) (1994 - 2015) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +597,7 @@ Roger Waters - The Pros And Cons Of Hitch Hiking (1984) [FLAC 2.0 24/96|image (V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +626,7 @@ Mannheim Steamroller - Fresh Aire 8 (2000/2016) [DTS 5.1 CD-DA|44.1/16|image+cue
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +655,7 @@ Linn Records - The Super Audio Collection Volume 2 Sampler (2006) [DSD 5.1, 2.0|
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +684,7 @@ Various Artists – SACD Ultimate Collection (vol. 1 & 2) (2001) [DTS 5.1 CD-DA|
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +713,7 @@ Royal Knights/Ройял Найтс - Вокальный Квартет "Рой�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,7 +742,7 @@ Enya - Watermark (1988) [APE 2.0 24/96|tracks (Vinyl-Rip)] <Electronic/Ambient/N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,148 +756,6 @@ A1.  Watermark [02:23]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923046   (566199) от 30.07.2015
-
-Al Bano & Romina Power - Аль Бано и Ромина Пауэр (1982) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Italo-Disco, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Чистый воздух (Aria Pura)  3:14
-2. Счастье (Felicita)  3:16
-3. Идиллия (Sharasan)  4:48(   Читать дальше...   )Жанр: Italo-Disco, Pop RockПродолжительность: 00:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2642248F866BAE628B1936C17ED1C6C37C63F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923154   (566188) от 30.07.2015
-
-Smokie - Greatest Hits (1977) Repress /1988, Балкантон/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566188.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Lay Back In The Armes Of Someone (4:02)
-A2. Something's Been Making Me Blue (3:00)
-A3. If You Think You Know How To Love Me (3:24)
-A4. Pass It Around (3:06)(   Читать дальше...   )Производство: EMI / БалкантонЖанр: RockПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330A5ED060902A2D62E337C1C9AEA05968DFC2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303894   (565126) от 25.05.2019
-
-Bob Marley - Songs of Freedom. Part 2 (1994) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Reggae>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565126.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Africa Unite
-02. Survival
-03. Zimbabwe(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3379715825309C0F79E6D50C159268B4B7604447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303670   (565125) от 25.05.2019
-
-Baba Yaga  (Баба Яга) - Where Will You Go (Куда Ты Пойдешь?) (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565125.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Where Will You Go (Куда ты пойдешь)
-A2 So Ends Another Day (Так заканчивается день)
-A3 Side To Side (Бок о бок)
-A4 Red Bird (Красная птица)(   Читать дальше...   )Жанр: Folk Rock, Blues RockПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B769561943A34700E8816A33302557EC72CFB03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691399   (559913) от 20.08.2013
-
-The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Vinyl-Rip]<Hi NRG, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559913.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )Жанр: Hi NRG, Synth-pop, DiscoФормат: Vinyl, LP, AlbumПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D7177BBC3582D38A31AF8DD0A25CD038A2DA89
 ```
 
 https://mybot314.ru/tekegram_catalog/

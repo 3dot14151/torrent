@@ -1,3 +1,185 @@
+###  Публикация: 1124465   (785691) от 11.04.2017
+
+Acronis True Image 2017 New Generation 21.0.6206 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E45F69628B12C42D7C0A1C191E6C52BEE2B372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123640   (785679) от 11.04.2017
+
+KMSAuto Net 2016 1.5.0 Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+KMSAuto Net — автоматический KMS-активатор для операционных систем Windows VL-редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, а также Office 2010, 2013, 2016. Дополнительно программа активирует: Windows 8.1 Single Language; Windows 8.1 Core; Windows 8.1 Core N; Windows 8.1 Pro WMC; Windows Embedded 8.1 Industry Pro; Windows Server 2012 R2 Standard; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4E4ACC839A9CF485E990766330F84864EB2126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124739   (785492) от 12.04.2017
+
+Демон внутри / The Autopsy of Jane Doe (2016) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой девушки без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: Великобритания, СШАЖанр: Ужасы, детективРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Паркер Сойерс, Джейн Перри, Ив О’ХараПеревод: Профессиональный многоголосый (AlexFilm)Субтитры: ОтсутствуютПродолжительность: 01:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA6DA2B87D2B0F333A0B1508E79E76B06A036C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124713   (785489) от 12.04.2017
+
+Adobe Photoshop Lightroom CC 2015.10 (6.10) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD63C25328D1BFE22F5C348B8611BEB4996094E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918776   (785488) от 12.04.2017
+
+Assassin's Creed 3 (2012) [Ru/En] (1.06/dlc) Repack =nemos= [Ultimate Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Полноценная третья часть серии Assassin's Creed. Нам предстоит сыграть роль полукровки – британца по отцовской линии и индейца-мохока по материнской – со странным для нашего уха именем Ratohnaké:ton. События Assassin’s Creed 3 будут развиваться во времена Войны за независимость США. Вы – ассасин Коннор, поклявшийся сохранить свободу и безопасность своего народа (   Читать дальше...   )Тип издания: RepackРазработчик: UbisoftЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4BC7E82F917F0AC9996D5EC5AC0FE437FE12CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124829   (785486) от 12.04.2017
+
+Телейос / Teleios (2017) HDRip [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Будущее. Ученые создали технологию модификации молекул днк и спроектировали генетически совершенного человека. Экипаж из таких безупречных людей направляется к Титану, чтобы забрать критически важный для выживания человечества груз. Но прибыв к месту назначения, они сталкиваются с множеством тайн, оставшихся после гибели предыдущего экипажа. Что же на самом деле (   Читать дальше...   )Производство: СШАЖанр: ФантастикаРежиссер: Йен ТрюйтнерАктеры: Санни Мабри, Лэнс Бродвэй, Т.Дж. Хобан, Кристиан Питре, Майкл Шеннон Дженкинс, Урсула Миллс, Weetus Cren, Майкл Нури, Лейла Бирч, Бретт Роберт КулбертПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: отсутствуют.Продолжительность: 01:30:35Реклама: присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB58B0E8B2C1D21D4CDB8A8D7A1D50F3D2EB1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276800   (785299) от 20.01.2019
+
+Ученые впервые вырастили кровеносные сосуды человека в лаборатории
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Команде британских и австрийских биоинженеров впервые удалось вырастить кровеносные сосуды человека. Результаты эксперимента публикует журнал Nature.Вырастить сосуды удалось из органоидов — специальной структуры, культивированной из стволовых клеток.«Наши органоиды напоминают человеческие капилляры, даже на молекулярном уровне. Теперь мы можем использовать их, чтобы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277346   (785251) от 20.01.2019
 
 1 февраля 2019 года ваш сайт может перестать работать
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +215,7 @@ Test Drive Unlimited 2 ModPack (2011/2017) [Ru/En] (034/1.7.4/dlc) Repack/Mod Ni
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -111,7 +293,7 @@ Corel VideoStudio Ultimate 2018 21.1.0.89 + Content Pack [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -137,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -163,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -189,7 +371,7 @@ Avira Phantom VPN Free / Pro 2.12.5.31589 RePack by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -215,7 +397,7 @@ Windows 7 SP1 4in1 (x86/x64) Elgujakviso Edition (v.03.02.18) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +424,7 @@ InuYasha / Инуяша [1996] [Манга] [Русский] [главы:1-442, 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -268,7 +450,7 @@ Win 10 Tweaker 5.2 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +556,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.06.11 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +582,7 @@ Quantum Break (2016) [Ru/En] (1.0.126.0307) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +608,7 @@ Hotspot Shield VPN Business 9.5.9 (64-bit) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +634,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,189 +671,6 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4201325803D9D3AAA32203E355E679401D8C4BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799036   (783259) от 14.06.2020
-
-Ozi Explorer v1.34 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783259.jpg" />
-</div>
-
-
-###  Подробнее
-
-OziExplorer для Android использует растровые карты, которые либо отсканированы или приобретены в цифровом формате. Это позволяет вам отслеживать вашу позицию на карте, полученную от GPS приемника.Тип издания: ПираткаРелиз состоялся: 08.02.2020Разработчик: OziExplorerПоддерживаемая ОС: Android  4.1/5/6/7/8/9/10+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98293085DE22302BD917802D3D8DDE7E199DA0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205837   (783116) от 11.02.2018
-
-Win 10 Tweaker 5.4 Portable by XpucT [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и возможностями Windows, поэтому антивирусы не ругаются на (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ECD41E19F6252B08438B15D88AA49D364029B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205340   (783078) от 11.02.2018
-
-Ритуал / The Ritual (2017) WEBRip [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо бывших одноклассников отправляются в поход по горам и лесам, чтобы почтить память погибшего друга. Сначала они придерживаются общепринятого маршрута, но затем решают немного прогуляться в сторону от натоптанной тропы и находят в лесу странный дом.Производство: Великобритания, Entertainment One, Netflix, The Imaginarium StudiosЖанр: УжасыРежиссер: Дэвид БрукнерАктеры: Рейф Сполл, Роб Джеймс-Колльер, Сэм Тротон, Аршер Али, Пол Рейд, Керри МакЛин, Мария Эрвольтер.Перевод: Любительский двухголосый (Sky Voices) присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC14D08A042B1A5604F70AB98BC0DEC26008D662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390162   (783010) от 15.06.2020
-
-Все исходящие - бесплатно. В России отменяется «банковский роуминг»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783010.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России с 14 июня 2020 года будет отменен так называемый банковский роуминг. Это комиссии за межрегиональные переводы денег между клиентами внутри одного банка.Закон об отмене «банковского роуминга» был принят в декабре прошлого года, но вступает в силу по истечении полугодового срока, то есть с 14 июня текущего года. Инициативу предложили правительству Банк России, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390187   (783008) от 15.06.2020
-
-Виталий Егоров | Люди на Луне. Главные ответы (2020) [EPUB]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783008.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фоне технологий XXI века полет человека на Луну в середине прошлого столетия нашим современникам нередко кажется неправдоподобным и вызывает множество вопросов. На главные из них – о лунных подделках, о техническом оснащении полетов, о состоянии астронавтов – ответы в этой книге.
-Автором движет не стремление убедить нас в том, что программа Apollo – свершившийся (   Читать дальше...   )Жанр: Научно-популярная литература, Астрономия, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63071D108A1142965D9540D1B63BF84415AB8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205950   (782803) от 12.02.2018
-
-JetBrains PhpStorm 2017.3.4 Build #PS-173.4548.32 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782803.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код, поддерживает PHP 7.2,7.1,7.0, 5.6, 5.5, 5.4 и 5.3 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание языков. Сотни инспекций заботятся о (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D29D5B36A490D6900A13FB48809FA512C4F0037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206099   (782797) от 12.02.2018
-
-Destroy Windows 10 Spying 1.7 Build 100  Portable  [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782797.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D996F2B7C781A1169FD9DFCBC3411CF29C7BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

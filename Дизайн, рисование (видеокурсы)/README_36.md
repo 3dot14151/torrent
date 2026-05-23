@@ -1,3 +1,82 @@
+###  Публикация: 1140376   (655482) от 06.06.2017
+
+Андрей Козьяков | Adobe InDesign. Базовый уровень (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+InDesign — легендарный инструмент для верстки публикаций любого типа и объемов. С помощью InDesign любая задача становится по силам — верстка буклета или небольшой брошюры, журнала с высококачественной типографикой и ярким дизайном, годовых отчетов с сложными таблицами и инфографикой, каталогов с тысячью изображений товаров, книг объемом в несколько сотен страниц. (   Читать дальше...   )Жанр: Графика, версткаПродолжительность: 36:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115E6AC8C337304E6427A5E07DC00039B30B1B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905678   (648883) от 06.06.2015
+
+Павел Бирюлин | Создание собственного рукописного шрифта используя Font Creator (2011) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данный видеоролик затрагивает тему создания собственного рукописного шрифта в программе Font Creator 6.0.Жанр: Типографика, шрифтыПродолжительность: 00:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D603E1EFBED20CED8F7D841089A614B0C11E98B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541039   (648302) от 01.04.2022
+
+Levelup.Digital, Carlos Perfume | Substance Designer Dome of Cologne (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке вы шаг за шагом узнаете, как создать сложную готическую архитектуру в Substance Designer. Следите за тем, как автор воссоздает часть знаменитого Кельнского купола.
+Создав несколько архитектурных произведений в прошлом, Карлос усвоил много уроков на этом пути, которыми он делится в этом руководстве. В добавок к тому, что делать и чего не делать, он делится (   Читать дальше...   )Производство: Levelup.DigitalЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 05:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3E8BCCFBC7105ECB5BAFF3B3A7DDC782A86F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541426   (646533) от 02.04.2022
 
 CGcircuit, Matthew Skonicki | Photogrammetry Pipeline (2018) PCRec [EN, RU]
@@ -6,7 +85,7 @@ CGcircuit, Matthew Skonicki | Photogrammetry Pipeline (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ CGcircuit, Matthew Skonicki | Photogrammetry Pipeline V2 (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +138,7 @@ MZED, Vincent Laforet's | Directing Motion Daytime Movement and Direction Worksh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +164,7 @@ The Gnomon workshop, Derrick Sesson | Introduction to creating facial blendshape
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +192,7 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +220,7 @@ video2brain |Adobe Illustrator CS6: Learn by Video [Jun 27, 2012] PCRec [Eng]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +246,7 @@ video2brain |Adobe Premiere Pro CS6: Learn by Video [Jun 8, 2012] PCRec [Eng]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +434,7 @@ CGcircuit, Matthew Skonicki | Scratch to Substance Volume 4 (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +460,7 @@ CGcircuit, Matthew Skonicki | Scratch to Substance Volume 3 (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +618,7 @@ Lynda.com | Создание отзывчивого веб-дизайна / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,7 +674,7 @@ Allegorithmic, What's New in Substance Designer 5, Wha's New in Substance Painte
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,85 +685,6 @@ Allegorithmic, What's New in Substance Designer 5, Wha's New in Substance Painte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C85B91329694525AFFEA02FC6B45AD0B50B662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544418   (621876) от 15.04.2022
-
-Levelup.Digital, Daniel Thiger | Plaster Wall with Parameter-driven Bullet Holes (2019) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как работает эксперт Substance Designer Даниэль в этом полностью озвученном пошаговом уроке, который он сделал для Levelup.Digital. В данном уроке он создаст отштукатуренную стену с параметрическими отверстиями от пуль. Узнайте как работать с клетками, чтобы создавать разные типы эффекта повреждений и как использовать параметры для управления уровнем повреждений. (   Читать дальше...   )Производство: Levelup.DigitalЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DF1EF178C7D71FF9AC10F96DF7482F1DD42A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544410   (621747) от 15.04.2022
-
-Shane Hurlbut | Cinematography Starter Kit (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искать качественные обучающие материалы в сети - задание не из легких. Данный курс от Шейна Хёрлбата, члена Американского общества кинооператоров, поможет начинающим создателям фильмов на их пути визуального повествования. Курс включает следующие темы - управление и лидерство, ответственность автора фильма, упорство и настойчивость в работе, начало карьеры, создание (   Читать дальше...   )Жанр: Курс для начинающих операторовЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83CD4A4946B96D193C0E12EE85CF90B41D56F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544606   (619783) от 16.04.2022
-
-Udemy, Nexttut, Alejandro Aguilar | Making a Fantasy Axe in Blender 3.1 and Substance Painter (2022) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь делать оружие для игр и фильмов. Смоделируйте и затекстурируйте фантазийный топор в Blender и Substance Painter.
-Мы начнем с блокинга, с использованием базовых инструментов моделирования, чтобы получить представление о том, как мы хотим, чтобы топор выглядел. Затем мы с помощью скульптинга создадим сетку с высокой детализацией. Затем мы сделаем ретопологию (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F751CC2DB5FCB541901937581D940065CE961E
 ```
 
 https://mybot314.ru/tekegram_catalog/

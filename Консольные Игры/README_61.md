@@ -1,30 +1,3 @@
-###  Публикация: 595110   (132444) от 28.12.2012
-
-Wipeout 3 [Wii] [ENG] [NTSC] (2012)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wipeout 3 продолжает серию игр Wipeout: The Game, основанную на известном в США телешоу на канале ABC. Игроков, их семьи и друзей ждет множество различных соревнований – на снегу, на льду, в пене и c множеством других препятствий.
-В этой игре Вас ждут многообразие различных испытаний, которые Вы должны выполнять с помощью Wii Remote. Так же Вам будет предложено более тридцати различных испытаний, в которые входит перепрыгивание через огромный бассейн наполненным водой, уклоняйтесь от побоев, преодолевайте множество препятствий и многое другое.Разработчик: ActivisionЖанр: Казуальные игрыЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C64397468D2633557F40589D30FA4B62620A302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594614   (132420) от 28.12.2012
 
 Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
@@ -33,7 +6,7 @@ Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +32,7 @@ Shenmue III Digital Deluxe Edition (2019) [PS4] [USA] 6.0 + Backport [5.05] [Lic
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +58,7 @@ King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +88,7 @@ Gran Turismo 7 (2022) [PS4] [USA] 9.00 (backport 5.05/6.72/7.xx/8.xx) [License] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +114,7 @@ Hogwarts Legacy: Deluxe Edition (2023) [PS4] [EUR]  5.05 [HEN] [License / 1.04 /
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +140,7 @@ GRAN TURISMO 5 Prologue (2008) [PS3] [EUR] 2.16 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +219,7 @@ GRAN TURISMO 5 Prologue Spec III (2007) [PS3] [JAP] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +245,7 @@ Broforce (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +297,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [USA] 9.0 [HEN] [Repac
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +323,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Repa
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +349,7 @@ KingStation 0.3a (2024) [PC] [License] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +375,7 @@ Resident Evil Village - Gold Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +401,7 @@ Sniper Elite 5 - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.29 / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +427,7 @@ GRID Legends - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 6.01] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -669,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -680,6 +653,32 @@ The Ultimate Battle of the Sexes: Quiz & Play - С этой игрой вы ре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ABC2588047AD27BC6CE186CA3A5A0D5D52439F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474491   (85043) от 28.03.2012
+
+[XBox360] Devil May Cry HD Collection [ENG] (LT+3.0) (RegionFree) (XGD3) (2012)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+СборникТип издания: ЛицензияРазработчик: CapcomЖанр: ActionЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7E74037BC71B4F7BCEAF4DB97B61D903457C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

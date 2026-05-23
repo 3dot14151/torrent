@@ -1,3 +1,212 @@
+###  Публикация: 908032   (635564) от 13.06.2015
+
+VA - Музыкальный подарок от Europa Plus (2015) [MP3|320 кб/с]<Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Mband - Она Вернётся (04:09)
+002. Nickelback - The Hammer's Coming Down (04:23)
+003. Slava Basyul - Разбуди Меня (04:13)
+004. Dirty South Feat. Kids Without Instruments - The Best Days (04:27)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830CFFD993B6E60FF9CC8F134C5252E6838E9450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519822   (635342) от 07.07.2012
+
+VA - Клубная Дискотека DFM 50/50 (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Oceana - Endless Summer (Bodybangers Remix Edit)
+02. DJ Smash - Young Hearts (Radio Edit)
+03. Nickelback - When We Stand Together (DJ Noiz Bootleg)
+04. MC Zali & Fidel Wicked - Nosom Po Kokosam
+05. Ledina Celo - Can You Touch Me Baby (Edit Mix)
+06. Бурановские бабушки - Party For Everybody (Dj Slon Remix)
+07. Sak Noel - Where
+08. Марсель - Иди Ко Мне (Remix)
+09. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs Loverush Radio Edit)
+10. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow to California (DJ Favorite Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124ACF8D18EFF1F7DEB179A4DBBE27082AFB1E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293672   (635233) от 04.04.2019
+
+VA - Top 100 Зайцев.Нет Март 2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. 5Sta Family - Снова вместе (3:38)
+002. Anivar - Украду (3:14)
+003. MiyaGi & Эндшпиль - I Got Love - МУЗЫКА НА МАШИНУ (4:36)
+004. ATL - Танцуйте (3:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4DFC32B536DA7A539DC061F74C1992B6EE034E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542486   (635170) от 08.04.2022
+
+VA - Music News vol.178 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Karina - Too Much To Drink (03:10)
+ 002. Abdulkarim - Я Не Могу Тебя Простить (03:53)
+ 003. Alicia Keys - City Of Gods (Part Ii) (03:12)
+ 004. ANik feat. Ignat Izotov - Высоко (02:23)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D9E0810A7DAD333F36E67D424F0339F34DE5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143626   (635126) от 18.06.2017
+
+VA - Disco Inferno: Synthwave Electronic Mix (2017) [MP3|320 Kbps] <Syntwave, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001.  Dance With The Dead - Venom  3:56
+002.  Scandroid - Connection (Instrumental)  3:58
+003.  Mega Drive - Acid Spit  4:37
+004.  Carpenter Brut - L.A. Venice Bitch 80's  4:11(   Читать дальше...   )Жанр: Syntwave, SynthpopПродолжительность: 09:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152382F4E01FB9A9924B1E1A810131477AAAFB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143659   (634859) от 18.06.2017
+
+VA - Summer Workout Hits (2017) [MP3|320 Kbps] <Tropical, Nu Disco, Club, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren Feat. Sharon Den Adel - In And Out Of Love (Diversion Extended Remix) 06:27
+02. Vigel And Sartek - Only You 03:04
+03. Nervo Feat. The Child Of Lov - People Grinnin' (Erick Morillo Remix) 07:33
+04. Tocadisco Feat. David King - Feel 05:53(   Читать дальше...   )Жанр: Tropical, Nu Disco, Club, ElectroПродолжительность: 04:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D0A1A50C2B08B8B601DEAF6B0A2269670A744A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034742   (634316) от 13.07.2016
+
+VA - Motion Of Nature (2016) [MP3|240-320 Kbps] <Dance, Club, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Kaarl - Cool Kids (Feat. Mathilde Hoslet) (Radio Edit)
+002. 19eighty7 - Get it on (Original Mix)
+003. Rudimental - Lay it All on Me (Feat. Ed Sheeran)
+004. Edx - Missing (Ft. Mingue) (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 08:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9BB5FAD49F2F89A3B1C4B3124659BC3D5491DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228456   (634118) от 02.06.2018
 
 VA - Summer Is Coming House (2018) [MP3|320 Kbps] <Progressive, Groove, Funky, Jackin, Club>
@@ -6,7 +215,7 @@ VA - Summer Is Coming House (2018) [MP3|320 Kbps] <Progressive, Groove, Funky, J
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +244,7 @@ VA - Top Hits Diskoteka 80s & 90s (2016) [MP3|320 Kbps] <Disco, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +273,7 @@ VA - Вибрация Танцпола-5. Клубные новинки (2011) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +299,7 @@ VA - Вибрация Танцпола-6. Русский Хаус (2011) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +325,7 @@ VA - не Громкие новинки недели 9 (2019) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +354,7 @@ VA - ЕвроХит Топ 40 Europa Plus 05.04.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +383,7 @@ VA - Лучшие из лучших: Горячие хиты радиостан�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -203,7 +412,7 @@ VA - Midnight Club Драйв По Встречной 7 (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +447,7 @@ VA - Дискотека 2019 Deep House - The Best Vol. 6 от NNNB [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +476,7 @@ VA - Summer Beach Party (Club, Dance, House) (2017) [MP3|320 Kbps] <Club, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +505,7 @@ VA - Champagne Party - Ibiza Grooves (25 Summer Beats) (2016) [MP3|320 Kbps] <Fu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +534,7 @@ VA - Summer Dance (2015) [MP3|320 кб/с]<Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +563,7 @@ VA - Car Audio. Жаркий уикенд. Sound Clinic - Special Edition (2015)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +592,7 @@ VA - The Official UK Top 40 Singles Chart 05.04.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +621,7 @@ VA - Live Limited Welcome On April (2019) [MP3|320 Kbps] <Club, Electro, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +650,7 @@ VA - 80s Soul Classics (2019) [MP3|320 Kbps] <Soul, RnB, Funk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +679,7 @@ VA - Новинки танцполов 3 Русский (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +714,7 @@ VA - Radio Dance Show (2012) [MP3|320 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +749,7 @@ VA - Music News vol.179 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,221 +763,6 @@ VA - Music News vol.179 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165BA69E04C61488BE796C923BDD41B1377C5745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520541   (631603) от 09.07.2012
-
-VA - Авто Дискотека 50+50 Vol.1 (2012) [MP3|192-256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Рублев feat. Вячеслав Лопаков - Одиночество (DJ Denis Rublev club mix)
-02. LMFAO - Sexy & I Know It (DallasK Remix)
-03. Elvira T - Все решено (Fresh Tunes official remix)
-04. Sebastian Ingrosso & Alesso - Calling (Original Instrumental Mix)
-05. Milena & Murzin Denis - До утра (Filipp Aniskin remix)
-06. Seaside Clubbers - String (Giqastarz Bootleg Mix)
-07. Milk Inc - Land Of The Living (Danceboy Remix)
-08. Вика Гранд - Я не боюсь (Emotive Tunes original mix)
-09. 2-4 Grooves feat. Flip Da Scrip - Make Noize (Club Edit)
-10. Ёлка - Около тебя (Andry Makarov remix)Жанр: Pop,DanceПродолжительность: 07:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2951A14874C1DD3C11FD75AD9F2CCAE83A7E64EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520556   (631586) от 09.07.2012
-
-VA - Прохолодильные песни (2012) [MP3|127-320 кб/с]<Punk-Rock, Folk, Rap, Chanson, Rock, Pop, Techno, Dance, Jazz, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Леонид  Десятников - Холодильник
-02. Тостер - Холодильник
-03. Спички 666 – Последняя любовь холодильник
-04. Alexike - Холодильник
-05. Amigo (НеПрислоняться) - Холодильник
-06. Kempel Lil'Stop Alexike - Холодильник
-07. Krime – в холодильнике снова пусто
-08. L'ONE - ХОЛОДИЛЬНИК (Dj Priority)
-09. Marselle - Холодильник
-10. New Order – Холодильник индезит(   Читать дальше...   )Жанр: Punk-Rock, Folk, Rap, Chanson, Rock, Pop, Techno, Dance, Jazz, BluesПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E98D28CD63FF13F263332FC74C7070D1638379C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035077   (630514) от 15.07.2016
-
-VA - Summer Dance Mix: Adrenaline Party (2016) [MP3|256-320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630514.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Flowtexx & Jamalmentals - Un Deux Trois (Club Mix)
-002. Danceboy - Give It To Me Louder (Original Mix)
-003. Dash Berlin - Till The Sky Falls Down (Andrew Rayel Remix)
-004. Dio5 Rumor - Los Santos Inocentes(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB5AB807E739514E5C3D5C958CE12DCF76514F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035136   (630501) от 15.07.2016
-
-VA - RnB Really: Soul Mix (2016) [MP3|320 Kbps] <RnB, Soul, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ja Rule - Livin' It Up (Feat. Case)
-002. Beyonce - Sorry (Funkymix)
-003. Jackie Moore - Precious Precious
-004. Montell Jordan - This Is How We Do It(   Читать дальше...   )Жанр: RnB, Soul, FunkyПродолжительность: 07:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E622998CFD88A0F487D6B87A7D568CADA9ACB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034732   (630427) от 15.07.2016
-
-Spawn - In the Demon's Hand (2000) (Yuki Iwai, Takayuki Iwai, Isao Abe, Crankshaft) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип основан на основе оригинального музыкального диска, добавлены треки которые не вошли в сборник01. The Beginning of The End (Opening Stage)
-02. Serial Thrilla (New York Alley Stage)
-03. Dive Into The Hell (Underground Waterway Stage)
-04. Demonoid Phenomenon (Human Body Research Institute Stage)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D3159CE1187820511D74E746C48F599160CE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035071   (630057) от 15.07.2016
-
-VA - Зайцев.Нет - Лучшие Новинки Июля (2016) [MP3|188-320 Kbps] <Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rihanna — Sledgehammer
-02. Hozier — Better Love (OST Тарзан. Легенда 2016)
-03. Бьянка — Никто Кроме Ты (Летняя Песня)
-04. Snoop Dogg — Eyez Closed (Feat. John Legend & Kanye West)(   Читать дальше...   )Жанр: РорПродолжительность: 03:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E54124452BC2A8B0B47C94886219936B0BF714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229143   (629974) от 04.06.2018
-
-VA - Popular Megasonic (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629974.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zedd, Maren Morris - The Middle
-002. Bruno Kauffmann - Make It Love
-003. Years & Years - Sanctify
-004. Vegedream - La rue(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CF282815821D73B8E50C811392E80C1B751B1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

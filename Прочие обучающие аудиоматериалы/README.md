@@ -1,4 +1,109 @@
 https://t.me/izofen
+###  Публикация: 1870728   (1069353) от 
+
+Андрей Ланьков | Лекции, интервью, выступления (2012-2026) [MP3] [Обновляемая]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Андрей Николаевич Ланьков (род. 26 июля 1963, Ленинград, РСФСР, СССР) — российский, южнокорейский и австралийский востоковед-кореевед и публицист, который с 1992 года живёт и работает за пределами России, специалист по КНДР. Кандидат исторических наук, профессор.
+Сфера интересов: история Кореи, в частности, история КНДР, повседневная жизнь в Корее, проблема объединения (   Читать дальше...   )Жанр: История, страноведениеИздательство: Аудиокнига своими рукамиПродолжительность: 33:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C02E05ECE88D8115B7E906EA3535931B0B92F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870739   (1068845) от 
+
+Культур-Мультур | Философия Китая. Кратко. Основные идеи (2026) [MP3, Кирилл Радциг]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Китайская философия – это живая и практическая мудрость, рождённая в уникальных исторических и культурных условиях. Её истоки уходят в глубокую древность, во времена, когда формировались первые представления о мире, человеке и обществе. В отличие от западной философии, которая часто фокусировалась на метафизических вопросах о бытии и познании, китайская мысль была (   Читать дальше...   )Жанр: ИсторияИздательство: Аудиокнига своими рукамиПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E252A1A28F16899ACF78CB6B32C15E0EC6739B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870108   (1068731) от 
+
+Айзек Азимов | Земля и космос (2026) [MP3, Анна Аминова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Как появилась астрология и есть ли в ней рациональное зерно? Что такое «редкие земли»? Сколько времени будет продолжаться современный рост населения Земли и как можно решить демографическую проблему? Вы сможете получить ответы на эти и многие другие вопросы из области астрономии, физики, химии и социологии, прочитав эту познавательную и увлекательную книгу.Жанр: Учебная и научно-популярная литератураИздательство: ЛитРес: чтецПродолжительность: 08:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990443337B547925AFEB366CDED69C8A3A110E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869908   (1068544) от 
+
+Айзек Азимов | Занимательная арифметика. От сложного к простому (2026) [MP3, Анастасия Колесникова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В книге описываются доступные способы упрощения и ускорения расчетов. Практические советы автора по превращению сложных задач в простые помогут дополнить школьные знания, развить скорость и точность вычислений, научат с удовольствием, без труда и ошибок манипулировать с числами.Жанр: Учебная и научно-популярная литератураИздательство: ЛитРес: чтецПродолжительность: 07:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14397003498BDCB2720A42749EB27F9D53C017B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869394   (1068278) от 06.05.2026
 
 Стивен Хокинг | Краткая история времени. От Большого взрыва до черных дыр (2019) [MP3, Максим Суслов]
@@ -7,7 +112,7 @@ https://t.me/izofen
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -461,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -489,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -545,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -588,118 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06FE6728BB3F3BA76B557B461369994D04677CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866423   (1066115) от 20.04.2026
-
-Г.Г. Ершова | Мифы майя. От жертвоприношений и священного какао до книги «Пополь-Вух» и подземного царства Шибальбы (2025) [MP3, Мария Фортунатова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создательница и Творец — единые Тепеу и Кукумац в бесконечных водах. Триединое Сердце Небес и Пернатый Змей Кукулькан. Близнецы из эпоса «Пополь-Вух», которые превращают своих братьев в обезьян и побеждают владык смерти Шибальбы. Плоть-маис, кровь-какао и бессмертные души.
-
-Все это — удивительный мир мифологии майя. В первом тысячелетии они создали самую яркую цивилизацию (   Читать дальше...   )Жанр: История, Мифы и легенды, ИндейцыИздательство: МИФПродолжительность: 09:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA58D414C9FB580FD789B901AA5F8AFB1C6494F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866425   (1066114) от 20.04.2026
-
-Хёнсин То | Мифы и легенды Кореи. 130 самых захватывающих сюжетов корейской мифологии (2025) [MP3, Джэм Небеский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корейские легенды насчитывают несколько тысяч лет. С древних времен они передавались из поколения в поколение, повествуя о призраках и демонах, героях и злодеях, божествах и злых духах.
-
-«Мифы и легенды Кореи» — сборник преданий, который населяют множество мифических существ — от небесных царей до драконов без крыльев. Многие из них перебрались в эпос Древней Кореи (   Читать дальше...   )Жанр: История, Мифы и легенды, КореяИздательство: МИФПродолжительность: 12:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915076A9E632FFB32ABB9AEC8EE911D7EED36FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866428   (1066113) от 20.04.2026
-
-Диана Кикнадзе | Темная сторона средневековой Японии. Оммёдзи, мстительные духи и жрицы любви (2024) [MP3, Карина Колитинова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японская повседневность эпохи Хэйан: самураи, потусторонний мир и буддийский ад.
-
-Средневековье в Японии нельзя назвать темными веками — это было время небывалого расцвета культуры. Эпоха Хэйан навсегда осталась в истории благодаря утонченной поэзии, живописи и литературе. Но и внутри Императорского дворца, и за его пределами шла другая жизнь, полная опасностей и (   Читать дальше...   )Жанр: История, Мифы и легендыИздательство: МИФПродолжительность: 05:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE4869301607AFA0C6FC2581B12EBEEB71201B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866432   (1066110) от 20.04.2026
-
-Михаил Вогман | Древнееврейские мифы. От Левиафана и богини Ашеры до разбитых скрижалей и Иова (2025) [MP3, Вячеслав Ахмедяров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновляющая история становления библейской религии
-
-Религия древних, еще «добиблейских» евреев — какая она была? Вероятнее всего, они верили, что их Господь — лишь одно из многочисленных божеств, сын верховного бога: бог-воин и громовержец, побеждающий змея Левиафана. Но как получилось, что этот бог стал единственным Богом — и таким, что от людей Ему угодны не (   Читать дальше...   )Жанр: История, Мифы и легендыИздательство: МИФПродолжительность: 09:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406E6A74B71A6E93398E2BAC8F12F54FD6A7C7CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

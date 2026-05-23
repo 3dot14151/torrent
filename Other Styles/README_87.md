@@ -1,3 +1,230 @@
+###  Публикация: 525923   (599618) от 23.07.2012
+
+Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native American, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Dance
+02. Flying Condor
+03. Allin Quampi
+04. Love Mountain
+05. May you walk in sunshine
+06. Five Spirit
+07. Sunquyman
+08. Four Circles of Live
+09. Tatanka
+10. Axtu Sumix(   Читать дальше...   )Жанр: New Age, Native American, FolkПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038808   (599532) от 30.07.2016
+
+VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Roger Miller - King of the Road
+2. Kenny Rogers - Ruby Don't Take Your Love to Town
+3. Johnny Cash - Ring of Fire
+4. Frankie Laine - High Noon(   Читать дальше...   )Жанр: CountryПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF57AC550DD458D0DF192A93ED63EB8FD6869FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038772   (599531) от 30.07.2016
+
+Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .cue] <Heavy Metal, Instrumental, Shred>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Corrida (4:57)
+02. Love In Her Eyes (5:21)
+03. French Blues (4:37)
+04. The Storm (3:10)(   Читать дальше...   )Жанр: Heavy Metal, Instrumental, ShredПродолжительность: 0:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2B30A09E01998141F9F156A1DAF8852E537EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038719   (599521) от 30.07.2016
+
+Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North American Traditions>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Star People    07:25
+02. Those Human Ways    04:49
+03. Black Hills    02:40
+04. On Eagles Wings    04:18(   Читать дальше...   )Жанр: Native American, North American TraditionsПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F3C4E5E1BAB5E1EE54A0FB200D27F19A0CDB23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526345   (599354) от 23.07.2012
+
+Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Музыка из фильмов гениального режиссёра, актёра и композитора Чарли Чаплина. Альбом на двух дисках, автор первого — Чарли Чаплин, второго — Карл Дэвис. Красивая музыка, соответствующая немому кино — оркестровая, живая, передающая атмосферу на экране.1. The Floorwalker (3:31)
+ 2. The Fireman (4:53)
+ 3. The Vagabond (5:42)
+ 4. One A.M. (6:27)
+ 5. The Count (3:37)
+ 6. The Pawnshop (8:27)
+ 7. Behind the Screen (6:29)
+ 8. The Rink (7:47)
+ 9. Easy Street (6:52)
+ 10. The Cure (7:29)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C314282D289B75C63DE5551DBA2460CE16FC6BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525747   (599338) от 23.07.2012
+
+VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Antares - The Horses Go (4:38)
+2. Bayou Angels - Live With Me (4:04)
+3. C.J. - Bloom (5:27)
+4. D-Juice - 5-th Ocean (6:12)
+5. D-Juice - Fatique (5:25)
+6. DJ Kritoff feat. Reachy Style - The Snow (3:53)
+7. DJ Limiter - Navakho (6:15)
+8. DJ Limiter - The Clockwork Planet (5:16)
+9. DJ Murena - More, Than Anything (6:17)
+10. DJ Murena - N.Y.2001 (4:59)(   Читать дальше...   )Жанр: New age, Meditative, Relax, FlamencoПродолжительность: 04:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A2F2B12C840CA2CAB142EBBC474A594C3D89F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525666   (599217) от 23.07.2012
+
+Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native American, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. We Need A Change
+02. Falling Rain
+03. Desert
+04. Old Days
+05. Why Do
+06. Mercy On The Teople
+07. Indian Groove
+08. Lost My Love
+09. Iyna
+10. Spring (live-improvisation)Жанр: New Age, Native American, MeditativeПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2692E68222BD91D60820C1E3DC50472D2D71EE94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232599   (598375) от 25.06.2018
 
 Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
@@ -6,7 +233,7 @@ Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +262,7 @@ Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +291,7 @@ Levin Minnemann Rudess - From the Law Offices Of (2016) [FLAC|Lossless|tracks + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +320,7 @@ Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acous
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +349,7 @@ Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +413,7 @@ Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +442,7 @@ Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +471,7 @@ Muddy Waters - Folk Singer (2013) 1964 [FLAC 2.0|192/24|tracks|WEB-DL]<Blues, Fo
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +500,7 @@ Shine Dion - два альбома (1998, 2002) [MP3|192 Kbps, 320 kbps] <folk r
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +529,7 @@ Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +558,7 @@ VA - 100 Hits The Midnight Special (2004) [MP3|256 кб/с]<Country, Folk , West
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -366,7 +593,7 @@ Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +625,7 @@ Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -433,7 +660,7 @@ Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Pu
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +689,7 @@ Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +718,7 @@ Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -520,7 +747,7 @@ Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -549,7 +776,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,209 +790,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E20AD6701DCDF7E8BCC3D4E2E5867561A1967EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300182   (593697) от 05.05.2019
-
-Joy Williams - Front Porch (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canary
-02. Front Porch
-03. When Does A Heart Move On
-04. All I Need(   Читать дальше...   )Жанр: Folk, Country, AmericanaПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233364   (593296) от 29.06.2018
-
-Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lossless|WEB-DL|tracks] <Balcan Folk Rock, Gypsy Jazz, Folk Punk, Ska>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scared of Dental Drills (3:28)
-02. Tarentella (3:40)
-03. Mila Gora (4:16)
-04. Comandante (2:40)(   Читать дальше...   )Жанр: Balcan Folk Rock, Gypsy Jazz, Folk Punk, SkaПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808D5613F1AD22FD480FCF6D97CB1E44D36D332B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300707   (592774) от 07.05.2019
-
-Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mewtwo Awakes (01:19)
-02. Catching A Cubone (02:05)
-03. Bad News (01:17)
-04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECF53F865F012399DE549A3C298E5F751902E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300705   (592772) от 07.05.2019
-
-Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mewtwo Awakes (01:19)
-02. Catching A Cubone (02:05)
-03. Bad News (01:17)
-04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F4036E52366E3583C93BBFB022DFD4DCB2B284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549169   (592637) от 09.05.2022
-
-Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adi Shakti (Live)
-02. Om Poornam (Live)
-03. Loving Awareness (Live)
-04. Sitaram Radeshyam (Live)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFAF70C77645553366D609ABB4B05A29260065B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915388   (592385) от 05.07.2015
-
-Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native American, World, Ethnic Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Of The Drum (5:31)
-02. Land Of Dreams (5:48)
-03. Awakening (4:23)
-04. Earth Dance (4:42)(   Читать дальше...   )Жанр: Native American, World, Ethnic Fusion, FolkПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15B4183D249E6C8220F50AF50A08DCC58351986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550203   (592153) от 11.05.2022
-
-Spiritu (986) - Spiritu (986) (2000) Legacy Recordings, 2021 Remastered [FLAC|Lossless|WEB-DL|tracks] <Folk, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noche de Luna Llena (Remasterizado) (4:30)
-02. La Sombra del Lobo (Remasterizado) (4:20)
-03. Luar 'Luz de Luna' (Remasterizado) (4:35)
-04. Ataque de Panico (Remasterizado) (3:25)(   Читать дальше...   )Жанр: Electronic, Folk, New AgeПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21F90E561167B0B278C29E8637C1B4C3CFF80A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

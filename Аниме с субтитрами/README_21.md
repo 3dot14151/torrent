@@ -1,3 +1,109 @@
+###  Публикация: 1357998   (970555) от 06.02.2020
+
+Kandagawa Jet Girls: Tokyo Girls Take a Shot at Promotions | Кандагава: Девушки на гидроциклах OVA [2020, OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Небольшая история о том, как героини сериала снимали рекламный ролик о своём любимом виде спорта.
+
+Бонусный диск от игры "Kandagawa Jet Girls' DX Jet Pack" для PS4.Жанр: эччи, комедияПеревод: TiredGirlЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4899645A123B9E50C4E9E02C6D72BA981FC445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618086   (970545) от 13.02.2013
+
+Tatakae! Iczer-1 / Bouken! Iczer 3 / Sen-shoujo Iczelion [1985,1990,1995, OVA] DVDRip raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Боевичок про "девушек в доспехах" , защищающих нашу родную планету от чудиков (ктулху жеж, они такие), решивших уничтожить все планеты вселенной одну за другой... Собственно тут они и добрались до Земли, где и разворачивается всё это действо.Жанр: приключения, меха, фантастикаРежиссер: Хирано Тосики / Hirano ToshikiПеревод: AlexMalkavianЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (2 эп.), 30 мин
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976522   (968456) от 18.01.2016
+
+Fate/Stay Night: Unlimited Blade Works (2015) | Судьба: Ночь схватки. Клинков бесконечный край [ТВ-2] [2015, TV + special, 13 + 1] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В городке Фуюки вдали от людских глаз кипит Пятая магическая война за Святой Грааль. Начало игры позади, участники давно понесли первые потери, и даже наивный новичок Сиро Эмия начал понимать, что правил и обязательств в смертельной борьбе нет – за исключением тех, что добровольно принимают на себя Мастера и призванные героические духи. Не зря сказано: «по делам (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Миура Такахиро / Miura Takahiro / 三浦貴博Продолжительность: 13 эпизодов + special по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DFBB1DBBF79B0BCCD78D756AF455697ACE4961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947902   (967398) от 19.01.2016
+
+Sakurako-san no Ashimoto ni wa Shitai ga Umatteiru / Труп под ногами Сакурако [2015, TV, 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Шотаро Татэваки — самый обычный и заурядный старшеклассник, проживающий в городе Асахикава, префектура Хоккайдо. Однажды ему повезло встретить загадочную и неординарную особу по имени Сакурако Куджо. К неординарности Сакурако можно приписать ее странное увлечение: она без ума от костей и готова тратить часы напролет, выискивая новые экземпляры или ухаживая за уже (   Читать дальше...   )Производство: TroycaЖанр: приключения, мистикаРежиссер: Като МакотоПеревод: AleX_MytH, Seiya Loveless (Timecraft) | Advokat, chainsaws, Kekcelt (Antravoco)Субтитры: ASSФормат: MKVПродолжительность: 12 серий по ~25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61F3D6EFD6A7EB3982F1CE9AB1BE178167AC882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747994   (960050) от 21.01.2014
 
 Tonari no Seki-kun / Сэки, мой сосед по парте [2014, OAD, 2 эп.] DVDrip Hi10p 576p raw
@@ -6,7 +112,7 @@ Tonari no Seki-kun / Сэки, мой сосед по парте [2014, OAD, 2 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +140,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +166,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +192,7 @@ Dirty Pair no Ooshoubu: Nolandia no Nazo | Dirty Pair: Affair of Nolandia | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +218,7 @@ Dirty Pair (1987) | Грязная парочка [1987, OVA, 10 из 10] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +244,7 @@ Dirty Pair: Lovely Angels Yori Ai o Komete | Dirty Pair: With Love From the Love
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +270,7 @@ Dirty Pair: Project Eden | Грязная парочка: Проект Эдем 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +296,7 @@ Dirty Pair Flash | Ослепительная грязная парочка [199
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +322,7 @@ Dirty Pair: Bouryaku no 005-bin | Dirty Pair: Flight 005 Conspiracy | Грязн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Dirty Pair | Грязная парочка [1985, TV, 24 из 24] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +376,7 @@ Katanagatari / Sword Stories / Истории мечей [2010, ТВ, 12 сер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +402,7 @@ Gekijouban Trigun: Badlands Rumble / Триган: Переполох в пус�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +428,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Shin Kyoto Hen / Бродяга Кэн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +454,7 @@ Mirai Shonen Conan / Future Boy Conan / Конан - мальчик из буд�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +480,7 @@ Okusama ga Seitokaichou! Plus! / My Wife Is the Student Council President! + / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +506,7 @@ Quiz Magic Academy: The Original Animation | Загадки Магической
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +532,7 @@ Hikaru no Go / Hikaru's Go / Хикару и го [2001, TV, 75] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +558,7 @@ Choushin Hime Dangaizer 3 | Дангайзер 3 [1999, OVA, 4 эп.] DVDRip 527
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +585,7 @@ Bastard!! Ankoku no Hakai Shin | Bastard! Destroyer of Darkness | Ублюдок
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +613,7 @@ Hikaru no Go | Hikaru's Go | Хикару и го [2001, TV, 75 + 1] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +639,7 @@ Shirobako / Белая коробка [2014, TV, 24] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +665,7 @@ Shijou Saikyou no Deshi Kenichi OVA / Kenichi: The Mightiest Disciple OVA / Си
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,111 +676,6 @@ Shijou Saikyou no Deshi Kenichi OVA / Kenichi: The Mightiest Disciple OVA / Си
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97168B7149BF0DD03B306221BBE950FE46FAD46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280718   (950176) от 10.01.2011
-
-Kyoushoku Soukou Guyver / Guyver: The Bioboosted Armor / Гайвер [ТВ] [2005, TV, 26 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: приключения, фантастикаРежиссер: Акияма КацухитоСубтитры: РусскийПродолжительность: (26 эп.), 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1C877844823C8F3476A585BD4833F30DA7D973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362768   (948218) от 24.02.2020
-
-Cop Craft | Мастерство копа [2019, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948218.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 лет назад над Тихим океаном открылись гиперпространственные врата, ведущие в мир фей и демонов Лето Семани. Сан-Тереза — город, в котором обитают эмигранты из обоих миров, насчитывает свыше двух миллионов жителей. В нём сосуществуют представители разных наций, культур, социальных слоёв. Это новейший «город мечты». Но есть у него и тёмная сторона: наркотики, проституция, (   Читать дальше...   )Производство: студия Millepensee / ミルパンセЖанр: приключенияРежиссер: Итагаки СинПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC878A7870D0489F100661BBA184D6C2A7E455DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362779   (948038) от 24.02.2020
-
-Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - проблема для отаку [2018, TV, 11 эп. + OVA] BDRip 1080 HEVC 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948038.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Наруми Момосэ есть страшная тайна: она – отаку, и в придачу поклонница яоя! Когда ее секрет стал известен на предыдущей работе, Наруми пришлось уволиться, и в первый день в новой компании она торжественно клянется, что убьет каждого, кто ее выдаст.
-Cначала ничто не предвещало беды, но не прошло и нескольких часов, как Наруми встретила в офисе Хиротаку Нифудзи, (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: комедия, романтика, повседневностьРежиссер: Хирайкэ ЁсимасаПеревод: laci и Бригадир ЮрийЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 11 эп. + OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2DDEA3BDBF12C05722B490A1E78D379D06C835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362776   (948029) от 24.02.2020
-
-Kimi to, Nami ni Noretara | Ride Your Wave | Оседлать волну с тобой [2019, Movie] BDRip 1080 HEVC 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поступив в университет, Хинако переезжает в прибрежный городок. Она очень любит сёрфинг и на волнах чувствует себя уверенно, однако неопределённость будущего всё ещё беспокоит её. Когда разбушевавшийся пожар сеет хаос в городке, Хинако знакомится с молодым пожарным Минато. Пока они занимаются сёрфингом и проводят много времени вместе, девушка начинает чувствовать, (   Читать дальше...   )Производство: студия Science Saru / サイエンスSaruЖанр: романтика, драмаРежиссер: Юаса МасаакиПеревод: 1) laci; 2) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AEE20E2750FD6FFFE2CF9158B83009D33CCC73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 925542   (538514) от 07.08.2015
+
+Гороскоп на удачу (2015) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В руки Макса попадает «счастливый» гороскоп, которому он должен следовать 30 дней, выполняя все его безумные предписания, чтобы добиться расположения недоступной прежде красавицы и удачи во всех делах. Но в один прекрасный день гороскоп Макса подменяют...Производство: РоссияЖанр: Комедия, МелодрамаРежиссер: Арман ГеворгянАктеры: Дмитрий Ендальцев, Светлана Ходченкова, Анна Чиповская, Тимур Батрутдинов, Борис Смолкин, Виталий Хаев, Гоша Куценко, Дмитрий Нагиев, Дмитрий Хрусталев, Михаил СамотаПеревод: Не требуется (русский) iTunesПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCBE2A3E1528BBE1656D403C42FB73D7561C2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925551   (538513) от 07.08.2015
+
+Гороскоп на удачу (2015) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В руки Макса попадает «счастливый» гороскоп, которому он должен следовать 30 дней, выполняя все его безумные предписания, чтобы добиться расположения недоступной прежде красавицы и удачи во всех делах. Но в один прекрасный день гороскоп Макса подменяют…Производство: Россия, Трио Фильм, СпутникЖанр: Комедия, МелодрамаРежиссер: Арман ГеворгянАктеры: Дмитрий Ендальцев, Светлана Ходченкова, Анна Чиповская, Тимур Батрутдинов, Борис Смолкин, Виталий Хаев, Гоша Куценко, Дмитрий Нагиев, Дмитрий Хрусталёв, Михаил СамотаПеревод: Не требуется (русский) iTunesПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249C9A0C87580E2EC26A402418300EA7347C5646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925588   (538507) от 07.08.2015
+
+Гороскоп на удачу (2015) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В руки Макса попадает «счастливый» гороскоп, которому он должен следовать 30 дней, выполняя все его безумные предписания, чтобы добиться расположения недоступной прежде красавицы и удачи во всех делах. Но в один прекрасный день гороскоп Макса подменяют…Производство: Россия, Трио Фильм, СпутникЖанр: Комедия, МелодрамаРежиссер: Арман ГеворгянАктеры: Дмитрий Ендальцев, Светлана Ходченкова, Анна Чиповская, Тимур Батрутдинов, Борис Смолкин, Виталий Хаев, Гоша Куценко, Дмитрий Нагиев, Дмитрий Хрусталёв, Михаил СамотаПеревод: Не требуется (русский) iTunesПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305D1961D823F20B95A5F1B3F17378A09E824F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696746   (538214) от 04.09.2013
+
+Сны (1993) BDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Между Россией дореволюционной и Россией постсоветской устанавливается таинственная связь. Аристократка девятнадцатого века, Графиня Призорова, живет в Москве. Она богата, молода, но с некоторых пор ей стали сниться очень странные сны. Ей чудится, что она посудомойка в общепитовской столовой, живущая в невероятной, абсурдной стране . И кажется, что избавиться от этого (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Карен ШахназаровАктеры: Олег Басилашвили, Амалия Мордвинова, Армен Джигарханян, Алексей Жарков, Валерий Носик, Андрей Ростоцкий, Юрий Шерстнев, Андрей ВертоградовПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984198EE3011927ECEAED95DE161C0E3C13C276D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696675   (537906) от 04.09.2013
 
 Сны (1993) Blu-Ray [1080p] [Реставрация]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -118,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5057EB48098B1CA31BA26569F12631D63D57898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925026   (533324) от 10.08.2015
-
-Качели (2008) BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уходя на работу, он не знает, вернётся ли домой. Потому что рисковать жизнью - его профессия. Но иногда смертельное ранение может нанести любовь, потому что любовь, как пуля, бьет прямо в сердце.Вся жизнь героев этой ленты - Качели. То, задыхаясь от любви, они взлетают в облака, то с самого пика наслажденья падают вниз, в грязь и пустоту… Качели раскачиваются всё (   Читать дальше...   )Производство: Россия / Красная стрела / ЧерепахаЖанр: МелодрамаРежиссер: Антон СиверсАктеры: Мария Миронова, Андрей Мерзликин, Ксения Раппопорт, Вячеслав Разбегаев, Борис Хвошнянский, Хельга Филиппова, Максим Бритвенков, Олег Гаркуша, Анатолий Петров, Полина ИсаеваПродолжительность: 01:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA321D9AF8B6B408F433DCE2A9A8CEE5B4E2482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557661   (533279) от 19.06.2022
-
-Здравствуйте, мы ваша крыша! (2005) DVDRip [Режиссерская версия] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Провинциальный бизнесмен Каприщев должен вернуть долг. Пытаясь собрать нужную сумму, он лишается всех денег, ценных бумаг, любовницы, офиса и едва не самой жизни. В это же время маляр Дубровский, ремонтирующий офис Каприщева, неожиданно становится миллионером. Именно к нему непостижимым для самого Дубровского образом перекочевывают все активы бизнесмена…Производство: Россия / Русское Счастье Интертейнмент, Студия ЧерепахаЖанр: КомедияРежиссер: Виталий МухаметзяновАктеры: Семён Стругачев, Андрей Федорцов, Михаил Полицеймако, Евгений Булдаков, Михаил Козаков, Инга Маневич, Петр Коршунков, Михаил Богдасаров, Мария БерсеневаСубтитры: НетПродолжительность: 02:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31CE6926E239FB6051A72EE7FB2EC5DFD8018B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558226   (533277) от 19.06.2022
-
-Приплыли! (2022) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незадачливый романтик Паша мечтает сделать предложение своей девушке, разыграв на яхте сцену из «Титаника». Однако у отца Паши совсем другие планы — яхта нужна ему, чтобы провернуть одну не очень законную операцию. В итоге морская прогулка оборачивается чередой безумных событий, в которой запланированное кораблекрушение будет далеко не самой большой проблемой.Производство: Россия / XOVP eXtraOrdinary Virtual ProductionЖанр: КомедияРежиссер: Юрий ЯрушниковАктеры: Владимир Яглыч, Роман Фомин, Маргарита Аброськина, Александр Соколовский, Игорь Золотовицкий, Мария Голицына, Василий КортуковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C38B7EF78FB9B502374DF60A9D0B9263E183BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924946   (533204) от 10.08.2015
-
-Ширли-мырли (1995) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятная история о братьях - близнецах, никогда прежде не слыхавших друг о друге. Один из них, в младенчестве подброшенный в табор, стал цыганским бароном; другой рос в детском доме - и теперь он еврей - музыкант с мировым именем; третьего воспитывалародная тетя, и домашнее воспитание принесло свои плоды: он стал авторитетнейшим в СНГ вором и аферистом.
- Именно (   Читать дальше...   )Производство: Россия / "Мосфильм"Жанр: КомедияРежиссер: Владимир МеньшовАктеры: Валерий Гаркалин, Вера Алентова, Инна Чурикова, Игорь Угольников, Армен Джигарханян, Олег Табаков, Леонид Куравлев, Нонна Мордюкова, Любовь Полищук, Сергей Баталов, Лев Борисов, Сергей Арцибашев, Михаил Кокшенов, Александр Панкратов-Черный, Александр Ворошило, Инна Кара-Моско, Евгений Герчаков, Всеволод Санаев, Владимир Меньшов, Нина Алисова, Алексей Булдаков, Евгений (   Читать дальше...   )Продолжительность: 02:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D15EACAC4C8A8122E0E857AC231A3BC0C93705
 ```
 
 https://mybot314.ru/tekegram_catalog/

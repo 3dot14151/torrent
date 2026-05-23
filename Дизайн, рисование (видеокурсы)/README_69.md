@@ -1,3 +1,87 @@
+###  Публикация: 1621976   (200769) от 27.03.2023
+
+Нина Петровская | Пять роз (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Нина Петровская
+Художник, коуч
+
+Член ТСХ России, Ассоциации художников ботанического искусства. Автор более 20 очных и онлайн курсов, марафонов. Участник десятков российских и международных выставок. Создатель клуба "Ботанический сад".Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 30:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9802F42F3AEF215B5051071BED4845A89E62DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622144   (200766) от 27.03.2023
+
+Сергей Гуров | Композиция. Пластическое формообразование (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем работать с темой Пространство и Форма.
+В серии интенсивов мы рассмотрим два базовых подхода к решению графических задач:
+⁃ геометрический (упрощение)
+⁃ пластический (усложнение)(   Читать дальше...   )Жанр: Дизайн, UI-ДизайнЯзык озвучки: РусскийПродолжительность: 10:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FFDA3965E8C60983A6B13F6C512391C60FDB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621935   (200736) от 26.03.2023
+
+Udemy, Alan Ayoubi | After Effects Animated Graphics Beast (2020) WEB-DL [AD] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс предназначен для начинающих и продвинутых, которые хотят улучшить свои навыки в анимации и моушн графике. По окончанию этого курса вы можете называть себя аниматором и хорошим аниматором! Позвольте мне рассказать вам, почему. Мы начнем курс с принципа анимации, мы рассмотрим самый важный для моушн-графики. Вы узнаете обо всех типах ключевых кадров с практикой. (   Читать дальше...   )Производство: UdemyЖанр: 2D АнимацияЯзык озвучки: АнглийскийПродолжительность: 03:02:40Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438CE502836F367B7B06D6FA3837323F2DC62A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622123   (200683) от 27.03.2023
 
 Сергей Гуров | Записи интенсивов по дизайну (2022) WEB-DL [RU]
@@ -6,7 +90,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +119,7 @@ Kalacheva School, Аксинья La Paloma | Подозрительные лиц
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -63,7 +147,7 @@ Maria Sw, Мария Приходько | Рисую как Maria Sw 2.0. Тар
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -92,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -120,7 +204,7 @@ CGcircuit, David Anastácio Ferreira | Houdini Elements - Particles FX (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -147,7 +231,7 @@ Geometrium studio, Павел Герасимов | Техническое зад
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -176,7 +260,7 @@ class101, tfvkne | From Visualization to Illustration: Understanding Basic Anato
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -202,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -228,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -257,7 +341,7 @@ Udemy, Stefano Cotardo | Houdini FX - How to add Visual Effects in Real Videos (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -283,7 +367,7 @@ Udemy, Stephen Pearson | The Cloth Simulation Guide in Blender 2.8 (2021) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -310,7 +394,7 @@ Controforma.school, Михаил Шишкин, Анастасия Актерск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -337,7 +421,7 @@ Udemy, Stephen Pearson | Rigid Body Simulation Guide in Blender 2.8 (2021) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -365,7 +449,7 @@ Udemy, Stephen Pearson | Beginners Guide to the Particle System in Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -391,7 +475,7 @@ Udemy, Stephen Pearson | Complete Guide to Dynamic Paint in Blender (2021) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -417,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -446,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -472,7 +556,7 @@ Udemy, Raffi Bedross | Intro to Hair and Fur in Houdini 19.5 (2022) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +584,7 @@ Udemy, Philip Cotton | Beginners Ultimate Guide to 3D Printing; Bootcamp (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -555,7 +639,7 @@ Aaron Blaise | How to Draw Wolves, Coyotes & Foxes (2020) WEB-DL [AD] [EN / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -583,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -609,7 +693,7 @@ Udemy, Shahzad Ahmad | Magical Butterfly FX in Houdini (2022) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -623,89 +707,6 @@ Udemy, Shahzad Ahmad | Magical Butterfly FX in Houdini (2022) WEB-DL [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B88F45D63C01315B68529B5A1117E821D4E5F82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625883   (199938) от 12.04.2023
-
-Kalacheva School, Анна Цымбал | Практическая линогравюра (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Линогравюра — один из классических видов ручной тиражной графики высокой печати. Вы вырезаете рисунок на листе линолеума, наносите на него краску и делаете отпечаток этого рисунка на бумаге, ткани или любой другой поверхности.
-
-Свои работы вы можете сделать в тираже. При этом каждый из экземпляров будет авторским и уникальным.
-(   Читать дальше...   )Производство: Kalacheva SchoolЖанр: ЛиногравюраЯзык озвучки: РусскийПродолжительность: 15:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9A180C7528E0E514D7A3760C317DA1CD25811C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626487   (199812) от 14.04.2023
-
-Refactoringui, Adam Watan | Refactoring UI – Complete Package (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как самостоятельно создавать красивые пользовательские интерфейсы, используя конкретные тактики, объясненные с точки зрения разработчика.
-
-Привет! Я Адам Ватан, разработчик полного стека, который раньше плохо разбирался в дизайне. Я много лет дружу со Стивом Шогером, и мы вместе работали над несколькими сторонними проектами — он занимался дизайном пользовательского (   Читать дальше...   )Производство: RefactoringuiЖанр: UI ДизайнЯзык озвучки: АнглийскийПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DD08480BD9CEB137EA29E56502D1C194F2231E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626492   (199769) от 14.04.2023
-
-Designcode, SOURASITH PHOMHOME | UI Design Android Apps in Figma (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте пользовательские интерфейсы приложений для Android с нуля, используя различные приемы и приемы в Figma.Производство: DesigncodeЖанр: UI ДизайнЯзык озвучки: АнглийскийПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9C5AA13692B711E9FBC7A81D2E4041A408C2A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

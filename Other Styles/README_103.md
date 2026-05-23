@@ -1,3 +1,236 @@
+###  Публикация: 933868   (504510) от 03.09.2015
+
+Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Within
+02. Dusty Rider
+03. Crying
+04. Fun Fare(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA5421C642447A572A56612B12FF4EAFDCF7BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538422   (504499) от 28.08.2012
+
+Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1.From Dawn
+2.Spirit of Silence
+3.Walking In The Air
+4.Dark Ages
+5.Signs of Love
+6.Paradise Lost
+7.Interlude
+8.Metamorphosis (Part 1)
+9.Inner World
+10.Metamorphosis (Part 2)(   Читать дальше...   )Жанр: Electronic, Enigmatic, New AgeПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539784   (504400) от 28.08.2012
+
+Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Fado Vianinha (Fado Vianinha) [02:31]
+02. Promete, Jura (Fado Sergio) [03:53]
+03. As Meninas Dos Meus Olhos (Fado Alfacinha) [02:35]
+04. Mais Uma Lua (Fado Varela) [03:38]
+05. Dona Rosa (Fado Bailarico) [02:16]
+06. Ai, Esta Pena De Mim (Fado Ze Antonio) [02:33]
+07. Na Rua Do Silencio (Fado Alexandrino) [02:48]
+08. Rosa Da Madragoa (Fado Seixal) [01:54]
+09. Boa Noite Solidao (Fado Carlos Da Maia) [03:45]
+10. Desalma (Fado Alberto) [02:30](   Читать дальше...   )Жанр: FadoПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538378   (504391) от 28.08.2012
+
+Lichtmond (Лунный свет) - Erwachen Fruhlingstanzerin (2010) [MP3|256 кб/с]<NewAge, Ambiente, Chill Out, Trance>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Erwachen
+02. Morgenrot
+03. Philosophy of Love
+04. Frühlingstänzerin
+05. Wenn des Mondes Strahl
+06. Der Orangenzweig
+07. Ich und Du
+08. Sounds of Distance
+09. Sonnenlicht
+10. Shine on me(   Читать дальше...   )Жанр: NewAge, Ambiente, Chill Out, TranceПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7602585721B1D70C0F1CED62E1EE2509CDDEC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538889   (504061) от 28.08.2012
+
+Мельница - Знак четырёх (4CD) (2012) [FLAC|Lossless] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Опасное лето (04:24)
+02. Далеко (04:13)
+03. Шелкопряд (04:14)
+04. А если бы он (04:01)
+05. Ведьма (04:54)
+06. Кувшин (04:27)
+07. Княже (05:46)
+08. Ветер (04:46)
+09. Шаман (06:15)
+10. Волкодав (05:01)(   Читать дальше...   )Жанр: Folk |Продолжительность: 01:06:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934251   (503668) от 04.09.2015
+
+Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. World of Discovery
+02. Rainforest
+03. Glistening Waters
+04. Keepers of the Veldt(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA631367D74ECE1A1F6FF2953EA90B530BD5CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538340   (503601) от 29.08.2012
+
+Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. - If I Fell                                                          [02:27]
+ 02. - Winding Road                                               [03:45]
+ 03. - When I'm 64                                                 [02:38]
+ 04. - Yesterday                                                      [02:02]
+ 05. - And I Love Her                                              [02:36]
+ 06. - Ob-La-Di, Ob-La-Da                                       [03:13]
+ 07. - Here, There And Everywhere                         [02:33]
+ 08. - The Fool On The Hill                                       [02:53]
+ 09. - Michelle                                                          [03:04]
+ 10. - Blackbird                                                        [02:22](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470BF2385BF6972C8C53B994BD9306650742AD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317027   (503286) от 29.07.2019
 
 VA - Modern Sound Orchestras - Ave Maria (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -6,7 +239,7 @@ VA - Modern Sound Orchestras - Ave Maria (1992) [FLAC|Lossless|image + .cue] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +268,7 @@ Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +297,7 @@ David Osborne - What the World Needs Now (2019) [MP3|320 Kbps] <Instrumental, Pi
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +326,7 @@ Gheorghe Zamfir - 2 альбома (1986, 1991) [MP3|320 kbps] <Instrumental, Pa
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +355,7 @@ Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +381,7 @@ David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (201
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +410,7 @@ Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +439,7 @@ Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +473,7 @@ VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +502,7 @@ VA - Modern Sound Orchestras - Melody in Love (1992) [FLAC|Lossless|image + .cue
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +531,7 @@ Jean Michel Jarre - Magnetic Fields (1981) [FLAC|image + .cue]<Electronic, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +561,7 @@ DYATHON - Recollection (2019) [MP3|320 Kbps] <Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +590,7 @@ The Soul Stirrers - Les Genies du Rock - Peace In The Valley (1995) [MP3|320 к�
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +619,7 @@ VA-New Age Style - Mystic Lounge (2012) [MP3|320 кб/с]<New Age, Tribal, PsyCh
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +645,7 @@ David Hicken - 3 albums (2007-2008) [MP3|192, 320 кб/с]<New age, Instrumental
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +680,7 @@ Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -473,7 +706,7 @@ Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +735,7 @@ Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, El
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +770,7 @@ VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,236 +790,6 @@ VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22AE69FF159AACF83E31669AAE9387E7BB50B1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541284   (498090) от 03.09.2012
-
-Perry Wood - Chakra Balancing (2004) [MP3|320 кб/с]<New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498090.jpg" />
-</div>
-
-
-###  Подробнее
-
-(9:48) 1. Root - Embodiment
-(9:21) 2. Sacral - Home of the Self
-(9:48) 3. Solar Plexus - Inner Sun
-(6:42) 4. Heart - Compassion
-(6:07) 5. Throath - Stillness
-(9:16) 6. Brow - Perception
-(7:20) 7. Crown - OnenessЖанр: New age, Meditative, RelaxПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B45B0D68A23EDF409BDA9AA5DDF3D5D57F96FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542373   (498048) от 03.09.2012
-
-Микаэл Таривердиев - Ночные забавы тихая музыка (2004) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. музыка к к-ф ''Ночные забавы'' (4:16)
- 2. музыка к к-ф ''Летние люди'' (1:48)
- 3. музыка к к-ф ''Я обещала-я уйду'' (3:41)
- 4. музыка к к-ф ''Воровка'' (1:13)
- 5. музыка к к-ф ''Летние люди'' (5:20)
- 6. музыка к к-ф ''Я обещала-я уйду'' (4:38)
- 7. музыка к к-ф ''Ночные забавы'' (2:56)
- 8. музыка к к-ф ''Воровка'' (2:06)
- 9. музыка к к-ф ''Русский регтайм'' (1:23)
- 10. музыка к к-ф ''Русский регтайм'' (1:34)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24254D12651AC8D84477AC6071D43C413D7686D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317935   (497678) от 04.08.2019
-
-Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful
-02. I Told You So
-03. Girl You Confuse My Mind
-04. Me and My Old Car(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935945   (497520) от 10.09.2015
-
-VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge, Easy Listening, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Lorenzito - Cika (feat. Mario)
-02. Nizam Kharda - One Love (feat. The Choir of Hyderabad)
-03. Northbound - Holy Road
-04. Graddus - Novbahor(   Читать дальше...   )Жанр: Lounge, Easy Listening, New Age, WorldПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543115   (496433) от 05.09.2012
-
-Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496433.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:18) 01. Too Late
-(3:56) 02. The Tree In The Heaven
-(3:03) 03. Beautiful Bride
-(4:29) 04. In Love With You
-(4:14) 05. A Letter To Myself
-(3:40) 06. Just When I Needed You Most
-(4:54) 07. There Is Not So Easy
-(4:34) 08. Zhuyingtai
-(4:28) 09. Flower Sea
-(4:23) 10. Song Of Praising For Love(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543094   (496339) от 05.09.2012
-
-Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496339.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:40) 01. Preludes
-(6:34) 02. April Morning
-(6:24) 03. Bubbles
-(5:07) 04. Aurora
-(5:31) 05. Healing Waters
-(6:23) 06. Rebirth
-(5:43) 07. Bliss
-(5:28) 08. Kama
-(6:29) 09. Aqua
-(3:36) 10. Sanctuary(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543054   (496086) от 05.09.2012
-
-WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Twist Again (3:04)
-02. Peppermint Twist (3:20)
-03. Blackbird (2:18)
-04. Jailhouse Rock (2:32)
-05. For You (3:17)
-06. Hello, Mary Lou (3:29)
-07. Heart of the Country (2:39)
-08. Bad Case of Lovin' You (Doctor, Doctor) (3:12)
-09. Baby Boy (3:12)
-10. AC/DC (3:25)(   Читать дальше...   )Жанр: Parody, Country, Bluegrass, Western-and-CountryПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
 ```
 
 https://mybot314.ru/tekegram_catalog/

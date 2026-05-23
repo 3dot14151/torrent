@@ -1,3 +1,55 @@
+###  Публикация: 1332165   (315851) от 19.10.2019
+
+История игрушек 4 / Toy Story 4 (2019) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Космический рейнджер Баз Лайтер, ковбой Вуди, собака Спиралька, тиранозавр Рекс и вся команда игрушек снова вместе, и они как никогда готовы к приключениям. С тех пор как Энди поступил в колледж, игрушки поселились в доме своей новой хозяйки Бонни. В свой первый день в школе Бонни смастерила себе из отходов новую игрушку Вилкинса, что положит начало череде событий, (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джош КулиПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (Forced, Full, SDH), украинские (Forced), английские (Full, SDH)Продолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE0C94104095603B646AE24EE30758A907C435E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183181   (311905) от 12.11.2017
+
+Корабль сокровищ / Janosch: Komm, wir finden einen Schatz (2012) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Старая карта сокровищ, верные друзья и захватывающие приключения! Однажды на рыбалке тигр и медведь вылавливают старую карту сокровищ. Они не верят своему счастью! Но тут же появляется соперник-пёс, который тоже мечтает посмотреть на древнюю карту. Защищая ценный улов, тигр и медведь ввязываются с ним в драку, в результате которой карта рвется пополам, и часть ее (   Читать дальше...   )Производство: Германия / Papa Löwe Filmproduktion Gmbh, Virgin Lands Animated Pictures, Virgin Lands Animated PicturesЖанр: мультфильмРежиссер: Ирина ПробостАктеры: Мальте Аркона, Михаэль Шанце, Элтон, Тобиаш Дьяков, Грегор Хёппнер, Фрауке Пулманн, Мартин Бросс, Linus HauptПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E211FCFA27832B14C7C19669607F306F621F3B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183078   (311680) от 12.11.2017
 
 Ван-Пис: Золото / One Piece Film: Gold (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -6,7 +58,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5EAF3DF56914370BD220535F8E333BF10EEB6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083510   (273282) от 16.12.2016
-
-Ледниковый период: Столкновение неизбежно / Ice Age: Collision Course (2016) Blu-ray 3D [H.264/1080p] [ISO]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отчаянная погоня за неуловимым желудем катапультирует Скрата прямо в космос, где он случайно запускает целую серию космических событий. Именно они изменят весь мир Ледникового периода и станут реальной угрозой для него. Чтобы спастись, Сид, Мэнни, Диего и остальные звери должны покинуть свои дома, отправиться в забавное и захватывающее приключение в экзотические (   Читать дальше...   )Производство: США, 20th Century Fox Animation, Blue Sky StudiosЖанр: Мультфильм, Приключения, Комедия, СемейныйРежиссер: Майк Тёрмайер, Гален Т. ЧуАктеры: Ник Офферман, Адам Дивайн, Саймон Пегг, Дженнифер Лопез, Мелисса Рауш, Стефани Беатриз, Джон Легуизамо, Макс Гринфилд, Шонн Уильям Скотт, Дэнис ЛириПеревод: Дублированный (Лицензия BD EUR)Язык субтитров: Английский, Китайский, Эстонский, Латышский, Литовский, Русский, Украинский.Продолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB3174784D537AA7B48B180B8B9421BFC63222D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190545   (266753) от 10.12.2017
-
-За тридевять земель / Resan till Fjäderkungens Rike (2013) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266753.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках своей мамы Йохан попадает в далекое Царство Короля Перьев, откуда нет дороги назад. От судьбы не уйдешь: теперь он должен сам позаботиться о спасении не только своей мамы, но и всего королевства. Но разве можно понимать все тонкости жизни и играть по ее правилам, когда ты еще так молод?Производство: Дания, Швеция | Copenhagen Bombay, Film i VastЖанр: мультфильм, фэнтезиРежиссер: Эсбен Тофт ЯкобсенАктеры: Эдвин Рюдинг, Тува Новотны, Густаф Хаммарстен, Леннарт Якель, Сиселла Кайл, Лейф Андре, Pelle Falk Krusbæk, Сёс Эгелинд, Ларс Брюгманн, Флемминг Квист МюллерПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2B4F5F83933B8A284B64B4687C2256D0C1EA03
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1130355   (715878) от 01.05.2017
+
+Электрик v2.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Цель игры - соединить все лампочки с аккумуляторами. Коснитесь экрана чтобы повернуть участок цепи. Участки,подсоедиенные к аккумуляторам подсвечиваются. Для некоторых больших игровых полей	доступно масштабирование. Для масштабирования используйте щипок пальцами, точно так же, как и в стандартной галерее изображений Android. Используйте меню для выбора уровня сложности, (   Читать дальше...   )Тип издания: Пиратка (Разблокированы уровни)Релиз состоялся: 10.05.2015Разработчик: Gennady KulabukhovПоддерживаемая ОС: Android (версия зависит от устройства)Жанр: ГоловоломкиЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9308039303C40526FB711B18AC797E93F8FC886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019635   (715874) от 01.05.2017
+
+MScopesPro for USB Camera v1.28 [En/Rus] - запись видео с внешней веб камеры
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+MScopes или MScopesPro позволяет пользователям просматривать, снимать фотографии и записывать видео на USB-видеокамеры на основе цифровых микроскопов, эндоскопов (не медицинский), бороскопы, цифровые видеокамеры или веб-камеры, подключенные к смартфону или планшету через порт USB. Для камер с соединителем типа-A, также OTG кабель  необходим для соединения с microUSB (   Читать дальше...   )Тип издания: Пиратка (Pro с Маркета)Релиз состоялся: 30.04.2017Разработчик: ZyeproПоддерживаемая ОС: Android 4.3+Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6DF97A9F395B4E4AE661517D38CF06955B3D64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443159   (714408) от 19.02.2022
+
+Окружающие звуки - Звуки природы для сна v2.8.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Весьма удобное приложение для формирования ощущений окружающей среды за счёт воспроизведения определённых звуков и их комбинаций. Доступные звуки разбиты по категориям для удобства выбора. Звуки океана, сельской местности, города, сада Дзэн и многие другие. Вы можете смешать много звуков природы, музыки и восточные звуки, чтобы получить ваш идеальный успокаивающую (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 17.02.2022Разработчик: mikdroidПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA9864BBA46FD093B4C2218DD9A8D1690E7C1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990906   (714310) от 19.02.2022
 
 Infinite Design v3.4.21 [En/Ru]
@@ -6,7 +84,7 @@ Infinite Design v3.4.21 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Gboard – Google Клавиатура 6.2.34.154174348 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ Baby Daybook - Daily Tracker v2.0.15 Pro [Ru/Multi]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ The Room: Old Sins 1.0.1 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Audiomack v5.7.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ Persona: Бьюти-камера v1.3.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ Remotix VNC RDP Remote Desktop v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ SURE Universal Remote v4.11.90 [Ru/Multi] - Универсальный пуль�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +453,7 @@ Battletoads Double Dragon - The Revenge 5.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +510,7 @@ ROM Manager (Premium) 5.5.3.7 [En]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +536,7 @@ USB Camera Standard 2.1.2 [En] - запись видео с внешней ве�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +562,7 @@ Mobile Odin / Flash Fire 4.20 / 0.17 [Ru/En]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +588,7 @@ Vocaberry  v2.7.3 [Ru] - научиться петь 0+ (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +614,7 @@ Vocal Range Vocaberry v0.8.0 [Ru] - Диапазон Голоса (обновл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +643,7 @@ Vocaberry Karaoke v0.22.1 [Ru] - Научиться петь популярны�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,85 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D99BA7F5C4A88F81B12FF26D3CCBA8C4F728604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287640   (701076) от 08.03.2019
-
-Magnus Trainer PREMIUM v1.4.17 [Ru/Мульти]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно изучить много шахматной литературы, а можно установить Magnus Trainer и быстро продвинуться в шахматах. Попробуй лучший и более увлекательный способ учиться и тренироваться играть в шахматы! Совершенствуйся проходя увлекательные задания и игры. Погрузись глубже в шахматы через интерактивные уроки! Учись и тренируйся бесплатно с чемпионом мира по шахматам Магнусом (   Читать дальше...   )Тип издания: ПремиумРелиз состоялся: 2018Разработчик: Play Magnus ASПоддерживаемая ОС: минимум Android 4.4Жанр: ОбучениеЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760B9BD1E0AC9976117403EE32FC7210F52423F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402426   (701029) от 14.08.2020
-
-Карты для iGo 2020.Q2 HERE (NQ, NavTeq) Европа [14.06.2020]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701029.jpg" />
-</div>
-
-
-###  Подробнее
-
-iGO R3 Here (NavTeq) Европа 2020.Q2 (.fbl, .fda, fds, .fjw, .fjv (Russia), .fpa, .fsp, .ftr, .hnr, .poi, .3dl, .3dc, .ph, .dem, .spc)Релиз состоялся: 14.06.2020Разработчик: HEREПоддерживаемая ОС: iGO8/Primo/MyWay/Amigo (Android, WinCE, WM)Язык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EEFB1E94DE89EA5B9EC5E8EB04CD5C48F8879F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301816   (700886) от 26.02.2022
-
-Lumii v1.483.106 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lumii — это функциональный, но простой и практичный фоторедактор.
-Создавайте художественные работы высокого качества с помощью сенсорного экрана — без каких-либо профессиональных навыков. Приложение предлагает продвинутые инструменты и удобные готовые комплекты настроек и фильтров для редактирования и улучшения качества фото. Неважно, новичок вы или профессионал, (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 25.02.2022Разработчик: InShot Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA47E1BCDF2A69D115027C53DF37826CED2005A
 ```
 
 https://mybot314.ru/tekegram_catalog/

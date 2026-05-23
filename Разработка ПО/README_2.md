@@ -1,3 +1,187 @@
+###  Публикация: 1841355   (1047924) от 10.12.2025
+
+Microsoft Visual Studio 2026 Professional 18.1.0 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FD4EA933CC6ACEE7D45DC82AFBFEEE889B7CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841376   (1047913) от 10.12.2025
+
+Microsoft Visual Studio 2022 Enterprise 17.14.22 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода, а затем развертывания приложения. Visual Studio включает компиляторы, средства завершения кода, управление (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62A37D22ACC0EE3051E5C0CEDA66918945AAA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839703   (1046816) от 30.11.2025
+
+Microsoft Visual Studio 2026 Enterprise 18.0.2 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED64C7BC246964B9A9B2DD1330436EE39564C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605633   (1044806) от 18.01.2023
+
+Java SE Development Kit 19.0.2 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
+Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF353C6611B8F66A98697F1808B1530F0F3F52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619558   (1032906) от 16.03.2023
+
+Microsoft Visual Studio 2019 Enterprise 16.11.25 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53499241617CC4CD90601B869CDD032907815A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447264   (1032010) от 12.02.2021
+
+Microsoft Windows Desktop Runtime 5.0.3 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Среда выполнения .NET Windows Desktop используется для запуска приложений Windows Forms и WPF на компьютерах. Среда .NET является открытой, кроссплатформенной и поддерживается Microsoft.
+.NET Desktop Runtime включает .NET Runtime, вам не нужно устанавливать его отдельно.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7575388062E56AB00C31C15F2A61B1B3EF8F4951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375494   (1029367) от 01.04.2023
+
+PGI Visual Fortran + Workstation C/C++ 11.7 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+PGI Visual Fortran - компилятор Fortran и инструментальное средство для Microsoft Visual Studio , которое поддерживает архитектуру параллельного асинхронного программирования. PGI Visual Fortran (сокращенно PVF) включает в себя набор программ PGI(Protected Geographical Indication) высокоэффективных 64-битных и 32-разрядных параллельных компиляторов Fortran для Microsoft (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF60574F76B185B9FC7C5E076EEAFEFDCDB14400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452328   (1027663) от 06.03.2021
 
 Unity Pro 2019 4.21f1 x64 [En]
@@ -6,7 +190,7 @@ Unity Pro 2019 4.21f1 x64 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +218,7 @@ Unity Pro 2020 2.7f1 x64 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +246,7 @@ Unity Pro 2021.1.6f1 x64 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +274,7 @@ Java SE Development Kit 16.0.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -117,7 +301,7 @@ JGSoft RegexBuddy 4.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +327,7 @@ Construct 2 Business Edition r239 Stable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +353,7 @@ JetBrains ReSharper Ultimate 2019.3.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -197,7 +381,7 @@ Embarcadero Delphi 2010 collection of components 1.0 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -228,7 +412,7 @@ JGSoft RegexMagic 2.3.1 Retail [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -254,7 +438,7 @@ Absoft Fortran 2016 + Gino Graphics 8.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -283,7 +467,7 @@ Simply Fortran 3.2.2976 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -309,7 +493,7 @@ VMProtect Ultimate 3.0.9 Build 695 Retail + Web License Manager [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -335,7 +519,7 @@ CodeLobster PHP Edition Pro 5.11.4 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -361,7 +545,7 @@ IAR Embedded Workbench for MSP430 6.40.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -387,7 +571,7 @@ Tangible Software Source Code Converters portable by _Sef 14.02.2017 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -413,7 +597,7 @@ DirectX Software Development Kit Июнь 2010 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +623,7 @@ Code Composer Studio 7.0.0.00043 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +649,7 @@ Code::Blocks 16.01 + Portable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -491,7 +675,7 @@ Visual Assist X 10.9.2094 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -502,188 +686,6 @@ Visual Assist позволяет увеличить возможности ре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C91430BD4067FF48430844ADDA086BE511C1B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503010   (822578) от 17.10.2021
-
-Microsoft Visual Studio 2019 Community 16.11.5 (Offline Cache, Unofficial) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAC8D15E2D2652C8AFA27AEFE98842AE92561C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198544   (804106) от 13.01.2018
-
-PGI Visual Fortran 12.10 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804106.jpg" />
-</div>
-
-
-###  Подробнее
-
-PGI Visual Fortran - компилятор Fortran и инструментальное средство для Microsoft Visual Studio , которое поддерживает архитектуру параллельного асинхронного программирования. PGI Visual Fortran (сокращенно PVF) включает в себя набор программ PGI(Protected Geographical Indication) высокоэффективных 64-битных и 32-разрядных параллельных компиляторов Fortran для Microsoft (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33941B2E7E7B6928EC18D11E91DF8DE3B25D1301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273711   (799278) от 03.01.2019
-
-JetBrains Intellij IDEA 2018.3.2 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая умная и удобная среда разработки для Java, включающая поддержку всех последних технологий и фреймворков. IntelliJ IDEA предоставляет инструменты для продуктивной работы и идеально подходит для создания коммерческих, мобильных и веб-приложений.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC0F2B0BCDAB26BEC12382E36697360C3CB528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010796   (797233) от 26.04.2016
-
-Atmel Studio 7.0.790 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Atmel Studio 7 - полнофункциональная, бесплатная интегрированная среда проектирования (IDE) систем на базе микроконтроллеров семейств Atmel | SMART и AVR. (8, 32-битных и ARM)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E37DCF9EF92526DF7E82044192092F873B59DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511115   (789592) от 19.11.2021
-
-Microsoft Visual Studio 2019 Professional 16.11.6 (Offline Cache, Unofficial) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio 2019 - полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F42B40EB3C6EE561187E319C1DCDA547E2BD19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123833   (786049) от 09.04.2017
-
-PascalABC.NET 3.2.0.1417 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786049.jpg" />
-</div>
-
-
-###  Подробнее
-
-PascalABC.NET – это язык Delphi (Object Pascal) для платформы Microsoft .NET, содержащий все основные элементы современных языков программирования: модули, классы, перегрузку операций, интерфейсы, исключения, обобщенные классы, сборку мусора, а также некоторые средства параллельности, в том числе директивы OpenMP. Система PascalABC.NET включает в себя также простую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2A23D8E235FA9968013C76CD723D70F248A690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213072   (771465) от 16.03.2018
-
-SDL Passolo Collaboration 2016 16.0.391.0 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый мощный шаблонный редактор для перевода программ на различные языки мира. Понимает множество форматов, различает тип языка. SDL Passolo 2011 имеет визуальный редактор диалогов с целым рядом удобных инструментов форматирования, поддерживает работу практически с любыми ресурсами, имеет множество тонких настроек, параметры пакетной обработки, а также систему проверки (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55AAA1458AEE9E10510F0E56E272C50D938225A
 ```
 
 https://mybot314.ru/tekegram_catalog/

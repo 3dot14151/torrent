@@ -1,3 +1,85 @@
+###  Публикация: 1251717   (415418) от 02.10.2018
+
+Питер Норман | Управляя рисками. Клиринг с участием центральных контрагентов на глобальных финансовых рынках (2013) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Журналист и писатель Питер Норман исследует сложнейший процесс становления центральных контрагентов и самого клиринга в широком контексте общественных, политических и законодательных изменений. Он знакомит читателей с прошлым и настоящим клиринга, четко очерчивая будущие перспективы этого бизнеса.
+Питер Норман рассказывает о значении клиринговых палат в истории, (   Читать дальше...   )Жанр: Экономика, БизнесФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE28C79C3A303F1A99B6D378EF9E27AD2D5D4327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325438   (414335) от 14.09.2019
+
+Эдди Юн | Суперпотребители. Кто это и почему они так важны для вашего бизнеса (2017) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В отличие от обычных покупателей суперпотребители очень заинтересованы в ваших товарах, а возможно, даже слегка помешаны на них.
+
+Суперпотребители не случайные люди, которые закупаются в массовом количестве. Это эмоциональные покупатели, чьи решения о приобретении товаров основаны на жизненных ценностях и стремлениях.
+(   Читать дальше...   )Жанр: Бизнес, Менеджмент, ПредпринимательствоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92ACD78C1D1AE9D676FB5B2FCE1F2B47E04336DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558505   (414256) от 10.10.2012
+
+Роберт А.Лутц | 8 законов Крайслер [2004] [DJVU]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга Роберта А. Луща, до 1998 года вице-председателя совета директоров корпорации Chrysler, а ныне вице-президента General Motors, остроумно и удивительно откровенно рассказывает историю возрождения и превращения корпорации Chrysler в одну из самых прибыльных автомобильных компаний в мире. Эта книга — не просто увлекательная история успеха Chrysler, это уникальное нестандартное руководство по ведению бизнеса, написанное действующим топ-менеджером крупнейшей корпорации.  Управленческие методы и приемы Роберта Луща — универсальны и могут быть с пользой применены в любой отрасли. Во втором, дополненном и переработанном издании автор предлагает читателю новый восьмой закон, который звучит еще более провокационно, чем предыдущие семь: «Если вам досталась огромная крысиная нора, не пытайтесь выманить крыс сыром. Используйте огнемет».  Книга адресована в первую очередь менеджерам, предпринимателям, студентам и преподавателям экономических вузов, однако будет интересна и широкой публике.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEC7DCBDD8F7325C790199D9ACB29BCF0BCA4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324360   (414038) от 14.09.2019
 
 Стас Быков | Раскрутка на YouTube. С нуля до первых денег, просмотров и подписчиков (2019) [FB2]
@@ -6,7 +88,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -468,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -495,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -550,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,86 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA5CBF82B8FD5224316AD7625698A573DADB1012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168992   (404787) от 25.09.2017
-
-А. Белановский, К. Белоусов | Продающие сайты от А до Я (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404787.jpg" />
-</div>
-
-
-###  Подробнее
-
-По статистике у каждого второго пользователя сети Интернет есть свой сайт или страница в соцсетях. И все владельцы таких сайтов делятся на две категории – тех, кто зарабатывает с помощью своего сайта, и тех, кто не зарабатывает или даже теряет свои деньги.
-Вы можете создать прекрасный сайт, можете им гордиться, можете рассказывать, что ваша компания существует на (   Читать дальше...   )Жанр: Интернет, Маркетинг, О бизнесе популярноФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5B33677D2B9A0DCC4F3E20765D0547317FF188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168986   (404785) от 25.09.2017
-
-А. Белановский и др. | Личные продажи от А до Я (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга стала результатом эффективной практической работы авторов в российском бизнесе. Используя уникальный опыт организации бизнес-проектов, продаж и ведения переговоров с компаниями Coca-Cola, Olivetti, Seiko, Epson, различными инвесторами и звездами шоу-бизнеса, авторы рассказывают об особенностях продаж в России, где сделка часто проходит под влиянием личностных (   Читать дальше...   )Жанр: Маркетинг, Корпоративная культура, О бизнесе популярноФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE5597BFF1CEDB99A4D1A53EA2D449B3B14F041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168964   (404781) от 25.09.2017
-
-Павел Кочкин | Предназначение. Получите жизнь, о которой другие только мечтают! (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о том, как мечта может стать реальностью. Кто не мечтает о благополучной жизни без рутинной работы и постоянных забот? Такая жизнь возможна! Но только для тех, кто нашел свое жизненное предназначение и готов к переменам.
-Павел Кочкин – тренер и бизнесмен, который нашел дело своей жизни и изменил жизни тысяч людей к лучшему, готов перевернуть и ваш мир! (   Читать дальше...   )Жанр: О бизнесе популярноФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB3F4C14CCB1CA4BAEC43B123A4039E26D9DAFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

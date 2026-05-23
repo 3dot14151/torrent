@@ -1,3 +1,55 @@
+###  Публикация: 1839242   (1003366) от 27.11.2025
+
+Day of the Shell (2025) [Ru/Multi] (1.1.10) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Day of the Shell – это динамичная тактическая игра в жанре роглайт, где каждый ход совершается одним щелчком мыши. Мир пал, не выдержав божественного гнева, и от всей планеты осталась жалкая горстка островов, по которым для божественного развлечения и предстоит путешествовать одинокой охотнице на монстров.Тип издания: LicenseРазработчик: Duper GamesЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FAC25091A4673BDA280AE3110A4970F12F0ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326634   (1002865) от 07.01.2020
+
+Men of War: Assault Squad 2 - Cold War (2019) [Ru/Multi] (1.006.0) Repack xatab
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Легендарная стратегическая серия «В тылу врага» наконец добралась до эпохи холодной войны. Вам предстоит выполнять боевые задачи, командуя войсками США или СССР. Под вашим началом окажутся огромные армии, в составе которых действуют как регулярные части, так и спецподразделения. В числе прочего вы получите в свое распоряжение большое число единиц боевой техники, (   Читать дальше...   )Тип издания: RepackРазработчик: DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABFE5B6F8FF582045D9030A5C522B91D33F78AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597034   (998711) от 08.01.2013
 
 Universe at War: Earth Assault [Ru/En/Multi12] (Repack) 2007 | R.G. Catalyst
@@ -6,7 +58,7 @@ Universe at War: Earth Assault [Ru/En/Multi12] (Repack) 2007 | R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -40,7 +92,7 @@ Worms: Ultimate Mayhem [Ru/En/Multi9] (Steam-Rip/DLC) 2011 | R.G. Игроман
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -74,7 +126,7 @@ Men of War: Assault Squad Game of the Year Edition / В Тылу врага 2: �
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -104,7 +156,7 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (RePack/2.05.15
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -132,7 +184,7 @@ Fantasy Wars / Кодекс войны [Ru] (RePack/1.0.9.3) 2007 | Audioslave
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -158,7 +210,7 @@ Helldorado [En/Multi5] (L) 2009 | *PROPHET*
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -184,7 +236,7 @@ Desperados Anthology / Антология Desperados [Ru] (RePack) 2001-2009 | a
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -210,7 +262,7 @@ Warlock: Master of the Arcane [Ru] (RePack/1.4.1.56) 2012 | Audioslave
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -237,7 +289,7 @@ Men of War: Assault Squad Game of the Year Edition [Ru/En/Multi7] (L/2.05.15) 20
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -265,7 +317,7 @@ Automachef (2019) [Multi] (1.1.0.0.380) License PLAZA [Lunar Update]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -291,7 +343,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (4.22) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -317,7 +369,7 @@ Man of Prey / Мародер [En] (L) 2009 | PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +397,7 @@ Warlock. Master Of The Arcane [Ru/En/Multi6] (L/1.4.1.56/5 DLC) 2012 | PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +424,7 @@ March of the Eagles [En] (RePack) 2013 | FAIRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +450,7 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Highborn [En] (Repack) 2013 | FANISO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +503,7 @@ Men of War: Red Tide / Чёрные бушлаты (2009) [En] (1.00.0) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +529,7 @@ Worms Ultimate Mayhem / Worms: Убойные разборки (2011) [Ru/Multi]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +555,7 @@ Warshift (2015) [Ru/Multi] (1.93) Repack Other s [Standard Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +581,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +607,7 @@ XCOM: Enemy Unknown (2012) [Ru/En] (1.0.0.4963/1.0.0.9040) Repack R.G. Меха�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +633,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.02/Build 927) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,7 +659,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (1.2.1f) Repack R.G. Ме
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -633,7 +685,7 @@ Men Of War. Vietnam: Special Edition [Ru/En/Multi6] (L/1.00.2) 2010 | PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -647,59 +699,6 @@ TВьетнамская война — один из самых неоднозн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F58FEA8F04DD9AE565DDA8BED764283A20A24D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325098   (929849) от 07.03.2020
-
-BATTLETECH (2018) [Ru/Multi] (1.9.1/dlc) Repack xatab [Digital Deluxe Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battletech - это пошаговый ролевой экшен с роботами от создателей вселенной BattleTech и серии MechWarrior, который создается силами Harebrained Schemes, создателей последних частей Shadowrun, которые объединили усилия вместе с создателем оригинальной серии, Джорданом Вейманом. События новой части разворачиваются в 3025 году, а управлять игрокам предстоит отрядом (   Читать дальше...   )Тип издания: RepackРазработчик: Harebrained SchemesЖанр: Action, Strategy (TBS), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D0B8DF17E128418CA9768D185E75382429A4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500743   (929527) от 14.03.2013
-
-Warlock: Master Of The Arcane + 4 DLC [Ru/En] (Repack/1.4.1.56) 2012 | R.G. Catalyst
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warlock: Master of the Arcane - новая стратегическая игра в фантастическом мире Ардания.
-Игроку предстоит взять на себя роль Великого Волшебника и построить могущественную волшебную империю, собрать армию и сразиться за Арданию от имени одного из восьми божеств.(   Читать дальше...   )Тип издания: RepackЖанр: Strategy (Turn-based) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07086AB3C8D7D324B27638F6DE1538D7E065534
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 1786021   (14262) от 18.06.2025
+
+Учебный центр AMS³, Алексей Меркулов, Иван Юриков | Архитектурная визуализация 3ds Max + Corona Renderer (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь создавать современные визуализации экстерьеров.
+Получите крутой опыт и начнете работать на 100% качественнее всех ваших конкурентов!
+Обучаем с нуля. Разбираем каждый шаг на пути к освоению архитектурной визуализации.
+Сопровождаем на каждом этапе и подсказываем как улучшить вашу работу до профессионального уровня.(   Читать дальше...   )Производство: Учебный центр AMS³Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 27:49:18Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7C7DE194357CF0F1E7518FA5E416E86613CF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802959   (14021) от 20.06.2025
+
+ArtStation, LaurentiuN | Ultimate 3D Weapon Tutorial for Portfolio (2025) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите создать высококачественное 3D-оружие для своего портфолио? Тогда этот курс для вас!
+Привет, я LaurentiuN — старший 3D-художник с более чем 14-летним опытом работы в игровой индустрии, включая работу над такими играми, как Call of Duty и Apex Legends. После многих лет просьб поделиться своим процессом я, наконец, создал учебное пособие, разработанное специально (   Читать дальше...   )Производство: ArtStationЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 35:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE98CF40CBECE8A0D7E12E38A2657EF3FA7C8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803301   (13820) от 22.06.2025
+
+Gumroad, Cane Townsend | Hard Surface in Blender [Part 1-2] (2025) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мой рабочий процесс даст вам преимущества полигонального моделирования в сочетании с простым CAD.
+- С тех пор, как я начал использовать полигональное моделирование, оно долгое время было ограничивающей формой моделирования.
+- Постоянное внимание к топологии и технической неразберихе сделало его непривлекательным инструментом для дизайнеров.
+- Я сам отказался от него (   Читать дальше...   )Производство: Gumroad (Part 1, Part 2)Жанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 12:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FE89DC0464EC417E2151744644B11554FEC2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806081   (11935) от 10.07.2025
 
 Udemy, Yasar VURDEM | Digital Hair Painting Masterclass: Realistic Techniques (2025) WEB-DL [EN]
@@ -6,7 +91,7 @@ Udemy, Yasar VURDEM | Digital Hair Painting Masterclass: Realistic Techniques (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +120,7 @@ Udemy, Expert Azi, Md Azizul | Level Up Your UI/UX: Interactive Design & Prototy
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -63,7 +148,7 @@ Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginne
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -92,7 +177,7 @@ Udemy, Yasar VURDEM | The Ultimate Digital Drawing Class: Portrait Paintings (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -120,7 +205,7 @@ Udemy, O- Academy | Furniture Design Using Blender (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +231,7 @@ Skillshare, PIXXO 3D | Master 3D Cloth Simulation - Blender (2023) WEBRip [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -172,7 +257,7 @@ Udemy, Manal Abdullal | AutoCAD 2026 2D Essentials – Complete Course (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -198,7 +283,7 @@ Skillshare, Sasha Luvr | Make everything Fluffy with Blender 4 - 3D illustration
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -224,7 +309,7 @@ Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +335,7 @@ Udemy, Jutta Schneider | Draw With Me in Procreate: Mid-Century Cookbook Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +361,7 @@ Skillshare, Mel Armstrong | Illustrate a Children’s Book Cover in Procreate (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -302,7 +387,7 @@ Linkedin, Bart Van de Wiele | Adobe Firefly Essential Training (2025) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +413,7 @@ Gumroad, 3dex | How to Make a Stylized Outdoor Environment from Start to Finish 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +439,7 @@ Greech, Анастасия Гречушникова | Практический �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +468,7 @@ Asya-Design, Александра Бавыкина | Шаблон ArchiCAD (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +495,7 @@ Bazanova Art, Ольга Базанова | Волшебные пионы (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -436,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -462,7 +547,7 @@ ArtStation, LaurentiuN | 3D Weapon Tutorial for Portfolio (2025) PCRec [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,7 +574,7 @@ ArtStation, Vizyon Designers | 50 Hard Surface Kitbash + Full Process Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -515,7 +600,7 @@ Gumroad, CrossMind Studio | Procedural Thinking - Blender 3D - Small Steps to Bi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -543,7 +628,7 @@ leManoosh, Mohamed Basil | The Blender Material Mastery - Cracking The Code Of P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -597,7 +682,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

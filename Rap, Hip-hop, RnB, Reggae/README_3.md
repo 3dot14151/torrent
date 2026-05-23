@@ -1,3 +1,119 @@
+###  Публикация: 1462801   (1020831) от 16.04.2021
+
+RAM - TRAUMATIX 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Возьмем [03:10]
+02. Men in Black [02:41]
+03. Hesoyam (feat. LeanJe) [03:22]
+04. Как S1mple [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729E68132D1D2F1815C5D0DAD1FD2C738AC37447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462803   (1020821) от 16.04.2021
+
+RAM - TRAUMATIX 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Возьмем [03:10]
+02. Men in Black [02:41]
+03. Hesoyam (feat. LeanJe) [03:22]
+04. Как S1mple [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA9754C20CDF039E42BEAF909511F8C43896DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463838   (1020144) от 20.04.2021
+
+Leanje - Мертвая петля (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Приглашение [01:31]
+02. Великан (feat. Ram) [03:10]
+03. Соль [04:19]
+04. Пропорция уязвимости [04:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E046F95DE68034BC32ACEE6FE3BD0B542D6F197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463839   (1020133) от 20.04.2021
+
+Leanje - Мертвая петля (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Приглашение [01:31]
+02. Великан (feat. Ram) [03:10]
+03. Соль [04:19]
+04. Пропорция уязвимости [04:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A67DF61575B2ABF4D3AD6AB1B92943BC7592DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465919   (1018916) от 27.04.2021
 
 Скриптонит - Свистки и бумажки (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -6,7 +122,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +180,7 @@ Alfa Mist - Bring Backs (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +209,7 @@ Snoop Dogg - From Tha Streets 2 Tha Suites (2021) [FLAC|Lossless|Web-DL|tracks] 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ka - Descendants of Cain (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +354,7 @@ BOULEVARD DEPO, Jeembo - ОМОФОР (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +383,7 @@ DMX - Exodus (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Chillhop Essentials Summer 2021 [FLAC|Lossless|Web-DL|tracks] <ChillHop, Hi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +441,7 @@ Jah Khalib - Collection 6 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ra
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - 100 Greatest Rap Songs The Greatest Hip-Hop Tracks Ever (2020) [MP3|320 Kbp
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +528,7 @@ Aswad - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Reggae>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +557,7 @@ Scylla & Sofiane Pamart - Pleine Lune (2018) [FLAC|Lossless|WEB-DL|tracks] <Fren
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +586,7 @@ Scylla & Sofiane Pamart - Pleine Lune 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Fr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +615,7 @@ ATL - Кривой эфир (2019) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +644,7 @@ Eminem - Music To Be Murdered By (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - RnB - The Solid Gold Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <RnB, 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +702,7 @@ Eminem - Music To Be Murdered By (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +731,7 @@ Mac Miller - Circles (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -629,122 +745,6 @@ Mac Miller - Circles (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E00248B71EBD1115891FE6E3ECADFE4B2EA33EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353389   (991687) от 18.01.2020
-
-Eminem - Music To Be Murdered By (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL]  <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premonition (Intro) (02:53)
-02. Unaccommodating (feat. Young M.A) (03:36)
-03. You Gon' Learn (feat. Royce da 5'9" & White Gold) (03:54)
-04. Alfred (Interlude) (00:30)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FD730C2CAA15B9B1C03C86DB7B780BACE889D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434082   (986272) от 10.01.2012
-
-Lil Wayne - 10 Albums (1999-2011) [MP3|320 kbps]<Rap/Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-The Block Is Hot (1999)
-Lights Out (2000)
-500 Degreez (2002)(   Читать дальше...   )Жанр: Rap/Hip-HopПродолжительность: 11:27:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971072   (985567) от 03.01.2016
-
-Lisa Fischer - So Intense (2013) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Save Me
-02 Get Back To Love
-03 How Can I Ease The Pain
-04 So Intense(   Читать дальше...   )Жанр: RnB, Swing, Soul, DowntempoПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041804D2340D29137A0FA65B7117D7ECD325ECC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975442   (971764) от 15.01.2016
-
-The Weeknd - Beauty Behind the Madness (2015) [MP3|320 кб/с] <R&B, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Life
-02. Losers (feat. Labrinth)
-03. Tell Your Friends
-04. Often(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB85D60B29D2CD3D79F7CADFAE946BE884E53B45
 ```
 
 https://mybot314.ru/tekegram_catalog/

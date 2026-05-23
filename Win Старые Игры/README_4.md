@@ -1,3 +1,55 @@
+###  Публикация: 1089087   (953284) от 02.01.2017
+
+Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это игра, которая охватывает всю историю железных дорог, с самого начала и по сей день. Игрок выбирает карту (сценарий) и берет на себя роль начальника железнодорожной компании. Игрок пытается получить прибыль для инвесторов и проходит различные задания, при этом мешая соперникам.Тип издания: LicenseРазработчик: G.O.D., Pop Top SoftwareЖанр: Strategy (Manage, Busin., Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089035   (953277) от 02.01.2017
+
+Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.05) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное продолжение серии игр «Железнодорожный магнат» наконец-то перед вами! А вместе с ним - новые реалистичные модели поездов, построек и пейзажей. Дело за малым. Рельсы убегают вдаль, составы с ценным грузом ждут сигнала к отправлению, конкуренты мечтают, чтобы вы их разорили... Вперед! Поезд проследует со всеми остановками.Тип издания: LicenseРазработчик: PopTop SoftwareЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28292EC29A72BB279704F29CE37257E7748B017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089410   (951531) от 03.01.2017
 
 Alpha Prime (2007) [En] (1.01) License RELOADED
@@ -6,7 +58,7 @@ Alpha Prime (2007) [En] (1.01) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Ignition (1997) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Tachyon: The Fringe / Жестокие звезды (2000) [Ru/En] (1.00.00.36r)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Wolfenstein 3D: Spear of Destiny (1993) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Galactic Civilizations: Ultimate Edition [En] (L) 2003 | PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +400,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (Beta, 1.00-1.
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +426,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +452,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +504,7 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +530,7 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +556,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +582,7 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +608,7 @@ Police Quest: SWAT 2 (1998) [En] (1.0.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -582,7 +634,7 @@ Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -608,7 +660,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,58 +671,6 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E970DA93C0BA8D8D23A95D06DE1D4A35F628AA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098962   (905978) от 31.01.2017
-
-Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classics Collection]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры начинает свое повествование за сутки до событий Resident Evil 2. Под нашим контролем снова Джилл Валентайн - героиня первой части игры. Она не успела покинуть город из-за введенного карантина, в то время как остальные выжившие члены отряда S.T.A.R.S. уехали в Европу. Раккун всё больше и больше впадал в хаос. Джилл собрала вещи, взяла пистолет и вышла на (   Читать дальше...   )Тип издания: RepackРазработчик: Capcom EntertainmentЖанр: Survival Horror, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AC0234820906EBAB5836AFB4B67C90324B313A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099131   (905972) от 31.01.2017
-
-Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc) License GOG [Black Edition]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказавшись в плену мрачного, неприветливого мира и ожидая расплаты за земные грехи, вы должны проложить путь через бессчетные толпы врагов, предотвратить начало Нечестивой войны и низвергнуть Люцифера. Но даже если вы одержите верх в этой безумной битве, вам придется уничтожить орды жутких демонов, жаждущих отомстить за своего владыку. Вы – последняя надежда ангелов.Тип издания: RepackРазработчик: People Can FlyЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C32BDF86423135B6D87E558E56F14987B32234
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,166 @@
+###  Публикация: 1277213   (1035380) от 29.01.2021
+
+Принцесса Турандот (1971) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Принце́сса Турандо́т» по сказке Карло Гоцци.
+Жестокая красавица китайская принцесса Турандот не желает выходить замуж. Чтобы женихи не одолевали, она придумала им невыполнимую задачу — разгадать три труднейшие загадки, а кто не угадает — того казнить. Но поток влюблённых не иссякает. Каждому прибывающему очередному жениху она загадывает свои загадки, после (   Читать дальше...   )Производство: СССР. Гостелерадио СССР, Государственный Академический театр им. Е. ВахтанговаЖанр: Телеспектакль, комедия, экранизацияРежиссер: Рубен Симонов, Александр ШоринАктеры: Василий Лановой, Юлия Борисова, Михаил Дадыко, Эрнест Зорин, Юрий Яковлев, Николай Гриценко, Михаил Ульянов, Людмила Максакова, Екатерина Райкина, Анатолий КацынскийСубтитры: отсутствуютПродолжительность: 01:09:04+01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE7DF3DD4EB7612732E8BB3A8FB77882748EECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443502   (1035311) от 29.01.2021
+
+Пинк Флойд - Стена / Pink Floyd - The Wall. Movie (1982) Blu-ray [MPEG-2/1080p] [Custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Все смешалось в номере некоего лос-анджелесского отеля, в котором заперт рок-музыкант Пинк — пространство и время, реальность и кошмар. Каждый кирпич в «Стене» — его чувства, мысли, воспоминания.
+Музыкальный фильм, ставший классикой жанра. Да что там, просто легендой... Снятый Аланом Паркером в 1982 году, он является экранизацией одноимённого альбома Пинк Флойд 1979 (   Читать дальше...   )Производство: ВеликобританияЖанр: Мюзикл, драмаРежиссер: Алан ПаркерАктеры: Боб Гелдоф, Кристин Харгривз, Джеймс Лоренсон, Элинор Дэвид, Кевин МакКион, Боб Хоскинс, Дэвид Бингэм, Дженни Райт, Алекс МакЭвой, Эллис ДейлПеревод: Одноголосый (Ю.Сербин)Язык озвучки: Русский, EnglishСубтитры: Русские, EnglishПродолжительность: 01:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2EF12B95D99F74D0264D0F9CB67DFB01E947D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443701   (1035067) от 30.01.2021
+
+Сборник клипов (01.2021) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за январь 202101_MIA BOYKA, T-killah - Лепесток
+02_Alan Walker & ISAK - Sorry
+03_Markus Schulz & Christina Novelli - Not Afraid To Fall
+04_Brando - Close To You(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DF2932F71450C9A9DCBBEB256E8CF3B644B81F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617859   (1034838) от 08.03.2023
+
+МузЛофт-подкаст / МузLoft. Наталья Подольская (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
+Наталья Подольская. Откровенно про мужа. Искренне про маму.
+К нам в гости заглянула яркая, огненная фабрикантка и обладательница шикарного голоса - Наталья Подольская. Наталья поделилась секретами семейной жизни с супер-звездой, рассказала о своей миссии на этом свете, (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: PopУчастники: Наталья ПодольскаяПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BC62B45D79C88F6CA97CD363AFC0E137342166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444037   (1034812) от 31.01.2021
+
+Огонь Кристиана Лубутена 3D / Feu: Crazy Horse Paris (2012) BDRip 3D [H.264/1080p] [Вертикальная полная стереопара]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый создатель туфель с красной подошвой ставит шоу в известном парижском клубе «CRAZY HORSE PARIS». По словам самого Лубутена, танцевальные номера в парижском кабаре «это памятник, памятник танцу, фантастическая идея праздника для женщин от женщин».Производство: Франция (студия KaBo)Жанр: Документальный, Мюзикл, ШоуРежиссер: Бруно ХаллинАктеры: Люмина Классика, Нука Карамель, Бейби Лайт, Кристиан Лубутен, Лив Менот, Дива Новита, Фьямма Роза, Ясна Снигура, Псикко Тико, Лоа ВаинаПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B91F8D450C897B4799C6BA5E57DE3C926FEEAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444638   (1034100) от 03.02.2021
+
+Огонь Кристиана Лубутена 3D / Feu: Crazy Horse Paris (2012) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый создатель туфель с красной подошвой ставит шоу в известном парижском клубе «CRAZY HORSE PARIS». По словам самого Лубутена, танцевальные номера в парижском кабаре «это памятник, памятник танцу, фантастическая идея праздника для женщин от женщин».Производство: Франция (студия KaBo)Жанр: Документальный, Мюзикл, ШоуРежиссер: Бруно ХаллинАктеры: Люмина Классика, Нука Карамель, Бейби Лайт, Кристиан Лубутен, Лив Менот, Дива Новита, Фьямма Роза, Ясна Снигура, Псикко Тико, Лоа ВаинаПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9B964E56E57679F85EFA608969A71C1ABD1071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444977   (1033970) от 04.02.2021
 
 Riverside - Lost 'N' Found - Live In Tilburg (2020) DVDRip
@@ -6,7 +169,7 @@ Riverside - Lost 'N' Found - Live In Tilburg (2020) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +226,7 @@ Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -92,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -121,7 +284,7 @@ Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -147,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -173,7 +336,7 @@ Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -200,7 +363,7 @@ VA «20 Years Of Nuclear Blast» 2007 2DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -226,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -252,7 +415,7 @@ Uriah Heep - Live at Wacken Open Air 2019 (2021) WEBRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -281,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -307,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -333,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -359,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -385,7 +548,7 @@ Alice Cooper - The Detroit Stories / Alice Cooper - The Detroit Stories (2021) D
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +626,7 @@ Accept - Герои мирового рока в честь 25-летия АО �
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -489,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +681,7 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,163 +692,6 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6092845C4BF6E31F41BF689B37664CE611A490CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453481   (1026866) от 11.03.2021
-
-Руслан и Людмила. Ледовое шоу (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руслан и Людмила» - шоу с участием мировых звезд фигурного катания, олимпийских чемпионов и действующих финалистов международных соревнований. Татьяна Навка - автор идеи, продюсер - приготовила для зрителей захватывающее зрелище с монументальными декорациями, яркими номерами и музыкой композитора Романа Игнатьева и группы «Sunny from the Moon», которая была написана (   Читать дальше...   )Производство: РоссияЖанр: Мюзикл, спектакль, ледовое шоуРежиссер: Алексей СеченовАктеры: Татьяна Навка, Пётр Чернышев, Маргарита Дробязко, Повилас Ванагас, Филипп Канделоро, Виктор Петренко, Иван Ригини, Артур Гачинский, Юко Кавагути, Александр СмирновСубтитры: ОтсутствуютПродолжительность: 01:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7A84767502DCE87C70B0390377CA9102A01A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453897   (1026556) от 13.03.2021
-
-Power Tale - Огненный Бог Марранов (2021) WEB-DL [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео-версия постановки рок-оперы Огненный Бог Марранов украинской группы Power Tale, состоявшейся 8 декабря 2019 года, в г. Харькове, Арт-завод “Механика” Иная Земля.Жанр: Рок-опера, концертРежиссер: Алексей Маршалко (ARCANE CINEMA)Актеры: Урфин Джюс — Станислав Прошкин, Чарли Блек — Иван Ворон, Клем — Илья Скребнёв, Стелла — Вероника Завьялова, Харт — Сергей Брыков, Торм — Клим Апальков, Орёл Карфакс — Дмитрий Ленковский, Страшила Мудрый — Анатолий Яковлев, Железный дровосек — Сергей Сорокин,  Филин Гуамоколатокинт — Станислав Осычнюк, Валентин Керо — ударные, Александр Гмыря — гитара, Анатолий Яковлев (   Читать дальше...   )Продолжительность: 01:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DE1FB953F79C9C0FC7EE30ACEA866F0DE7CAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453917   (1026461) от 13.03.2021
-
-Евгений Крылатов. Любимые песни из детства и фильмов (2021) TVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песни Евгения Крылатова. Любимые песни нашего детства. Песни из советских фильмов.Телекомпания: ВГТРК ГостелерадиофондЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0855C42A6659FC49BDD2B7EE21BA0D0D20FD150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454283   (1026404) от 14.03.2021
-
-Квартирник НТВ у Маргулиса. Группа Sirotkin (13.03.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026404.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2015 году музыкант Сергей Сироткин, вдохновленный музыкой Майкла Джексона, Курта Кобейна и многих других культовых артистов, собрал коллектив и решил создавать авторскую музыку на акустической гитаре с добавлением электронных партий. Так появилась инди-рок-группа Sirotkin. За чуть более пятилетний период музыканты выпустили четыре EP и завоевали ряд премий, включая (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47045B95AFA90D37ADC08D6623FB29F13D4A736A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447642   (1025596) от 19.03.2021
-
-Dua Lipa - We're Good (2021) WEB-DL [1440p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025596.jpg" />
-</div>
-
-
-###  Подробнее
-
-« We Good » - песня английской певицы Dua Lipa из переиздания ее второго студийного альбома Future Nostalgia: The Moonlight Edition (2021). Он был выпущен на лейбле Warner Records 11 февраля 2021 года в качестве ведущего сингла переиздания.
-Новый клип Dua Lipa "We're Good" — это душераздирающая история одного лобстера. Его сняли Ваня Хейманн и Галь Муджиа, (   Читать дальше...   )Производство: UMG, WMG (от лица компании "Warner Music UK"Жанр: Pop, tropicalРежиссер: Vania Heymann, Gal MuggiaАктеры: Dua LipaПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71BAC5A47B3EFADEE01BC20749CEC29397F930B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455786   (1025420) от 20.03.2021
-
-Большой праздничный концерт (18.03.2021) HDTVRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Филипп Киркоров, Николай Басков, Олег Газманов, Сергей Лазарев, Стас Михайлов, Лариса Долина, Полина Гагарина, Пелагея и "Хор Турецкого" – на сцену "Лужников" выйдут любимые артисты, чтобы вместе со всей страной отпраздновать День воссоединения Крыма с Россией. Во время концерта состоятся прямые включения из Севастополя и Симферополя, где запланированы (   Читать дальше...   )Производство: Россия, ВГТРКЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408629DBA8243F6DD65B19EB48A45F21C0FDCD3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

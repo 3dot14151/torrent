@@ -1,3 +1,81 @@
+###  Публикация: 1680556   (134155) от 29.11.2023
+
+izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой телефон в персонального гида и станьте настоящим путешественником. Откройте для себя новые города, живописные маршруты, необычные музеи и колоритные достопримечательности. Аудиогид поможет вам лучше проникнуться местной атмосферой. Поделитесь с друзьями своими впечатлениями о путешествиях и расскажите им свои истории. Превратите свою поездку в настоящее (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 20.08.2023Разработчик: Informap Technology CenterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F41BA9F8C1A4A2A54F7FA5F12348A35709B4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680476   (134133) от 29.11.2023
+
+V Recorder - Запись видео с экрана 7.1.1 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+V Recorder – качественный и простой экранный рекордер. Если вы постоянно сталкиваетесь с такой проблемой, когда вам необходимо записать видео с экрана и еще со звуком, то данное приложение вам в этом отлично поможет. В данном приложении представлено множество функций, которые направлены на то, чтобы облегчить вам жизнь. И теперь с его помощью запись видео с экрана (   Читать дальше...   )Тип издания: VIP (Pro)Релиз состоялся: 15.07.2023Разработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCB9ED09F619FEEFB4C349C13AB5F5866270682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677872   (134065) от 29.11.2023
+
+FBReader Premium v3.5.4 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 21.11.2023Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A23B3A862E4123B6C5E16FE2EBBB7A4F117201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680836   (133888) от 30.11.2023
 
 Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
@@ -6,7 +84,7 @@ Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Mobizen Screen Recorder 3.10.0.31 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Shazam (шазам) 14.3.1-231120 Lite-Mod by inqvizitor [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Music Folder Player Full 3.1.31 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ PROTO - симулятор схем v1.25.0 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Moon+ Reader Pro v8.6 (build 806004) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Photo Lab PRO v3.12.80 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Psiphon Pro 390 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +372,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.1 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +398,7 @@ AR Ruler App: Линейка Рулетка v2.7.4 Mod by Timozai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +424,7 @@ OBDeleven VAG car diagnostics v0.76 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +450,7 @@ Planner 5D - дизайн интерьера v2.8.8 Mod by App_modz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +476,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +531,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +557,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 Mod By ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +586,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +614,7 @@ XY VPN - Security Proxy VPN 4.7.329 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +666,7 @@ Speedtest от Ookla 5.2.4 Mod by LEEAPK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,84 +677,6 @@ Speedtest - это приложение предназначено для опр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:440B5B6CF9173973995F70EB127EC5CF19F932EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682571   (131014) от 08.12.2023
-
-Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый красивый и мощный монитор на андроид! Включите хранилище и монитор оперативной памяти. Вы можете одновременно контролировать использование памяти и оперативной памяти. Он предоставляет множество видов инструментов. в том числе: виджет оперативной памяти, виджет процессора, виджет батареи, рабочий стол, плавающее окно, строка состояния, плавающее окно. Вы можете (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.12.2023Разработчик: System monitor tools lab - Cpu Ram BatteryПоддерживаемая ОС: Android: 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F424D959A5E3FC19027F3EA0E2EE51E92D6F9139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524954   (130458) от 18.01.2022
-
-UPlayer Pro v2.0.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130458.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPlayer (Видеоплеер со всеми форматами) - Удобный видео проигрыватель для устройств Android, обладающий поддержкой большинства форматов, а так же позволяющий продолжить воспроизведение с того же места, даже после закрытия плеера. В UPlayer так же вошел пяти полосный эквалайзер и функция блокировки экрана на время воспроизведения видео.Тип издания: PremiumРелиз состоялся: 07.09.2021Разработчик: UPlayerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F453A5739B5AD412B9AA8FF7B19812B6109CB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524955   (130442) от 18.01.2022
-
-UPlayer Pro v2.0.6 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130442.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPlayer (Видеоплеер со всеми форматами) - Удобный видео проигрыватель для устройств Android, обладающий поддержкой большинства форматов, а так же позволяющий продолжить воспроизведение с того же места, даже после закрытия плеера. В UPlayer так же вошел пяти полосный эквалайзер и функция блокировки экрана на время воспроизведения видео.Тип издания: PremiumРелиз состоялся: 19.10.2021Разработчик: UPlayerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD785DB788868722EC7EAF5E5C519820B99DDDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

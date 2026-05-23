@@ -1,112 +1,3 @@
-###  Публикация: 858767   (947416) от 12.01.2015
-
-Александр Куликов | Инсуху - маралья вода (1956) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старик поспешил к берегу. Уже издалека еще  раз долетел  до него слабый
-призыв  о помощи. Старик бежал, спотыкаясь о  камни.  Падал. Путь по  берету
-преградила скала, выдавшаяся далеко в реку. Он остановился.
-     -- Ой  бо-оо, --  проговорил вслух старик, качая головой.  -- Ну кто  в(   Читать дальше...   )Жанр: Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26511F4E946AC2008A6E2A4DBF9BF7C0148C01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858788   (947415) от 12.01.2015
-
-Сергей Деркач | Приключения богатыря Никиты Алексича. Сотоварищи (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами новый роман известного мастера фантастической литературы Сергея Деркача, в котором фантастический сюжет служит искусным обрамлением философских наблюдений автора.
-В фантастическом произведении «Приключения богатыря Никиты Алексича сотоварищи» Вселенная разделена на три мира: Мир магии, Мир науки и Пограничье − место, в котором объединены свойства (   Читать дальше...   )Жанр: Детская фантастика, Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C08840804D70DB3C0AA1E036D6F7635C3B99D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858773   (947413) от 12.01.2015
-
-Владимир Федоров | Приключения Джима – Гусиное Перо (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джим – обыкновенный деревенский мальчишка, рано оставшийся сиротой. Однажды он попадает в банду разбойников, по приказу главаря которой когда-то был убит его отец. Вынужденный повиноваться преступникам, Джим всеми силами будет стремиться к справедливой мести. В этом ему будут помогать как обычные люди, так и странные существа вроде гнома-домового и волка-телепата.Жанр: Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E03166428C1775CBA3DFBEA5BD504E73A8E7CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858797   (947318) от 12.01.2015
-
-Евгений Наумов | Загадка острова Раутана (1981) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор нескольких книг для детей («Утро вечера мудренее», «Коралловый город, или Приключения Смешинки», «Околесица» и других) в форме повести рассказывает о приключениях группы школьников из киностудии Дома пионеров, которые становятся участниками раскрытия преступления.
-Во время путешествия по Чукотке ребята узнают многое о работе геологов, шоферов, горняков, летчиков.Жанр: Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B69C1FBA881C604B80974F9BF5F6668648056A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858812   (947291) от 12.01.2015
 
 Тамара Крюкова | Чёрный альбатрос (2012) [FB2]
@@ -115,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -460,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -487,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -540,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -567,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -595,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -621,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -647,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -673,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -684,6 +575,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89F9964CF40C5E9631F774465AA6F13EE93952D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091915   (941665) от 10.01.2017
+
+Т. Вульф | Драконы (1995) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В одном заколдованном
+лесу поселились однажды
+гномы, великаны, феи,
+эльфы и драконы...Жанр: Детская проза, СказкаПеревод: С. Г. ГоловкоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533E5D3C01FE718CB12399BCC90D3016EFCB2DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626972   (941446) от 07.03.2013
+
+Иан Уайброу | Сборник произведений (8 книг) [2007-2012] [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Иан Уайброу (1941) — английский поэт и писатель, автор книг для детей. Иан Уайброу написал более 60 книг для детей, его произведения переведены на 21 язык и изданы в 24 странах.
+Один из самых популярных героев книг Уайброу — Малютка Волк (англ. Little Wolf). В русской версии книги изданы с иллюстрациями Николая Воронцова.
+Произведения Уайброу открывают английский список рекомендуемой школьной литературы для детей в возрасте от 3 до 14 лет.
+
+ У этого писателя удивительная фамилия. Посудите сами – рядом стоят такие два замечательных английских слова, как Why и Brow. Why – это «почему», а brow – «бровь». То есть по-русски получается Иан Почему-Бровь. Иан Уайброу начал свою профессиональную карьеру в возрасте 10 лет, с того, что продал в местную газету стихотворение о мёртвой кошке в коробке. С этого времени он, не переставая, пишет стихи, песни, пьесы, мюзиклы, повести и скетчи для радио и телевидения.Формат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49050EDB83F9983F1172F02A19904EE189471F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091899   (941409) от 10.01.2017
+
+Г. Степанов (сост.) | Птица-правда. Испанские и португальские народные сказки (1971) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны испанские и португальские народные сказки.Жанр: Детская проза, СказкаПеревод: Т. ШишловаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF48F692846DC9BE342B8CFA46670D1D08B3F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860309   (941248) от 16.01.2015
+
+Евгений Гаглоев | Афанасий Никитин и легенда о четырех колдунах (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Афанасий Никитин».
+Маму 12-летнего Афанасия Никитина похищают при раскопках древнего кургана. Бандиты – группа чудаковатых циркачей из разорившегося цирка-шапито «Золотой треугольник», которые работают на злобного миллионера. Они ищут старинную табличку с указанием места захоронения мифического богатыря.
+Чтобы спасти маму, Афанасий ввязывается (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018B5B2365E9087FAF4248F8675D340EA8D09211
 ```
 
 https://mybot314.ru/tekegram_catalog/

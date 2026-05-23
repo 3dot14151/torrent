@@ -1,3 +1,107 @@
+###  Публикация: 1647084   (195492) от 18.07.2023
+
+14+ Продолжение (2023) WEBRip [H.264/2160p] [4K, SDR, 8-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+История взросления Леши, которому исполнилось 18 лет. Он встречает яркую и открытую Настю, которая переворачивает его привычный мир, но все еще вспоминает свою первую любовь Вику. Он становится взрослее, а проблемы — серьезнее. Но, как и раньше, справиться с жизненными сложностями и ответить на все вопросы о любви, семье и долге Леша должен самостоятельно.Производство: Россия / All Media Company, Сентябрь, STARTЖанр: мелодрамаРежиссер: Андрей ЗайцевАктеры: Глеб Калюжный, Ульяна Васькович, Ольга Озоллапиня, Полина Гухман, Даниил Пикула, Дмитрий Блохин, Анна Рудь, Алексей Филимонов, Сергей Габриэлян, Александр КононецПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 02:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5397A3BD63E6E409558F1E320B9A662FD1A4891D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276237   (195474) от 20.07.2023
+
+Сель (2003) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Герой фильма Ахмет пас овец высоко в горах, когда беспощадный сель уничтожил его дом, унес всех родных и близких. И Ахмет впервые за 30 лет своей жизни уезжает далеко от дома - в Москву, на поиски единственного близкого человека - двоюродного брата. По дороге он встречает разных людей... Проводница поезда берет над ним шефство, учит городской жизни, о которой Ахмет (   Читать дальше...   )Жанр: драмаРежиссер: Ярополк ЛапшинВ ролях: Асланбек Галаов, Анна Кузминская, Нина Гогаева, Людмила Зайцева, Юрий Алексеев, Валерий Величко, Александр Самойлов, Леонид Балуев, Анатолий Галаов, Олег Гущин, Вячеслав Кириличев, Александра Назарова, Дмитрий Наливайчук, Надежда Озерова, Эдуард Османов, Наталья Потапова, Ольга Хохлова, Алексей Шутов, Татьяна Щанкина, Александр ЛеонтьевКачество: DVDRipПродолжительность: 01:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B8656C5EE6C6526FF0E462BE9F34EBB91193BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647560   (195462) от 19.07.2023
+
+Хитровка. Знак четырех (2023) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Москва, 1902 год. Знаменитый режиссер Константин Станиславский в поисках вдохновения для постановки новой пьесы решает познакомиться с жизнью городского «дна». Он обращается за помощью к признанному знатоку московских трущоб Владимиру Гиляровскому. Вместе они отправляются на легендарную бандитскую Хитровку и оказываются втянуты в расследование убийства загадочного (   Читать дальше...   )Производство: Россия | Курьер, МосфильмЖанр: Детектив, комедияРежиссер: Карен ШахназаровАктеры: Константин Крюков, Михаил Пореченков, Алексей Вертков, Александр Олешко, Анфиса Черных, Евгений Стычкин, Борис Каморзин, Аюб Цингиев, Юлия Витрук, Денис СладковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF94577AA6B836EF2E1C05DC1244C8E6C6539EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647510   (195436) от 19.07.2023
+
+Хитровка. Знак четырех (2023) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Москва, 1902 год. Знаменитый режиссер Константин Станиславский в поисках вдохновения для постановки новой пьесы решает познакомиться с жизнью городского «дна». Он обращается за помощью к признанному знатоку московских трущоб Владимиру Гиляровскому. Вместе они отправляются на легендарную бандитскую Хитровку и оказываются втянуты в расследование убийства загадочного (   Читать дальше...   )Производство: Россия, Курьер, МосфильмЖанр: Детектив, комедияРежиссер: Карен ШахназаровАктеры: Константин Крюков, Михаил Пореченков, Алексей Вертков, Александр Олешко, Анфиса Черных, Евгений Стычкин, Борис Каморзин, Аюб Цингиев, Юлия Витрук, Денис СладковПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD13352A3BA3F61A36BBFEEBE42627FB75D7DC51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647624   (195415) от 20.07.2023
 
 Хитровка. Знак четырех (2023) WEBRip [H.264]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2130DA0DB2323DB728FC437682A198FF70E9C2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653828   (194226) от 17.08.2023
-
-Капитан Волконогов бежал (2021) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ленинград, 1938 год. Сотрудник органов капитан Фёдор Волконогов, прежде находившийся на хорошем счету у начальства, вынужден пуститься в бега и скрываться от бывших сослуживцев. Ночью ему является расстрелянный накануне коллега и сообщает, что в аду его уже заждались муки вечные, но этого можно избежать, если перед смертью покаяться, и хотя бы один человек его простит. (   Читать дальше...   )Производство: Россия, Эстония, Франция / Homeless Bob Production, KinoVista, Look-filmЖанр: Триллер, драмаРежиссер: Наташа МеркуловаАктеры: Юра Борисов, Тимофей Трибунцев, Александр Яценко, Никита Кукушкин, Владимир Епифанцев, Анастасия Уколова, Наталья Кудряшова, Дмитрий Поднозов, Виктория Толстоганова, Юрий КузнецовПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: Французские (Full)Продолжительность: 02:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0D51D3B55D0C147AD0278A0C2E36E5D68E5FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306060   (194055) от 19.08.2023
-
-Кандагар (2010) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма основан на истории, произошедшей с российскими летчиками в 1995 году. Экипаж самолета Ил-76 был захвачен афганскими талибами и пробыл в плену больше года. Все попытки российских властей вызволить людей из заточения были провалены.
-1995 год. Афганистан. Российский грузовой самолет принудительно посажен на аэродроме в столице исламского терроризма – городе (   Читать дальше...   )Производство: Россия, Fawzi Vision, Magic Picture, Rekun CinemaЖанр: Боевик, ДрамаРежиссер: Андрей КавунАктеры: Александр Балуев, Владимир Машков, Андрей Панин, Александр Голубев, Богдан Бенюк, Максим Клянов, Юрий Беляев, Александр Робак, Артем Мазунов, Рамиль СабитовСубтитры: русскиеПродолжительность: 01:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC1CFE20CD1945C98A367B0431BA5505412C2DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583054   (194022) от 20.08.2023
-
-Человек-ветер (2007) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194022.jpg" />
-</div>
-
-
-###  Подробнее
-
-В крохотный аул, затерянный в степи, во время грозы падает странное существо: старый человек со сломанными в буре большими крыльями. Напуганные жители аула собираются убить это существо, однако понемногу привыкают к нему и оставляют его в покое, правда, так и не найдя ему применения. И только один маленький мальчик нашёл в нём настоящего друга...Жанр: ПритчаРежиссер: Хуат АхметовАктеры: Игорь Ясулович, Куандык Кыстыкбаев, Аянат Есмагамбетова, Гульнара Дусматова, Фархат Абдраимов, Фархад Абдуллаев, Даулет АбдыгапаровПродолжительность: 01:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239886288A594495EC55722CA2B35976EA2E86FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828648   (193416) от 24.10.2025
-
-Один хороший день (2025) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катька мечтает стать крутым модельером, но в поселке городского типа со смешным названием Жупа ее таланту как-то тесновато. А тут еще мама заставляет ее выйти замуж, и Катя решает сбежать в Москву. Но тут происходит нечто странное — девушка попадает во временную петлю одного безумного дня. Ей предстоит разобраться в причинах этого круговорота событий и найти (   Читать дальше...   )Производство: Россия / 1-2-3 ProductionЖанр: комедияРежиссер: Кирилл БелевичАктеры: Анастасия Талызина, Роман Евдокимов, Ирина Пегова, Раиса Рязанова, Олеся Железняк, Гоша Куценко, Альбина Кабалина, Добрыня Оболенский, Эрик Яралов, Дмитрий БергерСубтитры: отсутствуютПродолжительность: 01:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE35194AAFD392EC108E6267483E8CE2FE70167
 ```
 
 https://mybot314.ru/tekegram_catalog/

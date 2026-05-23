@@ -1,3 +1,191 @@
+###  Публикация: 722971   (342073) от 23.11.2013
+
+New Super Mario Bros. Wii Mods [Wii] [NTSC] [ENG] (2013)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+New Super Mario Bros. Wii (далее NSMBW) стал настоящей сенсацией для Wii, возродив классический платформер от Nintendo и вознеся его на вершину жанра, в немалой степени благодаря возможности одновременной игры вчетвером. Как только приставку удалось взломать, незамедлительно образовались сообщества фанатов, разобравшие NSMBW по кирпичикам и изучившие все его внутренности. (   Читать дальше...   )Тип издания: ПираткаРазработчик: RVlution TeamЖанр: PlatformerЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B88A83D47BBDCCA007E42673738F5095A3F491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 725030   (342062) от 23.11.2013
+
+Фантом / Phantom (2013) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Капитан советской подводной лодки держит в своих руках судьбу всего мира. Вынужденному покинуть свою семью, ему приходится возглавить секретную миссию окутанную тайной…Производство: США, Trilogy Entertainment GroupЖанр: ТриллерРежиссер: Тодд РобинсонАктеры: Эд Харрис, Дэвид Духовны, Уильям Фихтнер, Лэнс Хенриксен, Джонатон Шек, Джейсон Бех, Дагмара Доминчук, Дерек Магияр, Шон Патрик, Флэнери Джейсон, Грей-Стенфорд.Перевод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC532DFDBA864A714432D4D4EC697E3995572B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073374   (341974) от 17.11.2016
+
+Специалист | CEH v9 часть 1. Этичный хакинг и тестирование на проникновение (2016) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Certified Ethical Hacking
+
+Вы получите знания и навыки, необходимые для успешного выявления и устранения проблем безопасности в смешанных компьютерных сетях. Курс посвящен уникальным хакерским техникам и методам взлома в контексте применения оборонительных практик и рекомендаций, изложенных настоящими хакерами. Курс одобрен министерством обороны США и является официальной (   Читать дальше...   )Жанр: БезопасностьПродолжительность: 24:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FA2D68351A992331A4F2A8505A8DDB41E2DEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579889   (341902) от 25.11.2012
+
+Dark Souls prepare to die edition [Xbox 360] [RUS] [Pal] [XGD3/LT+3.0/15574] (2012)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
+ Каждое испытание представляет собой головоломку с бесконечным количеством решений. Вам пригодится, в первую очередь, умение стратегически мыслить, чтобы победить многочисленных противников и завершить свой путь.Тип издания: ПираткаЖанр: RPGЯзык интерфейса: Russian
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537C92127F9792958D6D8D3EE82D796F16B37347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126079   (341606) от 03.11.2017
+
+Asura (2017) [En/Ch] (Build ID 29000/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Asura» - игра, в которой вы будете играть за демона низшего ранга. Вы будете проходить свой путь от самого начала и до конца, переживая сюжеты, которые происходят от случайно сгенерированных залов. Сюжет не сложен, а даже по-детски прост, а вот сам процесс игры в некоторых моментах заставит насладиться сложностями. Представленное вам дерево навыков будет постоянно (   Читать дальше...   )Тип издания: LicenseРазработчик: Ogre Head StudioЖанр: Экшн, Ролевая игра, РогаликЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76A02251B330BE2788515A3E8A42B5E46FA786D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953988   (341428) от 07.11.2015
+
+Японские исследователи сделали небьющееся стекло, которое по прочности не уступает стали
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Группа исследователей из Института индустриальных наук (Institute of Industrial Science) Токийского университета разработала и опробовала на практике новую технологию изготовления практически небьющегося стекла, которое имеет прочность, сопоставимую с прочностью высококачественной стали. Наличие стекла, обладающего такими уникальными свойствами, может привести к (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954433   (341255) от 07.11.2015
+
+Windows 7 Professional SP1 IDimm Edition х86/x64 v.21.15 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+• Сборки представлены в виде двух отдельных образов: х86 и х64.
+• Сборки основаны на официальных образах MICROSOFT MSDN:
+ru_windows_7_professional_with_sp1_x86_dvd_u_677084.iso
+ru_windows_7_professional_with_sp1_x64_dvd_u_677024.iso(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6B05674CFA39709D5DF8BFB890F5343A6184D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330199   (340647) от 10.10.2019
 
 Intel «похоронила» совместные с AMD процессоры
@@ -6,7 +194,7 @@ Intel «похоронила» совместные с AMD процессоры
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +246,7 @@ Apple закрыла полиции доступ к iPhone
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +272,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +378,7 @@ Risen 3: Titan Lords (2015) [Ru/Multi] (3.0.30.0/dlc) License GOG [Enhanced Edit
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +485,7 @@ Internet Download Manager 6.29 Build 2 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +511,7 @@ Windows 10 PE (x86/x64) v.5.0.9 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +563,7 @@ Adobe Photoshop CC 2015.0.1 (20150722.r.168) RePack by alexagf [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +643,7 @@ Call of Juarez (2006) [Ru] (1.1.1.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +669,7 @@ openSUSE 12.1 [i586 + x86_64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -492,189 +680,6 @@ openSUSE - это свободная операционная система н�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 411298   (338124) от 16.11.2011
-
-fleur-group | Керамическая флористика в 10 видео-уроках [2010] DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338124.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 видео-уроков по курсу «керамическая флористика», которые научат создавать из полимерной глины цветы и не только.
-В курсе следующие уроки: Базовый урок,  Одуванчик, Мускари, Подснежники, Мак, Тюльпан, Роза, Рождественский венок, Орхидея, Лесной орехЖанр: ОбучающийПродолжительность: 08:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B66D0D13A5B5AA294899A783A79F1EA0BC99DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258186   (338108) от 29.10.2018
-
-Microsoft успешно завершил сделку по покупке GitHub
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338108.jpg" />
-</div>
-
-
-###  Подробнее
-
-После получения одобрения от антимонопольных служб США и Евросоюза компания Microsoft сообщила о полном завершении сделки по покупке сервиса совместной разработки GitHub за 7.5 миллиардов долларов. Новым руководителем GitHub назначен Нэт Фридмэн (Nat Friedman), который в своё время совместно с Мигелем де Икаса (Miguel De Icaza) основал компании Ximian и Xamarin, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564237   (338023) от 26.09.2022
-
-Horizon Forbidden West / Horizon Запретный Запад (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.18 / DLC] [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь вместе с Элой в путешествие по величественному, но опасному миру Запретного запада, который скрывает новые загадочные угрозы. Исследуйте дальние земли, сражайтесь с гигантскими внушающими трепет машинами и встречайте новые удивительные племена в пост-апокалиптическом мире далекого будущего в Horizon. Мир на краю гибели. Свирепые бури и смертельные болезни (   Читать дальше...   )Тип издания: LicenseРазработчик: Guerrilla GamesЖанр: Action, AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C5294936967E6F2E0113EFA08F50306C4DBED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255115   (337981) от 29.10.2018
-
-Советские группы войск. Миссия в Европе (2018) SATRip (1-4 серия)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие сегодня уже и не знают, что означали эти аббревиатуры - ЮГВ (Южная группа войск); СГВ (Северная группа войск); ЦГВ (Центральная группа войск); ГСВГ (Группа советских войск в Германии). Документальный сериал о советских группах войск в Европе. Группы выполняли свои миссии по обеспечению мира и стабильности в Европе. Были оснащены самой совершенной и современной (   Читать дальше...   )Производство: Россия, ООО «ВИАНЖ ПРОДАКШН»Жанр: Документальный, армия, историяПродолжительность: 4 х ~ 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A02F8D5A732762C92378419BECD4BD35320FE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258370   (337980) от 29.10.2018
-
-Проекты - VideoHive - 650 Text Presets for Premiere Pro & After effects - 22508370 [AEP, MOGRT, FFX]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337980.jpg" />
-</div>
-
-
-###  Подробнее
-
-650 Text Presets for Premiere Pro & After effects - это пакет готовых вариантов анимированных титров, с возможность провести дополнительную настройку под конкретную задачу в After Effects и Premiere Pro.Формат: AEP, MOGRT, FFX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67165B148BCFE745C96A68CF7211D12CEDD0291D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074450   (337323) от 19.11.2016
-
-Я знаю, что ты там / I Know You're in There (2016) HDRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда мать Тома совершает самоубийство, Том вместе с сестрой, которая не может двигаться и говорить, отправляются  домой к матери, где Том надеется заснять на камеру неизвестную болезнь сестры.Производство: СШАЖанр: Ужасы, триллерРежиссер: Роберт Лосон ГордонАктеры: Минди де Лэйси, Трей Дадли, Карин Ли, Грэйнн МакДермотт, Мина Нодзи ...Перевод: Любительский одноголосый (ХихиДок)Субтитры: ОтсутствуютПродолжительность: 01:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46029C7FD6E87654B504DA9F9D7A8B9D088F525C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071470   (337315) от 19.11.2016
-
-Beholder (2016) [Ru/Multi] (1.0/u1) License RELOADED
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – управляющий дома, который… ШПИОНИТ за жильцами! Вы ставите жучки, обыскиваете квартиры, прослушиваете телефоны. Вы собираете компромат и строчите доносы. Или… Возможно, у вас есть другой выбор? В этом мрачном тоталитарном будущем жизни людей принадлежат Государству. Репрессивные законы и тотальная слежка пришли на смену свободе, равенству и братству.Тип издания: LicenseРазработчик: Warm Lamp GamesЖанр: Adventure, Indie, StrategyЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B66EADFC7EFB4ACFA9A46D5AF4270006FA8F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

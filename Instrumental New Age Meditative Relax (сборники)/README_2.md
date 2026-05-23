@@ -1,3 +1,32 @@
+###  Публикация: 996818   (877425) от 15.03.2016
+
+VA - Sentimental Piano: Most Romantic Piano Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Alessio De Franzoni - Ad Elena - Pianoforte
+02. Edwards Stephen - Bach Prelude in C
+03. Ivano Icardi, Corrado Magnino - Nine More Months
+04. Steve E. Williams - Celtic Fields(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F567D458556E760702DDDE07C8356BECAEFEB595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997681   (873681) от 17.03.2016
 
 VA - Deep Meditation 50 Tracks - Healing Sounds of Nature (2016) [MP3|320 кб/с] <Lounge>
@@ -6,7 +35,7 @@ VA - Deep Meditation 50 Tracks - Healing Sounds of Nature (2016) [MP3|320 кб/�
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Empire Records - New Age 2 (2017) [MP3|320 Kbps] <New Age, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Jazz Loungebar Vol.5 - A Smooth & Jazzy Lounge Trip (2016) [MP3|320 кб/с
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Lukas Termena - Lukas Termena Remix (2020) [MP3|320 Kbps] <Chillout>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +151,7 @@ Leo Rojas - 100% Leo Rojas (2020) [MP3|320 Kbps] <Native American, New age, Worl
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Flight Of The Soul Vol.52 (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lo
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Pacific Music- Relax Underwater Sound (2016) [MP3|256-320 кб/с] <Chillou
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Sensual Approach Vol.5 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Loung
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Tropical Chill Vol.1- Relaxing Summer Tunes (2016) [MP3|320 кб/с] <Downt
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Guitar Lullaby: 20 Guitar Lounge Anthems (2016) [MP3|320 кб/с] <Downtemp
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Relax Music (3CD) (2013) [MP3|320 кб/с] <Relax & Meditation>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Enigmatic Vibes (2020) [MP3|320 Kbps] <Enigmatic, New age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Mystic (2006) [MP3|256 kbps]<Worldbeat, Chillout, New Age, Ethnic Fusion>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -387,7 +416,7 @@ VA - Circle of Life (Native American Music) (2020) 2CD [MP3|320 Kbps] <Native Am
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -416,7 +445,7 @@ VA - Healing Meditation Zone (2016) [MP3|320 кб/с] <Relax, Meditation, Downte
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -445,7 +474,7 @@ Meditation Shaman Medicine - The best of Indians Songs (2005) [MP3|320 кб/с] 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +532,7 @@ VA - Relax Piano Music: Instrumental Collection (2017) [MP3|320 Kbps] <Downtempo
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +561,7 @@ VA - Electronic Enigmatic (2020) 2CD [MP3|320 Kbps] <Electronic, New age, Enigma
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +590,7 @@ VA - Sweet Afternoon: Music Romantic and Chilling Pop Songs (2016) [MP3|320 кб
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +619,7 @@ VA - Enigmatic (2020) [MP3|320 Kbps] <New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -619,7 +648,7 @@ VA - Laid Back Evening: Acoustic Guitar (2016) [MP3|320 кб/с] <Downtempo, Chi
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -648,7 +677,7 @@ VA - Mystic Rain: Instrumental Piano (2020) [MP3|320 Kbps] <Instrumental, Piano,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -677,7 +706,7 @@ VA - New Age Style - Enigmatic 24 (2016) [MP3|320 кб/с] <New Age, Enigmatic, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -706,7 +735,7 @@ Amure - Calypso (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -720,35 +749,6 @@ Amure - Calypso (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDBFB92D37762D538B6DA3E2D9EF3C5D579F5085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007020   (823484) от 14.04.2016
-
-VA - La Noche Piano: y Dulces Atmosferas Musica Clasica (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philip Bennetts - Proud Achievement
-02. Francesco Morettini - Nel pianoforte in A Major - for Piano
-03. Pino Cangialosi - Rain on Kids
-04. Gianluca Ricciardi - Conseguenze(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC3EE3CBA9DBDE6D94FC2F1EAC9ACC31D8C5CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1305352   (555798) от 03.06.2019
+
+Квартирник НТВ у Маргулиса. К 80-летию Леонида Каневского (02.05.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Квартирник НТВ у Маргулиса» стал местом празднования 80-летия Леонида Каневского. Телеведущий не только рассказал много захватывающих историй из жизни, но и спел, что для Леонида Семёновича очень большая редкость.
+Поздравить Леонида Каневского пришли Лариса Долина, Александр Розенбаум, Максим Дунаевский, Игорь Верник и другие известные исполнители. В адрес юбиляра (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC20B0F6BB4B8E30177135DB59D6ACECFC5D569C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305540   (555795) от 03.06.2019
+
+Квартирник НТВ у Маргулиса. Сергей Галанин и группа "СерьГа" (18.05.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа «СерьГа» отмечает 25-летие на «Квартирнике НТВ у Маргулиса». Сергей Галанин рассказал много интересных историй из жизни и исполнил не только хиты, но и новые песни. Поддержать Сергея и спеть с ним дуэтом пришли Варя Охлобыстина и Юта. Артист признался, что дуэтная болезнь началась именно с исполнения песни вместе с Ютой.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB36372FB35402998524243A22DDF7E77D796A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307604   (554554) от 11.06.2019
 
 Queen - We Are The Champions: Final Live In Japan (1985/2019) Blu-ray [H.264/1080i]
@@ -6,7 +59,7 @@ Queen - We Are The Champions: Final Live In Japan (1985/2019) Blu-ray [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +192,7 @@ Hatebreed - Live Dominance (2008) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +221,7 @@ Just Play - Концерт в клубе "Вермель" (2017) WEBRip [H.264/1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +250,7 @@ Santana & McLaughlin: Live at Montreux - Invitation to Illumination 2011 (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -226,7 +279,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -255,7 +308,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -284,7 +337,7 @@ Kiss. Rocks Vegas 2014 (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -314,7 +367,7 @@ Kiss - Rocks Vegas (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -343,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -369,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -395,7 +448,7 @@ The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +477,7 @@ Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +506,7 @@ Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +536,7 @@ The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +565,7 @@ The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,7 +626,7 @@ Europe - Live! At Shepherd's Bush, London (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,7 +655,7 @@ Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -631,7 +684,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -657,7 +710,7 @@ Deep Purple: Phoenix Rising (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -672,70 +725,6 @@ GETTIN' TIGHTER: Полнометражный полуторачасовой д�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533179   (531922) от 10.08.2012
-
-Blackmore's Night - A Knight In York (2012) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий DVD Blackmore’s Night - A Knight In York был снят и записан во время тура по Великобритании в York Opera House 30-ого сентября 2011 года. Он охватывает все волшебство потрясающего шоу Candice, Ritchie & Co.01 Locked Within The Crystal Ball
-02 Guilded Cage
-03 The Circle
-04 Journeyman
-05 World Of Stone
-06 The Peasant's Promise
-07 Toast To Tomorrow
-08 Fire's At Midnight
-09 Barbara Allen
-10 Darkness(   Читать дальше...   )Жанр: Medieval Folk RockПеревод: ОтсутствуетПродолжительность: 1:35:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926783   (531290) от 11.08.2015
-
-Новогодний календарь (1965) HDTV [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал подарил вторую жизнь любимой передаче "Голубой огонек". В праздничные дни "Голубые огоньки" 60-х годов зрители смогут увидеть в новом отреставрированном варианте и уже не в черно-белом варианте, а цветном. Гостями этих программ были: первый космонавт Юрий Гагарин, Георгий Вицин, Юрий Никулин и Евгений Моргунов (знаменитые герои Трус, (   Читать дальше...   )01.Лариса Мондрус - "Милый мой фантазёр"
-02.Геннадий и Валерий Сазоновы - "Чечетка"
-03.Аркадий Райкин - "Интермедия"
-04.Ансамбль "Аккорд" - "Пингвины"(   Читать дальше...   )Производство: СССРЖанр: Фильм-концертРежиссер: Первый каналАктеры: Актеры Советской эстрадыПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CCC5865BEF2AC06B80E2E3124F12CCE232E2CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

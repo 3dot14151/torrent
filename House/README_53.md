@@ -1,3 +1,96 @@
+###  Публикация: 560369   (407504) от 14.10.2012
+
+VA - World Club Tour Amsterdam: The Amsterdam Club Sound Collection (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Falko Niestolik - Explore (Brockman & Basti M Full Vocal Mix)
+02. Eriq Johnson - Should I Like This (Incognet Remix)
+03. Stan Kolev - Love Revolution (Matan Caspi Tribolution Remix)
+04. Joe Flex - Manhattan (Paul Strive Remix)
+05. Chriss Ortega - When You Say (Fine Touch Remix)
+06. Tune Brothers - Diamonds (Francesco Gomez Remix)
+07. Dimitri Vangelis - Ignited (Original Mix)
+08. Marc Vedo - Lullabyes (Original Mix)
+09. Vengerov - Kazantip Intro (Matt Caseli & Danny Freakazoid Remix)
+10. Felix Leiter - Better Days (Original Mix)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4E99C4278918EDB0A8488E06DD8D2ABDC9F452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413995   (406809) от 06.10.2020
+
+VA - Kontor Sports: Nonstop Powermix 2020.05 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Kontor Sports-Nonstop Powermix 2020.05 (Continuous DJ Mix) 1:01:59
+02. Armin van Buuren feat. Bonnie McKee - Lonely For You (Jerome Remix) 2:59
+03. Loud Luxury feat. Morgan St. Jean - Aftertaste 3:17
+04. Nora En Pure & Lika Morgan - In The Air Tonight (Croatia Squad Remix) 3:05(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5B8A91665F6614F9D8AEB324D50FFD91C6502E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414019   (406807) от 06.10.2020
+
+VA - Kontor Sports: Nonstop Powermix 2020.04 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Kontor Sports-Nonstop Powermix 2020.04 (Continuous DJ Mix) 1:01:18
+02. Jerome - Take My Hand 2:43
+03. Sondr & VIZE feat. Lilly Ahlberg - Kids (feat. Lilly Ahlberg) 2:28
+04. Micar - This Time It's My Life 3:07(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F5AD27AADD53CEF295B48CA7563BAD8693D68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 560020   (406721) от 15.10.2012
 
 VA - Dancefloor FG Ete Summer 2012 (2012) [MP3|~245 кб/с (V0)]<House, Dance, Electro>
@@ -6,7 +99,7 @@ VA - Dancefloor FG Ete Summer 2012 (2012) [MP3|~245 кб/с (V0)]<House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -41,7 +134,7 @@ Dave Ross - Dance Machine (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -76,7 +169,7 @@ VA - Disco Sensation (2012) [MP3|320 кб/с]<Funky, Club House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +204,7 @@ VA - Dessous Classics Volume 2 (2012) [MP3|320 кб/с]<Deep House, Downtempo>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +239,7 @@ VA - For New Music Lovers & Dancers (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -175,7 +268,7 @@ VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -204,7 +297,7 @@ VA - Ocean Deep Ibiza: The Exquisite Deep House Collection By Eva Pacifico (2012
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -239,7 +332,7 @@ VA - Pump & Run, Vol. 1 (Workout Selection) (2017) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +361,7 @@ VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +396,7 @@ DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -332,7 +425,7 @@ VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -367,7 +460,7 @@ VA - New York Disco House Grooves Vol.1: Manhattan Night Club Selection (2012) [
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +495,7 @@ Yotto - North (EP) - 2017 [MP3|320 Kbps] <Tech House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +524,7 @@ VA - Tiesto Club Life Vol.5 China (2017) [MP3|320 Kbps] <House, Big Room, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +553,7 @@ VA - Art Of More (Mixed By Ismix) - 2013 [MP3|320 кб/с]<Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +582,7 @@ VA - Deep Flavors (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +611,7 @@ VA - New York Fashion House (A Finest House Selection) (2017) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +640,7 @@ Sander van Doorn pres. Purple Haze - SPECTRVM (2017) [MP3|320 Kbps] <House, Prog
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,7 +669,7 @@ VA - Sunshine Live Vol.61 (2017) [MP3|320 Kbps] <House, Trance, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +698,7 @@ VA - House With Sax Appeal Vol.1 (2010) [MP3|320 кб/с]<Deep House, Sax House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -640,7 +733,7 @@ VA - Roger Shah Presents High Noon At Salinas - Beach Grooves Vol.1 (2017) [MP3|
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -669,7 +762,7 @@ VA - Keep It up Workout, Vol. 1 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -698,7 +791,7 @@ Ledina Celo - Can U Touch Me Baby (WEB) (2012) [MP3|320 кб/с]<House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -712,93 +805,6 @@ Ledina Celo - Can U Touch Me Baby (WEB) (2012) [MP3|320 кб/с]<House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9539FDC3FD02B3F156DC00BF752038838CF5251A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253393   (383613) от 09.10.2018
-
-VA - Digital Empire - Miami Underground (2018) [MP3|320 Kbps] <House, Electro-House, Bigroom>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Mendosa - That Bass (Original Mix)
-02. Slamtype - Hit Em Like (Original Mix)
-03. Tommy Jones - Calling Your Name (Original Mix)
-04. Kirin - Party Up (Original Mix)(   Читать дальше...   )Жанр: House, Electro-House, BigroomПродолжительность: 04:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CBB40B4A7DFF260AA1FB0967C17F0365359EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253395   (383567) от 09.10.2018
-
-VA - Bass House Autumn '18 (2018) [MP3|320 Kbps] <House, Future-House, Electro-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Weeks - Attention (Original Mix)
-02. Brain Masters - We Super Stylin (Original Mix)
-03. Martin Weeks - Whenever I'm Down (Original Mix)
-04. Henrick B Jordan - The Pressure (Original Mix)(   Читать дальше...   )Жанр: House, Future-House, Electro-HouseПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5799558F2E554FE35B276DE6CC8931E6F61D3BC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253558   (381775) от 10.10.2018
-
-VA - Tech House Patrol [40 Dirty Beats] Vol.3 (2018) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Raum - Dark Sheen (Original Mix) 5:36
-02. Max Porcelli & A-Drex - From The Dust (Max Porcelli Remix) 7:07
-03. Manuel Turobin - Leather Strap Bra (Original Mix) 8:32
-04. Larry Baaaam! - Kiezmer Kiezmer (Original Mix) 5:57(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DF8CB525CBD290BFCF6D21F573812196C78ADF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1086660   (146138) от 27.12.2016
+
+Хороший мальчик  (2016) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Обычная, казалось бы, неделя из жизни ничем не примечательного школьника Коли Смирнова превращается в череду невероятных происшествий: Коля влюбляется в учительницу английского, кто-то поджигает школьную пристройку с новыми компьютерами, а папа Коли заявляет семье о необходимости отказа от ночного сна, из-за чего никому в доме не удается выспаться и собраться с мыслями. (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Оксана КарасАктеры: Семен Трескунов, Константин Хабенский, Михаил Ефремов, Александр Паль, Анастасия Богатырева, Василий Буткевич, Иева Андреевайте, Ирина Денисова, Татьяна Догилева, Ирина ПеговаПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55973AAD23BDB4486EDB2F8963CA5DC14B958FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519802   (146113) от 25.12.2021
 
 Не смотрите наверх / Don't Look Up (2021) WEB-DL [1080p] ATV
@@ -6,7 +32,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ VA - Sofa King Sick, Chapter 2 (2020) [AAC|~321 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +113,7 @@ VA - Sofa King Sick, Chapter 3 (2021) [AAC|~315 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +142,7 @@ VA - Suprematic 2021 (2021) [AAC|~334 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -171,7 +197,7 @@ VA - Nye Bash Downtempo 2021 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -200,7 +226,7 @@ VA - Nye Recovery Session 2021 (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -229,7 +255,7 @@ VA - Glasgow Underground 2021 (2021) [AAC|~331 Kbps] <Deep House, Tech House, Fu
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -258,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -284,7 +310,7 @@ VA - Sofa King Sick, Chapter 1 (2019) [AAC|~321 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -313,7 +339,7 @@ VA - Deep Reflections, Session 1 (Deep House Vibes) (2021) [AAC|~316 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -342,7 +368,7 @@ VA - Bercana Ritual (2020) [AAC|~338 Kbps] <Organic House, Deep House, Melodic H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +397,7 @@ VA - Dream Into 2022 (2021) [AAC|~312 Kbps] <Deep House, Organic House, Progress
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +426,7 @@ Dp-6, Vadim Basov - Re2021view (2021) [AAC|~330 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +455,7 @@ VA - Sincopat 2021 Night Collection (2021) [AAC|~339 Kbps] <Deep House, Tech Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +484,7 @@ VA - Vocal Trance 2022 (2021) [AAC|~331 Kbps] <Trance, Vocal Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,7 +513,7 @@ VA - Bercana Ritual 2 (2021) [AAC|~349 Kbps] <Organic House, Deep House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -516,7 +542,7 @@ VA - Winter Chill 2022 (Relaxed Nu-Disco & Deep House Sounds) (2021) [AAC|~320 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -545,7 +571,7 @@ VA - Sincopat 2021 Day Collection (2021) [AAC|~347 Kbps] <Deep House, Tech House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -574,7 +600,7 @@ VA - Deep Reflections, Session 2 (Deep House Vibes) (2021) [AAC|~328 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -603,7 +629,7 @@ VA - Deep Reflections, Session 3 (Deep House Vibes) (2021) [AAC|~322 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -658,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -684,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -695,32 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35117CB82C20B704821063CC844C38C6177AC7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272183   (145460) от 26.12.2018
-
-Инволюция  / Involution (2018) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145460.jpg" />
-</div>
-
-
-###  Подробнее
-
-В связи с перенаселением Земли поведение и инстинкты людей всё больше становятся похожими на животные. В этом хаосе нерешительному Хеммингу необходимо отправиться на поиски своей любимой...Производство: Россия, ГерманияЖанр: Tриллер, фантастика, драмаРежиссер: Павел ХвалеевАктеры: Алёна Константинова, Раян Мэссон, Дэннис Хёрли, Адам Джианун, Мерлин Леонхардт, Карстен Майэлки, Марина Зудина, Глеб БочковПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0C5B1CCF5A92C13D92AF7FE1BC26BDC7D98CE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

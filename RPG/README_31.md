@@ -1,3 +1,85 @@
+###  Публикация: 571501   (386771) от 07.11.2012
+
+Of Orcs and Men [Ru/En] (RePack/1.0) 2012 | R.G. Механики
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Могучая армия людей вторглась на территории орков и гоблинов. Сеча была жестокой, ну а после уцелевших на поле брани гоблинов победители изловили и безжалостно перебили, а орков пленили и обратили в рабство...
+
+    В этой фэнтезийной истории вам отводится роль воина-орка из легендарного легиона «Кровопийцы», ветерана, закаленного в самых страшных сражениях. Командующий поручает вам миссию, которая, в случае успеха, изменит ход войны. Вы должны убить одного-единственного человека, который виновен в кровопролитии, человека, который годами разжигал людскую ненависть к зеленокожим, подстрекал уничтожить их... Убить нужно самого императора.
+
+    В этом опасном деле у вас будет помощник. Гоблин. Он совершенно не похож на орка, однако очень скоро станет ясно, что многочисленные различия лишь играют вам на руку. Вдвоем вы пройдете долгий путь — от грязных закоулков у подножия Великой стены до самого сердца Империи людей. И лишь вдвоем, возможно, сумеете изменить ход истории и восстановить мир.(   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide Studio и SpidersЖанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDC73765C8A226FF6747955630DC2765A120FF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022184   (386104) от 29.10.2016
+
+Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.0/dlc) License HI2U
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Hero Defense - Haunted Island приглашает всех любителей MOBA, RPG и TD проверить себя на способность к стратегическим маневрам в борьбе с ордами зловещих крипов. Hero Defense - Haunted Island предоставляет игроку пять уникальных героев, проходящих через различные арены, чтобы победить Графа Некросиса.Тип издания: LicenseРазработчик: Happy TuesdayЖанр: Strategy, RPG, Tower Defence, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383F4C7424E1B9CF11746DC414A2FA02212BB7FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253313   (385052) от 08.10.2018
+
+Mass Effect (2008) [Ru] (1.2/dlc) Repack xatab
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 2148 году на Марсе были впервые обнаружены артефакты древней цивилизации. Десятилетия исследований спустя земные ученые смогли наконец полностью понять технологию инопланетян, что обеспечило серьёзный прорыв в технологическом развитии нашей планеты — пространство и время покорились человеку, стали возможны полёты к дальним звёздным системам.Тип издания: RepackРазработчик: BioWareЖанр: Adventure (Space), RPG (Rogue,Action), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F32ECD6FAA16027CD066A6D48E967F0700AF902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414384   (384892) от 08.10.2020
 
 Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) [Ru] (1.02) License
@@ -6,7 +88,7 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Dawn of Magic 2 / Магия крови: Время Теней [Ru/En] (Repack) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +142,7 @@ Chroma Squad (2015) [En/Pt] (1.12b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +168,7 @@ Swag and Sorcery (2019) [Ru/Multi] (1.52) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +194,7 @@ Dungeon of the Endless (2014) [Ru/Multi] (1.1.5/4dlc) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +220,7 @@ Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +246,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/Multi] (3.6.30.9
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +272,7 @@ South Park: Stick of Truth (2014) [Ru] (1.0.138083) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +298,7 @@ The Dwarf Run (2015) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +324,7 @@ Legends of Dawn Reborn (2015) [Ru/Multi] (2.01s) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +350,7 @@ The Last Remnant [Ru/En/Multi7] (RePack) 2009 | R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +376,7 @@ The Imperial Gatekeeper (2022) [En] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +402,7 @@ Baldur's Gate: Dark Alliance II (2022) [Multi] (1.0.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +428,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +454,7 @@ Ikenfell (2020) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +480,7 @@ Blade & Sword 2 [Ru] (RePack) 2005 l IGALLARDOI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +506,7 @@ BloodLust Shadowhunter (2015) [En] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +532,7 @@ RESONANCE OF FATE / END OF ETERNITY (2018) [Multi] (1.0) License CODEX [4K / HD 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +558,7 @@ Book of Demons (2018) [Ru/Multi] (1.03.19279/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +584,7 @@ Final Fantasy IV / Последняя фантазия 4 (2014) [Ru/Multi] (1.0.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +610,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru/En] (1.4.3) Repack R.G. Catal
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +637,7 @@ Sword Art Online: Hollow Fragment (2018) [En/Ja] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +663,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.0.3/Reg 1.04) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,85 +674,6 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.0.3/Reg 1.04) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C1604EB84AA4702D01C6EBA39703E2EC20ADA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417043   (362074) от 18.10.2020
-
-Marvel’s Avengers (2020) [Ru/Multi] (1.3) License CPY
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362074.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мстители Marvel» – это грандиозный приключенческий боевик от третьего лица, сочетающий в себе увлекательный сюжет и захватывающий игровой процесс как в одиночной, так и в совместной игре*. Сформируйте онлайн-команду, в которой может быть до четырех человек, освойте невероятные способности, выберите героев из регулярно пополняющегося списка и защитите Землю от надвигающейся (   Читать дальше...   )Тип издания: LicenseРазработчик: Crystal Dynamics, Eidos-Montréal, NixxesЖанр: Action, RPG, StrategyЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4051EBF6DEF5FFFB801E59C37725357D39B2C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836770   (360775) от 01.11.2014
-
-Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игрок играет роль Сильвестра Бучелли, детектива в трущобах планеты Anachronox. Этот мир находится внутри сферы Sender One, которая является центром сети галактических линий сообщения. Завербованный против своего желания, чтобы исследовать тайну, связанную с самой природой вселенной, Слай путешествует по всей галактике, встречая много персонажей по пути, некоторые из которых могут присоединяться к партии игрока.
-(   Читать дальше...   )Тип издания: RepackРазработчик: Ion StormЖанр: Adventure / RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3CD8FE9597A24B828FC82C48CA9495723436F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417247   (359725) от 19.10.2020
-
-Wasteland Remastered (2020) [Ru/Multi] (1.24) License GOG (обновляемая)
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр постапокалиптических видеоигр зародился в 1988 году с выходом Wasteland. Сыграйте в эту культовую ролевую игру с переработанной графикой, улучшенным звуком и расширенным саундтреком. 2087 год. Прошло почти сто лет с тех пор, как мировая ядерная война превратила территорию Земли в радиоактивную пустошь. Вы служите в организации «Пустынные рейнджеры» — это отряд (   Читать дальше...   )Тип издания: LicenseРазработчик: inXile Entertainment, Krome StudiosЖанр: RPG, Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E0786550FC1B95B0E9D2F0250B35274F6C266C
 ```
 
 https://mybot314.ru/tekegram_catalog/

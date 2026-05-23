@@ -1,3 +1,29 @@
+###  Публикация: 1718246   (4731) от 02.09.2025
+
+Emperor of the Fading Suns / Император Угасающих Звезд (1997) [En] (1.5.2a-p1) License GOG [Enhanced]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Emperor of the Fading Suns – это глобальная пошаговая стратегия с необычным сеттингом. На дворе пятое тысячелетие. Люди освоили подобие звездных врат, начали колонизировать далекие планеты и стали знакомиться с пришельцами. Так продолжалось до тех пор, пока не начали гаснуть солнца. В результате миры стали умирать, а человечество утратило технологии и деградировало. (   Читать дальше...   )Тип издания: LicenseРазработчик: Holistic Design, Inc.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079C0852C84086A0D07969E7CEF2AA7767AD5B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815986   (4685) от 02.09.2025
 
 A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
@@ -6,7 +32,7 @@ A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ STORROR Parkour Pro (2025) [En] (0.1 Hotfix) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

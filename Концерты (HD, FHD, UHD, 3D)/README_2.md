@@ -1,3 +1,58 @@
+###  Публикация: 1454754   (1018532) от 29.04.2021
+
+Кино в Севкабеле (2021) WEB-DL [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+23 ноября 2020 года сын Виктора Цоя - Александр Цой - разместил на своей страничках в соцсетях следующую новость... - ''Мы решили снять специальный закрытый концерт группы "КИНО". С большим экраном, красивым сценическим светом и полноценной концертной драматургией. Конечно, мы покажем только часть того, что мы готовим для больших шоу, но это все равно будет (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA39CBD09971FDBB9C933D6EE33AC5AD3F9666EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463572   (1018346) от 30.04.2021
+
+Ханс Циммер - Концерт в Праге / Hans Zimmer - Live in Prague (2017) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Известный кинокомпозитор Ханс Циммер и его первоклассные музыканты исполнили перед многотысячной публикой знаменитую музыку из голливудских блокбастеров. Это уникальный шанс увидеть художника во всем великолепии его музыкального дара и насладиться прекрасными мелодиями в кругу семьи и друзей.01. Medley: Driving (Driving Miss Daisy) / Discombobulate (Sherlock Holmes) / Zoosters Breakout (Madagascar)
+02. Medley: Crimson Tide / 160 BPM (Angels And Demons)
+03. Gladiator Medley: The Wheat / The Battle / Elysium / Now We Are Free
+04. Chevaliers De Sangreal (The Da Vinci Code)(   Читать дальше...   )Производство: Великобритания / Eagle Rock Film ProductionsЖанр: Classical, Rock, PopРежиссер: Тим Ван СомеренПеревод: ОтсутствуетСубтитры: Русские, АнглийскиеПродолжительность: 02:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129922B79D42B00AC04E4E5E19477A81C9387837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470365   (1015771) от 16.05.2021
 
 Квартирник НТВ у Маргулиса. Павел Пиковский и друзья (15.05.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +61,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +87,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +113,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +191,7 @@ New Order – Education Entertainment Recreation (2021) BDRemux [H.264/1080i] [E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +217,7 @@ Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +246,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +298,7 @@ One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +324,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +403,7 @@ Toto: С небольшой помощью моих друзей / Toto: With A 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +481,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -588,7 +643,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -617,77 +672,13 @@ David Garrett: Music Live In Concert (2012) Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
 В новом альбоме скрипач Дэвид Гарретт виртуоз различных музыкальных стилей и эпох вместе устанавливает новые стандарты в универсальности своей скрипки . От Бетховена  до Майкла Джексона, скрипач играет увлекательно с различными элементами из мира классической музыки и поп-музыки. Музыка - слово, которое понятно всем мире. Неудивительно, что Дэвид Гарретт, который превышает в своем искусстве в течение многих лет успешно все границы и разных стилей, жанров и поколений вместе, для своего нового альбома выбрал название,  направленное на универсальность .  Он воспользовался возможностью, чтобы представить своей аудитории игру  на скрипке с совершенно ином свете. Концерт в концерте , он в очередной раз показывает, что он не только чувствует себя комфортно в студии, но и на сцене. С классиков, таких как "We Will Rock You", он открыл концерт, а затем выполняет разнообразные программы полны энергии и истории музыки. Между Бетховеном и работой Пола Маккартни, вы окажетесь в Нирване, Coldplay и Джастин Тимберлейк снова. (   Читать дальше...   )Жанр: : Instrumental CrossoverРежиссер: David GarrettАктеры: David Garrett&BandПродолжительность: 02:04:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597666   (1000317) от 02.01.2013
-
-20 Лучших песен 2012 года (2011) [1080i] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000317.jpg" />
-</div>
-
-
-###  Подробнее
-
-"20 лучших песен 2012 года"- ежегодная музыкальная премия по итогам Сводного национального чарта. Из тысяч музыкальных композиций выбрать всего двадцать — дело непростое. При составлении национального сводного чарта "Красная звезда" учитывается количество скачиваний песен в Интернете, частота появлений исполнителя на телевидении, ротация на радио и, конечно, народное голосование...01. DJ Smash и Винтаж - «Москва»
-02. Лоя - «Розы темно-алые»
-03. Потап и Настя - «Если вдруг»
-04. Градусы - «Голая»
-05. Юлия Савичева - «Юлия»
-06. Джиган - «Нас больше нет»
-07. Кристина Орбакайте и Дискотека Авария - «Прогноз погоды»
-08. Серебро - «Мама Люба»
-09. Дан Балан - «Лишь до утра»
-10. Эльвира Т - «Все решено»(   Читать дальше...   )Жанр: РорПродолжительность: 01:58:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597711   (1000314) от 02.01.2013
-
-Авторадио: Дискотека 80-х (2012) [1080i] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Концерт, Музыка
-
-
-Фестиваль "Дискотека 80-х" прошел в одиннадцатый раз под лозунгом "Rock&Dance" и преподнесет зрителям еще больше сюрпризов - суперзвездный состав артистов, новые имена, а главное - неординарное захватывающее шоу. Никогда ранее на фестивале "Авторадио" так широко не были представлены рок-музыканты. Каждое имя - эпоха, легенда, символ 80-х. К тому же, все эти люди не просто "в строю", но и продолжают радовать публику новыми работами. В 2012 года Gorky Park - одна из самых знаменитых рок-групп времен перестройки - отмечает свое 25-летие, и у зрителей "Дискотеки 80-х" есть шанс увидеть на сцене фестиваля легендарную команду, которая исполнит свои самые яркие хиты. Не менее ожидаемо выступление Гарика Сукачева, одного из наиболее ярких фронтменов русского рока. Без песен "Бригады С", которые он исполнит вместе с Сергеем Галаниным, историю поколения 80-х представить невозможно. Выйдет на сцену и Константин Никольский, чьи баллады прочно (   Читать дальше...   )Перевод: Не требуетсяПродолжительность: 02:24:46
 
 ## Скачать торент
 ```bash

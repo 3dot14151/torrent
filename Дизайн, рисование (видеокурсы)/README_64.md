@@ -1,3 +1,83 @@
+###  Публикация: 1607082   (209058) от 25.01.2023
+
+FlippedNormals, Tyler Smith | Creating a Realistic Ocean in UE4 (2022) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Давайте откроем шлюзы и позволим информации об игровых художественных эффектах затопить нас! В этом курсе вы познакомитесь с основами использования динамических материалов и частиц для создания окружающей среды - в данном случае с эффектами воды и океана. Первая половина этого курса представляет собой полное пошаговое руководство по созданию элементов шейдера океана (   Читать дальше...   )Производство: FlippedNormalsЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 07:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C23312814D544455540262BBAD1E325CF5E867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574008   (209046) от 03.09.2022
+
+Exp-Points, Alex Beddows | Creating Fabric Materials in Substance Designer (2021) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Создание убедительных материалов ткани — всегда, своего рода, вызов/испытание, поэтому специалист Alex Beddows посвятил определенное время, чтобы разобраться в нюансах разработки этих материалов.
+В данном курсе Alex продемонстрирует как разработать базовые формы в Blender, а затем будет рассмотрена схема формирования материала в Substance Designer с объяснением всех (   Читать дальше...   )Производство: Exp-PointsЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1F9ADBD40A34691CB74301B02D1F694411D5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574005   (209045) от 03.09.2022
+
+Levelup.Digital, Eric Wiley | Advanced Shape Creation in Substance Designer (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Хорошо известный своими безумными экспериментами в Substance Designer и своим поразительным вниманием к мелочам, Эрик в партнерстве с Levelup.Digital сделал для вас разбор своего процесса работы. В этом полностью озвученном пошаговом уроке Эрик создаст щупальца осьминога от начала и до конца.
+Узнайте о том, как Эрик анализирует справочные материалы, как подходит (   Читать дальше...   )Производство: Levelup.DigitalЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB48E5ADF8D8348001488613CC0A85F950E9A6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574138   (209034) от 03.09.2022
 
 Udemy, Nexttut, Hamidreza Afshari | Substance 3D Painter Advance Course (2022) PCRec [EN / EN Sub]
@@ -6,7 +86,7 @@ Udemy, Nexttut, Hamidreza Afshari | Substance 3D Painter Advance Course (2022) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +114,7 @@ Artstation Learning, Jay Cummings | Substance Painter: Pushing Your Texturing Fu
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -89,7 +169,7 @@ sova.arty, Алина Сова | Иллюстратор 2.0 для телефо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -118,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -146,7 +226,7 @@ Digital Tutors, Dan Cox | Rapidly Creating Stylized Game Assets in ZBrush (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -172,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -201,7 +281,7 @@ Hudozhnik Online, Анастасия Брагина | Скетчинг марк�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -230,7 +310,7 @@ Udemy, Eric Ebling | Houdini FX : Creating An Avalanche Rig (2022) WEB-DL [EN / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -256,7 +336,7 @@ The Gnomon Workshop, Alessandro Cangelosi | Introduction to Particle FX in Houdi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -282,7 +362,7 @@ Udemy, Eric Ebling | Houdini FX : Creating a Building Explosion (2021) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -308,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -334,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -363,7 +443,7 @@ Learnsquared, Louis Laurent | Dynamic Concept Art I (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -390,7 +470,7 @@ Learnsquared, Gaelle Seguillon | Environment Design (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -417,7 +497,7 @@ Vince Petrelli | Unreal Engine 5: One Course Solution For Material (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -445,7 +525,7 @@ Topclass, Алексей Каптерев | Мастерство презент�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -472,7 +552,7 @@ Enterclass, Виктория Акулова | Портрет девушки. А�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -499,7 +579,7 @@ Gumroad, Ivan Smirnov | Illustration development by Real-SonkeS (2015) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -525,7 +605,7 @@ The Gnomon Workshop, Peyton Varney | Introduction to Creating Game-Ready Foliage
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +632,7 @@ Rebelway, Urban Bradesko | Realtime FX for Games and Cinematics (2019) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -579,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -606,7 +686,7 @@ The Gnomon Workshop, Adrien Paguet-Brunella | Creating a Swamp Scene for Games w
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -618,86 +698,6 @@ The Gnomon Workshop, Adrien Paguet-Brunella | Creating a Swamp Scene for Games w
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F0C4B1EF315537BB3A899D465684B7C32AB0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575519   (208457) от 10.09.2022
-
-The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2018 (2018) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для студий по всему миру приложение Substance Painter от Allegorithmic стало, своего рода, стандартом текстурирования игровых ассетов.
-В данном видеопособии, ведущий технический художник Christophe Desse поэтапно, на примерах, будет знакомить нас с аспектами программы Substance Painter, показывая техники и, делясь своими подходами, эффективность которых доказана (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41902B71C041E08C6CEF7DE88BB3EA4C4062EEAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575521   (208449) от 10.09.2022
-
-CGTarian, Дэвид Стодольны | Мега-мультяшный стиль в 3D (2018) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помните, как при просмотре мультфильмов Луни тюнз ("Looney Tunes") или других диснеевских мультфильмов к некоторым моментам хотелось вернуться и детально просмотреть, как это происходит? Скорее всего это были вздорные или мультяшные движения, которые мы никогда не увидим у людей или животных.
-Возможно, на паузе можно рассмотреть, как персонаж причудливо (   Читать дальше...   )Производство: CGTarianЖанр: ВидеоурокЯзык озвучки: РусскийПродолжительность: 10:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402076F3877DDD637673C14B09F2DD0561537F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575520   (208446) от 10.09.2022
-
-Levelup.Digital, Bogodar Havrylyuk | Creating Foliage in Substance Designer (2019) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо известный за свои обширные проекты с растительностью и уникальный стиль, Богдар в партнерстве с Levelup.Digital решил поделиться своими способами создания растений. Узнайте, как сделать генератор листьев и добавить параметры такие как возраст, вариация цвета, повреждения и капли в Substance Designer. Узнайте подробнее, как генерировать UV атласы и посмотрите, (   Читать дальше...   )Производство: Levelup.DigitalЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6185E6D2349273E401EE8DE0A1C32C6B862ACCBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

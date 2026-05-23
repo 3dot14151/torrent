@@ -6,7 +6,7 @@
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +34,7 @@ Handball 16, Handball 17 (2015-2016) [PS3] [EUR] 4.76, 4.80 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skullgirls: 2nd Encore (2019) [Switch] [USA] 9.1.0 [NSZ] [Unofficial / 1.0.3] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +86,7 @@ Samurai Jack: Battle Through Time (2020) [Switch] [USA] 10.1.0 [NSP] [License / 
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +113,7 @@ Faery: Legends Of Avalon (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [P
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +139,7 @@ Under Siege (2011) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.03] [M
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +166,7 @@ Tokyo Mirage Sessions #FE (2016) [WiiU] [ЕUR] 5.3.2 [Loadiine GX2] [License] [E
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +192,7 @@ Guilty Gear Xrd -REVELATOR- (2016) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +218,7 @@ Lego Star Wars: The Force Awakens (2016) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +244,7 @@ Boogie SuperStar [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Boy and His Blob (2016) [PS3] [EUR] 4.21 [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +296,7 @@ Resident Evil 0 HD Remaster (2016) [PS3] [JAP] 4.21 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +322,7 @@ Catherine (2011) [PS3] [EUR] 4.82 [HAN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mighty No. 9 (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sonic Boom: Rise of Lyric (2014) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -392,32 +392,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 898911   (672729) от 19.05.2015
-
-Block Party! 20 Games [Wii] [NTSC-U] [Eng] (2008)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672729.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной игре Вас ждёт множество сумасбродных и весёлых конкурсов, которые позволят развеселить любую компанию и украсят вашу вечеринку среди друзей! Соберите всех своих друзей, сразитесь с ними  в многопользовательском режиме и определите лучшего!Тип издания: ЛицензияРазработчик: IvolgamusЖанр: PartyЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: АнглийскийФормат: WBFS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0B6A243F02D4B3192D457827F81C53786FA824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030949   (669905) от 02.07.2016
 
 Trinity Universe (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -426,7 +400,7 @@ Trinity Universe (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +428,7 @@ A Boy and His Blob (2016) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +454,7 @@ Cabela's African Adventures (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +480,7 @@ The Walking Dead: Survival Instinct (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Li
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +507,7 @@ Hungry Shark World (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +533,7 @@ Battleship: The Video Game (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +559,7 @@ Castle Crashers (2008) [Xbox360] [Region Free] 13599 [FreeBoot / JTAG] [XBLA] [E
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +585,7 @@ Marsupilami Hoobadventure (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Mul
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -638,7 +612,7 @@ My Friend Peppa Pig / Моя подружка Свинка Пеппа (2021) [PS
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -664,7 +638,7 @@ Project CARS 3 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -675,6 +649,32 @@ Project CARS 3 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAE826EA05C68951FA061E642B7B64F1FE5224C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515042   (656310) от 25.06.2012
+
+[Xbox 360] Madagascar 3: The Video Game (XGD2) (RegionFree) [ENG] (2012)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Любимые герои возвращаются в новой игре Madagascar 3: The Videogame и теперь хотят вернуться обратно в свой любимый зоопарк в Нью-Йорке. Единственное решение к которому они пришли – примкнуть к бродячему цирку, в надеждe, что он когда-нибудь доедет и до Нью-Йорка. Масса веселых заданий, увлекательные мини-игры и совместное прохождение заданий любимыми героями – что еще нужно?Тип издания: ЛицензияРазработчик: Monkey Bar GamesЖанр: Action / ArcadeЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C3DF1F69C856E5339C5CF488AA95B0FC70FF5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

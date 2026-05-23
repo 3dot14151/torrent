@@ -1,22 +1,22 @@
-###  Публикация: 472044   (97476) от 23.03.2012
+###  Публикация: 1822337   (100788) от 06.10.2025
 
-[Wallpapers] Best HD Wallpapers Pack (22.03.12)
+Фуори / Fuori / Outside (2025) BDRip [H.264] [MVO]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Действие происходит в Риме. Писательница Голиарда Сапиенца попадает в тюрьму из-за кражи драгоценностей своей подруги. Она знакомится с двумя заключенными женщинами и заводит с ними крепкую дружбу. Выйдя на свободу, они продолжают поддерживать отношения. Их связь никто не может понять, но им самим она помогает личностно переродиться. Биографический фильм Марио Мартоне (   Читать дальше...   )Производство: Италия, Франция / Indigo Film, Rai Cinema, The Apartment, Srab Films, Le PacteЖанр: драма, биографияРежиссер: Марио МартонеАктеры: Валерия Голино, Матильда Де Анджелис, Элоди, Коррадо Фортуна, Франческо Геги, Антонио Джерарди, Каролина Рози, Дафна Скочча, Франческо Сичильяно, Соня Чжоу ФэньсяПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, итальянскийСубтитры: русские, английские, итальянскиеПродолжительность: 01:54:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE479A87E60327744187EA637DA804824BA2AB53
+magnet:?xt=urn:btih:C89E99617F1FE73F4F18A636E7A0C9DF75EB8CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,29 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472401   (97472) от 23.03.2012
+###  Публикация: 1822352   (100787) от 06.10.2025
 
-[Wallpapers] HD Pictures №7
+Проекты - VideoHive - Lightning Fire Logo Animation - 59633217 [AEP]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Проекты
+>>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №7
-Название: HD Pictures №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Новый проект с эффектами взрыва и молний для яркого представления вашего логотипа.
+
+Музыка очищена и предоставлена.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6612A261603468982326119ADE089A6577951A5D
+magnet:?xt=urn:btih:048D94859E6EC0D15502EAEF4ABF48FD2B024E6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +52,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472265   (97471) от 23.03.2012
+###  Публикация: 1822349   (100786) от 06.10.2025
 
-[Wallpapers] Computer Desktop Wallpapers Collection (24.03.12)
+Футажи - ActionVFX - Spark Hits Vol. 1 [MOV]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Материалы для мультимедиа и дизайна
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+10 настоящих искровых эффектов. Отлично подходит для рикошетов металлических пуль и электрических проводов.
+Снято в формате RAW с частотой 60 кадров в секунду. Корректная экспозиция. 10-битное разрешение Prores 4444.
+Снято камерой RED Epic Dragon.Формат: MOVРазрешение файлов: 4096x2160 (4K)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC291A407757D4E69E3A079CCEE4B731C7281D62
+magnet:?xt=urn:btih:56B5BE88785236255651ECE971ED92198CCC02A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,25 +80,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472054   (97470) от 23.03.2012
+###  Публикация: 1822355   (100785) от 06.10.2025
 
-[Wallpapers] Films Wallpapers (22.03.12)
+Полицейский по найму / Rent-a-Cop (1987) BDRip [H.264]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В результате неудачно проведенной операции по поимке торговцев наркотиками чикагский полицейский теряет напарника и два миллиона долларов. Он уходит из полиции и становится наемным охранником. Его берет на работу проститутка, которую преследует убийца-психопат.Производство: США / Kings Road Entertainment, Zealcorp Productions LimitedЖанр: боевик, триллер, комедия, криминалРежиссер: Джерри ЛондонАктеры: Берт Рейнолдс, Лайза Миннелли, Джеймс Римар, Ричард Мейсер, Дайонн Уорвик, Берни Кейси, Робби Бенсон, Джон Стэнтон, Джон П. Райан, Ларри ДолгинПеревод: Многоголосый профессиональный, авторский, одноголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:36:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00B23C5E0D2CE8771071563801792973E0767880
+magnet:?xt=urn:btih:DA34C1022D806E2DF6273932C6085D42A7A4B364
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,25 +106,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471881   (97469) от 23.03.2012
+###  Публикация: 1354276   (100784) от 06.10.2025
 
-Водная жизнь (серия 3 из 26) / Water Life (2007) BDRip [720p]
+VA - Брат-1, Брат-2. Музыка к фильму, Брат-2. За кадром (2000) 3CD [FLAC|Lossless|image + .cue] <Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Other Styles
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:29:27
+Брат-1: Режиссёр Алексей Балабанов вспоминал, что история «Брата» родилась из его старого замысла соединить в одном фильме бандитов и музыкантов, поскольку он общался и с теми, и с другими. Музыка должна была сыграть одну из ведущих ролей в будущей картине. Подыскивая подходящий саундтрек, Балабанов остановил свой выбор на группе «Наутилус Помпилиус», поскольку был (   Читать дальше...   )2000 - Брат-1. Музыка к фильму
+2000 - Брат-2. Музыка к фильму
+2000 - Брат-2. За кадромЖанр: RockПродолжительность: 03:02:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA98D70C168CA289DD2E5AF21318A74D6F546EAA
+magnet:?xt=urn:btih:C9C7A3F1B17AD42460F81D33CEA9CC7ABDB5EFA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,29 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472418   (97468) от 23.03.2012
+###  Публикация: 1822326   (100783) от 06.10.2025
 
-[Wallpapers] Nature Pictures №34
+Sadist - Studio Albums (10 releases) (1993-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №34
-Название: Nature Pictures №34
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Sadist — итальянская дэт-метал группа, образованная в Генуе, в январе 1991 года.1993 - Above The Light
+1996 - Tribe
+1997 - Crust
+2000 - LegoЖанр: Progressive Death MetalПродолжительность: 08:03:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3CB1E89F8B59EFFB1AF71EE14FE2616A2AD5C13
+magnet:?xt=urn:btih:3F1FC90CDE6CCD639F4E8086509105276C7A0045
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,25 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472071   (97467) от 23.03.2012
+###  Публикация: 1822345   (100782) от 06.10.2025
 
-[Wallpapers] Computer Desktop Wallpapers Collection (23.03.12)
+Luck & Loot (2025) [Ru/Multi] (1.1c) Repack Let'sРlay
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Luck & Loot - динамичный рогалик с кубиками, где стратегия и хаос сталкиваются. Создавайте собственные кубики, используйте синергию дикой добычи и погружайтесь в проклятые миры Элдралита, где каждый раз судьба вершится по-новому. Перехитрите жестоких врагов в пошаговых боях, используйте высокорискованные модификаторы и раскройте тёмные тайны мира, застрявшего (   Читать дальше...   )Тип издания: RepackРазработчик: SMARTcreativeЖанр: Инди, Ролевые игры, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0B3A07E60DF26FC47C0F7996AE5199CE87E2A3C
+magnet:?xt=urn:btih:5B22273539820C19CDBF1B01D2FA109E9D23A691
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,25 +189,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472270   (97466) от 23.03.2012
+###  Публикация: 1822362   (100781) от 06.10.2025
 
-[Wallpapers] Best HD Wallpapers (24.03.12)
+Оправданная жестокость / A History of Violence (2005) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Двое бандитов путешествуют по американской провинции, оставляя после себя многочисленные трупы. Однажды они оказываются в тихом городке Миллбрук, штат Индиана. В этом городе живёт Том Столл, уважаемый всеми владелец небольшой закусочной, и его семья — жена Иди и двое детей, Джек и Сара. При попытке вооружённого ограбления своей закусочной Том Столл убивает бандитов (   Читать дальше...   )Производство: США, Канада, Великобритания, Германия / BenderSpink, Media I! Filmproduktion München & Company, New Line CinemaЖанр: боевик, триллер, драма, криминалРежиссер: Дэвид КроненбергАктеры: Вигго Мортенсен, Мария Белло, Эд Харрис, Уильям Херт, Эштон Холмс, Питер МакНейл, Стивен МакХэтти, Грег Брайк, Кайл Шмид, Самела КэйПеревод: Дублированный, авторскийЯзык озвучки: Русский, АнглийскийСубтитры: Русские, Украинские, Английские (Full, SDH) и другиеПродолжительность: 01:35:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8291924B466B48325091C7628CE00FF82C32D43
+magnet:?xt=urn:btih:87C1ECA519ACC74AE8BD92225CA97E2CDA20C214
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,25 +215,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472078   (97465) от 23.03.2012
+###  Публикация: 1822364   (100780) от 06.10.2025
 
-[Wallpapers] Best HD Wallpapers Pack (23.03.12)
+Aging Disgracefully - Shatter the Mirror (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.  Foggy Highway (5:06)
+02.  Show Me The Way (4:28)
+03.  Shatter the Mirror (3:49)
+04.  Red Sky (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA020B7BAB07EC430B344C75A683E0D21699C80B
+magnet:?xt=urn:btih:C10469F172A5CB9D07CD8D7A302A9AD961500518
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -240,25 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471876   (97463) от 23.03.2012
+###  Публикация: 1822365   (100779) от 06.10.2025
 
-Водная жизнь (серия 2 из 26) / Water Life (2007) BDRip [720p]
+Amiya - Prosto do Gwiazd (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:28:01
+01.  To The Stars (4:35)
+02.  Poczuj nagrodę za wytrwałość (4:11)
+03.  Armor of Gold (2024 Session) (5:55)
+04.  Powiedz,czy warto (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEEC196C490C5CD2A47C4CF6D0B57BA0DFB2491A
+magnet:?xt=urn:btih:07247E4F55C92F1879AC483D17A45654897E592E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -266,25 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472051   (97462) от 23.03.2012
+###  Публикация: 1822367   (100778) от 06.10.2025
 
-[Wallpapers] Best Mixed Wallpapers (22.03.12)
+Balder Gernot - Towards The End (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rockabilly>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.  Run My Friend (4:06)
+02.  Here Is Your World (4:18)
+03.  Choose Your Path (3:14)
+04.  Thank You For Picking Me Up (3:36)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:36:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4578BF2B7C9150B646C6584B836F3B590A94096E
+magnet:?xt=urn:btih:2914AC2CDF7FC15D671534943C6F758FDAD8F72D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,25 +302,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472053   (97461) от 23.03.2012
+###  Публикация: 1822368   (100777) от 06.10.2025
 
-[Wallpapers] Girls Wallpapers (22.03.12)
+Шрифты - Hubert Jocham's 200 Fonts [OTF, TTF, PFM, PFB]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Хуберт Йохам — один из самых продуктивных дизайнеров шрифтов Германии, создавший несколько самых известных логотипов страны. Его элегантные шрифты украшают страницы журналов по всему миру. Вот и тут набор его шрифтов для ваших творческих задач.Формат: OTF, TTF, PFM, PFBПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16407446C489124AFE97712CB2A2BE3469F863FA
+magnet:?xt=urn:btih:5F0B98023449EE2512E36A7BB9C865531C369594
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,25 +328,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471615   (97456) от 22.03.2012
+###  Публикация: 1822369   (100776) от 06.10.2025
 
-Буги-вуги / Boogie Woogie (2009) DVD5
+Карнавал (1981) WEBRip [H.264/1080p] (2 серии)
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Владелец галереи современного искусства Арт Спиндл горит желанием купить картину «Буги-вуги». Это полотно украшает дом Альфреда Ринегольда, который не желает его продавать ни за какие деньги. Помимо Спиндла, на «Буги-вуги» положил глаз еще один коллекционер. Желающих купить шедевр немало, и всех их связывают непростые личные отношения…Жанр: Драма, Комедия, МелодрамаРежиссер: Дункан УордАктеры: Джиллиан Андерсон, Алан Камминг, Хэзер Грэм, Дэнни Хьюстон, Джек Хьюстон, Кристофер Ли, Джоанна Ламли, Саймон МакБерни, Мередит Остром, Шарлотта РэмплингПеревод: Многоголосый закадровыйПродолжительность: 01:30:32
+Попав в столицу, провинциальная девчонка, мечтающая выучиться на артистку, быстро расстается с романтическим представлением о жизни как сплошном празднике. Зато начинает понимать, что в мире действительно стоит ценить и что вовсе не имеет цены.Производство: СССР / Киностудия им. М.ГорькогоЖанр: драма, комедия, музыкаРежиссер: Татьяна ЛиозноваАктеры: Ирина Муравьёва, Юрий Яковлев, Клара Лучко, Александр Абдулов, Вера Васильева, Алевтина Румянцева, Екатерина Жемчужная, Борис Морозов, Александр Михайлов, Лидия Смирнова и др.Продолжительность: 01:13:54 + 01:10:49
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9914F3ACCF6B3D68C9B839ECE3A6BB81E643E07E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,25 +354,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471772   (97455) от 22.03.2012
+###  Публикация: 1822370   (100775) от 06.10.2025
 
-BurnAware Free 4.8 Beta 2 [Rus/Eng/Ukr]
+Canyon Lights - Breathe Easy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая, но могучая программа для записи и копирования всяких дисков - CD, DVD, Blu-Ray, HD-DVD и копирования CD и DVD. Программа может исполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; мультисессии и многое другое. Имеется многоязычный интерфейс, (   Читать дальше...   )Язык интерфейса: Rus/Eng/Ukr
+01.  Seventh Son (2:28)
+02.  Late to the Ball (3:22)
+03.  Song Behind Those Tears (3:35)
+04.  Let Me In (2:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:28
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0AC1C04BF22A61792CF02FB6665C3E07F7EF9E2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,33 +383,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471878   (97453) от 22.03.2012
+###  Публикация: 1822371   (100774) от 06.10.2025
 
-Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+Промты - SevenUnited LLC - 437 Midjourney Creative Portrait Prompts: Vol 2 - 9146519 [TXT, JPG]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Графика, Арт, Разное
+>>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. The Houston Shuffle
-2. Anywhere but Here
-3. Bye Bye Blackbird
-4. When I Go Away
-5. The Pillaging Pug
-6. Good Neighbours (Make Great Fences)
-7. Remember Me
-8. Song for Selim
-9. A Harbinger of Swing to Come - Movements I & II2011Жанр: Jazz, Mainstream JazzПродолжительность: 01:04:56
+Это набор из 437 промтов Midjourney с примерами изображений для создания творческих портретов: часть 2.Формат: TXT, JPG
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0F1CAA92C280E932AF1DDFE475B09D1DFCA453CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,26 +409,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471572   (97452) от 22.03.2012
+###  Публикация: 1822372   (100773) от 06.10.2025
 
-Раймонд Чандлер | Китайский жадеит [2001] [MP3]
+Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Цикл: John Dalmas
-Оригинальное название:2001Жанр: Детектив
+01.  No Easy Way Out (4:27)
+02.  Danger Zone (3:30)
+03.  Rebel Yell (3:33)
+04.  Maniac (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:432AAA5F97125DB437A4FEA7B197E74E4ED61429
+magnet:?xt=urn:btih:73679C525BCABFB91C56237ADA73211C0E38FA1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,34 +438,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471509   (97449) от 22.03.2012
+###  Публикация: 1822375   (100772) от 06.10.2025
 
-VA - XXXL Клубный Весна (2012) [MP3|192 kbps]<Club | Dance>
+Оверлеи - GoGivo - 10 Rose Flower Overlays Transparent [PNG]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Ritmo Playaz - Everybody Loves The Sunshine (Mike La Funk Remix)
-02. DJ Shevtsov feat. Shena - Face Control (Marty Fame Radio Edit)
-03. Shakira feat. Pitbull - Rabiosa (DJ Pasha Lee & DJ Dmitriy Tsoy Remix)
-04. Morandi - Serenada (Roma Star Remix)
-05. DJ Mafia - Love (DJ Kapuzen & DJ Paul Taylor Remix)
-06. Cabballero - Paris Latino 2k11 (Sean Finn Remix)
-07. Kevin R feat. Naomy - Kiss Me (Damien N-Drix Remix)
-08. Akcent - My Passion (Emin K & Ansarov Remix)
-09. Sander Van Doorn - Koko (Original Mix)
-10. DJ Vengerov feat. Plazma - Angel of Snow (Radio Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 08:23:24
+10 красивейших оверлеев с розами. Файлы можно использовать в любом графическом редакторе, поддерживающем слои, просто наложив наложение поверх фотографии.Формат: PNGРазрешение файлов: 4000x6000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
+magnet:?xt=urn:btih:45D373085B36BD548FEB6CEE8AD7BE7ED4E252D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,262 +464,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470558   (97443) от 22.03.2012
+###  Публикация: 1822376   (100771) от 06.10.2025
 
-Various Artists - Tranceffect 17 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Players- Baiana (Paul Miller Vs Ronald de Foe Remix)
-02. Tiddey-Savage Emotions (am Reconstruction 2011)
-03.C-Systems- Daylight (Trance Arts Dub)
-04.Sophie Sugar- Day Seven (am Reconstruction 2010)
-05.Matt Davey- Apocalypse (Matt Skyer Remix)
-06.Talla 2XLC & Skysurfer- Terra Australis (Jorn Van Deynhoven Remix)
-07.Thrshold- Bad Promoter (Club Mix)
-08. Mosahar- Trance 2008 (TrancEye Remix)
-09.Nurettin Colak Conception (Arctic Moon Remix)
-10.Plastic Boy- Silver Bath (Glyn Waters Remake)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832469C8237D598969050E9926F9A7634DE8DE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471309   (97441) от 22.03.2012
-
-VA - Organic Wick (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silicon Sound - Hyperion (Screenagers remix) 08:24
-02. Cabal - Roll The Drums 07:44
-03. Osher & Avshi - The 60s 08:14
-04. Interval - Nautilus (original mix) 07:31
-05. Sideform - Santo Daime (Relativ remix) 08:42
-06. Twina and Aza Syndrom - Cutting Edge (Science remix) 07:52
-07. Dimension X - Night Sensations 09:45
-08. Ace Ventura & Intelabeam - The John (Mute remix) 08:52
-09. Aqualize - Land of 2 Suns (Klopfgeister remix) 10:02
-10. NOK - Messed Up 08:07(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEF255561CAF4D4C5A0AC7FC4664C3576434025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471980   (97440) от 22.03.2012
-
-[Wallpapers] HD Pictures №6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97440.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №6
-Название: HD Pictures №6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23163F83939E5FF186C063FC0DDD96F690842ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471884   (97439) от 22.03.2012
-
-Водная жизнь (серия 4 из 26) / Water Life (2007)  BDRip [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF763FB9D51FE7772BEA9C9903999239DB43432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470990   (97438) от 22.03.2012
-
-SRS - Совместный [DNИL, DiZou, Benny] (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (DiZou, DNИL, Benny)
-02. О своём (Benny, DNИL, DiZou, Alex Grey, SLY)
-03. Отрадный (solo: DNИL)
-04. Возвращение (DNИL & KSENIA)
-05. Все реже (DNИL & DiZou)
-06. Каждому своё (DNИL & DiZou)
-07. НеделА (DiZou, DNИL, Benny)
-08. Давай братан (solo: DiZou) 256 кб/с
-09. Время (DNИL & DiZou)
-10. Пару историй (Benny & DNИL)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 01:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F021582CD9904FB29AFFBA08EADF2E645C623D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471442   (97437) от 22.03.2012
-
-Borknagar - Urd (2012) [MP3|192 кб/с]<Black Metal / Progressive Viking/Folk Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Epochalypse 06:08
-2. Roots 05:55
-3. The Beauty of Dead Cities 04:15
-4. The Earthling 06:51
-5. The Plains of Memories 04:27
-6. Mount Regency 06:08
-7. Frostrite 04:50
-8. The Winter Eclipse 08:45
-9. In a Deeper World 05:422012Жанр: Black Metal / Progressive Viking/Folk MetalПродолжительность: 00:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21BBAD42D6D82304EB39EFA7302D9765B4C1751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471671   (97436) от 22.03.2012
-
-Pybus Groove Quartet - Good Evening (2011) [MP3|192 кб/с]<Jazz, Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97436.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Good Evening (6:02)
-2.Natural Blend (6:17)
-3.Green Tea (5:18)
-4.Chatterbox (5:57)
-5.Sweet Soul (6:32)
-6.Fot-li (3:57)
-7.Misterios al Descubierto (6:21)
-8.Shamtime (5:15)2011Жанр: Jazz, FunkПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3418B4286ADBB410358C360A46F8E56AE1CD8F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471523   (97435) от 22.03.2012
-
-OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
+Жадан і Собаки - Бийся за неї (2025) [FLAC|lossless|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Walking Back To Hell 02:12
- 02. Marble King 05:11
- 03. Spartan Warriors 05:21
- 04. Overlord 05:48
- 05. Revolution World 05:38
- 06. Jungle Of Madness 04:53
- 07. Nameless Hero 06:37
- 08. Children Of The Sand 05:39
- 09. Battle Prayer 05:24
- 10. Prophet Of War 05:35(   Читать дальше...   )2010Жанр: Power MetalПродолжительность: 00:57:25
+01. Інтро (01:48)
+02. Бюджет (03:36)
+03. Безробітні (03:55)
+04. Країна (03:30)(   Читать дальше...   )Продолжительность: 00:37:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8EC9669B208DF8DE8E6C6A9FEEA53CBF428CE9B
+magnet:?xt=urn:btih:7A4F99EE3D0BFB4B5646ED939DF8F911808BC8F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -729,34 +493,211 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471529   (97433) от 22.03.2012
+###  Публикация: 1822374   (100770) от 06.10.2025
 
-VA - Sound RMX (2012) [MP3|320 kbps]<Club | Dance | House>
+Формула 1. Сезон 2025. Этап 18. Гран-при Сингапура. Гонка (05.10.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Спорт и активный отдых
+>>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Dom Omar - Ella Ella (DJ Spice)
-02. Emir Kusturica - Nexboy Daan Mahalageasca Maxim Play Ilya Steklov Bootleg Remix
-03. Christopher S Feat. Mc X-Large - Horny! (Johan K Arcade Bootleg)
-04. Ruslan Nigmatulin feat Syntheticsax DJ Half Diss BoyZ - Equinox Time Freaky DJs Mash Up
-05. Black White feat Robson - Do You Know Dj Rmx
-06. Dirty South and Those Usual Suspects feat. Erik Hecht - Walking Alone (DJ ViTaLiKe Bootleg)
-07. Rihanna - We Found Love (Dj Stifmaster Remix)
-08. Syster - Navi G Nothing You Can Do (Alex Boot Remix)
-09. Unikall Project - I Love Rock-N-Roll (Unikall Project Mush Up)
-10. Flashtronica - I Can't Stop (Aleks Foton Remix)(   Читать дальше...   )2012Жанр: Club | Dance | HouseПродолжительность: 04:23:57
+5 октября 2025 воскресенье 15:00 МСК этап 18. Арена: Городская трасса Марина Бей. Гран-при Сингапура. Гонка (62 круга)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 02:16:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08712387B5C91C5A5A78E973A7C5B73386FD959E
+magnet:?xt=urn:btih:9C4A72D1F90AFE057B5E39B8CF35F51322814478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822378   (100769) от 06.10.2025
+
+reaConverter Pro 8.0.141 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
+Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E92C29F6CF3C2C52DE575FAE44CC3F6D88F729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822379   (100768) от 06.10.2025
+
+AIMP 5.40.2696 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Обновился маленький, качественный, абсолютно бесплатный аудио плеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плейлистами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами. Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6DDCC17A4A8A696772150378A9A14F6C99A23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822332   (100767) от 06.10.2025
+
+VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak, Tibetania - Pyramid of Light (Original Mix) (8:02)
+02. Tibetania, Kaisser Bouzriba - Sawt El Hob (Original Mix) (6:32)
+03. The Friend, Tibetania - Desert Wind (Original Mix) (7:18)
+04. Tibetania, Noyan Music, Moohan Music - Moyo (Original Mix) (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0D25C226198371A95568100572BE0BBB0722ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822360   (100765) от 06.10.2025
+
+Проклятие Чаки / Curse of Chucky (2013) BDRip [H.264/1080p] [МVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ника Пирс 4 года провела в лечебнице. Ее убеждают в том, что она виновна в гибели семьи, а не кукла Чаки. Когда лечащий врач предлагает новый вариант терапии с куклой с добрым лицом, в лечебнице начинают погибать люди, и Ника начинает думать, что ее кошмары реальны. Энди Барклай повзрослел и спешит на помощь, но ему хочет помешать Тиффани — невеста Чаки, готовая (   Читать дальше...   )Производство: США, Канада / Universal 1440 Entertainment, David Kirschner ProductionsЖанр: ужасы, триллерРежиссер: Дон МанчиниАктеры: Фиона Дуриф, Даниэль Бисутти, Бреннан Эллиотт, Мейтленд МакКоннелл, Шэнтал Куэснел, Саммер Х. Хауэлл, Эй Мартинез, Брэд Дуриф, Дженнифер Тилли, Кэлли Берард и др.Перевод: Профессиональный многоголосый (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE4EC102F3000D4CC8243B49309008C132D4B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822373   (100764) от 06.10.2025
+
+Ночь перед Рождеством (1951) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм - экранизация одноименного произведения великого классика Н.В. Гоголя. Красавец-кузнец Вакула, влюбленный в прекрасную Оксану, не остановился ни перед чем: оседлал самого черта, долетел на нем до стольного города Санкт-Петебурга, добрался до самой императрицы… И все это для того, чтобы заслужить любовь капризной красавицы.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, мультфильм, детский, народная сказкаРежиссер: Валентина Брумберг, Зинаида БрумбергАктеры: Владимир Грибков, Вера Марецкая, Лилия Гриценко, Николай Гриценко, Михаил Яншин, Алексей Жильцов, Алексей ГрибовСубтитры: отсутствуютПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB06915A149B0C54DEDED5BF1285E0D1E6BAFD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822344   (100763) от 06.10.2025
+
+Магия четырёх стихий / Ein Madchen namens Willow / A Girl Named Willow (2025) BDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юная Ива получает в наследство от бабушки домик в заколдованном лесу и магический дар — она должна стать хранительницей стихии огня. Вместе со своим верным помощником огненным лисом она отправляется на поиски чародеек, отвечающих за стихии воды, земли и воздуха. Только объединив свои силы, они могут спасти волшебный мир.Производство: Германия / Alias Film+Sprachtransfer, Constantin Film, SamFilm GmbHЖанр: фэнтези, семейный, приключенияРежиссер: Майк МарзукАктеры: Ава Петш, Кора Трубе, Анна фон Зельд, Мари Эмбер Оземерен Тёлле, Голо Ойлер, Диана Амфт, Макс Гирман, Сибилле Каноника, Кристоф Биттенауэр, Том ХансльмайерПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced), Немецкие (SDH), АнглийскиеПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E54D6C7C2CF492AB6A96D419AA4D716BD4367C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822342   (100762) от 06.10.2025
+
+Магия четырёх стихий / Ein Madchen namens Willow / A Girl Named Willow (2025) BDRip [H.264/720p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юная Ива получает в наследство от бабушки домик в заколдованном лесу и магический дар — она должна стать хранительницей стихии огня. Вместе со своим верным помощником огненным лисом она отправляется на поиски чародеек, отвечающих за стихии воды, земли и воздуха. Только объединив свои силы, они могут спасти волшебный мир.Производство: Германия / Alias Film+Sprachtransfer, Constantin Film, SamFilm GmbHЖанр: фэнтези, семейный, приключенияРежиссер: Майк МарзукАктеры: Ава Петш, Кора Трубе, Анна фон Зельд, Мари Эмбер Оземерен Тёлле, Голо Ойлер, Диана Амфт, Макс Гирман, Сибилле Каноника, Кристоф Биттенауэр, Том ХансльмайерПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, НемецкийСубтитры: Русские (Forced), Немецкие (SDH), АнглийскиеПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBF79B8C4886A8B0542AD759015B605A32C6583
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1703697   (114956) от 01.03.2024
+
+Гарри Поттер / Harry Potter (2001 - 2011) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [Коллекция]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь десятилетнего Гарри Поттера нельзя назвать сладкой: его родители умерли, едва ему исполнился год, а от дяди и тётки, взявших сироту на воспитание, достаются лишь тычки да подзатыльники. Но в одиннадцатый день рождения Гарри всё меняется. Странный гость, неожиданно появившийся на пороге, приносит письмо, из которого мальчик узнаёт, что на самом деле он волшебник (   Читать дальше...   )Производство: Великобритания, Германия, США / Warner Bros., Heyday Films, 1492 PicturesЖанр: фэнтези, приключения, семейныйРежиссер: Крис Коламбус, Альфонсо Куарон, Майк Ньюэлл, Дэвид ЙейтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Ричард Харрис, Алан Рикман, Мэгги Смит, Робби Колтрейн, Том Фелтон, Мэттью Льюис, Иэн Харт, Хелена Бонем Картер, Джим Бродбент, Эванна Линч, Имелда Стонтон, Роберт ПаттинсонПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:32:19 / 02:40:55 / 02:21:42 / 02:37:03 / 02:18:12 / 02:33:28 / 02:26:03 / 02:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10A2F38AA91C42C9E901FC2E69F80444FB52A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425692   (114774) от 02.03.2024
+
+Пункт назначения / Final Destination (2000, 2002, 2006, 2009, 2011) BDRip [H.264/1080p] [Пентaлогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Алекс летит развлекаться со всем классом в Париж на 10 дней. Отец говорит, что детство кончилось. В аэропорту он узнает, что время вылета совпадает с его днем рождения. Потом повинуясь плохому предчувствию Алекс покидает самолет вместе с еще семью людьми. И тут взрывается их самолет…
+Но позже оставшиеся в живых пассажиры гибнут один за другим. И Алекс понимает: смерть (   Читать дальше...   )Проходит двенадцать лет после взрыва авиарейса N 180. У Сэма Лоутона происходит жуткое видение: подвесной мост, на котором он находится со своими друзьями, рушится, и многие люди, включая его самого, погибают. Сэм начинает паниковать и уговаривает своих друзей и ещё нескольких «счастливчиков» уйти с моста. И как раз вовремя: как и предвидел Сэм, мост рушится на их (   Читать дальше...   )Жанр: Мистика, триллер, ужасыРежиссер: Стивен КуэйлАктеры: Николас Д’Агосто, Эмма Белл, Майлз Фишер, Эллен Ро, Жаклин МакИннес Вуд, П.Дж. Бирн, Арлен Эскарпета, Дэвид Кокнер, Кортни Б. Вэнс, Тони ТоддПеревод: Авторский (одноголосый)Язык субтитров: Русский(полные, форсированные) - вшитые и отдельным файлом, украинский - вшитые и отдельным файлом, английский - вшитые и отдельным файломПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274ABC80818F4C71F298DF43D0B979B4E606373D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526420   (114599) от 03.03.2024
 
 Адмирал Ушаков, Корабли штурмуют бастионы (1953) DVDRip [H.264] [Дилогия]
@@ -6,7 +59,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -66,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -92,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -120,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -150,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -176,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -206,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -232,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -258,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -284,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -310,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -336,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -362,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -388,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -414,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -440,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -466,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -493,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -521,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -547,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -574,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -602,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -628,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -639,59 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35DF97DE8D4B65FC209B15AF4094F1BA2FE43E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454674   (77231) от 19.02.2012
-
-Астерикс и Обеликс (Трилогия) / Asterix & Obelix (Trilogy) (1999, 2002, 2008) [1080p] BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77231.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 лет до Рождества Христова. Вся Галлия под властью Римской Империи. Но не стоит огорчаться: одна деревня продолжает героическое сопротивление. Ведь ее жители уверены в собственной непобедимости.
-Уже несколько месяцев сердце Полюбвикса бьется только ради греческой принцессы Ирины. Но, увы, он не единственный претендент на ее руку. Большая политика предназначила (   Читать дальше...   )Жанр: Фэнтези, Комедия, Приключения,  СемейныйРежиссер: Фредерик Форестье, Тома ЛангманнАктеры: Жерар Депардье, Кловис Корнийяк, Бенуа Пульворде, Ален Делон, Ванесса Эсслер, Франк Дубоск, Хосе Гарсиа, Стефан Руссо, Жан-Пьер Кассель, Эли СемонПеревод: ДублированныйСубтитры: ОтсутствуютЯзык субтитров: РусскиеФормат: MKVПродолжительность: 01:57:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444363   (73535) от 01.02.2012
-
-Зловещие мертвецы: Трилогия / The Evil Dead: Trilogy (1981-1992) [720p] BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73535.jpg" />
-</div>
-
-
-###  Подробнее
-
-По воле случая Эш переносится в далекое прошлое. Вместе со своим автомобилем и двухстволкой он оказывается в 13 веке. В этом мрачном средневековье люди страдают от сил тьмы. Бедняга Эш был пойман добропорядочными гражданами и помещен в местную тюрьму. Он с трудом смог убедить судью, в том, что он вовсе не шпион из враждебного королевства. Он решает помочь людям в (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Комедия, ФэнтезиРежиссер: Сэм РэймиАктеры: Брюс Кэмпбелл, Эмбет Дэвидц, Маркус Гилберт, Йен Эберкромби, Ричард Гроув, Тимоти Патрик Куилл, Майкл Эрл Рейд, Бриджит Фонда, Патриция Таллман, Тед РеймиПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйСубтитры: Русские, Английские (SDH)Продолжительность: 01:20:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

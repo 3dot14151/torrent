@@ -1,3 +1,206 @@
+###  Публикация: 1241204   (518122) от 19.08.2018
+
+VA - 70's Soul: Classic Singles (2018) [MP3|320 Kbps] <Soul, Disco, Philly Soul, Rhythm and Blues, Funk>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Ben E. King - Supernatural Thing
+02. Donny Hathaway - The Ghetto
+03. Aretha Franklin - Im In Love
+04. Wilson Pickett - Engine Number 9(   Читать дальше...   )Жанр: Soul, Disco, Philly Soul, Rhythm and Blues, FunkПродолжительность: 01:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEBDB44C38333EDA6BCFF59C435DC72594A4D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314390   (518071) от 15.07.2019
+
+VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Дарья Антонюк - Круг жизни (04:02)
+02. Hans Zimmer - Life's Not Fair (01:44)
+03. Hans Zimmer - Rafiki's Fireflies (01:53)
+04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1F1A650AECDCA185AD1AEFFC6E98F0A800E40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314389   (517971) от 15.07.2019
+
+VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Дарья Антонюк - Круг жизни (04:02)
+02. Hans Zimmer - Life's Not Fair (01:44)
+03. Hans Zimmer - Rafiki's Fireflies (01:53)
+04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CCD54BE20175793046177C97202302C0D20EDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314716   (517031) от 16.07.2019
+
+Wychazel - White Wolf Spirit 3 (2019) [MP3|320 Kbps] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1.The Shaman's Dream (8:18)
+2.Running Barefoot (7:58)
+3.White Wolf Vision Quest (12:32)
+4.The Song of the Wind (8:20)(   Читать дальше...   )Жанр: New ageПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F98E6DEEDFCEFED012DF431310140F59598E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314693   (516956) от 16.07.2019
+
+Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Electonic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Road Of Worlds
+02. Listening To A Rain
+03. Dreamland Express
+04. Return(   Читать дальше...   )Жанр: Electonic, New AgeПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE3BA3C107A6673FEA3B126E376B3B45D3B2547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314748   (516955) от 16.07.2019
+
+Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
+02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
+03. Wilbert Roget, II - Netherrealm Incursion (03:43)
+04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847D57A3360499193E561267777E218ADC0B15B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314749   (516948) от 16.07.2019
+
+Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
+02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
+03. Wilbert Roget, II - Netherrealm Incursion (03:43)
+04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9BD7D9600DB23B7E3B08F3BA949936330DD6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187817   (516886) от 20.08.2018
 
 Українські стрілецькі та повстанські пісні (Ukrains'ki strilec'ki ta povstans'ki pisni) (2008) [MP3|192-320 kbps]<Folk, ethnic>
@@ -6,7 +209,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Cyril Baranov - Rosa (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Street Hits 70s (2018) [MP3|320 Kbps] <Boogie, R&B, Soul-Jazz, Gospel Music
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +389,7 @@ Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +418,7 @@ VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +447,7 @@ Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +476,7 @@ DYATHON - Serenity (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Ne
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +505,7 @@ Karunesh (Карунеш) - The Way of the Heart (2005) [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +534,7 @@ Ilyin - Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +589,7 @@ Cliff Martinez - Too Old To Die Young (2019) Original Series Soundtrack  2CD [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +618,7 @@ Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -444,7 +647,7 @@ Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, D
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +682,7 @@ Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +717,7 @@ Donald Quan - Zen Garden: Music For Relaxation (2013) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +746,7 @@ VA - Mystic & Relax Vol.1(2007) [MP3|192 кб/с]<Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,216 +757,6 @@ VA - Mystic & Relax Vol.1(2007) [MP3|192 кб/с]<Enigmatic, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52214B19ED1535670C6BB5A5DE842289064ABBFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537163   (510491) от 22.08.2012
-
-Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxophone , World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste (05:26)
-02. Brhama-Vishnu-Shiva (05:29)
-03. Dance Of The Elephant God (04:54)
-04. Lotus Lovers (04:57)
-05. Transcendental Consciousness (05:13)
-06. Valley Of Flowers (05:58)
-07. Silsila (06:38)
-08. Om Shanti (04:10)
-09. Transcendental Consciousness (Walter A. Remix) (03:44)
-10. Namaste (Soul Seekerz Club Mix) (03:38)Жанр: Smooth Jazz , Saxophone , WorldПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377252   (509520) от 18.08.2011
-
-Franz Lambert - Pur (2001) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франц Ламберт (родился 11 марта 1948 года в Heppenheim, Германия) - немецкий композитор и органист. Он является страстным исполнителем на Хаммонд-органе, однако в последние годы предпочитает электронные органы Wersi . За свою карьеру он выпустил более 100 альбомов.
-Его первой заметным публичным выступлением было выступление в 1969 году в немецком телешоу Zum Blauen (   Читать дальше...   )01. El Torero 				(03:12)
-02. Baby Elephant Walk 		(03:27)
-03. Watermelon Man 			(03:05)
-04. Hello Josephine 			(02:45)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4289948189A70C6290BECF60E5C438487A2602D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932411   (509362) от 29.08.2015
-
-VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]<Relaxation, New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larry Dalton - Minuet in G Minor, Suite No. 1
-02. Shannon Devos - Ambiance of a Piano
-03. Peng Jing - Days of Sunshine
-04. Gonella - Notturno No. 3(   Читать дальше...   )Жанр: Relaxation, New AgeПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F35FC38EA887BA674287CC1B495E5C6EE89BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562174   (509027) от 09.07.2022
-
-Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpan>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky & Sand
-02. Breath
-03. Lifeline
-04. Lotus Unfolding(   Читать дальше...   )Жанр: Meditative, HandpanПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2393BFC6D6C726E4521FF4F32942889D6AAB3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562420   (509024) от 09.07.2022
-
-Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New Age, Native>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of the Golden Age  (06:44)
- 02. Whispers from Heaven  (07:24)
- 03. The Seven Sisters  (07:12)
- 04. Shadowlands  (06:48)(   Читать дальше...   )Жанр: New Age, NativeПродолжительность: 07:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B188FD2F09BE35ADF8402C89B88D46BBD3719CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932652   (509018) от 29.08.2015
-
-Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 2
-02. Arpegiateur (Live)
-03. Oxygene, Pt. 4
-04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DACC7786D6885A4F5A8938E997C5EFC94DC0C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316079   (508825) от 23.07.2019
-
-Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score, Alternative Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balance, Not Symmetry
-02. All Singing And All Dancing
-03. Different Kind Of Love
-04. Sunrise(   Читать дальше...   )Жанр: Score, Alternative RockПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B178A9A365DEEA4B4CCFF1741971FA8B25200D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,207 @@
+###  Публикация: 611185   (989472) от 30.01.2013
+
+Газета | Пролетарий № 121 (1163) [29 мая 1927] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Всеукраинская рабочая газета, орган ВУСПС и ЦК КП(б)У.
+
+Сегодня в номере:
+— Нота Чемберлена и ответ Советского правительства;
+— Прекращение торговли с Англией;
+— Германия взяла на себя представительство интересов СССР и Англии;
+— Завтра в Харьков приезжает финская рабочая делегация;
+— Первый день массовой проверки снижения цен в Харькове;
+— Выступления т. Куйбышева на пленуме харьковского горсовета и в президиуме ВСНХ УССР.
+(   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E1CB5E916948E1C4BE047078F7BABEFF4E20F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354345   (988992) от 21.01.2020
+
+Журнал | Архивы ХХ века. Спецвыпуск №1. ХХ век. Тайны третьего рейха (2020) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Bauer Media Group — одна из самых успешных и передовых медиа-компаний в мире. Имея около 570 журналов, более 300 интернет-проектов и около 50 телевизионных и радиоканалов, она является значимым игроком в стремительно развивающейся и постоянно совершенствующейся индустрии. Стабильное развитие и успех компании под руководством издателя Ивонн Бауэр (Yvonne Bauer) являются (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D200B90C1CEF4860EA3A4D975F12A6A0FD7828F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611237   (988015) от 31.01.2013
+
+Газета | Безбожник № 07 (640) [1 мая 1938] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Безбо́жник» — еженедельная газета атеистической направленности, издававшаяся в Советском Союзе с 21 декабря 1922 года по 20 июля 1941 года (с перерывом с января 1935 по март 1938). Газета являлась печатным органом Центрального Совета Союза воинствующих безбожников. Главной целью издания являлась антирелигиозная пропаганда.
+Первые два номера новой газеты вышли тиражом 15 тысяч экземпляров. Затем тираж постоянно увеличивался. 1 апреля 1924 года тираж составил уже 50 тысяч экземпляров, а 1 ноября — 210 тысяч. Позже (в 1931 году) тираж газеты достиг 500 тысяч экземпляров.
+
+В номере 4 страницы, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA11E431433B57EB8AA2EF9E0721F4DD5019E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971317   (987535) от 02.01.2016
+
+Журнал | Народные рецепты №12 (декабрь 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске мы поговорим о том, насколько важно успеть выявить онкологию на ранней стадии. Еще мы расскажем, как и от чего можно лечиться комнатными растениями. В номере вы найдете советы врача про то, как тренировать свои сосуды, чтобы не мерзнуть. А также узнаете, чем обогатить меню, чтобы защитить себя от переломов.
+И конечно, для вас большое количество народных (   Читать дальше...   )Жанр: Домоводство, здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0FE8CA66FFD1B8277431FE520A2A2AD89DC0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612012   (987340) от 01.02.2013
+
+Журнал | Gala Биография №12 (96) [декабрь 2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+"GALA Биография" - это увлекательные истории из жизни знаменитых людей: королей и авантюристов, популярных актеров и выдающихся политических деятелей, известных писателей, художников, музыкантов. "GALA Биография" - это правдивые и занимательные истории, написанные самыми лучшими российскими и зарубежными журналистами, иллюстрированные эксклюзивными фотографиями. "GALA Биография" - это кино и литература, политика и бизнес, мода и спорт, самые знаменитые люди и самые интересные факты из их жизни.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3934A04AFBB885421A9265E5960692F7CDBC5836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611245   (987331) от 01.02.2013
+
+Журнал | Дружеские речи № 39 [8 февраля 1904] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+"Дружеские речи" — газета крайне реакционного направления, выходившая в Петербурге с 1903 года, сначала еженедельно, а затем, с 1904 г., два раза в неделю. Издателем-редактором был известный реакционер и монархист, князь В. И. Мещерский.
+
+Номер, находящийся в раздаче, практически полностью посвящён русско-японской войне.
+
+В журнале 12 страниц, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998EB21FFC89ED065BE8B86727739B5BA4144479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612052   (986955) от 01.02.2013
+
+Журнал | Necronomicon № 8 [февраль 2002] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рок-журнал, приложение к музыкально-развлекательному журналу "Painkiller" (так. наз. "Брутальный выпуск журнала Painkiller").
+
+В номере - интервью с музыкантами, рецензии на альбомы.
+В большинстве случаев приводится дискография групп, отметившихся в журнале.
+
+В журнале 44 страницы, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A9455578D7D9577CB98544B8640E58A5B9C8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612560   (986087) от 02.02.2013
 
 Газета | Литературная газета № 029 (3058) [7 марта 1953] [PDF]
@@ -6,7 +210,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -37,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -72,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -98,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -130,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -156,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -182,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -208,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -234,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -260,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -286,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -313,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -340,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -366,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -392,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -418,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -444,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -496,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,192 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DD17F23BD1FBA98C52CD2E6E046032A96A0D6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355974   (981099) от 28.01.2020
-
-Журнал | Народные рецепты для вашего здоровья №10 (2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный журнал для широкого круга читателей.Жанр: здоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0AD6E72CC6004580EF26302C31DCD9DE9F90F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355972   (981047) от 28.01.2020
-
-Журнал | Тайны СССР № 2 (2020) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный журнал для широкого круга читателей.Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81367781859BCAB02A87A3D35C126410AFC33C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973038   (980782) от 07.01.2016
-
-Журнал | Энциклопедия здоровья №22 (Ноябрь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание создано для тех, кто заботится о своем здоровье, ведёт здоровый образ жизни и интересуется методами лечения и профилактики различных заболеваний. В каждом номере – авторские статьи, интервью с ведущими специалистами в области фитотерапии, гомеопатии и народной медицины, а также письма читателей с советами и рецептами.Жанр: Народная медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB2247EF657EB92CB822A9CCA1935159CF9C26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973043   (980771) от 07.01.2016
-
-Журнал | Энциклопедия здоровья №23 (Декабрь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание создано для тех, кто заботится о своем здоровье, ведёт здоровый образ жизни и интересуется методами лечения и профилактики различных заболеваний. В каждом номере – авторские статьи, интервью с ведущими специалистами в области фитотерапии, гомеопатии и народной медицины, а также письма читателей с советами и рецептами.Жанр: Народная медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CD02C488ACABCA702B58A04E27695BC59E15B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614595   (979702) от 06.02.2013
-
-Журнал | Esquire [Россия] №85 (февраль 2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979702.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Esquire" предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде. Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C535E58637F09AF04C32435B8EF03B1D73FCB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356479   (978909) от 30.01.2020
-
-Журнал | Все загадки мира. Другое измерение. Спецвыпуск №1 (14) Аномальные зоны (2020) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для людей, которым нравится узнавать новое, расширять кругозор, быть в курсе научно-популярных событий. Удивительные явления, невероятные гипотезы, сенсации и мнения экспертов. А также интересные: открытия, феномены, версии. Авторитетное и увлекательное изложение познавательных фактов.Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6699CE6794250318B1CA46D63682A4FB62E2F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615915   (977905) от 08.02.2013
-
-Журнал | Sue № 09 [сентябрь 2005] [PDF] [FIN]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал, посвящённый панк-рок-метал музыке, издаётся ежемесячно.
-
-В номере: Him, Franz Ferdinand, 51Kodia, Editors, Jere & The Universe, Hypocrisy, Gamma Ray, Children Of Bodom, Francine, Beseech, Swallow The Sun и множество других групп.
-
-В номере 44 страницы, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A7E50A3320CDDEC53FFDAF66C0EC32ACAE5A8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

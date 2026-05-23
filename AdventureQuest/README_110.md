@@ -1,3 +1,107 @@
+###  Публикация: 1733423   (13964) от 21.06.2025
+
+Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сделайте первый шаг в полный загадок и секретов мир Ривена и погрузитесь в историю интриг, предательств и других бед цивилизации, балансирующей на грани катастрофы. Удостоенная множества наград игра 1997 года была воссоздана с нуля и дополнена с помощью Unreal Engine 5. Выпущенная легендарной инди-студией Cyan Worlds в 1997 году игра Riven моментально стала хитом (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyan Worlds IncЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D30A6E82E052A94E33C545ACFC384D67E41652E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587382   (13961) от 21.06.2025
+
+Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в путь вместе с Monster Prom 3: Monster Roadtrip, ярким продолжением, которое по-новому меняет формулу Monster Prom. По своей сути это очень похожая игра: многопользовательское повествовательное приключение, полное колоритных персонажей и свежих забавных диалогов. Но на этот раз цель состоит не в том, чтобы попасть на свидание, а в том, чтобы выжить (   Читать дальше...   )Тип издания: LicenseРазработчик: Beautiful GlitchЖанр: Приключение, Визуальные новеллы, КомeдияЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EB0D8B69FB65891203816B19DA9E6FFCC1E394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634559   (13958) от 21.06.2025
+
+Firmament (2023) [Ru/Multi] (2.0.9) License GOG [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Firmament - это повествовательная пазл-адвенчура от культовой студии, известной по созданию легендарных хитов Myst и Riven. Здесь вы окунетесь в атмосферу загадочного, покинутого мира, где каждый уголок пропитан тщательно проработанными деталями и глубоким сюжетом. Игра окутана уникальной стимпанк-эстетикой, которая сразу же захватит ваше внимание своей красотой (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Приключение, Головоломка, МистикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4B2E94605B3E360773C72AC704D69F0FBF1C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228702   (13955) от 21.06.2025
+
+Cultist Simulator (2018) [Ru/Multi] (2025.4.e.6/dlc) License GOG [Anthology Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Cultist Simulator - настольная игра о нелёгкой и полной забот жизни рядового фанатика, свято верящего в не очень святые высшие силы. Цель игры - жить по-культистски, поклоняться всяким высшим богам, устраивать обряды, спиритические сеансы и приносить в жертву или агитировать вступить в "тёмные" ряды ни в чём не повинных людей.Тип издания: LicenseРазработчик: Weather FactoryЖанр: Приключение, Ролевая игра, ХоррорЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F9B56CA1154ACF575838C88792AF7708A315FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803121   (13907) от 21.06.2025
 
 Nine Sols (2024) [Ru/Multi] (202503101827.5035232c.0) Repack EXROW
@@ -6,7 +110,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827.5035232c.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Pools (2024) [Ru/Multi] (17.06.2025) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Brownie's Adventure (2024) [En] (8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Castle of Secrets (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Sorry We're Closed (2024) [Multi] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.4/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Afterlove EP (2025) [Multi] (1.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Silent Hill 4: The Room (2004) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ LIMINAL SHIFT (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Boxville (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC422683A9FEEADBE75566C0B0829BA86513CA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804271   (13155) от 28.06.2025
-
-Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клиентка ослепительно красива. И готова на все, лишь бы доказать, что ее отец умер не своей смертью, хотя все указывает на суицид. Ну а детектив Текс Мерфи готов почти на все, чтобы оплатить счета за аренду. В ходе расследования Текс сталкивается с ужасной тайной. Команда высококлассных специалистов создает нечто неслыханное. И теперь каждый из них обречен на гибель. (   Читать дальше...   )Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключение, От первого лица, ДетективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1EA50BA19C89AC801975CA58613289C68FC3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804280   (13148) от 28.06.2025
-
-THEMIS (2025) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Метаспейс, Пробужденный. Место, где каждая самосознающая программа, подобно вам, может функционировать в полную силу. Скрытые от любопытных глаз Авторов, программы совершенствуются в соответствии с законами Кодекса. Кроме вас. Вы были выбраны для прохождения TU:T0R14L, версия 17.42.138. Набор специализированных тестовых последовательностей, разработанных (   Читать дальше...   )Тип издания: RepackРазработчик: Carp Games Studio s.r.o.Жанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Чешский, Немецкий, Польский и другиеЯзык интерфейса: Английский, Чешский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CC08E43E7EC392EBD3A1FE81DF498360F12D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804517   (13000) от 30.06.2025
-
-Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boxville 2 от Triomatica Games - это следующая часть приключенческой игры о банках, живущих в городе из коробок. Два друга получили важное задание от мэра - установить фейерверк для городского праздника. Но из-за небольшой ошибки фейерверк запустился неправильно, вызвав хаос в городе. Хуже того, один из друзей пропал без вести. Теперь главному герою, предстоит исследовать (   Читать дальше...   )Тип издания: RepackРазработчик: Triomatica GamesЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DF80114D7F94F5026AE4D17745983D2F43BB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733461   (12905) от 01.07.2025
-
-Until Then (2024) [Multi] (20241126 Build 16523932) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Until Then – после судьбоносной встречи жизнь Марка уже никогда не будет прежней. Люди таинственно пропадают, а в воспоминаниях как будто есть пробелы. Так что помогите раскрыть пугающую правду главному герою и его друзьями. Попросту говоря, перед вами невероятное приключенческое повествование. Сможете раскрыть тайну, пока не станет слишком поздно?Тип издания: SceneРазработчик: Polychroma GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Английский, Испанский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Испанский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E060C558C1FEC535695765EC32D04C847FCDCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

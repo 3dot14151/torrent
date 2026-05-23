@@ -1,3 +1,55 @@
+###  Публикация: 1666392   (179409) от 04.10.2023
+
+Марсель / Marseille (2016) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8) Jaskier [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Роберт Taro был мэром Марселя в течение 25 лет. Теперь ему предстоит баллотироваться на очередных выборах против своего же протеже — молодого и амбициозного.Производство: Франция / Federation EntertainmentЖанр: драмаРежиссер: Флоран Эмилио Сири, Тома Жилу, Лайла МарракчиАктеры: Жерар Депардье, Бенуа Мажимель, Жеральдин Пайя, Стефани Кайар, Надя Фарес, Гийом Арно, Каролина Юрчак, Хеди Бушенафа, Эрик Савен, Дэниэл Нджо ЛобеПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, французскийСубтитры: ОтсутствуютПродолжительность: ~00:41:00 серияРеклама: Присутствует аудио (один раз, в конце 8 сек.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5DB21E3D86CC301C8F41D3268A4D4A719581A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593098   (179070) от 29.11.2022
+
+Перебежчик / The Walk-In (2022) WEB-DLRip (сезон 1, серии 1-5 из 5) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+«Перебежчик / The Walk-In» - британская криминальная драма, основанная на реальной истории о том, как Мэтью Коллинз (Стивен Грэм) из правозащитной группы «Надежда, а не ненависть» проникает в британскую неонацистскую террористическую группировку National Action и предотвращает очередное убийство члена парламента.Производство: Великобритания / ITV StudiosЖанр: драма, криминалРежиссер: Пол Эндрю УильямсАктеры: Эндрю Эллис, Стивен Грэм, Лиэнн Бест, Дин-Чарльз Чепмен, Джейсон Флеминг, Шворн Маркс, Райан Маккен, Jodie Prenger, Alexander Charles Plumbly, Сэми Эмбер и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английские (отдельные файлы)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6C406BD4BBCBB69CED0362E962FE7629D6C811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428729   (179040) от 03.12.2020
 
 Рейс HS13 / Vlucht HS13 (2016) WEB-DLRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266C0FCEADD2948A10BEF159E22F79B1F0E0B54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670098   (172180) от 19.10.2023
-
-Голяк / Без гроша / Brassic (2023) WEBRip [H.264/1080p] (сезон 5, серии 1-8 из 8) Kerob [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелкий воришка Винни и его друзья живут в английской глубинке и ежедневно промышляют нелегальными делами, приносящими небольшой доход. Все меняется, когда компания переходит дорогу местному криминальному авторитету.Производство: Великобритания / Calamity FilmsЖанр: комедия, криминалРежиссер: Ричард Стоддард, Джон Райт, Джордж КэйнАктеры: Мишель Кигэн, Райан Сэмпсон, Том Хэнсон, Джозеф Гилган, Дэмиен Молони, Аарон Хеффернан, Парт Такерар, Стив Эветс, Брона Галлахер, Джоанна ХигсонПеревод: Двуголосый любительский (Kerob) (ненормативная лексика 18+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:43:00 серияРеклама: Присутствует видео и аудио.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EFCCE80433EB099373A60E9304A31103C51D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670224   (172108) от 20.10.2023
-
-Энтревиас / Entrevias / Wrong Side of the Tracks (2022) WEB-DLRip [H.264/1080p] (сезон 2, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в Энтревиасе, беднейшем районе Мадрида. Сериал рассказывает о Тирсо Абантосе, бывшем военном, управляющем хозяйственным магазином, чей монотонный распорядок дня нарушается, когда его неуправляемая и непокорная приемная внучка-подросток Ирен, уговаривает своего парня Нельсона украсть героин у наркодилера Сандро. В то время как молодая (   Читать дальше...   )Производство: Испания / Alea Media, Mediaset EspañaЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Iñaki Mercero, Альберто Руис Рохо, Ориоль Феррер и дрАктеры: Хосе Коронадо, Нона Собо, Felipe Londoño, Лаура Рамос, Маноло Каро, Мануэль Тальяфе, Ицияр Атьенца, Мария де Нати, Луис Саэра, Мария Молинс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, испанскийСубтитры: отсутствуютПродолжительность: ~01:15:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2353538E736E438E4495867C44A5855CB7299022
 ```
 
 https://mybot314.ru/tekegram_catalog/

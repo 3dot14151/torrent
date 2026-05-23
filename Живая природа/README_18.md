@@ -1,3 +1,55 @@
+###  Публикация: 837063   (655131) от 02.06.2015
+
+Дикая Германия / Дикая природа Германии / Wildes Deutschland (2012) BDRip [H.264/1080p] (сезон 2, серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сказочный пейзаж лесов реки Шпрее, стаи птиц Ваттового моря, меловые скалы на острове Рюген, поразительные пейзажи Шварцвальда и мощные горные хребты Берхтесгаденских Альп - это и много другое вы увидите в мини-сериале "Дикая Германия". Уникальные ландшафты и дикие животные в различных природных ландшафтах Германии, съемка движения с покадровым замедлением, (   Читать дальше...   )Телекомпания: ARTE, NDR Naturfilm, Rundfunk Berlin-Brandenburg (RBB)Жанр: Документальный, путешествия, природаРежиссер: Кристоф Хаушилд, Торальф Гроспитс, Йенс Вейстфален, Клаус Вайсман, Ян ХафтПеревод: Одноголосый закадровый (профессиональный, Ю.Сербин)Продолжительность: 5 х ~00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099A2E9E7807F1B6E51F4E23672017479AC756AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140366   (654683) от 07.06.2017
+
+Планета воробьев / Sparrow Planet (2013) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Он живет бок о бок с человеком тысячи лет. Маленький, невзрачный, порой он просто незаметен... Но не следует его недооценивать - он необычайно смышлен и изворотлив. Он живуч, вынослив и выдерживает самые суровые условия. Он, как и человек, - полноправный житель городских джунглей. Знакомьтесь, наш герой - домовой воробей.Производство: Австрия, Франция, Германия, ARTE and NDR in associationЖанр: ДокументальныйПеревод: Дубляж (Первый ТВЧ)Продолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468FC9D96E04B8801C1C6060047E16CA1F5E03AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516093   (653718) от 28.06.2012
 
 PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (2010) [720p] BDRip
@@ -6,7 +58,7 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Nat Geo Wild: Мафия кобр / Cobra Mafia (2014) HDTVRip [H.264/720p]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Nat Geo Wild: Дикая Колумбия / Wild Colombia [серии 1-3 из 3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Viasat Nature: Подземный мир саванны / Six Feet under the Sav
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -606,7 +658,7 @@ NG: Жизнь среди больших кошек / Living with Big Cats (2007
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,59 +670,6 @@ NG: Жизнь среди больших кошек / Living with Big Cats (2007
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D10D077FD298080E19069EF7BD8CFE7BF14E25B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519898   (635470) от 07.07.2012
-
-Глаз леопарда / Eye of the Leopard (2007) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известные любители больших кошек Дерек и Беверли Жубер следят за жизнью Легадемы, молодой самки леопарда в районе Момбо в Ботсване.
-Жизнь на равнине полна опасностей, и Легадема должна как можно быстрее научиться охотиться и избегать постоянной угрозы со стороны хищников. С повседневной жизнью этого грациозного и красивейшего животного, полной забот и тревог, вас познакомит этот фильм.Жанр: ДокументальныйПеревод: Профессиональный (одноголосый)Продолжительность: 01:34:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743504   (635420) от 13.06.2015
-
-BBC. Мир природы. Бабочки / Natural World. Butterflies (2010) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о прекрасных насекомых, живущих в Великобритании. Бабочки - одни из самых прекрасных создания на Земле. Их красота и удивительный жизненный цикл вдохновляли людей тысячелетия, и многие по прежнему одержимы ими. Наша любовь к бабочкам не знает границ, ни возрастных, ни классовых, ни культурных. Чем же они покоряют наше воображение? Есть ли в них что-то по (   Читать дальше...   )Жанр: Документальный, научно-познавательный, природа, фауна, энтомология, исследованиеПеревод: Двухголосый закадровый (профессиональный)Продолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CEFEEA83F73E2E236BDC099C75B2E4F4E723CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

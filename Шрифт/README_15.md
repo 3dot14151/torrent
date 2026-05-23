@@ -1,3 +1,135 @@
+###  Публикация: 1823628   (125929) от 12.10.2025
+
+Шрифты - Creative Market - CS Brownie - Fun Font - 291689617 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+CS Brownie — смелое выражение радости и причудливости — современный акцидентный шрифт, воплощающий смелость, обрамлённую очарованием. Его чистые и выразительные буквы, пронизанные жизнерадостным и игривым духом, мгновенно привлекают внимание, распространяя позитивную, дружелюбную энергию по всему дизайну.Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0008A7CE25D37FBD02215A7CDC6EFBA61D9470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823671   (125922) от 12.10.2025
+
+Шрифты - Envato - Crenalia Vintage Script Font - HZFDN8N [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Crenalia — вневременной шрифт, воплощающий очарование, элегантность и красоту ручной работы прошлых эпох. Основанный на стилях письма конца XIX — середины XX века, он сочетает в себе плавность курсивного письма и каллиграфический стиль.
+
+Crenalia отличается контрастным, ярким характером, создающим ностальгический образ. Grecina — идеальный выбор для любых творческих (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AB5EDF0BE6117FBF3615F66AB650F844029399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823588   (125917) от 12.10.2025
+
+Шрифты - Behance - Valentino Vergan - Brenzo Slab - 196664347 [EOT, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Brenzo - это современный геометрический шрифт с засечками, он поставляется с уникальными вариантами и креативными лигатурами. Основная идея Brenzo slab заключалась в том, чтобы добавить креативный штрих к стандартному дизайну шрифта с засечками, для достижения этой цели мы решили сделать засечки наклонными и сделать формы более геометрическими. Шрифт Brenzo Slab (   Читать дальше...   )Формат: EOT, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E480FF3D522745322714ED1AD5141ADC2128C20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 104503   (124485) от 11.10.2025
+
+Шрифты - Cottoc Fonts [TTF]
+
+>>След.
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Огромная коллекция разнообразных шрифтов. Теперь Вам не нужно ходить по разным сайтам, собирая по крупинкам шрифты, за Вас это сделали. В коллекции собраны лучшие шрифты, которые существуют на данный момент. Теперь Вы можете написать письмо любимому человеку почерком самого Пушкина. Или разыграть знакомых, отправив послание оформленное с помощью шрифта, который имитирует (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Частичная
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823316   (121649) от 11.10.2025
+
+Шрифты - MyFonts - Undergrunge Tornado [OTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это ещё один рисованный шрифт в стиле гранж, созданный мной маркером для постеров. Включает все расширения латиницы, кириллицу, а также японские хирагану и катакану. Шрифт полностью заглавный. Я нарисовал пару вариантов каждой буквы, затем выбрал один для строчных и один для заглавных, чтобы их можно было комбинировать для более плавного и естественного вида.Формат: OTF, WOFFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A9BAFD614FC12E150CBFD41B671E503589A7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823210   (121572) от 10.10.2025
 
 Шрифты - Creative Market - CS Garvey - Bold Font - 291711357 [OTF, TTF, WOFF, WOFF2]
@@ -6,7 +138,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -547,137 +679,6 @@ Astra — это изысканный геометрический шрифт б
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78CB2956A4217304F5D1F72F61E944B72D4FD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822698   (101651) от 07.10.2025
-
-Шрифты - Google - TypeTogether - Literata [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь, в третьей версии, Literata представляет собой отдельное семейство шрифтов для цифрового текста. Изначально созданный как фирменный шрифт для Google Play Books, он превосходит все требования, предъявляемые к удобству чтения на любом устройстве, с любым разрешением экрана и размером шрифта. Семейство превратилось в полноценный набор инструментов для цифровой (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C46948523B9582C82C81A1EF6757F8E4A6BD2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822701   (101626) от 08.10.2025
-
-Шрифты - Anastasia Karpova - Dazed and Condensed Bold [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dazed and Condensed - это модульный гротескный шрифт, вдохновленный виниловыми обложками 60-70-х годов, Вудстоком и всеми хиппи и рок-н-ролльщиками, которые выступали за любовь, мир и свободу. Шрифт получил свое название в честь фирменной песни Led Zeppelin “Dazed and Confused”, ставшей символом эпохи.
-На самом деле он “размытый и сжатый”, потому что шрифт сжатый. (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0435B486AF93A8F7D0138A5F9756B1A02000A611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822745   (101621) от 08.10.2025
-
-Шрифты - MyFonts - Burlesk [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burlesk — это современное семейство шрифтов, берущее начало с постера к индийскому фильму Болливуда 1950-х годов. Из 9 букв был создан полноценный алфавит, состоящий из 360 символов. Всё нарисовано вручную и впоследствии оцифровано. Семейство шрифтов Burlesk отвечает всем современным требованиям, предъявляемым к графическому дизайну. Не относитесь к нему слишком (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80464013BF57092905210BC86F362145F6468740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822770   (101608) от 08.10.2025
-
-Шрифты - MyFonts - Ice Cream [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ice Cream – это продукт заброшенной концепции шрифта – несвязанного шрифта для упаковки продуктов питания. Первоначальные образцы были настолько культовыми, настолько вдохновляющими, что требовали доработки. Извилистый, с изрядной долей веселья, честно говоря, и я бы не хотел ничего другого. На него сильно повлияли Kari и Juicy (и даже бесстыжие копии моих оригиналов, (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5776FFBBEE9B8DE64D29ED4F1339225ECF5328DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822704   (101603) от 08.10.2025
-
-Шрифты - MyFonts - Maksym Kobuzan - Segment A [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Segment A - это мощное отображаемое семейство шрифтов из 18 стилей, вдохновленных европейским гротеском 19-го века, но с четкими геометрическими пропорциями. Выполненные в черном цвете, формы букв вдохновлены агрессивным индустриальным графическим дизайном 1960-х и 70-х годов. Оба шрифта имеют 3 оси и регулируются по весу, ширине и 10-процентному выделению курсивом. (   Читать дальше...   )Формат: TTF, OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B175396F8773971B164D5690A3AD9B4A231349EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

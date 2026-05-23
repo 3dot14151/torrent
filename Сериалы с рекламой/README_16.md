@@ -1,3 +1,55 @@
+###  Публикация: 1130139   (664034) от 29.05.2017
+
+Сотня / The 100 (2017) WEBRip [H.264/1080p] (сезон 4, серии 1-13 из 13) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События в сериале начинают разворачиваться по прошествии девяносто семи лет после того как всю цивилизацию уничтожила страшная атомная война. Высоко в космосе на орбите Земли летает большой космический корабль, именно здесь находятся те, кто выжил после страшной катастрофы. Они единственные кто пережил этот ужасный катаклизм который устроило человечество. Именно (   Читать дальше...   )Производство: США / Bonanza Productions, Alloy Entertainment, Warner Bros. TelevisionЖанр: фантастика, драма, детективРежиссер: Дин Уайт, Эд Фрэйман, П.Дж. ПешеАктеры: Элиза Тейлор, Пейдж Турко, Боб Морли, Мария Авгеропулос, Девон Бостик, Кристофер Ларкин, Линдси Морган, Ричард Хэрмон, Зак Макгоун, Исайя Вашингтон, и др.Перевод: Многоголосый профессиональный - AMS (Adis Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:45:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2FF07E73AE9CCC343710A99B6554A619E55D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168995   (663566) от 12.05.2018
+
+Смертельное оружие / Lethal Weapon (2017) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-22 из 22) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Полицейский Мартин Риггз работает в Техасе, он весел, бесшабашен, счастливо женат и ждет рождения сына. Но по дороге в роддом его жена гибнет в ДТП, и Риггз превращается в сломленного человека, который искренне желает умереть, поскольку жить ему теперь незачем. Он переезжает в Лос-Анджелес, поступает в тамошнюю полицию и получает в напарники 50-летнего Роджера Мерту. (   Читать дальше...   )Производство: США / Good Session, Lin Pictures, Warner Bros. TelevisionЖанр: боевик, триллер, драма, криминалРежиссер: Стив Бойум, МакДжиАктеры: Клейн Кроуфорд, Дэймон Уайанс, Джордана Брюстер, Данте Браун, Джонатан Фернандес, Чандлер Кинни, Кевин Рам, Киша Шарп, Флориана Лима и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4BE8866F2BA28CDDB0E658F1F37B1A38F4D2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124840   (663006) от 30.05.2017
 
 Скандал / Scandal (2017) WEBRip [H.264/720p-LQ] (сезон 6, серии 1-16 из 16) AMS [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42599F237066B3238886268DE98565B36850B42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294208   (623734) от 10.04.2019
-
-Леденящие душу приключения Сабрины / The Chilling Adventures of Sabrina (2019) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-9 из 9) OMSKBIRD [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновленная версия приключений маленькой ведьмы Сабрины в виде тёмной истории взросления с элементами хоррора, оккультизма и ведьмовства. Сабрина пытается найти себя истинную между своими натурами смертной и ведьмы, при этом ей придётся противостоять злым силам, которые угрожают ей, её семье и всему миру людей.Производство: СШАЖанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Роб Шейденгланц, Мэгги Кили, Ли Толанд КригерАктеры: Кирнан Шипка, Росс Линч, Люси Дэвис, Чэнс Пердомо, Мишель Гомес, Джаз Синклер, Тати Габриэль, Аделин Рудольф, Ричард Койл, Миранда Отто и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: русские, английскиеПродолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF425E4D8C8AB12AB92C12F043DDB68E03D11C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035885   (622137) от 19.07.2016
-
-Очень странные дела / Загадочные события / Stranger Things (2016) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) ColdFilm [AD]
-
->>След.
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главное действие нового телевизионного сериала разворачивается в 80-х годах на территории тихого провинциального города. Благоприятное течение местной жизни нарушает загадочное исчезновение подростка по имени Уилл. Выяснить обстоятельства дела, полны решимости родные мальчика и местный шериф. Также события затрагивают лучшего друга Уилла – Майка. Он начинает собственное (   Читать дальше...   )Производство: США / 21 Laps Entertainment, Monkey Massacre, NetflixЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Мэтт Даффер, Росс Даффер, Шон ЛевиАктеры: Вайнона Райдер, Дэвид Харбор, Кара Буоно, Милли Бобби Браун, Наталия Дайер, Чарли Хитон, Калеб МакЛафлин, Ной ШнаппПеревод: Двуголосый любительский - ColdFilmЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серияРеклама: присутствуют аудио, видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54E316F4EED2B7BD37117153973A84C95580801
 ```
 
 https://mybot314.ru/tekegram_catalog/

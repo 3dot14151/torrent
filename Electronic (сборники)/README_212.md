@@ -1,3 +1,148 @@
+###  Публикация: 1743144   (105464) от 15.08.2024
+
+VA - Compilation part 113 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Jambeats - Hostage
+02. Akmalov - Limitless
+03. Akmalov - Daylight
+04. Hamidshax - Unstoppable(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745250   (105129) от 25.08.2024
+
+VA - TOP Non-Stop 2010-2019 - Deep House. Volume 6 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Frankman - Sunrise (2015) (6:03)
+02. Jose Padilla - Day One (2015) (6:07)
+03. Alex Niggemann - Boujuma (Matthias Meyer remix, 2012) (7:20)
+04. Groove Cartell - Waiting in Vain (Boddhi Satva Afriki soul remix, 2014) (6:01)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80F5C45EF1297AF4D22CF237C3E791327041C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822924   (104395) от 09.10.2025
+
+VA - Compilation Part 197 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 - Jumanov - Love’s a Game
+02 - Jumanov - Everything is Temporary
+03 - Jumanov - A Coincidence
+04 - Jumanov - Block Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899D43E662B82763A9D5C07B42A18338CDDC59A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822848   (104379) от 09.10.2025
+
+VA - Compilation Part 196 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 - Jumanov - Burn
+02 - Menda - Goodbay
+03 - Menda - Toxic
+04 - Jumanov - You Will(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CF3874BFCD5C239AF9AAC3D148EE0CA1549862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823006   (104375) от 09.10.2025
+
+VA - Compilation Part 198 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 - Riltim - Sweet Love
+02 - Umideep - I'm Sorry My Love
+03 - Umar Keyn - D’octobre
+04 - Rodle - Noches De Encanto(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2C65E0C249DC26F704F7CBD7AA71141E44838E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752000   (104007) от 28.09.2024
 
 VA - Vintage Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
@@ -6,7 +151,7 @@ VA - Vintage Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +180,7 @@ Hamidshax - Compilation Cd 4 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +209,7 @@ Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Beautiful Dubstep v.3 (2012) [MP3|256-320 кб/с]<Dubstep/Chillout/Longe>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -128,7 +273,7 @@ VA - Compilation Part 195 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -157,7 +302,7 @@ Adex - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -186,7 +331,7 @@ DIAZZA - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +360,7 @@ VA - 60 minutes. Old School Dance Music vol.27 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +389,7 @@ Sardø - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +418,7 @@ RetroX - Favorites Collection - Favorites Collection (2025) [MP3|320 Kbps] <Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -302,7 +447,7 @@ R. Armando Morabito - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -331,7 +476,7 @@ VA - Compilation part 135 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -360,7 +505,7 @@ VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -389,7 +534,7 @@ VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +569,7 @@ VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -459,7 +604,7 @@ VA - The Dance Cube XXXXIII (3 CD) (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -494,7 +639,7 @@ VA - Sense Of Trance #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +674,7 @@ VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,7 +709,7 @@ VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,7 +744,7 @@ VA - Kiss FM - Top-40 (10.04.2012) [MP3|320 кб/с]<Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -634,7 +779,7 @@ VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -654,181 +799,6 @@ VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:810F0A85457C36B5286E1D62A0177EF06CD40C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482292   (99707) от 15.04.2012
-
-VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.T.K. - Eternya 09:44
- 02. Prahlad - Shantified (Smoke Sign rmx) 07:24
- 03. Pop Art - Declaration Of A Nation 07:44
- 04. Funk Truck - Overall (original mix) 07:39
- 05. Ace Ventura - Genesis (Flegma & Nerso remix) 07:01
- 06. Zyce & Nok - Wonderland (Unseen Dimensions remix) 07:17
- 07. Unseen Dimensions - Airglow 06:42
- 08. Gandulk & Odiseo - Time To Listen 07:39
- 09. North Sector - Raw 06:56
- 10. Flegma & Nerso - Sensei 07:56(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482288   (99693) от 15.04.2012
-
-VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frost Raven - Points of Interest (Nimerix's Fullon mix) 08:20
- 02. Hanzo - My World 06:08
- 03. Shyisma - Slot 06:58
- 04. Virtual Attack - Can't Stop 06:57
- 05. Solar Spectrum - Space Travellers 07:26
- 06. Day.Din - The Radio Star (original mix) 07:17
- 07. Project Sketch - With A Herring 08:02
- 08. Vice - With In (Phaxe Remix) 08:00
- 09. DNA - Signal 5 (original mix) 07:08
- 10. Potter And Neelix - On The Run (Fusi And Johnson remix) 08:13(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481321   (99328) от 12.04.2012
-
-VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orion Signs - I Believe In Other Earth 08:25
- 02. Aviron - Tonal (original mix) 07:08
- 03. Smoke Sign - Out Of Body (original mix) 07:41
- 04. Interactive Noise And Fabio And Moon - Coming Home Late 06:56
- 05. Elevated Mix - Humidity Gro 07:23
- 06. Principles Of Flight - Sputnik (White Russian edit) 07:44
- 07. Inner Peace - Nothing Really Dies 06:46
- 08. Rocky - Largetto (Gaudium remix) 07:45
- 09. Felucia - Fly In The Sand 08:40
- 10. Dimension X - Eyeless 11:30(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479095   (99284) от 11.04.2012
-
-Various Artists - Tranceffect 9 (2011) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto Vs Bastian - Dark Side of the Moon ({am} Extended Mix)
- 02. Max Denoise - Sestrelia ({am} Extended Mix)
- 03. Sunny Lax - Viva La Revolucion
- 04. Faruk Sabanci feat. Antonia Lucas - No Way Out (Temple One Remix)
- 05. Akira Kayosa & Hugh Tolland Feat Stine Grove - Always With You ({am} Extended Mix)
- 06. Chakra - Love Shines Through ({am} Extended Mix)
- 07. Federation - Innocent Desire (Phil Taylor Remix)
- 08. Jordan Suckley - Flames (Sneijder 1AM Remix)
- 09. Etasonic - One Thousand Miles To Moscow ({am} Extended Mix)
- 10. DJ Dani & Luke Terry - Hope Is Gone(   Читать дальше...   )2011Жанр: Trance, Vocal TranceПродолжительность: 04:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91C67319043AAC00491FC859A08AB2FD952FC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479991   (99100) от 09.04.2012
-
-VA - In Da Club Vol.60 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99100.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Signum - Shamisan (Shogun Remix)
- 002. Sean Tyas - Banshee
- 003. Rafael Frost - Smash (Original)
- 004. Veracocha - Carte Blanche (Alex M.O.R.P.H. Remix)
- 005. Vertruda - Night Highway (Original)
- 006. The Waves - Sakura (Luigi Lusini & Thomas Schwartz Mix)
- 007. Pulser - In My World (Activa Remix)
- 008. Orjan Nilsen - Shoutbox! (Cressida Remix)
- 009. Ruben de Ronde - Forever In Our Hearts (Danny Chen Remix)
- 010. Ray Costa - Rainy Days (Original)(   Читать дальше...   )2012Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB593E61996F2E170A1C6501DBDBB031BF40728
 ```
 
 https://mybot314.ru/tekegram_catalog/

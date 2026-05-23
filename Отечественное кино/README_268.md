@@ -1,3 +1,108 @@
+###  Публикация: 1799070   (17078) от 25.05.2025
+
+Точка опоры (2024) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Успешный кинохудожник планирует поехать в родной город на свадьбу к сестре в сопровождении кинозвезды. Своим приездом он собирается унизить ненавистного ему жениха — толстяка и бездельника Шурика. Однако ссора с актрисой рушит не только все его планы, но и в корне меняет жизнь.Производство: Россия / TRI A Film Production CompanyЖанр: драма, мелодрамаРежиссер: Александр АндреевАктеры: Гела Месхи, Илья Борисов, Артём Быстров, Евгения Симонова, Юлия Шубарева, Мария Лопатина, Полина Маликова, Васса Бокова, Светлана Щедрина, Кирилл ПолухинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD598CA3B7E575E2B25C48BB81F32801AC4B454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798886   (17073) от 25.05.2025
+
+Слишком хорошая Анна и еще три истории о нас (2025) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Четыре истории о человеческих отношениях и сложном выборе, от которого зависят жизни людей.Производство: РоссияЖанр: Драма, комедияРежиссер: Яна Климова-ЮсуповаАктеры: Агата Муцениеце, Рената Пиотровски, Марьяна Спивак, Дмитрий Лысенков, Анна Александрова, Ольга Карпуть,  Дарья Екамасова, Юрий Назаров, Алёна БабенкоСубтитры: отсутствуютПродолжительность: 01:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B133FD1143DDFFD0B9C9D79D7E00EB8B7324C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799095   (17026) от 25.05.2025
+
+Тайна печати дракона (2019) WEBRip [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Английский путешественник Джонатан Грин получает от Петра I заказ на изготовление карт Дальнего Востока России. Ему вновь предстоит долгий путь, полный невероятных приключений, который приведет его в Китай. Картограф столкнется с массой головокружительных открытий, неожиданных встреч с диковинными существами, китайскими принцессами, мастерами смертоносных боевых (   Читать дальше...   )Производство: Россия, Китай / Aldamisa Entertainment, CTB Film Company, China Film Group Corporation (CFGC)Жанр: приключения, фэнтезиРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Арнольд Шварценеггер, Чарльз Дэнс, Джеки Чан, Яо Синтун, Кристофер Фэйрбэнк, Рутгер Хауэр, Мартин Клебба, Юрий Колокольников, Павел ВоляПеревод: Дублированный (СинеЛаб СаундМикс)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C6991F664F44FECB09BC3F566AF2F6D42B0106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799100   (17004) от 25.05.2025
+
+У ангела ангина (2018) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам повести Вадима Шефнера «Сестра печали».
+Бывшему детдомовцу Толе Ковригину по кличке Чухна – 18 лет. Он и его друзья, Костя Синявый и Володя Шкилет, живут в одной комнате на Васильевском острове в самом прекрасном городе на земле - Ленинграде. Синявый любит кутить и флиртовать с девушками, которых называет «кошки- милашки». Шкилет пишет стихи и мечтает (   Читать дальше...   )Производство: Россия | «ВайТ Медиа», «Централ Партнершип»Жанр: МелодрамаРежиссер: Оксана КарасАктеры: Семён Трескунов, Мария Крылова, Евгений Цыганов, Николай Фоменко, Данил Стеклов, Василий Буткевич, Таисия Вилкова, Ирина Пегова, Юлия Ауг, Александр ЯценкоСубтитры: ОтсутствуютПродолжительность: 01:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC01829ACFCB0244B5E1AD8AB1AE0231AE105D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799151   (17000) от 25.05.2025
 
 Встреча на встречке (2024) WEBRip [H.264/1080p] (серии 1-2 из 2)
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AA42A3A5D481BB0FDC2DA0E290C712ACFDEFAB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806257   (11846) от 11.07.2025
-
-Натурщица (2007) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она была светской львицей. Художники писали ее портреты, а поэты посвящали стихи. Но сейчас Софья Пшебышевская приезжает в Тифлис в компании господина Эшенбаха, который подчеркнуто сдержан и даже холоден. Их взаимотношения - словно сжатая пружина, готовая лопнуть в любой момент. Вот только когда это случится? Драма столкновения двух миров, где фоном служат события (   Читать дальше...   )Производство: Россия / РоссфильмЖанр: ДрамаРежиссер: Татьяна ВоронецкаяАктеры: Виктория Толстоганова, Даниил Спиваковский, Николай Фоменко, Даниил Страхов, Виталий Егоров, Татьяна Кравченко, Людмила Полякова, Марк Рудинштейн, Марина Орлова, Мария ЛеоноваСубтитры: отсутствуютПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCA6CA0200502585CB9F1D7D65E8249C66055EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806217   (11801) от 11.07.2025
-
-Правильный (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагедия на ночной дороге оказывается под взором невидимого наблюдателя, который толкает ее виновника на судьбоносную дуэль.Производство: РоссияЖанр: короткометражный, триллер, драмаРежиссер: Рустам БекмуратовАктеры: Николай Киселёв, Алексей Савченко, Наталья Киселёва, Александр Баринов, Николай Онищук, Григорий Кузнецов, Игорь Рагнар, Роман СадовПродолжительность: 00:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE953DEDA50AC743D17E86218446B73E4F0A166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806236   (11799) от 11.07.2025
-
-Последняя жертва (2024) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий парень с маниакальными наклонностями знакомится в интернете с очередной очаровательной девушкой. Но в какой-то момент ситуация выходит из-под контроля.Производство: РоссияЖанр: короткометражный, триллерРежиссер: Милана ГасановаАктеры: Рамазан Баратов, Милана Гасанова, Константин Пателицин, Игорь Андреев, Роман Кустов, Николай Косенко, Валерия Твердохлебова, Мария Лях, Маргарита Ямпилец, Анастасия ПисареваПродолжительность: 00:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0301E3C33CE613B9B7D88E878AE809B95DF03EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806378   (11723) от 12.07.2025
-
-Жили-были (2017) WEBRip [H.265/2160p] [4K, HDR, 10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старинная деревня в русской глубинке. Из жителей только два одиноких немолодых мужчины и внезапно овдовевшая женщина. Один из друзей решает, что пора завязывать с одиночеством и собирается предложить вдове руку и сердце. Но второй мужчина в корне с этим не согласен и тоже претендует на вакантное место. Лучшие друзья объявляют друг другу войну.Производство: Россия / Продюсерский центр Фёдора ДобронравоваЖанр: Комедия, драмаРежиссер: Эдуард ПарриАктеры: Фёдор Добронравов, Ирина Розанова, Роман Мадянов, Виктор Супрун, Владимир Капустин, Альбина Евтушевская, Алексей Ведерников, Ирина Сойкина, Владимир КарповСубтитры: ОтсутствуютПродолжительность: 01:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E063346FC7ED45A27B106414DA7B1221AE4ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

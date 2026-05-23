@@ -1,111 +1,3 @@
-###  Публикация: 1379204   (243691) от 04.08.2022
-
-Андрус Кивиряxк | Весна и Какашка (2010) [FB2, PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243691.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детских книжках обычно принято рассказывать про милых мишек, весёлых зайчат и шустрых мышек. В новом детском сборнике Андруса Кивиряхка «Весна и Какашка» подобных славных зверушек нет. Вместо этого читателя ждёт встреча с романтической Какашкой, загорелой Сосиской, Жуткой Жвачкой, с Папиными Носками, которые высиживают яичко, с Дурной Курткой и Ложкой-пиратом, (   Читать дальше...   )Жанр: СказкиФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846F3F66ACA276AD607A075E5C375C554C207F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076847   (243525) от 26.11.2016
-
-Али Саттар Атакишиев | Приключения Ибрагима (1970) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие юные друзья!
-Многие из вас видели фильмы-сказки «Волшебный халат» и «Тайна крепости». Некоторые, возможно, знают и детективно-приключенческий фильм «Следствие продолжается». Режиссёром всех этих кинокартин был заслуженный деятель искусств Азербайджана Али Саттар Атакишиев.
-Атакишиев имеет несколько специальностей. Начал он свою деятельность как художник. (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5710C28A0268672883BB9A694077ED2FD907FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352817   (243301) от 15.01.2020
-
-Гордон Корман | Рестарт (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чейз не помнит, зачем он полез на крышу, как и почему с нее упал. Просто в один прекрасный день он очнулся в больничной палате среди абсолютно незнакомых людей: мамы, брата, врача – и узнал от них, что его зовут Чейз Эмброз. Все, что произошло с ним за тринадцать лет жизни, словно корова языком слизала.
-Теперь ему предстоит узнать, что он за человек. Что любит, с (   Читать дальше...   )Жанр: Проза для детей, книги для подростковФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6355C73C6AC93A203546A601EA297603A625A2AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539912   (243192) от 27.03.2022
-
-В.Г. Дмитриева (сост.) | Чи-та-ю са-ма по сло-гам. Книга сказок для девочек (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга сказок для девочек – это первые уроки самостоятельного чтения. Крупные буквы, слова, разбитые на слоги, и знаки ударения помогут вашему ребёнку перейти от слогового чтения к чтению целыми словами и предложениями.
-Научиться читать можно легко и с удовольствием!Жанр: Детская литература, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372A01D7341E5B58FB47A1996E81D3503D2A0762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457242   (243013) от 25.03.2021
 
 Джессика Таунсенд | Невермур. Вундермастер. Призвание Морриган Кроу. Книга 2 (2018) [FB2, EPUB, MOBI]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -141,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_242950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -170,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -197,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -224,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -251,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -278,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -305,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -331,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -357,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -409,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -435,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -461,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -487,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -514,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -541,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -568,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -594,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -621,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -650,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -676,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -688,6 +580,117 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D31392BE6D1D4C449458D4372332499AD33499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546276   (241762) от 23.04.2022
+
+Геннадий Снегирёв | Верблюжья варежка (1977) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Мама не пускает ребёнка гулять, так как на улице холодно, а на вторую варежку не хватило шерсти. Но вот привезли на верблюдах дрова, и оставили на 5 минут животных без присмотра...
+Для детей дошкольного возраста. Иллюстрации Т.Соловьёвой.Жанр: РассказФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F218972A1C9603029C9766727D39B823646415BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546300   (241723) от 23.04.2022
+
+Татьяна Бокова | Силач маленького роста (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Откройте для маленьких «почемучек» огромный мир крохотных существ, на которых они всегда обращают внимания! Почему муха – вежливая, а раки – забияки? Куда спешит улитка, и кто напугал червячка? Бабочка, божья коровка, паук…
+Великолепные панорамные иллюстрации и мгновенно запоминающиеся стихи не оставят малышей равнодушными.Жанр: Детская литература, СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0263B0740D4D67D233BF861636A2C2219419E010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546347   (241706) от 23.04.2022
+
+Мэдди Мара | Девочки-драконы. Азмина – Сверкающий Золотой Дракон. Книга 1 (2022) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+МЫ – ДЕВОЧКИ-ДРАКОНЫ! СЛЫШИШЬ НАШ РЁВ?
+Азмина, Уилла и Наоми были рады узнать, что они – девочки-драконы с невероятными способностями. Они могут парить над верхушками деревьев, выдыхать сверкающие вспышки огня и рычать так громко, чтобы сотрясалась земля!
+Волшебному Лесу нужна помощь, поэтому Древесная Королева призывает защитниц, чтобы раз и навсегда избавить его (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: А. НеплюеваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63084664D3C1F9C12596C88AE7384B4201E9203C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546542   (241661) от 24.04.2022
+
+Георгий Ладонщиков | Заиграла балалайка (1959) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Заиграй-ка, балалайка,
+Балалайка - три струны!
+Подпевайте, не зевайте,
+Выходите, плясуны!(   Читать дальше...   )Жанр: ЧастушкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3290AF401927424B9E014D853B0F545E2CF94AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

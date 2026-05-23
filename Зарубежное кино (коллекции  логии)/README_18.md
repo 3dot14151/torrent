@@ -1,3 +1,55 @@
+###  Публикация: 202200   (313432) от 06.11.2018
+
+Крёстный отец - трилогия / The Godfather - Trilogy (1972-1990) [H.264] BDRip
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Криминальная сага, повествующая о нью-йоркской сицилийской мафиозной семье Корлеоне. Фильм охватывает период 1945-1955 годов. Глава семьи, Дон Вито Корлеоне, выдаёт замуж свою дочь. В это время со Второй мировой войны возвращается его любимый сын Майкл. Майкл, герой войны, гордость семьи, не выражает желания заняться жестоким семейным бизнесом. Дон Корлеоне ведёт (   Читать дальше...   )Жанр: Криминал, Драма, БоевикРежиссер: Френсис Форд КопполаАктеры: Аль Пачино, Дайан Китон, Талия Шайр, Энди Гарсиа, Эли Уоллах, Джо Мантенья, Джордж Хэмилтон, Бриджит Фонда, София Коппола, Раф ВаллонеПеревод: Профессиональный (двухголосый), Профессиональный (многоголосый, закадровый), Авторский (Живов Юрий)Язык субтитров: Russian, EnglishПродолжительность: 02:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E498982D1CC080507802C4C918751169BDE43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332705   (306554) от 23.10.2019
+
+Риддик / Riddick (2000-2013) BDRip [H.265/1080p] [10-bit] [Режиссерская версия] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Межгалактический грузовой корабль попадает в метеоритный дождь и падает на близлежащую маленькую планету, которая представляет собой выжженную рыжую пустыню и камни. Немногие выжившие пассажиры корабля, а среди них - члены экипажа Кэролайн и Джонс, а также - переправляемый на другую планету беглый преступник Ричард Риддик, обнаруживают, что в атмосфере маленькой (   Читать дальше...   )Производство: США, Австралия, Канада / Polygram Filmed Entertainment, Interscope Communications, Universal Pictures, Radar Pictures, One Race Productions, Riddick Canada Productions, Entertainment OneЖанр: фантастика, боевик, триллер, приключения, ужасыРежиссер: Дэвид ТуиАктеры: Вин Дизель, Рада Митчел, Коул Хаузер, Кит Дэвид, Льюис Фитц-Геральд, Клаудия Блэк, Джон Мур, Саймон Бурк, Лес Чэнтери, Рик Андерсон, Колм Фиор, Тэнди Ньютон, Джуди Денч, Карл Урбан, Алекса Давалос, Лайнас Роуч, Йорик ван Вагенинген, Ник Чинланд, Кит Дэвид, Хорди Молья, Мэттью Нэйбл, Кэти Сакхофф, Дэйв Батиста, Букем Вудбайн, Рауль Трухильо, Конрад Пла, Дэнни БланкоПеревод: Дублированный, многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:51:55 / 02:14:05 / 02:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFB00825DC666E48F1FCDF276CED31940B9A866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590004   (302577) от 25.10.2019
 
 Планета обезьян: Пенталогия – 40 лет эволюции / Planet of the Apes: 40-Year Evolution Collection (1968-1973) [1080p] BDRip
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_278065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -630,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F0E679DF0E29DF137945D105426E7D242347D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445872   (274956) от 27.11.2018
-
-Миллениум: Трилогия Девушка с татуировкой дракона / Девушка, которая играла с огнем / Девушка, которая взрывала воздушные замки / Man som hatar kvinnor / Flickan som lekte med elden / Luftslottet s ...
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микаэль Блумквист — талантливый журналист, который верой и правдой добивается справедливости в самых скандальных делах — неожиданно терпит фиаско в своей деятельности, в результате чего вынужден отбыть срок лишения свободы.
-В то же время влиятельный человек Хенрик Вангер поручает ему дело о пропаже его племянницы, которая таинственным образом исчезла из имения Вангеров, (   Читать дальше...   )Жанр: Триллер, Детектив, КриминалРежиссер: Дэниэл Альфредсон / Daniel AlfredsonАктеры: Микаэл Нюквист, Нуми Рапас, Лена Эндре, Анника Халлин, Джейкоб Эрикссон, София Ледарп, Андерс Албом, Георги СтайковПеревод: Профессиональный (многоголосый закадровый)Субтитры: Русские
-АнглийскиеФормат: MKVПродолжительность: 02:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAF6AFBA4CF3693B3A2C7418FDB553AA263D794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849313   (274712) от 17.12.2014
-
-Затоичи: Слепой Фехтовальщик / Zatoichi: The Blind Swordsman (1962-2003) BDRip [H.264/720p-LQ]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слепого массажиста Затойчи нанял Сукедзоро Ииока, считая, что сражение с его соперником Сигезо Сасагава неизбежно. Затойчи — известный фехтовальщик, и Сукедзоро считает, что он удачно вложил свои деньги. Его противник нанял ронина Мики Хиратэ, не менее известного мастера меча. По стечению обстоятельств между этими двумя фехтовальщиками появляется дружба и взаимное (   Читать дальше...   )Жанр: Боевик, Драма, ПриключенияРежиссер: Токуцо Танака, Кенжи Мисуми, Кимиёси Ясуда, Шинтаро Катцу,  Такеши КитаноАктеры: Шинтаро Катцу, Шигеру Амачи, Масяо Банри, Руюзо Шимада, Ейджиро Янаги, Такеши КитаноПеревод: Одноголосый закадровый, любительский - RussianGuy27Язык субтитров: АнглийскийПродолжительность: 27 x ~ 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77A4F81C28927F9C2943FF304885196795BB465
 ```
 
 https://mybot314.ru/tekegram_catalog/

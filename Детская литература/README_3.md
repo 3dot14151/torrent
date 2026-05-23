@@ -1,107 +1,3 @@
-###  Публикация: 1430007   (1031840) от 13.02.2021
-
-Энид Блайтон | Цикл: «Школа в Сент-Клэр» [5 книг] (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Изабель и Патриция О’Салливан, сёстры-близняшки, в отчаянии: родители переводят их в другую школу! Девочки, привыкшие к комфортной жизни в прежнем, элитном, учебном заведении, сами не заметили, как превратились в избалованных, возомнивших о себе невесть что эгоисток. Ох и непросто же придётся им в новой школе! Сумеют ли Изабель и Патриция найти там друзей? Какие (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Алена Щербакова, Мария ТорчинскаяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFEE4D1278A9BE843FB0276F5FF1090D5920403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447738   (1031689) от 14.02.2021
-
-Алла Озорнина | Ты – в игре! и другие ужасные истории (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу известной писательницы Аллы Озорниной «Ты – в игре! и другие ужасные истории» вошли две повести: «Страшная тайна смартфона» и «Ты – в игре!». Никита живет самой обычной жизнью в поселке Березовка в Забайкалье. Он самый неприметный мальчишка в классе, про него даже не сплетничают. Этим Никита и гордится. Однажды у него оказывается странный смартфон со встроенной (   Читать дальше...   )Жанр: Повести и рассказы, Мистика, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00349D0287B4427AA6B86A81F08332BB5AABFC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448021   (1031163) от 16.02.2021
-
-Протоиерей Григорий Дьяченко | Искра Божия. Сборник рассказов и стихотворений для чтения в христианской семье и школе для девочек (2018) [PDF, FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга является переизданием вышедшего в 1903 г. популярного сборника «Искра Божия», составленного известным духовным писателем, протоиереем Григорием Дьяченко. «Искра Божия» ориентирована на религиозно-нравственное воспитание девочек, девиц и жен и явилась первым в российской педагогической литературе опытом создания собственно книги для девочек. Её цель (   Читать дальше...   )Жанр: Православие. Проза. Поэзия. Духовно-просветительное изданиеФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9681AF48C9AA96EFAA99FEC82753144B65626FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449206   (1030248) от 20.02.2021
-
-Лора Оуэн, Корки Пол | Весёлые приключения ведьмочки Винни. Восемь волшебных историй в одной книге (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты уже знаком с ведьмочкой Винни и её чёрным котом Вильбуром? Винни обожает лежать на волшебном гамаке у себя в саду, лакомиться тортом «Чёрный лес» и смотреть в телескоп на звёзды. Вильбур любит чизкейк и свою корзинку, где он спит, свернувшись клубочком. И, конечно же, с этой парочкой никогда не бывает скучно. Стать дизайнером одежды, поучаствовать в футбольном (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEB149B480E50400EC790515190CC6E2DA47951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623219   (1029614) от 31.03.2023
 
 Алан Дин Фостер | Затерянная Динотопия (2007) [FB2]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -592,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -645,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -671,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -682,6 +578,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F672998E9C3749F4C3EACAEB1E94BBF6734E8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455196   (1025834) от 18.03.2021
+
+Софья Прокофьева | Лоскутик и Облако (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Весёлая и поучительная сказка Софьи Прокофьевой «Лоскутик и Облако» познакомит читателей с очаровательной девочкой по имени Лоскутик и её другом Облаком. Их дружба и самоотверженность спасла целый город от козней злого короля, который захватил себе источник воды и продавал её людям!
+Книга выходит с новыми иллюстрациями Натальи Салиенко.
+Для среднего школьного возраста.Жанр: Сказки, Приключения для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B728C0C8E26870D7C09634D0CDE13DB0B609956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455337   (1025830) от 18.03.2021
+
+Сергей Михалков | Читаем сами без мамы. Три поросёнка (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга С. Михалкова «Три поросёнка» отлично подойдёт для первого самостоятельного чтения. Три розовых поросёночка и другие герои сказок научат детей бегло читать, ведь в книге большие буквы, слова с ударениями и много цветных иллюстраций. Книжки серии «Читаем сами без мамы» можно взять с собой в дорогу, на прогулку и читать вместе с друзьями!
+
+Для дошкольного возраста.Жанр: Детская литература/СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C3796BE37692C31CE2901B13A1697F47741BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455895   (1025487) от 20.03.2021
+
+Джоэль Чандлер Харрис | Я читаю сам! Сказки дядюшки Римуса (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Добрый дядюшка Римус расскажет ребятам весёлые сказки о похождениях неунывающего Братца Кролика. Никто из зверей, даже сам Братец Лис, не мог потягаться с ним в хитроумии!
+
+"Сказки дядюшки Римуса" американского писателя Дж.Ч. Харриса - классика мировой детской литературы. Забавные истории сопровождаются крупными цветными иллюстрациями. Книга отлично подходит (   Читать дальше...   )Жанр: Детская литература/СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5E03090A26469A1E52415F5D2E552EC94ECFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455802   (1025449) от 20.03.2021
+
+Аркадий Гайдар | Тимур и его команда. Все произведения для детей (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Аркадий Гайдар рассказывает жизненные истории о войне, о подвиге, об отваге, о людях, которые делают свое дело и помогают родине, как умеет только он. Тимур, Мальчиш-Кибальчиш, Чук и Гек, Сережа из «Судьбы барабанщика» – имена героев давно стали именами-символами, знаковыми для страны и эпохи. Меняются политические декорации, совершенствуется техника, наука завоевывает (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3211C19CFD70A2BE0AE4FE67E008AE029244A7C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

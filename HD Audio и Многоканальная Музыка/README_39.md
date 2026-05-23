@@ -1,3 +1,102 @@
+###  Публикация: 569449   (388996) от 06.11.2012
+
+Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Alternative Rock, Brit Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Hello 3:21
+02. Roll With It 3:59
+03. Wonderwall 4:18
+04. Don’t Look Back In Anger 4:47
+05. Hey Now! 5:41
+06. Swamp Song #1 0:44
+07. Some Might Say 5:28
+08. Cast No Shadow 4:51
+09. She’s Electric 3:39
+10. Morning Glory 5:03(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6187815C96657727BA20A817577F38B471779E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 718427   (387809) от 04.11.2013
+
+Genesis - ...Calling All Stations... (1997) Europe/2007 Reissue [FLAC 5.1 24/88,2|Image+cue (SACD-R)]<Progressive Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Calling All Stations - пятнадцатый и последний студийный альбом британской прогрок-группы Genesis, выпущенный 2 сентября 1997 года. Группа лишилась в конце концов и второго в своей истории вокалиста Фила Коллинза, так что на этот раз их осталось двое - Майк Ратерфорд и Энтони Бэнкс. Коллинз был не только прекрасным вокалистом и барабанщиком, но он еще и песни писал (   Читать дальше...   )01.  Calling All Stations  :: 05:45
+02.  Congo  :: 04:52
+03.  Shipwrecked  :: 04:24
+04.  Alien Afternoon  :: 07:53(   Читать дальше...   )Жанр: Progressive Rock, Pop RockФормат: SACD, Album, Hybrid, ReissueПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A377301DE424163F43ACE17D91F90E45F1E903E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570577   (387342) от 07.11.2012
+
+Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acoustic Guitar>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Just Like Love
+02. Angel
+03. Youngstown
+04. Old Crow
+05. Dead Man’s Handle
+06. Jennie Mae
+07. Brother Mule
+08. Sunday Best
+09. The Dirt
+10. Lord Franklin(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:64:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924836D0767049A6BA00D4958ACAB9BFC90AC248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570603   (387222) от 07.11.2012
 
 Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
@@ -6,7 +105,7 @@ Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -41,7 +140,7 @@ Los Angeles Guitar Quartet - LAGQ’s Guitar Heroes (2004) [DST 5.1, 2.0 1bit/28
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -76,7 +175,7 @@ Meat Loaf - Bat Out Of Hell (1977) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Hard Ro
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +209,7 @@ Los Angeles Guitar Quartet - Spin (2006) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +244,7 @@ Bon Jovi - This Left Feels Right (2003) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<х
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +279,7 @@ Los Angeles Guitar Quartet - LAGQ Latin (2002) [DSD 2.0 / DST 5.1|1bit/2822,4kHz
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +314,7 @@ Bob Dylan - Limited Edition Catalog Box Set (2003 Remaster) (1963-2001) [DST 5.1
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +343,7 @@ Yello - Toy (2016) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Pop>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +372,7 @@ Yujiro Mabuchi '68 All Stars - Okizari Ni Shita Kanashimi Wa / Soshun No Minato 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +488,7 @@ VA - Folk Rock Collection 1965 - 1975 (2022) Compilation, Unofficial Release [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +517,7 @@ VA - Рок-панорама-87 (1988) 3LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +575,7 @@ VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Sound
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +604,7 @@ VA - Шедевры инструментальной музыки части 1 -
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +662,7 @@ Johann Sebastian Bach–Piano concertos: BWV1061,BWV1060,BWV1062 Zoltan Kocsis, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +692,7 @@ Dan Spătaru/Дан Спатару – Песни Из Кинофильма «П
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,7 +721,7 @@ This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +747,7 @@ The Doors - The Doors (1967) Reissue /1980, Warner Pioneer / [FLAC 2.0 24/96|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -677,7 +776,7 @@ Rockets - Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -691,93 +790,6 @@ A4. Hypnotic Reality (3:51)(   Читать дальше...   )Производ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28A04B4CBBA2C61FA374EF435B0324396B7E4409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719412   (371657) от 11.11.2013
-
-Inside The Music: New Age (2001) [DTS 5.1|44.1/16|wav+.cue|DVD-Audio] <new age>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. "Here Comes The Night" - 3rd Force 06:22
-2. "Bandalero" - Neal Schon 04:53
-3. "Cielo Sin Nubes" - Lara & Reyes 03:55
-4. "Blue Universe" - Craig Chaquico 05:15(   Читать дальше...   )Жанр: new ageПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378118D83235952AF405E6735CB603643CB21189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719362   (371489) от 11.11.2013
-
-Blackfield - Blackfield IV (2004) [DTS 5.1|44.1/16|.wav+.cue (DVD-Audio)] <art rock, pop rock, progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pills
-2. Springtime
-3. X-Ray (featuring Vincent Cavanagh - Anathema)
-4. Sense of Insanity(   Читать дальше...   )Жанр: Art rock, pop rockПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153A677E00E5CB92318C5E7C0D8BB68AE8131FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415819   (371435) от 14.10.2020
-
-Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371435.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Мисс Мелодия = Miss Melodia
-A2 Следи За Своими Шагами = Follow Your Steps
-A3 Время Должно Измениться = Time Must Be Changed
-B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1193867   (173824) от 23.12.2017
+
+Запрет (2015) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+История любви итальянского офицера Джакомо и православной послушницы Лоры. Идёт война, и на любовь наложен запрет. Джакомо — итальянец, и он — враг! Так рассуждает обожженный войной, непримиримый к врагу русский капитан Георгий, от любви к которому тает сердце монахини Пелагеи. Их будет четверо, загнанных войной на маленький каменный остров в Ладоге. Они все здесь, (   Читать дальше...   )Производство: РоссияЖанр: Драма, военный, историяРежиссер: Алексей КозловАктеры: Наталья Ткаченко, Анна Молчанова, Джулиано ди Капуа, Сергей Яценюк, Георгий Тараторкин, Валентина Панина, Сергей Жукович, Мария Рочева, Ирина Обрезкова, Дмитрий КочкинСубтитры: Русские (на итальянскую речь)Продолжительность: 01:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C77CC75D324BEDBC36F49C5AF21BCC2F2428E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515098   (173810) от 05.12.2021
+
+Как разжечь потухший огонь (2021) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Трагикомедия об эксцентричном изобретателе Валентине, который пытается вернуть пламя чувств в совершенно остывшие отношения с возлюбленной, но крайне необычным способом.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Сергей ФилатовАктеры: Кирилл Фролов, Аглая Тарасова, Антон Филипенко, Инар НарманияСубтитры: ОтсутствуютПродолжительность: 00:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1101E58831466E3DD5DE727C86744C39E9C5C95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827142   (173409) от 20.10.2025
+
+Убийство на «Ждановской» (1992) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета - событие, нашумевшее в свое время не без стараний 'четвертой власти' (то есть прессы), которая, когда ей разрешают сверху, работает в нашей стране не хуже, чем на Западе. Немалую лепту внес и следователь Владимир Калиниченко, занимавшийся расследованием убийства сотрудника КГБ сотрудниками милиции и рассказывавший при первой возможности о том, какую (   Читать дальше...   )Производство: Россия | Киностудия им. ГорькогоЖанр: КриминалРежиссер: Суламбек МамиловАктеры: Иван Бортник, Александр Мартынов, Борис Новиков, Владимир Ивашов, Вадим Захарченко, Владимир Земляникин, Раиса Рязанова, Антон Голышев, Люсьена Овчинникова, Анатолий ИвановСубтитры: ОтсутствуютПродолжительность: 01:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC92606E5CC7AFC575441F95AE49022524945351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669178   (172969) от 15.10.2023
+
+Тренер (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бывший яхтсмен-олимпиец работает тренером в обычной Детско-юношеской спортивной школе небольшого приморского города... Но накануне чемпионата России ему поступает выгодное предложение от серьёзного олигарха перейти на работу капитаном его яхты с перспективой возглавить коммерческую команду по яхтингу. Откажется ли тренер от своих подопечных ради шанса изменить жизнь?Производство: Россия / New Film Production, ЕвроМедиаЖанр: Короткометражный, драмаРежиссер: Анастасия КлинковаАктеры: Евгений Климанов, Николай Ханжаров, Александр Елезов, Владимир Добрицкий, Михаил ГоревойСубтитры: отсутствуютПродолжительность: 00:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDDD143BB7D563DE5BC06B792F97E2B8F8CF2B7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669155   (172958) от 15.10.2023
 
 S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip
@@ -6,7 +110,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +137,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [VP9/2160p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +609,7 @@ F20 (2022) WEBRip [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51E41EDA94984FA15A2639E22797AF36622D1B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641946   (169768) от 27.10.2023
-
-72 часа (2015) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169768.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом начале Великой Отечественной войны крохотный городок Ставрово оказывается в эпицентре большой истории. Его расположение, близость линии фронта, железная дорога, перекресток нескольких дорог привели в город крупный гарнизон немцев. Но в городе действует подполье, состоящее, в основном, из вчерашних школьников. Это история противостояния двух молодых людей, (   Читать дальше...   )Производство: Россия / Киностудия Соль, Продюсерская компания Николая РасторгуеваЖанр: военный, драмаРежиссер: Кира АнгелинаАктеры: Ирина Розанова, Алексей Шевченков, Митя Лабуш, Анатолий Гущин, Лиза Арзамасова, Татьяна Лютаева, Александр Зельский, Ирина Московская, Анастасия Королькова, Светлана КолпаковаСубтитры: русскиеПродолжительность: 01:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E820DF8D2EA80E836DFD01004B34DB4B1C3B555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671743   (169585) от 27.10.2023
-
-Праздники (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169585.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни Натальи Пыжовой всё отлично: крепкий дом, любящий муж, дружная семья. Для полного счастья осталось только дочерей замуж выдать. Но идеальная картина рушится в одночасье, когда выясняется, что муж, оказывается, изменник, а дочери со своими женихами, мягко говоря, не очень-то счастливы. Когда всё семейство собирается вместе на очередное торжество, становится (   Читать дальше...   )Производство: Россия, Good Story Media, ТНТ, PREMIERЖанр: комедияРежиссер: Борис ДергачевАктеры: Мария Аронова, Виталий Хаев, Анастасия Калашникова, Яна Енжаева, Сергей Канаев, Никита Павленко, Инга Оболдина, Вячеслав Чепурченко, Денис Парамонов, Сергей БуруновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EFBAB74BCAEFF9E21B90993F06871E36D51B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344572   (169500) от 11.12.2019
-
-Каникулы строгого режима (2009) BDRip [H.265/1080p] [10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169500.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как двое не самых молодых людей, Кольцов и Сумароков, волею судьбы оказались вожатыми в пионерском лагере в компании в меру энергичного руководства и не в меру энергичных детей. Все бы ничего, да только попали они туда прямо с арестантской шконки.Производство: Россия / Buzz Production, Дирекция КиноЖанр: драма, комедия, приключенияРежиссер: Игорь ЗайцевАктеры: Сергей Безруков, Дмитрий Дюжев, Сабина Ахмедова, Алёна Бабенко, Владимир Меньшов, Кирилл Плетнёв, Людмила Полякова, Тимур Боканча, Андрей Кивинов, Фёдор КрестовыйПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CBCBE9DF379C9385E4361D703FC498962E7312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344369   (169493) от 11.12.2019
-
-Вегетарианка (2019) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169493.jpg" />
-</div>
-
-
-###  Подробнее
-
-На свидании в ресторане принципиальная вегетарианка Вика узнаёт, что её новый парень Илья — мясоед. Вика решает переубедить Илью и доказать, что мясо вызывает агрессию. Но действия Вики оборачиваются катастрофой…Производство: Россия / Кинокомпания "Ника"Жанр: Короткометражный, комедияРежиссер: Алексей ЗотовАктеры: Марина Панферова, Евгений Шевченко, Айсурат Шаманова, Борис Томберг, Игорь Хрипунов, Даниил Коренев, Вячеслав ШихалеевСубтитры: Отсутствуют
-Внимание! Присутствует ненормативная лексика.Продолжительность: 00:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59044B093DABC7F1C793C609F610037737ED821
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1541659   (642606) от 04.04.2022
+
+Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 RimWorld Trailer Music.mp3 - 1:47
+02 Entry Screen.mp3 - 3:48
+03 Terraformer.mp3 - 3:03
+04 Moving On.mp3 - 4:45(   Читать дальше...   )Жанр: light guitar instrumentalПродолжительность: 02:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3BA866691D3606E91E145AD1AE0E3482EAEC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032833   (642004) от 09.07.2016
+
+VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе образа игры, музыка была извлечена из самого образа игры, были добавлены 2 трека (Которые были в русской версии игры)01. Jungle 1
+02. Jungle 2
+03. Jungle 3
+04. Jungle 4(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772F9DE3D19AC1A9C2E856E106BAC0CB7A24D2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906894   (641624) от 10.06.2015
 
 Michael Giacchino - Мир Юрского периода / Jurassic World (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +64,7 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Miss Congeniality / Мисс Конгениальность (1-2 части) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +128,7 @@ Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 �
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -105,7 +163,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -134,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +227,7 @@ VA - 101 Movie Songs (5CD) (2012) [MP3|181-288 кб/с]<Pop, Rock>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -204,7 +262,7 @@ Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -233,7 +291,7 @@ Quentin Tarantino's - Inglourious Basterds / Бесславные ублюдки
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +326,7 @@ James Newton Howard - Snow White & The Huntsman / Белоснежка И Охо
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +361,7 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -332,7 +390,7 @@ Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Prog
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -361,7 +419,7 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -390,7 +448,7 @@ Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,7 +477,7 @@ Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +512,7 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +541,7 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +570,7 @@ Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +599,7 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +628,7 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -599,7 +657,7 @@ Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -628,7 +686,7 @@ VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -657,7 +715,7 @@ Hans Zimmer - The Dark Knight Rises / Тёмный Рыцарь: Возрожд�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -692,7 +750,7 @@ Lorne Balfe - Terminator Genisys (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -721,7 +779,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -741,64 +799,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B78F3D6352601A82290B9793F21336DDDABC233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231550   (604141) от 19.06.2018
-
-Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack) (2004-2018) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Giacchino - Episode 2 (00:51)
-02. Michael Giacchino - A Tony Perspective (02:08)
-03. Michael Giacchino - Consider Yourselves Undermined! (05:13)
-04. Michael Giacchino - A Matter of Perception (01:50)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:10:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F8AF92B4E7CA848FA4D92FF8F03836F0C607F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231743   (603195) от 21.06.2018
-
-Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exile [03:31]
-02. Revolt [02:11]
-03. Cytokine Storm [01:59]
-04. Heart and Soul [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

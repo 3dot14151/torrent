@@ -1,31 +1,23 @@
-###  Публикация: 472750   (97594) от 24.03.2012
+###  Публикация: 1822222   (100866) от 05.10.2025
 
-VA - XXXL Супер Танцевальный 50\50 Весна (2012) [MP3|256 кб/с]<Pop,Dance>
+Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In for Me! / Младшая сестра друга меня так раздражает! [2025, TV, 1 из ?] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Музыки
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Loverush UK! feat. Bryan Adams - Tonight In Babylon (Steve Smart & WestFunk Radio Edit)
-02. Дискотека Авария и Кристина Орбакайте - Прогноз Погоды (DJ Tarantino Sax Remix)
-03. Rico Bernasconi & Beenie Man Feat. Akon - Girls (Radio Mix)
-04. Юлия Савичева - Сердцебиение (DJ Tarantino Remix)
-05. Picco - Mi Cafe (Ph Electro Remix Edit)
-06. Серебро - Мама Люба (Dj Vengloff & Dj Kabal Radio Mix)
-07. Jean Roch feat. Nayer & Pitbull - Name Of Love (Radio Edit)
-08. DJ Vengerov feat. Инфинити - Ты Мой Герой (Radio Remix)
-09. Rihanna - You Da One (DJ Fashion & Andrey S.p.l.a.s.h. Remix)
-10. Градусы - Заметает (DJ HiTretz & Sergei Karpov Remix)2012Жанр: Pop,DanceПродолжительность: 06:12:22
+Если девушка дразнит тебя, значит, ты ей нравишься!
+К сожалению, Акитеру по собственному опыту известно, что это не так. Потому что все девушки, с которыми он общается, относятся к нему с презрением, и ни одна из них не согласилась пойти с ним на свидание! К счастью, он больше озабочен тем, чтобы обеспечить себе и своим друзьям-разработчикам игр место в компании (   Читать дальше...   )Жанр: комедия, романтика.Режиссер: Кога КадзуомиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68F56C38DEA52AA543BD72D97F227FE89B81E626
+magnet:?xt=urn:btih:51CE0BF26B535EC29908EBE2A3F5C10A2AD2C82E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,29 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472869   (97591) от 24.03.2012
+###  Публикация: 1822210   (100865) от 05.10.2025
 
-[Wallpapers] HD Wallpapers Pack 16
+Аста Нильсен. В критический момент / Im grossen Augenblick (1911) WEBRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 16
-Название: HD Wallpapers Pack 16
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Первая часть фильма, к сожалению, утеряна. Но я все равно решил вам его представить, уж больно здесь Аста Нильсен хорошенькая, стройненькая такая, шейка тоненькая...кхм. Итак, сюжет. Молоденькая горничная Анни в богатом поместье была соблазнена племянником хозяйки поместья. Как это водится, забеременела. О неравном браке не могло быть даже речи. И ее просто выгнали. (   Читать дальше...   )Производство: Германия / Deutsche Bioscop GmbHЖанр: драма, немое киноРежиссер: Урбан ГадАктеры: Аста Нильсен, Гуго Флинк, Эмиль Альбес, Макс Обал, Евгения ВернерПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русскиеПродолжительность: 00:36:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF3BDAC2A13AC35E87D61F17925D593316885A9D
+magnet:?xt=urn:btih:546126167AA16E6943ECA5642BFFEE90CEC8562C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -63,34 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472443   (97586) от 24.03.2012
+###  Публикация: 1822223   (100864) от 05.10.2025
 
-VA - Trance Symphony Volume 8 (23.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
+Чужой: Земля / Alien: Earth (2025) WEB-DL [H.264/720p] (сезон 1, серии 1-8 из 8) RHS, HATE Studio, TVShows, Jaskier, LostFilm, HDrezka, Ю.Сербин
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-001. Luke Bond feat. Emel - Amaze (Fady & Mina Remix)
-002. Marcus Maison & Will Dragen - Another Dimension (Original)
-003. Lunar Motion - Aozora (Benjani Remix)
-004. Radion 6 - B U Tiful (Original Mix)
-005. MaLu - Balance (Dennis Pedersens Sunny Morning Remix)
-006. Peter Lesko pres. Spark7 - Beneath The Sand (Rory's Dancing On The Sand Remix)
-007. Orjan Nilsen - Between The Rays (Original)
-008. Marwan Jaafreh - Broken Machine (Original Mix)
-009. Michael Jay Parker - Canberra
-010. Marcel Woods - Champagne Dreams (W&W Remix)(   Читать дальше...   )23.03.2012Жанр: Uplifting Trance, TranceПродолжительность: 06:15:46
+2120 год. Земля и колонизированная часть Солнечной системы поделены между корпорациями. Исследовательский космический корабль Weyland-Yutani с образцами агрессивной внеземной фауны на борту терпит крушение в городе, принадлежащем корпорации Prodigy, которой управляет Бой Кавальер. Он посылает на место аварии отряд гибридов — некогда смертельно больных детей, чьи (   Читать дальше...   )Производство: США / 20th Television, FX Productions, 26 Keys ProductionsЖанр: ужасы, фантастикаРежиссер: Дана Гонсалес, Угла Хёйксдоуттир, Ноа ХоулиАктеры: Сидни Чендлер, Алекс Лоутер, Сэмюэл Бленкин, Бабу Сизей, Адарш Гурав, Лили Ньюмарк, Джонатан Аджайи, Тимоти Олифант, Кит Янг, Эсси ДэвисПеревод: Дублированный (RHS, HATE Studio), Многоголосый (TVShows, Jaskier, LostFilm, HDrezka), Авторский (Ю.Сербин)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, 2x full), английские (full, SDH)Продолжительность: ~00:55:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C89B4AE54254CF37C6FA44106BBE70B037F2E13
+magnet:?xt=urn:btih:0E6AF19507CB69F0C069CA7B2A3EF5113A1F01E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -98,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472651   (97584) от 24.03.2012
+###  Публикация: 1822228   (100863) от 05.10.2025
 
-Формула 1. Гран-При Малайзии. 3-ая свободная практика (2012) SATRip
+Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бессмертный [ТВ-3] [2025, TV, 1 из 12] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:06:16
+После сражений в Ренриле Фуши, подобно дереву, пускает корни по всему миру, сражаясь за уничтожение Ноккеров. Сотни лет спустя, выполнив свою миссию, он пробуждается в современной эпохе. Он наслаждается мирной жизнью, свободной от вражеских угроз, в окружении дорогих друзей, как старых, так и новых. Но зловещие тени снова нависают над ним. Враги, проникающие в глубины (   Читать дальше...   )Производство: Studio Massket, DriveЖанр: приключения, фэнтезиРежиссер: Sayama KiyokoПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55FCD74B42509CA27C08CFDB5B90B91DC78D649E
+magnet:?xt=urn:btih:C1D208562B981D66C433644CA765FC908CFD4464
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -124,29 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472867   (97583) от 24.03.2012
+###  Публикация: 1822230   (100862) от 05.10.2025
 
-[Wallpapers] HD Wallpapers Pack 15
+Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гaчa! [2025, TV, 01 из 12] WEBRip 1080p Raw+Rus
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 15
-Название: HD Wallpapers Pack 15
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Когда Лайт изгоняют из Конкорда племен, его бывшие товарищи мгновенно обращаются против него. Лайт с трудом спасается от этого дьявольского предательства... только для того, чтобы оказаться в самой глубокой части Бездны, самом опасном подземелье в королевстве! Чтобы не быть съеденным плотоядными монстрами, он использует свое единственное магическое умение — Неограниченную (   Читать дальше...   )Производство: Япония, студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Сакураби КацусиЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B75E855EF6A44E4CE14B033BA80F20BB83E3C10B
+magnet:?xt=urn:btih:5F90C2E1D6FEE7B0E0719A1EE1B10E725D6C7CA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,29 +129,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472414   (97582) от 24.03.2012
+###  Публикация: 1822165   (100861) от 05.10.2025
 
-[Wallpapers] HD Pictures №9
+Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №9
-Название: HD Pictures №9
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. All Together Now [00:03:31]
+02. Strugglinh [00:03:13]
+03. Straight Out of Detox [00:02:50]
+04. Note to Self [00:02:58](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0AA15800720AFC5A731569CF00F3FE2ED99D4FD
+magnet:?xt=urn:btih:768E3AC806684AF34A7DE71FB8B4C80E13308FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,27 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472575   (97581) от 24.03.2012
+###  Публикация: 1822224   (100860) от 05.10.2025
 
-Николя Д' Этьен Д'Орв | Тайна Jardin des Plantes [2011] [FB2]
+BikeComputer Pro v9.2.3 GP Mod by Balatan [Ru/Multi]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Париж на пороге катастрофы. Сена выходит из берегов. Начинают исчезать люди. Столице Франции грозит гибель, но горожане ни о чем не подозревают. Только один человек, профессор Сорбонны Сильвен, понимает серьезность происходящего.
-Найти разгадку ему помогает Тринитэ - случайная свидетельница одного из похищений. Вместе со своей помощницей Сильвен отправляется в самое сердце Парижа - его катакомбы. У них есть двадцать четыре часа, чтобы спасти город.
-Латинский квартал, Марсово поле, Монмартр и... Ботанический сад, Jardin des Plantes, с его оранжереями и вольерами для экзотических животных... Достопримечательности Парижа стали декорациями для нового головокружительного триллера Николя Д'Этьена Д'Орва.2011Жанр: ФантастикаФормат: FB2
+BikeComputer Pro - возможно, одно из лучших приложений для велоспорта. Версия Pro содержит все необходимые функции:Тип издания: ModРелиз состоялся: 05.10.2025Разработчик: Robert OehlerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E3C698DF1855FF6A487C318E5493FD4A4430302
+magnet:?xt=urn:btih:EDD899F7DFDD8DA6A3E1F4B71D64A3F0F4761426
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,32 +184,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472883   (97580) от 24.03.2012
+###  Публикация: 1822134   (100859) от 05.10.2025
 
-Astronaut Ape - The Mirror (2012) [MP3|320 кб/с]<Ambient, Downtempo, PsyChill>
+Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Virgin Music Group[FLAC|Lossless|WEB-DL|tracks] <Alternative, Prog Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. In Suspense
-03. Citylife
-04. One Plus One
-05. Alive
-06. Stars Around Me
-07. Mirroreality
-08. OrtnIЖанр: Ambient, Downtempo, PsyChillПродолжительность: 01:06:19
+01. Yesterday’s Lost [00:03:24]
+02. Goodbye, Sunshine [00:04:16]
+03. Searching for Tomorrow [00:03:33]
+04. The Father of Make Believe [00:04:39](   Читать дальше...   )Жанр: Alternative, Prog RockПродолжительность: 01:15:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F522685858D38F78BF5DD375E397FB58DE80FA97
+magnet:?xt=urn:btih:D6533136995172D27DF8223722EB88195F7E82F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,32 +213,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472695   (97578) от 24.03.2012
+###  Публикация: 1510117   (100858) от 05.10.2025
 
-VA - 15 Top Trance Hits 03 (2012) [MP3|320 кб/с]<Trance>
+Волчица / Матушка Гусыня / Gasmamman (2015) HDRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-VA - 15 Top Trance Hits 03 (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:48:27Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. W&W - Invasion - ASOT 550 Anthem (Original Mix)
- 02. Armin Van Buuren Presents Gaia - J'Ai Envie De Toi (Original Mix)(   Читать дальше...   )
+"Волчица" - это захватывающая шведская криминальная драма-триллер, завоевавший любовь зрителя в Швеции и за ее пределами.
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F83ED9FE71638CC02CA0563F9724452D6AE650C3
+magnet:?xt=urn:btih:D76DFD8516D732CEA97B38FF8B4C80A696AB4DF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,29 +240,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472871   (97577) от 24.03.2012
+###  Публикация: 1822233   (100857) от 05.10.2025
 
-[Wallpapers] HD Wallpapers Pack 17
+Придворный маг решил стать сильнейшим | Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Sarete Saikyou o Mezasu [2025, TV, 1 из 12] WEBRip 1080p HEVC 10-bit Raw+Rus
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 17
-Название: HD Wallpapers Pack 17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Придворный маг Алек Игрет на протяжении нескольких лет помогал принцу Регулу Галдане в зачистке подземелий. Принц оказался слишком слаб, поэтому Алеку пришлось посвятить себя только магии поддержки. Однако Регул внезапно решил изгнать молодого мага из своего отряда. На помощь Алеку приходит Йорха Айзенц, его боевая подруга по Институту магии, которая состоит в легендарном (   Читать дальше...   )Производство: Япония / Студия GekkouЖанр: Приключения, фэнтезиРежиссер: Такахаси КэнЯзык озвучки: Русский (Deep (Amber)), (Deep (AniStar)); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B72F5D2D7C289DA91D78460C7B4629624E2C098
+magnet:?xt=urn:btih:7AB20A945360EF29990D42BF04D886991D45C4E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,34 +266,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472366   (97575) от 24.03.2012
+###  Публикация: 1822237   (100856) от 05.10.2025
 
-VA - Clubничка DFM 50x50 (2012) [MP3|256 кб/с]<Pop,Dance>
+Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Sarete Saikyou o Mezasu / Придворный маг, пользовавшийся магией поддержки, решил стать сильнейшим после изгнания [2025, TV ...
 
->>Архив торрентов
->>Архив Музыки
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-001 Topmodelz - L esperanza (Single mix)
-002 Иракли - Ты одна (DJ Kirill Clash & DJ Dmitriy Nema remix)
-003 Javi Reina & Alex Guerrero feat. Syntheticsax - Oig
-004 Nikita - Машина (Dj Fisun Remix)
-005 Fonzerelli - Moonlight party
-006 Reflex - Адреналин
-007 Rico Bernasconi & Beenie Man feat. Akon - Girls
-008 Тату - Not Gonna Get Us (DJ Jurij Extended Remix 2012)
-009 Bryce feat. J-Malik - Nothing can hold us back
-010 Потап и Настя Каменских - Если вдруг (Aleksey Kraft mix)Жанр: Pop,DanceПродолжительность: 05:45:28
+«Этой группе не нужен некомпетентный маг, который умеет только поддерживать. Ты уволен, Алек Игрет».
+Внезапно Алек, придворный маг, который присоединился к группе наследного принца, чтобы помочь ему завоевать подземелья, был изгнан из группы. И не только из группы, но и из королевского дворца из-за преследований со стороны наследного принца. Друг из «магической академии» (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Такахаси КэнЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5E5AF7E60E1B517969210229BA5948F52CF95CC
+magnet:?xt=urn:btih:B985753797995565CC3FFE442E8AB902F15D9A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,34 +293,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471649   (97573) от 24.03.2012
+###  Публикация: 1822231   (100855) от 05.10.2025
 
-VA - HouseVip (15.03.2012) [MP3|320 кб/с]<Electro house>
+Smart AudioBook Player Pro v11.5.3 Mod by Balatan [Ru/Multi]
 
->>Архив торрентов
->>Архив Музыки
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. Datsik & Kill The Noise - Lightspeed (3:37)
- 2. Denetti - Takes Me (Original Vocal Mix) (5:15)
- 3. DJ Cyrus Feat Nelson Sangare - Is It Love (Extended Mix) (4:52)
- 4. Jordan Rivera - One Night (Mr Jack From Arkham Remix) (6:15)
- 5. Major Tosh - Out Of My Mind (Club Mix) (5:28)
- 6. Maverick Sabre - No One (Wideboys Club Mix) (8:05)
- 7. Micky Slim - Brass Rail (Original Mix) (5:07)
- 8. Pizza Brothers, Kristina Casolani - Get Out (Nicola Zucchi Variavision) (6:08)
- 9. The Nycer ft. Deeci & Taleen - Freaky (Soundshakerz Remix) (5:10)
- 10. Yves Larock, Tony Sylla - Viva Las Vegas (Bisbetic Remix) (5:33)15.03.2012Жанр: Electro houseПродолжительность: 00:55:35
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 05.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0E3CC64B3BEF9D817B84EC1B7B89B3F9A3A8CA8
+magnet:?xt=urn:btih:64B38EA269FB20DB380A34B1B55361C97B8F48ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,34 +319,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472313   (97571) от 24.03.2012
+###  Публикация: 1822123   (100854) от 05.10.2025
 
-Nikolay Kempinskiy - Terminal of Trance 047 (18.03.2012) [MP3|320 кб/с]<Trance>
+OTT Navigator IPTV v1.7.3.3 Mod by TryRoom [Ru/Multi]
 
->>Архив торрентов
->>Архив Музыки
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Blizzard - Kalopsia (original club mix)
-02. Tenishia & Ruben De Ronde - Marsascala (Alexander Popov remix)
-03. Allure - I am (Sied Van Riel remix)
-04. Alex M.O.R.P.H. and Protoculture - Waking up the stars (original mix)
-05. Fast Distance, Cami, Dimension - Promise you (original mix)
-06. Parker & Hanson - Afterthought (Heatbeat remix)
-07. Armin Van Buuren presents: Gaia - J'Ai envie de toi (original mix)
-08. Neev Kennedy - The unknown (Dns Project extended)
-09. Kyau & Albert - This love (original mix)
-10. Mark Otten - Hyperfocus (Wezz Devall remix)2012Жанр: TranceПродолжительность: 01:00:08
+Просмотр IPTV вашего провайдера на любом устройстве (телефон, планшет, ТВ, ТВ-приставка). Поддерживает как Android TV / TV-приставок (DPAD-пульт), так и телефоны и планшеты.
+"Приложение не предоставляет никаких источников самостоятельно. Оно работает с плейлистом вашего провайдера или приложенным вами источником".Тип издания: Mod / PremiumРелиз состоялся: 04.10.2025Разработчик: Scillarium StudioПоддерживаемая ОС: Android 6.0+, Android TVЯзык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6542015A301BDC8E7DA72CD4C5DFB9460993499
+magnet:?xt=urn:btih:E32926F23A417B37A6A4CB60E661866255AEB695
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,34 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471650   (97570) от 24.03.2012
+###  Публикация: 1822225   (100853) от 05.10.2025
 
-VA - HouseVip  (16.03.2012) [MP3|320 кб/с]<Electro house>
+Dirkschneider & The Old Gang - Babylon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. Bootik, Tony Romera & Nick Mentes – Printemps 24 (Original Mix) (6:40)
- 2. Borgore – Flex Ft. Shay (4:33)
- 3. Chemical Brothers, Miles Dyson, Elite Force - Swoon Anthem (RVMPD) (7:00)
- 4. Copernico - I Believe (DJ Sequence Remix) (4:28)
- 5. Enzo Saccone Feat Mariela Adriana Donnaruma - Otra Vez (Extended Mix) (5:41)
- 6. Eva - Body On Mine (Mixin' Marc & Tony Svejda Peak Hour Dub) (5:30)
- 7. Hot Pink Delorean - Surf's Up (6:07)
- 8. Mohombi - In Your Head (La Clique & Jean Maxwell Extended Remix) (6:28)
- 9. Replug - Let's Rock (Steve Velocity All Smiles Remix) (6:25)
- 10. Telman and Audio Bastardz - Skyscraper (Club Mix) (5:45)16.03.2012Жанр: Electro houseПродолжительность: 00:58:41
+01. It Takes Two To Tango [00:04:40]
+02. Babylon [00:06:09]
+03. Hellbreaker [00:05:06]
+04. Time To Listen [00:03:42](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:01:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB6EC0CDE769A1E6CF7A5C3CE07563E686CB7540
+magnet:?xt=urn:btih:1C045E1F8989A3B543DF4CF2F95469BE11874DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,25 +375,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472702   (97569) от 24.03.2012
+###  Публикация: 1822244   (100852) от 05.10.2025
 
-[Wallpapers] Best HD Wallpapers Pack (25.03.12)
+Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gacha" / Backstabbed in a Backwater Dungeon / Бесконечная гача [2025, TV, 1 из 12] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Когда Лайт изгоняют из Конкорда племен, его бывшие товарищи мгновенно обращаются против него. Лайт с трудом спасается от этого дьявольского предательства... только для того, чтобы оказаться в самой глубокой части Бездны, самом опасном подземелье в королевстве! Чтобы не быть съеденным плотоядными монстрами, он использует свое единственное магическое умение — Неограниченную (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Сакураби КацусиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A9A15D601CC6912734B3C40B3C10A5B7CD00535
+magnet:?xt=urn:btih:FAE42DA123226F3CF257A88374FEB116C45E183C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,33 +401,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469969   (97567) от 24.03.2012
+###  Публикация: 1822247   (100851) от 06.10.2025
 
-БитОнлайн - Время (2012) [MP3|128-320 кб/с]<Hip-Hop>
+FxSound 1.2.1.0 [Multi/Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро
-02. Не забываем корни
-03. Жизнь советская
-04. Время
-05. Надоело
-06. Библия
-07. Давай напишем
-08. Да и не важно
-09. Библия (Jurazz Prod, Official Vercion)Жанр: Hip-HopПродолжительность: 00:54:10
+FxSound (ранее DFX Audio Enhancer) - отличное приложение, которое позволяет существенно улучшить качество звука в различных приложениях и онлайн сервисах, при помощи изменения в режиме реального времени различных параметров аудиосигнала звуковой карты ПК. К примеру, с помощью данной программы, можно улучшить качество звучания любимых треков в различных медиапроигрывателях, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6486DDF572E5AD1E209991AF0187EC94ABFBD780
+magnet:?xt=urn:btih:1B41EC8BB0874B12DE92D82C720AE248EDC2AD62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,34 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471644   (97566) от 24.03.2012
+###  Публикация: 1822245   (100850) от 05.10.2025
 
-VA - House Vip (13.03.12) [MP3|320 кб/с]<Electro House>
+Gutalax - The Shitpendables (2021) [APE|Lossless|image + .cue] <Goregrind>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. Alyssa Reid Feat Jump Smokers - Alone Again (Voodoo And Serano Mix) (5:24)
- 2. Dirty Rotten Disco - Jack To The Sound (DJ's From Mars Club Mix) (5:39)
- 3. Dirty Rotten Disco - Jack To The Sound (DJs From Mars Mix) (5:39)
- 4. Fabio Da Lera & Alex Mica - Mi Corazon (Andeeno Damassy Remix) (4:47)
- 5. Fidel Wicked – Enjoy Your Life (Club Mix) (4:50)
- 6. Jerma - Believe In Love (Instrumental Mix) (5:31)
- 7. Marc Kiss - The One & Only (Original Mix) (5:16)
- 8. Nam Nori - Fatal Error (Rudi Cecca Remix) (5:00)
- 9. Peo De Pitte - Who Do You Love (Zodiac Cartel) (7:11)
- 10. TJR & Whiskey Pete - Face Melt (Original Mix) (4:52)13.03.12Жанр: Electro HouseПродолжительность: 00:54:17
+01. Diarrhero
+02. Nosím místo ponožky kousek svojí předkožky
+03. Poopcorn
+04. Buttman(   Читать дальше...   )Жанр: GoregrindПродолжительность: 00:33:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:228C956A58DC6D71D109DAC7FE0E58EF52750B7F
+magnet:?xt=urn:btih:75427544473877A1242F807D6C422E470BEC368C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,29 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472843   (97564) от 24.03.2012
+###  Публикация: 1822249   (100849) от 05.10.2025
 
-[Wallpapers] HD Pictures №14
+Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я стала принцессой [2025, TV, 4 из 16] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №14
-Название: HD Pictures №14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Несмотря на то, что маленькая Атанасия де Эльджео Обелия — настоящая принцесса, владеющая магией, с самого её рождения реальность была к ней жестока. Мать умерла при родах, успев запечатать магические силы дочери, отец отрёкся, бросив на произвол судьбы и равнодушных слуг. Выжить младенцу помогла таинственная сила, раскрывшая малышке уготованное ей трагичное будущее. (   Читать дальше...   )Производство: Colored Pencil Animation (Китай)Жанр: исекай, фентази, приключенияРежиссер: Kuaikan ManhuaПеревод: официальный (Crunchyroll)Язык озвучки: Японский (дубляж)Субтитры: Русские, АнглийскиеПродолжительность: 16 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECC84658280EAC9C1C1A802BA620C0FA1F8EC0F5
+magnet:?xt=urn:btih:BAC5AE05178BF649E14B688583FACCE90EB4C798
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,25 +482,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472593   (97563) от 24.03.2012
+###  Публикация: 1822252   (100848) от 05.10.2025
 
-Mozilla Thunderbird 12.0 Beta 2 [Русский]
+Мятежная Луна, часть 1: Дитя огня / Rebel Moon - Part One: A Child of Fire (2023) WEB-DLRip [AV1/2160p] [4K, HDR, 10-bit] [Director's Cut] [hand made Upscale AI]
 
->>Архив торрентов
->>Архив Программ
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird - простая и удобная бесплатная программа для работы с электронной почтой от Mozilla. Программа поддерживает протоколы SMTP, POP3, IMAP и RSS. Имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет дополнительных модулей и фильтрует рекламу, а так же нежелательную корреспонденцию. Интерфейс программы основан на технологии XUL, разработанной Mozilla Foundation, в результате чего интерфейс на всех платформах выглядит так же, как у приложений, разработанных для этой конкретной платформы. Интерфейс программы прост и удобен в использовании, поддерживает смену скинов. Во второй версии программы включено множество новых возможностей, помогающих вам лучше управляться с бурным потоком информации, устремляющимся в ваш почтовый ящик и быть в курсе последних событий.Язык интерфейса: Русский
+В галактической империи Праматерь после убийства королевской семьи власть узурпировал коварный сенатор. На окраинах зарождается революция, поэтому среди планет курсирует боевой корабль под руководством безжалостного адмирала Нобла. Когда ищущие повстанцев прибывают на захолустную луну Велдт, чтобы пополнить запасы пищи, а также убивать и насиловать, они неожиданно (   Читать дальше...   )Производство: США / Grand Electric, The Stone QuarryЖанр: фантастика, боевик, драма, приключенияРежиссер: Зак СнайдерАктеры: София Бутелла, Эд Скрейн, Михил Хёйсман, Чарли Ханнэм, Стаз Нэйр, Пэ Ду-на, Джимон Хонсу, Рэй Фишер, Клеопатра Коулмэн, Фра Фи и др.Перевод: Дублированный (Read Head Sound), многоголосый (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (forced, full SDH), французские (full, SDH)Продолжительность: 03:24:26
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C23F8DA66868F2B3FCECD21D8588231AD0056B51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,29 +508,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472844   (97562) от 24.03.2012
+###  Публикация: 1822147   (100847) от 05.10.2025
 
-[Wallpapers] HD Pictures №15
+Адаптация Пчёл - Остановка Май (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №15
-Название: HD Pictures №15
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2990х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. По условиям любви [00:03:19]
+02. Панама [00:03:16]
+03. Я звонил и узнавал [00:04:09]
+04. Улица Есенина [00:04:03](   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 00:40:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13CCA672814255142BA51C203641E835B04CD791
+magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,29 +537,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472839   (97560) от 24.03.2012
+###  Публикация: 1822254   (100846) от 05.10.2025
 
-[Wallpapers] HD Pictures №12
+Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой отец - герой, моя мать - дух, а я перерождённая их дочерью [2025, TV, 1 из 12] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №12
-Название: HD Pictures №12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Будучи девочкой, обладающей как духом, так и человеческой кровью, восьмилетняя Эллен имеет власть над стихиями — хотя и не над традиционными четырьмя стихиями. Она обладает способностью преобразовывать свое окружение, манипулируя элементами периодической таблицы. Кроме того, Эллен обладает обширными научными знаниями, поскольку в прошлой жизни она была ученым.
+Во (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Фукусима ТосинориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA628654FF4D25F717522F90B63E311A31B229BA
+magnet:?xt=urn:btih:17A0EB01FAA0727D1E4C65CB782137757BDD190B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,29 +564,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472402   (97559) от 24.03.2012
+###  Публикация: 1822045   (100845) от 05.10.2025
 
-[Wallpapers] HD Wallpapers Pack 14
+Книжная серия | Сыщик Нестор Загорский [18 книг] (2022-2024) [FB2] [Проект Анонимус]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 14
-Название: HD Wallpapers Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Впервые в современной России запущен проект, состоящий из серии детективных книг, связанных между собой главными героями и сюжетной линией. Авторство романов, входящих в данную серию, будет скрыто до момента издания последней книги серии. Интрига состоит в том, чьему перу принадлежат данные произведения. Один ли это автор или творческий коллектив писателей?Жанр: Детектив, ИсторияИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B54EDCDC24B32DB65039FEFEE0A19ECD7737728
+magnet:?xt=urn:btih:DDBCEAB6441AB9E30197A69731CE4B5901D7BC62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,29 +590,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472866   (97557) от 24.03.2012
+###  Публикация: 1822256   (100844) от 05.10.2025
 
-[Wallpapers] Nature Pictures №35
+Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, Котэсаси [2025, TV, 1 из 12] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №35
-Название: Nature Pictures №35
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680x1050
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Коуё Котесаси обладает исключительными навыками массажа и мечтает стать спортивным врачом. Чтобы получить стипендию в медицинском университете, он поступает в среднюю школу при университете Сэйва, которая славится своими спортивными достижениями.
+Происходя из бедной семьи, Коуё устраивается на работу в общежитии школы, чтобы покрыть свои расходы. Однако вскоре он (   Читать дальше...   )Жанр: комедия, романтика, этти.Режиссер: Сайто ХисасиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 12 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5111B8C985527751B59087A29C08158B2125873
+magnet:?xt=urn:btih:093F684FC386CBE00119082B871F31E8C88BE739
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -719,25 +617,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472699   (97556) от 24.03.2012
+###  Публикация: 1822253   (100843) от 05.10.2025
 
-[Wallpapers] Computer Desktop Wallpapers Collection (25.03.12)
+Филип Дик | Вращающееся колесо (2025) [MP3, Александр Большешальский]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Бард Сунг-Ву получает задание — отправиться в глушь и проверить, не зарождаются ли среди низших каст, Фермеров и Техников, тайные еретические культы. Но сам он думает о другом: однажды совершённый грех не даёт ему покоя. Сунг-Ву уверен, что в следующем перевоплощении его ждёт участь насекомого-падальщика на далёкой зловонной планете. Теперь его единственное желание (   Читать дальше...   )Жанр: научная фантастика, ПостапокалиптикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:03:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F977AE8EED488A0F3F8C9EBB0214B7068725668D
+magnet:?xt=urn:btih:AD34236EF1D9BDAD4812505FF777394D898FDE5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -745,25 +643,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472705   (97555) от 24.03.2012
+###  Публикация: 1822020   (100842) от 05.10.2025
 
-[Wallpapers] Cinema Wallpapers (25.03.12)
+Как нацисты проиграли войну / How the Nazis Lost the War (2021) WEB-DL [H.264/1080p] (серии 1-6 из 6) Pazl Voice
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Как нацисты, которые в 1930-х годах были самой страшной военной машиной в мире, совершили столько ошибок и поставили свою страну на колени к началу 1940-х годов? Впервые под увеличительным стеклом рассматриваются высокомерие, междоусобицы, плохое управление и лицемерие гитлеровского 3-го рейха.Производство: Австралия / EQ Media GroupЖанр: документальный, военный, историяРежиссер: Дэвид АльрихУчастники: Род Муллинар, Джеффри Воуро, Дэвид Стахел, Ллойд Кларк, Виктория Тейлор, Колин Гарнетт, Норман Олер, Роберт M. Каплан, Рианнон НилсонПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D63B84C8271D896EC9C8AB6B81E7FEEC87BB32D
+magnet:?xt=urn:btih:61C8E95DDF9FA332817F78354DC77E5D72580048
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -771,25 +669,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472394   (97553) от 23.03.2012
+###  Публикация: 1822260   (100841) от 05.10.2025
 
-Журнал | Домой. Строительство и ремонт №9 [2012 март] [JPG]
+Alma-chan wa Kazoku ni Naritai / Alma-chan Wants to Be a Family! / Альма хочет быть семьёй [2025, TV, 1 из 11] WEBRip 720p raw
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Специализированный рекламный журнал2012 мартФормат: JPG
+Альма, автономный самообучающийся робот с передовыми боевыми способностями, была создана двумя гениальными учеными, Энджи Камисато и Сузуме Йобане, которые разработали искусственный интеллект и робототехнику Альмы соответственно. После того, как их бывшие знакомые высмеяли их, дуэт начал работать вместе, чтобы показать миру свои истинные таланты. Но даже несмотря (   Читать дальше...   )Жанр: комедия, фантастика, повседневность.Режиссер: Минами ЯсухироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 11 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2763245A16FD395284255C155354BB82D9D132D4
+magnet:?xt=urn:btih:4E709450E82892C18EDB1F7C9BEB33FA53AB729B
 ```
 
 https://mybot314.ru/tekegram_catalog/

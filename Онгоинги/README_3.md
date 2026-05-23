@@ -1,3 +1,56 @@
+###  Публикация: 1845976   (1051058) от 23.01.2026
+
+Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku / Sentenced to Be a Hero / Наказание для храброго героя: Тюремная запись корпуса девять тысяч четыре [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+«Герой» — это самое страшное наказание в мире. Лица, осужденные за тяжкие преступления, приговариваются к статусу «героя» и принудительно зачисляются на обязательную военную службу в войне против демонов. Этим осужденным даже не позволено умирать — если их убьют, они воскреснут, чтобы сражаться дальше.
+Герой Ксило Форбартц, бывший глава Ордена Святых Рыцарей, возглавляет (   Читать дальше...   )Жанр: фэнтези.Режиссер: Такасима ХироюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 1-ая серия по 58 минут, 11-ть серий по 25 минут.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF6D2CB532AD1BD3F0A3621BFFA0FC92AE2606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846002   (1051045) от 18.01.2026
+
+Majutsushi Kunon wa Miete Iru | Kunon the Sorcerer Can See Through | Волшебник Кунон всё видит [2026, TV, 2 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Кунон слеп от рождения, но у него есть цель: стать первым в мире, кто создаст себе новые глаза с помощью магии воды. Спустя пять месяцев обучения, он уже превосходит учителя и продолжает развивать свой талант. Его магия не только позволяет чувствовать цвета, но с помощью неё он также может изготавливать полезные предметы и даже наколдовать целого котёнка! Слава о (   Читать дальше...   )Производство: PlatinumvisionЖанр: фэнтезиРежиссер: Ooba HideakiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66165F39A36207C8999CCA30E8C2131254C2A4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846006   (1051041) от 18.01.2026
 
 Hanazakari no Kimitachi e | Hana-Kimi | Для тебя во всём цвету [2026, TV, 2 из 12] WEBRip 720p raw
@@ -6,7 +59,7 @@ Hanazakari no Kimitachi e | Hana-Kimi | Для тебя во всём цвету
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +86,7 @@ Ikoku Nikki | Дневник другой страны [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +112,7 @@ Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnat
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +138,7 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -113,7 +166,7 @@ Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +193,7 @@ Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +220,7 @@ MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +246,7 @@ Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Ма
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -220,7 +273,7 @@ Monster Strike: Deadverse Reloaded | Удар монстра: Перезагру
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -246,7 +299,7 @@ Kingdom 6th Season | Царство [ТВ-6] [2025, TV, 11 из 13] WEB-DL 1080p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +327,7 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -300,7 +353,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +379,7 @@ Arknights: Fuyukomori Kaerimichi / Arknights: Perish in Frost / Рыцари к�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +407,7 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +433,7 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +459,7 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +485,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +511,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +538,7 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -514,7 +567,7 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -542,7 +595,7 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,7 +621,7 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,7 +647,7 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,7 +673,7 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,59 +684,6 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC6CF5BB679F05741D97D368BA69E0A0231868F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822507   (101051) от 06.10.2025
-
-Kao ni Denai Kashiwada-san to Kao ni Deru Oota-kun / Inexpressive Kashiwada and Expressive Oota / Без эмоциональная Касивада и эмоциональный Ота [2025, TV, 1 из ?] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ухмыляясь, Оота игнорирует свои однозначные оценки и ищет новый источник развлечения. Вскоре его внимание привлекает одноклассница Касивада, загадочная ученица, которая всегда сохраняет бесстрастное выражение лица. Оота замышляет нарушить ее спокойное поведение с помощью страшилок и озорных проделок, хотя его тактика всегда приводит к обратному результату.
-Оота известен (   Читать дальше...   )Жанр: комедия, романтика, повседневность.Режиссер: Камитани ТомохироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF827ED601EC3E025F5E413EEDAF818CFAD4CC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822503   (101044) от 06.10.2025
-
-Plus-sized Misadventures in Love! | Debu to Love to Ayamachi to! | Пышечка, любовь и ошибки! [2025, TV, 1 из 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101044.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Это наказание за то, что такая толстая и уродливая девчонка, как я, влюбилась в такого красавца, как ты...» Юмеко страдала от огромного комплекса неполноценности. Затем с ней произошел страшный несчастный случай. Хотя Юмеко каким-то образом удалось спастись от верной гибели, она проснулась совершенно другим человеком. «Это... я...?! Я такая милая!!» Окружающие не (   Читать дальше...   )Производство: студия Marvy Jack / マーヴィージャックЖанр: комедия, романтикаРежиссер: Кога КадзуомиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28137522DFDFFBF1AD26163B6629F889BE7E7A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

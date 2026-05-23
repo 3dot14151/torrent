@@ -1,3 +1,81 @@
+###  Публикация: 1589597   (189845) от 10.11.2022
+
+Grisaia no Meikyuu: Caprice no Mayu 0 | The Labyrinth of Grisaia: The Cocoon of Caprice 0 | Лабиринт в серых тонах [2015, TV-special, 1 эп. + 1 SP] BDrip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В академии Михама, словно в монастыре, жили, укрывшись от мира, пять незаурядных девушек и молодых женщин, но Юдзи Кадзами, странник, пришедший ниоткуда, играючи покорил их всех. Для кого-то таинственный молчаливый парень стал спасителем, для кого-то – залогом старого долга, не остались незанятыми и роли старшего брата, друга, возлюбленного, учителя жизни. И где (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: приключенияРежиссер: Танака МотокиЯзык озвучки: Японский, русский (AniDub, Shiza)Субтитры: Русские (Timecraft)Продолжительность: 1 эп. по 50 мин., 1 sp по 3 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9092AAEBE31F9C0D34E4A9886252EDBBB1FB71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589592   (189842) от 10.11.2022
+
+Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых тонах [2014, TV, 13 эп. + 6 SP] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Юдзи Кадзами в 10 лет потерял родителей и был воспитан людьми, для которых писаные законы – пустой звук, а чужие жизни – что трава на ветру. Творя разное, парень быстро познал законы темного мира, и ныне его разум отточен, рефлексы – совершенны, а принципы гибки, как стальной клинок. Но даже сталь имеет предел усталости, и «рыцарь ночи» обратился к знакомой хозяйке (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: романтика, комедия, драма, эттиРежиссер: Танака МотокиЯзык озвучки: Японский, русский (AniDub, Shiza)Субтитры: Русские (Timecraft)Продолжительность: 13 эп. по 25 мин., 6 sp по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:197A13D8DF927DC42BD3FDACB177BC4D2D0D70B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589939   (189569) от 11.11.2022
+
+Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет разворачивается вокруг Юки Курихары, девочки, которой наконец предоставляется возможность осуществить желание — встречаться с её возлюбленным по имени Шинья Момозуки. На первый взгляд она кажется обычной и очень милой девочкой. Однако Юки одержима Момо: она записывает все его действия и никогда не упускает шанс застать его в неловкий момент. С другой стороны (   Читать дальше...   )Производство: студия Satelight / サテライトЖанр: комедия, романтика, повседневностьРежиссер: Хирайкэ ЁсимасаЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniPlay)Продолжительность: 26 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C674DFA1531DF100E3A077F80CBE4D8FBC51C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590316   (188933) от 13.11.2022
 
 Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её заветное желание [2020, Movie] BDRip 804p HEVC 10-bit raw+rus
@@ -6,7 +84,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Otonari ni Ginga | A Galaxy Next Door | Галактика по соседств
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -113,7 +191,7 @@ Deemo Movie: Sakura no Oto - Anata no Kanadeta Oto ga, Ima mo Hibiku | Димо 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -139,7 +217,7 @@ C Danchi | Жилой комплекс „Си“ | Housing Complex C [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -192,7 +270,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Orejihanki | Перер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -219,7 +297,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -272,7 +350,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Влады�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -299,7 +377,7 @@ No Guns Life [TV-2] | Жизнь без оружия [TV-2] [2020, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -539,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -593,7 +671,7 @@ Wu Liuqi | Scissor Seven | Killer Seven | Киллер Севен  [ТВ-1] [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -604,86 +682,6 @@ Wu Liuqi | Scissor Seven | Killer Seven | Киллер Севен  [ТВ-1] [201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19668C3F6C1E6D6F39676943F519527223C5096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665841   (180628) от 02.10.2023
-
-Кот, мастер на все лапки, сегодня снова грустит | Dekiru Neko wa Kyou mo Yuuutsu | The Masterful Cat Is Depressed Again Today [2023, TV, 13 из 13] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Саку Фукудзава подбирала на улице милого котика, она даже не предполагала, что это маленькое чудо превратится в двухметрового говорящего кота. К тому же, ещё и хозяйственного! Пока наша Саку просиживает юбку в офисе, кот Юкичи следит за домом: стирает, убирается и готовит еду, ну прямо как самая настоящая домохозяйка! Так и живут наши герои мирной, хоть и немножко (   Читать дальше...   )Производство: Япония / Студия GoHandsЖанр: Комедия, повседневностьРежиссер: Кудо СусумуЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Crowley, Frederica Izzard, SlivciS (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C639718DA725CC8D9E90A895A3456BD9FC6D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644683   (180434) от 02.10.2023
-
-Маленькая сэмпай с моей работы | Uchi no Kaisha no Chiisai Senpai no Hanashi | My Tiny Senpai [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачастую в коллективе принято, чтобы старшие приглядывал за младшими. Вот и тут о парне Шинодзаки постоянно заботится старший член команды, Шиори. Она – великолепная, невероятно добрая, ласковая, любящая и совершенно… миниатюрная женщина. Ну а Шинодзаки же хочется верить, что делает она это не только из чувства долга. Надеясь на нечто большее и искренне радуясь проявленной (   Читать дальше...   )Производство: Япония / Студия Project No.9Жанр: Комедия, романтикаРежиссер: Сато МицутосиЯзык озвучки: Русский двухголосый, закадровый; Японский
-- Lobanow, SlivciS (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC32656908A43FA10A64B55AD85A3A3B3690EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645263   (180423) от 02.10.2023
-
-Девушка на час [ТВ-3] | Kanojo, Okarishimasu 3 | Rent-a-Girlfriend (2023) [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180423.jpg" />
-</div>
-
-
-###  Подробнее
-
-В их отношениях Казуи и Чизуру начался новый этап. Теперь они преследуют общую цель: поскорее снять собственный фильм, в котором Чизуру сможет сыграть главную роль. На пути к этой цели наших героев ждёт тяжёлый труд: сбор денег, поиски режиссёра, съёмки, продвижение и многое другое. Повезло ещё, что заниматься всем этим они будут не одни; на помощь к ним придут как (   Читать дальше...   )Производство: Япония / Студия TMS Entertainment, Studio CometЖанр: комедия, романтика, сёнен, школаРежиссер: Унэ СинъяЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб полные/надписи)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D42AF66594DF61FC02D78EFABD5BF9BE40E1AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

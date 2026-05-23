@@ -1,3 +1,322 @@
+###  Публикация: 1447131   (1032044) от 12.02.2021
+
+VA - Greatest Ever 70S Vol.04 (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Настала пора вспомнить ушедшую юность. Сейчас, когда современные музыкальные группы гладко вылизаны, носят модные костюмчики, пытаются пробиться в «попсовые» хит-парады и поют банальные песни о том, как болит их сердце после очередного расставания – пора возродить в своей памяти мощные гитарные соло и угар дискотек олдскульных групп, их лайфстайл и дух авантюризма.001. Lucrethia - Superustic Man
+002. Osibisa - Sunshine Day
+003. Desmond Dekker - You Can Get It If You Really Want
+004. Sweet - Wig Wam Bam(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B5E3743EA8B6BF20797826299AEBA38AF5801A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448112   (1031137) от 16.02.2021
+
+VA - National Pop Dance Vol.12 (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Прекрасное сочетание жанров танцевальной и поп музыки в одном музыкальном сборнике – «National Pop Dance» 12-го выпуска. Музыка идеально подойдет для ежедневного прослушивания представителям разной возрастной категории, социального статуса и предпочтениям. Это яркий пример, когда скептическое отношение к определенному жанру может измениться – стоит лишь прослушать (   Читать дальше...   )001. In-Grid - Really Really Wanna
+002. Gabrielle Aplin - Nothing Really Matters
+003. Jackson R.A. - Real Life
+004. Barclay James Harvest - Ursula(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9FD442158033B49AC8A8FE7C71A3C9E3D99074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449186   (1030012) от 21.02.2021
+
+VA - German Top 100 Single Charts 19.02.2021[MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Evans 220 KID Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix)
+02. Kasimir1441 badmmzjay WILDBWOYS - Ohne Dich
+03. Jamule Capital Bra - No Comprendo
+04. Tiеsto - The Business(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D465FD7198A1C23291BF95D28534FA3B72152078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449153   (1029838) от 21.02.2021
+
+VA - 90s Megamix (Vol.05) (2021) [MP3|256-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Не считайте, что это сборник из каких-то банальностей, которые тоже, разумеется, заслуживают своего признания, но уже всем поднадоели. Нет, на этот раз у вас будет целых 155 треков различных жанров танцевальной музыки из ушедших 90-х, многие из которых вы, может даже, услышите впервые или вспомните, что не слушали их уже давным давно.001. Maxx - Get A Way
+002. Whigfield - Saturday Night
+003. Robin S. - Luv 4 Luv
+004. East Side Beat - Ride Like The Wind(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B031F84FCD634962B4D2082E141C4D1C1D44AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449781   (1029568) от 23.02.2021
+
+VA - Fresh Beats: Hard Dance Compilation (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Самая жесткая хардкорная танцевальная музыка, от лучших представителей жанра в сборнике "Fresh Beats". Лучшие хардкорные диджеи собрались на лонгплее, чтобы разорвать ваши колонки бешенной музыкой.001. War Of Noize - Hurricaine
+002. Audio Damage - Protect
+003. Brennan Heart - Outcasts
+004. Bass Modulators - Live And Let Die(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5AA77418E4A02239019F2D750A62A3582441994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450175   (1029183) от 25.02.2021
+
+VA - Loud Hits Of The 90s (2021) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Matchbox Twenty - 3am
+002. Champs United - World In Motion
+003. Countdown Singers - Live For Loving You
+004. Graham Blvd - Everybody Plays The Fool(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 14:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A26E03E3F0F5B0D865340DFFB940FCD90443EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450443   (1028798) от 27.02.2021
+
+VA - Hit Music (весна 2021) от Мяу (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Will Armex feat. Katy M - You And I
+002. Riton, Nightcrawlers, Mufasa & Hypeman - Friday
+003. VAVAN - Таю
+004. VIZE & Alan Walker feat. Leony - Space Melody (Edward Artemyev)(   Читать дальше...   )Жанр: PopПродолжительность: 12:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1694ECF72D6DCDE999B8C2A60390C4AF266EEA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451529   (1028211) от 03.03.2021
+
+VA - Winter Pop Music Show (2021) [MP3|320 Kbps] <Dance, Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Только самая свежая и популярная музыка для молодежи и подрастающего поколения меломанов представлена в эксклюзивном альбоме «Winter Pop Music Show». Вашему вниманию представлены известные и подающие надежды исполнители популярной музыки, экспериментальные релизы, лирика и самая энергичная музыка.001. Matthias And Marss - When The Sky Falls Down
+002. Ennart And Vruz Veroni - Party Night
+003. Lizot - Running In My Head
+004. The Romy - Baila Salvaje(   Читать дальше...   )Жанр: Dance, Pop, EurodanceПродолжительность: 08:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7580FB9F3CDA9723EE3C8B29C46DED848A9AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451526   (1028210) от 03.03.2021
+
+VA - National Pop Dance Music (Vol.13) (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Нравится популярная музыка, или Вы пока еще не определились со своими предпочтениями? Попробуйте скачать сборники музыкальных композиций "National Pop Dance Music" — вы обязательно найдете мелодию, соответствующую вашему вкусу и настроению. Поднимите себе настроение, зарядитесь позитивной энергией, слушайте любимую музыку и будьте всегда на гребне музыкальной (   Читать дальше...   )001. Lucky Luke - Cooler Than Me
+002. Davina Michelle - Skyward
+003. Jennifer Lopez - On The Floor
+004. Mark Forster - Bist Du Okay(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A8CBB86B2DE8DE756C9C0C0E435F463E4E4EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451516   (1028137) от 03.03.2021
+
+VA - Shazam Хит-парад World Top 200 Февраль (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Olivia Rodrigo - drivers license (4:02)
+002. Masked Wolf - Astronaut In The Ocean (2:12)
+003. The Weeknd - Save Your Tears (3:35)
+004. ATB, Topic, A7S - Your Love (9PM) (2:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB33FCFA245B2AECD66887BC08559D7216222DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452151   (1027897) от 05.03.2021
+
+VA - Новички в попсе Vol 7 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. GAVRILINA - Ближе к звёздам (1:55)
+02. Свят - Меняли нас (2:00)
+03. Шейх Мансур - Мы сияли (2:02)
+04. Real girl - Пару минут (2:12)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9AA537BA2C49368ADCAE5B3898CF64A3326A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451878   (1027877) от 05.03.2021
 
 VA - 8 марта: Золотые хиты (2021) [MP3|~245 Kbps (V0)] <Pop, Dance>
@@ -6,7 +325,7 @@ VA - 8 марта: Золотые хиты (2021) [MP3|~245 Kbps (V0)] <Pop, Dan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +354,7 @@ VA - New Season: New Look (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +383,7 @@ VA - German Top 100 Single Charts 12.03.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +412,7 @@ VA - Fresh Pop (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +441,7 @@ VA - Pop Remix (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +470,7 @@ VA - German Top 100 Single Charts 19.03.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +499,7 @@ VA - Welcome To Spring (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +559,7 @@ VA - National Pop Dance Music (Vol.14) (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +588,7 @@ VA - Just My Dream: Disco Dance Mix (2021) [MP3|320 Kbps] <Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +617,7 @@ VA - The Dream Dance (2021) [MP3|320 Kbps] <Pop, Dance, Romantic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +646,7 @@ VA - Disco Instrumental (2021) [MP3|320 Kbps] <Disco, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +675,7 @@ VA - Весна на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -385,7 +704,7 @@ VA - German Top 100 Single Charts 02.04.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -414,7 +733,7 @@ VA - 50 Disco Hits (2021) [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,325 +747,6 @@ VA - 50 Disco Hits (2021) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6715D1B041DDEAB0BB10B60BD7030ED83BB22B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461010   (1022036) от 08.04.2021
-
-VA - Back To 90's: Popular Hits (2021) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что 90-е года были уже очень давно и за это время музыка изменилась до неузнаваемости, стали появляться новые направления и стили, хиты 90-х до сих пор часто можно услышать по радио или в клубах. Представляем вам сборник из 165 лучших хитов тех времен, который позволит многим окунуться в атмосферу того времени, а более молодым слушателям прочувствовать (   Читать дальше...   )001. Joan Osborne - One Of Us
-002. Black Eyed Peas - I Gotta Feeling
-003. Cher - All Or Nothing
-004. Madonna - Express Yourself(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 10:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CD0E1181DB000B7FD102660E9E47EF9A680221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461019   (1021940) от 09.04.2021
-
-VA - Romantic Feelings: Top Love Songs (2021) [MP3|320 Kbps] <Pop, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас, без разницы какую роль играет в этом мире, верит в любовь. Кто-то уже нашёл своё счастье и боится его потерять, а кто-то в поисках своей второй половинки верит и ждёт чуда! И оно непременно найдет каждого из Вас. Цените каждый момент, проведенный с любимыми! Говорят нам исполнители песен сборника "Romantic Feelings: Top Love Songs".001. Headlow - Movin On
-002. Marc Benjamin - Losing Focus
-003. Pyn - Spring Fever
-004. Sick Individuals - Dear Love(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 05:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3EDA75B4A956EDFBB6934AF8A66E5DA2E1DFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461869   (1021588) от 11.04.2021
-
-VA - National Pop Dance Music (Vol. 15) (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты в поиске заводной весенней музыки, веселого ритма и душевных мелодий, то сборник «National Pop Dance Music» уже 15-го релиза - это то, что ты искал. Добро пожаловать на самую крупную дискотеку всех стран европы! На лонгплее для вас играют лучшие музыканты, самые востребованные и признанные артисты многонационального содружества.001. Dotan - There Will Be A Way
-002. Holy Molly - Alcohol
-003. Keiju - Let Me Know
-004. Smith & Thell - Yatzy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC9B371FBA24EACA0C26B9EED2A7FFD15106C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462228   (1021320) от 13.04.2021
-
-VA - Funk N' Groove Disco Mix (2021) [MP3|320 Kbps] <Disco, Nu Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодичность, минимализм в аранжировке, фирменные ритмы, клавишные и струнные инструменты, отличный фанковый вокал, кристально чистое, отшлифованное до блеска, звучание – всё это характеризует современную диско музыку. При этом, однозначную «узнаваемость» такого саунда можно назвать несомненным его плюсом.001. Tony Zecchi - That's Right
-002. DJ Fopp & Daniele Danieli - Shine
-003. Soul Ty - I Can Not Move Mountains
-004. Ivan Starzev - Bali Ubud(   Читать дальше...   )Жанр: Disco, Nu Disco, FunkПродолжительность: 11:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8C83BF47D44C4B5FF6102AAABD251815CA0668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462212   (1021256) от 13.04.2021
-
-VA - Best 80s Disco Hits (2021) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - We Kill the World (4:30)
-02. Digital Emotion - Go Go Yellow Screen (6:00)
-03. Fun Fun - Color My Love (4:06)
-04. Grant Miller - Colder Than Ice (5:34)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87053C365C996004155AE971B7FD6BED60260D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462528   (1021214) от 14.04.2021
-
-VA - Brighter Day: Pop Spring Collection (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячно на крупных музыкальных порталах публикуются различные тематические музыкальные сборники, отличающиеся по жанру и аудитории слушателей. В этот раз хотим представить Вашему вниманию отличную сборку весенних хитов – «Brighter Day». Ровно 150 песен были отобраны согласно бурному обсуждению и рейтингу голосования во Всемирной паутине.001. Kalford - Just People
-002. MC Groove feat Federica - Undone
-003. Blaikz,Nisa - Dance With Me
-004. Carella - Asmr(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FC16A4B67C0C935B63D972D95AA94630D065A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463003   (1020769) от 16.04.2021
-
-VA - Best 80s Disco Hits 2 (2021) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Amore - Don't Let Me Go (Vocal Amore Extended Mix) (8:00)
-02. Boney M - Silly Confusion (1) (7:18)
-03. CHIC - I Want Your Love (6:55)
-04. Donna Summer - Hot Stuff (6:40)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1700589FDE30074759CE5D3E5E84131762DC6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463118   (1020650) от 17.04.2021
-
-VA - German Top 100 Single Charts 16.04.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
-02. Santos, Sido & Samra - Leere Hände
-03. Luciano - KIDS FROM THE BLOCK
-04. Lil Nas X - MONTERO (Call Me By Your Name) (But Lil Nas X Is Silent The Entire Time)(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1029B79DDBA85BEAE9692B4F24B979AD304AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463319   (1020610) от 17.04.2021
-
-VA - Chill Hits (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Conan Gray - Heather (3:18)
-002. LEON - In a Stranger's Arms (3:21)
-003. Sasha Sloan - smiling when i die (3:26)
-004. ZAYN - Vibez (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 06:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842F5633783977BCEF4D9CB9B69089956CD9CD65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463541   (1020055) от 20.04.2021
-
-VA - Best 80s Disco Hits 3 (2021) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Culture Beat - Mr. Vain (5:41)
-02. Army Of Lovers - Crucified (3:34)
-03. Army Of Lovers - La Plage De Saint Tropez (3:33)
-04. Arabesque - Midnight Dancer (3:40)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F32EC03C3F6B6BB496CC1C8A0F1E8A8D28F0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464290   (1019783) от 22.04.2021
-
-VA - Nu Disco: New Generation And The Remixes (2021) [MP3|320 Kbps] <Nu Disco, Funky, Dance, Disco House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взрывная энергетика, яркие образы, аутентичный вокал и дух старого доброго диско в сборнике "Nu Disco: New Generation And The Remixes". Само название лонгплея уже говорит, что здесь Вы услышите не заезженные ретро хита, а новые композиции в стиле диско от наших современников.001. Aldous - Birthday
-002. Probably Shouldnt - Canon
-003. The Beat Broker - Hold Your Horses
-004. Erdinc Erdogdu - Skin(   Читать дальше...   )Жанр: Nu Disco, Funky, Dance, Disco HouseПродолжительность: 09:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E3D510422E14214720738268EB74DFE672665D
 ```
 
 https://mybot314.ru/tekegram_catalog/

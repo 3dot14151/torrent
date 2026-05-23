@@ -1,3 +1,81 @@
+###  Публикация: 1371659   (888149) от 01.04.2020
+
+CG Cookie | Создание процедурных песчаных дюн в Blender 2.8 / Creating Procedural Sand Dunes with Blender 2.8 (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Совершите путешествие в пустыню с помощью этого видеокурса Blender 2.8. Вы узнаете гибкий рабочий процесс для создания реалистичных песчаных дюн. Пусть Blender сделает моделирование за вас с помощью процедурного смещения текстуры и адаптивным подразделением (микро-смещением).Производство: CG CookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BA764A9C954537B660F97B4611F4464217BE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371661   (888107) от 01.04.2020
+
+CG Cookie | Риггинг трансформирующейся винтовки в Blender 2.8 / Rigging a Transforming Rifle in Blender 2.8 (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Узнайте как настроить риг для сложной винтовки в Blender, которая превращается в снайперскую винтовку! Весь эффект полностью контролируется одной костью, так что его будет очень легко анимировать. Если вы можете настроить эту винтовку, вы можете настроить почти любое оружие, которое вы можете придумать. Здесь вы узнате много об арматуре, осях вращения, костных ограничениях, (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделирование, АнимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EE70461426C54E18FF3D8F2785D915DB23A2DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371663   (888092) от 01.04.2020
+
+CG Cookie | Анимация оружия персонажей от первого лица в Blender 2.8 / Animating First Person Character Weapons in Blender 2.8 (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этот учебный курс по Blender покажет вам как именно анимировать оружие для шутера от первого лица, от простого стояния до сложных действий, таких как перезарядка и превращение винтовки в снайперскую.Производство: CG CookieЖанр: 3D моделирование, АнимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 05:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6D154CE66773924934B5F2F9A0921D4E745FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494696   (887383) от 08.09.2021
 
 Unreal Engine, Jerome Platteaux | Lighting with Unreal Engine Masterclass (2017) PCRec [En, Ru]
@@ -6,7 +84,7 @@ Unreal Engine, Jerome Platteaux | Lighting with Unreal Engine Masterclass (2017)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Udemy, Michael Ricks | Learn How To Do Amazing Cloth Animation In Unreal Engine 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Epic Games, Mathew Wadstein | UE4 Projects and File Structure (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Packt Publishing, Jonathan A. Daley | Building an Unreal RTS Game: Adding Killer
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Udemy, Cubo Class и др. | Unreal Engine 4 Class. Blueprints Part 1-4 (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +215,7 @@ CG Cookie | Создание зацикленного коридора в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +241,7 @@ CG Cookie | Создание мини-танка для мобильных иг�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +267,7 @@ CG Cookie | Создание анимации с ригом в Grease Pencil в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +294,7 @@ CG Cookie | Основы моделирования 3D-меша в Blender 2.8 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +322,7 @@ FXPHD, Jeronimo Maggi | Advanced VEX & Python for Houdini TDs (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +348,7 @@ Chris Orwig | [Lynda.com]Photoshop Blend Modes for Photography [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +375,7 @@ j-design.pro, Сергей Привалов | 3D моделирование в Z
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +403,7 @@ kondratiki | Абсолютный ZBrush курс ZBrush-1 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +429,7 @@ Viscorbel, Austris | Classic Furniture VOL2 ORNAMENT (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +455,7 @@ Udemy, Steve Lord | Sculpting Animals (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +482,7 @@ Digital Tutors, Alex Jerjomin | Importing and Rendering a Stylized Environment i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -431,7 +509,7 @@ Digital Tutors, Alex Jerjomin | Texturing a Stylized Game Environment in Photosh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -458,7 +536,7 @@ Digital Tutors, Justin Marshall | Cloth Workflows in ZBrush (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -485,7 +563,7 @@ Digital Tutors, Alex Jerjomin | Sculpting a Stylized Game Environment in ZBrush 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -542,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -610,88 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6DA7F1E8DF00D53CDAD02429239C8F28C1585A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496266   (872851) от 17.09.2021
-
-Rohan Dalvi | Making dessert in Houdini Part 2 (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это обновленная версия курса Tea and Cookies (Чай и печеньки). Мы, как и тогда, посмотрим на темы моделирования, шейдинга, освещения и рендера. Главное отличие курса в том, что вместо рендера Mantra, мы будем использовать рендер Redshift, Octane и Arnold.
-Вторая часть пока что доступна в двух вариантах для Redshift и Octane. Мы сфокусируемся на освещении и рендере. (   Читать дальше...   )Жанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 02:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6ED0158B1A81CBE0D6B4888B9882EE477F35DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496268   (872597) от 17.09.2021
-
-Uartsy, Marshall Vandruff | Animal Anatomy (2016) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872597.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы узнаете о том, как следует анализировать формы из которых состоят животные, узнаете об их построении. Все эти знания вы сможете применить в своей работе и нарисовать любое существо под любым углом без примера.
-Профессионалы, работающие над созданием разных существ зачастую вдохновляются внешним видом животных. Понимание анатомии животных даст вам (   Читать дальше...   )Производство: UartsyЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 14:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E96A1D433D85913748F963DC8441C030385D6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496745   (871049) от 18.09.2021
-
-Digital Tutors, Joshua Kinney | Game Asset Production Pipeline for Unity (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871049.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии уроков по Unity мы шаг за шагом создадим ассет и рассмотрим процесс его создания для Unity целиком.
-Мы начнем с общих рекомендаций по настройкам для создания игровых ассетов в приложениях типа 3ds Max. После чего займемся созданием высокополигонального ассета при помощи 3ds Max и ZBrush.
-Затем научимся быстро моделировать и разворачивать наш игровой (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C4933F6B9E0F68F6A8BF5B88860F42DB60607A
 ```
 
 https://mybot314.ru/tekegram_catalog/

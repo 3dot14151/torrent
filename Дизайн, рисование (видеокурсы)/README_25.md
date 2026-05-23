@@ -1,3 +1,84 @@
+###  Публикация: 1380274   (834403) от 02.05.2020
+
+Никита Ивановский | Основы 3D графики [ступень 1] (2018) PCRec [H.264]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На данном курсе студенты овладевают основными навыками 3D моделирования, изучают интерфейс программы 3Ds Max, горячие клавиши, учатся работать с примитивами и модификаторами, а так же пробуют собирать и рендерить интерьерные 3D сцены по готовым библиотекам в Corona Renderer, а так же обрабатывать первые визуализации в Adobe Photoshop.Производство: visschool.ruЖанр: Обучающее видеоПродолжительность: 17:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A205587FA025694208032E308375B74F4361D57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380346   (834317) от 02.05.2020
+
+Станислав Гадельшин | Базовый курс по 3ds Max (2016) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обучение 3ds Max с нуля до профессионального уровня без отрыва от работы или учебы.Производство: easy3dsmax.comЖанр: Обучающее видеоПродолжительность: 37:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5112A766656B5FE19C9279B33825EA0ED31C882A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501741   (833452) от 11.10.2021
+
+Никита Табатчиков | Реалистичная одежда в 3D (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Все самое необходимое о том, как быстро создавать реалистичную одежду, ткани для интерьеров, настраивать текстуры и, конечно, визуализировать.
+ЧЕМ?
+Основная работа будет выстроена в Marvelous designer.
+Так же разбираем экспорт в другие редакторы(   Читать дальше...   )Жанр: ДизайнПродолжительность: 15:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C81055CE1E0485A782DBEAC1BD37CEF2027E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501735   (833070) от 11.10.2021
 
 Сила дизайна, Андрей Лов | Графический дизайнер 2022 (2021) WEB-DL [AD]
@@ -6,7 +87,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -63,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -89,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -115,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -141,7 +222,7 @@ CGMA, Niels Prayer | Organic Design in Houdini (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -167,7 +248,7 @@ FlippedNormals, Maria Puchkova | Real-Time Hair Tutorial (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -247,7 +328,7 @@ ArtStation, Tautvydas Kazlauskas | Modeling in Blender 2.83 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -273,7 +354,7 @@ Udemy, Connor Gerber | Game Ready Triple Barrel Hand Cannon [Blender 2.93, Subst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -300,7 +381,7 @@ Schoolism, Sonja Christoph | Introduction to Blender 2.9 [Low Quality] (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -353,7 +434,7 @@ Skillshare, Greg Wondra | Unreal Engine 4: Character UI Creation (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -379,7 +460,7 @@ Udemy, CG Boost, Zach Reinhardt | Mastering Sculpting in Blender 2.79 (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -406,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -433,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -460,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -489,7 +570,7 @@ kalachevaschool, Дарья Остапенко | Построение прост
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -518,7 +599,7 @@ kalachevaschool, Евгения Мельникова | Скетчи разным
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -546,7 +627,7 @@ kalachevaschool, Дарьей Остапенко | Рисуем человека
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -575,7 +656,7 @@ kalachevaschool, Дарьей Остапенко | Эстетика обнаже
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -601,7 +682,7 @@ YoRender | Курс 3ds Max для начинающих (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,89 +696,6 @@ YoRender | Курс 3ds Max для начинающих (2015) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60D26D71D89CC4F4908CDC8BDBD908083A3030D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503806   (817357) от 20.10.2021
-
-WingFox, Xiao Yan | Lady Gunslinger - A tutorial of production of a model of a fair lady character (2020) PCRec [CN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этого курса - научить вас создавать свой личный дизайн на основе того, что у вас уже есть. Мы в основном используем базовую модель DAZ и UV карты для эффективного создания вашего дизайна. Этот урок будет основан на примере Леди стрелка. Мы пройдем через процессы изготовления карт, аксессуаров, одежды, прически, рендеринга освещения и простой композиции в Photoshop, (   Читать дальше...   )Производство: WingFoxЖанр: 3D моделированиеЯзык озвучки: КитайскийСубтитры: Английские (вшитые, не отключаемые)Продолжительность: 19:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38003E980D7C9E5CFE43064DBD40737B92101A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503684   (817197) от 20.10.2021
-
-Вольница, Александр Брин | Cinema 4D и After Effects: Детали v.2 (2021) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс для тех, кто уже освоил работу в Cinema 4D, но чувствует, что в его работах не хватает чего-то важного. Того, что придает картинке «дороговизну».
-
-«Дьявол кроется в деталях»
-Детализация. Вспомогательные элементы. Технологичные «шурешки». Секреты работы с текстурами — мастера бродкаста не торопятся делиться этими суперприемами, так что в Ютубе их не найти.Производство: ВольницаЖанр: 3d ГрафикаПродолжительность: 12:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5444133D99EDBDDB00503481D8632ADC793449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382990   (812971) от 14.05.2020
-
-The Gnomon Workshop | Введение в ZBrush 4R8 / Introduction to ZBrush 4R8 (Updated April 2018) (2018) PCRec [H.264/1080p-LQ] [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс "Введение в Zbrush 4r8" с Мадлен Скотт-Спенсер познакомит вас со всеми базовыми техниками и более продвинутыми методами скульптинга и детализации. Он включает в себя более 18 часов обучающего видеоматериала.
-
-For over a decade, ZBrush has been the industry standard tool for digital sculpting. It is used for visual effects in blockbuster films, video (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D-графикаЯзык озвучки: АнглийскийПродолжительность: 18:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1747F9057B5F419C320587AB03D80E7ADCC0DE97
 ```
 
 https://mybot314.ru/tekegram_catalog/

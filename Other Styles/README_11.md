@@ -1,3 +1,209 @@
+###  Публикация: 970808   (987322) от 02.01.2016
+
+Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music Of The Beatles (2001) SACD [FLAC|Lossless|tracks + .cue] <Pop, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Eleanor Rigby (Orchestral version) (3:24)
+02. All You Need Is Love (3:15)
+03. When I'm Sixty-Four (3:15)
+04. Michelle (3:32)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600345   (986533) от 01.02.2013
+
+VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumental, Pop, Retro, Vocal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+49. Dancing On A Saturday Night - Barry Blue
+50. Dance The Body Music - Osibisa
+51. Nice 'n' Slow - Jesse Green
+52. He's The Greatest Dancer - Sister Sledge
+53. Kung Fu Fighting - Doug Carlson
+54. Upside Down - Hazel Fernandes
+55. Dance Little Lady - Tina Charles
+56. Blame It On The Boogie - Brotherhood of Man
+57. Y.M.C.A. - The Thymes
+58. It's Raining Men - Alison Jiear(   Читать дальше...   )Жанр: Instrumental, Pop, Retro, Vocal...Продолжительность: 01:18:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354974   (986039) от 24.01.2020
+
+Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Check Point (01:21)
+02. Nurse Droid (01:08)
+03. The Ewebb (04:07)
+04. A Thousand Tears (04:07)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 03:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B61320E00E324B39A46EE046D719D8A98271105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354975   (985958) от 24.01.2020
+
+Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Check Point (01:21)
+02. Nurse Droid (01:08)
+03. The Ewebb (04:07)
+04. A Thousand Tears (04:07)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 03:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA7EA6D47CDD2E73305D002E92412C3C639A319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434927   (985265) от 11.01.2012
+
+Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005) [FLAC|Lossless]<Indian Classical, Bansuri Flute, Meditation, Relax>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Indian Classical, Meditation, RelaxПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355261   (984976) от 25.01.2020
+
+Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Bonny Light Horseman (04:30)
+02. Deep In Love (05:09)
+03. The Roving (04:20)
+04. Jane Jane (03:06)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355154   (984868) от 25.01.2020
+
+VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Salguero - Cbmo (Original Mix) 4:31
+02. Sunyata Project - Words Of Vishnu (Original Mix) 7:15
+03. Minka - Rainy Day (Original Mix) 5:33
+04. Rex Kramer - 2800M Above (Original Mix) 5:38(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, ElectronicaПродолжительность: 02:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C829429786327B1223A78A6E0E457E61972F37AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971873   (984472) от 04.01.2016
 
 Mashrou' Leila - Ibn El Leil (2015) [MP3|320 кб/с] <Ethnic, Indie, Pop Rock>
@@ -6,7 +212,7 @@ Mashrou' Leila - Ibn El Leil (2015) [MP3|320 кб/с] <Ethnic, Indie, Pop Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +241,7 @@ Enigma - Revival from Disuse (feat. Fato Deejays) 2009 (2009) [MP3|320 kbps]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -70,7 +276,7 @@ Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -99,7 +305,7 @@ Ennio Morricone - Once Upon A Time... (2004) [FLAC|Lossless]<Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -134,7 +340,7 @@ David Arkenstone - Dream Palace. Pan Pipes with String Orchestra (2005) [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +369,7 @@ VA - Los clasicos argentinos Tango - Vol.05 (1996) [MP3|128 кб/с] <Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +398,7 @@ Deep Forest - World Mix (1992) 1994 Columbia [FLAC|Lossless|tracks + .cue] <Hous
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +427,7 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +453,7 @@ VA - Волшебные мелодии. Коллекция Ридерз дайд
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -282,7 +488,7 @@ Angelo Badalamenti - Twin Peaks (1990) [FLAC|Lossless|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -311,7 +517,7 @@ Jim Brickman - Pure (2006) Japanese Edition [FLAC|Lossless|image + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -340,7 +546,7 @@ VA - Variations Of Silence (2009) p*dis [FLAC|Lossless|tracks + .cue] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -369,7 +575,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +604,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +633,7 @@ Jim Brickman - Timeless (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +662,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +691,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,7 +720,7 @@ Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Orig
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +749,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,209 +763,6 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356229   (980356) от 29.01.2020
-
-Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meek Mill & Farruko - Uptown II (02:54)
-02. City Girls - Money Fight (02:38)
-03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
-04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973429   (980258) от 08.01.2016
-
-Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Picture Score) (2007) [MP3|320 кб/с] <Soundtrack, Music, New Age>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gas Station In The Fog (1:32)
-02. Socrates On The Roof (1:01)
-03. "If You Don't Make The Team..." (0:41)
-04. An Unexpected Visit (1:25)(   Читать дальше...   )Жанр: Soundtrack, Music, New AgeПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DF0453FCC01355CCB306833681D6AB5D4BD60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973463   (980256) от 08.01.2016
-
-Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|Lossless] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omoide no e (1:41)
-02. Tora no e (1:19)
-03. Hirame no e (0:47)
-04. Shuumatsu no e (1:58)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F2A4EE14DABE5E199082D5A488F2A779D3CD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972375   (980253) от 08.01.2016
-
-Jim Brickman - Grace (2005) [FLAC|Lossless|tracks + .cue] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Brickman & Ginny Owens - Amazing Grace (3:14)
-02. Jim Brickman - Israel (2:24)
-03. Jim Brickman with Many Crowns - Crown Him (2:50)
-04. Jim Brickman - Joyful (3:50)(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02209B6FEEF6E06FEE086E3A3CC56903C196318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973725   (979263) от 09.01.2016
-
-Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracie's Theme
-02. Life & Death
-03. Passing Time
-04. Miracles(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095354472A680352FA7AFB8C560E9AF0A29B7297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356324   (979122) от 30.01.2020
-
-Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bends (01:36)
-02. Voyage to the Bottom of the C (Main Title) (02:43)
-03. Norah's Theme (02:23)
-04. Sprung a Leak (01:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5D4132949BBD681E9379AD1E1C6691FA635349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356325   (979110) от 30.01.2020
-
-Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bends (01:36)
-02. Voyage to the Bottom of the C (Main Title) (02:43)
-03. Norah's Theme (02:23)
-04. Sprung a Leak (01:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898B309CE66D50197EA32AADBA7B2BC634BE2008
 ```
 
 https://mybot314.ru/tekegram_catalog/

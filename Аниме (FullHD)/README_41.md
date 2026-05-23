@@ -1,3 +1,57 @@
+###  Публикация: 306250   (314916) от 06.11.2020
+
+RahXephon TV / Ра-Зефон [ТВ] [2002, TV 26 эп. ] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+RahXephon TV / Ра-Зефон [ТВ] Год выпуска: 2002
+Жанр:  фантастика, драма, романтика, меха
+Тип: TV(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A432F48AF1C5586492B086452FAFDCA3D6BDE5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317355   (314802) от 06.11.2020
+
+Phantom ~Requiem for the Phantom~ / Фантом: Реквием по Призраку [2009, 26 эп. + 12 SP] BDRip 1080p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Зловещая организация «Инферно» расчищает дорогу к власти, одного за другим устраняя боссов американской мафии руками «Фантома» - легендарного киллера, не ведающего неудач. Кроме имени, о призрачном убийце мало что известно, ведь видевшие его «за работой» уже ничего не расскажут. Но то, что неведомо бывалым бандитам и вездесущим спецслужбам, случайно узнает молодой (   Читать дальше...   )Жанр: приключения, драма, нуарРежиссер: Масимо КойтиПродолжительность: 00:25 x26 + 00:07 x12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78D090606A79A9FE1367F7C415D385A67248F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 331262   (314798) от 06.11.2020
 
 Shiki / Corpse Demon / Усопшие [2010, TV, 22 +2сп эпизода] BDrip 1080p raw
@@ -6,7 +60,7 @@ Shiki / Corpse Demon / Усопшие [2010, TV, 22 +2сп эпизода] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Noragami / Бездомный бог [2014, TV, 12 + 2 OAD] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Minori Scramble! | Переполох Минори! [2012, OVA] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ Joshi Kausei | Беспечные старшеклассницы [2019, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12 эп.] BDRip 1080 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Strike the Blood II | Удар крови [OVA-2] [2016, OVA, 8 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +245,7 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +273,7 @@ To Aru Majutsu no Index / A Certain Magical Index / Индекс Волшебс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +299,7 @@ Versailles no Bara | The Rose of Versailles | Lady Oscar | Роза Версал
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +327,7 @@ Soukyuu no Fafner: Dead Aggressor - Heaven and Earth / Fafner: Heaven and Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +354,7 @@ Haruchika: Haruta to Chika wa Seishun Suru | Haruchika: Haruta & Chika | Хар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +380,7 @@ Kyou kara Ore wa!! | Today, It's My Turn!! | Сегодня и начну! [1993
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +406,7 @@ Kidou Senshi Gundam: SEED | Mobile Suit Gundam: SEED | Мобильный дос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +432,7 @@ Mei Ou Project Zeorymer / Hades Project Zeorymer / Дьявольский Про
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +460,7 @@ ISUCA | Иска [2015, TV, 10 эп. + 1 OAD] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +486,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV + OVA, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +512,7 @@ Mikagura Gakuen Kumikyoku | Mikagura School Suite | Сюита школы Мик
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +538,7 @@ Hoshi o Ou Kodomo | Hoshi wo Ou Kodomo | Children Who Chase Lost Voices | Лов
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +564,7 @@ Clione no Akari | Lights of the Clione | Свет морского ангела 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +590,7 @@ Love Live! The School Idol Movie | Живая любовь! (фильм) [2015, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +642,7 @@ Eiga Chuunibyou demo Koi ga Shitai! Take on Me | Чудачество любви
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +668,7 @@ THE iDOLM@STER SHINY FESTA | The Idolmaster: Shiny Festa [2012, OVA, 3 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -625,59 +679,6 @@ THE iDOLM@STER SHINY FESTA | The Idolmaster: Shiny Festa [2012, OVA, 3 эп.] BD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC938C4603E7E00F631B5952CCA8672BAA12F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183102   (299039) от 18.11.2017
-
-Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвете | Песнь Лу, что возвещает рассвет [2017, Movie] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299039.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом прибрежном городке живёт обычный школьник Кай. Мечтает Кай перебраться в Токио, где сможет реализовать свою мечту стать всемирно известным музыкантом. А пока он с друзьями организовал музыкальную группу "Сирена" и с переменным успехом выступает перед местными жителями.
-Но всё меняется, когда он встречает самую настояющую русалку. Как эта встреча (   Читать дальше...   )Производство: студия Science Saru / サイエンスSaruЖанр: приключенияРежиссер: Юаса МасаакиПеревод: Drnndy + BBNGЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 110 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27238DAD16EDC13DE798ACC5454B7A1C883D2F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174707   (298776) от 18.11.2017
-
-Frame Arms Girl | Боевые куколки | Вооружённая малышка [2017, TV, 12 эп.] BD-rip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покупки в интернете - та ещё лотерея. Заказываешь себе что-нибудь, ждёшь-ждёшь, а посылка берёт и теряется на пути к тебе. Знакомо? Оказывается, таким промышляет не только наша почта. Правда нашей главной героине Ао Геннай повезло немножко больше, чем нам. Ничего она не заказывала, ничего не ждала, а в один прекрасный день ей по ошибке доставили чужую посылку. Да (   Читать дальше...   )Производство: студия ZEXCS / ゼクシズЖанр: приключения, комедия, меха, эттиРежиссер: Кавагути КэйитироПеревод: Mike PayneЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72ACDBAD806487B48385175D3700F479668A37A
 ```
 
 https://mybot314.ru/tekegram_catalog/

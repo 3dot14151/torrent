@@ -1,3 +1,107 @@
+###  Публикация: 1816111   (4537) от 03.09.2025
+
+BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сюжетная приключенческая игра, сочетающая в себе экшен и расследования так, как никогда ранее. Используешь ли ты свой острый ум или кулаки? В футуристичном мире, где животные заняли место людей, привилегированные горожане живут под Куполом, защищающим их от загрязненной окружающей среды, в то время как остальные изо всех сил борются за выживание.Тип издания: RepackРазработчик: COWCATЖанр: Приключение, Квест, ФайтингЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048081641416B2139763294B950120FC57CDA56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816181   (4532) от 03.09.2025
+
+Summer Pockets: Reflection Blue (2025) [Multi] (1.2.0.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Summer Pockets: Reflection Blue начинается с того, что протагонист, Такахара Хаири, отправляется на отдаленный остров Торисиродзима, чтобы во время летних каникул разобраться с личными вещами своей покойной бабушки. Молодой человек осваивается с жизнью в окружении пышной природы, которая резко контрастирует с покинутым им городом.Тип издания: SceneРазработчик: VISUAL ARTSЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C239001A793E016E279B6922A0B0A3598FACEEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807665   (4515) от 04.09.2025
+
+The Drifter (2025) [Multi] (1.0.9) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мик Картер уже давно дрейфует: переходит с одной работы на другую, никогда не задерживаясь на одном месте. Сев в крытый вагон, он становится свидетелем жестокого убийства, его преследуют высокотехнологичные солдаты, бросают в водохранилище и топят. И это только начало проблем Мика. Его сознание вырвано, за несколько секунд до смерти он возвращается в собственное (   Читать дальше...   )Тип издания: LicenseРазработчик: Powerhoof, Dave LloydЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F267578602F5EFA2BA5CAEC08E514FC207225C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816293   (4480) от 04.09.2025
+
+The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования этой видеоигры находится Такуми Сумино, обычный токийский подросток, чья размеренная жизнь в одночасье переворачивается с ног на голову. Тихие улицы мегаполиса внезапно наполняются хаосом, когда на город обрушивается нашествие загадочных монстров. В этот критический момент перед Такуми предстаёт странное существо по имени Сирей, предлагая юноше (   Читать дальше...   )Тип издания: RepackРазработчик: Too Kyo Games, Media.Vision Inc.Жанр: Приключенческие игры, СимуляторыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948AF9D5037A9847D7FA110A0344A6CE336C537A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816267   (4455) от 04.09.2025
 
 Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
@@ -6,7 +110,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dead Take (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Kaptain Brawe: A Brawe New World (2011) [Ru/Multi] (3.1.4.33) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Revenge of the Savage Planet (2025) [Ru/Multi] (2025-9-9-106947 Net5/dlc) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19705579/dlc) Repack FitGirl [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13.2 4801/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0 Build 19682311/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Alters (2025) [Ru/Multi] (1.3.0.7/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2FD5F8C95056FE3EACD81518A5CA501DDF9BF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783303   (2579) от 16.09.2025
-
-Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797216   (2578) от 16.09.2025
-
-Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправься в бескрайний мир, где ты можешь изменить каждую планету, каждую систему и каждый миг. Исследуй вселенную, полную жизни, древних тайн и нетронутых красот. Дай отпор Красной тьме, собирая ресурсы и создавая инструменты, оружие и транспорт, без которых не обойтись в этой одиссее. Объединись с друзьями и сразись с гигантскими противниками, чтобы подарить надежду (   Читать дальше...   )Тип издания: RepackРазработчик: Atypical GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCBD9B0B85640529F7458FECDA0A2D1C70E4516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418701   (2552) от 16.09.2025
-
-Monster Prom (2018) [Multi] (8.0/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2552.jpg" />
-</div>
-
-
-###  Подробнее
-
-До выпускного бала осталось всего три недели, а вы так и не решили, с кем на него пойти... Ах да, еще вы - чудовище. Впрочем, все ученики этой школы - чудовища! Monster Prom - это романтический симулятор свиданий, в который могут играть от одного до четырех человек, соперничая друг с другом за пару своей мечты. А еще вас в какой-то момент обязательно посетит мысль: (   Читать дальше...   )Тип издания: LicenseРазработчик: Beautiful GlitchЖанр: Симулятор, Визуальные новеллы, КoмедияЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C5BB89AD8209063707C56264A02A3AD3C1BA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794964   (2539) от 16.09.2025
-
-Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играя за Элроя и Пегги, вы решаете интригующие головоломки, раскрываете археологические тайны, встречаетесь с необычными инопланетными культурами и наслаждаетесь полезными эмоциональными моментами – и всё это в юмористическом ключе современного приключения в стиле point-and-click. Элрой – гениальный инженер-ракетчик, чей отец исчез 18 лет назад при подозрительных (   Читать дальше...   )Тип издания: LicenseРазработчик: MotivitiЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98B1DC6B9B343D95A8D26A1E9F2E00FA7F35292
 ```
 
 https://mybot314.ru/tekegram_catalog/

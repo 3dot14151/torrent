@@ -1,3 +1,55 @@
+###  Публикация: 1480785   (1008711) от 30.06.2021
+
+Hataraku Saibou!! | Клетки за работой! [ТВ-2] [2021, TV, 8 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+День за днём мы живём с вами, совершенно не задумываясь о процессах, происходящих внутри нашего организма. Всё происходит словно само собой, наши лёгкие 24 часа в сутки осуществляют газообмен, а сердце неутомимо перекачивает кровь по всему телу. И даже когда наш разум засыпает, тело наше продолжает неустанно трудиться, чтобы на следующее утро мы смогли вновь открыть (   Читать дальше...   )Производство: студия David Production / デイヴィッドプロダクションЖанр: приключения, комедияРежиссер: Огура ХирофумиПеревод: Wakanim (дехардсаб, оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 8 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8289DA359D1F31A83AC1DA3F824B930CB2467DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440704   (1008365) от 02.07.2021
+
+Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдрифа [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В один не совсем прекрасный день над Землёй появились Столбы, угрожающие всей жизни на планете. Бог, назвавшийся Одином, в тяжёлый час пришёл на помощь практически побеждённому человечеству и объявил контратаку, отдав людям боевых дев валькирий, снабдив их крыльям-«героикрафтами» (которые подозрительно похожи на самолёты первой половины прошлого века). Спустя несколько (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключенияРежиссер: Токуда ХиротакаПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. (первая серия - 50 мин.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7918115794C4E3C372B0F2563D96CCED39764003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470591   (1008108) от 04.07.2021
 
 Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu You na Monogatari | История о пареньке из деревни [2021, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +58,7 @@ Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu You na M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Gleipnir | Глейпнир [2020, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ TO-Y | Той [1987, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +216,7 @@ Akudama Drive | Акудама Драйв [2020, TV, 12 из 12] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +243,7 @@ Go-Toubun no Hanayome 2 | The Quintessential Quintuplets 2 | Пять невес
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +269,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Yatogame-chan Kansatsu Nikki | Заметки Ятогамэ [ТВ-1] [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Mahou Shoujo Lyrical Nanoha: Detonation | Magical Girl Lyrical Nanoha Detonation
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Idoly Pride | Расцвет айдолов [2021, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Slayers Try | Рубаки снова [1997, TV, 26 из 26] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Slayers Next | Снова Рубаки [1996, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Urusei Yatsura Movie 3: Remember My Love | Those Obnoxious Aliens: Remember My L
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +503,7 @@ Urusei Yatsura Movie 5: Kanketsu Hen | Those Obnoxious Aliens: The Final Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +529,7 @@ Urusei Yatsura Movie 2: Beautiful Dreamer | Those Obnoxious Aliens: Beautiful Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +555,7 @@ Urusei Yatsura Movie 6: Itsudatte My Darling | Those Obnoxious Aliens: Always My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +582,7 @@ Urusei Yatsura OVA Series | Those Obnoxious Aliens OVA | Несносные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +608,7 @@ Azumanga Daiou The Animation | Azumanga Daioh | Адзуманга [2002, TV, 26
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -582,7 +634,7 @@ Gekijouban Kyochuu Rettou | Остров насекомых-гигантов (ф
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -608,7 +660,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -620,58 +672,6 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EDAC7A31EE11EFB0DBBEE54FBB2C80A14A31EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488877   (1001429) от 13.08.2021
-
-Natsume Yuujinchou: Ishi Okoshi to Ayashiki Raihousha | Тетрадь дружбы Нацумэ: Пробуждение камня и подозрительный посетитель [2021, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001429.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части фильма Нацумэ, разыскивая своего сэнсея, почему-то убежавшего из дома (впрочем, все коты очень своевольны), встречает маленького ёкая и помогает ему исполнить его долг – пробудить духа, покоящегося в скрытом каменном святилище. Задача осложняется тем, что по пути встречается немало конкурентов, желающих добраться до каменного святилища первыми, и среди (   Читать дальше...   )Производство: Студия Shuka / 朱夏Жанр: приключения, фэнтезиРежиссер: Омори ТакахироПеревод: AnimeJoyЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 55 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956B6E34169CE1D68F4E65B1E8FC355BA29C15BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488808   (1001366) от 13.08.2021
-
-Shin Evangelion Gekijouban:|| | Evangelion: 3.0+1.0 Thrice Upon a Time | Евангелион 3.0+1.0 [2021, Movie] WEBRip 816p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синдзи Икари все еще дрейфует после того, как потерял волю к жизни, но место, куда он прибыл, учит его, что значит надеяться. Наконец, проект «Инструментальность» приводится в движение, и Вилле делает последний изнурительный бой, чтобы предотвратить Окончательный удар. Четвертый и последний фильм в рeмейке аниме-сериала Neon Genesis Evangelion.Производство: Студия Studio Khara / スタジオカラーЖанр: приключения, фантастикаРежиссер: Анно ХидэакиПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 155 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A70E9749BF88006AC3B696EF405C3C109F30C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

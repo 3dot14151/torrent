@@ -1,29 +1,3 @@
-###  Публикация: 1756825   (39532) от 23.10.2024
-
-Сборник русифицированных игр Dendy (1983-2021) [NES] [Famicom] [EmuELEC] [ALL] [Repack] [Ru/Multi]
-
->>Консольные Игры
->>Ромы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dendy (рус. Де́нди) - серия домашних игровых приставок, неофициальный аппаратный клон Famicom третьего поколения от Nintendo. Dendy выпускалась компанией Steepler с конца 1992 года и собиралась на Тайване из китайских комплектующих. В основном она продавалась в России и странах постсоветского пространства. Производственная сборка расширилась и стала осуществляться (   Читать дальше...   )Тип издания: RepackРазработчик: РазныеЖанр: AllЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0849697D3FA7CFA2847D33609765E0BD4467E101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171026   (38871) от 30.10.2024
 
 Call Of Duty Black Ops 2 (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [En]
@@ -32,7 +6,7 @@ Call Of Duty Black Ops 2 (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [En
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +32,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2024) [Switch] [USA] 18.1.0 [NSZ] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +58,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Switch] [USA] 18.1.0 [NSZ] [L
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +84,7 @@ Vampire Survivors (2023) [Switch] [USA] 18.1.0 [NSP] [License / 1.12.108 / DLC] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Sly Trilogy (2010) [PS3] [EUR] 3.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +136,7 @@ DuckTales: Remastered (2013) [PS3] [EUR] 4.46 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +162,7 @@ DuckTales: Remastered (2013) [PS3] [USA] 4.46 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +188,7 @@ Family Guy Back to the Multiverse (2012) [PS3] [USA] 4.25 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +214,7 @@ Majin and the Forsaken Kingdom (2010) [PS3] [USA] 3.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Smurfs 2 (2013) [PS3] [USA] 4.41 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +266,7 @@ Max Payne 3 (2012) [PS3] [USA] 4.11 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ghostbusters: The Video Game (2009) [PS3] [USA] 2.60 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mortal Kombat vs DC Universe (2008) [PS3] [EUR] 2.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Simpsons Game (2007) [PS3] [USA] 1.93 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +370,7 @@ Asura's Wrath (2012) [PS3] [EUR] 3.73 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +396,7 @@ Far Cry Compilation (2014) [PS3] [USA] 4.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -449,7 +423,7 @@ Mass Effect 3 (2012) [PS3] [EUR] 4.01 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -475,7 +449,7 @@ Worms: The Revolution Collection (2012) [PS3] [USA] 4,50 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -502,7 +476,7 @@ Persona 3 Reload - Digital Premium Edition (2024) [PS4] (1.07 / DLC) License [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +502,7 @@ xemu 0.8.106 Portable [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +528,7 @@ Prince of Persia The Lost Crown (2024) [Switch] [EUR] 17.0.1, Atmosphere 1.6.2 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +554,7 @@ Cocoon (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -606,7 +580,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Switch] [EUR] 18.1.0, A
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -632,7 +606,7 @@ Dave The Diver: Anniversary Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -658,7 +632,7 @@ Shin Megami Tensei V: Vengeance (2024) [Switch] [USA] 18.1.0, Atmosphere 1.7.1 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -669,6 +643,32 @@ Shin Megami Tensei V: Vengeance (2024) [Switch] [USA] 18.1.0, Atmosphere 1.7.1 [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C30A496AC18C2D88FF8504DAB6D9EFD7DE73C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815123   (5515) от 28.08.2025
+
+Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно жила-была юная ведьма по имени Сереса... Задолго до того, как в совершенстве овладеть темными искусствами и превратиться в Байонетту, она отправилась в судьбоносное путешествие по запретному Авалонскому лесу. Компанию ей составил Чешир - ее самый первый демон, который обитал в плюшевой игрушке. Играйте Сересой и Чеширом и исследуйте коварный лес в поисках (   Читать дальше...   )Тип издания: LicenseРазработчик: Platinum Games Inc.Жанр: Экшены, Приключенческие игры, ГоловоломкиЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D447D471233B47B9D10E134C547DE1199412A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

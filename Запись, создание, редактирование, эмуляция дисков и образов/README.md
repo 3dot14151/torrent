@@ -1,4 +1,191 @@
 https://t.me/izofen
+###  Публикация: 1871844   (1069883) от 
+
+PowerISO 9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EAFF3A40DBEC0099E4F0E400A2F2595CCD601A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871845   (1069882) от 
+
+PowerISO 9.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920F72EB1EDE85B107A595C8B0D220026D1BD0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871331   (1069578) от 
+
+PowerISO 9.4 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа, позволяющая создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5105DF42F7AFB4A324252F8BABBECE12C22F090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871068   (1069428) от 
+
+DVDFab 13.0.6.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+DVDFab – мощный, многофункциональный программный продукт для копирования DVD дисков с возможностями гибкой обработки видеопотока.
+Программа является одной из лучших на сегодняшний день, из инструментов для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами.
+Снимает все защиты и ограничения с диска и при желании пережмет диск большой емкости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFFA33C32ADAD319AB69680D5D96DCB0E6B241BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871098   (1069319) от 
+
+PowerISO 9.4 RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EA0BACDDB58A5F7E3F19F2A7E8F0DE62ACC1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870559   (1069050) от 
+
+4.8.3 Yuhan Blu-ray DVD Creator [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Лучший Blu-ray-рекордер для записи Blu-ray дисков/ISO-файлов/папок из любых видео и фотографий.
+Лучший и самый многофункциональный конструктор меню диска с непревзойденными возможностями.
+Лучшее качество звука с поддержкой Blu-ray PCM, TrueHD (Dolby Atmos), DTS HD Master Reserved.
+(   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B09855417F7B77D6B82E8B434752AB90165A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870044   (1068781) от 
+
+Ashampoo Burning Studio 27.0.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Новая Ashampoo Burning Studio 26 – это самый удобный способ для надёжной записи твоих данных и копирования CD, DVD и Blu-ray дисков без усилий. Конвертируй аудиодиски и выполняй резервное копирование своей музыки или создавай собственные музыкальные сборники с подходящей обложкой! Дополнительные первоклассные мультимедиа функции также позволяют тебе создавать тебе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7195AB1315F878EAFB990E82740C1D6A69257A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868427   (1067651) от 30.04.2026
 
 PowerISO 9.3 RePack (& Portable) by elchupacabra (DC 2026.04.20) [Multi/Ru]
@@ -7,7 +194,7 @@ PowerISO 9.3 RePack (& Portable) by elchupacabra (DC 2026.04.20) [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +220,7 @@ AnyBurn 6.8 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +246,7 @@ Ashampoo Burning Studio 2026 1.27.2 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +272,7 @@ Aiseesoft Burnova 1.5.56 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +300,7 @@ DVDFab 13.0.5.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +328,7 @@ Nero Burning ROM 2026 27.5.0.11 Portable by FC Portables [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +354,7 @@ Nero Burning ROM 27.5.0.11 RePack [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +380,7 @@ Ashampoo Burning Studio 27.0.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +406,7 @@ DVDFab 13.0.5.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +434,7 @@ PowerISO 9.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +460,7 @@ WinBin2Iso 6.71 Build 001 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +486,7 @@ DVDFab 13.0.5.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +514,7 @@ PowerISO 9.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -353,7 +540,7 @@ PowerISO 9.3 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -379,7 +566,7 @@ PowerISO 9.3 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +592,7 @@ AnyBurn 6.7 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -431,7 +618,7 @@ AnyBurn 6.7 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +644,7 @@ Ashampoo Burning Studio 27.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -483,7 +670,7 @@ AutoPlay Menu Builder Business 8.0 build 2459 (DC 21.08.19) RePack (& Portable) 
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -495,189 +682,6 @@ AutoPlay Menu Builder Business 8.0 build 2459 (DC 21.08.19) RePack (& Portable) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580A4CF4D6EA0D85531CC0DDD651F112DD0025F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452162   (1027794) от 05.03.2021
-
-Nero Burning ROM & Nero Express 2021 23.0.1.19  RePack by MKN [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nero Burning ROM — передовое программное обеспечение для записи дисков CD, DVD и Blu-ray. В Nero Burning ROM содержатся дополнительные возможности, которые превосходят функции простого копирования. Прожигайте диски даже после перехода на Windows® 10. В приложении содержатся дополнительные возможности, которые превосходят функции простого копирования - например с (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41A61DF52BA0CCC956875D0FC96B45A10FC96B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455274   (1025685) от 18.03.2021
-
-Nero Burning ROM & Nero Express 2021 23.0.1.20  Portable by Spirit Summer [Ru]
-
->>След.
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nero Burning ROM — передовое программное обеспечение для записи дисков CD, DVD и Blu-ray. В Nero Burning ROM содержатся дополнительные возможности, которые превосходят функции простого копирования. Прожигайте диски даже после перехода на Windows® 10. В приложении содержатся дополнительные возможности, которые превосходят функции простого копирования - например с (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3C9C72BBC5467623C963CB647F8ABED84B0EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359302   (964993) от 11.02.2020
-
-Ashampoo Burning Studio 21.3.0.42 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo Burning Studio - это всё то, о чём Вы просили. Откройте простейший способ достичь профессиональных результатов с чрезвычайно интуитивной, компактной, ещё более мощной программой для записи. Видео DVD с полностью анимированными меню, музыкальные CD с собственными обложками, защищённые паролем резервные копии данных и многое другое всего в паре кликов от Вас. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110AE0E688A442B5D22BBBDC5EB24AF7F5A8D567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748568   (958156) от 22.01.2014
-
-ImgBurn 2.5.8.0 Portable by BurSoft [Ru/En]
-
->>След.
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958156.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImgBurn - утилита для записи образов дисков. Эта небольшая программа обладает всеми необходимыми функциями для прожига практически любых образов CD/DVD дисков. В ImgBurn имеются еще ряд других функций, которые позволяют открывать/закрывать лоток привода, осуществлять поиск в Интернет новых версий прошивки для данного устройства записи, изменять метку ISO-образа, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8982037AEEA1A8FF541A3FBCD21F2AA38DE2B6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092601   (938101) от 12.01.2017
-
-CloneCD 5.3.4.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938101.jpg" />
-</div>
-
-
-###  Подробнее
-
-CloneCD — программа для эмуляции оптических приводов, копирования и сохранения в файл образов аудио и цифровых компакт-дисков. Начиная с 5-й версии также поддерживаются DVD. Образы записываются в файлы с расширением *.ccd в собственном формате, понимаемом многими программами для записи дисков и эмуляции оптических приводов.
-CloneCD является мощным CD репликатором (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9598641F37389641A2D730B642317840D86ACAB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988434   (920030) от 20.02.2016
-
-CyberLink Power2Go Platinum 10.0.2522.0 + Content [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Cyberlink Power2Go 10 обладает исчерпывающим набором инструментов для записи данных на оптические носители в соответствии со всеми современными требованиями. Power2Go позволяет записывать фотографии, музыку и видеоклипы на CD, DVD, HD DVD и Blu-ray диски, предоставляет средства для создания образов, конвертирования аудиофайлов и редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F833427C2507A986B6A2FD2072C70CB31F14AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369194   (904799) от 22.03.2020
-
-AnyToISO Pro 3.9.6 Build 670 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904799.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyToISO Pro - это простой в эксплуатации и функциональный конвертер, который поможет преобразовывать образы дисков CD и DVD в специфических форматах в универсальный формат ISO. Проблема, которую решает предлагаемый инструмент, знакома большинству ПК-пользователей. Многие приложения, позволяющие создавать образы оптических дисков, используют собственные форматы. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E599DC85C1FC792A99986EE03608F1E89BD2F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1572457   (421037) от 27.08.2022
+
+Call Log Analytics 2.1.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приложение Call Log Analytics полезно тем, что оно помогает вам отслеживать Ваши данные о вызовах.
+Приложение предлагает уникальный интегрированный опыт работы с номеронабирателем, аналитикой, использованием вызовов и резервным копированием
+Дизайн интерфейса интуитивно понятен, прост и не содержит беспорядка, используя рекомендации по дизайну материалов. Мы открыты (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 4 июл. 2022 г.Разработчик: QohloПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6E92E91F32F8DADCA419A0E7DBF1978F09AE5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065007   (420960) от 22.10.2016
+
+Рецепты с фото «Готовят все!» v2.1.3 Ad-Free [Ru] - более 2000 кулинарных рецептов с фотографиями
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Более 2000 бесплатных пошаговых кулинарных рецептов с профессиональными фото каждого шага. Самые любимые рецепты для мультиварки, салатов, тортов, супов и других блюд. Вкусные домашние рецепты от лучших шеф-поваров. Аналогов – нет! Самое популярное кулинарное приложение для iPhone и iPad - теперь и для Android смартфонов и планшетов. 1,5 млн. пользователей!Тип издания: ПираткаРелиз состоялся: 15.12.2015Разработчик: Издательство "Эксмо"Поддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E236F24FC7D6B4EF727D06039EF47D037DC5ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675038   (420675) от 22.10.2016
+
+Phases of the Moon Pro 4.5.1 [Ru] - Фазы луны
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Узнайте текущую фазу Луны с помощью одной из наиболее детальных и научно точных визуализаций. Это приложение использует симуляцию Лунной поверхности, созданную NASA Lunar Reconnaissance mission.Тип издания: ПираткаРелиз состоялся: 22.10.16Разработчик: Universe TodayПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3398F2E5A66F06245FD2982F49448A5612A1B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368163   (420570) от 27.08.2022
 
 Electronics Database v2.36 [Ru/En]
@@ -6,7 +86,7 @@ Electronics Database v2.36 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +170,7 @@ VideoReg Pro 6.96 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +196,7 @@ RocketDial Dialer&Contacts Pro 3.8.6.1 [Ru] - Звонилка с широким
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +248,7 @@ Grammatisch 2.4.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +300,7 @@ Doninn Audio Editor Pro 1.08 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +352,7 @@ Baby Sleep Sound Machine 1.1.104 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +378,7 @@ Panels - sidebar (edge screen) 1.364 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +404,7 @@ Tools for Google Maps 5.30 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +430,7 @@ Flud v1.8.3.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +456,7 @@ Terraria v1.2.10333 / Мод-много денег [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +508,7 @@ DailyRoads Voyager v7.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +534,7 @@ Tail Gun Charlie v1.3.36 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +560,7 @@ Marine Aquarium v3.3.21 PRO [Ru\En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +586,7 @@ ABBYY FineScanner Pro v1.13.1157 [Ru/Multi] - сканер для любых д�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +612,7 @@ Sound & Voice Recorder - ASR Premium v83 [Ru/Multi] - Мультиформатн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +638,7 @@ Facetune 1.1.4 [RU]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +664,7 @@ Don't Starve: Shipwrecked 0.10 [RU/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,84 +675,6 @@ Don't Starve: Shipwrecked — вторая часть инди-игры Don't St
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BDE68300C921BBB894E9202EF22DF4AC69057B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928858   (386810) от 07.10.2020
-
-Diabetes:M v8.0.8 Premium [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработанное для телефонов и планшетов это приложение создано для того чтобы помочь диабетикам лучше управлять своим диабетом и держать его под контролем. Пользователи могут регулярно записывать свои показатели в дневник. Приложение отслеживает практически все аспекты лечения диабета, предоставляет подробные отчеты, графики и статистику которые можно отправить лечащему (   Читать дальше...   )Тип издания: Пиратка (открыт Премиум) + ModРелиз состоялся: 06.10.2020Разработчик: Rossen VarbanovПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07C17CADFAF6A1CAE94B418E336D791BDEF010D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574629   (385478) от 05.09.2022
-
-Абсолютный Слух v3.9.34 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отлично развитые музыкальный слух и чувство ритма - фундамент каждого хорошего музыканта. Независимо от того, хотите ли Вы уметь импровизировать, подбирать мелодии на слух, определять последовательности аккордов в песнях, или просто уметь настраивать гитару без тюнера, знание и понимание основ - интервалов, гамм, аккордов просто необходимо.Тип издания: PremiumРелиз состоялся: 28.08.2022Разработчик: Crazy Ootka Software ABПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE812804F6FE4D69B4D1EE264829D5382265CDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574657   (383537) от 06.09.2022
-
-Ebook Reader 5.1.3 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383537.jpg" />
-</div>
-
-
-###  Подробнее
-
-eBooks.com Ebook Reader позволяет читать любимые книги на ходу. Выбирайте из огромной коллекции популярных книг, которые вы можете скачать в одно мгновение.Тип издания: Mod ExtraРелиз состоялся: 30 авг. 2022 г.Разработчик: eBooks.comПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8215A0BF9C166D96FC6725704BC92C381137EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

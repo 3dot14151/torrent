@@ -1,3 +1,55 @@
+###  Публикация: 1283256   (739591) от 17.02.2019
+
+Animal Planet: Дом для рептилий. Террариум в балийском стиле / Scaled (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: мммПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CD864E0E2AC0452F5E6378B54911F0EC3DC61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283457   (739518) от 17.02.2019
+
+PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (2010) BDRemux [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Леопарды являются самыми умными, самыми опасными и, до недавнего времени, одной из наименее изученных пород семейства кошачьих. Они охотятся от Южной Африки до Сибири, от Аравии до Шри-Ланки и являются наиболее распространенным видом хищников. Леопард - это кошка, которая гуляет сама по себе, оставаясь невидимой и скрытой. Леопарды красивые убийцы, которые живут (   Читать дальше...   )Производство: США, Rubin Tarrant Productions, Public Broadcasting Service (PBS)Жанр: Документальный, природа, флора, фаунаРежиссер: Марк ФлетчерПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: АнглийскиеПродолжительность: 00:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2644F727E16DEB7BA336B225AA1A1B3E571671FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 812756   (739515) от 17.02.2019
 
 NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of Death (2013) HDTVRip
@@ -6,7 +58,7 @@ NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG: Дьяволы морских глубин / Devils of the Deep (2003) DVD5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ NG: Реальность или фантастика / NG: Is it Real? [19 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ BBC: Серенгети / Serengeti II (2021) WEB-DL [H.264/1080p] (сезон 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ BBC. Брачная Игра / The Mating Game (2021) WEB-DL [H.265/2160p] [4K, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Discovery. Аляска: Семья из леса / Alaskan Bush People (2021) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2021) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ BBC: Да будет вода / There Will Be Water (2016) WEB-DLRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ BBC. Horizon. Гибель океана / The Death of the Oceans (2010) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ NG: Вторжение на Землю / Invasion Earth (2014) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ NG. Гении / American Genius (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C62EE30BF12F90DD52FEB0D9B38047A73420A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021977   (730553) от 31.05.2016
-
-Смертельные поля / Killing Fields (2016) HDTVRip (Сезон 1 серии 1-7 из 7)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый проект телеканала Discovery представляет собой очередной шедевр документальной кинематографии. Преступники, убийцы и маньяки очень изобретательны, продумывая в деталях не только все преступление, но и способы избавиться от тела. Очень часто им в злом умысле помогает сама природа, уничтожая доказательства и храня зловещие секреты прошлых и современных преступлений. (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Документальный, криминалПеревод: Многоголосый закадровый, профессиональныйСубтитры: НетПродолжительность: ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6074BC6E0DC6B490EA8F6F7BC34E0BF289EDDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022085   (730487) от 31.05.2016
-
-Discovery. Техногеника. Петербургский метрополитен (2016) HDTVRip [720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петербургский метрополитен. Фильм расскажет об удивительных станциях и сооружениях петербургской подземки. Среди них: станции закрытого типа, впервые появившиеся именно в Ленинграде, одна из глубочайших станций в мире – "Адмиралтейская", станции первого пуска ленинградского метро, которые по праву входят в список красивейших станций мира. Из фильма мы узнаем (   Читать дальше...   )Техногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации.
-Наш (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11D69D7ECB362B6F138D8D14DFC4F9E9E749748
 ```
 
 https://mybot314.ru/tekegram_catalog/

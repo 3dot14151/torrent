@@ -1,3 +1,29 @@
+###  Публикация: 1028680   (688091) от 23.06.2016
+
+Mighty No. 9 (2016) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Классический японский сайд-скроллер! Полная трансформация! Mighty No. 9 — это японский двухмерный сайд-скроллер с лучшими элементами из 8- и 16-разрядных классических игр, которые вы знаете и так любите, преобразованными с помощью современных технологий, новых технических решений и пожеланий поклонников в нечто совершенно новое и потрясающее!Тип издания: LicenseРазработчик: Comcept , Inti CreatesЖанр: Arcade (Platform), 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Английский, Французский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15315BD8501FB9FF90353463C29F30EFCA4C9F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134618   (686671) от 16.05.2017
 
 Broforce (2015) [En] (5399) Repack R.G. Origami
@@ -6,7 +32,7 @@ Broforce (2015) [En] (5399) Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Lost Orbit (2015) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Basingstoke (2018) [En] (82.1.4252018.84250) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Lemma (2015) [Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +138,7 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +164,7 @@ EMPORIUM (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +190,7 @@ DRAGON BALL FighterZ (2018) [Ru/Multi] (1.14) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +216,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +242,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +268,7 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +294,7 @@ Bio Menace (1993) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +320,7 @@ Rayman Origins (RePack/1.0.32504.1.02) [Ru] 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +346,7 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +372,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.0.3965) License SK
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +398,7 @@ Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +424,7 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +451,7 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +477,7 @@ Zombie Rollerz: Pinball Heroes (2022) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +503,7 @@ LEGO City Undercover (2017) [Ru/En] (1.0/upd4) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +529,7 @@ Dustoff Heli Rescue 2 (2017) [Ru/Multi] (21) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +555,7 @@ Heat Guardian (2018) [Ru/Uk/En] (0.0.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +581,7 @@ Synthetik (2018) [Ru/Multi] (15.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +607,7 @@ Tokyo 42 (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +633,7 @@ Marvel vs. Capcom: Infinite (2017) [Ru/Multi] (1.0/dlc) License PLAZA [Deluxe Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -633,7 +659,7 @@ EXAELLA (2018) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,32 +670,6 @@ EXAELLA (2018) [Ru/En] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F06B46710B0773DF81810F1FAD5574DDEEE429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079843   (657526) от 04.06.2017
-
-Lara Croft GO: The Mirror of Spirits (2015) [Ru/Multi] (1.0/dlc) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lara Croft GO предлагает довольно необычный взгляд на секс-символ игровой индустрии: это одна из немногих игр про Лару Крофт, где игрок решает пазлы, а не занимается пассивной объективацией (то есть, не пялится на трехмерную задницу героини). Считать это достоинством или недостатком — личное дело каждого, но любителям пораскинуть мозгами в любом случае не придется (   Читать дальше...   )Тип издания: RepackРазработчик: Square Enix MontréalЖанр: Adventure, TBS, Logic (Puzzle), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3A25A2ABEAB6B1E05D325FB56C85A7979D1199
 ```
 
 https://mybot314.ru/tekegram_catalog/

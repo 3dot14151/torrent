@@ -1,3 +1,55 @@
+###  Публикация: 1339056   (1000914) от 14.01.2020
+
+Ради всего человечества / For All Mankind (2019) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это увлекательная альтернативная версия истории о космической гонке, в которой человечество все еще одержимо мечтами о покорении космоса. Представьте себе мир, в котором космическая гонка так и не закончилась. С первых минут нам демонстрируют альтернативную историю, в которой СССР первой высадилась на Луну, а американцы проиграли, но не сдаются. Главные герои драматического (   Читать дальше...   )Производство: США / Sony Pictures Television, Tall Ship ProductionsЖанр: фантастика, драмаРежиссер: Аллен Култер, Сет Гордон, Мира МенонАктеры: Юэль Киннаман, Майкл Дорман, Джоди Бальфур, Ренн Шмидт, Сара Джонс, Шантель Ван Сантен, Кристофер Бауэр, Артуро дель Пуэрто, Соня Уолгер, Крис Маршалл и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: Русские, английскиеПродолжительность: ~01:05:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE5A7129C6EC7B7515B80B636FE329232558530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354189   (988877) от 21.01.2020
+
+Ведьмак / The Witcher (2019) WEBRip [H.264/2160p] [4K] (сезон 1, серии 1-8 из 8) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Все события в этом телесериале происходят в придуманном мире, в котором обитают всевозможные чудовищные существа, а также очень опасные монстры. Наш главный герой -- ведьмак, охотившийся за кровожадными оборотнями, представляющих угрозу для жизни людей. В раннем детстве он пережил мутацию, в результате чего получил лучшие боевые навыки: повышенную силу, быструю реакцию. (   Читать дальше...   )Производство: Польша, США / NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: ужасы, фэнтези, боевик, драма, детектив, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Алла, Аня Чалотра, Мими Дивени, Имон Фэррен, МайАнна Бёринг, Уилсон Раджу-Пухальте, Адам Леви, Джои Бэти, Ларс Миккельсен и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C76734D068E334E3D640875B048B5633697F5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354197   (988818) от 21.01.2020
 
 Ведьмак / The Witcher (2019) WEBRip [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-8 из 8) AMS [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E1D3959E114B143A27559BFA82CD9FCD74A1879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023625   (887115) от 08.09.2021
-
-Люцифер / Lucifer (2016) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заскучавший и несчастный повелитель преисподней, Люцифер Морнингстар оставил свой престол и отправился в современный Лос-Анджелес, где основал ночной клуб «Lux». Очаровательный, харизматичный и дьявольски привлекательный Люцифер наслаждается своим отдыхом — вином, женщинами и музыкой — пока красивая поп-звезда не оказывается убитой на пороге его клуба…Производство: США / DC Entertainment, Vertigo Entertainment, Warner Bros. TelevisionЖанр: фэнтези, драма, криминалРежиссер: Нэйтан Хоуп, Эгил Эгилссон, Луис Шоу МилитоАктеры: Том Эллис, Лорен Джерман, Лесли-Энн Брандт, Кевин Алехандро, Рэйчел Харрис, Д.Б. Вудсайд, Скарлет Эстевез, Локлин Манро, Ивэн Арнольд, Эмили Мэддисон и др.Перевод: Многоголосый профессиональный - NewStudioЯзык озвучки: РусскийПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E208DD151B25A6BB00026914C6640E9F9A5D18C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372502   (883026) от 04.04.2020
-
-Рассказы из Петли / Tales from the Loop (2020) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) Octopus [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории об обитателях городка, расположенного над Петлёй — специальной машиной, созданной для изучения и раскрытия секретов Вселенной. Из-за этого жители получают доступ к вещам и событиям, о которых они раньше слышали разве что в фантастике.Производство: США /  6th & Idaho Productions, Amazon Studios, Fox 21 Television StudiosЖанр: драма, фантастика, мелодрамаРежиссер: Джоди Фостер, Ким Со-ён, Чарли МакДауэллАктеры: Дэниэл Золгадри, Ребекка Холл, Пол Шнайдер, Дункан Джойнер, Ато Эссандо, Николь Ло, ДжонатанПрайс, Джейн Александр, Тайлер Барнхардт, Роджер КлаунПеревод: Многоголосый любительский (Octopus)Субтитры: отсутствуютПродолжительность: ~00:55:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA44AE16A8752DCAFEC43635DE35D82C646872B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

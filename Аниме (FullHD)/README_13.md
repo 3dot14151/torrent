@@ -1,3 +1,57 @@
+###  Публикация: 628293   (876778) от 12.04.2013
+
+Nekomonogatari (Kuro) | История кошки (чёрная глава) [2012, OVA, 4 эп.] BDrip Hi10p 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Коёми Арараги из-за недавно пережитых событий стал философом и любил поговорить о жизни с разными людьми – сестренками Карэн и Цукихи, малышкой-вампиром Синобу и старшим товарищем по имени Мэмэ Осино. Увы, сестренки есть сестренки, ничего нового не скажут, Синобу обычно молчала, а Осино, как и подобает гуру, выражался мутно и загадочно. А вопрос-то (   Читать дальше...   )Жанр: комедия, этти, мистикаРежиссер: Симбо АкиюкиСубтитры: русские отПродолжительность: 4 серии по 26 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997175   (872965) от 17.03.2016
+
+Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV] BDrip 1080p raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История фильма разворачивается в двух мирах - в мире людей (Сибуя, Токио) и в мире зверомонстров (Дзютэнгай). Два этих мира не должны были пересекаться, но вот однажды одинокий мальчик потерялся и попал в мир зверей. Там он встретил такого же одинокого зверя, звавшегося Куматэцу, и напросился к нему в ученики.
+
+©  ANNЖанр: приключения, фэнтезиРежиссер: Хосода МаморуПеревод: zafhosЯзык субтитров: русскийПродолжительность: 120 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93E1A25596577422E10D84A2CBD42EE8CB352B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496264   (872858) от 17.09.2021
 
 Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп.] BDRip 1080p raw
@@ -6,7 +60,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ D4DJ First Mix | Первый микс [2020, TV, 13 из 13] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ Ore, Tsushima | Я — Цусима [2021, TV, 12 эп.] WebRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Bakuman. 3 / Бакуман [ТВ-3] [2012, TV, 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Moetan / Моэтан [2007, TV, 11 + 3SP] BDRip 1080p x265 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +243,7 @@ Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma | Ми-ми-ми-мишка [Т
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +269,7 @@ Medaka Box: Abnormal | Medaka Box 2 | Ящик предложений Мэдак
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +297,7 @@ Punch Line | Punchline | Вся суть в трусах | Изюминка [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +323,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +349,7 @@ Strike the Blood IV | Удар крови [OVA-4] [2020, OVA, 12 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +375,7 @@ Bokutachi no Remake | Remake Our Life! | Ремейк нашей жизни [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +401,7 @@ Vinland Saga | Сага о Винланде [2019, TV, 24 из 24] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +427,7 @@ Beck: Mongolian Chop Squad / Бек [2004, TV, 26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +453,7 @@ Gen'ei o Kakeru Taiyou | Day Break Illusion | Солнце, пронзающее
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +479,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +508,7 @@ Koutetsujou no Kabaneri / Kabaneri of the Iron Fortress / Кабанери же�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +534,7 @@ Kurozuka | Куродзука [2008, TV, 12 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +564,7 @@ Magimoji Rurumo | Ведьмочка Рурумо [2014, TV, 12 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +591,7 @@ Gekijouban Kara no Kyoukai / The Garden of Sinners / Сад грешников (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +618,7 @@ Girl Friend (Kari) / Girl Friend Beta / Подружка Бета [2014, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +644,7 @@ Gintama° / Гинтама [ТВ-4] [2015, TV, 51 из 51] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +670,7 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -628,58 +682,6 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:015C2332E1BDFF0BEC29F2A7E8995BE20525BD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091673   (848050) от 05.03.2017
-
-Chain Chronicle (2016) / Цепные хроники [2016, Movie, 3 из 3] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители Югуто думали, что земля, где они живут, является размером с мир, но это на самом деле она была разделена на несколько областей, у каждой из которых был свой король. Даже при том, что были небольшие войны среди областей, короли встречались за круглым столом, чтобы поддержать мир и баланс. Это продолжалось до тех пор, пока не появилась группа тёмных монстров...Производство: Telecom Animation Film, GraphinicaЖанр: приключения, фэнтезиРежиссер: Кудо МасасиПеревод: AOS (rus), HorribleSub (eng)Язык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 3 эп. по 90 мин. (каждый эпизод по 4 части)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2892205A1A0A9EA46203939BB5ACD27AA047AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378175   (847945) от 24.04.2020
-
-Hello World | Здравствуй, мир! [2019, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, Киото. 2027 год. Старшеклассник Наоми Катагаки сталкивается со странным парнем, который внешне похож на него. Более того, незнакомец утверждает, что он тоже Наоми, но прибыл из будущего, 2037 года. Разобравшись в ситуации и объединив свои силы, эта парочка должна изменить будущее и спасти одноклассницу Рури Итигё, с которой нынешний Наоми начнёт встречаться (   Читать дальше...   )Производство: студия Graphinica / グラフィニカЖанр: фантастика, романтикаРежиссер: Ито ТомохикоПеревод: NaikoSubsЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ~100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFA902D62445DB6AA2031F52B1018133626F0E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

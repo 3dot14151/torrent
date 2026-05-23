@@ -1,3 +1,84 @@
+###  Публикация: 1371149   (891663) от 30.03.2020
+
+Equalizer FX Pro 1.3.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Любите слушать музыку? Так почему бы не насладиться ее отличным качеством? Приложение Equalizer FX Pro можно использовать для любого медиаплеера и даже на Вашем Android для регулирования громкости и улучшения качества звука, чтобы насладиться песнями различных исполнителей самых популярных жанров. Также оно визуализирует спектры и даёт возможность выбрать 1 из 6 (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.03.2020Разработчик: HowarJranПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A6C9AB3A07607D41CE0863829ACD26697CF7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463467   (887245) от 08.09.2021
+
+TextGrabber Офлайн Распознавание Текста + Перевод v2.7.5.9 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ABBYY TextGrabber на лету оцифрует фрагменты печатного текста и превратит распознанный результат в действия: звоните, пишите, переводите на 100+ языков, просматривайте в интернете или на картах, редактируйте, озвучивайте и делитесь любым удобным способом.
+При наведении камеры на печатный текст приложение моментально захватывает информацию и распознает ее без подключения (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 8 сентября 2021 г.Разработчик: ABBYY MobileПоддерживаемая ОС: Android 4.4Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DF851C495180DAF7806DC9040706B7E953994B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480047   (887043) от 08.09.2021
+
+ESET Mobile Security & Antivirus v6.3.66.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+ESET Mobile Security — это быстрое и мощное приложение для защиты вашего смартфона или планшета Android от вирусов и вредоносных программ.
+
+Присоединяйтесь к миллионам пользователей по всему миру и воспользуйтесь преимуществами РАСШИРЕННЫХ функций, к числу которых относятся понятный и простой в использовании интерфейс, проактивный модуль Антивор и функция защиты (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 8 сентября 2021 г.Разработчик: ESETПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8C558987A9B2124ED4CF9DABC77F3BF17C68FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995577   (884104) от 11.03.2016
 
 Справочник узлов 1.0 [Ru] (Авторская раздача)
@@ -6,7 +87,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +248,7 @@ Trigonometry. Unit circle / Тригонометрический круг v3.22 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +274,7 @@ Mobile Doc Scanner MDScan OCR 3.7.21 [Ru] - Многостраничный ск�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -274,7 +355,7 @@ Notify & Fitness for Mi Band v9.0.6 [Ru/Multi] - Менеджер фитнес �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +459,7 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +485,7 @@ Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +511,7 @@ Password Depot For Android 14.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -456,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -482,7 +563,7 @@ Youtube AdAway 3.5.0 [Ru] - Блокировка рекламы с YouTube
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -508,7 +589,7 @@ WiFi Map 3.2.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -536,7 +617,7 @@ Notify & Fitness for Amazfit v9.0.4 [Ru/Multi] - Программа для ум�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,7 +644,7 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +670,7 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -600,86 +681,6 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B634127B68F9EADB3BDFEE5F9BC04C95FFEA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856471   (872409) от 19.02.2017
-
-Magisto Video Editor & Maker 4.13.15782 [Ru] - Редактор видео со спецэффектами
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поможет превратить повседневные моменты жизни в незабываемые мини-фильмы со спецэффектами и музыкой всего за один клик. Начните делиться лучшими моментами своей жизни…установите Magisto прямо сейчас
-Magisto удивит красивыми фильмами, которые эта программа автоматически создаст из фото и видеофайлов. По умолчанию все новые фильмы будут только в вашем личном использовании, (   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 19.02.17Разработчик: MagistoПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C31D18ADD177ED6D854F68DF3238D0FB8CEB2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374685   (872334) от 10.04.2020
-
-Chromatix (Black and White Photo Colorizer) v1.3.98 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chromatix - это мощное мобильное приложение, которое позволяет быстро и автоматически раскрашивать черно-белые фотографии, чтобы превратить их в красивые цветные изображения! Взгляните на скриншоты в этом списке приложений для некоторых примеров до и после.Тип издания: Пиратка / Mod (получен Premium)Релиз состоялся: 25.11.2018Разработчик: Christopher ChangchienПоддерживаемая ОС: AndroidЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87B51C2B50F199272B0F390CC24764156964229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088136   (868474) от 12.04.2020
-
-Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выполнять повседневные задачи стало проще, чем когда-либо. Планируете ли вы отпуск, хотите ли поделиться списком покупок с партнером или управляете одновременно несколькими проектами, — вам поможет Wunderlist, в котором вы можете планировать выполнение, как личных, так и профессиональных задач.
-Помогает миллионам людей во всем мире записать свои идеи, задачи и достопримечательности. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 12.04.2020Разработчик: 6 Wunderkinder GmbHПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D545BAA0B74AD35A856F9742510F2FB8349E3E8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

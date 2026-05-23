@@ -1,3 +1,110 @@
+###  Публикация: 682644   (630243) от 23.07.2013
+
+Е.И. Фесенко | Альбом изображений святых икон [1894] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В альбоме представлены цветные хромолитографии святых икон.
+Изображены: сцены из праздников, Апостолы, Чудотворцы, Преподобные, Князья, Святые (Дарья, Ольга, Ксения, Екатерина, Татьяна, и др.), Великомученики (Александра, Варвара, Дмитрий, Иоан, Артемий, ...), иконы Божией Матери, Иисуса Христа,  ...Жанр: Святоотеческое наследиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1F093B99EE163A30410DEC6517F646D74E3F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908935   (630215) от 16.06.2015
+
+М. С. Беленький | Спиноза о религии, боге и Библии (1977) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Великий амстердамский мыслитель XVII в. Спиноза презирал дух наживы, разнузданность и безделье. Захваченный познанием закономерностей объективной реальности, он стремился нарисовать целостную картину мира. В книге показано, как стремление философа осмыслить сокровенные тайны природы реализовалось в глубоких и научных обобщениях его эпохи. В центре внимания автора (   Читать дальше...   )Жанр: история, религиоведение, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D46C289F8845809A2EA263B9E32ACA9E858B09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144279   (629365) от 21.06.2017
+
+И. М. Концевич | Оптина Пустынь и ее время (1995) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга ”Оптина Пустынь и ее время” написана известным писателем и богословом русского зарубежья Иваном Михайловичем Концевичем (1893-1965). В вводных главах раскрывается понятие старчества и прослеживается его история в России в XVIII – XIX веках. Особое внимание автор уделяет жизни и подвигам преподобных старцев Оптинских. В книге содержатся их письма и поучения, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C93982E931DBA98DAC871389EF9592DC53390A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909465   (628575) от 17.06.2015
+
+Н. С. Гордиенко | Современное русское православие (1987) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге показан процесс становления современного русского православия и его сегодняшнее состояние, охарактеризованы все направления деятельности русской православной церкви.
+
+Рассчитана на массового читателя.Жанр: история, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F20AFEBABC0FB3FCED6A850DA4E852FEF0EF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909461   (628471) от 17.06.2015
 
 П. С. Гуревич | Спасет ли мессия? «Христомания» в  западном мире (1981) [DJVU]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9FA343497382776B18218F5AE612D277FF1B24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910180   (624065) от 19.06.2015
-
-А. Мальвер | Наука и религия (1923) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая читателю книга Французского автора А. Мальвера, выдержавшая несколько изданий во Франции и Италии и одно у нас в России («Вестник Знания» в 1907 году),  замечательна тем, что в простой, доступной, занимательной и спокойной Форме не только вводит читателя в курс истории религий, но и освещает с научной точки зрения культ христианской, главным образом, (   Читать дальше...   )Жанр: история, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE528505A3D32CF9AEB88CB08CF474E1B8807F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910029   (623958) от 19.06.2015
-
-И. Н. Яблоков (ред.) | Религиоведение: учебник для бакалавров (2014) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник подготовлен с учетом требований Федерального государственного образовательного стандарта высшего профессионального образования третьего поколения. В нем выявлены предмет, методы и структура религиоведения. Раскрыто содержание его основных разделов: философии религии, социологии религии, психологии религии, феноменологии религии, истории религии. Специальная (   Читать дальше...   )Жанр: история, религиоведение, психология, социология, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633B83C6357875A9B977F63540E8A68A563A3D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910063   (623947) от 19.06.2015
-
-Якоб Бёме | Истинная психология, или Сорок вопросов о душе (2004) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623947.jpg" />
-</div>
-
-
-###  Подробнее
-
-В руках читателя — легендарный раритет, дожидавшийся массовых тиражей почти два столетия в рукописных архивах русских масонов. Сравнительно скромный по объему трактат Якоба Беме - своеобразное завещание знаменитого "тевтонского философа", итог его духовных поисков, составивших подлинную веху в истории христианской философии и культуры. "Сорок вопросов (   Читать дальше...   )Жанр: Христианство, Богословие, ТеологияПеревод: Тимур МатросовФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C65039B0A47BED8C043209A36E4C33AE6474BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910064   (623855) от 19.06.2015
-
-Фолио (изд.) | Христианские притчи (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Христианские притчи – это квинтэссенция тысячелетнего опыта человечества. Их герои – от библейского царя Соломона и до средневекового монаха – учат нас мудрости и любви к ближнему.Жанр: Мифы. Легенды. Эпос, Афоризмы и цитатыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADEB40245333FA82B13395B8DD73BF49921D7BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

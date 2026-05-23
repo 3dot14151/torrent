@@ -1,3 +1,111 @@
+###  Публикация: 1217963   (739926) от 07.04.2018
+
+Проекты - VideoHive - Fast Glitch Logo - 20918323 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Стильный, современный проект с эффектом цифрового сбоя.
+Fast Glitch Logo - прекрасный способ показать название и логотип своей компании.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77501F92E2C51F9546E8F42540498FE9F0C133D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784870   (739543) от 09.05.2014
+
+VideoHive – Dark Opener - 1392588 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+От автора: Вы можете использовать данный проект для ваших тизеров, показа заголовков или чего-то другого!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204272315323476255DEC5B3C2DCCE977037809F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784873   (739541) от 09.05.2014
+
+VideoHive – Dual Impact - 2803447 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Стильный и динамичный проект на многие случаи. Отлично подойдет для демонстрации чего либо.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038D3DD3A4028D9D1ED29E094344EFB70068F70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784979   (739502) от 09.05.2014
+
+VideoHive – Glass Project - 2294272 [AEP, C4D]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Динамичный проект для демонстрации вашего логотипа.
+
+Характеристика:
+(   Читать дальше...   )Формат: AEP, C4D(Cinema 4D)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29DDF5D169F8524D135FCDCB71DBCB088B1ECFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283601   (739489) от 17.02.2019
 
 Проекты - Pond5 - Family Story Slideshow - 91863781 [AEP]
@@ -6,7 +114,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +166,7 @@ VideoHive – Heart Photos Collage (Heart Of The Photos) - 6674019 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +218,7 @@ VideoHive – InfoCharts - 161571 [AEP]
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +246,7 @@ VideoHive - Verisimilitude Text Logo HD - 53532 [AEP]
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +272,7 @@ VideoHive – Product Promo - 3736887 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +324,7 @@ VideoHive – The Notebook - 163340 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +350,7 @@ VideoHive – Corporate Hands - 5699522 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +376,7 @@ VideoHive - 3D Frames Photo Gallery - 7085311
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +402,7 @@ VideoHive – Mind Gallery - 5274075 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +480,7 @@ VideoHive - Hip Hop Fashion - 4816256 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +507,7 @@ VideoHive – Romantic Days - 6696021 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +533,7 @@ VideoHive - Forgotten Film - 6379408 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +560,7 @@ VideoHive – Storybook Album – Landscape Version - 6150506 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +586,7 @@ Pond5 - Moments Of Life - 33909170 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +612,7 @@ VideoHive - TV show or Awards Show Package - 4020914 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +638,7 @@ VideoHive - TV show or Awards Show Package part.2 - 4361634 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +664,7 @@ Pond5 - Fashion Star Form - 35756008 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,112 +678,6 @@ Pond5 - Fashion Star Form - 35756008 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FE5245417D3948EABD579DE57ED331ACC254440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398796   (734599) от 28.07.2020
-
-Проекты - VideoHive - Storyteller - 27825829 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный шаблон о Второй Мировой Войне в стиле "гранж".
-Его можно оставить таким, как есть, либо настроить "под себя"... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB04A2A38C7D4A95B1502E47F1BE1BE4CAE9F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398911   (734594) от 28.07.2020
-
-Проекты - Motion Array - Baby Birthday Instagram Stories - 752814 [AEP]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baby Birthday Instagram Stories — это симпатичный и креативно анимированный шаблон After Effects, содержащий 5 вариантов дизайна. Вы можете использовать его, чтобы показать первый день рождения вашего ребенка или как приглашение на детский день рождения.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF40BC5BD3E0ACE72C6E37D6B00000FA439FA2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788390   (734574) от 21.05.2014
-
-VideoHive – You and Me - 6799647 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734574.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: "Ты и Я" - это эмоциональный и романтический альбом из фотографий/видео. Проект может быть использован для свадьбы, отмечания важных дат, церемоний и т.д. Проект легко настраиваемый и очень красивый.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DFA36C18D271E2013CD9329A8E281036F2ECE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788388   (734543) от 21.05.2014
-
-VideoHive – True Love Memories - 6807751 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734543.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: Главной особенностью этого проекта является возможность изменить фон на свой вкус! Также он имеет 24 заполнителя для ваших фотографий/видео и текстовых заполнений на каждой странице.
-Вы можете использовать этот проект в качестве подарка на День Святого Валентина, День рождения, Свадьбы, День матери или для любого случая, когда вы хотите выразить свои чувства (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0912D051394806C3EFF0FD3714224666367EB872
 ```
 
 https://mybot314.ru/tekegram_catalog/

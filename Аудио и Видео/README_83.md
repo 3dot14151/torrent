@@ -1,3 +1,29 @@
+###  Публикация: 1214451   (764823) от 21.03.2018
+
+Убить Гюнтера / Killing Gunther (2017) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В мире профессиональных убийц существует свой рейтинг, и на его вершине находится некто Гюнтер. Никто не знает, как он выглядит, и где его найти, но совершенно точно известно, что с ним лучше не связываться. Киллер Блейк решает поправить иерархию и любой ценой уничтожить легендарного Гюнтера, для чего собирает команду наёмников со всего света — хакера, взрывника, (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедияРежиссер: Таран КиллэмАктеры: Таран Киллэм, Ханна Саймон, Бобби Мойнахан, Пол Бриттейн, Арнольд Шварценеггер, Питер Келамис, Аарон Ю, Коби Смолдерс, Эллисон Толман, Стив БачичПеревод: Многоголосый закадровый (iTunes)Субтитры: АнглийскиеПродолжительность: 01:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24D455476F5999986280B259C1215DCF6EDE366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521582   (764509) от 03.01.2022
 
 VA - Best of Fokuz 2021 (2021) [AAC|~308 Kbps] <Drum & Bass>
@@ -6,7 +32,7 @@ VA - Best of Fokuz 2021 (2021) [AAC|~308 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +61,7 @@ VA - Chill House Traveller, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +90,7 @@ Apartment House - Number Pieces (2021) [AAC|~269 Kbps] <Chamber Music, Indetermi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +119,7 @@ VA - XTR Records Best (2020) [AAC|~318 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +148,7 @@ VA - Cosmic Lounge (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +177,7 @@ VA - Furia present Authentic XTR Records, Vol. 03 (2021) [AAC|~323 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +206,7 @@ VA - XTR Records Best 2021 (2021) [AAC|~324 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +235,7 @@ VA - Figura X-MAS 2022 (2021) [AAC|~324 Kbps] <Melodic House & Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +264,7 @@ VA - Furia present Authentic XTR Records, Vol. 02 (2020) [AAC|~326 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +293,7 @@ VA - Furia present Authentic XTR Records, Vol. 01 (2020) [AAC|~340 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +374,7 @@ Sylver - Turn The Tide (2000), Release Germany CD, Maxi Single, M4A / AAC, 320 k
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +455,7 @@ VA - Best Of Cause Org 2021 (2022) [AAC|~313 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +484,7 @@ VA - Feel the Rhythm & Chill, Vol. 2 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +513,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 4 (2019) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +542,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 2 (2018) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +571,7 @@ bcalm, Banks - Feelings (2021) [AAC|~286 Kbps] <Lounge, Chill Out, Lo Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,7 +600,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 1 (2018) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,7 +655,7 @@ bcalm, Banks - Feelings Pt.2 (2021) [AAC|~283 Kbps] <Lounge, Chill Out, Lo Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -658,7 +684,7 @@ VA - Time to Chill, Vol. 2 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -687,7 +713,7 @@ VA - Psychill Blossom, Vol. 2 (2021) [AAC|~327 Kbps] <Psychill, Psybient, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -701,35 +727,6 @@ VA - Psychill Blossom, Vol. 2 (2021) [AAC|~327 Kbps] <Psychill, Psybient, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8919E2FDEE26A01E5E92AB0BDFF02CEAD4D1C096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521932   (763549) от 04.01.2022
-
-Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 3 (2019) [AAC|~356 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Artak, Sone Silver - Tell Me (Rayan Myers Remix) (7:35)
-02. Fallen Angel (Original Mix) (6:24)
-03. I'm Gonna Feel Them (Original Mix) (6:11)
-04. Wanderer (Original Mix) (6:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67818CAA0C1D11328D22478B6546AD411AD97A3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

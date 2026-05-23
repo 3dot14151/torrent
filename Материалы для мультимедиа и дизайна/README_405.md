@@ -1,3 +1,344 @@
+###  Публикация: 1811270   (16349) от 09.08.2025
+
+Шрифты - Behance - Sergey Mikheev - Sambia - 650023 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.
+Геометрический шрифт без засечек, прямой, сильно сжатый, единой высоты, с острыми углами и закрытой диафрагмой. Семейство шрифтов состоит из обычного и жирного шрифтов, вдохновлен стилем Баухауз и относится к первой половине 20-го века. Он имеет лаконичные округлые формы, геометричность и небольшой интервал между буквами.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBE92A1196AA9C90334C757DEF3567CA6897BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811280   (16324) от 09.08.2025
+
+Шрифты - Behance - Wladyslaw Borisov - Grafmassa Font - 193475797 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Этот шрифт на основе орнаментов багажника(шильдиков проще говоря) для Lada 110(ВАЗ 2110). Возможно кому-то будет интересно. А человеку проще будет найти и не повторять уже сделанную работу, а просто взять и использовать. В процессе работы над шрифтом, я понял одно, что он очень похож на шрифт Porsche. Не зря... Как будто взяли и просто шрифт Порше, и растянули у (   Читать дальше...   )Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4B5208CF48CC96FCE07AA66FEA0177ABB699AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811286   (16323) от 09.08.2025
+
+Шрифты - Behance - Wladyslaw Borisov - Advaken Sans - 227558651 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D6E85F325F222D3310F1ABCCD236D52F80B1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799928   (16243) от 30.05.2025
+
+3D материалы - MOTION SQUARED - Arnold Metal Materials Pack for Cinema 4D [LIB4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этот пакет входят различные виды металла, такие как золото, медь, хром, оцинкованная сталь, шлифованный металл, латунь и узоры с ромбовидными пластинами . В этом пакете также есть раздел с высокодетализированными пользовательскими поверхностями и узорами, которые сделают любой материал более интересным. Все материалы имеют разрешение 4K, что означает потрясающее (   Читать дальше...   )Формат: LIB4D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68C28C889912BC18BE30D9F67D3A0F6B8BE989B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811455   (16145) от 09.08.2025
+
+Шрифты - Behance - Alexey Atapin - Lost Cap font - 210600235 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Декоративный шрифт с кириллицей.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6295DA605662CC7F191C9A9A278F984395244EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811456   (16144) от 10.08.2025
+
+Шрифты - Behance - Alexey Atapin - Motion - 211991577 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Декоративный шрифт с кириллицей.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3F17AE6009B59A623BEADC7794B06BD1B926F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811458   (16143) от 10.08.2025
+
+Шрифты - Behance - Alexey Atapin - Kosmos - 140863565 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5606DA2D0107F529B7AA14C82EB31833234B120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811460   (16118) от 10.08.2025
+
+Шрифты - Behance - Alexey Atapin - Insomnia Variable font - 212659183 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Декоративный шрифт с кириллицей 4 стиля.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0660CDD7F2D59A294410797CDDE4AE85FC31FC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811462   (16117) от 10.08.2025
+
+Шрифты - Behance - Alexey Atapin - Hertz - 212074005 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBECADC526E5EC27B36090FE72A894C1DC6085D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811464   (16115) от 10.08.2025
+
+Шрифты - Behance - Elena Voynova - Ramka - 144180901 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Материал раздаётся с официальной документацией.
+Файл "Ramka-Bold.otf" - пробный, ознакомительный вариант.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF442C8BACE493BAE677FCDA0C3F1FB469DFF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811490   (16094) от 10.08.2025
+
+3D сцены - Fab - Destruction Complete [UASSET, UMAP]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Разрушения в Unreal Engine.Формат: UASSET, UMAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A277524A38C81D5EF0B6C476A185E8CED3F03B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811495   (16090) от 10.08.2025
+
+3D сцены - Fab - Post Apocalyptic World [UASSET, UMAP]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Разрушения в Unreal Engine.Формат: UASSET, UMAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412D9AB2AD15D17466996E1442217E489958E928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811500   (16089) от 10.08.2025
+
+3D сцены - Fab - Theater Hall Environment (Theater Concert Cinema Hall Exhibition Meeting 3d) [UASSET, UMAP]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Театральный зал содержит 93 уникальных модели, включая все представленные ресурсы и высококачественные ресурсы. Он отличается хорошим уровнем детализации и оптимизирован для игровых проектов.Формат: UASSET, UMAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA054A30898A9C3937B07D0D6E16E1EDDF23BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800100   (16079) от 31.05.2025
 
 Фоны - Forhadx5 - Creative Fabrica - Camouflage and Plaid Texture Background Bundle [JPG]
@@ -6,7 +347,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -60,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -332,346 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:179FDEC7745ED741D7A879F14B3393643277123E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801025   (15371) от 07.06.2025
-
-Шаблоны - UI8 - Samsung Galaxy S25 Mockups Scenes [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши последние макеты Galaxy S25 с небольшими улучшениями корпуса и новыми цветами.Формат: PSDРазрешение файлов: 7000x4800 - 16500x16000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91706768A6A72735B8B4D820106207EB61857398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801001   (15363) от 07.06.2025
-
-Шрифты - Burntilldead - Creative Fabrica - Malevice Pro Font [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей 9 стилей, от тонкого до чёрного, что дает вам возможность создавать все, что угодно, от лаконичного и минималистичного дизайна до смелых и эффектных визуальных эффектов. Кроме того, в нем есть уникальные варианты, которые выделят ваш дизайн и при этом сделают его легко читаемым.Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFBCBAFC2276F7BC950272C218887C22FDEB38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800918   (15357) от 07.06.2025
-
-Растровый клипарт - Rose Art - Creative Fabrica - New Year Masquerade Mask Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с новогодними маскарадными масками.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B95F827ADC96E59CB824A978CF209D24744C1E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800925   (15338) от 07.06.2025
-
-Текстуры - CCPreset - Creative Market - 30 Colored Felt Texture - 291483585 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15338.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 разноцветных войлочных текстур.Формат: JPGРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19211F2999B368A405A519FBFDC722B115DC649E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801061   (15245) от 08.06.2025
-
-Растровый клипарт - SapphireDreamscape - Creative Fabrica - Funny Dragons PNG Bundle [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с забавными драконами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDB5B926DCAFEAE680CDBFD77DC4A239E32CC75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801337   (15081) от 10.06.2025
-
-Шрифты - Irina Kiseleva - Behance - Oldbastards font - 227258545 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C4B666C4BE31DDAA64F344D777FDA045CC6A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801213   (15078) от 10.06.2025
-
-3D сцены - Fab - Medieval Gothic Cathedrals -  Modular dark fantasy churchs [UASSET, UMAP]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средневековые готические соборы - Модульные церкви в стиле темного фэнтези. С этим модульным пакетом вы можете создавать любые соборы и церкви, которые захотите.Формат: UASSET, UMAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049F6615227B6AA1CE10CCF8E52D487CA85B63A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801446   (15071) от 10.06.2025
-
-Сборники - Envato - Big Bundle [JPG, PNG, PSD, AI, ATN]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой сборник качественных текстур, фонов и другого растрового клипарта.Формат: JPG, PNG, PSD, AI, ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2A1786F8BC49C0BEF18019B517A99E650B92A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801236   (15068) от 10.06.2025
-
-Футажи - ActionVFX - Gun Smoke Vol. 1 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15068.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 предварительно настроенный элемент дыма от последствия выстрела CG-оружия.
-7 эффектов доступны с 3 разных углов. Поставляется в разрешении 2K при 60 кадрах в секунду. Цветовое пространство RGB.  Все футажи имеют прозрачный фон.Формат: MOVРазрешение файлов: 2048x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCC6E2874FA9F75C0ECA208D4689814BBD4F8CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801355   (15057) от 10.06.2025
-
-Звуковые библиотеки - Splice - Blastwave FX Horror Vol. 2 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй том из коллекции звуков этой серии от данного производителя, охватывающей все: от жуткой атмосферы, криков до зловещих звуков монстров. Подходит для создания триллеров, фильмов ужасов и роликов мистической тематики.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A182EC002C63D69D02351FA9B5B38470098F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801354   (15053) от 10.06.2025
-
-Звуковые библиотеки - Splice - Blastwave FX Horror Vol. 1 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том из коллекции звуков серии Horror от данного производителя, охватывающей все: от жуткой окружающей атмосферы, льющейся крови до звона цепей и мистических звуковых палитр. Подходит для создания триллеров, фильмов ужасов и роликов мистической тематики.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407D44ACBBC93E6BC7860824C754453849E1E6A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801448   (15046) от 10.06.2025
-
-Текстуры - Chroma Supply - Submerge: Experimental Ink and Resin Textures [JPG, PSD, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 12 завораживающих текстур, выполненных из чернил и смолы. Эти текстуры были созданы с помощью уникального процесса соединения чернил и смолы. Смешанные расчетливым образом, они дают потрясающие образования, которые ощущаются как наука, природа и энергия, объединенные в одно целое. Они привнесут уникальное ощущение в различные проекты, такие как дизайн упаковки, (   Читать дальше...   )Формат: JPG, PSD, ABRРазрешение файлов: 6000x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585FC522934F1BDABD5DD1F24FBB9033634E6A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801483   (14960) от 11.06.2025
-
-Шрифты - Vasiliy Shishkin - G8 - Mod By He Rez AD [OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей для коммерции и персонального пользования в трёх вариациях.
-Добавлена от "He Rez AD" расширенная кириллица (Украинская, Белорусская, Молдавская) и дополнительные некоторые глифы, им же скорректировано отображение строчных и заглавных элементов.Формат: OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70688E8DA4024E209D4287DD7EAA1915ADC6B8C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

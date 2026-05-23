@@ -1,3 +1,107 @@
+###  Публикация: 1200598   (795586) от 21.01.2018
+
+Вдоль ночных дорог (2014) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная история о жизни и страданиях фанатов уездного городка, поддерживающих футбольную команду "Оверлок", защищающую честь и достоинство местной ткацкой фабрики, с 1956 года. Герои картины говорят стихами, на былинный манер и поют песни группы "СерьГа", Андрея Макаревича, Максим и др. Помимо профессиональных актёров, исполнителями ролей (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, сказка, мюзикл, комедияРежиссер: Дарья МахортоваАктеры: Антон Лапенко, Вероника Иващенко, Владимир Лысенко, Яков Кундин, Сергей Купчичев, Олег СысоевСубтитры: ОтсутствуютПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17116A804D24EBB5AC60DC184316ABB7E2F4937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509255   (795495) от 11.11.2021
+
+Любси (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят в жанре социальной фантастики, где чётко показано насколько быстро мы движемся по пути четвертой промышленной революции. Эффект Флинна пошел в обратную сторону. Людям привычнее совершенствовать машины, но не совершенствоваться самим.Производство: РоссияЖанр: Короткометражный, фантастикаРежиссер: Павел ДаниловАктеры: Алексей Каманин, Дана Агишева, Евгений БулавкинСубтитры: ОтсутствуютПродолжительность: 00:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744823DE3AB78A28C9AE838E4E3E131CB04E0F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011889   (795187) от 29.04.2016
+
+Дурак (2014) BDRemux [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жизни 800 человек общежития висят буквально на волоске из-за безразличия местных властей. В любую секунду здание может рухнуть. И кто бы мог подумать, что судьбы людей окажутся в руках простого сантехника. Но удастся ли ему что-то изменить и предотвратить катастрофу?Производство: Россия, Rock Film StudioЖанр: ДрамаРежиссер: Юрий БыковАктеры: Артем Быстров, Наталья Суркова, Юрий Цурило, Борис Невзоров, Кирилл Полухин, Роман Майоров, Иван Брэд, Александр Коршунов, Ольга Самошина, Дарья МорозПеревод: Не требуется (Русский)Язык субтитров: АнглийскийПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17525967B8A2F14C5D2E7998C905BE0B2ACADA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386390   (795180) от 28.05.2020
+
+Адвокат не нужен (2019) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обвиняемого в непреднамеренном убийстве Черткова опрашивает высококлассный адвокат, присланный из серьезной компании. Он убеждает Черткова в его невиновности, и обещает, что «дела» не будет совсем, если тот пойдет на одну очень выгодную сделку.Производство: Россия / Просто киноЖанр: Короткометражный, детективРежиссер: Артём МинаковАктеры: Владимир Бутенко, Станислав Иванов, Елена КрасиковаСубтитры: ОтсутствуютПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BA7917606AE70FBF3BAD60380DBC3352CAC0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011811   (795150) от 29.04.2016
 
 Помню – не помню! (2016) WEB-DLRip [H.264]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:279423E56DD3AB30AE923D29B51D608F3264A53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201133   (793484) от 23.01.2018
-
-Детки напрокат (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс и Венера так непохожи на своих родителей, будто их подменили в роддоме. Обратившись к психологу, родители получают неожиданный совет — поменяться детьми. Так каждый получит такого ребенка, о котором мечтал. Но не даром говорят: бойтесь своих желаний!Производство: Россия / Киностудия им. М.ГорькогоЖанр: комедия, семейныйРежиссер: Татьяна КапитанАктеры: Равшана Куркова, Артём Ткаченко, Диана Антосяк, Эрик Холявко-Гришин, Алла Михеева, Роман Курцын, Владимир Епифанцев, Ян Цапник, Ольга Тумайкина, Валерий ГаркалинПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728DC86A4987EF42EE0EA5D702A11EA29943FAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201015   (793480) от 23.01.2018
-
-Пурга (2018) WEB-DLRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперативник криминальной полиции Женя Никифоров однажды сделал выбор между долгом и чувством. Спустя год Женя не может решить, что же правильней — быть честным по любви или счастливым по расчету? В канун нового года его случайный знакомый Дед Мороз дает ему весьма необычный совет искупаться в снегу и загадать желание. Оно непременно исполнится, но при одном условии (   Читать дальше...   )Производство: Россия / ЗАО «Дирекция Кино»Жанр: КомедияРежиссер: Игорь ЗайцевАктеры: Виктор Хориняк, Александра Тюфтей, Юлия Ковалёва, Роман Мадянов, Ростислав Бершауэр, Михаил Евланов, Максим Литовченко, Максим Битюков, Наталья Рычкова, Людмила ПоляковаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BF917CC185BEBB41A55EF6BB5919E87E97F739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012150   (793384) от 01.05.2016
-
-Дурак (2014) HDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизни 800 человек общежития висят буквально на волоске из-за безразличия местных властей. В любую секунду здание может рухнуть. И кто бы мог подумать, что судьбы людей окажутся в руках простого сантехника. Но удастся ли ему что-то изменить и предотвратить катастрофу?Производство: Россия, Rock Film StudioЖанр: ДрамаРежиссер: Юрий БыковАктеры: Артем Быстров, Наталья Суркова, Юрий Цурило, Борис Невзоров, Кирилл Полухин, Роман Майоров, Иван Брэд, Александр Коршунов, Ольга Самошина, Дарья МорозПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21379C202DDE96ABA350D7679F7BC80D3F97D2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012437   (793215) от 01.05.2016
-
-Без границ (2015) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793215.jpg" />
-</div>
-
-
-###  Подробнее
-
-События картины начинаются в московском аэропорту, откуда главные герои отправляются в захватывающие путешествия к живописным горным долинам Армении, утопающим в зелени улочкам Тбилиси и праздничным огням новогодней Москвы навстречу любви — яркой и страстной, наивной и нелепой, трогательной и грустной, счастливой и безрассудной, которая не знает границ и условностей, (   Читать дальше...   )Производство: Россия, Фонд кино, Кинокомпания "Небо"Жанр: Комедия, МелодрамаРежиссер: Карен Оганесян, Резо Гигинеишвили, Роман ПрыгуновАктеры: Инна Чурикова, Олег Басилашвили, Александр Адабашьян, Анна Чиповская, Иван Янковский, Александр Паль, Милош Бикович, Мария Шалаева, Равшана Куркова, Наталия ВдовинаПеревод: Не требуется (русский) ЛицензияПродолжительность: 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6516F0C112A0C9A344D659BA8BB37FC6920C327
 ```
 
 https://mybot314.ru/tekegram_catalog/

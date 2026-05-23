@@ -1,3 +1,81 @@
+###  Публикация: 451869   (76432) от 15.02.2012
+
+Обитель зла: Вырождение / Resident Evil: Degeneration (2008) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Нападение зомби приносит хаос в аэропорт Харвардвиль. Клэр Рэдфилд и Леон Кеннеди боровшиеся с корпорацией «Umbrella» во время трагедии в Раккун Сити 7 лет назад вновь вернулись. Они готовы к битве с противником который ищет мести после смерти его семьи в Раккун Сити. Смертельный G-вирус выпущен на свободу и рождает нового мутировавшего монстра. Уничтожат ли Клэр (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, Компьютерная анимацияРежиссер: Макото КамияПеревод: Многоголосый закадровыйЯзык субтитров: Русские (надписи и прочее)Продолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74281EAFDF051E2D924DAAFCD3F05E7FD1F3A522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451728   (75988) от 13.02.2012
+
+Девять / 9 (2009) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Человек создал искусственный разум, но не смог дать механизму душу. И однажды его творение подняло руку на своего создателя… В страшной войне человечество было уничтожено механическими монстрами. Перед тем как погибнуть, профессор, придумавший умные машины, сшил девять тряпичных кукол, вложив в них человеческие души. Девять Героев. Девять Характеров. Только вместе, (   Читать дальше...   )Жанр: Фантастика, Приключения, МультфильмРежиссер: Шэйн ЭккерПеревод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398FFC32767B9C16473FCB5D4F5A3BCDC273A9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451827   (75919) от 13.02.2012
+
+Пропавший рысенок / El lince perdido / The Missing Lynx (2008) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Веселые приключения рысенка Феликса и его друзей: хамелеона-параноика Гуса, козы-трусишки Бееа и сокола Астарте. Они должны испортить план злого охотника и освободить других животных из его рук, а также помочь эксцентричному миллионеру, повернутому на секретном плане построить «Ноев ковчег»…Жанр: Мультфильм, комедия, семейныйРежиссер: Рауль Гарсиа, Мануель СицилияПеревод: Многоголосый закадровыйПродолжительность: 01:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D346410A010BD200DC85930EFC9A22748D10E0FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 451532   (75733) от 12.02.2012
 
 Нико: Путь к звёздам / Niko - Lentajan poika (2008) [H.264/720p-LQ] BDRip
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2370F63C88D29818058E160008516F50E40FD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709057   (62083) от 23.03.2024
-
-Лео / Leo (2023) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавный рассказ про старенькую 74-летнею ящерицу из школьного террариума во Флориде, которая решает осуществить дерзкий побег со своим лучшим другом-черепахой, после нескольких десятков лет заточения.Производство: США, Австралия / Netflix, Happy Madison Productions, Animal Logic, Screen NSWЖанр: мультфильм, комедия, семейныйРежиссер: Роберт Марианетти, Роберт Шмигель, Дэвид УочтенхеймАктеры: Адам Сэндлер, Билл Бёрр, Сесили Стронг, Джейсон Александер, Роб Шнайдер, Эллисон Стронг, Джо Кой, Сэди Сэндлер, Санни Сэндлер, Култер ИбанезПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DF8C8800EBDBE24436EA2BB10BFAB419D234AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710501   (61648) от 27.03.2024
-
-Ученик тигра / The Tiger's Apprentice (2024) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61648.jpg" />
-</div>
-
-
-###  Подробнее
-
-История об обычном мальчике Томе из Сан-Франциско, который неожиданно узнает о том, что его эксцентричная бабуля — хранительница яйца феникса. Когда старушка погибает в бою, и ее дух уносится в призрачной повозке, Тому предстоит стать новым защитником яйца и обучиться древней магии у своего наставника — тигра по имени мистер Ху. Так герой знакомится с волшебными (   Читать дальше...   )Производство: США / Jane Startz Productions, Paramount Animation, Paramount+Жанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Раман Хуэй, Чон Ён-док, Пол УотлингАктеры: Генри Голдинг, Брэндон Су Ху, Люси Лью, Сандра О, Мишель Йео, Бовэнь Ян, Леа Льюис, Кхенг Хуа Тан, Шерри Кола, Дебора С. КрэйгПеревод: Дублированный (Condor Films Studio), многоголосый профессиональный (TVShows, NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 01:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F49D0D9BA4E5EEDE0A920FFC5A40AA813E34EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710484   (61643) от 27.03.2024
-
-Мечты робота / Robot Dreams (2023) WEB-DL [H.264/1080p] [VO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сидя вечером у телевизора в своей квартире на Манхэттене, пес и не подозревал, что после покупки друга-робота по объявлению, в его жизнь ворвутся приключения, которые раз и навсегда изменят его жизнь.Производство: Испания, Франция / Arcadia Motion Pictures, Canal+Жанр: мультфильм, драма, музыкаРежиссер: Пабло БерхерАктеры: Иван Лабанда, Albert Trifol Segarra, Рафа Кальво, Хосе Гарсиа Тос, José Luis Mediavilla, Грасиэла Молина, Эстер СолансПеревод: Одноголосый любительский (AsetKeyZet)Язык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECF516B26F70AE4BDB3BDCF8E27A472A5BB6883
 ```
 
 https://mybot314.ru/tekegram_catalog/

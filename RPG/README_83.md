@@ -1,3 +1,81 @@
+###  Публикация: 1812494   (7736) от 15.08.2025
+
+Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Scrapnaut - это командно-административная игра на выживание по строительству базы с элементами стимпанка. Исследуйте открытый мир с различными биомами, следите за уровнем кислорода, управляйте фермами, генерируйте электричество, постройте собственный дом.Тип издания: LicenseРазработчик: SpiffyBitЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A723F167339B6EE7C1F52FB98685319EC6F59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184592   (7604) от 16.08.2025
+
+Barony (2015) [En] (4.3.2-150625-hf2/dlc) License GOG [Blessed Addition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Barony повествует об обретшем вечное существование в посмертии чародее по имени барон Геркс, еще при жизни терроризировавшем население крошечного городка под названием Гамлет, а теперь обосновавшегося в огромных подземных чертогах, прозванных Бастионом Дьявола. Вы – герой одиночка или член отряда авантюристов, которым предстоит спуститься в обиталище бессмертного (   Читать дальше...   )Тип издания: LicenseРазработчик: Turning Wheel LLCЖанр: Ролевая игра, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6D81344E4B13F3EE61A09F2EB79A640E53AC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775326   (7589) от 16.08.2025
+
+The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Edge of Allegoria - это пошаговая ролевая адвенчура, которая приглашает игроков погрузиться в причудливый, но странный мир, где опасность таится за каждым углом и не все так, как кажется. В игре, созданной на фоне знакомых и странных пейзажей, сочетаются визуальные эффекты в стиле старой школы Game Boy и совсем не детский тон. Здесь искатели приключений берут (   Читать дальше...   )Тип издания: LicenseРазработчик: Button Factory GamesЖанр: Инди, Ролевые игрыЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BE1CAE0631FF572A97E455B4B3C4D7F38067DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783656   (7586) от 16.08.2025
 
 Dragon Ruins II (2) (2025) [En] (250701) License GOG
@@ -6,7 +84,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ False Skies (2022) [En] (1.12aa) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Tales and Tactics / Tales & Tactics (2023) [Multi] (1.2 Build 19453510) Scene Te
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack Wanterlude [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Warsim: The Realm of Aslona (2022) [En] (1.3.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.2.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Tale of Immortal (2021) [Ru/Multi] (1.2.111.259/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ To the Eden (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack Let'sРlay [Director's Gut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,547) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C6C7AFE8509B12A302A6EECEEA9D96D6844974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792081   (5762) от 27.08.2025
-
-Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack FitGirl [Director's Cut - Supporter Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Envoy объединяет классическую механику RPG с боевой системой, основанной на навыках, классах и специализациях, и сочетает ее с разнообразными тактическими вариантами подхода к сражениям. Вы управляете отрядом охотников за реликвиями в повествовании о судьбе, происходящей в раздираемом конфликтами мире. Что произойдет, если объединить силы Технологии и Магии? (   Читать дальше...   )Тип издания: RepackРазработчик: Event HorizonЖанр: Ролевая игра, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC7EB4C71AD6FF90A0B35480FAC0C39BB8EF68C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786744   (5761) от 27.08.2025
-
-Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Юмия: Алхимик воспоминаний и Земля Грёз (2025) [Ru/Multi] (1.42/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то на одном континенте процветала Арадисская империя. Она достигла выдающихся успехов благодаря алхимии, которая держала другие нации на расстоянии. Однако империя рухнула из-за внезапного и таинственного катаклизма. Время шло. Несколько веков спустя алхимия стала считаться опасным ремеслом, что несет разрушение. Алхимия - зло и табу.Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA7A25DC178A1DF50A1A8C455E097B067F6FB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775934   (5728) от 27.08.2025
-
-Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаос и отчаяние распространились по всему Королевству Исимеральд. Его отчаянные жители кричат, молясь богам о помощи. Но сила, с которой они сталкиваются, - не просто нашествие нежити, или демоническая атака... Нечто гораздо более зловещее, гораздо более первобытное. Алчность. Black Geyser: Couriers of Darkness - это изометрическая ролевая игра в реальном времени (   Читать дальше...   )Тип издания: RepackРазработчик: GrapeOcean TechnologiesЖанр: RPG, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125C84678784D9E843CFDAA61A9824ACF4D4CFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

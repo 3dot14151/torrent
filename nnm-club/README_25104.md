@@ -1,298 +1,25 @@
-###  Публикация: 1809537   (64697) от 31.07.2025
+###  Публикация: 1799272   (66504) от 26.05.2025
 
-Сергей Карелин, Илья Савич | Инженер магических сетей (Книга 4) (2025) [MP3, Sibiryak]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я оказался в мире, где люди научились пускать магию по проводам и запасать в аккумуляторах. Здесь это главный источник энергии. А я как раз инженер-энергетик, ха-ха! Но за магией охотятся аристократы, корпораты и вражеские шпионы. А возле линий и подстанций бегают монстры-демоны… Ну, ничего. Инженер не первая моя профессия. И скоро мне понадобятся все навыки, какие (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 09:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D3F6F9F491EB9551BF71B1B41AB2FEF4553F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809673   (64696) от 31.07.2025
-
-VA - Chillout Jazz Del Mar Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Papik - Blackbird (1:43)
-02.  Nic Cattaneo - Triste (4:58)
-03.  Paolo Sessa - The Sea In Spring (4:03)
-04.  Soulstance - Magnetic (4:26)(   Читать дальше...   )Жанр: Chillout JazzПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63EFD0F07147A8303F87E75D1069B26C4444F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809687   (64695) от 31.07.2025
-
-VA - Under The Umbrella (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Banda Brasileira - Stars (3:57)
-02.  Don Carlos - Free (4:52)
-03.  Sarah Jane Morris - Let The Music Play (4:03)
-04.  LTJ XPerience - You Will Know (6:45)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017C945AD8C126C444EA906A963C3FC1D266C7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809681   (64694) от 31.07.2025
-
-VA - Summer Chill Mood (Warm & Elegant Relaxing Instrumentals, Vol. 1) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Martin Howard - Sylvan Spring (3:12)
-02.  SevenShadows - Nightwalks (1:42)
-03.  420 Sunlight - Does It Feel Alright (1:36)
-04.  Tony Frissore - Just Fade Away (3:09)(   Читать дальше...   )Жанр: Chillout, Lounge, Smooth JazzПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A00DF0FA199D378E93D49F713DCC1D4DE34366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809635   (64693) от 31.07.2025
-
-Владимир Маяковский | Баня (Радиоспектакль) (2008) [MP3, Георгий Менглет, Ростислав Плятт и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Владимирович Маяковский (19 июля 1893, Багдади, Кутаисская губерния, Российская империя – 14 апреля 1930, Москва, СССР) – русский и советский поэт, драматург, киносценарист, кинорежиссёр, киноактёр, художник. Лауреат премии Ленинского комсомола (1968 – посмертно). Один из наиболее значимых русских поэтов XX века, классик советской литературы.
-Радиоспектакль (   Читать дальше...   )Жанр: кая литература, классика, комедия, фантастикаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337725C0C24C98E2E1A6B0E03B68F663FA7A5CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809536   (64692) от 31.07.2025
-
-Сергей Карелин, Илья Савич | Инженер магических сетей (Книга 3) (2025) [MP3, Sibiryak]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я оказался в мире, где люди научились пускать магию по проводам и запасать в аккумуляторах. Здесь это главный источник энергии. А я как раз инженер-энергетик, ха-ха! Но за магией охотятся аристократы, корпораты и вражеские шпионы. А возле линий и подстанций бегают монстры-демоны… Ну, ничего. Инженер не первая моя профессия. И скоро мне понадобятся все навыки, какие (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 10:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B1F18495104D48F67A535F5EE6B2D1361B5E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809680   (64691) от 31.07.2025
-
-VA - Natale Jazz 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Barney Kessel - Holly (2:35)
-02.  Kathie Lee Gifford - It's Beginning to Look Like Christmas (2:26)
-03.  Dinah Washington - Fly Me to the Moon (In Other Words) (2:30)
-04.  The Modern Jazz Quartet - Precious Joy (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E645EF6BCC3D68B6F11D1B1AA2C76DD15E171850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809602   (64690) от 31.07.2025
-
-Шрифты - MyFonts - Badnick [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Badnick — одно из наших крупнейших семейств шрифтов, содержащее 42 начертания в 6 вариантах ширины. Это шрифт без засечек, который подходит для любых шрифтов благодаря широкому диапазону начертаний: от суженного (Condensed), полусуженного (Semi Condensed), нормального (Normal), полурасширенного (Semi Expanded), расширенного (Expanded) до ультрарасширенного (Ultra (   Читать дальше...   )Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F539C0AA26E243EB118598C3EC87827DD54B332E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809647   (64689) от 31.07.2025
-
-Олег Велесов | Подёнщик. (Книга 1). Форт-Хоэн. (2025) [MP3, Сергей Дидок]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я не помню прошлого и не ведаю будущего. Если кто-то из вас знает, кто я — скажите. Если не знаете — молчите. Если скажете и солжёте — я найду вас и убью. Я мастер оружия. Я палач. Я — подёнщик.Жанр: Фэнтези, боевик, ЛитРПГИздательство: Издательская студия БукЛабПродолжительность: 10:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F58D53767E4AAE9F8CCA251167C12EBCB243688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809524   (64688) от 31.07.2025
-
-Lanpirot | Позывной Хоттабыч (Книга 4). Спасти лейтенанта Джугашвили (2025) [MP3, Виктор Моключенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения бодрого старика Хоттабыча в альтернативном техно-магическом мире продолжаются! Конечная точка пути - Берлин, столица Вековечного Рейха. И, наконец-то, пыльные сапоги нашего героя ступили на его проклятую землю...Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 07:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B06B8C0CF084E5CEB2D80238437C9F19FF982B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809411   (64687) от 31.07.2025
-
-Kadaverficker - Exploitation Nekronation (2012) [FLAC|Lossless|image + .cue] <Death Metal / Grindcore>
+The Ossuary - Requiem for the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Nekrologue To The Overlords Of Death (1:17)
-02. Journey Of The Anal Junkies To Shitville (1:19)
-03. Scumshot (1:23)
-04. Bitchfinder General (2:30)(   Читать дальше...   )Жанр: Death Metal / GrindcoreПродолжительность: 00:43:23
+01. Sacrifice (04:29)
+ 02. Altar in Black (05:17)
+ 03. Far from the Tree (04:57)
+ 04. Wishing Well (05:04)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:43:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B93929B009CD01728F7FCED05AF7C3D5DE86B481
+magnet:?xt=urn:btih:E0E8E5532EBE5AD59EFDA38E2FD3B4A44DB93C74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809654   (64686) от 31.07.2025
+###  Публикация: 1799191   (66503) от 26.05.2025
 
-Torben Enevoldsen - Seven (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrumental Heavy Metal, Shred>
+Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Gravitas (04:15)
- 02. Perfect Vision (04:30)
- 03. New Horizons (04:16)
- 04. Transformation (03:59)(   Читать дальше...   )Жанр: Instrumental Heavy Metal, ShredПродолжительность: 00:42:22
+Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
+1995 - Twinaleblood
+1997 - Unpop
+1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD7A10184D2E222F8461D4FC286F71AAAC75F508
+magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809525   (64685) от 31.07.2025
+###  Публикация: 1798669   (66502) от 26.05.2025
 
-Lanpirot | Позывной Хоттабыч (Книга 5). Кто к нам с мечом? (2025) [MP3, Виктор Моключенко]
+These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Противостояние старика Хоттабыча с альтернативным техно-магическим нацизмом подходят к финалу! И от поступи его запыленных сапог содрогнется весь Вековечный Рейх!..Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 09:10:11
+01. Waiting (3:08)
+ 02. Bells (7:05)
+ 03. A Season In Hell (5:04)
+ 04. Industrial Love Song (feat. Caroline Polachek) (3:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:47:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E536F7A09C79E4E2BC9F841C12D3767224D28EA
+magnet:?xt=urn:btih:257461213746BFCFE249DB5E3D84B06813136A45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,25 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809526   (64684) от 31.07.2025
+###  Публикация: 1798513   (66501) от 26.05.2025
 
-Lanpirot | Позывной Хоттабыч (Книга 6). Аватар Х (2023) [MP3, Виктор Моключенко]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Cherry Blossom Easter Clipart [PNG]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Он очнулся через год после тяжелого ранения на фронте. Пришел в себя, как раз в тот момент, когда его семью пришли убивать. Не повезло... бандитам. Но он так ничего не вспомнил о своей прошлой жизни. Его посещали лишь смутные воспоминания ...Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 07:56:11
+Пасхальный клипарт с цветущей вишней.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C1B6C335B2A522595A3F2F6BF2260665E7BCF65
+magnet:?xt=urn:btih:0055D695F1174158BCA8C831F460788A2718501B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,25 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809528   (64683) от 31.07.2025
+###  Публикация: 1798717   (66500) от 26.05.2025
 
-Lanpirot | Позывной Хоттабыч (Книга 8). Исчадие Кромки. Часть 1 (2025) [MP3, Виктор Моключенко]
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-4 [JPG]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Наконец-то наш боевой старичок вернул себе собственное тело. Только вот куда на этот раз забросила его Судьба? Приключения старика Хоттабыча продолжаются...Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 08:30:28
+Клипарт с изображением мандалы.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08AEEF4B063411BC560AB84FBC0AB3FAA7CC0F8C
+magnet:?xt=urn:btih:7F5441D06F50BBAB17D879534A696A8B22456B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,25 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809527   (64682) от 31.07.2025
+###  Публикация: 1798511   (66499) от 26.05.2025
 
-Lanpirot | Позывной Хоттабыч (Книга 7). Аватар Х. Часть 2 (2025) [MP3, Виктор Моключенко]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Vintage Teacup Stacks Clipart [PNG]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Он очнулся через год после тяжелого ранения на фронте. Пришел в себя, как раз в тот момент, когда его семью пришли убивать. Не повезло... бандитам. Но он так ничего не вспомнил о своей прошлой жизни. Его посещали лишь смутные воспоминания, принадлежавшие, как ему казалось, совсем другому человеку. Да и человеку ли?Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 08:17:20
+Винтажный клипарт с чайными чашками.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3589058FA6D3ACA9259EEC2F2A148B1C7E81776
+magnet:?xt=urn:btih:EBFF14DB6744E0C3F34291EF62586DD9E76CEC28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809479   (64681) от 31.07.2025
+###  Публикация: 1798651   (66498) от 26.05.2025
 
-Nick Kamen - Move Until We Fly (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
+Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental, Post Rock>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. I Promised Myself (4:021)
-02. Oh How Happy (3:44)
-03. Looking Good Diving (3:52)
-04. Somebody's Arms To Hold Me (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:48
+01. Mystical Plosives (0:56)
+ 02. Aerial Troubles (3:21)
+ 03. Melodie Is A Wound (7:37)
+ 04. Immortal Hands (6:25)(   Читать дальше...   )Жанр: Indie Rock, Experimental, Post RockПродолжительность: 00:59:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4B5FE9634BA8FF2E3B4D740A983979EE481AA99
+magnet:?xt=urn:btih:76EDC78F3C6257EA404819A76A4A8D55D3B3F81B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +192,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809638   (64680) от 31.07.2025
+###  Публикация: 1798721   (66497) от 26.05.2025
 
-Владимир Маяковский | Париж. Ездил я так… (2013) [MP3, Аркадий Бухмин]
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-6 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3737DFC34A37BADDE7BE107ECE3337EAB8CC792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798499   (66496) от 26.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Princess Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображениями принцесс.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B27B6A6B779AEBBBD16D9F2BCBA4543AC1ED2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798712   (66495) от 26.05.2025
+
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-3 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E7ADC601249886A648931156CE99F6D8D6E0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799228   (66494) от 26.05.2025
+
+Николай Гоголь | Портрет (2022) [MP3, Александр Лыков]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Русская классика.
-Владимир Владимирович Маяковский (1893–1930) – русский и советский поэт, драматург, киносценарист, кинорежиссёр, киноактёр, художник.
-Французская граница. Осмотр паспортов. Специальный комиссар полиции. Посмотрит паспорт и отдаст. Посмотрит и отдаст.
-Моя бумажка «специальному» определенно понравилась.(   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: МедиаКнигаПродолжительность: 03:17:33
+Серия/Цикл: Литературные чтения.
+Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
+Повесть «Портрет» – одна из самых знаменитых и загадочных «Петербургских повестей» Н.В. Гоголя, написанная в 1834–1835 годах и впервые опубликованная в сборнике «Арабески» в 1835 году.
+(   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:06:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB35665B94052FDF30E8DCEE4511A5967A0D5962
+magnet:?xt=urn:btih:303885797DCEB19B6270991C40FF8103B591DE94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +299,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809671   (64679) от 31.07.2025
+###  Публикация: 1798724   (66493) от 26.05.2025
 
-VA - Chill Mood (I want a quiet summer !) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
+Oresund Space Collective - Alotta Hella Down in Estrela (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Alotta hella down in Estrela [00:49:32]
+02. Slow to Fast First Rays [00:22:35]
+03. Weberian Bass [00:18:23]Жанр: Progressive RockПродолжительность: 01:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6092344FDF2391F02FAB28BABA8B5C3DF30B26F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798528   (66492) от 26.05.2025
+
+Растровый клипарт - DoodleBox - Creative Fabrica - Gingerbreads Watercolor Christmas [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Акварельный рождественский клипарт с имбирными пряниками и не только.Формат: PNGРазрешение файлов: 1157 x 2500 - 4608 x 3456
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF4DB34AB3C9762FBADB400C2ED55113D4348C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799428   (66491) от 27.05.2025
+
+VA - Jazz House Instrumental Volume 4 (Jazzy Soulful Tracks And Instrumental Club Tunes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01.  David Florio - Third Eye (3:10)
-02.  Lo Greco Bros - New Time (4:51)
-03.  Anduze - Priority (3:05)
-04.  Belladonna - Hindering You (4:18)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 01:21:17
+01.  Acusmatic group - Secret Lovers (Suonho Motion Capture Mix) (7:08)
+02.  Duran Y Garcia - Night In Paris (5:51)
+03.  Jazz 2 More - Listen This (3:54)
+04.  Belladonna - My Mood (4:15)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 02:17:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F884E80C6EDE24AB8C971EE8FBDB480CC676AF3
+magnet:?xt=urn:btih:6C16678308FEA884D93B82CCB79878AD4AD035FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +382,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809483   (64678) от 31.07.2025
+###  Публикация: 1799431   (66490) от 27.05.2025
 
-Nick Kamen - Whatever, Wherever (1992) 1st German Press [APE|Lossless|image + .cue] <Pop>
+VA - Jazz Kissa (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. We'll Never Lose What We Have Found (4:39)
-02. Whatever Whenever (4:20)
-03. You're Not The Only One (4:15)
-04. Nothing Rhymes Now (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:21
+01.  Nina Simone - If I Should Lose You (3:59)
+02.  Ahmad Jamal - Perugia (3:56)
+03.  The Eddie Higgins Trio - Shelley's World (3:55)
+04.  Bud Powell Trio - Lullaby of Birdland (1:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAF3B7C0B95A1932951DBEE02DB4A5858F5D25AE
+magnet:?xt=urn:btih:CBD24FA4759EEBA35F37E5D4AA8A9322D7720984
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,80 +411,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809538   (64677) от 31.07.2025
+###  Публикация: 1799459   (66489) от 27.05.2025
 
-Сергей Карелин, Илья Савич | Инженер магических сетей (Книга 5) (2025) [MP3, Sibiryak]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я оказался в мире, где люди научились пускать магию по проводам и запасать в аккумуляторах. Здесь это главный источник энергии. А я как раз инженер-энергетик, ха-ха! Но за магией охотятся аристократы, корпораты и вражеские шпионы. А возле линий и подстанций бегают монстры-демоны… Ну, ничего. Инженер не первая моя профессия. И скоро мне понадобятся все навыки, какие (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 10:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634D7C59431F80A29CE7250B7DF319442DB9F2A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809535   (64676) от 31.07.2025
-
-Сергей Карелин, Илья Савич | Инженер магических сетей (Книга 2) (2025) [MP3, Sibiryak]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я оказался в мире, где люди научились пускать магию по проводам и запасать её в аккумуляторах. Здесь это главный источник энергии. А я как раз инженер-энергетик, ха-ха! Но за магией охотятся аристократы, корпораты и вражеские шпионы. А возле линий и подстанций бегают монстры-демоны… Ну, ничего. Я с этим справлюсьЖанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 10:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A58E315E9C361F54C77006D469CBC4DA3ABD62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809701   (64675) от 31.07.2025
-
-Nightingale - I (2000) Reissue, Remastered, 2024, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal, Hard Rock>
+Chantal - Rainbow Warrior (2025) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Remaster 2024:
-1-1 Scarred For Life 3:58
-1-2 Still In The Dark 3:13
-1-3 The Game 4:29(   Читать дальше...   )Жанр: Progressive Metal, Hard RockПродолжительность: 02:26:14
+01. Silver Linings (06:35)
+02. Rainbow Warrior (05:51)
+03. Run (09:34)
+04. Canyon (06:01)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:08:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:863F6C815AB131E35F5BD727D2B8DB14994AFD34
+magnet:?xt=urn:btih:D993EFF8C8419D2E11D43A735D7DCF7C932C6095
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,28 +440,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809603   (64674) от 31.07.2025
+###  Публикация: 1799294   (66488) от 27.05.2025
 
-VA - Deep Reflections: Summer Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Organic House>
+Растровый клипарт - Venture Studio - Creative Fabrica - Purple Butterfly Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с фиолетовыми бабочками.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0FF4258AF973214B9B148645478CB6647922D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799344   (66487) от 27.05.2025
+
+МузЛофт-Дети / МузLoft. Кирилл Усов (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Кирилл Усов. Из хоккеиста в вокалисты. Мечты о дуэте с Ларой Фабиан и Биланом.
+От репертуара этого парня можно просто сойти с ума. А ещё он участник шоу «Голос. Дети», заменил барабанщика в Музлофте и… А что ещё он сделал в этом выпуске, ты узнаешь, если посмотришь его до конца!Производство: Россия | Y-GenerationУчастники: Кирилл УсовПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799295   (66486) от 27.05.2025
+
+Растровый клипарт - Venture Studio - Creative Fabrica - Space Elements Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на космическую тему.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D97F5E7ADAAB1C8512A24099E54DC6F582290EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799348   (66485) от 27.05.2025
+
+VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Soldatov & M-Sol DEEP - Apolemia (Original Mix) [4:12]
-02. Riccardo Leardini & M-Sol DEEP - Profondo (Original Mix) [5:59]
-03. Trumark & M-Sol DEEP - Somewhere (Original Mix) [6:13]
-04. Jon Sweetname & M-Sol DEEP - Hidden Beauty (Original Mix) [6:31](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:26:51
+01. V-Sta - Highend Fashion (Original Mix) [5:20]
+02. Filizola - Get Me (Original Mix) [5:47]
+03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
+04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CC02BDA1880B8F8289C59CFE44517876442B13E
+magnet:?xt=urn:btih:731986B96C9D924B930AA865E7DFBD07BF505EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809639   (64673) от 31.07.2025
+###  Публикация: 1799422   (66484) от 27.05.2025
 
-Владимир Маяковский | Я сам (2015) [MP3, Дмитрий Оргин]
+Улыбнись! (2023) WEBRip [H.264/1080p]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Документалистика и Телепередачи
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Когда слово становится делом.
-Владимир Владимирович Маяковский (1893–1930) – русский и советский поэт, драматург, киносценарист, кинорежиссёр, киноактёр, художник.
-Автобиография Владимира Маяковского, написанная с присущей поэту самоиронией. Живость переживания не только основных этапов авторского пути, но и его эпохи.
-«Что я могу противопоставить навалившейся (   Читать дальше...   )Жанр: Русская литература, классика, автобиографическая прозаИздательство: Студия «ГЛАГОЛ»Продолжительность: 00:41:46
+История того, как и почему в результате встречи с советским кинорежиссером Фридрихом Эрмлером Чарлз Спенсер Чаплин изменил первоначальный вариант финала своего знаменитого фильма «Новые времена».Производство: Россия / Fest-FilmЖанр: документальный, биографияРежиссер: Марианна КирееваПродолжительность: 01:09:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C4083AF1950F9FC126DFBDDA91C33B5278A9174
+magnet:?xt=urn:btih:93BC710CA101C5930CB53BED8823FDFA48F82577
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,28 +574,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809484   (64672) от 31.07.2025
+###  Публикация: 1799296   (66483) от 27.05.2025
 
-Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
+Растровый клипарт - Venture Studio - Creative Fabrica - Fish Watercolor Clipart [PNG]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Love For All Seasons (4:17)
-02. No One On Earth (3:23)
-03. I'm Too Sexy (2:50)
-04. Do Ya Feel (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:04
+Акварельный клипарт с рыбами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4EBEDBB799D35E6967541C8E2677EE6FE819420
+magnet:?xt=urn:btih:2615D3C2DF9B8888B98EBFD07BBF8121E439F3FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799426   (66482) от 27.05.2025
+
+VA - GIMME THE FUNK_ 90's Funky Tracks (Funk Grooves & Funky House Tunes from the Nineties) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Jestofunk - I'm Gonna Love You (Mc Turbo Sax) (4:22)
+02.  LTj - Gimme The Funk (4:21)
+03.  James Thompson - Don't Stop the Sax (7:14)
+04.  Black & Brown - Jurassik Funk (5:46)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B94FA30ADDFF46563CE15DF51E7F044E949CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799202   (66481) от 27.05.2025
+
+Матч легенд: «Зенит» Ленинград — «Зенит» Санкт-Петербург (25.05.2025) WEB-DL [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Запись прямой трансляции Матча легенд при поддержке Winline на «Газпром Арене» 25 мая 2025 годаЖанр: спорт, футболЯзык озвучки: русскийПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338A6B1DED580E98EBFE674A3A360995465FA404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799302   (66480) от 27.05.2025
+
+Фоны - sagorarts - Creative Fabrica - Rainbow Glitter Agate Background [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Радужные блестящие фоны под агат.Формат: JPGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC59B33C2C8496EF2736FE1FFB198EF3E6A1BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799424   (66479) от 27.05.2025
+
+VA - Best Sound of Chill & Lounge 2025 – Summer Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Jean Mare - Time Again (Chill Lounge Mix) (3:50)
+02.  Soundset City - Lounge Groove Corner (2:55)
+03.  Audiozoom - Electric Emotion (4:15)
+04.  Jean Mare - Miles Away (4:18)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 01:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F5FA7252BBE1F557455F63E01E16C28B9EAB12
 ```
 
 https://mybot314.ru/tekegram_catalog/

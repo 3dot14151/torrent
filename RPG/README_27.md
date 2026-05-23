@@ -1,3 +1,81 @@
+###  Публикация: 537321   (512002) от 20.08.2012
+
+Dungeon Siege 3 Limited Edition + 5 DLC [Ru] (Repack/Upd2) 2011 | R.G. Packers
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая серия ролевых игр Dungeon Siege, полюбившаяся миллионам поклонников жанра, обретает долгожданное продолжение. Разработка третьей части игры была возложена на студию Obsidian Entertainment – творцов потрясающих фантастических вселенных Neverwinter Nights 2 и Star Wars: Knights of the Old Republic 2, а контролировал процесс создатель и вдохновитель серии Крис Тейлор. Вас ожидают невероятные приключения в древнем королевстве Эб, погрязшем в хаосе и анархии. Вместе с одним из четырех героев вам предстоит совершить отчаянные подвиги, уничтожить бесчисленные орды чудовищ и вернуть жителям страны надежду на счастливое будущее. Предусмотрены не только одиночные странствия и приключения в мире, где сошлись в сражении острые клинки и могущественные заклинания, но и совместное прохождение игры по сети!(   Читать дальше...   )Тип издания: RepackЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274C365260EBB42B90E7C4029C2987B550460FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931327   (511548) от 26.08.2015
+
+COPS 2170: The Power of Law / Власть Закона: Золотая коллекция (2003) [Ru] (1.64.00) License Reality 4.13 [Remastered]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игра является приквелом к игре Код доступа: Рай. Точное время действия не указывается, однако можно предположить, что до событий, описанных в игре «Код доступа „Рай“», где-то 5-10 лет. Сюжет начинается с того что Катрин, персонаж из первой части игры, только начинает свою карьеру в полиции Верхнего города. Кроме неё, игрок может взять в свою команду ещё 5 человек, (   Читать дальше...   )Тип издания: Лицензия (remastered)Разработчик: МиСТ ленд-ЮГЖанр: Strategy (Turn-based / Tactical) / RPG / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A9EB05B49EBE8F9973F9560AF7ABE62208FD24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562311   (511387) от 08.07.2022
+
+Disgaea 6: Defiance of Destiny (2022) [Multi] (8848380/dlc) License SKIDROW [Complete]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Зед (Zed) - горделивый зомби, который застрял на самой нижней ступеньке лестницы Преисподней (Netherworld) вместе со своей сестрой Биеко (Bieko). Когда Бог Разрушения угрожает их (не)жизни, Зед (Zed) должен использовать свою уникальную способность Супер-Реинкарнации (Super Reincarnation), чтобы противостоять приближающейся угрозе. По ходу игры он будет объединяться (   Читать дальше...   )Тип издания: LicenseРазработчик: Nippon Ichi Software, Inc.Жанр: Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Китайский, Японский и другиеЯзык интерфейса: Английский, Французский, Китайский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0124530D1D4A792D0EAEB95A7B7DBF3AD776DA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931900   (510610) от 27.08.2015
 
 Kyn (2015) [En/De] (1.0/upd4) Repack Let'sРlay [Deluxe Edition]
@@ -6,7 +84,7 @@ Kyn (2015) [En/De] (1.0/upd4) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Pesterquest (2019) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Gothic 3: Forsaken Gods / Gothic 3: Отвергнутые боги (2011) [Mult
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ I Shall Remain (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Immortal: Unchained (2018) [Ru/Multi] (1.18/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Risen: Дилогия / Risen: Dilogy [Ru] (Repack) 2009 - 2012 | {AVG}
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ Dragon Forge (2022) [En] (1.0.8224) License FLT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Shadowrun: Dragonfall - Director's Cut (2014) [Ru/Multi] (2.09) Repack R.G. Ме
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Frozen State (2016) [Ru/Multi] (1.00.271) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0.0.1+FIX 0.8) 2012 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +346,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.69.4648
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ Zenith (2016) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ Animus - Stand Alone (2019) [Ru/Multi] (1.1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ Tales of Hongyuan (2017) [En/Ch] (1.1.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ Sword Coast Legends (2015) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6430.37816/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ Blue Horizon (2017) [Ru/Multi] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ Darkwood (2017) [Ru/Multi] (1.3) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ Immortals Fenyx Rising (2020) [Ru/En] (1.1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.17/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Vestaria Saga II: The Sacred Sword of Silvanister (2022) [Multi] (1.13.6) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ Windbound (2020) [Ru/Multi] (1.0.36896.31/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ Windbound – это грандиозное морское приключени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A2A89F8D7042181C8F6627077401DA1D1DABFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244752   (477644) от 03.09.2018
-
-Tower of Time (2018) [Ru/Multi] (1.2.4.2473) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower of Time — удивительная игра со множеством приключений, в которую входит около 50 часов игрового времени. Все уровни в игре созданы вручную, а увлекательный сюжет раскрывается через видеовставки.Тип издания: RepackРазработчик: Event HorizonЖанр: Strategy, RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1341EE834E6944B972FBA66D3B0F8C00B214FB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939440   (474754) от 21.09.2015
-
-bit Dungeon II (2014) [En] (2.2) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474754.jpg" />
-</div>
-
-
-###  Подробнее
-
-bit Dungeon II — динамичный RPG-рогалик со случайно генерируемыми подземельями, события которого разворачиваются в огромном надземном мире. Источником вдохновения при создании данного проекта, авторы называют такие культовые серии, как Zelda, Dark Souls, и, конечно же, Diablo. Игрок будет управлять невинной душой, оказавшейся среди демонов. Могила Вашей возлюбленной (   Читать дальше...   )Тип издания: RepackРазработчик: KintoGamesЖанр: RPG (Rogue/Action)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23507D3BBFA63FA96A7841E479FEB71E294A0B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057711   (472368) от 29.09.2016
-
-Herolike (2016) [En] (1.0) License HI2U
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Herolike – ролевая игра с экшен боями, в которой вы выступаете в роли начинающего героя. Вы сможете самолично выбирать, с кем сражаться, обдумывать каждый сделанный выбор, приобретать фантастические предметы и даже построить собственный город. Вашей главной задачей станет помешать Злу заполучить в свои руки древний могущественный артефакт Камень Земли, который оно (   Читать дальше...   )Тип издания: LicenseРазработчик: Games HutЖанр: RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9401D6E4C6DABFD982BD574E843820C7F8A04950
 ```
 
 https://mybot314.ru/tekegram_catalog/

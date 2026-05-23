@@ -1,3 +1,107 @@
+###  Публикация: 1378320   (846000) от 25.04.2020
+
+Высший класс! (1991) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Милашка Верочка приезжает в Москву, чтобы когда-нибудь стать звездой. Провалившись на экзаменах, она решает не возвращаться домой. Случай сводит ее с Сергеем Сергеевичем — «нужным» человеком из мафии, поставляющей девочек за границу…Производство: СССР / Antares Film, Izdat BankЖанр: драма, комедия, криминалРежиссер: Михаил МельниченкоАктеры: Ирина Алферова, Всеволод Шиловский, Евгений Герасимов, Вячеслав Невинный, Анатолий Ромашин, Ксения Алферова, Андрей Морозов, Наталья Хорохорина, Ирина Жалыбина, Алла ПлоткинаСубтитры: отсутствуютПродолжительность: 01:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78A7B7941EB98F6A6FADE8FC5DDB5E568FE79A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378625   (845896) от 25.04.2020
+
+Текст (2019) HDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — 27-летний Илья Горюнов, семь лет отсидевший в тюрьме по ложному обвинению в распространении наркотиков. Когда Илья выходит на свободу, он понимает, что прежняя жизнь, по которой он тосковал, разрушена, и вернуться к ней он больше не сможет. Хотя он не собирался мстить человеку, который отправил его в тюрьму, другого выхода теперь нет. Встретившись (   Читать дальше...   )Производство: Россия / Фонд развития современного кинематографа «КИНОПРАЙМ», Централ Партнершип, START StudioЖанр: Драма, триллерРежиссер: Клим ШипенкоАктеры: Александр Петров, Кристина Асмус, Иван Янковский, Софья Озерова, Максим Виноградов, Дмитрий Глуховский, Кирилл Нагиев, Елена Финогеева, Владимир Капустин , Павел ГолубеПеревод: Не требуется (русский) Лицензия BD RUSСубтитры: ОтсутствуютПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C3DD9F5EB2B1F5E0132217CBE12805414954E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378278   (845894) от 25.04.2020
+
+Лёд 2 (2020) WEB-DL [H.264/720p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что происходит в сказках после свадьбы принца и принцессы? Фигуристка Надя и хоккеист Саша поженились и теперь мечтают о ребенке. Правда, цена, которую им придется заплатить за эту мечту, будет невообразимо высока. Кажется, что после таких потрясений рассчитывать на счастливый конец уже невозможно. Но если вы так думаете, вы ничего не знаете о настоящих сказках.Производство: Россия, Национальная Медиа Группа, Телеканал «РОССИЯ 1», Кинокомпания «Водород», Art Pictures StudioЖанр: Мелодрама, драма, спортРежиссер: Жора КрыжовниковАктеры: Александр Петров, Аглая Тарасова, Мария Аронова, Юлия Хлынина, Надежда Михалкова, Сергей Кузнецов, Сергей Лавыгин, Виталия Корниенко, Вера Тарасова, Евгения ЕвстигнееваПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 02:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD0FCBE02CEAD6EE9DB42E834FB1D27421957A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499699   (845711) от 03.10.2021
+
+Нефутбол (2021) WEB-DL [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дане Белых с детства твердили, что футбол — не женское дело, но она все равно стала капитаном футбольной команды. Вот только ее команду неожиданно собрались закрывать. Спасти их может только победа. И Даня решает собрать своих подруг детства, с которыми играла в футбол еще в школе. Это оказывается не так-то просто, а тут еще и тренер — бывшая «звезда» с проблемами, (   Читать дальше...   )Производство: Россия / Революция ФильмЖанр: комедия, спортРежиссер: Максим СвешниковАктеры: Любовь Аксенова, Егор Корешков, Юлия Топольницкая, Алина Алексеева, Александра Кузенкина, Полина Ауг, Мария Ивакова, Валентина Ляпина, Зарина Мухитдинова, Роман МадяновПеревод: Не требуется (русский) iTunesСубтитры: отсутствуютПродолжительность: 01:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA963C7C963F9D90B6E83CDEAB20DE17C241745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 649859   (844996) от 29.04.2013
 
 Любовь из пробирки (2013) SATRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_844222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,112 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4FD4AE14B4573014CD1D84C68B1D965A342F049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002709   (841175) от 04.04.2016
-
-Холодильник (2014) WEB-DL
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максим, мечтает уехать в Лондон и наконец получает визу. Но простая просьба матери выбросить старый холодильник может поставить крест не его мечте!Производство: РоссияЖанр: Короткометражный, ДрамаРежиссер: Максим КулагинАктеры: Александр Петров, Максим Виноградов, Дмитрий Чеботарёв, Наталья ПавленковаПродолжительность: 00:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4FC8A84B313B486DA89A8C322CE4442DD3734F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112722   (841114) от 09.03.2017
-
-Нирвана (2008) HDTV [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алиса приезжает в Петербург. Соседями Алисы по квартире становятся девушка по имени Вэл и ее парень Валера Мертвый. Вэл работает барменом в ночном клубе. Она давно никому не верит, и привыкла рассчитывать лишь на себя. В этом мире Вэл удерживает только ее парень, из-за которого она оставила все, что ей было близко и дорого. Однажды случается так, что Вэл остается (   Читать дальше...   )Производство: Россия, Кинокомпания CTBЖанр: ДрамаРежиссер: Игорь ВолошинАктеры: Ольга Сутулова, Мария Шалаева, Артур Смольянинов, Михаил Евланов, Татьяна Ткач, Татьяна Самойлова, Татьяна Рябоконь, Эдуард Марцевич, Вадим Франчук, Анастасия Дюкова, Артем ЦыпинСубтитры: отсутствуютПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CE3926FAFB404BE0E05BAE802A48CD00D1F41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309371   (840801) от 16.03.2011
-
-Любовь и немного перца (2011) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Троих детей и немалые долги получила Лариса в наследство от бросившего ее мужа. Поиски работы не дали результата: без хорошего образования или протекции устроиться сейчас трудно. Женщина совсем было отчаялась, но тут друг ее мужа, Аркадий, вспомнил о ее кулинарных способностях и предложил открыть ресторанчик на дому.
-Аркадий и его начальник Дима стали постоянными клиентами Ларисы. Обоим нравились не только ее блюда, но и она сама: женщина владела секретом, перед которым не мог устоять ни один мужчина…
-Не сказав ни слова Ларисе, Аркадий выплачивает долг ее мужа, а она становится любовницей Димы, уверенная, что благородный поступок совершил он…Жанр: МелодрамаРежиссер: Владимир БалкашиновАктеры: Екатерина Стриженова, Константин Юшкевич, Дмитрий Щербина, Сергей КалантайФормат: SATRip, AVI, XviD, MP3Продолжительность: 1:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72143A53DC0B11CDA4B345FDF1E1A35C58DA1EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379316   (840744) от 28.04.2020
-
-Пробуждение (2014) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840744.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета картины преуспевающий сорокалетний адвокат, за обворожительной улыбкой которого скрывается циник и лицемер. На загородной трассе, отвлекшись на телефонный разговор, он сбивает парня и под предлогом необходимости отвезти его в больницу покидает место происшествия. В пути адвокат вступает в переговоры с юношей, желая откупиться. Однако неожиданно дерзкий, (   Читать дальше...   )Производство: Россия | «Молодёжные инициативы»Жанр: Короткометражный, драмаРежиссер: Константин ТищенкоАктеры: Владимир Вдовиченков, Александр Кононец, Константин Ельчанинов, Николай БеллинСубтитры: Английские (hardsub)Продолжительность: 00:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A629F55316115D14049934716E109D72FA97425
 ```
 
 https://mybot314.ru/tekegram_catalog/

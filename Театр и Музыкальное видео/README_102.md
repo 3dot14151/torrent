@@ -1,3 +1,171 @@
+###  Публикация: 1181550   (321588) от 08.11.2017
+
+Venom - Live In London 1985 (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концерт Venom в Hammersmith Odeon Theatre (London, England) в 1985 году. Выпущен на DVD 19 апреля 2004 года.1. Intro / Too Loud For The Crowd 02:36
+2. Black Metal 03:27
+3. Countess Bathory 04:08
+4. The Seven Gates Of Hell 03:17(   Читать дальше...   )Жанр: NWOBHM, Thrash Metal, Speed MetalПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F59BD6FDA112CABFA744E91023A1EEE4F93C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181574   (321581) от 08.11.2017
+
+Overkill - Wrecking Everything (2002) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выступление Overkill в  Asbury Park (New Jersey) 23 марта 2002 года. Выпущено на VHS/DVD 18 июня 2002. В Соединенных Штатах продано ~ 20000 копий.Necroshine
+Thunderhead
+E.Vil N.Ever D.Ies
+Deny the Cross(   Читать дальше...   )Производство: Spitfire (USA)Жанр: Thrash MetalПродолжительность: 01:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1E7B24367802F31555B4031699547280834C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958862   (321245) от 22.11.2015
+
+VA - Осенний марафон № 206: Дискотека с размахом № 5 (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Осенние (22.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ally - LoveSick (Official Video) (00:03:15)
+02. Amure - House Of The Sun (Official Video) (00:04:38)
+03. Stereolizza - Boys and Girls (Official Video) (00:03:22)
+04. BoA - Lookbook (Official Video) (00:02:36)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Soul, Dubstep, Chill OutПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1720F409AFA03C5C62D0975A6A3D43EEF27BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582097   (321147) от 29.11.2012
+
+Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R&B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3774D130F8598ABE88743B255B4F6E05A6CB732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582041   (321142) от 29.11.2012
+
+Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD3F54C8F5368010E907D81C695820FF3F54006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958218   (321104) от 22.11.2015
+
+Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой уникальный сплав реставрированных концертных съемок, документальной хроники, анимационных фрагментов и самых передовых технологий визуального изображения и спец-эффектов, Роджер Уотерс также включил кадры из своей автобиографии.01. In the Flesh?
+02. The Thin Ice
+03. Another Brick in the Wall Part 1
+04. The Happiest Days of Our Lives(   Читать дальше...   )Производство: ВеликобританияЖанр: Mузыка, концерт, документальныйРежиссер: Шон Эванс, Роджер УотерсАктеры: Роджер Уотерс, Дэйв Килминстер, Сноуи Уайт, Г.И. Смит, Джон Кэрин, Гарри Уотерс, Грэхэм Броад, Робби Выкофф, Джон Джойс, Пэт ЛеннонПеревод: ОтсутствуетЯзык субтитров: Английский, Японский, Французский, Испанский, Португальский, Итальянский, Немецкий, Голландский, Болгарский, Китайский, Чешский, Датский, Финский, Греческий, Венгерский, Корейский, Норвежский, Польский, Русский, Шведский, ТурецкийПродолжительность: 02:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23CDBEF96BA4AEE478BC7F73AFE54F97AEC8917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582080   (320966) от 29.11.2012
 
 Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
@@ -6,7 +174,7 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +200,7 @@ Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +226,7 @@ Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +252,7 @@ Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +278,7 @@ The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +304,7 @@ Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +330,7 @@ Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +359,7 @@ Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +492,7 @@ Katy Perry - MTV UNplugged (2009) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +521,7 @@ Riverdance - The Show 2002 (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -521,7 +689,7 @@ Alizee - En concert (2004) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,180 +703,6 @@ Alizee - En concert (2004) DVDRip [hand made 60fps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03B46F2E62DF7C1431BE32ED4C85A381DF05DD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075975   (315679) от 24.11.2016
-
-Motley Crue - The End.Live in Los Angeles.2015 (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия заключительного концерта прощального тура группы Motley Crue,состоявшегося 31.12.2015г в их родном городе Лос-Анджелесе.
-Motley Crue - американская глэм-метал группа, основанная в Лос-Анджелесе в 1981 году. Является ярчайшим представителем этого жанра и одним из его стержней. Группа была создана бас-гитаристом Никки Сиксом и барабанщиком Томми Ли, впоследствии (   Читать дальше...   )1. Intro
-2. Girls, Girls, Girls
-3. Wild Side
-4. Primal Scream(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Heavy Metal, GlamРежиссер: Christian LambАктеры: Motley CrueПеревод: ОтсутствуетПродолжительность: 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF903E6941B57AD3E67BB17C51E56F3EE8A291D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583051   (315360) от 01.12.2012
-
-Вася Обломов - УГ (2011) HDCam
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клип Васи Обломова (Гончарова) из альбома "Повести и Рассказы."Жанр: Rock / Альтернативный шансон / Стёб-ХопПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9AFA3C5BB1BCCB78FFC51AD2F89BCFC5928850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583376   (314973) от 01.12.2012
-
-Дискотека-80х - 2012 Rock &  Dance 2 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314973.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 международный фестиваль Авторадио Дискотека 80-х «Rock&Dance» 2012. . В этом году «Дискотека 80-х» под слоганом «Rock&Dance» собрала вместе на одной сцене самых ярких звезд диско и главных героев рока 80-х: Zodiac, Gorky Park, Chris Norman, Вячеслав Бутусов и группа «Ю-Питер», Black, Константин Никольский.Жанр: МузыкаРежиссер: АвторадиоАктеры: Zodiac,Gorky Park,Silent Circle,Bad Boys Blue,Вячеслав Бутусов,C.C.Catch,Chris Norman,Boney MПеревод: ОтсутствуетПродолжительность: 01:53:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583350   (314972) от 01.12.2012
-
-Дискотека-80х - 2012 Rock &  Dance 1 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314972.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 международный фестиваль Авторадио Дискотека 80-х «Rock&Dance» 2012. . В этом году «Дискотека 80-х» под слоганом «Rock&Dance» собрала вместе на одной сцене самых ярких звезд диско и главных героев рока 80-х: Zodiac, Gorky Park, Chris Norman, Вячеслав Бутусов и группа «Ю-Питер», Black, Константин Никольский.Жанр: МузыкаРежиссер: АвторадиоАктеры: Zodiac,Gorky Park,Silent Circle,Bad Boys Blue,Вячеслав Бутусов,C.C.Catch,Chris Norman,Boney MПеревод: ОтсутствуетПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582574   (314869) от 01.12.2012
-
-Сборник клипов - VA - Various Music part. 37 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~07:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBE23CB8B673DE6DADE675B2798432DB2466215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582457   (314866) от 01.12.2012
-
-Дорога без возврата (2012) SATRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сцены фильма-мюзикла "Дорога без возврата", снятого группой "ESSE" на основе сценической постановки рок-оперы по мотивам Саги A. Сапковского "Ведьмак"
- Фильм-мюзикл «Дорога без возврата» - это мюзикл о любви и предательстве, жажде власти и стремлении к жизни, ценности свободы, и необходимости борьбы за неё . За 120 минут мы постарались рассказать зрителям о войне и жестокости, о любви и преданности, о героике и мистике, о вневременных ценностях и презрении их. Этот фильм рассчитан на широкую аудиторию, его могут смотреть — и любители рок-музыки, фэнтези, и просто интересующиеся новым в музыке и рок-опере.
-
-Информация о фильме-мюзикле "Дорога без возврата" авторах мюзикла и исполнителях ролей, группе ESSE и рок-опере по мотивам саги "Ведьмак" ждет Вас на официальном сайте группы "ESSE" http://esse-online.com
- Подробнее о фильме-мюзикле
-http://esse-online.com/tag/film-myuzikl-doroga-bez-vozvrata/1."Пророчество Итлины"
-2."Ласточка"
-3."Эсси"
-4."Геральт"
-5."Шаэрраведд"
-6."Йеннифэр"
-7."Башня Чайки"
-8."Час презрения" Внимание! Видеоряд насыщен хроникой, эмоциональными кадрами и сценами, и видео не рекомендуется к просмотру эмоционально возбудимым людям и детям.
-9."Это зря"
-10."Единорог"(   Читать дальше...   )Жанр: МюзиклРежиссер: Евгений ПронинАктеры: Вячеслав Майер, Людмила Дымкова, Дарья Пронина, Юрий Скляр, Михаил Папченков, Мария Осадчая, Константин Ильин, Ольга Струкова, Олег ГончаровПеревод: Отсутствует (оригинал)Продолжительность: 14 серий по   00:05:00-00:15:00 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BB8392E9312D5D7D9CD463B4CCBA595BD35717
 ```
 
 https://mybot314.ru/tekegram_catalog/

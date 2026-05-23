@@ -1,3 +1,343 @@
+###  Публикация: 1274642   (792950) от 07.01.2019
+
+Шрифты - Creative Market - La Mona Kids / Cyrillic+Greek - 682077 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+La Mona Kids это довольно интересный шрифт, который относится к типу детской графики.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA46CFD61066E394338E46EDEC5046DEB88D2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274618   (792924) от 07.01.2019
+
+Шрифты - Creative Market - Biker Remastered font + graphics - 681973 [TTF, OTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обновленный шрифт Biker включает в себя символы кириллицы, цифры и другие основные символы. Также теперь он разделен на файлы шрифтов для теневого слоя. Грубые и чистые версии доступны. В качестве бонуса включена иллюстрация черепа с крыльями и лентой и иллюстрация медведя в векторном формате eps.Формат: TTF, OTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00769F552B5F375382C499E6025DFA2AAFBD6BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274425   (792923) от 07.01.2019
+
+Шрифты - Creative Market - Juxta Script | 7 fonts - 1969528 [OTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Juxta (сокращение от juxtaposition) составляет два совершенно разных стиля шрифта: моноширинный sans для программирования и монолинейный скрипт. Идеальная геометрия сетки и некоторые декоративные элементы, такие как перечеркнутые буквы, придают Juxta дух скандинавского минималистичного дизайна.
+Разработчик: Petr BushuevФормат: OTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FCFAF1E0191D757B1B1150C7A366EB4154E7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274621   (792922) от 07.01.2019
+
+Шрифты - Creative Market - Cookie Font - 954738 [TTF, OTF, EOT, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Cookie - один из первых шрифтов автора, тонкий и рукописный в верхнем и нижнем регистре. Похож на написание мелом или карандашом, с рваным краем, но в то же время это красиво. Кроме того, Cookie включает в себя не только латинские, но и кириллические символы и цифры, всего 184 символа. Шрифт тонкий, но вы можете сделать его средним или жирным.Формат: TTF, OTF, EOT, EPS, AI, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0906A530DBB4EAE788407D77ECD03633B633CE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274619   (792920) от 07.01.2019
+
+Шрифты - Creative Market - Blacktear Script | Roman&Cyrillic - 959441 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Blacktear харизматичный рукописный шрифт с современным креативным штрихом, простой и удобный для создания потрясающих надписей. Blacktear поставляется с прописными и строчными буквами, пунктуацией, цифрами, особыми европейскими иероглифами, кириллическими символами и дополнительными символами.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179544B88AD6E62C162D4DD333268E6F03CFF1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386963   (792510) от 31.05.2020
+
+Растровый клипарт - Небольшая подборка клипарта [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Небольшая подборка клипарта сетка, молнии, шестеренки и т.дФормат: TIFРазрешение файлов: 624x3626-22481x336
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06EF400BF5280625A4CBE1BFB7E6B7B5D8A5526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386965   (792479) от 31.05.2020
+
+Растровый клипарт - Наклейки для авто и мото [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наклейки для авто и мото 333шт.Формат: TIFРазрешение файлов: 7008x1336-15120x6048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749F7755980756DF953FCE48B48A81683EA06D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386971   (792474) от 31.05.2020
+
+Растровый клипарт - Наклейки для авто и мото №2 [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наклейки для авто и мото 484шт.Формат: TIFРазрешение файлов: 3480x1160-4830x360
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A7D90C5F3B16FD70D1DC58BDFF23FB636F2C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387062   (792462) от 31.05.2020
+
+3D модели - Hum3D - Toyota ToyoAce Flatbed 2006 [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ToyotaФормат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8124D3B0158BCB2C8C7044365ED95AF81B31AE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386973   (792433) от 31.05.2020
+
+Текстуры - Текстуры кожи змеи [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Текстуры кожи змеиФормат: TIFРазрешение файлов: 4500x1620
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89B4D2560BEE56611A52D73E1B675205C3EE7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387057   (792395) от 31.05.2020
+
+3D модели - Hum3D - VAZ Lada 2103 1972 [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ВАЗФормат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5259999394CEE7B2C987CAA0EBDD70840CF61B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387072   (792385) от 31.05.2020
+
+3D модели - Hum3D - Toyota Hiace Passenger Van 1967 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D536650BDB327495449D52E161727F349CDF7BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387056   (792383) от 31.05.2020
+
+NNM-Club Sound Cleaner's - Cleared Soundtracks - Vol.05 [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных треков очищенных от "голосовых вставок" ("watermark").
+Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF3795363808B7BD86E52AF20210EBA45A3385E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387059   (792382) от 31.05.2020
 
 3D модели - Hum3D - VAZ Lada 21099 1990 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
@@ -6,7 +346,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,348 +671,6 @@ Hi-res 3D nuts или камни с надписями (3000x3000, но разм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:847177AC498DDD500ABA319B8269390C291EAE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510153   (791964) от 15.11.2021
-
-Векторный клипарт - valentines day vector card red hearts [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-День святого Валентина
-16 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B0F3E6A795DBBA89D1C98FE1220C68AC45C242C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510074   (791956) от 15.11.2021
-
-Растровый клипарт - Creative Fabrica - Watercolor Winter House Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный Зимний Домик, Елка, Рождественский Пейзаж. Качественный акварельный клипарт ручной работы с разными зимними домиками, соснами и рождественским декором. Этот сборник идеально подходит для приглашений на рождественскую вечеринку, туристических буклетов, сублимационных дизайнов, дизайна календаря, стикеров-планировщиков, блогов, логотипов, кружек, футболок, (   Читать дальше...   )Формат: PNGРазрешение файлов: 1330x2273-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306F83DFDB8D3A709612565F9FFEC6C235C75086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510209   (791954) от 15.11.2021
-
-Векторный клипарт - Fotolia - Set seamless pattern based on traditional Asian elements [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фоны
-25 EPS+ previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCAE012F097E74BCCC57002DDF7FE0AA0AB0046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510080   (791924) от 15.11.2021
-
-Сборник - Cute Animals & Patterns Big Bundle - 183 Premium Graphics [PNG, JPG, EPS, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник детского клипарта.Формат: PNG, JPG, EPS, SVGРазрешение файлов: 800x800-6668x6667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4513F73C2191362FA700ABB29213F18C0922364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510202   (791920) от 15.11.2021
-
-Текстуры - Wooden Vector Textures [JPG, AI]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры дерева для ваших проектов.Формат: JPG, AIРазрешение файлов: 3333x3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3287DD480DD39185133ADF11A17EC5C14E1584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510079   (791919) от 15.11.2021
-
-Шаблоны - Creative Market - Fold& Flyer Brochure Bundle - 5480573 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чистый, современный, минималистичный и креативный набор шаблонов брошюры с международным форматом для печати A4 и квадратным форматом 8x8 для печати. Этот замечательный набор дает вам множество возможностей для творчества. Легко работать, редактировать капли изображения в форме. Простой в использовании для Adobe Photoshop все учебные пособия, доступные в формате (   Читать дальше...   )Формат: PSDРазрешение файлов: 2597x3625-3625x2597
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1218F6D05435433BBA9F2B6C72BD4170EE8180FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510081   (791917) от 15.11.2021
-
-Шаблоны - Creative Market - Jewelry Wrapping Tissue Paper Mockup - 2142965 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон салфетки для шкатулок и сумок - многослойные редактируемые psd, подготовленные для демонстрации вашего индивидуального дизайна путем редактирования смарт-объектов и цветовых слоев.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32DC9EC0186E415858E110464DCB7627F164F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510077   (791913) от 15.11.2021
-
-Оверлеи - 295 Photo Overlays Bundle [PNG, JPG, ATN]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы найдете множество профессионально созданных наложений для фотографий. Все они отличаются высоким качеством и детализацией (минимальное разрешение 4500x3000px). Эти наложения для фотографий могут помочь вам добавить волшебства к вашим изображениям, если вы графический дизайнер, фотограф, блогер, создатель контента или иллюстратор.Формат: PNG, JPG, ATNРазрешение файлов: 749x714-5100x3450
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F864A42C571F63CF31C73E3A58CEBBB4CEA83FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510078   (791911) от 15.11.2021
-
-Текстуры - Creative Market - 240+ Gold Background Texture Pack - 2136017 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gold Box - Gold Only Version - это огромная коллекция роскошных золотых текстур, покрытых мягкими отблесками света, в которой представлены как настоящие фотографии с золотой фольгой, так и цифровые творения. Этот пакет включает в себя 12 самых продаваемых золотых текстур, которые были проданы тысячи раз, а также 230 совершенно новых, созданных с использованием тех (   Читать дальше...   )Формат: JPGРазрешение файлов: 3600x3600-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1D68C3516FA885F2CEFA5F5BDACA54116DC948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510151   (791884) от 15.11.2021
-
-Шаблоны - Creative Market - Noissue Food Safe Paper Mockup Set - 6362578 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональные и простые в использовании макеты упаковки для фотошопа и высококачественными продуктами Noissue.Формат: PSDРазрешение файлов: 4500x6000-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FA2206E5A2EA01864815EE1CF511E4F6F0F8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510214   (791878) от 15.11.2021
-
-3D модели - Unreal Engine - Modular Sci-Fi Interior [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modular Sci-Fi Interior разработан для создания атмосферы класса AAA. Из 68 компонентов можно легко построить любые коридоры и комнаты космического корабля, лаборатории, инженерные сооружения и другие футуристические помещения. Все модульные части правильно масштабированы и совместимы друг с другом. Настраиваемые материалы позволяют разнообразить сцену. Пак идеален (   Читать дальше...   )Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6C3469F44826DB58A22AFFEB851F155BE690D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510082   (791873) от 15.11.2021
-
-3D print - Gambody - Vulcan Tank 3D Printing Model | Assembly [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модель 3D-печати Vulcan Tank поставляется в 5 версиях для каждого типа 3D-принтера (FFF / FDM, DLP / SLA и SLS).Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5E14B3E761A99712EB277D4F3113B720A506C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387334   (791758) от 01.06.2020
-
-Футажи - VideoHive - Raindrops on Window - 24069714 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Raindrops on Window - здесь показаны капли дождя с огнями города на заднем плане, стекающие по оконному стеклу, снятые камерой с замедленной съемкой. Вы можете использовать этот материал в качестве фона для своих титров, логотипов или фотографий.Формат: MOVРазрешение файлов: 4K (4190x2160)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92E5BAFC4DE935B2F4DF41C142332A24640BFFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

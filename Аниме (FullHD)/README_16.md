@@ -1,3 +1,55 @@
+###  Публикация: 1505132   (806153) от 26.10.2021
+
+Highlander: The Search for Vengeance | Горец: В поисках мести [2007, Movie] BDRip 1032p 10-bit eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Колин Маклауд, бессмертный шотландский горец, путешествует вместе с призраком-остряком Амерганом в поисках бессмертного тирана Маркуса Октавиуса, который несколько столетий назад на плоскогорьях Шотландии убил возлюбленную Колина. Нью-Йорк, когда-то великий город, теперь погружён под воду, и над поверхностью моря возвышается лишь одна высокая крепость, крепость Маркуса (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: приключения, фантастикаРежиссер: Кавадзири ЁсиакиПеревод: DuskerЯзык озвучки: английскийСубтитры: русскиеПродолжительность: 87 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62ECD1D3E8808C697CBF121E54EADB1B1C3070D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371013   (804164) от 19.05.2020
+
+High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] BDRip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются в 1991 году, когда 2D-файтинги пользовались широкой популярностью среди молодежи. Главный герой – Харуо Ягучи, ученик шестого класса, чья жизнь сосредоточена только на видеоиграх. Он ничем не привлекательный парень, вовсе не обладающий чувством юмора, не имеющий друзей среди сверстников. Единственное, что получается у него лучше всего – убивать (   Читать дальше...   )Производство: J.C.StaffЖанр: комедия, романтикаРежиссер: Ямакава ЁсикиПеревод: AnimeJoyЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 9 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055337DEEF3041392462CDB5F63573F9C7A1FFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010091   (803841) от 24.04.2016
 
 Otaku no Video / Фильм об отаку 1982 и 1985 [1991, OVA, 2 из 2] BDRip 1080p raw
@@ -6,7 +58,7 @@ Otaku no Video / Фильм об отаку 1982 и 1985 [1991, OVA, 2 из 2] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tytania | Титания [2008, TV, 26 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ Shounen Maid / Парень-горничная [2016, TV, 12 + SP] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Uchuu Senkan Yamato 2199: Hoshi-Meguru Hakobune | Odyssey of the Celestial Ark |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Heroman | Хиромен [2010, TV, 26 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Charlotte | Шарлотта [2015, TV, 14 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ Gintama. / Гинтама [ТВ-5] [2017, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Hi Score Girl | High Score Girl | Девчонка не промах [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Onigiri | Онигири [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Koukaku no Pandora: Ghost Urn | Pandora in the Crimson Shell: Ghost Urn | Дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Monster Strike / Монстр Страйк [2015, TV, 51 + 2 SP] WEBRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Yuyushiki: Komarasetari, Komarasaretari / Формула жизни OVA [2017, O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Деп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ Kiitarou Shounen no Youkai Enikki | Kiitaro's Yokai Picture Diary | Дневни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +609,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +635,7 @@ Bosco Daibouken | Bosco Adventure | Приключения Боско [1986, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +661,7 @@ Harmony | Гармония [2015, MV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,58 +672,6 @@ Harmony | Гармония [2015, MV] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:636F423D88F4A3A083B60D93C9FE80B7938E14C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172904   (795531) от 21.01.2018
-
-Eromanga Sensei | Эроманга-сэнсэй [2017, TV, 12 эп.] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Масамунэ Изуми оказался в весьма непростой ситуации. Ему всего 15 лет, а на него уже свалилось столько жизненных тягот: нужно ходить в школу, делать уроки, содержать дом, да ещё и ухаживать за своей младшей сестрой Сагири Изуми. И всё это без помощи родителей! Проблема в том, что Масамунэ не видел лица своей сестры с того самого момента, как она переехала (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: комедия, романтикаРежиссер: Такэсита РёхэйПеревод: AOSЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B8203AAA35A85BBE56791398E1704CF136D11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174687   (795465) от 21.01.2018
-
-Tsugumomo | Цугумомо [ТВ-1] [2017, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795465.jpg" />
-</div>
-
-
-###  Подробнее
-
-В японских легендах существует множество различных духов. Один из них цукумогами - это вещь, которая обрела душу. Когда мама Казуи Кагами подарила ему пояс для кимоно с вышивкой в виде сакуры, он и думать не мог, что эта вещь когда-нибудь оживёт. А пояс взял и превратился в голубоволосую девушку по имени Кириха. И, как нельзя, кстати, ведь на Казую в тот момент напал (   Читать дальше...   )Производство: студия Zero-G / ゼロジーЖанр: комедия, романтика, мистика, эттиРежиссер: Курая РёитиПеревод: AOSЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D0FEDA383CE3DFC37C2F2CC1E8C7743732A87E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 871912   (873473) от 25.02.2015
+
+Shin Gekijouban Initial D / New Initial D / Новый Инициал Ди [2014, MV, 1 из 3 ep] BDRip 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уличные гонщики RedSuns вызывают на дружественную гонку местную команду г. Акина SpeedStars. Увидев способности RedSuns, гонщики SpeedStars задумались о том, как быть не униженными на домашней трассе. SpeedStars попали в безвыходное положение, когда их гонщик попал в аварию во время тренировки. Икэтани услышал от своего оффисного менеджера о том, что быстрейшей на спуске Акины является AE86 владельца магазина тофу. Также он узнал, что владелец магазина, Фудзивара Бунта, был уличным гонщиком с великой репутацией (   Читать дальше...   )Жанр: спортРежиссер: Хидака МасамицуПеревод: SibVic & mutagenbФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7FA6CF8199C87A2DB606511A24ED447AF06091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 672281   (865974) от 01.03.2015
 
 Kokoro Connect / Единение сердец [2014, TV, 12 ep + 4 sp] BDRip Hi10p 720p Raw+Rus
@@ -6,7 +32,7 @@ Kokoro Connect / Единение сердец [2014, TV, 12 ep + 4 sp] BDRip Hi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Code Geass Hangyaku no Lelouch R2 / Code Geass: Lelouch of the Rebellion R2 / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +86,7 @@ Kono Subarashii Sekai ni Shukufuku wo! / Этот замечательный м�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +112,7 @@ Divine Gate / Божественные врата [2016, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +139,7 @@ GATE / Gate: Jieitai Kanochi nite, Kaku Tatakaeri / Врата: Там бьют�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +165,7 @@ Boku dake ga Inai Machi / Erased / Город, в котором меня нет
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +191,7 @@ Lupin Sansei: Cagliostro no Shiro / Lupin III: The Castle of Cagliostro / Люп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +217,7 @@ Aoi Bungaku Series / Blue Literature Series / Классические исто�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +243,7 @@ Durarara!!x2 Ketsu / Дюрарара!! 2 (сезон третий) [2016, TV, 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +269,7 @@ Gintama / Гинтама [ТВ-4] [2015, TV, 1-51 из 51 эп.] HDTV 720p raw+r
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +295,7 @@ Haikyuu!! Second Season / Волейбол!! [ТВ-2] [2015, TV, 25 ep] HDTV 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +322,7 @@ Kami-sama Hajimemashita / Kamisama Hajimemashita / Очень приятно, Б
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +348,7 @@ Miss Monochrome 3 / Мисс Монохром 3 [2015, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +374,7 @@ Heavy Object / Тяжёлый объект [2015, TV, 24 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +400,7 @@ Full Metal Panic? Fumoffu | Full Metal Panic Fumoffu | Fullmetal Panic Fumoffu |
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -400,7 +426,7 @@ Full Metal Panic! The Second Raid | Full Metal Panic! Owaru Day By Day | Ста�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -426,7 +452,7 @@ Full Metal Panic! | Стальная тревога! [2002, TV, 24 эп.] BDrip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -452,7 +478,7 @@ Hai to Gensou no Grimga / Гримгал пепла и иллюзий [2016, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -479,7 +505,7 @@ Fairy Tail Zero / Фейри Тейл Зеро [2016, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -505,7 +531,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -531,7 +557,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -611,7 +637,7 @@ Kono Subarashii Sekai ni Shukufuku o! / Этот замечательный ми
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -638,7 +664,7 @@ K / K Project / Проект Кей [2012, TV, 13] BD-Rip 720p Hi10p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -649,32 +675,6 @@ K / K Project / Проект Кей [2012, TV, 13] BD-Rip 720p Hi10p Raw+Rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B8A885CB12225CB760009AB271EEC9491CEF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664639   (816274) от 29.03.2015
-
-Sukitte Ii na yo. / Say "I Love You" / Скажи: «Я люблю тебя» [2012, TV, 13 ep] BDRip Hi10p 720p Raw+Rus x4(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за обычной детской жестокости Мэй Татибана решила, что дружбы не существует, и любое сближение обернется лишь болью и предательством. Так неглупая и симпатичная девушка дожила до 16 лет, заработав в старшей школе вполне объяснимую репутацию одиночки и нелюдимой молчуньи. Конечно же, подобная аура необычности и отстраненности привлекла внимание «школьного принца» Ямато Куросавы. Куросава, парень честный, искренний и малость утомленный навязчивым вниманием знакомых девиц, сам стал искать встречи с Мэй – и добился (   Читать дальше...   )Жанр: романтика, школа, сёдзёРежиссер: Сато ТакуяФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B937D204E9C6ED423C75ED8D5D36B40BCC2C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1841256   (1047880) от 10.12.2025
+
+Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Человек-бензопила. Фильм: История Резе [2025, Movie] WEB-DL 2160p HEVC 10-bit HDR raw+rus
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дэндзи, который уже некоторое время работает в Бюро общественной безопасности, целыми днями только и думает о том, как стать ближе к Макиме — не только его начальнице, но и объекту его воздыханий. Дэндзи уверен в искренности своих чувств и даже не допускает мысли, что кто-то может затмить красоту и очарование его возлюбленной. По крайней мере, он так думал, пока (   Читать дальше...   )Производство: студия MAPPAЖанр: приключенияРежиссер: Фудзимото ТацукиПеревод: Архив Субтитров (Donate & Тэнши) + МАНИПУЛЯТОР (Пельмеш & Pinger)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8F33DFD5355EB7A1D9B00E9091DD16E874FF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841121   (1047839) от 09.12.2025
+
+Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Человек-бензопила. Фильм: История Резе [2025, Movie] WEBRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дэндзи, который уже некоторое время работает в Бюро общественной безопасности, целыми днями только и думает о том, как стать ближе к Макиме — не только его начальнице, но и объекту его воздыханий. Дэндзи уверен в искренности своих чувств и даже не допускает мысли, что кто-то может затмить красоту и очарование его возлюбленной. По крайней мере, он так думал, пока (   Читать дальше...   )Производство: Япония, студия MappaЖанр: экшен, приключенияРежиссер: Тацуя ЁсихараПеревод: iTunes (Екатерина Левина)Язык озвучки: Английский, ЯпонскийСубтитры: Английские, Русские (srt)Продолжительность: 100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F140FF842D9B102DD278DA552A7F244C0D19A481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840183   (1047154) от 04.12.2025
+
+Medalist | Медалистка [2025, TV, 13 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Taнцы нa льдy — coвceм нe тo, к чeмy cтpeмилcя Цyкaca Aкэypaджи, кoгдa peшил пoкopить миp фигypнoгo кaтaния. Oднaкo имeннo здecь oн и oкaзaлcя, пocкoлькy «нaчaл cлишкoм пoзднo», чтoбы cтaть ycпeшным oдинoчникoм. Пятиклaccницa Инopи Юицyкa тaк oтчaяннo xoтeлa кaтaтьcя нa кoнькax, чтo тaйнo тpeниpoвaлacь нa кaткe, кyдa Цyкaca пpишёл ycтpaивaтьcя пoмoщникoм тpeнepa. (   Читать дальше...   )Производство: Студия EngiЖанр: спортРежиссер: Ямамото ЯсутакаПеревод: Архив Субтитров (Donate, Тэнши)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по ~23 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509360B9D2EFD4574847A7A94B3A4C752AC69E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587162   (1046410) от 01.01.2023
+
+Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex | Дочь моей мачехи - моя бывшая девушка [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мизуто Иридо и Юме Аяи были парой в средней школе, поначалу всё шло хорошо, но чем дальше, тем отношения становились хуже, и к моменту окончания средней школы они расстались. Но за день до поступления в старшую школу они вновь встретились самым неожиданным образом: их родители объявляют о браке, а Мизуто и Юме становятся сводными братом и сестрой. Ставя чувства и (   Читать дальше...   )Производство: студия Project No.9Жанр: комедия, романтика, повседневностьРежиссер: Янаги СинсукэПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3645F224A0FFBAF8E8E9583F97EC7E738ABC131D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576441   (1046390) от 01.01.2023
 
 Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь девушки-карателя [2022, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +110,7 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Eiga Go-Toubun no Hanayome | Пять невест (фильм) [2022, Movie] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Gekijouban Isekai Quartet: Another World | Isekai Quartet the Movie: Another Wor
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Bokura wa Minna Kawaisou | The Kawai Complex Guide to Manors and Hostel Behavior
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Hatena Illusion | Иллюзия Хатэны [2020, TV, 12 эп.] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Soredemo Ayumu wa Yosetekuru | When Will Ayumu Make His Move? | Аюму всё 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Strike the Blood Final | Удар крови OVA-5 [2022, OVA, 4 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Itou Junji: Maniac | Junji Ito Maniac: Japanese Tales of the Macabre | Дзюн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Gekijouban Karakai Jouzu no Takagi-san | Озорная Такаги (фильм
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Ginga Tetsudou 999 / Ginga Tetsudo 999 / Galaxy Express 999 / Галактиче
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Uchuu Kaizoku Captain Harlock / Space Pirate Captain Harlock / Космичес�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | League of Nations Air Fo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Lupin Zero | Люпин Зеро [2022, Web, 6 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Lapis Re:LiGHTs | Лазурные огни [2020, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Houkago Teibou Nisshi | Diary of Our Days at the Breakwater | Рыбалка д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Hachi-nantte, Sore wa Nai Deshou! | The 8th Son? Are You Kidding Me? | Вось�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai / Love Live! Nijigasaki High 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Enen no Shouboutai: Ni no Shou | Fire Force (TV-2) | Пламенная бриг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,110 +669,6 @@ Enen no Shouboutai: Ni no Shou | Fire Force (TV-2) | Пламенная бриг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB029017CDB78B5B55ED3E18E4E3843B89DBCC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610645   (1042110) от 08.02.2023
-
-Eikoku Koi Monogatari Emma | Emma: A Victorian Romance | Эмма: Викторианская романтика [2005, TV, 24 эп.] BDRip 1078p HEVC raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уильям Джонс – отпрыск богатого, хоть и незнатного семейства – решает навестить свою старую гувернантку. И, несмотря на то, что строгая старая дама и поныне внушает «мастеру» Уильяму священный трепет, его визит оказывается не вовсе неприятным: воображение молодого мистера Джонса неожиданно пленяет горничная по имени Эмма! Это тихая, скромная и отменно благовоспитанная (   Читать дальше...   )Производство: Студия Studio Pierrot / studioぴえろЖанр: романтика, повседневностьРежиссер: Кобаяси ЦунэоПеревод: Nodanoshi (1 сезон); dronlit (2 сезон)Язык озвучки: Японский и английскийСубтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93613ACC58FAC26A17F48F5A44FEE256E9BCDDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369471   (1042000) от 05.01.2021
-
-Jeremy no Ki | Jeremy's Trees | Дерево Джереми [1983, Movie] VHSRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождественская сказка о птице, которую вырастило дерево. Затем дерево было срублено, чтобы люди в городе могли использовать его для празднования Рождества. Птица отчаянно пытается найти свою приемную мать-дерево с помощью Джереми, сироты без гроша, который услышал ее историю, и пошел искать дерево в городе... © World_HoupПроизводство: Toei Central FilmЖанр: драма, фэнтезиРежиссер: Маэда ЦунэоПеревод: Аццкий Критег & World_HoupЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 21 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCB1ECE594166CB78651A0C306100BA49073A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437552   (1041989) от 05.01.2021
-
-Gokujou Seitokai | Best Student Council | Лучший студсовет [2005, TV, 26] DVDRip 576p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранду Рино потеряла мать год назад и с тех пор живет одна. Теперь ее сбережения заканчиваются, и ей приходится полагаться на своего друга по переписке, мистера Поппитта. Ее приятель по переписке предлагает устроить Рино в новую школу и новую квартиру, но когда она приезжает, все кажется немного странным. Что за средняя школа имеет в школьном совете штурмовые и секретные (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: комедия, повседневностьРежиссер: Ивасаки ЁсиакиПеревод: x4121tЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B86534305DACB5DEF908CE4B9C8024BD68BF95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435776   (1041983) от 05.01.2021
-
-Santa Claus Tsukamaeta! | Я поймал Санта Клауса! [1989, OVA, 1 эп.] VHSRip 360p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041983.jpg" />
-</div>
-
-
-###  Подробнее
-
-В преддверии Рождества компания ребятишек разговаривает о Санта Клаусе, и самый мелкий из них (детский сад, наверно), решает доказать своим друзьям его существование. После празднования перед сном малыш просит маму почитать книжку про Санту и выведывает у нее, что он любит или чего не любит. У парня целый план по поимке Санты: он и кофе попил, чтобы не заснуть, и (   Читать дальше...   )Производство: студия Takahashi Studio / タカハシスタジオЖанр: сказка, комедияРежиссер: Ито ЮйтиПеревод: World_Houp & Аццкий КритегЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35986DFE024F06F299A7CE4722DF0B662FC0F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

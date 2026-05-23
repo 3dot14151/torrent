@@ -1,3 +1,116 @@
+###  Публикация: 435845   (982061) от 13.01.2012
+
+VA - 50 Самых сексуальных музыкальных видео всех времен - 2 Часть (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: VariousПродолжительность: ~01:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366AE2F7306707E3437B9757383E9625C2DDEC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613445   (981342) от 05.02.2013
+
+Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192E56324315FEA2F6D16F20646295D40BFC079B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613426   (981297) от 05.02.2013
+
+Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8336C235BB66D421489CBD1E7DF463A872F79CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613051   (981079) от 05.02.2013
+
+Stars Of The 90'S (2004-2006) [H.264] DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Vol.1:
+
+01. HADDAWAY - What Is Love
+ 02. DR ALBAN - It's My life
+ 03 SNAP! - Rhythm Is A Dancer
+ 04.CULTURE BEAT - Mr. Vain
+ 05.JOHN SCATMAN - Scatman
+ 06. EIFFEL 65 - Blue (Da Ba Dee)
+ 07. NO MERCY - Where Do You Go
+ 08. LA BOUCHE - Be My Lover(   Читать дальше...   )Жанр: Музыка - EurodanceПродолжительность: vol.1: 01:33:13,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31F8F0128B780423D3482ABA4B25A37BC593166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612926   (981023) от 05.02.2013
 
 Овечка Долли / Holly Dolly clips (2009) DVDRip
@@ -6,7 +119,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +198,7 @@ Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +224,7 @@ Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +251,7 @@ Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +309,7 @@ VA - Зимний марафон № 218: Зимняя волна новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -225,7 +338,7 @@ U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -253,7 +366,7 @@ Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <De
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -282,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -317,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +459,7 @@ Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +485,7 @@ Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +511,7 @@ Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +537,7 @@ BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +563,7 @@ Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +589,7 @@ DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +667,7 @@ Romantic Collection (Hits 1983-2001)TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -593,122 +706,6 @@ Romantic Collection (Hits 1980-2011) SDЖанр: variousПродолжитель
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:169CC4FD915F68677DEA1A102DF3CC2C3F9AE4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975752   (970575) от 16.01.2016
-
-VA - Зимний марафон № 219: Самые сливки Нового года (2015-2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (15.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Adriana - Just stay (Official Video) (00:03:03)
-02. Arash - Ba Man Soot Bezan (Official Video) (00:03:54)
-03. Barbee - Stranger (Official Video) (00:03:22)
-04. Catey Shaw - The Ransom (Official Video) (00:03:56)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Trance, Indie, PunkПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A7ACD558D137A28D2B2CB5BFC4644DAF5EF3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357933   (969634) от 07.02.2020
-
-Babooshka (Александр Константинов) - 7 Music Videos (2019-2020) [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969634.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Babooshka 2018 Материнский капитал
-002 Babooshka 2019 Детей надо чикать!
-003 Babooshka 2019 Надо больше церквей!
-004 Babooshka 2019 Отмороженные во Христе(   Читать дальше...   )Производство: GARDEGROB studioЖанр: православное дискоПродолжительность: 00:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10FE7B6CC230E368A7E5F89DDAD3D77097C0C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357808   (969633) от 07.02.2020
-
-Мы не оставим города свои! Песни донбасской войны - Video Release (42 Music Videos) (2017) WEB-DL [H.264/480p/720p/1080p]-LQ
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969633.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-Video Release (21 Music Videos) 01:20:37
-
-01 Александр Ф. Скляр - Миллионы (Когда война на пороге)
-02 Зверобой - Едут-едут БТРы(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopАктеры: VariousПродолжительность: 02:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBC14981F32EC491D4D1CCA5D30E5CDBD5D2E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358393   (969394) от 07.02.2020
-
-Сборник клипов - Rock & Pop Ballads от ALEXnROCK часть 1 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Именно с этого сборника клипов всё и началось 9 лет назад. Я собирал его для девушки, которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему найдет в нем частицу себя. Со временем доработал обложку, улучшил качество клипов и немного поправил треклист, но энергетика и посыл остались те же. Это 1я часть.00. Rock & Pop Ballads 1 — Intro
-01. Bryan Adams — Please Forgive Me
-02. Mr. Big — Wild World
-03. Рондо — Я буду помнить(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6971B75E0D794500BEDAC21423048A47012E770
 ```
 
 https://mybot314.ru/tekegram_catalog/

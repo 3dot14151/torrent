@@ -1,3 +1,108 @@
+###  Публикация: 1503082   (802393) от 28.10.2021
+
+Наемник / Il mercenario (1968) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пако Роман, мексиканский крестьянин, восстаёт против местного богача и прелюдно оскорбляет его. Толстосум в отместку нанимает людей, чтобы убить Пако, но друзья спасают крестьянина. Тем временем в деревушку приезжает наёмный убийца поляк Сергей Ковальски, который должен организовать перевозку серебра…Производство: Италия, Испания, США / Produzioni Associate Delphos, Produzioni Europee Associati (PEA), Profilms 21Жанр: Комедия, ВестернРежиссер: Серджио КорбуччиАктеры: Франко Неро, Тони Мусанте, Франко Джакобини, Эдуардо Фахардо, Франко Рессель, Альваро де Луна, Раф Бальдассарре, Джо Камел, Уго Адинолфи, Джек Пэланс, Джованна РаллиПеревод: Многоголосый профессиональный, Петербург 5-й каналСубтитры: АнглийскиеПродолжительность: 01:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B25F816E13CD428A571E218A53149026C8A7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499783   (802297) от 28.10.2021
+
+Женщина и паяц / La femme et le pantin (1958) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Богатый пожилой донжуан дон Маттео безуспешно добивается взаимности от капризной молодой танцовщицы Евы, которая то привлекает его к себе, то ускользает, оставляя в дураках, а вернувшись, всегда находит объяснение внезапному бегству и вновь очаровывает жаждущего обманываться мужчину.
+Ведь кавалеры падают к её ногам как куклы. Лишь от её решения зависит, с кем она (   Читать дальше...   )Производство: Франция, Италия / Dear Film Produzione, Gray-Film, Progéfi, Société Nouvelle Pathé CinémaЖанр: ДрамаРежиссер: Жюльен ДювивьеАктеры: Брижит Бардо, Антонио Вилар, Лиля Кедрова, Даниэль Ивернель, Дарио Морено, Мишель Ру, Жак Моклер, Джесс Хан, Эспанита Кортес, Клод ГодарПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8E58A13B703721966278852BAC3696491F3FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505933   (801575) от 29.10.2021
+
+Нищий студент / Der Bettelstudent (1936) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Польша. В 1704 году в занятом саксонцами Кракове введены новые порядки и комендантский час. Но ясный, жизнерадостный город нельзя победить. Всюду звенит музыка, люди танцуют и веселятся, не признавая новый режим. Среди этого небезопасного веселья встречаются нищий студент Симон, который на самом деле является герцогом Польши и польская графиня Бронислава. Молодые (   Читать дальше...   )Производство: Германия, Döring-Film Werke GmbH (I), UFAЖанр: мюзиклРежиссер: Георг ЯкобиАктеры: Фриц Камперс, Гарри Хардт, Ида Вюст, Карола Хён, Марика Рёкк, Бертольд Эббеке, Иоханнес Хестерс, Эрнст Бимер, Ханс Хоаким Шауфуб, Вильгельм БендовПеревод: дублированный (советский дубляж 1949 года)Субтитры: русские (тексты песен), немецкиеПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286F86D8D2140480A0C8317BEA251759213C165E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503116   (801456) от 29.10.2021
+
+Вотрен / Vautrin (1943) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романов Оноре де Бальзака "Утраченные иллюзии" и "Блеск и нищета куртизанок". Каторжник Вотрен после побега направляется в Париж и выдаёт себя за аббата Карлоса Эррера. Он встречает молодого человека Люсьена Шардона, спасает его от самоубийства и предлагает ему свою помощь в обмен на слепое повиновение. Под руководством Вотрена Люсьен (   Читать дальше...   )Производство: Франция, Société Nouvelle des Établissements Gaumont (SNEG)Жанр: драмаРежиссер: Пьер БийонАктеры: Мишель Симон, Мадлен Солонь, Renée Albouy, Марсель Андре, Люсьенн Богерт Жизель Казадезю Жорж Колин, Нан Жермон, Пьер Лабри, Мишель ЛахэйПеревод: любительский одноголосый (Виктор Рутилов)Субтитры: русские (на места без перевода, Full), французскиеПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27427B1F073B108B68B81D672E41B44494AC969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197941   (800952) от 16.01.2018
 
 С Новым годом! / La bonne annee (1973) HDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949679738789A5276E7C7DE19A1FE7C32EBD08DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413230   (797270) от 08.11.2021
-
-Удар головой / Coup de tete (1979) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа Перэн (Игрушка/Le Jouet) возвращается! На сей раз его играет Девэр, и он не журналист, а футболист, но в остальном это такая же история от Вебера (здесь он сценарист). Смешная до слез, и грустная до смеха.
-История Франсуа, который никому не нужен только потому, что место «нужного» уже занято. Талант и трудолюбие… ничего не значат! И все только потому, что (   Читать дальше...   )Производство: Франция / Gaumont, SFPЖанр: Комедия, драма, спортРежиссер: Жан-Жак АнноАктеры: Патрик Девэр, Френс Дуньяк, Дороти Джемма, Морис Барье, Робер Дальбан, Марио Давид, Юбер Дешам, Дора Долль, Франсуа Дирек, Жан БуизПеревод: Многоголосый профессиональныйСубтитры: нетПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79EE8373C136C213CFCE891EE0A358F3049B948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198661   (796893) от 19.01.2018
-
-Шестеро под одной крышей / With Six You Get Eggroll (1968) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796893.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Эбби Макклюр три сына, у старого друга ее покойного мужа Джейка Айверсона — взрослая дочь. Не совсем случайная встреча меняет привычный уклад жизни старых знакомых. Но оказывается, что у двух вполне самостоятельных людей могут возникнуть самые невероятные препятствия на пути к совместной жизни.Производство: США / Arwin Productions, Cinema Center FilmsЖанр: Драма, Мелодрама, Комедия, СемейныйРежиссер: Ховард МоррисАктеры: Дорис Дэй, Брайан Кит, Пэт Кэрролл, Барбара Херши, Джордж Карлин, Элис Гостли, Джон Финдлейтер, Элейн Деври, Херб Воланд, Джейми ФаррПеревод: Одноголосый закадровый (binjak)Субтитры: Русские, английскиеПродолжительность: 01:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22A5B408F56F7D8FB5F2F57214A0332A44F2A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198909   (796849) от 19.01.2018
-
-Гнездо шершней / Hornets’ Nest (1970) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диверсионная группа высажена за линией фронта, её задача взорвать стратегическую дамбу. Однако, группа попадает в засаду, и только её лидер выживает. Его подбирает группа молодых людей, которые заключают с ним сделку — что они помогут ему снести дамбу, если он поможет им отомстить немцам, захватившим их деревню и убившим их родителей.Производство: Италия, США / Produzioni Associate Delphos, Triangle ProductionsЖанр: Боевик, Драма, ВоенныйРежиссер: Фил Карлсон, Франко КириноАктеры: Рок Хадсон, Сильва Кошина, Серджо Фантони, Джакомо Росси Стюарт, Жак Серна, Марк Коллеано, Мауро Гравина, Джон Фордайс, Джузеппе Кассуто, Амедео Кастракане, Джанкарло КоломбайониПеревод: Двухголосый закадровый (НТВ+)Субтитры: АнглийскиеПродолжительность: 01:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52261F32448C9C2E99C851969621949271FF57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413829   (796715) от 09.11.2021
-
-Боксер и смерть / Boxer a smrt (1963) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая мировая война. Начальник лагеря смерти Вальтер Крафт, в прошлом боксер, желая развлечься, решает устроить боксерский матч. Своим противником он выбирает истощенного заключенного Яна Каминека, в прошлом тоже боксера. На тренировках гитлеровец жестоко избивает своего противника. Но постепенно Ян, получающий по указанию Крафта усиленный паек, набирает силы…Производство: Чехословакия / Studio Umeleckých Filmu PrahaЖанр: ДрамаРежиссер: Петер СоланАктеры: Штефан Квиетик, Манфред Круг, Валентина Тиелова, Юзеф Кондрат, Эдвин Мариан, Герхард Рахольд, Индржих Нарента, Эдмунд Огродзиньски, Жан Бобек, Ян КовацикПеревод: Одноголосый любительскийСубтитры: Русские, английскиеПродолжительность: 01:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE202644B27770EF7661D1E524E91F148BDCFB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

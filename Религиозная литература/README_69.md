@@ -1,3 +1,107 @@
+###  Публикация: 1245653   (467894) от 08.09.2018
+
+Сибирская Благозвонница (изд.) | Святая великомученица Ирина (2009) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Святая великомученица Ирина жила в те времена, когда подвергнуться гонениям и принять мученическую кончину можно было за одно только имя «христианин». Греческое слово μάρτυς, которым называли всех претерпевших мученическую смерть за веру Христову, означает «свидетель». Мученик свидетельствует собственной кровью о вере во Христа, распятого (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B71027E3E3E830E5B25C247A60C80FDA618860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245775   (467887) от 08.09.2018
+
+Благовест (изд.) | Преподобный Серафим Саровский (2011) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга «Преподобный Серафим Саровский» включает в себя жизнеописание святого, молитвы и акафист преподобному Серафиму, а также Серафимово правило. В нее вошли письменные наставления преподобного и его устные поучения; воспоминания современников, свидетельствовавших о благодатном влиянии сего угодника Божия и его благодатной помощи. Также сборник включает в себя подробную (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53979F0BABF8063D742E9BBF8DCCC3829FE18C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245843   (467788) от 08.09.2018
+
+Игумен N | «Не бойся, малое стадо!» Об искушениях современного мира (2011) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Почему мы иногда ведём себя так, что не узнаём себя? Как управлять своим поведением? Как защититься от псевдоблагодатных переживаний? Как выстроить правильную иерархию ценностей? Как распознать тактику демонов, влияющих на нашу душу? Как сохранить мирный дух среди неприятностей и искушений? Этим и многим другим проблемам посвящена предлагаемая читателю брошюра. Она (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C5AF29EF2A4E8899F449D1102AD3353D75E823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245950   (467667) от 08.09.2018
+
+Жан-Кристиан Птифис | Иисус. Жизнеописание Христа. От исторической реальности к священной тайне (2018) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Известный французский историк и биограф, лауреат многих литературных премий Жан-Кристиан Птифис предлагает интереснейшую книгу о земной жизни Иисуса и его смерти на кресте. Основываясь на новейших научных данных и авторитетных исторических материалах, автор доходчиво и увлекательно рассказывает о содержании проповедей Иисуса, о его странствиях и чудесах. Излагает (   Читать дальше...   )Жанр: История; РелигияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC94C2C2F1CBBC121A8AE4984EAF09566DA18C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940594   (466867) от 25.09.2015
 
 Даниловский благовестник  (изд.) | Православный Богослужебный сборник (2012) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,114 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F30A1AA9D605E4DEA4B0926F0A9531556344017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246658   (459235) от 12.09.2018
-
-Я. Ф. Трофимов | Современная христианская проповедь: сущность и тенденции [на материалах христианского сектантства в Казахстане)] (1986) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459235.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время в христианском сектантстве проповедь играет ведущую роль в формировании религиозных установок у верующих. Путем проповеднической деятельности служители культа стараются удержать верующих, укрепить позиции религии. На основе анализа конкретных проповедей в некоторых христианских общинах Казахстана автор, раскрывал их истинное содержание и механизм (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7170A4CEB2DE4B06CFEFFD7E041200F73D1A65D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246735   (459231) от 12.09.2018
-
-В. А. Потапчук | Искусство и религия: ценности подлинные и мнимые (1985) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каковы особенности отражения мира, сущности человеческой жизни в искусстве и религии? Чем отличается религиозное переживание от эстетического? На эти и некоторые другие вопросы соотношения искусства и религии автор дает ответ на основе анализа достижений советской литературы и искусства, данных социологических исследований, проведенных на территории республики.
- (   Читать дальше...   )Жанр: История, политология, религиоведение, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DBC56A4533F78D36ED4D8706535BCDA3F3E9A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246898   (459229) от 12.09.2018
-
-Благовест (изд.) | Молитвенное последование с каноном покаянным о грехе убийства чад во утробе (аборте) (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нет греха, как бы он ни был велик, побеждающего человеколюбие Божие, если мы раскаиваемся в нём. Никогда Бог не отвергает искреннего покаяния, но даже если бы кто дошёл до самой крайней порочности, а потом попросил прощения, и того Он принимает, и приближает к Себе, и делает всё, чтобы привести его в лучшее состояние. Если Он видит, что мы обратились к добродетели, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA4C6E7BDC712C608CB898A9E6B5B5681543D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321456   (458952) от 24.08.2019
-
-Д.С. Чунтонов (сост.) | О молитве (2017) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458952.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре «О молитве» представлены фрагменты творений святых угодников Божиих, подвижников благочестия, а также из древних патериков, посвящённые молитве.
-
-«Молитва есть важнейшее из всех дел человека христианина. Все прочие дела его малы и ничтожны, совершенно ничтожны по сравнению с делом и трудом молитвы».
-Святитель Лука (Войно-Ясенецкий)Жанр: ПравославиеФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D122ACF8400139DF6A668B9549C5C44F7941CB90
 ```
 
 https://mybot314.ru/tekegram_catalog/

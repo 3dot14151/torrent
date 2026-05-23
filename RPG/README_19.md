@@ -1,3 +1,81 @@
+###  Публикация: 1218243   (724757) от 08.04.2018
+
+Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События Tokyo Xanadu eX+ происходят в Токио, где обычный японский школьник Коу оказывается втянут в историю с потусторонними вратами, демонами и секретными организациями. Пытаясь спасти переведенную ученицу от группы хулиганов, Коу проваливается в неизвестное измерение, где открывает в себе талант бойца со злом. По мере развития сюжета вы все больше узнаете о мире (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom CorporationЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1A29F08624EA380440083B65AB1FD9BBABB2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136622   (724039) от 24.02.2019
+
+Kingdoms of Amalur: Reckoning (2012) [Ru] (1.0.0.2/dlc) Repack xatab
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Объединенные усилия лучшего автора New York Times Р. Э. Сальваторе, творца Спауна Тодда Макфарлейна и ведущего дизайнера Elder Scrolls IV: Oblivion Кена Ролстона воплотились в создании уникального мира новой ролевой игры Kingdoms of Amalur: Reckoning.Тип издания: RepackРазработчик: Big Huge Games, 38 StudiosЖанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C056A1F3BB6ED5B68B5E8B64168F689D341CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006696   (723431) от 05.06.2016
+
+Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каждый ваш выбор в Stories отправляет Reynardo в уникальную историю. От задорных и дерзких приключений до темных лавкрафтовских фантазмов — репертуар Stories столь же разнообразен, сколь динамична каждая из историй. Но роковые решения Reynardo не всегда будут даваться легко: иногда для обретения оружия, потерянного в начале времен, требуется пожертвовать жизнью старого (   Читать дальше...   )Тип издания: LicenseРазработчик: Spearhead GamesЖанр: RPG (Rogue, Action), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712C05B4D3DA6EE69BDB38C713BBD99BB356C195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237872   (722101) от 15.02.2022
 
 Ys: Memories of Celceta (2018) [Ru/Multi] (1.0.0.15) License GOG
@@ -6,7 +84,7 @@ Ys: Memories of Celceta (2018) [Ru/Multi] (1.0.0.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +138,7 @@ Stranger of Sword City (2016) [En/Ja] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +164,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) License CPY [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +190,7 @@ Masters of Anima (2018) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +216,7 @@ Anima Gate of Memories (2016) [En/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +242,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) Repack xatab [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +268,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +298,7 @@ Pharaonic (2016) [Ru/Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +324,7 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Ca
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +350,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +376,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +402,7 @@ BloodLust Shadowhunter (2015) [En] (1.028) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +428,7 @@ Kenshi (2018) [Ru/Multi] (1.0.17) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +454,7 @@ Monark (2022) [Multi] (1.00/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +480,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.3.5/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +506,7 @@ All Walls Must Fall - A Tech-Noir Tactics Game (2018) [En/Pt] (1.1.0649) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +532,7 @@ My Time At Portia (2018) [Ru/Multi] (2.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +558,7 @@ Ys VI: The Ark of Napishtim (2015) [En] (13.04.2018) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +584,7 @@ For The King (2017) [Ru/Multi] (1.0.7724) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +610,7 @@ For The King (2018) [Ru/Multi] (1.0.7724) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +636,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +662,7 @@ Fallout Tactics: Brotherhood of Steel [Ru] (L) 2001
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -595,85 +673,6 @@ Fallout Tactics: Brotherhood of Steel [Ru] (L) 2001
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534036   (699050) от 27.02.2022
-
-ELDEN RING (2022) [Ru/Multi] (1.02/dlc) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: LicenseРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32330D8FDF90C52A825AC36B898C1B3443EB677F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269639   (698909) от 09.03.2019
-
-BELOW (2018) [Ru/Multi] (1.0.0.36) License CODEX
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Below – процедурно генерируемое приключение в открытом мире, где вам предстоит столкнуться с Тьмой. Возьмите на себя роль крошечного героя и отправляйтесь исследовать случайно генерируемые подземные лабиринты отдаленного острова, кишащие смертоносными монстрами, ловушками и различными опасностями.Тип издания: LicenseРазработчик: Capybara GamesЖанр: Adventure, RPG, IndieЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594AF829884D7BD5B2C48D642B1098686F0FDEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027444   (697682) от 18.06.2016
-
-Rebel Galaxy (2015) [Ru/Multi] (1.08) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rebel Galaxy – это удалое приключение в открытом космосе, где игроков ждут яростные перестрелки, новые горизонты, бескомпромиссная торговля и "переговоры" со всякого рода сбродом, населяющим космический фронтир.
-Вам предстоит занять кресло капитана яростного крейсера и отправиться показывать кузькину мать пиратам, исследовать космические аномалии, водить (   Читать дальше...   )Тип издания: RepackРазработчик: Double Damage GamesЖанр: RPG (Rogue, Action), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BA28A832FDCBBD61FA68236523EF1DE921773D
 ```
 
 https://mybot314.ru/tekegram_catalog/

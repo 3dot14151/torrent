@@ -1,3 +1,83 @@
+###  Публикация: 1580866   (151271) от 30.12.2022
+
+Ворона императорского гарема | Ворона в гареме | Koukyuu no Karasu | Raven of the Inner Palace [2022, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Глубоко во внутреннем дворце живет загадочная императорская супруга, по имени Цзюйсэтсу Рюу, больше известная как Императрица-Ворона. Никто не знает её истинного облика. Одни видели её как дряхлую старуху, другие же как юную красавицу. Говорят, что она владеет тайными магическими искусствами, и если попросить, то она исполнит любое желание: найдёт потерянную вещь, (   Читать дальше...   )Производство: Япония / Студия BN PicturesЖанр: Исторический, магия, фэнтезиРежиссер: Мияваки ТидзуруЯзык озвучки: Русский многоголосый закадровый, Японский
+- HectoR, Hoopoe, NeoNoir, Night Shift (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2C6272ACC7974E892765B418542D72BB799594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271106   (150857) от 22.12.2018
+
+Chio-chan no Tsuugakuro | Дорога в школу Чио-чан [2018, TV, 12 из 12] [HEVC] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Чио Миямо — обычная стеснительная девочка, которая обожает видеоигры и из-за того, что часто играет до поздней ночи, постоянно опаздывает в школу. Но даже идя по «обычному» пути туда, Чио регулярно попадает в разнообразные ситуации, иногда обычные, а иногда и не очень. Ей приходится иметь дело с бандой байкеров, строительными работами, острым желанием посетить уборную (   Читать дальше...   )Производство: студия Studio Barcelona / ディオメディアЖанр: комедияРежиссер: Инагаки ТакаюкиПеревод: Язык озвучки: Русский
+TV-1 (AniDub), (Anilibria), - внешними файламиЯзык субтитров: Русский, Английский, Испанский, ПортугальскийПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE03195036C2D0E159D81C6D277AC1117B4FAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347661   (147762) от 24.12.2019
+
+Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Наши Воины [2015-2016, TV, 24 эп.] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Август 20XX-го. В Гинзе — самом фешенебельном районе Токио — появляется загадочный портал, ведущий в параллельный мир. В ту же минуту самобытные «Врата» начинают изрыгать орды монстров и прочих отвратительных созданий, превращая торговый район города в бродячий цирк уродов, жаждущих разрушений. Японские Силы Самообороны не заставляют себя долго ждать. Оперативно (   Читать дальше...   )Производство: A-1 PicturesЖанр: Приключения, ФэнтезиРежиссер: Кёгоку ТакахикоПеревод: Надписи/Полные |Субтитры: РусскиеПродолжительность: ~ 25 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0642B0B72A1B253A6397AFB83733A785D0CEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294663   (147716) от 24.12.2019
 
 Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
@@ -6,7 +86,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +219,7 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +245,7 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +273,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +325,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +351,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +377,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +403,7 @@ Bokutachi wa Benkyou ga Dekinai [TV-2] | Мы не можем учиться! [�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +429,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +456,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +482,7 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +508,7 @@ Sin: Nanatsu no Taizai | Seven Mortal Sins | Прегрешение: Семь с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +535,7 @@ Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +561,7 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +587,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -587,7 +667,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -598,88 +678,6 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C9AAE707430F5B9ADD2A041F7D0D52B7DA23A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680809   (133772) от 30.11.2023
-
-Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cleric | Великий святой [2023, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офисного клерка убивают перед долгожданным повышением, но милостивый Бог дарует ему новую жизнь в другом мире. Люциэль выбирает профессию целителя и решает в этот раз уж точно достичь успеха. Однако вскоре он узнает, что в этом мире целителей не слишком жалуют.
-© crunchyrollПроизводство: Япония / Студия Yokohama Animation Lab, Cloud HeartsЖанр: комедия, фэнтезиРежиссер: Тамагава МасатоЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Сrunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B7B1B9F703D7DB0BC0208121FFFDAF61593B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680735   (132914) от 02.12.2023
-
-Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - The Laughing Man | Призрак в доспехах: Синдром одиночки - Дело о смеющемся человеке [2005, OVA] BDRip 1080p raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132914.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем грань между виртуальный и физическим мирами заметно стёрлась, кибертроника изменила жизнь человечества до неузнаваемости, создав новый синтетический уровень существования и сведя людей в единую Сеть. Однако сближение живых организмов и машин оказалось чревато опаснейшими последствиями, предоставив злоумышленникам невиданные доселе возможности манипулирования (   Читать дальше...   )Производство: Япония / Production I.GЖанр: Киберпанк, фантастика, боевик, детектив, криминалРежиссер: Камияма Кэндзи / Kamiyama Kenji / 神山健治Перевод: Kametsu (английский, srt), Rei (русский, srt), toph (русский, srt + ass)Язык озвучки: Японский (оригинал), английский дубляж (Kametsu project), русский одноголосый любительский (Алекс Килька)Субтитры: Русские, АнглийскиеПродолжительность: один эпизод 2 ч. 40 м.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF39B35E66BEE23C48BC28FA0AEA4E341959010E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681477   (132641) от 03.12.2023
-
-Красавица: Унеси меня на Луну [ТВ-2] | Tonikaku Kawaii 2 | Tonikawa: Over the Moon for You 2 [2023, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132641.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о милой паре молодожёнов продолжается! Однажды Наса Юзаки чуть не попал под грузовик, но его спасла загадочная девушка Цукаса. Он ей сразу же признался в чувствах, но она согласилась встречаться лишь в том случае, если они поженятся... Через несколько лет Цукаса и правда объявилась, и они начали жить вместе как самая настоящая семейная пара. С тех пор они (   Читать дальше...   )Производство: Япония / Студия Seven Arcs, Tengu KoubouЖанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: Русский двухголосый, многоголосый закадровый; Японский
-- Cleo-chan, Nuts (AniLibria.TV)
-- GimerHade, Muroi, Vel, Rurirururi (ShikokuStudio)
-- Myaurik, WoZWaLD, Abe, Akemitsuki, Veda (AniBaza)(   Читать дальше...   )Субтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV); (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57B4EAF4F6908A9C1901B86F6B1987BE1A9F92C
 ```
 
 https://mybot314.ru/tekegram_catalog/

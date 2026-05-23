@@ -1,3 +1,107 @@
+###  Публикация: 1374592   (859735) от 17.04.2020
+
+Игрушка (2020) SATRip [H.264] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Алиса Савельева — психотерапевт, чей уникальный метод основан на психодраме. Расставляя игрушки вместе с клиентами — как детьми, так и взрослыми — Алиса помогает им сделать нестандартные выводы и найти путь к излечению. Но собственная жизнь героини начинает рушиться: кто-то убивает ее клиенток одну за другой, а муж и лучшая подруга что-то скрывают. С каждым днем (   Читать дальше...   )Производство: Россия / ХитФильм ПродакшнЖанр: детектив, триллерРежиссер: Карен ЗахаровАктеры: Мария Машкова, Иван Стебунов, Анатолий Руденко, Александр Наумов, Юлия Галкина, Ирина Баринова и др.Субтитры: ОтсутствуютПродолжительность: 00:44:25+00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C16B19C0B96120A3D2E8AEA0057F48CF567B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497924   (859284) от 25.09.2021
+
+Кроличья лапа (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Петербурге встречаются двое — Аля и Николя. Она — воздушная петербургская интеллигентка, он — французский архитектор, обаятельный красавец. Они не могут жить друг без друга, но и вместе быть тоже не могут. История их любви — это хроника столкновения двух миров, которые тянутся друг к другу, но никак не могут найти точку гармонии.Производство: Россия, Бельгия, Финляндия / ЗебраЖанр: Мелодрама, драмаРежиссер: Нана ДжорджадзеАктеры: Светлана Щедрина, Николя Дювошель, Пьер Ришар, Евгений Ткачук, Евгения Добровольская, Олег Гаркуша, Александр Половцев, Беренис Баоо, Мишель Израэль, Валентина НейморовецПеревод: Не требуется (IVI)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD86FFD5E946199EC2275C2A649471698429BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109170   (858903) от 27.02.2017
+
+Удача напрокат (2012) WEB-DLRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В жизни Кристины все прекрасно: жених — красавец, богатый наследник Николай, отличная работа в одном из самых крупных банков страны. Через пару месяцев Кристине исполнится тридцать. Кристина ждет дня рождения с особым трепетом: когда-то старая гадалка сказала ей, что если она встретит свое 30-летие успешной, то и дальше ей будет сопутствовать удача, а если нет, то (   Читать дальше...   )Производство: Россия / "Star Media"Жанр: Мелодрама, КомедияРежиссер: Дмитрий СорокинАктеры: Ирина Медведева, Дмитрий Богданов, Юрий Ваксман, Оксана Скакун, Ирина Пулина, Константин Третьяков, Максим Пинскер, Константин НовиковПродолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C017C9B7D77924F4900FDA4BA2D6225FF49BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000245   (858731) от 25.03.2016
+
+День выборов 2 (2016) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игорь Цаплин будет избираться на третий срок, а поможет ему в этом уже знакомая зрителю команда пиарщиков.Производство: Россия / Квартет И, Стрела, Кедр ПроЖанр: КомедияРежиссер: Александр БаршакАктеры: Леонид Барац, Ростислав Хаит, Александр Демидов, Камиль Ларин, Василий Уткин, Нонна Гришаева, Максим Виторган, Михаил Ефремов, Алексей Макаров, Алексей КортневПеревод: Не требуется (русский) iTunesПродолжительность: 01:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAAF6DBA515713466333012DFC14CFAEDD890BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376579   (858550) от 18.04.2020
 
 Топливо (2019) WEBRip [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Terra visionis (2020) WEBRip [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBD51A25B29DAD5A4AAA99C60B4A10D1E1F18D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498758   (853989) от 28.09.2021
-
-Профиль / Profile (2018)  BDRip [H.264] [MVO]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская журналистка под прикрытием внедряется в систему пропаганды «Исламского государства», которое привлекает в свои ряды всё больше молодых европейских женщин. Ежедневные контакты с вербовщиками террористов затягивают её... Фильм снят при помощи скринкастинга, и его действие демонстрируется через мониторы компьютеров персонажей.Производство: Россия, США, Великобритания, Кипр, Bazelevs Entertainment, ТаббакЖанр: детектив, триллерРежиссер: Тимур БекмамбетовАктеры: Валин Кэйн, Морган Уоткинс, Кристин Адамс, Кейт Уотсон, Келли Мак, Шерин Чалли, Элоиз Томас, Адам Сидман, Эмма Катер, Амир РахимзадеПеревод: Профессиональный многоголосый (Jaskier)Субтитры: АнглийскиеПродолжительность: 01:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13331C691667128D1F0626B0D67D5332DD0EBD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110408   (853722) от 02.03.2017
-
-Просто повезло (2006) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лирическая комедия о том, как много в нашей жизни зависит от случая. Одна мимолетная встреча переворачивает все существование актера-неудачника, который до этого никак не мог устроить свою жизнь. Главный герой, которого все зовут просто Санечка, плывет по течению. Работы нет, жена ушла... Единственное, чего у него в избытке, - это верные друзья и природный дар относиться (   Читать дальше...   )Производство: Россия, ФриФлайФилмсЖанр: КомедияРежиссер: Андрей АнкудиновАктеры: Андрей Анкудинов, Аристарх Ливанов, Екатерина Редникова, Инесса Геворкян, Вероника Ицкович, Виктор Лазарев, Евгений Леонов-Гладышев, Валерий Петрусов, Руслана Писанка, Валерий Поповский, Алена/Елена) ПродановаПродолжительность: 01:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F7A927083FCA37E9CDFAA466C60BE8CEF0F3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001238   (853525) от 28.03.2016
-
-Тряпичный союз (2015) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь тихого подростка Вани меняется после знакомства с тремя очень странными парнями. Спортсмены, хулиганы, мечтатели, они называют себя «Тряпичный Союз» и верят, что изменят весь мир. Очарованный новой дружбой, Ваня поселяет парней у себя на даче и всеми силами пытается стать частью их «величайшей организации». Но у соседской девочки Саши свои планы на эту компанию.Производство: РоссияЖанр: Комедия, ДрамаРежиссер: Михаил МестецкийАктеры: Иван Янковский, Александр Паль, Василий Буткевич, Павел Чинарёв, Анастасия Пронина, Федор Лавров, Елена Нестерова, Владислав Ветров, Кирилл Кяро, Андрей КрыжнийПеревод: Не требуется (русский) iTunesПродолжительность: 01:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD282E42A46A598B2866E56FADE1D5F2077B4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001349   (853507) от 28.03.2016
-
-Тряпичный союз (2015) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь тихого подростка Вани меняется после знакомства с тремя очень странными парнями. Спортсмены, хулиганы, мечтатели, они называют себя «Тряпичный Союз» и верят, что изменят весь мир. Очарованный новой дружбой, Ваня поселяет парней у себя на даче и всеми силами пытается стать частью их «величайшей организации». Но у соседской девочки Саши свои планы на эту компанию.Производство: РоссияЖанр: Комедия, ДрамаРежиссер: Михаил МестецкийАктеры: Иван Янковский, Александр Паль, Василий Буткевич, Павел Чинарёв, Анастасия Пронина, Федор Лавров, Елена Нестерова, Владислав Ветров, Кирилл Кяро, Андрей КрыжнийПеревод: Не требуется (русский) iTunesПродолжительность: 01:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA88AF9AFACC1167EC7735CC7FFB802A584E7AD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

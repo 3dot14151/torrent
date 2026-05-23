@@ -1,3 +1,29 @@
+###  Публикация: 1837966   (257718) от 20.11.2025
+
+WinPE 11-10 Sergei Strelec (x64) 2025.11.19 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F299C871D415F77C5BBC1E106DEFB862A20A66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836875   (255625) от 17.11.2025
 
 LEX LIVE 10 v.26.0.17 RC [Ru]
@@ -6,7 +32,7 @@ LEX LIVE 10 v.26.0.17 RC [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +60,7 @@ Windows 10 PE (x64) by Ratiborus v.6.2023 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +86,7 @@ Windows 11 PE (x64) by Ratiborus v.7.2023 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +112,7 @@ Windows 11 PE x64 by Xemom1 (08.06.23) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -113,7 +139,7 @@ LEX LIVE 10 RC v.26.0.15 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -141,7 +167,7 @@ NHV-BOOT-2023-V1415-EXTREME [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +193,7 @@ LEX LIVE 10 Preview v.26.0.5 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -195,7 +221,7 @@ LEX LIVE 10 Preview v.26.0.3 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +249,7 @@ COMSS Boot USB 2021-12 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -251,7 +277,7 @@ Simple Bootable Flash Drive by StartSoft Presentation 27-2020 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -277,7 +303,7 @@ Hiren’s BootCD PE x64 v1.0.8 (5 March 2024) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -303,7 +329,7 @@ Windows 10 PE x64 by AnkhTech V10 (28.06.2024) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -329,7 +355,7 @@ System USB-Flash 10 v.17.0.0.8383 [Multi/Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -355,7 +381,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.09.29 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

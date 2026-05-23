@@ -1,3 +1,85 @@
+###  Публикация: 1193299   (262196) от 20.12.2017
+
+Виктор Астафьев | Собрание сочинений в 15 томах [15 книг] (1997-1998) [DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Последнее прижизненное издание собрание сочинений В.Астафьева, составленное и прокомментированное самим автором, включает практически все его художественные произведения, статьи, письма...
+
+В первый том Собрания сочинений нашего современника, русского писателя В.П. Астафьева - он родом из сибирской деревни Овсянка, живет и работает в г. Красноярске - вошли самые (   Читать дальше...   )Жанр: ПрозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F09F8C72F1BF307658F0A7C62716AA0123998BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505615   (261361) от 04.06.2012
+
+Эдуард  Успенский | Общее собрание героев в 10 томах (23 книги) [1993-1994] [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Собрание сочинений детского писателя Э. Успенского - «Общее собрание героев повестей, рассказов, стихотворений и пьес в десяти томах», вышедшее в 1992-1993 гг. в издательстве «Комета» и проиллюстрированное замечательными художниками.
+В Собрание вошли произведения: "Подводные береты", рассказы, "Письма ребенку", "Юности честное зерцало", "Школа клоунов", "Дядя Федор, пес и кот", "Гарантийные человечки", "Господин Ау", "Крокодил Гена и его друзья", "25 прфессий Маши Филипенко", "Клоун Иван Бултых", "Вниз по волшебной реке", "Меховой интернат", стихи, "Пластмассовый дедушка", "Остров ученых", "Повесть о Вере и Анфисе", "Красная Рука", "Черная простыня", "Жуткий детский фольклор".1993-1994Жанр: Детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FDD58F1FAAB3C9D98526BD471DCC32CFE3E0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505625   (261217) от 04.06.2012
+
+Константин Станюкович | Собрание сочинений в десяти томах (1974-1977) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Константи́н Миха́йлович Станюкович, (18 (30) марта 1843, Севастополь, — 7(20) мая 1903, Неаполь) — русский писатель, известен произведениями на темы из жизни военно-морского флота.
+Из потомственной морской семьи, сын адмирала. Учился в Морском кадетском корпусе в Петербурге (1857-60); в 1860 совершил плавание, описанное в первой книге очерков "Из кругосветного (   Читать дальше...   )Жанр: ПрозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD25D81A5BD3781BF2E0ACC8AFD1E57D0B628E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502078   (259425) от 29.05.2012
 
 Никита Александрович Филатов | Сборник произведений [2000-2010] [FB2]
@@ -6,7 +88,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -116,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -142,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -173,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -199,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -225,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -252,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -278,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -304,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -331,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -358,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -386,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -413,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -439,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -467,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -496,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -525,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -604,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -617,91 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88245CEDBF3F7EFCBBE59472A4B9EC4D04B5E58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333712   (215995) от 03.12.2021
-
-Александр Мазин | Собрание сочинений [85 книг] (1994-2022) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Владимирович Мазин — популярный российский писатель-фантаст. Родился 8 января 1959 года в городе Запорожье (Украина). Окончил Ленинградский технологический институт. Специальность — инженер-химик
-
-После окончания института работал на предприятиях г. Ленинграда. Серьёзно занимался каратэ-до, писал стихи и песни, которые сам и исполнял. Позднее таких авторов (   Читать дальше...   )Жанр: Социальная фантастика, Научная Фантастика, Историческая фантастика, Попаданцы, Славянское фэнтези, Городское фэнтези, Боевое фэнтези, Героическое фэнтези, LitRPG, Ужасы, Боевик, Публицистика, Лирика, ПоэзияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A6ACC0F46BE017B5ABC66392DBAE912ABB614D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355471   (215368) от 23.11.2020
-
-Денис Деев | Собрание сочинений [12 книг] (2017-2020) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Денис Деев – современный писатель, создающий книги в различных фантастических жанрах. Начал писать книги после завершения карьеры сценариста. Потому что книги дают больший простор для фантазии и создания собственных миров, так как не ограничены ничем – ни бюджетом фильма, ни возможностями графики и актеров.
-
-Творчество Деева многогранно. Писатель успел попробовать (   Читать дальше...   )Жанр: Космическая фантастика, Боевая фантастика, Боевое фэнтези, ЛитРПГ, ПостапокалипсисФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C611174EE03EE69D957E5E244B17D9A6934839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344051   (214007) от 08.12.2019
-
-Дмитрий Глуховский | Собрание сочинений (1999 - 2017) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Алексеевич Глуховский — российский писатель, публицист, радиоведущий, военный корреспондент. Автор постапокалиптических романов «Метро 2033» и «Метро 2034», романов-антиутопий «Метро 2035» и «Будущее», мистического романа «Сумерки» и реалистического романа «Текст», сборника «Рассказы о Родине»
-
-Список сочинений:
-1. Цикл Метро(   Читать дальше...   )Жанр: Фантастика, МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E797582DAC669D8F38391C3B4B38BD079711A524
 ```
 
 https://mybot314.ru/tekegram_catalog/

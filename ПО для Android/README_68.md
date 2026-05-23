@@ -1,3 +1,81 @@
+###  Публикация: 1837199   (256753) от 16.11.2025
+
+Electrical Calculations Pro / Электрические расчеты v11.0.3.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Электрические расчеты являются лучшим приложением в секторе электроэнергии, он имеет много вычислений, которые могут помочь вам в вашей работе. Он не может пропустить в вашем смартфоне!Тип издания: ProРелиз состоялся: 14.11.2025Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B8E89DFB79C8E064CF4401F82FA30671109F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837238   (256740) от 16.11.2025
+
+Лайм HD STB v1.12.18 Mod by vadj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Цифровое ТВ (ЦТВ) для Android телевизора и приставок. Телеканалы для всей семьи! Смотрите  фильмы, сериалы и ТВ-каналы онлайн на большом экране телевизора вместе с Лайм HD TV онлайн! Лайм HD TV online — это приложение c трансляцией более 330 телеканалов для современных телевизионных приставок, которое предоставляет пользователям доступ к широкому спектру мультимедийного (   Читать дальше...   )Тип издания: Mod / AdFreeРелиз состоялся: 14.11.2025Разработчик: ООО Лайм Эйч ДиПоддерживаемая ОС: Android TV 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9DDECD27B885CF90C14C0CE51AE623BA59D8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837237   (256739) от 16.11.2025
+
+Лайт HD ТВ v4.5.1 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Лайт — это ваше HD ТВ онлайн. Все каналы бесплатно. Можно смотреть ТВ-передачи в поездке, в очереди, на обеде, на даче, дома — телевизор всегда с собой. Простое, удобное и лёгкое приложение, чтобы телевидение смотреть: онлайн и бесплатно. 330+ ТВ-каналов бесплатно. Смотрите онлайн ТВ, кино, сериалы и мультфильмы.Тип издания: Premium / ModРелиз состоялся: 14.11.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+ и Android TVЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837380   (256734) от 16.11.2025
 
 Photo Studio PRO v2.8.7.4631 Mod by Balatan [Ru/Multi]
@@ -6,7 +84,7 @@ Photo Studio PRO v2.8.7.4631 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ MIUI Hidden Settings Activity v1.6.11 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ SnapEdit - AI photo editor v7.5.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ FBReader Premium v3.8.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Bria Mobile: VoIP Softphone v6.21.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Mary’s recipes: рецепты, меню v6.7.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Vanced Tube v5.5.80.151 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +422,7 @@ FBReader Premium – Favorite Book Reader v3.1.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +449,7 @@ vpnify - Безлимитный VPN 2.0.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +475,7 @@ Lexilize FlashCards v4.8.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +501,7 @@ Dr.Web Security Space Life v12.9.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +554,7 @@ RAR for Android v7.20 build 128 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +580,7 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -529,7 +607,7 @@ Background Video Recorder Pro v13.9.77 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -555,7 +633,7 @@ Photo Studio PRO v2.8.7.4631 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -592,87 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A40C2EDC42821484AC24DF3AB5A4EA5BC264010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835929   (252296) от 08.11.2025
-
-WPS Office + PDF v18.22 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252296.jpg" />
-</div>
-
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2025Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836108   (252293) от 08.11.2025
-
-Plus Messenger (Telegram+)  v12.1.1.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 08.11.2025Разработчик: rafalenseПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D750A36AC6C9044A48D3B529EA022724A3432CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634539   (252124) от 21.05.2023
-
-2ГИС | 2GIS for Android 6.20.0.510.14 [Ru/Multi]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маршруты автобусов и другого транспорта. Метро. АЗС и камеры. Онлайн и офлайн
-2ГИС — подробный справочник с картами городов и навигатор для автомобиля и пешеходов. Пользуйтесь онлайн или скачивайте город на устройство, чтобы не потеряться без интернета.
-С навигацией 2ГИС вы будете как дома даже в незнакомом месте:
-— быстро найдёте адрес, компанию, телефон, время (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 17 мая 2023Разработчик: 2ГИСПоддерживаемая ОС: Android 6+Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DDF58905CA2BFB3C9946C5BB7CD39FB9AAA9C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

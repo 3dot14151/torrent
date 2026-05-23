@@ -1,3 +1,109 @@
+###  Публикация: 1818884   (2005) от 19.09.2025
+
+Проекты - VideoHive - Object Transitions - 59571070 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Классные переходы по объектам.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D46B18938FA8F3B4A76B3943A8A613ACD8A053B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818846   (1976) от 19.09.2025
+
+Проекты - VideoHive - Car Music Visualizer - 31925850 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Уникальный шаблон After Effects, который поможет вам создать потрясающий музыкальный клип. Вы можете использовать его для продвижения новой песни, музыкальных фестивалей, концертов, синглов и многого другого.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9060BF6E1B1544059679ADFA8B315779C5210CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819074   (1838) от 20.09.2025
+
+Проекты - VideoHive - Production Company Vintage Typewriter Intro - 22721044 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Этот шаблон After Effects анимирует печатающую машинку для вас. Вы сможете сосредоточиться только на настройке внешнего вида. Более 30 настраиваемых параметров (максимум 40 символов). Просто посмотрите короткий видео-урок и сделайте настройку вашего винтажного интро для пишущей машинки.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F792A380CFD3663A6597D3A86A3E90146383E2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819035   (1820) от 20.09.2025
+
+Проекты - VideoHive - Music Visualizer Templates - 33833730 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Эти шаблоны визуализации музыки идеально подходят для создания музыкальных клипов, подкастов, вокала, музыки для YouTube и многого другого. Вы можете использовать их для продвижения своей музыки на YouTube, Vimeo или любом другом видеосервисе.
+
+Этот проект включает в себя 5 шаблонов визуализации музыки. Каждый из них включает контроллер цвета и контроллер длительности. (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483C4FF6CA52A59752C7B99E3A1A63C00EA594D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819059   (1818) от 20.09.2025
 
 Проекты - VideoHive - App Promo Mockup - 59573187 [AEP]
@@ -6,7 +112,7 @@
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

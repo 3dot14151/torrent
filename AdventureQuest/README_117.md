@@ -1,3 +1,107 @@
+###  Публикация: 1783303   (2579) от 16.09.2025
+
+Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797216   (2578) от 16.09.2025
+
+Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отправься в бескрайний мир, где ты можешь изменить каждую планету, каждую систему и каждый миг. Исследуй вселенную, полную жизни, древних тайн и нетронутых красот. Дай отпор Красной тьме, собирая ресурсы и создавая инструменты, оружие и транспорт, без которых не обойтись в этой одиссее. Объединись с друзьями и сразись с гигантскими противниками, чтобы подарить надежду (   Читать дальше...   )Тип издания: RepackРазработчик: Atypical GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCBD9B0B85640529F7458FECDA0A2D1C70E4516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418701   (2552) от 16.09.2025
+
+Monster Prom (2018) [Multi] (8.0/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+До выпускного бала осталось всего три недели, а вы так и не решили, с кем на него пойти... Ах да, еще вы - чудовище. Впрочем, все ученики этой школы - чудовища! Monster Prom - это романтический симулятор свиданий, в который могут играть от одного до четырех человек, соперничая друг с другом за пару своей мечты. А еще вас в какой-то момент обязательно посетит мысль: (   Читать дальше...   )Тип издания: LicenseРазработчик: Beautiful GlitchЖанр: Симулятор, Визуальные новеллы, КoмедияЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C5BB89AD8209063707C56264A02A3AD3C1BA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794964   (2539) от 16.09.2025
+
+Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Играя за Элроя и Пегги, вы решаете интригующие головоломки, раскрываете археологические тайны, встречаетесь с необычными инопланетными культурами и наслаждаетесь полезными эмоциональными моментами – и всё это в юмористическом ключе современного приключения в стиле point-and-click. Элрой – гениальный инженер-ракетчик, чей отец исчез 18 лет назад при подозрительных (   Читать дальше...   )Тип издания: LicenseРазработчик: MotivitiЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98B1DC6B9B343D95A8D26A1E9F2E00FA7F35292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809006   (2419) от 17.09.2025
 
 Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250826) Repack Let'sРlay
@@ -6,7 +110,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250826) Re
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/Multi] (1.4.4) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.10.0/dlc) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.09.22.07.56/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Mateusz Skutnik Collection (2021-2025) [Ru/Multi] (2.3.49/1.0.50/1.1.7a ) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Revenge of the Savage Planet (2025) [Multi] (025-9-9-106947/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Mystery Of Woolley Mountain (2019) [Multi] (14.3/dlc) License GOG [Complete 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Mirage Ignis Fatuus (2025) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 498227   (354335) от 20.11.2012
+
+Аркадий Стругацкий и Борис Стругацкий | Неизвестные Стругацкие (9 книг) [1999-2012] [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Неизвестные Стругацкие - это малоизвестное творчество Аркадия и Бориса Стругацких: черновики, рукописи, варианты произведений, письма, дневники, интервью, переводы.Жанр: Фантастика, публицистикаИздательство: АСТ, СталкерФормат: FB2Качество: ebook
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7E0DC44740D54BFDD0C59DEE1CF7EE4EC3C9E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179025   (351121) от 30.10.2017
+
+Владимир Арсеньев | Собрание сочинений в одной книге (2017) [FB2, EPUB]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Талантливый писатель, неутомимый путешественник, известный исследователь Дальнего Востока, ученый, писатель, педагог, внесший большой вклад в изучение географии, этнографии и природных ресурсов региона, друг местных жителей, следопыт и ученый, Владимир Клавдиевич Арсеньев всю свою жизнь посвятил исследованию Дальнего Востока. Автор книг «Дерсу Узала», «В дебрях Уссурийского (   Читать дальше...   )Жанр: Классическая проза, Исторические приключенияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5756DEB51179223153B74C53D22AACEED0A76030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953448   (348821) от 04.11.2015
+
+Фёдор Михайлович Достоевский | Собрание сочинений в 10-ти томах [10 книг] (1956-1958) [DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Есть книги, которые должны быть в каждом доме. К ним, несомненно, относятся и произведения великого русского писателя Федора Михайловича Достоевского, сумевшего раскрыть невероятные глубины человеческого души. Вера и неверие, борьба божьего и дьявольского, церковь и государство, извечный конфликт отцов и детей... Философская и нравственная проблематика его произведений (   Читать дальше...   )Жанр: Классическая прозаИздательство: Государственное издательство художественной литературыФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5FAA8A5ABBCAAF778FC6748689D3202847EF15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579771   (347807) от 23.11.2012
 
 Евгений Сартинов | Сборник книг (27 книг) [1996-2010] [FB2]
@@ -6,7 +84,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,88 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46706CBEE6C53417AF901ADFAB506BC35FAF0D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193299   (262196) от 20.12.2017
-
-Виктор Астафьев | Собрание сочинений в 15 томах [15 книг] (1997-1998) [DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последнее прижизненное издание собрание сочинений В.Астафьева, составленное и прокомментированное самим автором, включает практически все его художественные произведения, статьи, письма...
-
-В первый том Собрания сочинений нашего современника, русского писателя В.П. Астафьева - он родом из сибирской деревни Овсянка, живет и работает в г. Красноярске - вошли самые (   Читать дальше...   )Жанр: ПрозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F09F8C72F1BF307658F0A7C62716AA0123998BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505615   (261361) от 04.06.2012
-
-Эдуард  Успенский | Общее собрание героев в 10 томах (23 книги) [1993-1994] [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание сочинений детского писателя Э. Успенского - «Общее собрание героев повестей, рассказов, стихотворений и пьес в десяти томах», вышедшее в 1992-1993 гг. в издательстве «Комета» и проиллюстрированное замечательными художниками.
-В Собрание вошли произведения: "Подводные береты", рассказы, "Письма ребенку", "Юности честное зерцало", "Школа клоунов", "Дядя Федор, пес и кот", "Гарантийные человечки", "Господин Ау", "Крокодил Гена и его друзья", "25 прфессий Маши Филипенко", "Клоун Иван Бултых", "Вниз по волшебной реке", "Меховой интернат", стихи, "Пластмассовый дедушка", "Остров ученых", "Повесть о Вере и Анфисе", "Красная Рука", "Черная простыня", "Жуткий детский фольклор".1993-1994Жанр: Детская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FDD58F1FAAB3C9D98526BD471DCC32CFE3E0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505625   (261217) от 04.06.2012
-
-Константин Станюкович | Собрание сочинений в десяти томах (1974-1977) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Константи́н Миха́йлович Станюкович, (18 (30) марта 1843, Севастополь, — 7(20) мая 1903, Неаполь) — русский писатель, известен произведениями на темы из жизни военно-морского флота.
-Из потомственной морской семьи, сын адмирала. Учился в Морском кадетском корпусе в Петербурге (1857-60); в 1860 совершил плавание, описанное в первой книге очерков "Из кругосветного (   Читать дальше...   )Жанр: ПрозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD25D81A5BD3781BF2E0ACC8AFD1E57D0B628E71
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1253844   (186129) от 24.09.2023
+
+CrossCode (2015) [Multi] (1.4.2-3/dlc) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этому двухмерному ролевому ретро-боевику есть чем вас удивить. CrossCode сочетает 16-битную графику в стиле SNES с безупречной физикой, динамичной боевой системой и занимательной механикой головоломок - и все это на фоне захватывающего научно-фантастического сюжета. В CrossCode все дело в механике игры! Взять два популярных жанра, найти между ними правильный баланс (   Читать дальше...   )Тип издания: LicenseРазработчик: Radical Fish GamesЖанр: Экшн, Ролевая игра, ФантастикаЯзык субтитров: Английский, Немецкий, Китайский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Китайский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F972A52EF33C8B1B02CC0EC5A319A99889FDA04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827202   (185765) от 20.10.2025
 
 Shank (2010) [Ru] (1.3) Repack Necros
@@ -6,7 +32,7 @@ Shank (2010) [Ru] (1.3) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +110,7 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (208081) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +162,7 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Leisure Suit Larry - Wet Dreams Don't Dry (2018) [Ru/Multi] (1.2.0.49b) License 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Worms Armageddon (1999) [Ru/Multi] (3.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Starri (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Hero Survival (2023) [Ru/En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.0.0.14718) License CODEX [The
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,32 +667,6 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D4F4028695B815049417656D828B2E52477F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399768   (170035) от 09.12.2022
-
-Fury Unleashed (2020) [Ru/Multi] (1.9.1.0) License GOG (обновляемая)
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fury Unleashed создан в сочетании вдохновения от современных платформеров в стиле roguelite (Dead Cells и Rogue Legacy) с ностальгическими воспоминаниями о платформерах старой школы (Contra и Metal Slug). В течение пяти лет мы совершенствовали наше творение, чтобы оно оставило такой же след в вашей душе, как и вышеупомянутые игры. И мы искренне верим, что вы не будете (   Читать дальше...   )Тип издания: LicenseРазработчик: Awesome Games StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7BEF560326D9D8440245BBB55A481A8679AF5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

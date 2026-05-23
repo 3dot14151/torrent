@@ -1,29 +1,3 @@
-###  Публикация: 1559086   (527141) от 24.06.2022
-
-Almost There / Почти у цели (2019) [PS4] [USA] 5.05 [HEN] [License / 1.02] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пробеги между лезвий пил, уворачивайся от нацеленных в тебя ракет. Проползи под лазерами и не свались в пропасть вместе с падающим полом. Почти у цели была разработана специально для поклонников хардкорных игр-платформеров. И не говори, что тебя не предупреждали!Тип издания: LicenseРазработчик: The Quantum Astrophysicists Guild, Durdanto StudioЖанр: Платформер, Инди-играЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70858027B60C7951A8EB9B0ADF9069306BF51B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052845   (527132) от 15.09.2016
 
 PlayStation All-Stars Battle Royale (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repack / 1.12] [Ru/En]
@@ -32,7 +6,7 @@ PlayStation All-Stars Battle Royale (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repack
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +33,7 @@ Call of Duty: Black Ops Declassified (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repac
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +59,7 @@ Animal Crossing - Let's Go to the City [Wii] [PAL] [MULTI 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +85,7 @@ Skullgirls 2nd Encore+ (2017) [PS3] [USA] 4.50 [Repack / 1.08 / 7DLC] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +111,7 @@ Minecraft Story Mode: A Telltale Games Series. Episodes 1-8 (2015) [PS3] [EUR] 4
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +137,7 @@ Rise of the Guardians (2012) [PS3] [USA] 4.25 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +164,7 @@ Puss in Boots: The Video Game (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +217,7 @@ Virtua Fighter 5: Final Showdown (2012) [PS3] [EUR] 3.00 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +243,7 @@ The Penguins of Madagascar: Dr. Blowhole Returns – Again! (2011) [PS3] [USA] 3
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +271,7 @@ Star Wars: The Clone Wars — Republic Heroes (2009) [PS3] [USA] 2.76 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +297,7 @@ Kane & Lynch 2: Dog Days (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [U
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +323,7 @@ Madagascar: Escape 2 Africa / Мадагаскар 2 (2008) [PS3] [EUR] 2.42 [Co
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +349,7 @@ Viking: Battle for Asgard (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +375,7 @@ Battlefield 1 (2016) [PS4] [EUR] 6.72 [HEN] [License / 1.27] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +401,7 @@ Aliens: Colonial Marines (2013) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +427,7 @@ Sengoku Basara 4 Sumeragi (2015) [PS3] [JPN] [3.55] [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +456,7 @@ Mafia II (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Mult
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +483,7 @@ Darksiders: Wrath of War (2010) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +509,7 @@ SoulCalibur IV (2008) [PS3] [EUR] 2.35 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +535,7 @@ LEGO: Jurassic World (2015) [Xbox360] [Region Free] [FreeBoot] [License] [Ru/En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +561,7 @@ Lego Harry Potter: Years 1–4 (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +588,7 @@ Tekken Tag Tournament 2 (2012) [Xbox360] [Region Free] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -640,7 +614,7 @@ SoulCalibur IV: Nude Version (2008) [PS3] [USA] 2.35 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -666,7 +640,7 @@ Alice: Madness Returns (2011) [PS3] [USA] 3.40 [Repack / DLC] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -677,6 +651,32 @@ Alice: Madness Returns (2011) [PS3] [USA] 3.40 [Repack / DLC] [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD9679FE583A0E043480B4A4937986999ADB366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929879   (517019) от 21.08.2015
+
+Lost: Via Domus (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Описание: Рейс 815 совершал обычный перелет из Сиднея в Лос-Анджелес. Самолет был полностью заполнен, вежливые стюардессы разносили закуски, а каждый из пассажиров погрузился в собственные мысли. Их судьбы удивительны и неповторимы: кто-то бежал от правосудия, кто-то хотел в далекой стране заглушить боль расставания, кто-то надеялся встретить свою любовь. Каждому (   Читать дальше...   )Тип издания: LicenceРазработчик: Ubisoft MontrealЖанр: Action-adventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5042264DCF2169E10F932CA4D6E6A33B877EB1F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

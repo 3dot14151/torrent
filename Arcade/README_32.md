@@ -1,3 +1,29 @@
+###  Публикация: 1254686   (269837) от 02.12.2018
+
+Super Lucky's Tale (2018) [Ru/Multi] (2827966/dlc) Repack Mizantrop1337
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Super Lucky’s Tale — весёлая и увлекательная платформенная аркада для игроков всех возрастов. Её герой Лаки, неутомимый оптимист и добряк, отправляется в путешествие, чтобы стать смелее и помочь своей сестре спасти Книгу веков от Джинкса, таинственного злодея… Тот задумал изменить мир — но с какой целью? В ходе странствий вы встретите много забавных друзей и противников. (   Читать дальше...   )Тип издания: RepackРазработчик: Playful Corp.Жанр: Arcade, PlatformerЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EEBFEB634F6804C7D9CE2CE6DA7A3152569887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146901   (268430) от 08.12.2017
 
 Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
@@ -6,7 +32,7 @@ Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Flashback (2018) [Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +84,7 @@ D1896 (2019) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Double Dragon: Neon (2014) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Rocket League (2015) [Ru/Multi] (1.56/dlc) License PLAZA [Game of the Year Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Beat Cop (2017) [Ru/Multi] (1.1.744) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Masters of Anima (2018) [Ru/Multi] (1.0.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Okami HD (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Trine Anthology (2009-2015) [Ru/Multi] (1.09/2.12/2.01/1.11) Repack R.G. Мех�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +318,7 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0.0.13948/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -370,7 +396,7 @@ OlliOlli (2022) [Ru/Multi] (1.0/dlc) License GOG [World Rad Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +501,7 @@ Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +527,7 @@ Police Stories (2019) [Ru/Multi] (1.4.7/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +553,7 @@ An Arcade Full of Cats, A Park Full of Cats, A Building Full of Cats 2 (2023-202
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +579,7 @@ Troublemaker 2: Beyond Dream (2025) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,7 +605,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -606,7 +632,7 @@ Beyond Contact (2023) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -632,7 +658,7 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -643,32 +669,6 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACBAE8D8C7C4EAA562AB3CB089DB9C26384D970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516513   (254828) от 24.04.2023
-
-Archvale (2021) [Ru/Multi] (1.3) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно этими землями правил жестокий и злобный король, который вселял ужас в тех, кто вставал у него на пути. Его деяния превратились в легенды, и история о проходе в сказочную Долину — одна из них. Сейчас от тех времен остались лишь Бессмертные: король проклял их, заставив вечно страдать в его подземельях.Тип издания: LicenseРазработчик: idoz & phopsЖанр: Экшн, Приключение, ФэнтезиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF05C7D51BC3C41FDE5485A30BA2B24901C0440B
 ```
 
 https://mybot314.ru/tekegram_catalog/

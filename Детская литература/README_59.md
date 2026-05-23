@@ -1,107 +1,3 @@
-###  Публикация: 1393055   (768975) от 28.06.2020
-
-Энид Блайтон | Тайна старинного грота (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пегги, Майк, Нора и Джек проводят каникулы на море, в живописном местечке, окружённом пещерами и скалами. Однажды, гуляя по пляжу, они обнаружили утёс, а в нём – проход к заброшенному дому на скале. По легенде, в этом доме когда-то находили укрытие контрабандисты и шпионы. А какие тайны хранит он сейчас? Ребята решают непременно это выяснить. Их ждёт немало удивительных (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Евгения ГончароваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D6824C27007A08157480BB11431491831853BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393059   (768974) от 28.06.2020
-
-Елена Ильина | Четвертая высота (2016) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Елена Ильина – псевдоним Лии Яковлевны Маршак, родной сестры Самуила Яковлевича Маршака. Ее перу принадлежат множество рассказов, стихов и сказок для детей младшего и среднего возраста, но самое известное ее произведение – повесть «Четвёртая высота» (1945 г.) о Гуле Королёвой, ее детстве, юности и подвиге во время Великой Отечественной войны. Гуля (Марионелла) Королёва (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32E787945DF91AB79767B9D18D678CD43E984A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393070   (768971) от 28.06.2020
-
-Лидия Будогоская | Повесть о рыжей девочке (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768971.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Повесть о рыжей девочке» Лидии Будогоской – увлекательная история о Еве Кюн. Девочка живёт в небольшом провинциальном городке на берегу реки Камы в доме, «в котором никто не хочет жить». Семейные неприятности не мешают Еве в первый раз влюбиться, сходить на первый бал, дружить, ссориться и жить жизнью обычной девочки-гимназистки. Повесть написана живым и ярким языком, (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB4257577F8B042B7479BD11E2F333C26A7B076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393085   (768951) от 28.06.2020
-
-Евгений Рудашевский | Город Солнца [4 книги] (2018-2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768951.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приключенческой серии «Город Солнца» выдаёт в Евгении Рудашевском человека, которого интересует на этом свете буквально всё: искусство, природа, студенческая жизнь, мотивы человеческих поступков – о чём бы ни писал молодой автор, получается познавательно и заразительно. С каждой новой книгой голос Рудашевского звучит всё более уверенно, а остросюжетность всё филиграннее (   Читать дальше...   )Жанр: Детективы, Приключения для детей, Книги для подростковФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AF9C087F4E7CEF0F3A59368E5EDED81A7435B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393073   (768948) от 28.06.2020
 
 Наталья Каменских | Три богатыря и принцесса Египта (2017) [EPUB]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -661,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -672,6 +568,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA336AABA6A09D6B794EBC6DAA1162225584ED57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125973   (766759) от 16.04.2017
+
+Детгиз, Детская литература | Библиотека приключений и научной фантастики (273 тома) (1936-2004) [FB2, PDF, DJVU, DOC, RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия, издававшаяся Государственным издательством детской литературы (Детгиз), потом - "Детская литература". Первая книга выпущена в 1936 году.
+В кругах собирателей была известна под названием "рамка" («Золотая рамка», «Рамочка», «Золотая библиотека») и пользовалась большим успехом у нескольких поколений любителей фантастики и приключений, чем (   Читать дальше...   )Жанр: Приключения, фантастикаФормат: FB2, PDF, DJVU, DOC, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080750A1FED0194EB75ED3B23E87364D90B6EF04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278715   (766740) от 28.01.2019
+
+Братья Гримм | Полное собрание сказок и легенд в одном томе (2015) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые сказки братьев Гримм, чудесные, ироничные, страшные – и знакомые каждому с детства. Популярные и любимые герои: Красная Шапочка, Храбрый портняжка, Бременские музыканты – соседствуют с не столь известными: Белой и Чёрной невестой, Домовыми, Чёртом с тремя золотыми волосками – в книге собрано более двухсот сказок и легенд! Сказочное чтение увлечёт и развлечёт (   Читать дальше...   )Жанр: зарубежные детские книги, сказки, легендыФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD16C2E0E17E34E461BA898FF17EC58419E235F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393893   (766417) от 02.07.2020
+
+Гудрун Паузеванг | Большая книга о разбойнике Грабше (2017) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Грабш – потомственный разбойник, которого придумала классик немецкой детской литературы Гудрун Паузеванг. Этот заросший волосами великан наводит ужас на всю Чихенбургскую округу. Он живет в пещере среди болот в Вороновом лесу и добывает себе пропитание и одежду, грабя жителей Чихенау и Чихендорфа. Но все меняется, когда в его пещере оказывается миниатюрная женщина (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Екатерина АраловаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F4F0E993F4497588E1B2F5D5C6EC191F5B98BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393882   (766374) от 02.07.2020
+
+Шибел Паундер | Вести глубин (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Вести глубин» – первая книга серии «Русалки» английской писательни-цы Шибел Паундер, автора полюбившейся серии «Ведьмочки Гламбурга».
+Русалочки Битти, Мими и Зельда проводят каникулы на суше и вдруг по-лучают таинственную крабограмму. Оказывается, королева русалок Арабел-ла Скар в опасности, а в Тайной Лагуне всюду шныряют пираньи. Подругам предстоит всех спасти! (   Читать дальше...   )Жанр: Фантастика, Приключения для детейПеревод: Надежда КончаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F75D43C949BFA3C6FAA9E79CA1309C0857AEF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

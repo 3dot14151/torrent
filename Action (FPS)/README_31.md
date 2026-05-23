@@ -1,3 +1,107 @@
+###  Публикация: 1260484   (311091) от 07.11.2018
+
+The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры The Dark Occult происходит в заброшенном доме 30-х годов XX века, где пыльные окна, закрытые ставни и все вокруг покрытое паутиной говорит о том, что в нем никто не живет. Вначале вы воспринимаете любой шорох и вой ветра как само собой разумеющееся, но после того как там начинают происходить действительно паранормальные и необъяснимые события, то вы (   Читать дальше...   )Тип издания: LicenseРазработчик: RYM GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B93587F711C1D764439C58E18536242BECB7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186001   (311055) от 07.11.2018
+
+Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись в плену мрачного, неприветливого мира и ожидая расплаты за земные грехи, вы должны проложить путь через бессчетные толпы врагов, предотвратить начало Нечестивой войны и низвергнуть Люцифера. Но даже если вы одержите верх в этой безумной битве, вам придется уничтожить орды жутких демонов, жаждущих отомстить за своего владыку. Вы – последняя надежда ангелов. (   Читать дальше...   )Тип издания: LicenseРазработчик: People Can FlyЖанр: Шутер, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ФранцузскийЯзык интерфейса: Русский, Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CE4E3EF38CC7B2DF4052F103B0E7E13A634F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077799   (305972) от 28.11.2016
+
+Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кровь (2009) [Ru/Multi] (1.206580) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ремейк культового шутера, разработанный на основе мощного графического движка Serious Engine 3. На заре XXI века человечество сделало невероятное открытие огромного научно-исторического значения. Плохо одно - открытие это ведет к неминуемой гибели планеты. Вся надежда на Крутого Сэма. У героя есть лишь один шанс, чтобы изменить прошлое и спасти человечество.Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8238D832721CE5F3FF3E9DF858BF55D9AE1697E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960910   (304579) от 29.11.2015
+
+Serious Sam: The First Encounter / Крутой Сэм: Первая кровь (2001) [Ru/En] (1.05) Repack R.G. Механики
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В конце 21 века человечество на раскопках одной из первых и древнейших цивилизаций, древнеегипетской, обнаружило дурно пахнущие останки другого, еще более древнего, но довольно продвинутого в техническом плане мира, существовавшего на нашей планете хрен знает сколько лет назад.Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B63239DF79948E3D0E2DF1EBF9676D7C220955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960914   (304575) от 29.11.2015
 
 Serious Sam: The Second Encounter / Serious Sam. Второе пришествие (2002) [Ru/En] (1.07) Repack R.G. Механики
@@ -6,7 +110,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Agony UNRATED (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Breaking Bones (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ One Day For Ched (2012) [En] (1.0.5/dlc) Repack Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Homefront [Ru/En] (Rip/1.0.384501) 2011 | R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Radiation Island (2016) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Hollow (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.05/2dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Hollow (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +450,7 @@ F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Maize (2016) [En] (1300) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Betrayer (2014) [Multi] (1.8.5816) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Generation Zero (2019) [Ru/Multi] (Build 20191028/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Borderlands (2009) [Ru] (1.5.0/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,111 +669,6 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D23DCB716328A6D5AFAD9BCA8C43209472FCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262812   (290706) от 17.11.2018
-
-Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290706.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей творческих шедевров System Shock, Thief и Underworld. Команда авторов из OtherSide Entertainment, подарившая миру незабвенную серию Ultima Underworld, представляет Underworld Ascendant.Тип издания: RepackРазработчик: OtherSide EntertainmentЖанр: Action, RPG, Adventure, Fantasy, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC45D066A106F148631C9C1F69F2264359BEB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185723   (290627) от 22.11.2017
-
-TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290627.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2230 году промышленно-исследовательское судно Тартарус (MRS TARTARUS 220478) активирует протокол безопасности возле Нептуна без каких-либо признаков. Единственный шанс для выживания экипажа - добраться до мостика и перезапустить все системы один за другим, прежде чем корабль врежется в Нептун. Мы играем за Купера (повар и шахтёр корабля), у которого нет образования, (   Читать дальше...   )Тип издания: RepackРазработчик: Abyss GameworksЖанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, ФранцузскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089ABB9AC75F3992447E36629CAA130253671AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080209   (289639) от 06.12.2016
-
-Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в подземном Петербурге начала XX века - спустя 100 лет после нападения чудовищ на планету. Выжившие люди были вынуждены перебраться под землю и построить “новый мир”. Последующие поколения, полностью привыкшие к новой жизни, уже никогда не выбирались на поверхность.Тип издания: LicenseРазработчик: FazanЖанр: Action, Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139F7E91855FF81E53C8A4B81101F345FD3B1A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080291   (289284) от 06.12.2016
-
-Beastiarium (2016) [Ru/Multi] (1.0.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beastiarium — погружение в таинственный мир, полный загадок и чудовищ, атмосфера которого будет держать вас в напряжении всю историю.
-Действие разворачивается в подземном Петербурге начала XX века - спустя 100 лет после нападения чудовищ на планету. Выжившие люди были вынуждены перебраться под землю и построить “новый мир”. Последующие поколения, полностью привыкшие (   Читать дальше...   )Тип издания: RepackРазработчик: FazanЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3960B58043FB486CB9DC59C8D2D953C25DECA1FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

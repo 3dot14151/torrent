@@ -1,3 +1,236 @@
+###  Публикация: 604547   (996063) от 18.01.2013
+
+Chris Spheeris - Greatest Hits (2CD) (2009) [MP3|320 кб/с]<New Age, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+CD1:01. Andalu
+ 02. Quiver
+ 03. Field Of Tears
+ 04. Eros
+ 05. Allura
+ 06. From Where They Fall
+ 07. Aria
+ 08. Laguna
+ 09. Bellaire
+ 10. Lanotte(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604293   (995224) от 21.01.2013
+
+Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native american>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+(5:00) 01. Qapaknan
+(5:30) 02. Love Montain
+(6:18) 03. Miracle
+(5:06) 04. Akuchimuy
+(5:55) 05. Sun Priste Dance
+(4:16) 06. The Last Mohican
+(4:49) 07. Brave Hearts
+(5:33) 08. Harmonia
+(4:34) 09. Morning Stars
+(6:06) 10. Sunquyman(   Читать дальше...   )Жанр: New age, Native americanПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29102383BDC07169D98827ECB391EFF1DFCB1962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606504   (995040) от 21.01.2013
+
+Дмитрий Маликов - Panacea (2012) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Задумавшись
+02. О суете
+03. О прошлом
+04. О невыполнимом
+05. С дыханьем музыки
+06. Счастливым
+07. Я становлюсь
+08. Уходит тень
+09. Душа наполнена
+10. Свежо(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607094   (994701) от 22.01.2013
+
+VA - Союз нерушимый... - Песни и танцы народов СCCP (5 CD) (2007) [FLAC|Lossless] <Retro/Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Retro/Folk |Продолжительность: 00:50:14
+
+01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
+02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608553   (993423) от 25.01.2013
+
+V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Dub - Insensatez (How Insensitive)
+02. Celso Mendes ft. Lua - Fotografia (Diva Mix)
+03. Karen Souza - Corcovado (Quiet Nights Of Quiet Stars)
+04. Lila ft. Rhythmic Control - Aquarela (Brazilian Tradition Mix)
+05. Aural ft. Ituana - Amanha Talvez
+06. Urban Love ft. Moana - Samba De Uma Nota So
+07. Lalann - Seguir No Caminho
+08. Sound Behaviour - Fixacao (Outro Lado Remix)
+09. Karen Souza - Do You Really Want To Hurt Me
+10. Os Alquimistas - Aguas De Marco (Unconscious Edit)(   Читать дальше...   )Жанр: Bossa, Chillout, LoungeПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352824   (992632) от 17.01.2020
+
+Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Where Art Thou (4:12)
+02. Dusty Room (2:42)
+03. Someone Who Forgot His Watch (3:42)
+04. Short Memory (2:45)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F805D4D7DD4D641536183BFB80875FC3B8A8D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608110   (992170) от 27.01.2013
+
+VA - Country Legends (12CD) (2005) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Rawhide01. Johnny Cash - Cry, Cry, Cry
+ 02. Charley Pride - Happiness Of Having You
+ 03. Frankie Laine - Granada
+ 04. Lynn Anderson - Heaven's Just A Sin Away
+ 05. Tina Turner - If It's Alright With You
+ 06. Jimmie C. Newman - A Fallen Star
+ 07. Anne Murray - It's All Over
+ 08. Patsy Cline - Hungry For Love
+ 09. Jim Reeves - Wind Up Doll
+ 10. Jerry Lee Lewis - Your Cheatin' Heart(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF32E4DE86015100417B04A45DE33682A3A8BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 301513   (990753) от 28.01.2013
 
 Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditative>
@@ -6,7 +239,7 @@ Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -41,7 +274,7 @@ Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -70,7 +303,7 @@ VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -105,7 +338,7 @@ Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +372,7 @@ VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -174,7 +407,7 @@ Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -203,7 +436,7 @@ Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, In
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -232,7 +465,7 @@ Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -261,7 +494,7 @@ Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -290,7 +523,7 @@ Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +552,7 @@ Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic O
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +581,7 @@ Deus Ex: Human Revolution (by Michael McCann) (2011) [FLAC|Lossless]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +616,7 @@ Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -417,7 +650,7 @@ Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +685,7 @@ Akira Kosemura - Buddhists (2016) 1631 Recordings [FLAC|Lossless|WEB-DL|tracks] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +714,7 @@ David Nevue - Awakenings: The Best of David Nevue 2001-2010 (2012) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +743,7 @@ David Nevue - Whisperings: The Best of David Nevue 1985-2000 (2001) [FLAC|Lossle
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -539,7 +772,7 @@ Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,7 +798,7 @@ Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,212 +812,6 @@ Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970808   (987322) от 02.01.2016
-
-Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music Of The Beatles (2001) SACD [FLAC|Lossless|tracks + .cue] <Pop, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleanor Rigby (Orchestral version) (3:24)
-02. All You Need Is Love (3:15)
-03. When I'm Sixty-Four (3:15)
-04. Michelle (3:32)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600345   (986533) от 01.02.2013
-
-VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumental, Pop, Retro, Vocal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986533.jpg" />
-</div>
-
-
-###  Подробнее
-
-49. Dancing On A Saturday Night - Barry Blue
-50. Dance The Body Music - Osibisa
-51. Nice 'n' Slow - Jesse Green
-52. He's The Greatest Dancer - Sister Sledge
-53. Kung Fu Fighting - Doug Carlson
-54. Upside Down - Hazel Fernandes
-55. Dance Little Lady - Tina Charles
-56. Blame It On The Boogie - Brotherhood of Man
-57. Y.M.C.A. - The Thymes
-58. It's Raining Men - Alison Jiear(   Читать дальше...   )Жанр: Instrumental, Pop, Retro, Vocal...Продолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354974   (986039) от 24.01.2020
-
-Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Check Point (01:21)
-02. Nurse Droid (01:08)
-03. The Ewebb (04:07)
-04. A Thousand Tears (04:07)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 03:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B61320E00E324B39A46EE046D719D8A98271105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354975   (985958) от 24.01.2020
-
-Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Check Point (01:21)
-02. Nurse Droid (01:08)
-03. The Ewebb (04:07)
-04. A Thousand Tears (04:07)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 03:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA7EA6D47CDD2E73305D002E92412C3C639A319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434927   (985265) от 11.01.2012
-
-Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005) [FLAC|Lossless]<Indian Classical, Bansuri Flute, Meditation, Relax>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indian Classical, Meditation, RelaxПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355261   (984976) от 25.01.2020
-
-Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonny Light Horseman (04:30)
-02. Deep In Love (05:09)
-03. The Roving (04:20)
-04. Jane Jane (03:06)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355154   (984868) от 25.01.2020
-
-VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oscar Salguero - Cbmo (Original Mix) 4:31
-02. Sunyata Project - Words Of Vishnu (Original Mix) 7:15
-03. Minka - Rainy Day (Original Mix) 5:33
-04. Rex Kramer - 2800M Above (Original Mix) 5:38(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, ElectronicaПродолжительность: 02:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C829429786327B1223A78A6E0E457E61972F37AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

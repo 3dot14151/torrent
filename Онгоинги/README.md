@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1871371   (1069533) от 
+
+Mahou no Shimai Lulutto Lily / Magical Sisters Lulutto Lilly / Волшебные сестры Лулутто Лилли [2026, TV, 6 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сёстры Фу и Руи раньше были близки, но в последнее время немного отдалились друг от друга. Однажды Фу сталкивается с таинственным космическим кораблём и обретает магические способности. В это же время Руи тоже обретает магическую силу, и обе превращаются во взрослых, которыми мечтают стать.Жанр: махо-сёдзё, музыкальный.Режиссер: Догэ СинтароЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F230FC6A2E5081F49DEBD0309A71AE9D0A0D0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870465   (1069103) от 
+
+Iya na Kao Sarenagara Opantsu Misete Moraitai Returns | Изобрази отвращение и покажи мне свои трусики: Возвращение [2026, Web, 2 из 12] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Супербогатый гениальный и успешный во всех видах спорта парень, который прежде не интересовался противоположным полом, однажды вдруг захотел увидеть трусики. Горничная в доме, одноклассница из старшей школы, девушка из книжного магазина — он не остановится, пока не увидит их трусики! Гений, серьёзно настроенный на то, чтобы увидеть трусики, мчит к цели на всех парах! (   Читать дальше...   )Производство: Uwan PicturesЖанр: эттиРежиссер: Фукасэ СаяЯзык озвучки: ЯпонскийСубтитры: Английские; Русские и другиеПродолжительность: 12 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFA232A3A25CC994B275EE9407C733D0A867139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869683   (1068530) от 
 
 Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukushimasu. Season 2 | Королева сделает для народа всё [ТВ-2] [2026, TV, 3 из 12 эп.] WEBRip 720p raw
@@ -7,7 +59,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Marika-chan no Koukando wa Bukkowarete Iru | Симпатия Марики [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Snowball Earth | Земля-снежок [2026, TV, 3 из 13 эп.] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +139,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana | Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +165,7 @@ Ichijouma Mankitsu Gurashi! / Жизнь в манга-кафе [2026, TV, 2 и�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +192,7 @@ Akane-banashi / Сказание об Аканэ [2026, TV, 3 из ?] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +218,7 @@ Yowayowa Sensei | Yowayowa Teacher | Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +245,7 @@ Yowayowa Sensei / Yowayowa Teacher / Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +272,7 @@ Yozakura-san Chi no Daisakusen (2026) | Операция: Семейка Ёдз�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +298,7 @@ Hokuto no Ken: Fist of the North Star | Кулак Северной звезды
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +327,7 @@ Aishiteru Game o Owarasetai / I Want to End This Love Game / Я хочу зак�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +353,7 @@ Kami no Shizuku | Drops of God | Слёзы Бога [2026, TV, 1 из 12] HDTVR
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +379,7 @@ Kill Ao | Kill Blue | Убивая юность [2026, TV, 1 из 12] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +406,7 @@ Tsue to Tsurugi no Wistoria 2 / Wistoria: Wand and Sword 2 / Меч и жезл 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +434,7 @@ Kuro Neko to Majo no Kyoushitsu / The Classroom of a Black Cat and a Witch / Ч�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -408,7 +460,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana / Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -434,7 +486,7 @@ Awajima Hyakkei | Scenes from Awajima | Сто видов Авадзимы [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +514,7 @@ Mamonogurai no Boukensha: Ore dake Mamono o Kuratte Tsuyoku Naru | Monster Eater
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +540,7 @@ Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken | Always a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,7 +566,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 4th / Classroom of the Elite IV 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +595,7 @@ Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? 2 / The Beginning After the 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,7 +623,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 3rd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,7 +651,7 @@ Dorohedoro Season 2 | Дорохедоро 2 [2026, Web, 3 из 11 эп.] WebRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -627,7 +679,7 @@ Mata Korosarete Shimatta no Desu ne, Tantei-sama / Killed Again, Mr. Detective? 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -638,58 +690,6 @@ Mata Korosarete Shimatta no Desu ne, Tantei-sama / Killed Again, Mr. Detective? 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E0C6D758341C557D3BAFEF58CB0FDEA4B4C4245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863281   (1063598) от 03.04.2026
-
-Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken 2 | The Angel Next Door Spoils Me Rotten 2 | Ангел по соседству меня балует [ТВ-2] [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшекласник Аманэ Фудзимия живёт в одном доме с первой красавицей своей школы, Махиру Сииной. Они почти не общались до тех пор, пока одним дождливым днём он не предложил Сиине свой зонтик. После этого она стала готовить, убирать и всячески заботиться о неряшливом Аманэ. Так начинается история их сближения и зарождающихся чувств.Производство: Project No.9Жанр: романтика, повседневностьРежиссер: Кумано ТихироПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D51836E81C4BD40C58DF268D11CD600AD966791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863285   (1063597) от 03.04.2026
-
-Tensei Shitara Slime Datta Ken (2026) | That Time I Got Reincarnated as a Slime (2026) | О моём перерождении в слизь [ТВ-4] [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миками Сатору — 37-летний одинокий сотрудник строительной компании, не слишком довольный своей рутинной жизнью, пока однажды в оной не случается крутой поворот. Получив удар ножом в спину от грабителя, перед смертью Миками слышит странный голос, а после его разум оказывается в теле слепого слизня в другом мире, напоминающем своим устройством ролевую игру. Встретив (   Читать дальше...   )Производство: 8bit / エイトビットЖанр: приключения, комедия, фэнтезиРежиссер: Цуда НаокацуПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D62AF91414C116E62944F427ACE1998D9AA7CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1211358   (777378) от 07.03.2018
+
+Distortions (2018) [En/Br] (1.0) Repack MAXSEM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Distortions (Искажения) – сюжетная музыкальная психологическая драма, героиня которой путешествует через неизвестную бескрайнюю и сюрреалистическую долину, созданную из искаженных воспоминаний ее жизни и прошлых отношений. Как далеко вы сможете пойти, что бы вернуть потерянную память? Искажения - это музыкальное путешествие по неизвестному, воображаемому миру. Войдите (   Читать дальше...   )Тип издания: RePackРазработчик: Among GiantsЖанр: Adventure, Surrealism, Musical, Psychodrams, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Бразильский (португальский)Язык интерфейса: Английский, Бразильский (португальский)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36A5366C72E716DD1E3600265B5CD009922F694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211903   (776625) от 09.03.2018
+
+I’m Lost (2018) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленный фильмом «Бегущие в лабиринте», I’m Lost бросает игрока в середину небольшого леса, окруженного лабиринтом. Вам нужно исследовать лабиринт и найти из него выход. По лабиринту разбросаны специальные оранжевые метки. Их можно активировать, тогда игроку будет понятно какие части лабиринта он посещал, а где еще не был.Тип издания: LicenseРазработчик: Donbass GamesЖанр: Adventure, Quest, IndieЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F226453E99BFA08202735835BA977333B5E16F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212114   (776355) от 10.03.2018
+
+Kathy Rain (2016) [Multi] (1.0.4) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События Kathy Rain разворачиваются в девяностых годах и рассказывают историю решительной журналистки, которой предстоит заглянуть в лицо прошлому в ходе расследования загадочной смерти своего деда. У Кэти есть мотоцикл, пачка сигарет и верный блокнот – все, что нужно, чтобы раскрыть тайну ее родного города, не отступая под натиском эмоций и не сдаваясь перед необходимостью (   Читать дальше...   )Тип издания: LicenseРазработчик: Clifftop GamesЖанр: Приключение, Квест, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B6597CB6C6F5BBAE777DDC18F377AC4C7193FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014361   (776238) от 07.05.2016
+
+Lost Horizon 2 (2015) [Ru/En] (1.0.3) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Lost Horizon 2 продолжит историю, начатую в предыдущей части. На сей раз главный герой Фентон Пэддок (Fenton Paddock) будет вовлечён в более опасную и личную круговерть событий. Опасность грозит его семье, так что придётся проявить чудеса изобретательности, разгадать массу тайн и спасти родных. Время действия — сороковые-пятидесятые годы прошлого века. Мировые сверхдержавы (   Читать дальше...   )Тип издания: RepackРазработчик: Animation ArtsЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43BDE13526C3D2A3A628A5DFCB11BB3FAF9997E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014788   (776038) от 08.05.2016
 
 Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack Other s
@@ -6,7 +110,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Soul Axiom (2016) [En] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Fragments of Him (2016) [En] (1.20) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ A Golden Wake (2014) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Lucius III (2018) [Ru/Multi] (1.190118112744.a) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/En] (1.03) Repack R.G. 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Life is Strange: Before the Storm (2017) [Ru] (1.3.0.2/dlc) Repack xatab [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/Multi] (1.03) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Kathy Rain (2016) [En/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ CHAOS;CHILD (2019) [En/Jp] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ Q U B E  2 / Q.U.B.E.2 (2018) [Ru/Multi] (1.0.0.7) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ Ad Exitum (2016) [En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Désiré (2016) [Ru/Multi] (1.0.1) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Beyond: Two Souls / За гранью: Две души (2019) [Ru/Multi] (511792
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ SONG OF HORROR (2019) [Multi] (1.22/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +659,7 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,110 +670,6 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B341660C92984B91FECB288124B48EBD6E63F175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387825   (768235) от 29.06.2020
-
-Someday You'll Return (2020) [Multi] (1.3) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не первый раз, когда она убежала. Но тебе не по себе ... на этот раз ты чувствуешь себя по-другому. Ваш герой - Даниэль (Daniel), отец Стелы (Stela), которого события заставили вернуться туда, куда он давным-давно  поклялся никогда не возвращаться... Но очередной побег дочери снова оттащил вас назад в прошлое. Ваш поиск ведет глубоко в древние моравские леса и (   Читать дальше...   )Тип издания: RepackРазработчик: CBE softwareЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, ЧешскийЯзык интерфейса: Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965978A85C5008F4473CE1247C1CC5B304FB871F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125750   (767716) от 15.04.2017
-
-Codename: Iceman (1990) [En] (1.033) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ныне практически забытый, а в своё время – почти культовый шпионский квест от Sierra. Вам предстоит играть за секретного агента Джонни Вестланда, отправленного на подводной лодке в Тунис, чтобы разведать обстановку около недавно обнаруженного крупного нефтяного месторождения и таинственных слухов вокруг него. Впрочем, это лишь начало: потом вам предстоит разоблачить (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C18A880570B557BD90E11EB5199AB9B829ABAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213988   (766519) от 19.03.2018
-
-Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.0.5) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая игра с глубоким сюжетом, повествующая о путешествиях, жизни людей и борьбе с судьбой. Используя яркие рисованные иллюстрации, Where The Water Tastes Like Wine объединяет двухмерную графику с трехмерной картой территории США. Неторопливо исследуйте загадочную Америку времен Великой депрессии и встречайте незнакомцев, каждому из которых есть что рассказать.Тип издания: LicenseРазработчик: Dim Bulb Games, Serenity ForgeЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C394E328896A4B43E33BEC4DF44B6D2DF6B2585B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168251   (766480) от 19.03.2018
-
-The Coma: Recut (2017) [Ru/Multi] (2.53) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766480.jpg" />
-</div>
-
-
-###  Подробнее
-
-В перевыпуске классического корейского хоррора вы снова попадете в школу Sehwa High. Вам предстоит вжиться в роль молодого корейца по имени Ёнхо, ученика этой школы. Его преследует убийца. Прячьтесь: Замрите в темноте или спрячьтесь. Выживайте: Используйте фонарик. Решайте загадки: Ищите записки и улики на учителей и учеников школы Sehwa High. Не умирайте: Берегитесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Digerati DistributionЖанр: Приключение, Экшн, ХоррорЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E61367869000832BD2BEECA52E198021EA66E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

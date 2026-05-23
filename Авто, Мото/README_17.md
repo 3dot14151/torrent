@@ -1,3 +1,165 @@
+###  Публикация: 1429564   (175134) от 08.12.2020
+
+WRC: ACI Rally Monza, 03-06.12.2020 [A21 Network Russian Motorsport Television]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по ралли (англ. World Rally Championship, WRC) — раллийная серия, проводимая Международной автомобильной федерацией (FIA) с 1973 года. Пришёл на смену Международному чемпионату по ралли для производителей, проводившемуся в 1970-1972 годах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:44:50 + 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73DC28405C57F7936B27C141349920C956E7058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430165   (174484) от 09.12.2020
+
+Формула-2. Сезон 2020. 12-й Этап. Гран-при Сахира. Гонка 1 (05.12.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+4-й Чемпионат ФИА Формула-2. Сезон 2020 года
+05 декабря 2020, суббота. 15:10 МСК
+12-й Этап. Гран-при Сахира. Сахир (Бахрейн)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E136E1A185B9328AB2A0931D19D1FBFA6F22242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430167   (174455) от 09.12.2020
+
+Формула-2. Сезон 2020. 12-й Этап. Гран-при Сахира. Гонка 2 (06.12.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+4-й Чемпионат ФИА Формула-2. Сезон 2020 года
+06 декабря 2020, воскресенье. 15:20 МСК
+12-й Этап. Гран-при Сахира. Сахир (Бахрейн)
+Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B1ABD0EDCE3A47AF2FEE1C39DF2E12448AF660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668927   (173234) от 14.10.2023
+
+MotoGP. Этап 15. Гран-при Индонезии. Спринт (14.10.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2023, суббота. 10:00 МСК. Этап 15 Мандалика. Гран-при Индонезии. Спринт (13 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B72BFB821092D16AEFD0724DDDB29F87C57073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668884   (173232) от 14.10.2023
+
+MotoGP. Этап 15. Гран-при Индонезии. Квалификация (14.10.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2023, суббота. 05:50 МСК. Этап 15 Мандалика. Гран-при Индонезии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7922AF8FCA144FB9670943F900D8A33FC77D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669191   (173025) от 15.10.2023
+
+MotoGP. Этап 15. Гран-при Индонезии. Гонка (15.10.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+15 октября 2023, воскресенье. 10:00 МСК. Этап 15 Мандалика. Гран-при Индонезии. Гонка (26 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAA743AC8D94D3420D44FDD78FFCFB8AE0FA18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670612   (171928) от 21.10.2023
 
 MotoGP. Этап 16. Гран-при Австралии. Квалификация (21.10.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +168,7 @@ MotoGP. Этап 16. Гран-при Австралии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +194,7 @@ MotoGP. Этап 16. Гран-при Австралии. Гонка (21.10.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +220,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Гонка (19.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +272,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +298,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Спринт (28.10.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +324,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Гонка (29.10.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +480,7 @@ MotoGP. Этап 18. Гран-при Малайзии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +506,7 @@ MotoGP. Этап 18. Гран-при Малайзии. Спринт (11.11.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +532,7 @@ MotoGP. Этап 18. Гран-при Малайзии. Гонка (12.11.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +558,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 1. Андорра. Гонка 1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +610,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +636,7 @@ MotoGP. Этап 19 из 22. Гран-при Австралии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +662,7 @@ MotoGP. Этап 19. Гран-при Катара. Квалификация (18.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -511,162 +673,6 @@ MotoGP. Этап 19. Гран-при Катара. Квалификация (18.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BE14D78BD205BBCA758D402F1D19B565CC9264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677764   (149373) от 19.11.2023
-
-MotoGP. Этап 19. Гран-при Катара. Спринт (18.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149373.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 ноября 2023, суббота. 20:00 МСК. Этап 20, Доха. Гран-при Катара. Спринт (11 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAEDE9B020CBDD26CDC341ED1FA6D1A3ECE4DBDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678150   (147623) от 20.11.2023
-
-MotoGP. Этап 19. Гран-при Катара. Гонка (19.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147623.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 ноября 2023, воскресенье. 20:00 МСК. Этап 20, Доха. Гран-при Катара. Гонка (22 круга)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643F37FC4E55A30AFA033EB79412D0851F83F6D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435771   (142168) от 29.12.2020
-
-Информационно-аналитическая программа об авто- и мотоспорте от телеканала A21 Network - Fastline (2020) WEB-DL [H.264/720p] [Специальный Новогодний выпуск, итоги 2020 года]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-аналитическая программа об авто- и мотоспорте от телеканала: A21 Network Russian Motorsport Television.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA17ACF91AE70EC307A135B3BB56423CD6409B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348832   (141673) от 29.12.2019
-
-Monster Jam: South Africa, Cape Town (27.04.2019) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Jam - это серия автоспортивных соревнований, проводимых компанией Feld Entertainment. Первые соревнования в серии прошли в 1992 году и были авторизованы United States Hot Rod Association. В основном соревнования проводятся на территории США, но есть и выездная международная часть в Японии, Нидерландах и Мексике. Формат соревнований иногда отличается зависимо (   Читать дальше...   )Телекомпания: A21 NetworkЖанр: АвтоспортПеревод: Одноголосый любительскийЯзык озвучки: РусскийПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2D4A2AAC9BB1E5B2E5E3DAE75C188B6D7E45B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679460   (138331) от 25.11.2023
-
-MotoGP. Этап 20. Гран-при Валенсии. Квалификация (25.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138331.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 ноября 2023, суббота 12:50 МСК. Этап 20, Валенсия. Гран-при Валенсии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CBE95BC2ACC8EACB8FEE6C5B857F3E3DC79A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679540   (138219) от 25.11.2023
-
-MotoGP. Этап 20. Гран-при Валенсии. Спринт (25.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138219.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 ноября 2023, суббота 17:00 МСК. Этап 20, Валенсия. Гран-при Валенсии. Спринт (13 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEFC09107E9D84AD1E3B7EF08BD5B5A3C39AD41
 ```
 
 https://mybot314.ru/tekegram_catalog/

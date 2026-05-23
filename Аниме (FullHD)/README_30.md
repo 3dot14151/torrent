@@ -1,3 +1,55 @@
+###  Публикация: 1130470   (565390) от 23.07.2017
+
+Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняющая духов [2016, TV, 12 эп. + OVA] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Матои Сумераги — ученица второго класса старшей школы, работающая на полставки служительницей в храме Тенман города Камая. С раннего детства Матои воспитывали бабушка и дедушка, и только несколько месяцев назад она наконец-то стала жить со своим отцом. У девушки есть близкая подруга-коллега Юма Кусанаги — дочка первосвященника храма, которая должна стать штатной (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Сакой МасаюкиПеревод: Mentat & Apostol  & Avant HeimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADC2612A3786317E5E7BF4A077DE2DEE81A1E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044634   (565047) от 20.08.2016
+
+Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эсперы, называемые в этом мире Минимумами, по-разному относятся к своему дару. Кто-то чувствует ответственность, а кто-то считает себя полубогом, для которого остальные – пыль под ногами. Справиться с такими непросто, но там, где пасует «королевская рать», на стражу закона становятся детективы-эсперы. Они не любят полицейской муштры и часто работают свободными художниками. (   Читать дальше...   )Жанр: приключения, детектив, мистикаРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E64A60FF075E6DDE37ED327CEA7FFBF1E4C5FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044635   (565031) от 20.08.2016
 
 Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p raw+eng
@@ -6,7 +58,7 @@ Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Rascal Does Not Dream 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Youjo Senki: Saga of Tanya the Evil | Военная хроника малень
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Shirogane no Ishi: Argevollen | Аргеволлен: Серебряная мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Re-Kan! | Ре-Кан! [2015, TV, 13] BDrip 1080p HEVC Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC | Мелодия воронё�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Calamity of the Zombie Girl | Aru Zombie Shoujo no Sainan | Месть восс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Devil Survivor 2 The Animation | Выжившие среди демонов 2 [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Break Blade /  Broken Blade / Сломанный Меч [2010, Movie, 6 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Slow Start / Медленный старт [2018, TV, 12] BDrip 1080p HEVC 10bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Bubblegum Crisis / Кризис каждый день [1987, OVA, 8 эп.] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Koro-sensei Quest! (2016) / Квест Коро-сэнсэя! (2016) [2016, ONA,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Senki Zesshou Symphogear AXZ / Последняя Песня Боевых При
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Nobunaga the Fool | Глупец  Нобунага [2014, TV, 24] BDrip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ Tonari no Seki-kun | Tonari no Seki-kun: The Master of Killing Time | Сэки, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ Toshokan Sensou: Kakumei no Tsubasa / Библиотечная война: Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ Basilisk: Kouga Ninpou Chou | Basilisk: The Kouga Ninja Scrolls | Василис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] BDRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A9B1134A234E5513DEE70F9D8436B5D2DC6F321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234118   (548718) от 27.07.2018
-
-Citrus | Цитрус [2018, TV, 12 эп.] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юзу Аихара — привлекательная девушка, которая переводится в новую старшую школу из-за повторной свадьбы матери. Юзу с нетерпением ждала этого дня, мечтая о сладкой любовной истории. Однако её фантазии оказались разрушены. Новая школа отличается своей консервативностью, а местный президент школьного совета — Мэй своей строгостью. Вдобавок ко всему Мэй, чья фамилия (   Читать дальше...   )Производство: студия Passione / パッショーネЖанр: повседневность, романтика, школа, юриРежиссер: Такахаси ТакэоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E25C5CDECC4346FAA79ACC88396B5EA7B351413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309948   (548653) от 22.06.2019
-
-Seikaisuru Kado | Seikai Suru Kado  | Kado: The Right Answer | Правильный ответ: «Кадо» [2017, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь генерального директора по планированию политики явно отличается от жизни обыкновенного офисного клерка, у которого на работе происходит мало что интересного. Но такого поворота судьбы наш высокопоставленный чиновник Коджиро Шиндо вряд ли ожидал. Он отправлялся на самолёте в очередную деловую поездку, как вдруг в небе появился огромный куб и поглотил Коджиро (   Читать дальше...   )Производство: студия Toei Animation / 東映アニメーションЖанр: приключения, фантастикаРежиссер: Мурата КадзуяПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790B2C4120E8001F6289DD4471FD7B7A696222D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

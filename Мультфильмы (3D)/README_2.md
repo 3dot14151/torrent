@@ -1,3 +1,56 @@
+###  Публикация: 629090   (932781) от 12.03.2013
+
+Бугай / Boogie, el aceitoso (2009) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Киллер по прозвищу Бугай начал свою карьеру во Вьетнаме, убивал черных повстанцев в Южной Африке, мочил красных в Никаргуа, глотал песок в Афганистане и Ираке. Он был на всех гребаных войнах за последние 30 лет! Раньше он убивал во имя демократии, теперь убивает за бабос!
+Этот заказ должен был стать последним — убрать бывшую телку Сонни Калабриа, дона всех донов, (   Читать дальше...   )Жанр: Мультфильм, Боевик, Криминал, 16+Режиссер: Густаво КоваПерсонажи: Пабло Эчарри,  Нэнси Дуплаа,  Николас Фриас,  Марсело Арман,  Руфино Галло,  Диего Брицци,  Рикардо Эланис,  Лучана Фалькон,  Карин Сабала,  Эрнан ЧьёззаПеревод: ДублированныйПродолжительность: 01:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7317855FD75D722D2692EAD864080267828BF02B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746093   (932642) от 07.02.2014
+
+Облачно... 2: Месть ГМО / Cloudy with a Chance of Meatballs 2 (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Все жители острова Поплавок покинули родной дом после событий предыдущего мультфильма. Главный герой Флинт Локвуд теперь работает в компании The Live Corp на своего кумира Честера. Но ему придется оставить свой пост когда он узнает, что его печально-известная машина все ещё работает и производит на свет опасных гибридов. Флинту предстоит ещё раз спасти мир и не дать (   Читать дальше...   )Жанр: Мультфильм, Фантастика, Фэнтези, Комедия, СемейныйРежиссер: Коуди Камерон, Крис ПирнПерсонажи: Билл Хейдер, Анна Фэрис, Джеймс Каан, Уилл Форте, Энди Сэмберг, Бенджамин Брэтт, Нил Патрик Харрис, Терри Крюс, Кристен Шол, Коуди КамеронПеревод: Дублированный /Лицензия/Продолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD2925E006589B757DB23D7C1F8FFCB7B1571AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 629823   (931335) от 13.03.2013
 
 Бумажный роман / Paperman (2012) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
@@ -6,7 +59,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -604,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E89CE9A6FAA6394283CAD9B8041F4EE537B8487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867415   (895918) от 12.02.2015
-
-Семейка монстров / The Boxtrolls (2014) BDRemux [1080p] 3D [3D/2D] [Re Encoding BD50 -> BD25]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда.Производство: США, Laika EntertainmentЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиАктеры: Бен Кингсли, Джаред Харрис, Ник Фрост, Ричард Айоади, Трэйси Морган, Ди Брэдли Бейкер, Стивен Блум, Ника Футтерман, Пэт Фрэли, Фред ТатаскьорПеревод: ДублированныйЯзык субтитров: Русский (полные форсированные 3d), Украинский (полные 3d) Английский (полные 3d)Продолжительность: 01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E77F29D6DA226CFCE484C3BB13A01007FEDA050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639221   (889993) от 05.04.2013
-
-Облачно, возможны осадки в виде фрикаделек / Cloudy with a Chance of Meatballs (2009) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой мультфильма — странный ученый Флинт Локвуд, который всегда хотел изобрести что-то такое, что сделает его родной городок счастливым. И вот, у него получилось! Еды теперь хватает всем, и она просто падает с неба, создавая новые пейзажи вокруг: можно любоваться закатом с живописных холмов из фруктового желе. Но иногда вкусные осадки в виде фрикаделек могут (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Комедия, СемейныйРежиссер: Фил Лорд, Крис МиллерПерсонажи: Билл Хейдер,  Анна Фэрис,  Джеймс Каан,  Энди Сэмберг,  Брюс Кэмпбелл,  Мистер Ти,  Бобби Дж. Томпсон,  Бенджамин Брэтт,  Нил Патрик, Харрис  Эл РокерПеревод: ДублированныйПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716A8084C22FF063FB55BB9FFA5F36B08776FE8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,195 @@
+###  Публикация: 1410164   (438080) от 20.09.2020
+
+Comfy Partition Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программа восстановит данные удаленные, как с рабочих, так и с поврежденных логических разделов. Comfy Partition Recovery предназначена для восстановления файлов, удаленных в результате любых мыслимых происшествий.
+
+Если ваши данные были утеряны после очистки корзины (Windows “Recycled Bin”), удалены без помещения в корзину “Shift” + “Del”, утеряны после форматирования (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C76CBB6FC638A1A10C1D41B9A12FB1ADB34002B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410466   (435963) от 21.09.2020
+
+Hetman Office Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Hetman Office Recovery поможет восстановить важные документы как с работоспособных, так и c повреждённых накопителей. В программе использован ряд алгоритмов, позволяющих восстанавливать документы с отформатированных и заново разбитых на разделы дисков, устройств с повреждениями файловой системы и загрузочной области. Доступен специальный режим для работы с изношенными (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0B069868E92EEA88F63E8E5D884D4A124D8207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410472   (435818) от 21.09.2020
+
+Hetman Word Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программа восстанавливает документы популярных пакетов Microsoft Office, Open Office, а также файлы Adobe PDF, текстовые файлы настроек и т.д. Hetman Word Recovery возвращает файлы с любых носителей информации c файловой системой FAT, exFAT, NTFS, ReFS, APFS, HFS, Ext2/3/4, ReiserFS, XFS и UFS.
+
+Интерфейс программы выполнен в качестве пошагового мастера. Найти и (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1324CC71B9A465D954BF3F9A2654995DC81A2808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410469   (435801) от 21.09.2020
+
+Hetman Excel Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Hetman Excel Recovery восстановит файлы электронных таблиц не только с исправных, но и с повреждённых носителей информации. Низкоуровневый алгоритм «Контентного анализа» не ограничивается анализом файловой таблицы, а считывает все данные с поверхности диска с целью обнаружения удалённых файлов. Программа восстановит Excel XLS, XLSX файлы с нечитабельных и повреждённых (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDE7A602DBF6A97ED37E374125E8D1EDF6A8A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410655   (433743) от 22.09.2020
+
+Hetman Uneraser 5.2 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Установите Hetman Uneraser до момента случайного удаления файлов, и вы избежите риска их перезаписи в будущем. Программа полностью русифицирована, занимает не более 15 МБ места на диске и никак не повлияет на работу вашего компьютера.
+
+Инструмент от Hetman Software находит и восстанавливает случайно удалённые, утерянные в результате вирусной активности или программной (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C21F467760B865EDAA6075DEA64E74BEB32E866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410650   (433464) от 22.09.2020
+
+Hetman Photo Recovery 5.0 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программа восстанавливает фотографии, удаленные с карт памяти SD, MicroSD, Compact Flash, USB-флешек, фотокамер, мобильных телефонов, смартфонов, планшетов, жестких дисков персональных компьютеров и ноутбуков.
+
+Интерфейс Hetman Photo Recovery напоминает инсталляционный мастер. Отвечая на простые вопросы мастера, Вы восстановите фотографии за несколько простых шагов. (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA305585E857A085F66253B8A8A256AD429C3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410852   (431635) от 23.09.2020
+
+Hetman FAT Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программа эффективно восстанавливает случайно удаленные файлы, данные, утерянные после форматирования. Поддерживая все версии файловой системы FAT, exFAT, восстанавливает информацию с USB-флеш-дисков, цифровых камер, различных типов карт памяти, жестких дисков.
+
+Программа восстанавливает информацию с множества моделей цифровых камер, планшетов, мобильных телефонов (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6179C49A5106DA65956726944D6B2922E1D3962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410854   (431546) от 23.09.2020
 
 Hetman NTFS Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
@@ -6,7 +198,7 @@ Hetman NTFS Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +226,7 @@ Hetman Partition Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +254,7 @@ Macrium Reflect v7.3.5925 x64 Home [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +282,7 @@ Acronis Backup 12.5.16363 BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +308,7 @@ DiskGenius Professional 5.0.0.589 RePack by WYLEK [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +334,7 @@ Runtime GetDataBack for NTFS & FAT 4.32 [Rus] RePack by kuchkan + Portable
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -168,7 +360,7 @@ Acronis Bootable ISO Images 2020 by andwarez 08.10.2020 [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +386,7 @@ Comfy Partition Recovery 1.0 Commercial Edition [Русский + Английс
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -222,7 +414,7 @@ FonePaw iPhone Data Recovery 7.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +442,7 @@ FoneLab Android Data Recovery 3.0.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +471,7 @@ ApeakSoft iOS Toolkit 1.1.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +499,7 @@ AnyMP4 Android Data Recovery 2.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,7 +525,7 @@ ApeakSoft Android Toolkit 2.0.62 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +552,7 @@ SyncBackFree 10.2.49.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -387,7 +579,7 @@ FileRecovery 2015 Enterprise 5.5.7.9 Portable by poni-koni [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +605,7 @@ iBeesoft Data Recovery 2.1 RePack by вовава [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +631,7 @@ Raise Data Recovery for FAT | NTFS 5.18.1 (DC 27.10.15) Portable by poni-koni [R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +657,7 @@ FoneLab Data Retriever 1.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +683,7 @@ Wondershare Recoverit Ultimate 8.2.3.5 RePack (& portable) by elchupacabra [Mult
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,191 +694,6 @@ Wondershare Recoverit- мощная и простая в использован�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8F17F35F2D50B7AA5DC1574CA7AE0A33F800490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579440   (336290) от 27.09.2022
-
-Aiseesoft Data Recovery 1.5.6 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Data Recovery - это мощное и безопасное программное обеспечение для восстановления данных. Оно может помочь вам восстановить почти все удаленные / потерянные файлы, такие как фотографии, документы, электронные письма, аудио, видео и многое другое с компьютера, жесткого диска, флэш-накопителя, карты памяти, цифровой камеры и так далее.
-Aiseesoft Data Recovery (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCAC3BF3EA2E5BB9952C8349FE9F77EF93853E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956665   (329171) от 15.11.2015
-
-Syncovery Pro 7.25a Build 211 [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Syncovery - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Super Flexible Software. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно к компьютеру, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364448F957C804AA5E433E68D9615B175B27C569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957111   (328200) от 16.11.2015
-
-UFS Explorer Professional Recovery 5.18.1 Portable by poni-koni [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328200.jpg" />
-</div>
-
-
-###  Подробнее
-
-UFS Explorer Professional Recovery разработан практикующими специалистами и имеет интерфейс, ориентированый на профессионалов. Содержит набор инструментов для низкоуровневого анализа и восстановления данных, включая восстановление RAID массивов любой сложности.
-Позволяет успешно работать со сложными случаями потери данных на широком спектре файловых систем. Версия (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF06A89010DB654E76A022621511D51EB7578340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420802   (323819) от 02.11.2020
-
-RecoveryRobot Pro 1.3.3 (акция comss) [Multi]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнофункциональное, универсальное программное обеспечение для восстановления файлов практически при любых условиях потери данных. Хотя он очень универсален в своих возможностях восстановления данных, он не требует профессиональных навыков в процессе восстановления данных. Весь процесс восстановления данных задуман как пошаговый, поэтому все, что вам нужно сделать, (   Читать дальше...   )Язык интерфейса: Английский и др. (Русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D0DDB16BB83A1ABC9973D620B22EE589D2D1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958386   (323094) от 21.11.2015
-
-TestDisk & PhotoRec 7.0 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323094.jpg" />
-</div>
-
-
-###  Подробнее
-
-TestDisk это мощная бесплатная программа для восстановления данных! Она была разработана в первую очередь, что бы помочь восстановить утраченные разделы и/или восстановить загрузочную способность дисков если эта проблема вызвана програмно, вирусами или ошибками человека (таких как случайное удаление Таблицы Разделов). Восстановить Таблицы Разделов TestDisk-ом очень (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE90F8A622AF95974E96835F9B5F15EE096E542B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958661   (321107) от 22.11.2015
-
-GetData Recover My Photos 4.4.6.1608 [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recover My Photos - это программное обеспечение для восстановления удаленных фотографий с камеры карты, USB накопителя или вашего жесткого диска. С помощью данной программы вы сможете легко восстановить все необходимые вам цифровые фотографии, которые были случайно полностью удалены с жесткого диска или с карты памяти, на которой они раньше находились и были по ошибке (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08FE5BBA927E8C6FFADD631DCDE001A64FF7299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331836   (320470) от 17.10.2019
-
-TogetherShare Data Recovery 7.0 Professional / Enterprise / AdvancedPE RePack (& Portable) by TryRooM [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320470.jpg" />
-</div>
-
-
-###  Подробнее
-
-TogetherShare Data Recovery служит для восстановления утраченных данных с ПК, серверов или ноутбуков. Она способна восстанавливать файлы с удаленных или поврежденных разделов жесткого диска, а так же восстанавливать данные с отформатированных дисков с переустановленной Windows, с RAID-массивов, USB-флешек, карт памяти и прочих носителей.
-Позволит восстановить нужные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F273DCF0A7E4E48F637BC18B09B17591B206653
 ```
 
 https://mybot314.ru/tekegram_catalog/

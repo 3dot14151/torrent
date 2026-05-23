@@ -1,3 +1,84 @@
+###  Публикация: 1521926   (761521) от 05.01.2022
+
+Английский словарь - 90 000 слов с картинками v141.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+💘💘💘Любят и доверяют во всем мире 🥇🥇🥇
+🏆 «Английский словарь - 90 000 слов с картинками» был назван приложением года по версии Facebook.
+😃 Начинающий или продвинутый ученик, путешественник или бизнесмен - это приложение для американского английского отлично работает и динамически подстраивается под ваши (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 23 декабря 2021 г.Разработчик: 90.000 Words & Pictures - © 2021 EducationПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6427B736FE5F11EBD58200A477D37040A05A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522311   (760060) от 06.01.2022
+
+Weather Live Wallpapers v1.74 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Взгляни на погоду по-новому!
+Движение солнца, осадки и фаза луны – реалистичная анимация на экране, с великолепно проработанными деталями. Живописный пейзаж отражает погоду с потрясающей точностью. Наслаждайтесь восходом солнца, радугой, пением птиц и каждым солнечным бликом!Тип издания: Пиратка (Pro+Paid)Релиз состоялся: 2 декабря 2021 г.Разработчик: SkySkyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F5E9029C1B8A05EB1D9ABF9656CDE5A8ACEFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551401   (759964) от 07.07.2020
+
+Network Signal Info Pro 5.55.14 (Paid) [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сигнал сети профессиональная информация / Network Signal Info Pro даёт подробную информацию об используемой в настоящий момент сети, будь то беспроводная сеть или мобильное соединение.Тип издания: ПираткаРелиз состоялся: 02.07.2020Разработчик: OOO KAIBITS Software GmbHПоддерживаемая ОС: Android. 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9202ED03C5C1024D5B88B1FAF0146EFA6AA8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522074   (759921) от 06.01.2022
 
 Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
@@ -6,7 +87,7 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Malwarebytes Anti-Malware v3.9.1.68 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +140,7 @@ Money Pro v1.6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +166,7 @@ TrackChecker Mobile v2.22.20 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +192,7 @@ BrainBurn Тренировка Памяти v0.8 [Multi/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +244,7 @@ OttPlayer v2.0.9 [Ru/Multi] - бесплатный плеер для просм�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +322,7 @@ Listonic v6.44.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +348,7 @@ Cross Stitch Paradise v1.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +374,7 @@ Tomorrow.io: Прогноз погоды v2.10.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +401,7 @@ AccuWeather - прогноз погоды v7.17.1-2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +428,7 @@ Unit Converter Plus v1.4.5.19.2 [Ru/Multi] - многофункциональн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +454,7 @@ Weather Underground v6.11.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +536,7 @@ Corel Painter Mobile v2.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +562,7 @@ MeMeteo: прогноз погоды v4.1.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +588,7 @@ aTorrent - Torrent Downloader v3093 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +640,7 @@ VPN Россия: Русский IP proxy v1.84 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +666,7 @@ VirusTotal Mobile v2.3.9 Mod by papasha55 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,87 +677,6 @@ VirusTotal Mobile дает возможность проверить все ус
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F43CB7786AF18D72E64BF21F557FFF453B06BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524121   (746248) от 14.01.2022
-
-Советские плакаты v1.3.9 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как гости из прошлого, плакаты советских времён хранят дух великой эпохи. Когда-то они были обычными агитматериалами, сегодня же стали антиквариатом, свидетелями жизни простых советских людей.
-
-Советские плакаты — это не просто образец советской графики, это еще и индикатор жизни советского народа, своеобразная машина времени, которая перенесет вас на десятилетия (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 5 августа 2021 г.Разработчик: Macsoftex CompanyПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1E53DF5AA96F79E1DF41578710310F8E80343C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524311   (744994) от 15.01.2022
-
-Greenify v4.7.5 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744994.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Агрессивные Doze» и «Doze на Go», чтобы максимально экономно расходовать заряд батареи на Android, даже без рута! (Подробности описаны в настройках). Суть программы, как и у многих аналогов, в отключении ненужных процессов и продлении автономной работы устройства. Greenify усыпляет программы, работающие в фоновом режиме — так они не потребляют энергию, но если приложение (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 15.11.2019Разработчик: Oasis FengПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAD30D999DEE501E0DD7DE930AE490A8F6C644C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524345   (744985) от 15.01.2022
-
-Погода и Виджет - Weawow v4.7.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Weawow — это погодное приложение, дополненное красивыми фотографиями на тему погоды, которые сделаны фотографами по всему миру.
-Фотографии отражают текущую погоду в вашем месте: ясная, облачная, дождливая или снежная, чтобы вы могли решить, нужен ли вам зонтик или солнцезащитные очки, когда вы выходите на улицу.Тип издания: Пиратка (Full)Релиз состоялся: 14 января 2022 гРазработчик: weawow weather appПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E661D505CA8E9E1E374A62868B2DED9675858BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

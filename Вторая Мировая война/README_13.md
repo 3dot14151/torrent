@@ -1,3 +1,56 @@
+###  Публикация: 1324885   (382786) от 21.09.2019
+
+Величайшие события Второй мировой войны (Важнейшие ... в цвете) / Greatest Events of WWII in Colour (... World War II ...) (2019) HDTVRip [H.264/1080p-LQ] (серии 10 из 10)
+
+>>След.
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий рассказ историков, проиллюстрированный тщательно отреставрированными и раскрашенными документальными кадрами, оживляет чрезвычайно важную эпоху в истории. От немецкой «Молниеносной войны» с Францией, героической защиты Великобритании, кровавого перелома под Сталинградом, нападения японцев на Перл-Харбор и американского ответного удара при Мидуэй - до (   Читать дальше...   )Производство: Великобритания, Head Gear Films, Metrol Technology, World Media Rights ProductionsЖанр: Документальный, война, историяРежиссер: Ники БолстерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635BBB670954F9F9D7DB543081302CC6FC0729EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173018   (380944) от 17.10.2017
+
+Правда о Пёрл-Харборе / Pearl Harbor: The Truth (2016) HDTVRip [H.264/720p-LQ] (2 серии из 2)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+К 75-й годовщине внезапного нападения японцев на Пёрл-Харбор. Остается много вопросов, в частности, что Вашингтон знал о предстоящем нападении и какие действия предпринимал? Было перехвачено огромное количество радиограмм между Токио и его посольством. Почему о них не знал ни один высших офицеров, ответственных за защиту Оаху?
+Захватывающий сериал из двух частей (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, историяРежиссер: Кристофер СпенсерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 1 х ~ 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BCAC7699D3FD38576D1A61572A6A20E008E0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173011   (380932) от 17.10.2017
 
 Правда о Пёрл-Харборе / Pearl Harbor: The Truth (2016) HDTVRip (2 серии из 2)
@@ -6,7 +59,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +142,7 @@ BBC: Дюнкерк / Dunkirk (2004) DVDRip (3 серии из 3)
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +169,7 @@ NG. Взгляд изнутри: Вторая мировая война / Inside
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +300,7 @@ History Channel. Нацисты на наркотиках: Гитлер и бл�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +642,7 @@ National Geographic. Капитуляция / Surrender (2015) HDTVRip [H.264/72
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +668,7 @@ National Geographic. Капитуляция / Surrender (2015) HDTVRip (сери
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,58 +679,6 @@ National Geographic. Капитуляция / Surrender (2015) HDTVRip (сери
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA25F30534B6E2458881B482397EA3A373EB635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331149   (334675) от 13.10.2019
-
-NG. Капитуляция / Surrender (2015) HDTVRip [H.264/1080p-LQ] (серии 2 из 2)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334675.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 апреля 1945 года, советские войска взяли Рейхстаг, а Гитлер покончил с собой в своем бункере. 7 и 8 мая 1945 года, капитуляция Германии была подписана одновременно в Реймсе и Берлине. После шестилетнего кровопролитного конфликта Германия сдалась. Война в Европе завершилась. По всему континенту выжившие, с тяжелым сердцем празднуют освобождение. Европа в руинах, (   Читать дальше...   )Производство: Франция, Roche Productions and TF1, National GeographicЖанр: Документальный, война, историяРежиссер: Жан-Франко ДелассуПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 2 х ~00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA38029583B0175DF6B44DBBCF69733592CDFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542266   (332957) от 29.09.2022
-
-Бабий Яр. Контекст / Babi Yar. Context (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Лозница объединился с музеем «Бабий Яр», чтобы собрать исчерпывающее исследование истории киевского урочища, в котором остались навеки похоронены десятки и сотни тысяч человек, расстрелянных нацистами, в том числе огромное количество евреев.Производство: Нидерланды, Украина / Atoms & VoidBabyn, Yar Holocaust Memorial CenterЖанр: Документальный, ИсторияРежиссер: Сергей ЛозницаПеревод: ОтсутствуетЯзык озвучки: Русский, украинский, немецкий, польскийСубтитры: Английские (hardsub), русские (на английские титры)Продолжительность: 02:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836740BD29BD611F7376EF46541DE409176972F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

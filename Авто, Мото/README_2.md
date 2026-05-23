@@ -1,3 +1,159 @@
+###  Публикация: 1460249   (1022805) от 04.04.2021
+
+Международный чемпионат электрических внедорожников Extreme E. Сезон 2021. Этап 1. Саудовская Аравия. Квалификация 1, 2, Полуфинал, Финал / Extreme E 2021, Round 1. Saudi Arabia. Quali 1, 2, Semi-F ...
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Extreme E — это санкционированная FIA международная серия гонок по бездорожью, в которой используются специальные электрические внедорожники для гонок в отдаленных частях мира, таких как тропические леса Амазонки или Арктика.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:07:55 + 02:14:05 + 01:38:20 + 02:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB628BD183A2D1967C525785A2097913C5B2ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460325   (1022800) от 04.04.2021
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Дохи / MotoGP 2021. Doha GP (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE74B7CEDE1C9BD68017816939BC6BFD45509617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460363   (1022539) от 05.04.2021
+
+MotoGP. Этап 02. Гран-При Дохи. Гонка. (04.04.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+04 апреля 2021, воскресенье. 20:00 МСК. Этап 2, Доха. Гран-при Дохи, Катар. ГонкаЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 01:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC23DD56F7A283AA42A2FF6710F30CE2294F2CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461954   (1021625) от 11.04.2021
+
+Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Атланта 1 / AMA Supercross Championship. Atlanta 1 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F810498AF7E552099403C7F025E27EBCF7B12AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461674   (1021581) от 11.04.2021
+
+Чемпионат мира по шоссейно-кольцевым гонкам Формула Е. Сезон 2021. Этап 3. Рим. Квалификация 1, Гонка 1 / Formula E. 2021. R3. Rome E-Prix. Quali 1, Race 1 (10.04.2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+3 этап электрической формулы Formula E в Риме, Италия.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:32:47 + 01:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C23A84C7813979267F0A22F39235A3BD724A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461949   (1021441) от 12.04.2021
+
+Чемпионат мира по шоссейно-кольцевым гонкам Формула Е. Сезон 2021. Этап 4. Рим. Квалификация 2, Гонка 2 / Formula E. 2021. R4. Rome E-Prix. Quali 2, Race 2 (11.04.2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+4 этап электрической формулы Formula E в Риме, Италия.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:25:32 + 01:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65474FBE94A49E4F1EFC5C4ACA6680AB73D95B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462321   (1021221) от 14.04.2021
 
 Серия Кубков NASCAR 2021. Этап 8. Блю-Эму Максимум Пэйн Релиф. Гонка / NASCAR Cup Series 2021. Blue-Emu Maximum Pain Relief 500 (2021) WEB-DL [H.264/720p-LQ]
@@ -6,7 +162,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +188,7 @@ MotoGP. Этап 03. Гран-При Португалии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +241,7 @@ MotoGP. Этап 03. Гран-При Португалии. Гонка (18.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +632,7 @@ MotoGP. Этап 04. Гран-При Испании. Квалификация. (
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,163 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D41D3E36A4893AFDC731B8890BCC8384314FDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467398   (1017948) от 03.05.2021
-
-Серия Индикар. Сезон 2021. Этап 4. Техас 2 / NTT Indycar Series 2021. Round 4. Xpel 375 (02.05.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Индикар — главная серия гонок на машинах с открытыми колёсами в Северной Америке. Чемпионат был создан под именем Indy Racing League владельцем Индианаполис Мотор Спидвей Тони Джорджем, как более дешёвая и полностью американская альтернатива серии CART. Чемпионат проводится с 1996 года.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E8EC81C5F8F0ED296BFFAC7985C1F7D7549776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467193   (1017916) от 03.05.2021
-
-Чемпионат США по супербайку 2021. Этап 1. Атланта. Гонка 1-2 / MotoAmerica 2021. Rd. 1. Road Atlanta. Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017916.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoAmerica — это организация, которая продвигает серию AMA Superbike с 2015 года. С санкции Американской ассоциации мотоциклистов и Международной федерации мотоциклистов она предлагает пять классов шоссейных гонок: Superbike, Stock 1000, Supersport, Twins Cup и Junior Cup.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:01:49 + 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2B14889019C75180394C384D3F3036E1CE8C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467138   (1017875) от 03.05.2021
-
-Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Испании / MotoGP 2021. Spanish GP (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017875.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3568E86A116A3EE47B083A11196949C9EA91A589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467146   (1017872) от 03.05.2021
-
-Кубок мира по электробайкам MotoE 2021. Этап 1. Гран-При Испании / FIM Enel MotoE World Cup 2021. Rd 1. Spanish GP  (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017872.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoE, официальное название FIM Enel MotoE World Cup, это класс мотоциклетных гонок в которых используются только электрические байки. Серия была одобрена FIM и первый сезон пройдёт на пяти европейских трассах в рамках поддержки чемпионата MotoGP в 2019 году.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FCFA00AF81994832E5B919A9AA8D83F6243694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467259   (1017854) от 03.05.2021
-
-MotoGP. Этап 04. Гран-При Испании. Гонка. (02.05.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017854.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 мая 2021, воскресенье. 15:00 МСК.
-Этап 4, Херес. Гран-при Испании. ГонкаЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 01:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFB732350B55F083DE84BAA6C7CA166450BDC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467462   (1017754) от 04.05.2021
-
-Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Солт-Лейк-Сити, Финал / AMA Supercross Championship. Salt Lake City, Final (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017754.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2EAC2885E237762A93C2352956EA942C496E9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

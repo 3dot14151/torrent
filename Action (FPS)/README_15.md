@@ -1,3 +1,107 @@
+###  Публикация: 1122692   (721931) от 28.04.2017
+
+Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fighter Bundle]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Homefront®: The Revolution — После 4-х лет оккупации Америка на коленях. В Филадельфии, бывшей родине независимости, с жителей не спускают глаз, подавляя любое инакомыслие. Некогда гордые граждане живут в полицейском государстве и вынуждены выживать; мечты о свободе давно угасли. Однако в бесплодных землях Красной Зоны формируются силы Сопротивления. Партизаны готовы (   Читать дальше...   )Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8AB014A2D46542A191DD6787386E6FD7208C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023810   (721491) от 06.06.2016
+
+Dead Island: Riptide (2016) [Ru/Multi] (1.0) Repack YelloSOFT [Definitive Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Dead Island Riptide Definitive Edition – переиздание, состоящее из серьезно улучшенной версии зомби-экшена Dead Island Riptide и всех выпущенных DLC. Dead Island Riptide является спин-оффом Dead Island, который разработан на улучшенном движке. В игре появилась новая система погоды, включающая наводнения и необходимость преодолевать кишащие зомби реки на маленьких (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Action, 1st Person, 3D, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35539DA8C51BAAAA88AF65BFA554E3434556E216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185301   (720897) от 10.04.2018
+
+Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мегатонный Ливень - игра в супергероя от первого лица. Вы один на один с глобальным инопланетным вторжением. Гоняйтесь на сверхзвуковой скорости за орудиями массового поражения вокруг Земли - огромной, как настоящая. Затем уничтожьте устройства врагов мегамощными взрывами. Старайтесь не убивать людей! Вы так сильны, что если промахнетесь - снесете полгорода!Тип издания: LicenseРазработчик: Pentadimensional GamesЖанр: Экшн, От первого лица, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB7156B8DF7ACB8F3C26681A709D18446CB7A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129618   (719992) от 29.04.2017
+
+Serious Sam: The Second Encounter / Serious Sam. Второе пришествие (2002) [En] (1.07) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сэм возвращается, чтобы снова сразиться с заклятым врагом Менталом. Отыскав космический корабль сирианцев в Древнем Египте, Сэм Стоун угнал его и начал преследовать Ментала. Но, к сожалению, звездолет потерпел крушение в горах Южной Америки. Теперь, окруженный еще более могущественной армией Ментала, Сэм пытается проложить себе дорогу к его крепости, чтобы раз и (   Читать дальше...   )Тип издания: LicenseРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5E6916CF119FAD13C2777B21A67880CB80A7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129691   (719984) от 29.04.2017
 
 Immortal Redneck (2017) [Ru/Multi] (1.1.0) License PLAZA
@@ -6,7 +110,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Hellbound (2020) [En] (1.0.1) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.3) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Enemy Front (2014) [Ru/En] (3.4.4.6290/upd4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Hellpoint (2020) [Ru/Multi] (1.01) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Relicta (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Fear of Clowns (2017) [En] (1.01) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +295,7 @@ SINISTRY SILINIUM (2018) [Ru/En] (1.04) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) License PLAZA [Episode 1-3
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) Repack Other s [Episode 1-
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Clockwise (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Tick Tock Bang Bang (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ The Park (2015) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Star Rage VR (2017) [En/Ch] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Alien: Isolation (2014) [Ru/En] (1.0u9/dlc) Repack Decepticon [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ I Expect You To Die (2017) [En] (1.0.113008) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ FireStarter (2004) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Hold Out (2020) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.1.26717up2) Repack xatab (обновля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ The Inevitability (2017) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ The Occupation (2019) [Ru/Multi] (1.02) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +659,7 @@ Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,110 +670,6 @@ Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB97EE9F61C280A4A3BC94760470B3131997E9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287507   (702851) от 07.03.2019
-
-Yakuza Kiwami (2019) [En/Jp] (1.0/upd2) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальная сага Yakuza возрождается на PC! Полностью переработанный геймплей позволит вернуться к истокам саги Yakuza, чтобы вместе с главным героем Кадзумой Кирю пробиваться сквозь ряды Якудзы, защитить маленькую девочку, чья тетя и по совместительству возлюбленная Кирю с детства, исчезла… а вместе с ней и 10 миллиардов йен.Тип издания: RepackРазработчик: SEGAЖанр: Action, RPG (Open World), 3rd Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D6A97F3E63C2CF3C88F8774F5840E22884E780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220685   (702191) от 20.04.2018
-
-Mike was Сursed (2018) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702191.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некогда тихом канадском городке с небольшим населением в 17 тысяч человек начинают пропадать люди, в частности молодые женщины и дети. Супруг одной из пропавших узнает о случившемся и спешно возвращается из командировки. По прибытии он понимает, что пострадала не только его семья. Весь город в панике. Городская власть и полиция штата в смятении. Добровольцы создают (   Читать дальше...   )Тип издания: LicenseРазработчик: Bogdan SychkovЖанр: Adventure (Horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274343CB348EC0563EAA5EC9471DDB88C1A5B4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132922   (698376) от 10.05.2017
-
-Inner Voices (2017) [Ru/Multi] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inner Voices - сюрреалистическая приключенческая хоррор игра от первого лица с элементами rogue-like, в мире, вдохновленным рассказами о Ктулху Г. Ф. Лавкрафта, и работами Э. А. П, а также С. Кинга. Вы будете продвигаться по сюжету, разгадывая головоломки с разным уровнем сложности. Позвольте мистическому голосу направлять Вас через таинственные уголки жизни Джона (   Читать дальше...   )Тип издания: LicenseРазработчик: Sigma GamesЖанр: Adventure, Horror, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EB493C19F92B4E0B7D72FC76B732CF77708A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129076   (698244) от 10.05.2017
-
-Outlast 2 (2017) [Ru/Multi] (1.0.17512) Repack =nemos=
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outlast 2 – это продолжение Outlast, популярной игры в жанре «хоррор». Ее события разворачиваются в той же вселенной, но уже с другими действующими лицами и в совершенно другом месте. Outlast 2 предоставляет уникальную возможность погрузиться в бездну человеческого разума, скрывающего по-настоящему страшные тайны. Ни одно противостояние нельзя разделить на «белых» (   Читать дальше...   )Тип издания: RepackРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F14587BAA2C15ADCE4696A061B62236A0981A9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1547776   (238618) от 29.04.2022
+
+ArtStation, Tyler Smith | UE4 VFX Ocean Material Tutorial (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Полный разбор создания материала Океана с нуля, в UE4, при помощи создания текструры в ZBrush, Photoshop, и использования редактора материалов Unreal. Начнем с создания мешей и текстур в Photoshop, Zbrush и Maya, при помощи фотобаша, лепки и рисования. Затем мы настроим главный материал в UE4. Мы закончим сборкой всего этого вместе при помощи гибких образцов материалов, (   Читать дальше...   )Производство: ArtStationЖанр: Создания Материала UE4Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B3504638528F0CA9B36FA832C1D24CEBEFF450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547730   (238607) от 29.04.2022
+
+CGcircuit, Steven Knipping | Applied Houdini Rigids II version 2.0 (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс является обновлением одного из моих самых популярных курсов. Мы будем процедурно моделировать здание с помощью инстансов, чтобы сделать супер экономичную в плане памяти и детализированную симуляцию твердых тел. Это красивое здание из стекла и бетона будет держаться вместе с помощью системы кастомных ограничителей, а потом мы будем взрывать его раз за разом, (   Читать дальше...   )Производство: CGcircuitЖанр: СимуляцияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 05:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DABAC106CA1B6A0D9CBC2A28384F629F1FD4653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572845   (238515) от 29.08.2022
+
+Gumroad, Lance Wilkinson | Keyshot Passes and Photoshop Composite (2017) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В этих видео я покажу вам мой рабочий процесс и сетап в Keyshot, а также методы генерирования рендер-пассов для их дальнейшего использования в Photoshop. В Photoshop мы слоем за слоем создадим финальный композит, и помимо этого, слегка изменим наш композит в реал-тайме, для того чтобы показать вам техники, которые я для этого использую.Производство: GumroadЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D64674DBB72035BECBED2BECC0BB53E35D2778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628882   (238497) от 24.04.2023
 
 Ольга Базанова | Сочный десерт (2023) WEB-DL [AD] [RU]
@@ -6,7 +84,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +142,7 @@ FlippedNormals, Chunck Trafagander | UV Mapping for Games (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -90,7 +168,7 @@ Alessandro Zamboni | Discover The Secrets To Creating Bestselling Sticker Design
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -119,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -148,7 +226,7 @@ Gumroad, Henrique Campanha | Painting a Realistic Skin Texture using Mari (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -176,7 +254,7 @@ Pluralsight, Dan Cox | Realistic Texturing of Modular Structures in Substance Pa
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -202,7 +280,7 @@ Motiondesign.school, Markus Magnusson | Science of Character Animation (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -228,7 +306,7 @@ CGcircuit, Steven Knipping | Applied Houdini Volumes I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -254,7 +332,7 @@ Michael Pavlovich | Substance Designer Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -282,7 +360,7 @@ Skillshare, Neil Bettison | Blender 3 - The Beginners Ultimate Stylized Scene Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -308,7 +386,7 @@ Michael Pavlovich | Substance Painter Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -336,7 +414,7 @@ Gumroad, Daniel Thiger | Tree Bark Creation (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -362,7 +440,7 @@ Skillshare, Aniket Rawat | Creating a Kitchen Environment in Unreal Engine 5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -389,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -415,7 +493,7 @@ Lynda, Brenda Romero | Game Design Foundations: 1 Ideas, Core Loops, and Goals (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +519,7 @@ The Gnomon Workshop, Bill Buckley | Creating Game Ready Animations for Productio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -467,7 +545,7 @@ WingFox, Pedro Blanco | Sci-Fi Environment Design Concept Art Course (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -493,7 +571,7 @@ Udemy, Hamid Reza Afshari | 3ds Max 2023 for Beginners (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -519,7 +597,7 @@ Udemy, Imran Nuruhussen | Complete Blender Course: From modelling to a short ani
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -546,7 +624,7 @@ FlippedNormals, Emiel Sleegers | Advanced Texturing in Substance Painter (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -573,7 +651,7 @@ The Gnomon Workshop, Guilherme Rambelli | Creating Assets for Games using Photog
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -599,7 +677,7 @@ Udemy, Руслан Брантов | Курс по CorelDRAW: теория, пр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -610,89 +688,6 @@ Udemy, Руслан Брантов | Курс по CorelDRAW: теория, пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1079BF45027315EA1233E8DBA358AD16BF1404ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631873   (235724) от 07.05.2023
-
-Художник Online, Ольга Кабаева | Марафон «Акварельные города» (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235724.jpg" />
-</div>
-
-
-###  Подробнее
-
-На уроках вы узнаете о том, как использовать свойства разных видов акварельной бумаги (целлюлоза, 50% и 100% хлопок), а также о том, с помощью каких приемов и средств можно передать атмосферу города.
-
-Уроки марафона
-«Площадь Льва Толстого»(   Читать дальше...   )Производство: Художник OnlineЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:33:56Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2995B07C95F31B73B4F4360F743CA5969DFA5F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575950   (235635) от 12.09.2022
-
-Epic Games, Paul Kind | Studio Lighting (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235635.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе объясняется процесс разработки Студийного Освещения, рассматривается использование световых профилей IES, световых панелей для заполняющего освещения и отражений, а также способы создания Blueprint(ов), вращающегося постамента.
-Добро пожаловать на курс по студийному освещению. Здесь Пол Кинд проведет вас через этапы создания освещения, которое вы хотите (   Читать дальше...   )Производство: Epic GamesЖанр: ВидеокурсЯзык озвучки: Русский (отдельным файлом)Продолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C3010B48FA1931B80BC0E783C0FC2C3C493007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575948   (235627) от 12.09.2022
-
-Gumroad, Wiktor Öhman | Mastering UE4 - Intro to Cinematic Lighting (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235627.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом видео-уроке я рассмотрю основы кинематографического освещения в Unreal Engine 4. В этом видео рассказывается, что нужно знать о том, как быстро приступить к созданию реалистичного освещения!
-Это видео предназначено для пользователей UE4 начального или среднего уровня, которые хотят улучшить свои навыки, в том, что касается освещения.Производство: GumroadЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2310574041BC9780292599BA54F9394B8ED3CD83
 ```
 
 https://mybot314.ru/tekegram_catalog/

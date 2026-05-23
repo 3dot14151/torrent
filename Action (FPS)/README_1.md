@@ -1,3 +1,107 @@
+###  Публикация: 1845608   (1050798) от 02.01.2026
+
+Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Идет 2066 год; мир изменился до неузнаваемости. Пока привилегированные счастливчики живут в богатых городах под куполами, остальным приходится бороться за выживание в пустошах. Конкурирующие банды сражаются за превосходство, контроль над территориями и ценные ресурсы. Молодому человеку, чтобы добиться успеха, нужно сделать правильный выбор относительно своего будущего. (   Читать дальше...   )Тип издания: LicenseРазработчик: Accolade, Inc.Жанр: Экшены, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E548BDFB530DCE578F484430F0BFB5CB49068128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845610   (1050796) от 02.01.2026
+
+Fida Puti Samurai (2021) [En] (1.2c025a) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Fi da Puti Samurai предлагает отправиться в увлекательное путешествие. Сюжет повествует о девушке по имени Лайза. Из-за обрушившегося на весь мир локдауна она целыми днями сидит дома, как в клетке. Она устала от такой жизни, а ее каждый день похож на предыдущий. Из развлечений только вкусняшки и доступ к интернету, однако, даже это уже не спасает. Ее верный друг (   Читать дальше...   )Тип издания: LicenseРазработчик: Zanardi and LizaЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC73B6B2FAFDBAE33E296F97A11E963F1300BA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844471   (1049928) от 26.12.2025
+
+Voidtrain (2023) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Станьте членом экипажа Межпространственного Экспресса! Откройте для себя мир, полный загадочных существ и локаций. Улучшайте и кастомизируйте свой поезд, собирайте новые материалы и создавайте новое оружие. Играйте в одиночку или онлайн вместе с друзьями.Тип издания: RepackРазработчик: HypeTrain DigitalЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24DAEDE2A0BECBFBE68106CEF82DA6B40D0F73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843505   (1049376) от 20.12.2025
+
+Hunted Within: The Walls (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий хоррор-выживание от первого лица, переносящий вас в ужасающий мир, вдохновлённый напряжением «Бегущего в лабиринте», жестокими боями Dying Light и скрытностью Outlast. Вы потеряли память, заперты за массивными стенами и должны исследовать зловещие зоны. Каждая предлагает уникальный опыт ужаса, испытывая ваш страх и любопытство до предела.Тип издания: RepackРазработчик: LRDev GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Арабский, Французский и другиеЯзык интерфейса: Русский, Английский, Арабский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1629A7DE962A4C3D1C57A510292CFE05E5CC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841419   (1048033) от 11.12.2025
 
 S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack HardwareMining [Ultimate Edition]
@@ -6,7 +110,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.4.0/dlc) Repack HardwareMining [Deluxe 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Crime Simulator (2025) [Ru/Multi] (1.19b) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/Multi] (16167732/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Ziggurat 2 (2021) [Ru/Multi] (09012023/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Area 51 / Зона 51 [Ru/En] (Lossless RePack) 2005 | R.G.Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Age of Chivalry / Эпоха рыцарей (2007) [Ru/En] (1.0) Unofficial
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ System Shock (1994) [Multi] (1.2.16) License GOG [Enhanced Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.0.1) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Tom Clancy's Rainbow Six (2001-2008) [Ru] License [Антология. Част�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ XIII - Remake (2020) [Multi] (1.7.8247/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ PERISH (2023) [Ru/Multi] (6312) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Duke Nukem Forever (2011) [Ru/En] (1.0.244/dlc) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) License GOG [Deluxe Definitive E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Superliminal (2019) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Ghostrunner (2020) [Ru/Multi] (32091.417/dlc) Repack xatab (обновляема
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +578,7 @@ BPM: Bullets Per Minute (2020) [Ru/Multi] (1.59082) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Doom 3 (2004) [Multi] (1.3.1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Doom 3: BFG Edition (2012) [Multi] (1.14) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Generation Zero (2019) [Ru/Multi] (1966450/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,111 +667,6 @@ Generation Zero (2019) [Ru/Multi] (1966450/dlc) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9009D75B1C62CA29618A1C921AF3198E8161D6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623456   (1029360) от 01.04.2023
-
-BioShock Infinite (2013) [Ru/En] (1.0.1643565/dlc) Repack dixen18 [Complete Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029360.jpg" />
-</div>
-
-
-###  Подробнее
-
-BioShock Infinite – шутер от первого лица, с множественными механиками ролевого приключения в стилистике научной фантастики и стимпанка. Игра будет происходить в 1912 году в альтернативной вселенной, в летающем городе Соединенных Штатов Америки - Колумбия. Управлять необходимо частным детективом Букером Девиттом, имеющим задание по поиску милой девушки по имени Элизабет. (   Читать дальше...   )Тип издания: RepackРазработчик: Irrational GamesЖанр: Action, Shooter, FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C354093DA77191604B59DBA91978715F536F758B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409150   (1028399) от 01.03.2021
-
-BPM: BULLETS PER MINUTE (2020) [En] (1.0) Steam-Rip Goldberg
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сразись за могущественную Валькирию и отрази вторжение сил подземного мира в Асгард.
-В BPM все действия героя и врагов привязаны к ритму музыки. Враги будут проводить последовательности атак, подобных танцу, под эпическую рок-оперу. Для BPM источником вдохновения были ретро-шутеры 90-х. Он быстрый, неистовый и ритмичный. В игре доступны двойной прыжок, рывок, рокет-джамп (   Читать дальше...   )Тип издания: Steam-RipРазработчик: Awe InteractiveЖанр: Action, Приключенческие игры, ИндиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EBD6EA692F87D7AB40113714F2705808C60570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399589   (1027427) от 07.03.2021
-
-Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая классика возвращается! Терроризируйте землян 1950-х годов в роли злобного пришельца Крипто-137. Извлекайте их ДНК, чтобы свергнуть правительство США – как и положено в боевике про нашествие инопланетян. Аннигилируйте ничтожных хомосапиенсов супероружием и суперспособностями. Палите по городам с летающей тарелки! Давите, жгите, испепеляйте!Тип издания: LicenseРазработчик: Black Forest Games, Pandemic StudiosЖанр: Action, Adventure, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BD487BF46642D57FC34B119FFB65F0715A5463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453983   (1026489) от 13.03.2021
-
-Destroy All Humans! (2020) [Ru/Multi] (1.0.2550) Repack SpaceX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая классика возвращается! Терроризируйте землян 1950-х годов в роли злобного пришельца Крипто-137. Извлекайте их ДНК, чтобы свергнуть правительство США – как и положено в боевике про нашествие инопланетян. Аннигилируйте ничтожных хомосапиенсов супероружием и суперспособностями. Палите по городам с летающей тарелки! Давите, жгите, испепеляйте!Тип издания: RepackРазработчик: Black Forest Games, Pandemic StudiosЖанр: Action, Adventure, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCE230A1FD1EB4F2C7799D564B42A2BA62A32DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

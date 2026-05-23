@@ -1,3 +1,187 @@
+###  Публикация: 1542800   (242710) от 10.04.2022
+
+Mozilla FireFox 99.0.0.8124 Portable by JolyAnderson [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Mozilla FireFox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. В него изначально входит проверка сайта на отслеживание, поддержка расширений и многое другое.
+Вашему вниманию предоставляется Portable версия браузера Firefox.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D806FB699398CC8417CE76C588FBB659F3126530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568741   (242196) от 11.08.2022
+
+Минцифры: собирать биометрию без согласия не будут
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Министерство цифрового развития, связи и массовых коммуникаций Российской Федерации (Минцифры России) выступило с официальным комментарием на появившиеся в СМИ сообщения о сборе биометрических данные россиян без согласия владельцев.Пресс-служба Минцифры чётко заявила:Собирать биометрию без согласия не будут.В ведомстве уточнили, что подготовленный проект приказа (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570085   (241066) от 16.08.2022
+
+Apple изучает возможность показа рекламы на iPhone — Марк Гурман из Bloomberg
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Компания Apple рассматривает возможность добавления рекламы в большее количество приложений, предустановленных на iPhone и других устройствах Apple, включая Maps, Books и Podcasts. Как сообщает Марк Гурман из Bloomberg, компания провела внутреннее тестирование поисковых объявлений в Maps, которые могут отображать рекомендации при поиске ресторанов, магазинов или (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546158   (239533) от 24.04.2022
+
+В мае Google удалит все приложения для записи телефонных звонков, использующих API специальных возможностей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Из Play Store скоро исчезнут приложения, которые использовали API для доступа к записи звука при телефонном звонке. С 11 мая Google поменяет политику своего магазина, чтобы удалить обходной путь в виде доступа к API специальных возможностей.XDA отмечает, что Google борется с записью звонков и уже удалил официальный API из Android 6.«Только сервисы, предназначенные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571608   (239429) от 24.08.2022
+
+Google заблокировал аккаунт отца, отправившего врачам фото обнажённого сына
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Автоматическая система Google по распознанию детского порно блокирует аккаунты родителей, обратившихся за помощью к педиатрам. Техногигант заявляет на пользователей в полицию, восстановить доступ к сервисам невозможно.О таких историях пишет The New York Times. Технологические гиганты ежегодно отмечают миллионы детских фотографий как потенциально опасный контент. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548874   (237181) от 05.05.2022
+
+ЕС запустит собственную соцсеть и видеосервис с упором на приватность
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Европейская служба защиты данных запустит собственную социальную сеть, — используя ПО с открытым исходным кодом Mastodon.На этой неделе EDPS объявила о пилотном запуске сервера. Его назвали EU Voice, и он создан для того чтобы европейские организации и управления могли общаться с населением.
+Кроме того, служба тестирует альтернативу YouTube — EU Video. Новый сервис (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551445   (234694) от 17.05.2022
+
+Google показала очки дополненной реальности, показывающие перевод речи собеседника
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Google завершила свою конференцию I/O интересным сюрпризом – компания показала свои новые очки дополненной реальности. Ключевой особенностью, которую продемонстрировала Google, была возможность видеть переводы с других языков прямо перед глазами.К сожалению, компания не поделилась подробностями об этих очках. Google лишь продемонстрировала видео, демонстрирующее (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578389   (233358) от 24.09.2022
 
 В сети появились фейковые вакансии от ушедших зарубежных IT-компаний
@@ -6,7 +190,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +216,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.708]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -87,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -322,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -348,7 +532,7 @@ Corel VideoStudio Ultimate X8 18.6.06 SP3 (x64) + Content [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -374,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -400,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -427,7 +611,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.813 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -453,7 +637,7 @@ Geekbrains | Профессия Программист Java (2015) PCRec [H.264/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -493,196 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA6EED079FE28399DAF0850F960ACBA1682F89ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267702   (228310) от 09.12.2018
-
-Веном / Venom (2018) BDRip [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что если в один прекрасный день в тебя вселяется существо-симбиот, которое наделяет тебя сверхчеловеческими способностями? Вот только Веном — симбиот совсем недобрый, и договориться с ним невозможно. Хотя нужно ли договариваться?.. Ведь в какой-то момент ты понимаешь, что быть плохим вовсе не так уж и плохо. Так даже веселее. В мире и так слишком много супергероев! (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, 	Marvel Entertainment, Sony Pictures EntertainmentЖанр: Боевик, Фантастика, Триллер, УжасыРежиссер: Рубен ФляйшерАктеры: Том Харди, Мишель Уильямс, Марчелла Браджио, Вуди Харрельсон, Дженни Слейт, Риз Ахмед, Мак Брандт, Рон Сепас Джонс, Мишель Ли, Мелора УолтерсПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские, АнглийскиеПродолжительность: 01:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D325EE6DA71448FF4034A91F961882255576A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512413   (228252) от 26.11.2021
-
-Xiaomi вслед за Apple позволит ремонтировать смартфоны дома
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xiaomi объявила о запуске программы Xiaomi Cares, посвященной самостоятельному ремонту смартфонов. Об этом сообщает издание GSM Arena.В анонсе индийского подразделения корпорации в Twitter говорится, что пользовательский опыт всегда был на первом месте для компании. «Теперь мы поднимаемся на ступеньку выше, только для вас», — уточняется в сообщении. Xiaomi India (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851182   (228107) от 18.12.2014
-
-Александр Заморин | Зеркалка Nikon. Живая инструкция по съеме красивых фотографий (2014) CamRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228107.jpg" />
-</div>
-
-
-###  Подробнее
-
-На любительскую зеркалку можно делать снимки профессионального уровня или на профессиональную любительские - всё зависит от вашей технической подготовки.
-
-Точная фокусировка, выдержка, диафрагма, ISO, вспышка, RAW и все отальные технические тонкости впервые будут разбираться на примере вашего фотоаппарата - вам лишь останется повторить всё увиденное, чтобы получить (   Читать дальше...   )Жанр: Фотоаппарат инструкцияПродолжительность: 02:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95E825D76A2BA7C28BBE8E071EDD5E7469608E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625756   (228084) от 29.07.2023
-
-Ноутбук 1, Ассоциация Сервисных Центров, Алексей Виолин, Феликс Борьков | Станьте мастером по ремонту ноутбуков с доходом от 80 000 до 250 000 ₽ в месяц (2022) WEB-DL [AD] [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс от ведущего сервисного центра по ремонту ноутбуков в России
-Знания, с которыми можно ремонтировать до 80% ноутбуков
-Материал включает отдельный курс по пайке.Производство: Ноутбук 1, Ассоциация Сервисных ЦентровЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:58:29Реклама: В части видео присутствуют наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A855D9753D682578DB632ADB3F989BE1C45D2D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512531   (228013) от 26.11.2021
-
-Microsoft Operating Systems on One Flash Drive Release by StartSoft 09-2021 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютерные машины операционных систем Windowx XP SP3, Windows 7 sp1, Windows 8.1 Update, Windows 10 и Windows 11 с разной архитектурой разрядности. Их установка может быть с русскоязычным, либо с англоязычным интерфейсами. В состав сборки входит загрузочный образ ISO который предназначен для распаковки его содержимого на выносной (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DDCBBC337579DC49594029544AD03CAF8BCA8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246802   (227962) от 18.12.2013
-
-Гарри Поттер: Гексалогия / Harry Potter: Hexalogy (2001,2002,2004,2005,2007,2009) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Документальный
-
-Джоан Роулинг желает вам приятного просмотра и рекомендует так же посмотреть Документальный фильмРежиссер: Дэвид ЙэтсПеревод: Профессиональный (полное дублирование)Субтитры: Russian, English
-
-IMDB Rating: 7.3/10 (69,936 votes)Формат: MKVПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341667   (227830) от 29.11.2019
-
-uTorrent 3.5.5 Build 45449 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227830.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2CB318A76E2FD05301753BA83503D5428B2ECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

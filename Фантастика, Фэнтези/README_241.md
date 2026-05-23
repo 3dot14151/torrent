@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

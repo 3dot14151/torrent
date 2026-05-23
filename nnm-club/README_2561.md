@@ -1,56 +1,22 @@
-###  Публикация: 597852   (1000525) от 02.01.2013
+###  Публикация: 1351283   (1002477) от 09.01.2020
 
-[Wallpapers] Beautiful nature (02.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000525.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Beautiful nature (02.01.13)
-Название: Beautiful nature (02.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 4000х2600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB8548BD45EFD8E6422712D457C0ED904C28B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597853   (1000523) от 02.01.2013
-
-[Wallpapers] Car wallpaper (02.01.13)
+Enolsoft PDF Password Remover for Mac 3.4.0 [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Car wallpaper (02.01.13)
-Название: Car wallpaper (02.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Enolsoft PDF Password Remover 3.4.0 утилита для разблокировка PDF-файлов, разблокировка содержимого. Удалите пароль PDF на Mac, чтобы легко открывать, редактировать и печатать PDF. Удалите пароль PDF-файла на Mac, предоставляя вам свободу использования PDF-файлов по своему усмотрению.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EnoltsoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BB83643E5939EDE8BDCD86A974CBFE33362B999
+magnet:?xt=urn:btih:0C9BB77C3024B62497D4AF6B66DE64DC1A1743C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -58,629 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597603   (1000522) от 02.01.2013
+###  Публикация: 1351182   (1002476) от 09.01.2020
 
-Dennis Binder - Hole in That Jug (2007) [FLAC|Lossless]<Blues, Piano>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Must Be a Hole in That Jug
-02. Big Leg Mama
-03. She's Somethin' Else
-04. I'm Lonesome
-05. You Got Me Way Down Here
-06. Funky Butt
-07. Love Call
-08. Early Times
-09. I Don't Want Nobody Messin' Around with Me
-10. Why Everybody Sings the Blues(   Читать дальше...   )Жанр: Blues, PianoПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597839   (1000521) от 02.01.2013
-
-[Ico] Children's creativity by Verrone
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иконки для оформления ПК в стиле детского творчества.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB602547E1E35A83C785FD53B6692D6024988CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597540   (1000519) от 02.01.2013
-
-RJ TextEd 8.50 +  Portable [Мульти\Рус.]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000519.jpg" />
-</div>
-
-
-###  Подробнее
-
-RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования.
-Присутствует автоподстановка и ручная вставка тегов при верстке HTML-страниц и работе с каскадными таблицами стилей CSS, а также подстановка стандартных команд и функций в javascript и PHP. Из боковой панели можно получить доступ к дереву каталогов компьютера, FTP клиенту, буферу обмена и папке Избранное браузера IE. Кроме того, прямо из редактора текста можно перейти в двухпанельный менеджер файлов или в предпросмотр HTML файла.
-Рабочая область редактора RJ TextEd имеет ряд отличительных черт, мимо которых пройти просто нельзя. Во-первых, окно редактора полностью настраиваемое, как по цветовой гамме, так и по набору шрифтов, любой пользователь может без проблем настроить шрифты по своему (   Читать дальше...   )Название программы: RJ TextEdЯзык интерфейса: Мульти\Рус.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597859   (1000518) от 02.01.2013
-
-[Wallpapers] World of Animals (02.01.13)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000518.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] World of Animals (02.01.13)
-Название: World of Animals (02.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3600х2800
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9E13E637EA6B923C4FC635C1A40A57EC2C6195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597857   (1000517) от 02.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000517.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 4
-Название: New 2013 Wallpaper Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0C523ADA2E05EA534D9010EA67B352AE3C0366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597478   (1000516) от 02.01.2013
-
-Davis Coen - Magnolia Land (2009) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tired and Lonesome
-02. Change in the Weather
-03. Anna Ann
-04. Country Girl Blues
-05. Nothing to Hold on To
-06. Eyes Like Diamonds
-07. Goin' Away Baby
-08. Wrong Side of Town
-09. Natchez Burning
-10. Shake Your Goobie(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597850   (1000515) от 02.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000515.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 1
-Название: New 2013 Wallpaper Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 3000х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392B0D62C82E7BC2E76987577CBE22F1A6C7FCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597774   (1000513) от 02.01.2013
-
-Best HD Wallpapers Pack (02.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5FD6C3EA1264FB8EB6726B493D7AD7586A412E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597467   (1000512) от 02.01.2013
-
-Best HD Wallpapers Pack (01.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500DC75BE9F74710D5D2E2484A2792FE38DDB064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597858   (1000511) от 02.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000511.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 5
-Название: New 2013 Wallpaper Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1800x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B764E5BBA8005D2E2134FCBD00358CBDF959DDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596803   (1000510) от 02.01.2013
-
-Bad City - Welcome To The Wasteland (2010) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Showdown In Central Park
-02.  Take Me For A Ride
-03.  Do You Believe In Rock N Roll
-04.  Wildlife
-05.  Fire In The Pouring Rain
-06.  Call Pall Stanley
-07.  Heatwave
-08.  Look Out!
-09.  Touch
-10.  Straight To The GraveЖанр: Hard RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E31AA9E193D1209F9FF9873A64CFD968F687E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597515   (1000508) от 02.01.2013
-
-[Wallpapers] Cars Wallpapers №8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои машин для рабочего столаРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6664D738FFEBD6E6A10D2B73CCB2075F7BB7CD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597827   (1000507) от 02.01.2013
-
-[Wallpapers] Compilation of anime Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000507.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Compilation of anime Pack 1
-Название: Compilation of anime Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 5000х3000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00 до 5 сидов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682827BBA380141EA8DE79AE19DAAD1D92028F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597386   (1000505) от 02.01.2013
-
-VA - Citrine. My Dream Beautiful Yellow Crystal (2005) [MP3|320 кб/с]<New age, Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000505.jpg" />
-</div>
-
-
-###  Подробнее
-
-(07:03) 1. The feeling of yellow crystal
-(06:52) 2. The buddist of the yellow crystal
-(06:06) 3. The yellow crystal inspiration
-(06:43) 4. The propitious yellow crystal
-(12:39) 5. The full clean moon of yellow crystal
-(07:27) 6. The shine of yellow crystal yellow crystal
-(06:30) 7. My dream beautiful yellow crystalЖанр: New age, InstrumentalПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F888D12ECCB9ECB07ED007E2DFB3330DB16DD9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597810   (1000503) от 02.01.2013
-
-Журнал | Rolling Wheels №1 [январь-февраль 2013] [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rolling Wheels – единственный на сегодняшний день российский глянцевый журнал, посвященный ретро-автомобилям, военной технике и мотоциклам. Основная тема Rolling Wheels - классические автомобили, начиная с самых первых и закачивая теми, что были выпущены до нефтяного кризиса 1974 года. Эпоха, когда Автомобиль был не просто средством передвижения, напичканным гаджетами, эпоха, когда у Автомобиля была душа. Помимо гражданских машин, немалый объем в Rolling Wheels занимает военная техника, а также военная история.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8133C85C701BBAB7A1D6FA739F667ACEC48330C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596864   (1000501) от 02.01.2013
-
-Mondo Generator - Hell Comes To Your Heart (2012) [MP3|320 кб/с]<Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dead Silence [02:23]
-02 The Way I Let You Down [03:05]
-03 Burn The Bridge [03:38]
-04 Wont Let Go [03:59]
-05 Like The Sky [03:04]
-06 This Isn't Love [02:51]
-07 The Dirt Beneath [02:56]
-08 Hang 'em High [03:11]
-09 Central Nervous System High School [02:47]
-10 Smashed Apart [03:14](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9699EA45169E44ECB68BF98097C004C2DFB33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597359   (1000499) от 02.01.2013
-
-Призванные / Recalled / Allegiance (2012) BDRip [720p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000499.jpg" />
-</div>
-
-
-###  Подробнее
-
-После предоставления сомнительных сведений, которые позволили бы ему остаться в пределах США, в то время как его подразделение национальной гвардии развертывается для дислоцирования в Ираке, лейтенант Дэнни Сефтон (Seth Gabel) становится втянутым в последний момент перед отправкой в историю с самоволкой одного из своих солдат (Bow Wow), что вынуждает Сефтона сделать нелегкий выбор между лояльностью к беглому солдату, патриотическим долгом и его семьей...Жанр: ТриллерРежиссер: Майкл КоннорсАктеры: Эйдан Куинн, Бау Вау, Сет Гейбл, Пабло Шрайбер, Закари БутПеревод: ОтсутствуетПродолжительность: 01:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C3BFF78455F0FEF6B62273A7D25BF601690ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596855   (1000498) от 02.01.2013
-
-Jonestown Revival - Brand New Dad (2012) [MP3|320 кб/с]<Psychedelic Jazz / Progressive Rock / Mathcore>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dad Returns 00:51
-2. Eastern McFeaster 04:01
-3. The Infinite Doughnut 03:25
-4. Soul Claw 04:34
-5. Beef Storm 04:02
-6. Planet of the Crepes 06:15
-7. Simon and Dark Uncle 02:04
-8. Mark Hamill/ Hittler, PA 02:59
-9. Celine Dijon 03:00
-10. Brand New Dad 03:04Жанр: Psychedelic Jazz / Progressive Rock / MathcoreПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024886525E8D60EB379FDCFB31FED31A549D79AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597546   (1000495) от 02.01.2013
-
-Возвращение скрипки (1973) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000495.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести азербайджанского писателя Ф. Агаева "Скрипка Паганини".
-История спасения школьниками скрипки Страдивари в годы Великой Отечественной войны.Жанр: Детский, Военный, ПриключенияРежиссер: Шамиль МахмудбековАктеры: Павел Кадочников, Олев Эскола, Иван Косых, Павел Винник, Алла Панова,
- Нина Меньшикова, Шахмар Алекперов, Геннадий Юхтин, Николай Бармин, Сергей ЮртайкинПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258A1B7170365B2648CB303CA03C167A896D64D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597394   (1000492) от 02.01.2013
-
-Process Lasso Pro 6.0.2.32 [Rus/Eng] RePack/Portable by D!akov
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows, по умолчанию, позволяет программам полностью загружать центральный процессор, что ведет к зависанию системы и, соответственно, к неудобству работы. Технология ProBalance (Process Balance) программы Process Lasso аккуратно перераспределяет приоритеты запущенных программ, так что процессы, которые ранее загружали весь центральный процессор, больше не будут влиять на отклик системы. Process Lasso поможет вам полностью контролировать то, как процессор распределяет ресурсы программам. Вы можете выбрать приоритетные процессы и какие процессоры будут отвечать за них. Вы можете запретить запуск некоторых программ, запустить все программы, автоматически перезапускать программы, ограничить количество копий программы, которые можно запускать и многое другое. Режим для игр позволит переключать все ресурсы компьютера на процесс игры. Кроме этого, программа позволяет вести статистику запущенных процессов.Название программы: Process Lasso ProЯзык интерфейса: Rus|Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597078   (1000491) от 02.01.2013
-
-VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+VA - The Sound Of Now (2020) [MP3|320 Kbps] <Tech House, Electro, EDM>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-01. B Van E - I Need You (Cut N Glue Chillout & Lounge Mix)
-02. Sky And Sand - Sunset (Comfort Version)
-03. Cazintel - Aliens in Love (Air Play Version)
-04. Mister Paul - You Don't Know (Vocal Exclusive Mix)
-05. Wine & Dine - Why Are We Here (Original Mix)
-06. Miguel Lando - Sylt (Exclusive Remaster Version)
-07. Muner DJ - This Is My Dream (Original Performant Mix)
-08. Exit Mars - Gliding (Exclusive Mix)
-09. Collective Sound Members - Fast Features
-10. Maurice Scoville - Perfect Day (Comfort Version)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 04:46:06
+01. Lamliki - Never Give Up
+02. Emanuele Rada - You Know Da Name
+03. Gidronique - Rain
+04. Mina Overoux - Electro Vibes(   Читать дальше...   )Жанр: Tech House, Electro, EDMПродолжительность: 07:14:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D8A8EDF27ED48FD3850C070CF53818643072687
+magnet:?xt=urn:btih:A872164F93F9D9C8CFF31887C092F230EA5947AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,31 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597263   (1000490) от 02.01.2013
+###  Публикация: 1351244   (1002475) от 09.01.2020
 
-VA - The Heart of Crystal. Prajna Paramita Sutra (2006) [MP3|320 кб/с]<New age, Relax, Meditative>
+Порт (812) - Подарок (2020) [MP3|320 Kbps] <Punk Rock>
 
->>East Asian Music
->>Other Asian
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-(14:22) 1. Prajna Paramita Heart Sutra
-(14:53) 2. Guanyinshan inspired song
-(05:40) 3. Sound of Buddha
-(06:02) 4. Flower Chan
-(07:23) 5. Om Mani Padme Hum
-(10:40) 6. Yoji water purification
-(10:55) 7. Auspicious actionsЖанр: New age, Relax, MeditativeПродолжительность: 01:09:55
+1. 99 шлюх из ста
+2. Весть благая
+3. Wow (Как бы)
+4. Честь, свобода и любовь(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CE1E561192D04E02F4B3AEA7995012135F0C519
+magnet:?xt=urn:btih:F359B991FCA5539DCE02A40AEDF9F263F9171200
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,25 +82,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597374   (1000487) от 02.01.2013
+###  Публикация: 1351303   (1002474) от 09.01.2020
 
-Призванные / Recalled / Allegiance (2012) BDRip [EN]
+VA - Neon Night: Electro House (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Dub Striker - 51 Pegasi B
+002. Jeff Omega - Booty Showin'
+003. Stu & Brew - Disordered
+004. Lessovsky - Never Ever End(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 12:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF183455B8D98FC8D906EC5E2746EB49D1D231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351299   (1002473) от 09.01.2020
+
+VA - Beatport Trance Pack: #03 (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Theis Ez - Joy
+02. Broning - Invaders (Original Mix)
+03. Neil Bronson With Lorela - Cant Get Over
+04. Make One - Katana(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 06:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ACAF2686EEB7456CC3A3FF9ACC497C065A1851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351208   (1002472) от 09.01.2020
+
+Mozilla Firefox Quantum ESR 68.4.1 [Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-После предоставления сомнительных сведений, которые позволили бы ему остаться в пределах США, в то время как его подразделение национальной гвардии развертывается для дислоцирования в Ираке, лейтенант Дэнни Сефтон (Seth Gabel) становится втянутым в последний момент перед отправкой в историю с самоволкой одного из своих солдат (Bow Wow), что вынуждает Сефтона сделать нелегкий выбор между лояльностью к беглому солдату, патриотическим долгом и его семьей...Жанр: ТриллерРежиссер: Майкл КоннорсАктеры: Эйдан Куинн, Бау Вау, Сет Гейбл, Пабло Шрайбер, Закари БутПеревод: ОтсутствуетПродолжительность: 01:31:04
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC237667A4E0C0F8B4741C69F85A5F814A7BF7F8
+magnet:?xt=urn:btih:565F1F7C725A8C20A8106DE4EE842F239D576FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -746,31 +166,535 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597393   (1000486) от 02.01.2013
+###  Публикация: 1351267   (1002471) от 09.01.2020
 
-VA - Rose Quartz. The Rose Quartz Of Buddist (2005) [MP3|320 кб/с]<New age, Instrumental>
+Bigasoft FLAC Converter 5.4.0 [Multi/Ru]
 
->>East Asian Music
->>Other Asian
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
 ###  Подробнее
 
-(07:57) 1. The beauty of pink crystal
-(06:38) 2. I love pink crystal music
-(04:53) 3. Pink crystal. Please let me have it
-(05:39) 4. Clean elegant pink crystal
-(12:47) 5. The hope of crystal
-(06:38) 6. The pink crystal of buddist
-(05:43) 7. The happy pink crystalЖанр: New age, InstrumentalПродолжительность: 00:50:15
+Bigasoft FLAC Converter для Mac - это специально разработанный и простой в использовании конвертер файлов FLAC и декодер FLAC Mac для преобразования FLAC на macOS. Он может конвертировать FLAC в широкие аудиоформаты, например. конвертировать FLAC в MP3 Mac, конвертировать FLAC в 16-битный / 24-битный WAV, конвертировать FLAC в Apple без потерь ALAC, конвертировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Bigasoft CorporationПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0CD60B37100EDE7B66F5A0D74848FA6B96DB1CC
+magnet:?xt=urn:btih:337FE812B3280E1C9895CC9AFAF737EED402A028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351270   (1002470) от 09.01.2020
+
+Enolsoft PDF Creator 4.4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Enolsoft PDF Creator помогает создавать PDF-файлы в течение трех шагов, вы можете быстро конвертировать файлы в PDF, такие как DOCX, EPUB, Text, PPTX, CHM, RTFD, HTML, JPG, PNG, GIF, TIFF и многое другое. Более того, без изменения макета, поэтому файлы с печатью будут более «приятными».Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EnolsoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB7AD5DB6A366F6F4CCA572E067566FC69EF21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351253   (1002469) от 09.01.2020
+
+Auslogics Disk Defrag Pro 9.3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C90946518108DCC31B2CB5E2DFECD1E1658FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351269   (1002468) от 09.01.2020
+
+Bazykina Twins - Moscow Nights Ultimate (2017) [FLAC|Lossless|image + .cue] <Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1 Moscow Nights 3:46
+2 What Goes On In Your Mind 4:25
+3 Loving Joy Is All I Know 3:25
+4 Female Of The Species 4:14(   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D108755C7AFB7B04B67D75490133D9E27567AD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350628   (1002467) от 09.01.2020
+
+Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Jago jharna jago (3:34)
+02. Param pitare (5:41)
+03. Aum dhatre namaha (5:11)
+04. Mау i have a god-beauty (4:51)(   Читать дальше...   )Жанр: Mantras, Meditative, EthnicПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437B47AE295C5458CDE8DBB3C19BBFBC3E124682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351254   (1002466) от 09.01.2020
+
+Auslogics Registry Cleaner Pro 8.3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Registry Cleaner поможет вам избавиться от ошибок в реестре, удалить неиспользуемые ключи. Реестр Windows - один из самых важных и в тоже время самый уязвимый компонент системы. Каждый раз, когда вы устанавливаете или удаляете программы, в реестре создаются ключи, которые могут там оставаться и приводить к системным сбоям, зависаниям и нестабильной работе (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166DE898C845407892F9AD9E8530E51F53E03E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351350   (1002465) от 09.01.2020
+
+Cheetah3D 7 v7.4.2 [Multi]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Cheetah3D - программа для 3D моделирования, рендеринга и анимации, являющаяся Cocoa-приложением.
+Программа была написана с нуля в Cocoa и предлагает множество мощных инструментов, в том числе текстуры, импорт PDF, HDRI и многое другое. Cheetah3D - это мощный, интуитивно понятный программный продукт с элегантным и интуитивно понятным пользовательским интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 07.01.2020Разработчик: Dr. Martin WengenmayerПоддерживаемая ОС: macOS 10.8.5+Язык интерфейса: Английский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F092576A317A950C1CCD7100BCA7137260C5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351185   (1002464) от 09.01.2020
+
+VA - Beatport Techno Edm: Pack #03 (2020) [MP3|320 Kbps] <Techno, Minimal, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. The Alchemical Theory - Dark Forest
+02. Irregular Synth - Clojure (Mr. Jones Remix)
+03. Koen Groeneveld - Wild Noise
+04. Ellen Allien - Bowie In Harmony(   Читать дальше...   )Жанр: Techno, Minimal, EDMПродолжительность: 06:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1F5383919BE10AAAEDACCD5F02D43DD0600825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351252   (1002463) от 09.01.2020
+
+Братья из осажденного города / Cheng Zhai chu lai zhe / Brothers from Walled City (1982) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Да Ди (Филлип Ко) и Сяо Ди (Чинь Сиу-Хо) выросли без отца в криминальном районе Гонконга. В прошлом их отец был уважаемым человеком, но погиб от руки наркомана. Да Ди заправляет клубом, а Сяо Ди еще учится и его компания переходит дорогу банде И Чина (Вон Чин). В скором времени мелкие шалости переходят в кровавые разборки...Производство: Гонконг, Shaw Brothers (Hong Kong) Ltd.Жанр: Криминал, драмаРежиссер: Лам Най-ЧойАктеры: Чинь Сиу-Хо, Филлип Ко, Джонни Ван, Лю Лай-Лин, Вонг Чин, Кван Хой-Сань, Гам Биу, Пак Ман-Биу, Со Хан-Сюн, Лун Тин-Сан, Ли Ди-ЮэПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41261C717196AFF7B017C0BA87518591C852036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488097   (1002462) от 09.08.2021
+
+Барышникова Т. | Школа ремонта. Решение любого вопроса по ремонту в доме и квартире (2020) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Учиться никогда не поздно! Особенно необходимо это тогда, когда нашему жизненному пространству (дому, квартире) требуется ремонт. Не смотря на сложность современных строительных технологий и разнообразие материалов, многое можно научиться делать своими руками.
+Это издание дает читателю четкое представление о том, какие ремонтные работы можно произвести самостоятельно, (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488099   (1002461) от 09.08.2021
+
+Уондер / Wander (2020) BDRip [H.264/720p]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Частного детектива Артура Бретника наняли расследовать загадочное убийство в городке Уондер. Однако Бретник начинает подозревать, что дело связано с заговором, из-за которого погибла его дочь.Производство: Канада, США / Aloe Entertainment, Circle 4 Entertainment, Don Kee Productions, Falconer Pictures, Ironic Misnomer, Petra Pictures, The Wander Film, Verdi Productions, Wango FilmsЖанр: ТриллерРежиссер: Эйприл МалленАктеры: Аарон Экхарт, Томми Ли Джонс, Кэтрин Уинник, Хизер Грэм, Рэймонд Крус, Брендан Фер, Роджер Дорман, Николь Стейнведелл, Tylannie Smith-Scott, Дебора ЧавезПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), французские (Full)Продолжительность: 01:33:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488070   (1002460) от 09.08.2021
+
+Варкрафт / Warcraft (2016) BDRip [H.265/1080p] [10-bit]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Веками магия и неприступные стены защищали людей от любых напастей. Но древнее зло, побеждённое и забытое тысячелетия назад, пробудилось. В самом сердце королевства открылся тёмный портал, и раса невиданных существ наводнила земли Азерота. Так начались события, призванные навсегда изменить судьбу этого мира.Производство: США, Канада, Китай, Япония / Atlas Entertainment, Blizzard Entertainment, China Film Group Corporation (CFGC)Жанр: фэнтези, боевик, приключенияРежиссер: Дункан ДжонсАктеры: Трэвис Фиммел, Пола Пэттон, Бен Фостер, Доминик Купер, Тоби Кеббелл, Бен Шнетцер, Роберт Казински, Клэнси Браун, Дэниэл Ву, Рут НеггаПеревод: дублированный, многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (full, forced), английские (SDH)Продолжительность: 02:03:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488002   (1002459) от 09.08.2021
+
+Podlodka Crew | Podlodka Android Crew [Сезон 1-4] (2021) PCRec
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Podlodka Android Crew, Сезон #1
+32 часа сессий на темы "Архитектура" и "Оптимизация". Две недели интенсивной практики с экспертами из топовых компаний – сессии в Zoom, сообщество в Slack и атмосфера ламповой конференции.Производство: Podlodka Android CrewЖанр: ПрограммированиеПродолжительность: 107:26:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493343   (1002458) от 09.08.2021
+
+Igor Presnyakov - Acoustic Rock Ballad Covers (2011) [MP3|~190 кб/с (V2)]<istrumental, guitar, acoustic, easy listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1 -	Nothing Else Matters
+  2 -	Brothers In Arms
+  3 -	Californication
+  4 -	Don't Cry(   Читать дальше...   )Жанр: istrumental, guitar, acoustic, easy listeningПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B3F33DF487B80E2765F57DEF2796450C37054C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487975   (1002457) от 09.08.2021
+
+Мейер Лански / Lansky (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мейер Лански — легенда американской мафии, с которым считались все преступные синдикаты и сам Аль Капоне. Ему, конечно, есть, что рассказать. Тот, кто сумеет разговорить скандально известного главу «корпорации убийств», получит эксклюзив на миллион долларов. Но пойдет ли на это Мейер Лански и чьи головы полетят, если он все-таки заговорит?Производство: США / 120dB Films, Above the Clouds Media Group, Caliwood PicturesЖанр: Биография, криминал, триллер, драмаРежиссер: Итан РоквейАктеры: Харви Кейтель, Сэм Уортингтон, Анна-София Робб, Джеки Крус, Дэвид Кейд, Дэвид Джеймс Эллиотт, Алон Абутбул, Минка Келли, Шэйн МакРей, Джон МагароПеревод: Дублированный, многоголосый любительскийСубтитры: Русские (forced), английскиеПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCA6043BCCF2F9C3891421F1E7CEBEB44B35D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424044   (1002456) от 09.08.2021
+
+Деловые люди (1962) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборник короткометражных фильмов по новеллам О'Генри: «Дороги, которые мы выбираем», «Родственные души», «Вождь краснокожих».
+Наибольшая популярность выпала на долю последней новеллы - столь уморительны оказались злоключения незадачливых похитителей юного сорванца.Производство: СССР / МосфильмЖанр: драма, комедия, вестернРежиссер: Л. ГайдайАктеры: Ростислав Плятт, Георгий Вицин, Юрий Никулин, Алексей Смирнов, Сергей Тихонов, Александр Шворин, Георгий Милляр, Виктор Громов, Владимир Пицек, Виктор УральскийПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD03EDF571045D2E5219BD7CC073FD6664D7B17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488094   (1002455) от 09.08.2021
+
+Огонь (2020) BDRip [H.264/1080p-LQ] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+После гибели подчинённого бывалый инструктор бригады пожарных Алексей Соколов хотел было уволиться, но лето в России — жаркая пора. Взяв в команду шестым нахального новичка, парня своей дочери, Соколов отправляется на очередное задание в Карелию. И это задание будет гораздо сложнее, чем он мог себе представить.Производство: Россия, Студия ТритэЖанр: Драма, боевикРежиссер: Алексей НужныйАктеры: Константин Хабенский, Иван Янковский, Стася Милославская, Антон Богданов, Виктор Добронравов, Роман Курцын, Тихон Жизневский, Ирина Горбачева, Евгения Дмитриева, Юрий КузнецовПеревод: Не требуетсяСубтитры: РусскиеПродолжительность: 02:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F841DA6634B360048AE5B34DFAB5BBB801B87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488031   (1002454) от 09.08.2021
+
+Movavi Video Editor Plus 21.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Editor Plus – универсальный инструмент для работы с видео. Этот простой и функциональный видеоредактор позволяет монтировать, улучшать качество видео, применять спецэффекты, добавлять титры и музыку, настраивать переходы между видеофрагментами, создавать слайд-шоу, разрезать и объединять файлы, озвучивать проекты в режиме реального времени, сохранять (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486758   (1002453) от 09.08.2021
+
+Banners of Ruin (2021) [Ru/Multi] (1.0.18) License GOG [Supporter Edition]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Грозная Династия Эндер нанесла Чёрным Лапам мощный удар. Вы должны проникнуть в их тылы и отомстить. Соберите колоду и проложите себе путь через город Зари, участвуя в карточных боях с отрядом из 6 персонажей. Герои, преданные Вашему делу, имеют набор уникальных способностей, которые могут усилить колоду мощными захватывающими способами.Тип издания: LicenseРазработчик: MonteBearoЖанр: Card Game, Strategy, RoguelikeЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A11DF96D0058C7083EF33072CC8EE184FA330AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488065   (1002452) от 09.08.2021
+
+Octopath Traveler (2019) [Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Получившая немало наград ролевая игра теперь и на ПК! Восемь странников. Восемь искателей приключений. Восемь обличий. Отправляйтесь в приключение по прекрасному бескрайнему миру Орстерры и узнайте о необычных судьбах каждого из восьми героев.Тип издания: LicenseРазработчик: Square Enix, ACQUIRE Corp.Жанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F3472776175995B38020884D10ECC396B5FBBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

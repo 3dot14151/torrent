@@ -1,3 +1,107 @@
+###  Публикация: 957071   (226651) от 13.12.2015
+
+Dispatcher (2015) [Ru/En] (1.00/upd2) SteamRip Let'sРlay
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+«Человечество нашло дорогу в глубины космоса. Первые смельчаки отправились на поиски неизведанного. Оно нашло их раньше. Романтизм первопроходцев разбился о холодную плоть космоса. И теперь важно только одно: на что ты готов ради спасения?»Тип издания: SteamRipРазработчик: CivilSavagesЖанр: Action, Horror, 3D, 1st PersonЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A40149FFBFD020C3209101C9B8F2A439D6CD28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513027   (226502) от 27.11.2021
+
+Delta Force: Black Hawk Down / Delta Force: Операция "Черный Ястреб" (2003) [Ru] (1.2.2) License
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+3 октября 1993 года является черным днем в истории спецназа США. Именно тогда в рамках кампании «Возрождение надежды» в Сомали американцами была предпринята попытка захвата полевого командира Мохамеда Фарраха Айдида и его ближайшего окружения. Это должно было способствовать скорейшему налаживанию мирной жизни в измученной гражданской войной стране.Тип издания: LicenseРазработчик: NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE6421DF4DB454C2504F3775CE95D864699FC78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513201   (224502) от 28.11.2021
+
+Delta Force: Land Warrior / Отряд Дельта: Операция "Спецназ" (2000) [Ru/En] (1.00.42) License
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Если ты служил в спецназе - гордись. Если не служил - радуйся. C помощью этой игры у тебя появилась возможность ощутить все прелести жизни бойца спецподразделения без всякого вреда для здоровья и даже наоборот! Ведь смех продлевает жизнь, а его в игре предостаточно. Вооружись как следует, учитывая, что в руках настоящего спецназовца даже табуретка является оружием (   Читать дальше...   )Тип издания: LicenseРазработчик: NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5240F170BFE33C592C95182893E7D10082D3E158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342184   (224409) от 01.12.2019
+
+Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Выполняйте контракты с точными задачами, чтобы получить фиксированное денежное вознаграждение и возможность пройти дополнительно оплачиваемые испытания. Вы можете устранять свои цели сотнями различных способов: Contracts позволяет насладиться потрясающе выверенной, стратегической игрой от лица снайпера.Тип издания: RepackРазработчик: CI GamesЖанр: Action (Shooter), Stealth, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A34230AA3290B1A86FF834129E235EC39EB2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424259   (223144) от 19.11.2020
 
 XIII (2003) [Ru] (1.01) Repack anton210896
@@ -6,7 +110,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ NecrovisioN Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Chronicles of Riddick: Escape from Butcher Bay [Ru/En] (RePack) 2004 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -88,7 +192,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +218,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +244,7 @@ ARAYA (2016) [En/Th] (1.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +270,7 @@ Sanctum 2 (2013) [Ru/Multi] (1.4.35442) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +296,7 @@ Project Pulsation (2015) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +322,7 @@ Madness Beverage (2021) [En] (7802120) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -244,7 +348,7 @@ Aim Hero (2016) [Ru/En] (0.158) Portable Devint
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +374,7 @@ Behind the Memory (2016) [En/Es] (1.1.4.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +400,7 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7/MP) Rip =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +426,7 @@ Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +452,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.00) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -374,7 +478,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -400,7 +504,7 @@ Heretic + Hexen (2025) [Ru/Multi] (Update 1) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -426,7 +530,7 @@ Relicta (2020) [Ru/Multi] (1.10/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -452,7 +556,7 @@ Soldier of Fortune II (2): Double Helix (2003) [Multi] (1.03hf) License GOG [Gol
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +582,7 @@ The Hotel (2022) [Ru/Multi] (1.1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -504,7 +608,7 @@ Nightmare Reaper (2019) [En] (2.30) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +634,7 @@ CyClones (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -556,7 +660,7 @@ Exorcism Ritual (2023) [En] (1.0) Scene DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -567,110 +671,6 @@ Exorcism Ritual – это хоррор на выживание с элемен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CAAC06E7E7C2774395A6AC99FCB967E2F2B56CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570162   (205469) от 16.08.2022
-
-TV189 (2018) [En] (1.0) License TiNYiSO
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205469.jpg" />
-</div>
-
-
-###  Подробнее
-
-TV189 – это название биологического оружия, вокруг которого завязан сюжет в данной игре. Её события происходят в антиутопическом будущем на территории вымышленного российского города Тималюн. Там обитает некая террористическая организация RFF (Силы Русского Фронта), что угрожает миру новым таинственным вирусом. У главного героя есть к нему иммунитет. Поэтому его (   Читать дальше...   )Тип издания: LicenseРазработчик: Toby ClarkЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7113424E0ECD5F8073E6222F25A65B93AA678BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584913   (205010) от 20.10.2022
-
-We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205010.jpg" />
-</div>
-
-
-###  Подробнее
-
-We Happy Few - история шайки не слишком приятных, но храбрых ребят, пытающихся сбежать из города Веллингтон Веллс от радостного идиотизма местной жизни. Вы должны слиться с жителями подсаженного на наркотики ретрофутуристического города в альтернативной Англии 1960-х – здесь не слишком любят людей, которые отказываются жить по его безумным правилам. Раскрывайте темную (   Читать дальше...   )Тип издания: LicenseРазработчик: Compulsion GamesЖанр: Приключение, Экшны, МистикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C507FF8655B10F27194346D9C36C6CCB94F6B1D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585623   (204741) от 26.10.2022
-
-Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfenstein: Enemy Territory - это бесплатный многопользовательский шутер от первого лица о Второй мировой войне. В игре могут участвовать до 32 игроков. Выберите Ось или союзников и сражайтесь на шести картах, основанных на реальных местах сражений. Играйте за один из пяти уникальных классов (инженер, медик, солдат, полевой оперативник и тайный оперативник), работая (   Читать дальше...   )Тип издания: LicenseРазработчик: Splash DamageЖанр: Шутеры, От первого лица, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C718F7CF8DC5B0109289861B047C4E12651BC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602558   (204412) от 06.01.2023
-
-Skater XL - The Ultimate Skateboarding Game (2020) [En] (1.2.2.5) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skater XL - The Ultimate Skateboarding Game – симулятор скейтбординга, где игрок испытает беспрецедентный контроль над доской, катаясь по легендарным местам, созданным из реального мира. Делайте такие приемы, какие только захотите. Почувствуйте связь со скейтом так, как никогда раньше в предыдущих играх.Тип издания: LicenseРазработчик: Easy Day Studios Pty LtdЖанр: Action, Indie, Simulation, SportsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8D0E2FF29588FEC07AB1BE4EA40D7C934D77C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

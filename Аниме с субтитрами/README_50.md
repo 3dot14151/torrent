@@ -1,3 +1,108 @@
+###  Публикация: 1401641   (707587) от 11.08.2020
+
+Teekyuu 6 | Теннис 6 [2015, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шестой сезон аниме, который рассказывает о жизни, драме и взаимоотношениях весьма незаурядных девочек из «Клуба любителей тенниса».Производство: Millepensee / ミルパンセЖанр: комедияРежиссер: Итагаки СинПеревод: VZbittenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 2 мин. + 2 спешиала по 2 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D194C702FA452916233089775C88E30E51123B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401637   (707585) от 11.08.2020
+
+Teekyuu 2 | Теннис 2 [2013, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клуб тенниса вновь радует своих поклонников безумными выходками, выходящими за грани разумного и нарушающими законы физики!
+Жизнь главных героинь чрезвычайно насыщенна: они помогут воспитателю в детском саду, подберут домашнего любимца для Насуно, поучаствуют в спортивном фестивале, расскажут в интервью о своем клубе и съездят в летний лагерь. Где бы ни оказались (   Читать дальше...   )Производство: MAPPA, Millepensee / ミルパンセЖанр: комедияРежиссер: Итагаки СинПеревод: VZbittenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 2 мин. + 2 спешиала по 2 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C50364106BAC09C847640A327F088718976B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401647   (707583) от 11.08.2020
+
+Usakame | Кролик и черепаха [2016, TV, 12 из 12 + 1 SP из 1] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Только мы собрались забыть о новых сезонах «Тенниса», как авторы нашли обход: анонсировали спин-офф. Спин-офф «Тенниса» рассказывает про девочек-теннисисток, с которыми героини основной серии встречались в национальном командном турнире.Производство: Millepensee / ミルパンセЖанр: комедияРежиссер: Итагаки СинПеревод: VZbittenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин. + 1 спешиал на 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D4EE19075FB13E846896D1FCD7DC7BE8C17A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401636   (707579) от 11.08.2020
+
+Teekyuu | Теннис [2012, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Аниме «Теннис» — экранизация одноименной манги в жанре «спортивная комедия», главными героинями которой являются четыре школьницы, участницы теннисного клуба.Производство: MAPPAЖанр: комедияРежиссер: Итагаки СинПеревод: VZbittenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 2 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64605EB5AAA18B6FDA941270E6D93E10A7D678AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401643   (707576) от 11.08.2020
 
 Teekyuu 7 | Теннис 7 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
@@ -6,7 +111,7 @@ Teekyuu 7 | Теннис 7 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Fukigen na Mononokean | The Morose Mononokean | Обитель мрачного 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Teekyuu 8 | Теннис 8 [2016, TV, 12 из 12 + 2 SP из 2] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Teekyuu 9 | Теннис 9 [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Blend S | Садистская смесь [2017, TV, 12 из 12] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ Iriya no Sora, UFO no Natsu | Sky of Iriya, Summer of UFO | Небо Ирии, �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ Project K: Missing Kings | К: Пропавшие короли [2014, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +297,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +323,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +349,7 @@ Short Peace: Buki yo Saraba | Gambo | Hi no Youjin | Tsukumo [2012-2013, MV, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +375,7 @@ Taiho Shichau zo: Second Season / You're Under Arrest Second Season / Вы ар�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +402,7 @@ Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress | Кабанери из 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +428,7 @@ Nora | Twinkle Nora Rock Me! | Нора | Сверкающая Нора: Без 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +455,7 @@ Hello!! Kin`iro Mosaic | Hello!! Golden Mosaic | Привет!! Золотая �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +481,7 @@ Yumeiro Patissiere / Dream-Colored Pastry Chef / Великолепный Кон
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +508,7 @@ Sakura Quest | Квест на фоне сакуры [2017, TV, 25 из 25] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +534,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +562,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +588,7 @@ Glass no Kamen / The Glass Mask / Стеклянная маска [ТВ-1] [1984
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +614,7 @@ Yama no Susume: Second Season | Encouragement of Climb: Second Season | В го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +640,7 @@ Endride | Эндрайд | Скиталец Эндры [2016, TV, 24 из 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +667,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12] BDrip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,110 +680,6 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12] BDrip 720p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D346F758E45BAE65A39DEF9DCA27C8272F2C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 673170   (700397) от 26.06.2013
-
-The Cockpit | Кокпит [1993, OVA, 3 эп.] DVDrip 720p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 1944 года, когда в исходе второй мировой войны уже мало кто сомневался, в небесах Германии два немецких пилота оказались вовлечёнными в неравный бой с превосходящими силами Союзников. После того, как один из них был подбит и взорвался в воздухе, второй лётчик, капитан Эрхард фон Райндарс, решил не искушать судьбу и парашютироваться, бросив свой самолёт. В армии (   Читать дальше...   )Жанр: драмаПеревод: ЛоинсЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDA19C12A4B129DFDE302365975258050F980E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978989   (700234) от 09.05.2017
-
-Momokuri / Момокури [2015, TV, 26 из 26] WEB-DLRip 360-576p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рано или поздно это случается - дети влюбляются. Небольшая история о школьном романе.Производство: SatelightЖанр: школа, романтикаРежиссер: Хирайкэ ЁсимасаЯзык субтитров: Русский (отключаемый)Продолжительность: по 12 мин/серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF385DFB71C70C3C9A216E3EC60DD67C9E27AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402528   (699706) от 15.08.2020
-
-B-Project: Kodou Ambitious | Проект Б: Амбициозное биение [2016, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цубаса устраивается на работу в крупную звукозаписывающую компанию Gandala Music, и её с порога назначают курировать объединение айдолов-парней под названием «Проект „Б“», в которое входят три группы: Kitakore, Thrive и MooNs. Это первая работа Цубасы, и из-за своей неопытности девушка постоянно попадает во всякие забавные и не очень ситуации, а заодно налаживает (   Читать дальше...   )Производство: A-1 PicturesЖанр: комедия, повседневность, музыкальныйРежиссер: Суганума ЭйдзиПеревод: A_D UnitЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B691DD8C293CD8B2FF6A43FCB68EAD50457D3BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402530   (699704) от 15.08.2020
-
-B-Project: Zecchou Emotion | B-Project: Zeccho*Emotion | Проект Б: Кульминационные эмоции [2019, TV, 12 из 12] HDTV 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цубаса устраивается на работу в крупную звукозаписывающую компанию Gandala Music, и её с порога назначают курировать объединение айдолов-парней под названием «Проект „Б“», в которое входят три группы: Kitakore, Thrive и MooNs. Это первая работа Цубасы, и из-за своей неопытности девушка постоянно попадает во всякие забавные и не очень ситуации, а заодно налаживает (   Читать дальше...   )Производство: BN Pictures / バンダイナムコピクチャーズЖанр: комедия, повседневность, музыкальныйРежиссер: Мориваки МакотоПеревод: Akira, LiteSunЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E0D7D85C025A426DE911B3F69E55D751C4624F
 ```
 
 https://mybot314.ru/tekegram_catalog/

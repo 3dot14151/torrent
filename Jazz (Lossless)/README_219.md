@@ -1,3 +1,61 @@
+###  Публикация: 1332894   (309724) от 22.10.2019
+
+The Modern Jazz Quartet - The Modern Jazz Quartet Plays for Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz, Cool-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Созданный 67 лет назад, этот коллектив и сегодня для всех любителей джаза является не только стандартом нескольких направлений эры джаза, но и самостоятельным создателем таких направлений. The Modern Jazz Quartet представлял собой мощную комбинацию стилей, которая в истории джазовой музыки просуществовала дольше прочих. Это рекорд, который можно оценить лишь помня (   Читать дальше...   )01. All the Things You Are (3:15)
+02. Softly, as in a Morning Sunrise (7:56)
+03. All of You (4:28)
+04. Autumn in New York (3:41)(   Читать дальше...   )Релиз состоялся: 1965Жанр: Jazz, Cool-JazzПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9889AA31111CADEC1D729B5ACAE20318086DB93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077063   (309653) от 27.11.2016
+
+Harry Verbeke & Rob Agerbeek Quartet - Gibraltar (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Gibraltar [07:30]
+ 02.It Could Happen To You [05:18]
+ 03.Laura [06:14]
+ 04.Holy Land [06:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D15AE059214F0260C6C7DB9FF8991A4BCD9F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077166   (309643) от 27.11.2016
 
 Michel Camilo - Michel Camilo (1988) Portrait[FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
@@ -6,7 +64,7 @@ Michel Camilo - Michel Camilo (1988) Portrait[FLAC|Lossless|tracks + .cue] <Lati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Miles Davis - Nefertiti (1988) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Miles Davis - Ballads (1998) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Alice Coltrane - Radha-Krsna Nama Sankirtana (1977) 2002, Warner Bros. Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ Sonny Rollins - The Best of Sonny Rollins: The Blue Note Years (1989) Blue Note 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ Sonny Rollins & Co. feat. Jim Hall - The Bridge: Complete 1962 Sessions (2013) F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ Diana Krall - This Dream Of You (2020) Verve Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ingrid Mapson - Rhythms Of Your Heart (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +296,7 @@ Traci Cooper - Stepping Stone (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +325,7 @@ Christine Pedi - Good To Mama (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +354,7 @@ Barbara Fasano - Busy Being Free (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +383,7 @@ Peggy Lee - 2 Compilations (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -360,7 +418,7 @@ Roland Guerin Sextet - Live At The Blue Note (1999) Half Note [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +447,7 @@ Tom Harrell - Upswing (1993) Chesky Records [WavPack|Lossless|image + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +476,7 @@ Chuck Mangione - Save Tonight For Me (1986) CBS [FLAC|Lossless|image + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +505,7 @@ Buck Clayton - Jam Session: How Hi The Fi (1953, 1954) 2005, Membran Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +534,7 @@ Elina Duni - Partir (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Balkan Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +563,7 @@ Benny Carter - The Best of Benny Carter (1980) 1987, Pablo Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +592,7 @@ Ruby Braff - Born To Play (1999) Arbors Records [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +621,7 @@ Alan Broadbent & The London Metropolitan Orchestra - Developing Story (2017) Ede
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +650,7 @@ Ruby Braff & Ellis Larkins - The Grand Reunion (1972) 1999, Chiaroscuro Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,7 +679,7 @@ Ruby Braff & Ellis Larkins - Two By Two: Ruby And Ellis Play Rodgers And Hart (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -650,7 +708,7 @@ Count Basie - Salle Pleyel, Apr. 17th, 1972 (Paris Jazz Concert) (2002) 2CD [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -679,7 +737,7 @@ Oddjob - Koyo (2004) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -693,64 +751,6 @@ Oddjob - Koyo (2004) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3F5BAF41D0B740653570A18E4109E5FB691D458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077313   (307174) от 28.11.2016
-
-Oddjob - Oddjob (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dwarf 'n' Tony [5:05]
-02. Sideburns [6:55]
-03. Lim [4:47]
-04. Bloodstream [4:57](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAA1F5BDCFD4C43518721898F63E8255932B070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077319   (307172) от 28.11.2016
-
-Oddjob - Folk (2015) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Folk #1 [7:39]
-02. Folk #2 [7:15]
-03. Folk #3 [6:12]
-04. Folk #4 [7:26](   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, FusionПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7D03E2560510B489326E3B9AF9832FCA8F02A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

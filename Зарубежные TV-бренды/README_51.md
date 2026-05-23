@@ -1,3 +1,55 @@
+###  Публикация: 903692   (657770) от 31.05.2015
+
+Discovery: Через магию к звёздам / The Pop Illusionist (El Mago Pop)  (2015.05.24) HDTVRip (серия 1)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На что пойдет молодой и талантливый иллюзионист, чтобы встретиться со звездами поп-культуры? Разумеется, он выкинет какой-нибудь фокус! Антонио Диас — победитель Национального конкурса иллюзионистов Испании — очень надеется, что его мастерство поможет ему исполнить мечту и увидеть кого-нибудь из своих звёздных кумиров. В его арсенале нет надоевших цилиндров и кроликов (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Документальный, путешествия, фокусыРежиссер: Джоан ХильПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D80D9E29F95E29B8834EF31E8BFFB736E9DE58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514749   (657719) от 24.06.2012
+
+Discovery: Монстры механики. Искусственные монстры / What a Tool. Annihilators (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Они обшарили всю землю в поисках самых грандиозных агрегатов. И нашли их. Этот фильм рассказывает про монстров машиностроения глазами самого инструмента и глазами людей, которые работают на них, раскрывая историю гигантов, их необходимость в повседневной жизни, и непревзойденную силу.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C87F971272D68FBD7FF9CC66D29D024A213540C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139087   (657617) от 04.06.2017
 
 DV: История письменности / Die Geschichte der Schrift (2011) SATRip
@@ -6,7 +58,7 @@ DV: История письменности / Die Geschichte der Schrift (2011) 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG: Происхождение: Путешествие человечества 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery: Северное море (8 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_657296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery: Северное море (7 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_657257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery: Северное море (6 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_657250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ BBC. Как построить ядерную электростанцию / How
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Discovery: Аляска. Семья из леса / Alaskan Bush People (2014) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ NG. Известная Вселенная / Known Universe (2009) BDRemux [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ DV: Невероятное вокруг нас. Осязание [17 из 28] / 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ DV: Невероятное вокруг нас. Мистер Джонас исс
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ DV: Невероятное вокруг нас. Вкус [18 из 28] / Totally 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ DV: Невероятное вокруг нас. Вулканы [20 из 28] / To
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ DV: Невероятное вокруг нас. Ледники [19 из 28] / To
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ DV: Невероятное вокруг нас. Рентгеновские лу�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ DV: Невероятное вокруг нас. Потоки энергии [3 �
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ DV: Невероятное вокруг нас. Нервная система [2
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ NG. Криминальная Британия / Britain's underworld (2010) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ NG: Дикая природа Калифорнии / Дикая Нижняя К�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ NGW: Дикая природа Чили / Wild Chile (2017) DVB [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9101659FA1B336759CA921F0AD41DD83F7F97ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757871   (653089) от 04.06.2015
-
-NG. Монстр млечного пути / Cosmic Monsters (2007) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со вспышки массивной сверхновой возникает один из самых загадочных феноменов Галактики - черная дыра... Черные дыры были еще недавно детищем писателей-фантастов, которые в своих произведениях описывали страшные особенности этих космических монстров - поглощение вещества и энергии. Даже свет не мог вырваться из их цепких объятий! Сегодня ученые всего мира решают весьма (   Читать дальше...   )Жанр: Документальный, научно-познавательный, исследование, космосПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021FF2D5B264F0601ED82FF5865BE49A1ABA6B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904731   (653088) от 04.06.2015
-
-BBC. В краю муссонов: В ожидании дождя / Wonders of the Monsoon: Waiting for the Rains (2014) BDRip [H.264/720p] [VO]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как экзотику и очарование дикой природы, так и самобытность пёстрых культур Южной Азии породило одно из самых грандиозных явлений нашей планеты - безудержная стихия муссонов. Жизненные циклы животных и человека вращаются вокруг этого неистового, природного феномена, который даёт жизнь и её же отнимает. От Северных берегов Австралии к высочайшим пикам Гималаев, от (   Читать дальше...   )Производство: Великобритания, BBC, Natural History Production, BristolЖанр: Документальный, природа, флора, фаунаРежиссер: Ханна Хоаре, Кэтрин ЖеффсПеревод: Одноголосый закадровый любительский (Ю. Онищенко)Субтитры: Русские, английскиеПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E32E92241501585A56B6A77CE7BE89FDBBBACFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

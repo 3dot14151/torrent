@@ -1,3 +1,57 @@
+###  Публикация: 1327162   (378642) от 23.09.2019
+
+Asagao to Kase-san. | Kase-san and Morning Glories. | Сияние утра и Касэ [2018, OVA] BDRip HEVC 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юи Ямада — робкая старшеклассница, обожающая ухаживать за школьными клумбами, влюбляется в Томоку Касэ, и они начинают встречаться. История рассказывает о различных проблемах, с которыми девушки сталкиваются в их отношениях.Производство: Япония, ZEXCSЖанр: комедия, романтика, повседневность, сёдзё-айРежиссер: Сато ТакуяПеревод: Medusa Project (хардсаб в софтсаб и "редактура" TiredGirl)Субтитры: ass, в контейнере, русскиеПродолжительность: OVA, 1 эпизод ~60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAC9182D02A376AB9A63087961770F53D05EBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575462   (376925) от 09.09.2022
+
+Eiga Odd Taxi: In the Woods | Необычное такси (фильм) [2022, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот город должен казаться знакомым, но внезапно оказывается, что это не так.
+Таксист Одокава живет очень мирской жизнью. У него нет семьи, он почти не общается с другими, и он чудак, ограниченный и малоразговорчивый. Единственные, кого он может назвать друзьями, это его доктор Гурики и его одноклассник Какибана.
+Все его покровители сами по себе кажутся немного странными. (   Читать дальше...   )Производство: P.I.C.S.Жанр: комедия, детективРежиссер: Киносита БакуПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 130 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B02952180D5D591C37F9F45FBEF538DB282D1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174702   (376259) от 19.10.2017
 
 Under the Dog | Побитые псы [2016, OVA] BD-rip 1080p raw
@@ -6,7 +60,7 @@ Under the Dog | Побитые псы [2016, OVA] BD-rip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1993-1996
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Sangatsu no Lion S1+S2 | March Comes in like a Lion S1+S2 | Мартовский
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Fukumenkei Noise | Anonymous Noise | Не скрывая крик [2017, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Konbini Kareshi | Convenience Store Boy Friends | Парни из магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! | High School 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +242,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +269,7 @@ Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +295,7 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +321,7 @@ Miru Tights | Созерцая колготки [2019, Web, 12 эп. + 1 SP] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +347,7 @@ Aragne no Mushikago | Aragne: Sign of Vermilion | Клетка с насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +373,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +399,7 @@ Tengen Toppa Gurren Lagann / Heavenly Breakthrough Gurren Lagann / Гуррен-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +425,7 @@ Dance In The Vampire Bund | Танец на Вампирском берегу [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +451,7 @@ Jouran: The Princess of Snow and Blood | Смута. Принцесса снег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +477,7 @@ Cyberpunk: Edgerunners | Киберпанк: Бегущие по краю [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +503,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes. | Как госп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +529,7 @@ Kikou Kai Galient | Panzer World Galient | Галиент [ТВ] [1984, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +555,7 @@ Ladies versus Butlers! / Ladies vs. Butlers! / Леди против Дворе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +581,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +607,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +633,7 @@ Gekijouban Soushuuhen Overlord | Повелитель (компиляция ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +659,7 @@ Log Horizon 2 | Лог Горизонтa  2 [TV-2][2014, TV, 25 эп.] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,60 +670,6 @@ Log Horizon 2 | Лог Горизонтa  2 [TV-2][2014, TV, 25 эп.] BDrip 108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6BD8CE23A580B7A476A14DFF026EE935E9C8DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178889   (351396) от 30.10.2017
-
-Mitsuami no Kamisama | Pigtails | Богиня с косичками [2015, Movie] BD-rip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351396.jpg" />
-</div>
-
-
-###  Подробнее
-
-И содрогнулась земля. И вышло море из берегов. И было это только начало всех бедствий. А затем...
-
-Девушка, уединённо живущая на берегу моря. Привычного мира больше нет, но для неё день проходит как обычно. Она заплетает волосы в косы, стирает и сушит бельё. Она не замечает, как вокруг неё вещи говорят с миром - подушка спорит с зонтиком о катастрофе, новая зубная (   Читать дальше...   )Производство: студия Production I.GЖанр: повседневность, драмаРежиссер: Итадзу ЁсимиПеревод: zafhozЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D638581B1A1CA14681EF1DC67DEC7FD6878092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178606   (351132) от 30.10.2017
-
-Kemono Friends | Животные-друзья | Дикие друзья [2017, TV, 12 эп.] BD-rip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351132.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «гигантском интегрированном зоопарке» под названием «Джапари Парк» творится неладное: из-за таинственной субстанции, получившей название «песчаная звезда», животные начали превращаться в антропоморфных существ — зверодевушек. «Джапари Парк» ежедневно посещает множество людей, которые прекрасно проводят там время, но однажды в парк забредает потерявшийся ребёнок. (   Читать дальше...   )Производство: студия Yaoyorozu / ヤオヨロズЖанр: приключения, комедияРежиссер: ТацукиПеревод: Elven_TankmanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F672E4865B06CB4AFA4AA6892B075DB655C7703B
 ```
 
 https://mybot314.ru/tekegram_catalog/

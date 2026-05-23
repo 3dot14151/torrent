@@ -1,3 +1,116 @@
+###  Публикация: 666447   (1013446) от 30.05.2021
+
+Готовим домашний кетчуп [2013] SATRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Лучше кетчупа может быть только ... домашний кетчуп! Его не купишь в супермаркете, но он гораздо вкуснее и, что важно, полезнее!!! И все это можно сделать своими руками. Как приготовит кетчуп в домашних условиях.Жанр: ВидеоурокПродолжительность: 00:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D36A7DC683B238B478519234CE157853FA38F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481106   (1008428) от 02.07.2021
+
+Gardenstyle, Ирина Пугачева | Создание собственного дизайн-проекта сада  (2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Тариф "Проект"
+Руководство по созданию небольшого сада
+7 иллюстрированных презентаций
+Инструкции по созданию проекта:(   Читать дальше...   )Производство: GardenstyleЖанр: Садово-парковый дизайн, ландшафтный дизайнПродолжительность: 15:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9248E4D5B2B180B41B3720D681F1DC517FEAFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481105   (1008421) от 02.07.2021
+
+Russian Permaculture, Елена Арифулина | Проектируем лесные сады  (2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В обычном садоводстве упор делается на агротехнику отдельных растений, почти без учёта взаимосвязей между растениями, и сад редко рассматривается
+как единое целое. Поэтому наши сады зачастую являются неустойчивыми, то есть зависимыми от средств защиты, удобрений, постоянного вмешательства
+человека и энергии ископаемого топлива.
+Лесное садоводство — это большой шаг (   Читать дальше...   )Производство: Russian PermacultureЖанр: СадоводствоПродолжительность: 15:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392E0AB50A3B2A730C9580E7108C67409B072A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488834   (1001343) от 13.08.2021
+
+Archicad-Master | Новые возможности разверток в ArchiCAD 25 (2021) PCRec [AD]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Для кого данный мастер-класс будет полезен:
+ДЛЯ НОВИЧКОВ
+Если вы только начали осваивать программу Архикад и не знаете, как правильно и поэтапно создавать развертки, чтобы сэкономить себе время и быстро добиться достойных результатов, тогда вам сюда.
+ДЛЯ ПРАКТИКУЮЩИХ(   Читать дальше...   )Производство: Archicad-MasterЖанр: ArchiCADПродолжительность: 29:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5733B2F34F994CA4E4E63654EB2197C9C15F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600405   (998453) от 09.01.2013
 
 Специалист | Сметное дело в строительстве [2011] PCRec
@@ -6,7 +119,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -144,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -173,7 +286,7 @@ ArchiCAD-Master, Пушкарёв Александр | Интерактивны�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -202,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -228,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -257,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -283,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -311,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -340,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -367,7 +480,7 @@ Cornacchia | Cornacchia\ Декорирование ткани (2015) PCRec [H.2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -393,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -562,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -588,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -599,118 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E54C3AF667E2DC3C02D9DE0EC0F3781A2B07A907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198309   (808007) от 11.01.2018
-
-Борис Бублик | Случайные Видео Агроинженера (2005-2015) CamRip [H.264]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случайные Видео Агроинженера Бориса Андреевича Бублика
-Неожиданные решения в области агротехники!
-Проверено практикой!Жанр: АгротехникаПродолжительность: 09:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D46FC7E6C1738E35040B65B8E031E35B5BD677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381625   (807420) от 17.05.2020
-
-Иван Зылев | Создание интерьера в Autodesk Revit (2019) PCRec [H.264/720p-LQ]
-
->>След.
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс научит создавать рабочую документацию для интерьера в Revit, от обмерного плана до электрики и разверток. Вы создадите необходимые спецификации и экспликации, оформите собственный штамп и выполните итоговый проект.Производство: int-linesЖанр: Обучающее видеоПродолжительность: 26:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DFB0A8FBEDB6C0A617D062E2CA0888FB2E32C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505166   (805697) от 26.10.2021
-
-Учебный центр AMS, Надежда Бейнер | SketchUp для дизайнеров интерьера (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого полезен курс?
-
-Начинающий дизайнер
-Если вы давно искали простую программу для создания 3D моделей квартир, то SketchUp – идеальный вариант. Без сложных терминов и длительного обучения. Уже через 14 дней у вас на руках будет готовый проект для портфолио. Сможете воплощать смелые идеи и создавать оригинальный дизайн.(   Читать дальше...   )Производство: Учебный центр AMSЖанр: Дизайн, SketchUpПродолжительность: 28:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515FB0EBD7AF5E0E43B23D2FB9EF3537F2C40D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117995   (804800) от 29.03.2017
-
-Салават Загидуллин | Проектирование систем ОВиК в AutoCAD (2017) PCRec
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте востребованным проектировщиком систем ОВиК в AutoCAD, сэкономив время и десятки тысяч рублей на обучении!
-Этот видеокурс для вас, если вы:
-Новичок в проектировании систем ОВиК в Автокаде
-Уже не новичок, но желаете делать проекты проще и быстрее, чем сейчас(   Читать дальше...   )Жанр: Строительство, проектированиеПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79C43BADC6C4430F54391533A5CAC8DBF056D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

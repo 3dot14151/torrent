@@ -1,3 +1,185 @@
+###  Публикация: 1222522   (684676) от 29.04.2018
+
+Tenorshare Any Data Recovery Pro 6.4.0 RePack by вовава [En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Tenorshare Any Data Recovery Pro — мощная программа для восстановления случайно удаленных данных. Кроме того, это приложение поможет получить доступ к файлам на отформатированных или поврежденных дисках. Таким образом нужные документы, фотографии, видео, музыка и др. с жесткого диска, USB-флэшки, карты памяти, мобильного телефона, цифровой камеры, внешнего жесткого (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1B4DFA053DC7940C1A930840E78EE309706239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290291   (677911) от 20.03.2019
+
+7-Data Recovery Suite 4.4 Enterprise RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+7-Data Recovery Suite — утилита для восстановления информации с: DE HDD, SATA HDD, SCSI HDD, FireWire HDD, SSD, USB HDD, External HDD, Hardware RAID, Floppy drive, USB flash drive, Compact flash card, Secure Digital card, Memory card/Memory stick, Micro card, Zip drive, IPod и других носителей, в результате порчи или сбоя оборудования, деятельности вирусов или форматирования. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7560DBC52C9E108E29C835673406E22C2E3E2C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223279   (677006) от 03.05.2018
+
+7thShare Card Data Recovery 2.6.6.8 RePack by вовава [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Card Data Recovery - программа от 7thShare Studio позволит вам восстановит удаленные, отформатированные, поврежденные или потерянные фотографии, музыкальные файлы, документы, видео и так далее, работает с любыми картами памяти SD, CF, MMC, XD, SDHC и так далее. Программа обладает приятным интерфейсом, работать с ней максимально просто, все файлы по форматам разделены, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FFAEDC1566D4724A7EC9EB1909827C6D5F8EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290907   (673942) от 22.03.2019
+
+MiniTool ShadowMaker Pro 3.1.1.2 [En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+MiniTool ShadowMaker - это универсальное решение для защиты данных и аварийного восстановления для ПК. Он может создавать резервные копии вашей операционной системы Windows, важных файлов / папок, выбранных разделов и даже всего диска. С помощью копии резервной копии вы сможете восстановить данные в случае сбоя, например, сбоя системы, сбоя жесткого диска и т. Д. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F3FEFBAD4F4C51360A2100E299FAE6114D4C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292021   (650251) от 27.03.2019
+
+O&O DiskImage Professional + Workstation + Server Edition 14.0 Build 321 [En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обычные системы резервного копирования обеспечивают сохранность определенных файлов и папок, но не способны восстановить работоспособность операционной системы Windows PC при серьезных неполадках. Создаваемый при помощи приложения O&O DiskImage образ жесткого диска, содержащий всю информацию, необходимую для корректной работы ОС, поможет решить эту проблему. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814CD2B6E88C308E3A4563A59178F21063407BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292373   (644695) от 30.03.2019
+
+DiskDigger 1.20.12.2767 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E69A149A496605D0C65AA0B8340637182B6AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907066   (641138) от 10.06.2015
+
+Rollback Rx Professional 10.3.Build.2700482570 RePack by Kindly [Multi/Ru]
+
+>>След.
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Rollback Rx Professional - программа предназначена для создания так называемых «снимков» системы, которые при необходимости могут использоваться для отката и восстановления случайно утерянных данных в случае поражения компьютера вирусом и изменений, которые внесли в систему недавно установленные программы и т. д. RollBack Rx восстанавливает не только файлы, но и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1CB68091774B50884B0C906964408D37D932CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908748   (631265) от 15.06.2015
 
 DATALABS unCHK free 1.0 Portable [Ru]
@@ -6,7 +188,7 @@ DATALABS unCHK free 1.0 Portable [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ Acronis True Image 2017 New Generation 21.0.6209 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +240,7 @@ Acronis True Image 2017 20.0.8058 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +266,7 @@ Acronis True Image 2017 New Generation 21.0.6209 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +292,7 @@ Handy Recovery v5.5 Final + Portable [2012,x86/x64,Eng]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +322,7 @@ FileRestorePlus 3.0.19.415 RePack (& Portable) by TryRooM [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +348,7 @@ R-Studio Technician 9.0 Build 190312 RePack (& portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +374,7 @@ Acronis Snap Deploy 5.0.1924 + BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +400,7 @@ CloneApp 1.04.340 Portable [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +426,7 @@ Stellar Phoenix Excel Repair 5.5.0.0 RePack by KaktusTV [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +452,7 @@ TeraByte Unlimited Image for Windows 2.97а [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +478,7 @@ Acronis True Image 2015 18.0 Build 6613 + Media Add-ons [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +504,7 @@ R-Undelete 4.9 Build 159222 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +530,7 @@ Apeaksoft Data Recovery 1.1.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +556,7 @@ Laplink PCmover Professional 11.01.1009.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +583,7 @@ Coolmuster Android Assistant 4.3.16 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +609,7 @@ Starus File Recovery 4.1 Home / Office / Commercial Edition RePack (& Portable) 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +635,7 @@ Ontrack EasyRecovery Enterprise | Professional 11.5.0.3 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +661,7 @@ Aiseesoft FoneLab for Android 1.2.12 RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,190 +672,6 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD6843DFD5B644464A26F82FDE64CF9DE565B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157161   (525436) от 11.08.2017
-
-Tipard Android Data Recovery 1.2.6 RePack by вовава [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard Android Data Recovery - это профессиональная программа для восстановления данных Android устройств. Позволяет восстановить утерянные/удалённые контакты, сообщения, фото, видео и другие файлы непосредственно с Android смартфонов. Поддерживает различные популярные устройства, включая Samsung Galaxy S7 edge/S7/S6 edge+/Note5, HTC M10/M9/M8, LG, Sony, Google phone, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF302DAD7378C4BE3BA4CE1307E784B88E786BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156884   (525096) от 12.08.2017
-
-AOMEI Backupper Professional 3.2 BootUSB [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525096.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Представленный образ позволит произвести создание загрузочной флешки и создать образ жесткого диска, системы, и многое другое, что необходимо, для комфортного и безопасного обслуживания файловой системы.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DBB63417D610FC15DFEBEE58F690FD3F764540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313402   (523649) от 09.07.2019
-
-Ashampoo Photo Recovery 1.0.5 RePack (& Portable) by TryRooM [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотографии обладают незаменимой, нематериальной ценностью. Будь то фотографии свадьбы, отпуска, выходных, праздников или детей, они хранят самые памятные моменты в нашей жизни. Если они пропадают, случайно или из-за технического сбоя, потери будут значительны. Вот тогда-то Вы и будете рады тому, что у Вас есть Ashampoo Photo Recovery - специалист по восстановлению (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B974B553CE7843B3A521E050C81E754E34712334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314116   (521202) от 12.07.2019
-
-O&O MediaRecovery Professional 14.0 Build 17 [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521202.jpg" />
-</div>
-
-
-###  Подробнее
-
-С O&O MediaRecovery вы можете восстановить удаленные фотографии, которые запечатлели эти драгоценные моменты; прошлогодние каникулы, день свадьбы или первые фотографии ваших детей. Если эти незаменимые воспоминания будут удалены, это больше не будет означать, что они потеряны навсегда.
-
-И O&O MediaRecovery на этом не останавливается: он также может восстанавливать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D45743FF067D50BD85F5AE53023DBD2C0967339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314535   (519035) от 14.07.2019
-
-Magic Photo Recovery 4.7 Commercial Edition Portable by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое программное обеспечение для восстановления цифровых фото позволяет вернуть изображения, удаленные с компьютера, карты памяти или внутренней памяти вашей цифровой камеры. С помощью Magic Photo Recovery можно восстановить изображения, удаленные из корзины, вернуть фотографии с поврежденных, отформатированных и заново разбитых на разделы жестких дисков, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38AEB828720DC09BE3C9CCD11C42E1E7F5E3491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314532   (518848) от 14.07.2019
-
-Magic Partition Recovery 2.8 Commercial Edition Portable by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Partition Recovery от East Imperial Soft предназначен для работы как с существующими разделами, так и испорченными, удаленными и не доступными дисками. Программа поможет вам не только вернуть утерянные файлы, но и восстановить всю структуру диска: имена файлов и папок, их расположение и т.д. Продукт работает с любыми типами файловых систем FAT и NTFS (включая (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33B5300800F2B2EBA975A408D82783C950A7FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314347   (517958) от 15.07.2019
-
-Magic FAT Recovery 2.8 Commercial Edition Portable by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с Magic FAT Recovery - замечательной и быстрой в работе программой восстановления данных с поврежденных FAT/FAT32 разделов. Она идеально подойдет для извлечения информации с отформатированных, поврежденных и недоступных карт памяти, USB-накопителей и других FAT-носителей. Подробнее прочитать об этой программе Magic FAT Recovery можно ниже в обзоре.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6EFBF43A3B2220A88CB588ECF7A18C5E6C6E6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

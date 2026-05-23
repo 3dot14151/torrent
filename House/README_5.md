@@ -1,3 +1,96 @@
+###  Публикация: 1359417   (963276) от 13.02.2020
+
+VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Phonique Feat. Die Elfen - The Red Dress (Dub Mix) (6:26)
+02. Random Factor - Dreamstate (5:34)
+03. Ciudad Feliz - How (3:31)
+04. The Visitors - No Under On The Ground (3:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2E34726E1C5AA52E33E08C3718A5A9D64227FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277498   (961419) от 02.01.2011
+
+VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House, Trance, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Tiesto & Diplo feat. Girlicious - C'Mon Get Hood
+002. Yolanda Be Cool & Dcup - We No Speak Americano
+003. Pendulum - The Island (Part II)
+004. Dan Balan - Justify Sex
+005. Stromae - Alors On Dance (DJ Pomeha Remix)
+006. David Guetta Feat. Kid Cudi - Memories
+007. Swedish House Mafia Ft. Pharrell - One (Your Name)
+008. Lady Gaga - Alejandro (Bimbo Jones Mix)
+009. Duck Sauce - Barbra Streisand
+010. Kaskade feat. Haley - Dynasty (Dada Life Remix)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 09:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC115A732B9AAF1DE3619E6DBE072B5CF9B27AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360289   (960933) от 15.02.2020
+
+R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. R-Tem - Intro (2:15)
+02. R-Tem - Voiceless (Original Mix) (7:32)
+03. R-Tem - Breathe (7:42)
+04. R-Tem - Sunrise (5:18)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2020BC6CCC9BF9ADEFBA6239199C75965BFEFF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360305   (959468) от 16.02.2020
 
 VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
@@ -6,7 +99,7 @@ VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +128,7 @@ VA - Welcome 2017  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +157,7 @@ VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +186,7 @@ VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +215,7 @@ VA - Syndicated Soul, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +244,7 @@ VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +273,7 @@ VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +302,7 @@ VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +331,7 @@ VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +360,7 @@ VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +389,7 @@ VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +418,7 @@ VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +444,7 @@ VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +473,7 @@ VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +502,7 @@ VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -438,7 +531,7 @@ Eric Prydz - Opus (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -467,7 +560,7 @@ VA - OPTICA (Mixed by Dj Бинокль) (2004) [MP3|320 Kbps] <House, Spanish T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -493,7 +586,7 @@ DJ Woofer - Deep & Sexy Vol.02 (2005) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -519,7 +612,7 @@ VA - Armada Deep Top 10. January (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -548,7 +641,7 @@ VA - Winter 2017: Best Of Inception (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -577,7 +670,7 @@ John Dahlback - Saga (2016) [MP3|320 кб/с] <Electro House, Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,7 +699,7 @@ VA - Best of Aethereal 2016 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -635,7 +728,7 @@ Dj Бинокль - Смотри В Оба - Голос Клубного Дне�
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -647,91 +740,6 @@ Dj Бинокль - Смотри В Оба - Голос Клубного Дне�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF916A8F6873686350366EB628C8869AE8782C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362740   (942647) от 28.02.2020
-
-VA - Dj Бинокль - Housemission II (PlayOff) (2004) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tooth-Paste Vol.2 - Play Off (4:02)
-02. D. Ramirez Feat. Pete Simpson - Freaque On (Seamus Haji Remix) (7:04)
-03. Candy Dulfer - Let Me Show You (G Men Investigate On The Dub) (6:17)
-04. Main Ingredients (2)	Lean On Me (Piano Dub) (4:35)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60CB863EB2B83C4A2E8C1E0A45566EBF4897B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362711   (942637) от 28.02.2020
-
-Dj Бинокль - Dnepro House (2001) [MP3|320 Kbps] <House, Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942637.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Play House Some More! (29:33)
-2. And Now It`s Time (30:04)Жанр: House, Euro HouseПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E178781592486C9B50CC8CCD6913B91639E106A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362733   (942627) от 28.02.2020
-
-VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funk Bandit - Crazy Love (Crazy Acapella)
-02. Indigo Feat Elisabeth Troy - Real Love (Reprise & Grant Nelson Dub Mix)
-03. Bad Cabbage - Your Rude (Get Fucked) (Fuckapella)
-04. J Haystax - Still In Luv With You (Full Vocal Dub)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4234879A799923E57DC4DF57BECFAE5646C3C54D
 ```
 
 https://mybot314.ru/tekegram_catalog/

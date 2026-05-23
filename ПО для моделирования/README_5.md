@@ -1,3 +1,160 @@
+###  Публикация: 1191417   (264341) от 13.12.2017
+
+CLO Enterprise 3.2.45 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+"CLO Enterprise" является более продвинутой версией программы "Marvelous Designer", и понравится дизайнерам одежды, так как собственно и была создана для того, чтобы ее создавать в 3D режиме. Теперь разрабатывать новые коллекции и экспериментировать вы сможете гораздо удобнее чем раньше, все нужные инструменты под рукой, интерфейс в целом понятен, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2154374EAFD52C457E0378683E4581D63B2ED06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340999   (262811) от 26.11.2019
+
+Exoside QuadRemesher 1.01 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Плагин Quad Remesher - это технология автоматического пересчета квадов или так сказать автоматической ретопологии .Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC610F7BF2338A3382D9EABE2BFBB510786AFC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838512   (260906) от 23.11.2025
+
+AMS Ландшафтный Дизайн 3D 11.0 [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Ландшафтный Дизайн 3D - простая программа для планирования приусадебных и дачных участков. С ее помощью можно нарисовать территорию любой формы и размера, разместить строения, растения и мебель, а затем просмотреть готовый проект в 3D.
+Программа легко управляется и не требует от пользователя специальных навыков. Проектирование здесь больше похоже на игру, чем на (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3C0E5C3D5C08623DD58DC7F18FCF14F3D1E1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838563   (260789) от 23.11.2025
+
+Дизайн Интерьера 3D 12.0 (DC 2025.11.03) Repack (& Portable) by elchupacabra [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B2C9BD9934CFFEE1D64946C20FAFFB719F86B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838319   (259774) от 22.11.2025
+
+Мой Дом 3D 4.15 RePack (& Portable) by elchupacabra [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Мой Дом 3D -  - это программа для самостоятельного проектирования домов. Вы сможете создать поэтажный план здания с мансардой и цокольным этажом, пристроить крыльцо, лестницу. Внешнюю и внутреннюю отделку меняйте по своему усмотрению. В каталоге есть 1150+ материалов и возможность загрузить свое фото обоев, линолеума и прочих покрытий.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB65D66A1F752B32DC57BD0E47247FDA69FEC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837705   (257764) от 18.11.2025
+
+Marvelous Designer Enterprise 2025.2.81 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Marvelous Designer — мировой лидер в области решений для цифровой графики, направленных на оптимизацию рабочих процессов создания реалистичной 3D-одежды. Marvelous Designer стал отраслевым стандартом для создания 3D-объектов виртуальной одежды для индустрии игр, визуальных эффектов, дизайна и архитектуры. Благодаря самой инновационной технологии на основе выкроек (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1C4EDB827C89DAB80039B6E48508A183C69DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837117   (256665) от 15.11.2025
 
 AMS Мой Дом 3D 4.15 [Ru]
@@ -6,7 +163,7 @@ AMS Мой Дом 3D 4.15 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +191,7 @@ V-Ray 6.00.03 for SketchUp 2019-2023 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -60,7 +217,7 @@ SpeedTree Modeler v9.1.1 Cinema Edition Win x64 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -88,7 +245,7 @@ Terragen Professional 4.5.71 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +271,7 @@ Adobe Substance 3D Sampler 3.3.1 Build 1866 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +297,7 @@ Nitro4D NitroCap v1.55 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +323,7 @@ SpeedTree Cinema v8.4.2 + Game Engines UE4/Unity/Indie v8.4.2/Clarisse v8.4.1 [E
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -194,7 +351,7 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -220,7 +377,7 @@ Adobe Substance 3D Stager 1.2.1 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -246,7 +403,7 @@ Chaos Vantage 3.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -272,7 +429,7 @@ ColorCorrect for 3ds Max 1 - 2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -298,7 +455,7 @@ Gaea 1.3.1.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -350,7 +507,7 @@ Bricklink Studio 2.23.7 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -376,7 +533,7 @@ Agisoft Metashape Professional 1.8.5.14930 (x64) [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +586,7 @@ The Foundry Modo 16.1v1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +612,7 @@ Singular Inversions FaceGen Artist Pro 3.12 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +638,7 @@ Itoo RailClone Lite 5.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -508,7 +665,7 @@ Exoside QuadRemesher 1.2.1 for 3ds Max [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -519,162 +676,6 @@ Exoside QuadRemesher 1.2.1 for 3ds Max [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8561C60B897840AAC6116180BEBF5E99364126A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631682   (198797) от 06.05.2023
-
-Дизайн Интерьера 3D 8.0 Repack KaktusTV [Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198797.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DB82505F9A1957DDB8ABDD344C839EBEC81FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632915   (198500) от 12.05.2023
-
-CrazyTalk Pipeline RePack by PooShock 8.12.3124.1 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198500.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrazyTalk — программа для анимации в реальном времени статических фотографий с помощью фирменной технологии 3D фото морфинга Facetrix с добавлением эмоций, речи, звукового сопровождения, также можно добавить элементы лица и еще многое другое.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778053D72CE102A530A98226383A8564FA14AFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639354   (197078) от 13.06.2023
-
-LibFredo6 13.9a for Sketchup 2017-2023 Win (x64) [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197078.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibFredo6 — это общая библиотека плагинов, используемая большинством расширений Fredo6 и многими другими. LibFredo6 заботится, среди прочего, о обогащении моих расширений несколькими возможностями, такими как параметры по умолчанию, языковой перевод, проверка плагинов на наличие обновлений, ведение журнала трассировки и т.д. Это НЕ автономный плагин. Его необходимо (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A75CECF1F1A0F085CC0903D3539760E866F056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645449   (195886) от 09.07.2023
-
-Reallusion iClone 8.3.1815.1 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195886.jpg" />
-</div>
-
-
-###  Подробнее
-
-iClone представляет собой программный продукт для профессиональной трёхмерной анимации в реальном времени. Он располагает всеми необходимыми для этого средствами и инструментами: цифровыми актёрами, элементами антуража, визуальными эффектами, системами управления камерой и освещением, возможностью записи движений (motion capture) с использованием технологии Microsoft (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6E236895107BEBFD90CFBEC2E1E68BC1EE7D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647508   (195464) от 19.07.2023
-
-Reallusion Cartoon Animator 5.01.1121.1 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cartoon Animator (ранее известный как CrazyTalk Animator) представляет собой программное обеспечение для 2D-анимации, позволяющее быстро получить желаемый результат благодаря своим профессиональным функциям и легким рабочим процессом. Вы можете превращать статичные изображения в анимированные персонажи, управлять ими с помощью движений, генерировать анимацию с использованием (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92A97B78442F78DE809C0CE1DB32294F84B5A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653559   (194184) от 16.08.2023
-
-Adobe Substance 3D Designer 13.0.2 build 6942 [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощное программное обеспечение, которое позволит создавать бесшовные материалы и узоры, фильтры изображений, общее освещение и даже 3D-модели. Каждый ресурс обеспечивает бесконечную вариативность результатов. Substance 3D Designer используется во многих отраслях и лежит в основе процессов создания большинства видеоигр и материалов для визуальных эффектов. Параметрические (   Читать дальше...   )Язык интерфейса: Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C56B810303D11E925058B661C6131D263D5CBB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

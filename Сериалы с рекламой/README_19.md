@@ -1,3 +1,55 @@
+###  Публикация: 1228235   (540077) от 04.08.2018
+
+Шеcть / Шестой oтряд / Siх (2018) WEB-DL [H.264/1080p] (сезон 2, серии 1-10 из 10) ОmskBird [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Военный сериал «Six» рассказывает о деятельности т.н. «SEAL Team Six» - «морских котиках» ВМС США и вдохновлён славной историей этого специального подразделения. Эта группа быстрого развёртывания принимает участие в самых сложных антитеррористических операциях, проводимых Америкой в различных частях света. В том числе, её бойцы участвовали в уничтожении Бен Ладена. (   Читать дальше...   )Производство: США / A+E Studios, The Weinstein CompanyЖанр: боевик, драма, военный, историяРежиссер: Микаэл СаломонАктеры: Бэрри Слоун, Кайл Шмид, Хуан Пабло Раба, Эдвин Ходж, Брианна Дэвис, Надин Веласкес, Доминик Адамс, Джессика Гарза, Джошуа Кейдж, Эрик Ладин и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:45:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D42BAC22C37E5B3941BF2A6C6468AD74EBC5E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557642   (537308) от 17.06.2022
+
+Обвинение / Ferdinand von Schirach - Glauben / The Allegation (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-7 из 7) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В провинциальном городке Оттерн врач-педиатр осматривает девочку и находит следы изнасилования. Это не похоже на единичный случай — более того, детей, очевидно, систематически подвергали жестокому обращению и снимали в порнографических фильмах. Прокурор Корделис выдвигает обвинения против 26 человек. Одного из обвиняемых в суде представляет адвокат по уголовным делам (   Читать дальше...   )Производство: Германия / MOOVIE, MOOVIE the art of entertainment GmbHЖанр: драмаРежиссер: Дэниэл ПрохаскаАктеры: Петер Курт, Наргес Рашиди, Себастьян Урцендовски, Катарина М. Шуберт, Михаэль Пинк, Юлика Йенкинс, Дезире Носбуш, Петер Йордан, Сабрина Рейтер, Фальк Рокштрох и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:35:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B063FDA87CD8A471EE775AC0D4B1533C01C4FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556755   (537206) от 17.06.2022
 
 На взводе / Trigger Point (2022) BDRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E633E0A712E8B2D98A1B0F0DD3B6FE1AA59C551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564411   (499595) от 19.07.2022
-
-Убийство в семье / Mord in der Familie - Der Zauberwurfel / Murder Squared (2021) WEBRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас Беккер, сын строительного магната Генри Беккера, застрелен в своей машине в первый день Нового года. Инспектор Барбара Фальк и коллега Кристиан Крамер в первую очередь подозревают, что убийство связано с обрушением дома-куба, амбициозного строительного проекта компании «Беккер и сын», которой руководит единокровный брат убитого Эрик БЕккер. В результате катастрофы (   Читать дальше...   )Производство: Германия / Rowboat Film- und FernsehproduktionЖанр: драма, криминал, детективРежиссер: Михаэль ШнайдерАктеры: Матиас Кеберлин, Хайнер Лаутербах, Лукас Грегорович, Петра Шмидт-Шаллер, Катарина Лоренц, Сабина Уинтерфелдт, Wolf Danny Homann, Jacob Speidel, Patrick Simons, Нино Порцио и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: Русские (отдельным файлом)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB852C6D1ECB250397BC0383B0CF15D25C887EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032306   (495646) от 18.09.2016
-
-Чёрная материя / Тёмная материя / Dark Matter (2016) WEB-DL, WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заброшенный космический корабль. Шесть человек выходят из состояния стазиса и понимают, что все они потеряли память. Никто из героев не помнит собственного имени, а также того, как и с какой целью он оказался на борту. Каждый из членов экипажа имеет свои способности и навыки, которые, несмотря на амнезию, остались при них. И лишь объединившись в единую команду и (   Читать дальше...   )Производство: КанадаЖанр: фантастика, триллер, драмаРежиссер: Рон Мерфи, Т.Дж. Скотт, Паоло БарзменАктеры: Марк Бендавид, Мелисса О’Нил, Энтони Лемке, Алекс Маллари мл., Джоделль Ферланд, Роджер Р. Кросс, Зои Палмер, Дэвид Хьюлетт, Джессика Сайпос, Расселл Юэнь и др.Перевод: Многоголосый (BaibaKo)Язык озвучки: русский, английскийПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A1F32DD9E5EB804E20EDBF07D5F831FCF866A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

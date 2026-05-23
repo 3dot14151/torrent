@@ -1,3 +1,108 @@
+###  Публикация: 1859947   (1061356) от 27.03.2026
+
+Пропавший отряд / Lost Command (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Франция пятидесятых годов прошла через целую цепь поражений в так называемых локальных войнах, а ее солдаты и офицеры приобрели не только бесценный военный опыт, но и неудовлетворенность и депрессии, свойственные такого рода конфликтам.
+С позором выдворенные из Юго-Восточной Азии, французские солдаты сразу оказываются в охваченном партизанской войной пустынном Алжире (   Читать дальше...   )Производство: США / Red LionЖанр: боевик, драма, военныйРежиссер: Марк РобсонАктеры: Энтони Куинн, Ален Делон, Джордж Сигал, Мишель Морган, Морис Роне, Клаудия Кардинале, Грегуар Аслан, Жан Сервэ, Морис Сарфати, Жан-Клод БеркПеревод: Многоголосый профессиональный (Петербург 5-й канал, DVD Магия), двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023D1DA549E21A944FAB27CD72A7328202EBE980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859692   (1061241) от 17.03.2026
+
+Ночь живых мертвецов / Night of the Living Dead (1968) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Барбара и её брат Джонни приезжают на кладбище, расположенное в уединённом загородном месте. Неожиданно на них нападают существа, напоминающие восставших из могил мертвецов. Барбара укрывается в расположенном неподалёку доме, где также находят убежище темнокожий парень Бен, супруги Гарри и Хелен Куперы с дочерью Карен, а также влюблённые Том и Джуди. Лишь спустя (   Читать дальше...   )Производство: США / Image Ten, Laurel Group, Market Square Productions, Off Color FilmsЖанр: ужасыРежиссер: Джордж А. РомероПеревод: профессиональный двухголосый (Film Prestige), авторский (Андрей Дольский), профессиональный одноголосый (Tycoon)Язык озвучки: русский, английскийСубтитры: русские (Film Prestige), английскиеПродолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9882315FFBDCA243F1D22C7957345C9CF7983C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859112   (1060917) от 14.03.2026
+
+Симаррон / Cimarron (1960) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Смелый и честный Янси Крават по прозвищу «Симаррон» вместе со своей молодой женой приезжает в Оклахому, куда только что хлынула волна поселенцев. Тут ему приходится столкнуться с беззаконием и произволом, царящими на новых территориях. Жители фронтира признают лишь право сильного, но именно благодаря таким людям, как Симаррон, на эту землю постепенно приходит закон (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрама, вестернРежиссер: Энтони Манн, Чарльз УолтерсАктеры: Гленн Форд, Мария Шелл, Энн Бакстер, Артур О’Коннелл, Расс Тэмблин, Мерседес Маккэмбридж, Вик Морроу, Роберт Кит, Чарльз МакГроу, Гарри МорганПеревод: Двуголосый профессиональный (СВ-Дубль по заказу ГТРК "Культура")Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB635BE6F2DE8C04B66ABA9AEEBBC912A7A19BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859263   (1060812) от 19.03.2026
+
+Боже мой, как низко я пала! / Mio Dio, come sono caduta in basso! (1974) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Начало нынешнего столетия. В день своей свадьбы сицилийская дворянка Эужения и ее жених — богатый буржуа Раймондо узнают, что они брат и сестра. Чтобы соблюсти приличия, они решают сохранить видимость брака, но не вступать в интимную связь. Раймондо поощряет жену на занятия благотворительной деятельностью и для этих целей доверяет ей автомобиль и шофера Сильванно (   Читать дальше...   )Производство: Италия / Dean FilmЖанр: КомедияРежиссер: Луиджи КоменчиниАктеры: Лаура Антонелли, Альберто Лионелло, Микеле Плачидо, Уго Пальяи, Розмари Декстер, Карин Шуберт, Микеле Абруццо, Джузеппе Караччоло, Жан Рошфор, Лоренцо ПьяниПеревод: Двуголосый профессиональный, авторский (Р. Янкелевич)Язык озвучки: Русский, итальянскийСубтитры: Английские, французскиеПродолжительность: 01:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501B332483CA1A72C1ED40E0B3C4DCFD8CE35F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858276   (1060328) от 09.03.2026
 
 Золото Маккенны / Mackenna's Gold (1968) HDRip
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -570,111 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CD8D045E5B0390CF32EFADEEAB8A7A90E679717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847985   (1052391) от 15.01.2026
-
-Аванти! / Avanti! (1972) HDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация по произведению Сэмьюэля А. Тейлора.
-Бизнесмен из Балтимора узнает, что его отец умер в Италии. Приехав в красивый итальянский курорт за телом покойного отца и по воле судьбы познакомившись с забавной леди, он из «сухого» бизнесмена превращается в романтика.Производство: США, Италия / Jalem Productions, Phalanx ProductionsЖанр: комедия, мелодрама, экранизацияРежиссер: Билли УайлдерАктеры: Джек Леммон, Джульетт Миллс, Клайв Ревилл, Эдвард Эндрюс, Джанфранко Барра, Франко Ангрисано, Пиппо Франко, Франческо Акампора, Джизельда Кастрини, Раффаель МоттолаПеревод: Многоголосый профессиональный (DVD Магия)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7D9397F6016AB3E785298024270F3E5AE4EE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847760   (1052330) от 14.01.2026
-
-Между вчера и завтра / Zwischen gestern und morgen / Between Yesterday and Tomorrow (1947) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052330.jpg" />
-</div>
-
-
-###  Подробнее
-
-В послевоенной Германии группа бывших постояльцев возвращается в роскошный мюнхенский отель, где их преследуют воспоминания о прошлом, связанном с Нелли Дрейфус, еврейкой, погибшей в нацистскую эпоху.Производство: Германия / Bavaria Film, Neue Deutsche Filmgesellschaft (NDF)Жанр: драма, мелодрама, военныйРежиссер: Харальд БраунАктеры: Хильдегард Кнеф, Винни Маркус, Сибилла Шмиц, Вилли Биргель, Виктор де Кова, Виктор Штааль, Карста Лёкк, Адольф Гондрелл, Вальтер Киаулен, Эрих ПонтоПеревод: Авторский (Юрий Сербин)Язык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1D750C2BEF3397E8524599788E96F9C0F8EC9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847629   (1052282) от 22.01.2026
-
-Единственный ангел на земле / Ein Engel auf Erden (1959) WEB-DLRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если бы он случайно посмотрел в её глаза, она бы замерла от счастья! Маленькая стюардесса Лина красива, великолепна, безумно влюблена, и все же совершенно несчастна. Потому, что является для соблазнителя и гонщика Пьера Шелло пустым местом. Он думает только о своей невесте, богатой и избалованной Августе фон Мюнхенбург. Даже лучший друг Мишель не может заставить (   Читать дальше...   )Производство: Германия (ФРГ), Франция / CCC Filmkunst GmbH, Criterion Productions, Regina-FilmЖанр: фэнтези, мелодрама, комедияРежиссер: Геза РадваньиАктеры: Роми Шнайдер, Анри Видаль, Мишель Мерсье, Жан-Поль Бельмондо, Эрика фон Телльман, Маргарете Хааген, Жан Брошар, Полетт Дюбо, Жан Тиссье, Пьер СержольПеревод: Одноголосый любительский (ССК+)Язык озвучки: Русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EE0671CCADD05333657D289DB57CD6325B84B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847463   (1052238) от 22.01.2026
-
-Аванти! / Avanti! (1972) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллионер из Балтимора узнает, что его отец умер в Италии. Он едет туда, чтобы перевезти тело покойного на родину. И с изумлением узнает, что отец умер в объятиях любовницы. А сообщает ему эту пикантную подробность ее дочь, в которую он благополучно влюбляется, следуя таким образом по стопам шалуна-папеньки. Смешная и тонкая комедия, поставленная по пьесе Сэмюэла (   Читать дальше...   )Производство: США, Италия / Jalem Productions, Phalanx Productions, Produzioni Europee Associati (PEA), The Mirisch CorporationЖанр: мелодрама, комедияРежиссер: Билли УайлдерАктеры: Джек Леммон, Джульетт Миллс, Клайв Ревилл, Эдвард Эндрюс, Джанфранко Барра, Франко Ангрисано, Пиппо Франко, Франческо Акампора, Джизельда Кастрини, Раффаель МоттолаПеревод: Многоголосый профессиональный (DVD Магия, НТВ), двуголосый профессиональный (НТВ+), авторский (В.Белов)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534ED960A3FD5334E43145A8B3631E897B44267F
 ```
 
 https://mybot314.ru/tekegram_catalog/

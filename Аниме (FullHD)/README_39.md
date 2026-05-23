@@ -1,3 +1,55 @@
+###  Публикация: 954517   (339360) от 08.11.2015
+
+Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алиса: Дело об убийстве [2015, МV] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Куроя... то есть, Арисугава Тэцуко, или же просто Алиса — ученица средней школы, вместе с матерью вернулась в её родной город после развода родителей, заселилась в новый дом, поступила в новую школу с формой в виде посредственных матросок, да собственно и вся история. Вот только в округе происходят сомнительные вещи: к одной из парт в классе многие месяцы никто не (   Читать дальше...   )Жанр: повседневностьРежиссер: Ивай СюндзиПеревод: 1) Jima Lostinime; 2) TimecraftЯзык субтитров: русскийПродолжительность: 100 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407C8508838725B20D464A4DD195ECCC67E0DC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330520   (338971) от 11.10.2019
+
+Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апельсиновой улицы OVA [1989, OVA, 8 из 8] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юный Кёсукэ Касуга со своей семьей, которая состоит из папаши-фотографа, кота-обжоры и двух непоседливых сестричек-школьниц, в очередной раз переезжает на новое местожительство. Столь частые переезды семьи Кёсукэ отнюдь не случайны, ведь он и его близкие обладают странными мистическими способностями, позволяющими совершать разные полезные, но не всегда разумные поступки: (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: романтика, комедия, повседневностьРежиссер: Накамура Койтиро, Ко Ю, Ёсинага НаоюкиПеревод: IsitoryЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 8 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D537652E0AA243EDDDD25223DF764F4ADAE01543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579233   (338885) от 26.09.2022
 
 Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9 эп.] BDRip 1080p raw
@@ -6,7 +58,7 @@ Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Kimagure Orange Road | Capricious Orange Road | Капризы Апельсин�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kimagure Orange Road: Ano Hi ni Kaeritai | Capricious Orange Road: I Want to Ret
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12 серий] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +165,7 @@ Tenjoubito to Akutobito Saigo no Tatakai | Мунто (фильм) | После�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +191,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ Nekopara: Koneko no Hi no Yakusoku | Кошачий рай: Обещания к�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Ikoku Meiro no Croisee The Animation | Croisee in a Foreign Labyrinth: The Anima
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Gekijouban Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Ява�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ Yawara! Special: Zutto Kimi no Koto ga... | Yawara! Atlanta Special | Явара
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Saiki Kusuo no Sainan S1+S2 | The Disastrous Life of Saiki K. | Ох уж это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +506,7 @@ Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +532,7 @@ One Piece 3D2Y: Ace no shi wo Koete! Luffy Nakama Tono Chikai | 3D2Y: Переж
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +558,7 @@ Panda Kopanda: Amefuri Circus no Maki | Panda! Go, Panda!: Rainy Day Circus | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +584,7 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +611,7 @@ Mahou Sensei Negima! | Negima! | Волшебный учитель Нэгима!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ Sora to Umi no Aida | Space Fish: Between the Sky and Sea | Между небо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,58 +674,6 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7794308CCB87E2F01BFC13FCA2AC7E678A4A2762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443734   (317281) от 05.11.2020
-
-Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 эпизодов] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317281.jpg" />
-</div>
-
-
-###  Подробнее
-
-До чего же самовосприятие может отличаться от мнения окружающих! 15-летняя Савако Куронума – милая и мягкая девушка, желающая людям только добра. Но судьба и родители наградили ее внешностью героини пресловутого «Звонка», и одноклассники считают, что даже столкнуться с «Садако» - дурная примета, а стоит заговорить с ней - будешь проклят навеки. Скромность и застенчивость (   Читать дальше...   )Жанр: романтика, повседневность, школа, сёдзёРежиссер: Кабураки ХироПродолжительность: 00:25 x25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF59568AC0B574BAA5E8EC8193D320D01FD5B8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756470   (317278) от 05.11.2020
-
-Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Полиция Будущего OVA-2 [1990, OVA, 16] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое развитие технологий привело к созданию и распростронению лейборов – многоцелевых человекоподобных машин. Но с появлением, казалось бы, упрощающей жизнь, новинки в стране возник новый вид преступности. Для борьбы с подобного рода криминалом в Токийской полиции был создан второй специальный отряд для борьбы с преступностью, связанной с лейборами. Так возник (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Ёсинага НаоюкиСубтитры: •Продолжительность: 16 эп., 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CC49A8F80703D2205E3F89D2A6287CAA85989C
 ```
 
 https://mybot314.ru/tekegram_catalog/

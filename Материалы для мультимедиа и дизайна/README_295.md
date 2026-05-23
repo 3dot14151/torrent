@@ -1,3 +1,369 @@
+###  Публикация: 502985   (259424) от 29.05.2012
+
+Digital Juice - Juice Drops Collection One: clearNTENT (Full Files Tif-zip)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Juice Drops Collection One: clearlNTENT - Новая библиотека многослойной графики от компании Digital Juice. После трехлетнего перерыва, Juice Drops вернулись - и они больше и лучше, чем когда-либо! Juice Drops Collections являются обновлённой линией Juice Drops с множеством новейших коллекций. В отличие от прошлых сборников Juice Drops, которые включали до сотни изображений и имели тематическую направленность, эта новая библиотека содержит более 400 новых многослойных Photoshop-файлов и является более универсальной, включает широкий спектр стилей, тем и направлений.
+
+Сборник Juice Drops Collection One: clearlNTENT содержит более 400 файлов многослойной графики - иллюстраций в формате Adobe Photoshop (.psd) со слоями, которые не сведены вместе, а доступны для редактирования. Такой способ представления иллюстраций в виде "полуфабрикатов" открывает неограниченные возможности для творчества. С каждым из множества слоёв иллюстрации вы можете делать практически всё, что захотите: корректировать, удалять, переставлять, (   Читать дальше...   )Разрешение файлов: 6000×3375
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D986C34581465FEA1385274454DC4DB4891749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502592   (259243) от 28.05.2012
+
+Растровый клипарт - Весёлый 3D-алфавит [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В "Весёлый 3D-алфавит" от Анюты "SADIR" вошли строчные и прописные буквы русского и украинского алфавитов.
+Алфавит представлен в 6 цветовых вариациях: синем, зелёном, оранжевом, фиолетовом, красном и жёлтом.Формат: PNGРазрешение файлов: 3000x1600 - 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36DE98EA9CD4C75BF2C703B389E063DE77CC9D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501312   (258400) от 25.05.2012
+
+Prime Loops - XXL R&B Drums by SYNTHiC4TE for Kontakt[NKI|WAV][английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Небольшая библиотека для создания музыки в стиле R&B .....
+
+- Производитель: Prime Loops
+- Релиз-грумма: SYNTHiC4TE
+- Год выпуска: 26.04.2011
+- Формат: NKI,WAV
+- Качество: 24 bit Частота 44.1 kHz Каналы stereoНазвание программы: Prime Loops -XXL R&B DrumsЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500887   (258370) от 25.05.2012
+
+Monster Sounds - Heavy Weight Analogue Subs [WAV|Sampler Pathes Kontakt|Halion|EXS24|NN-XT|SFZ][английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Heavy Weight Analogue Subs предоставит вам нужный вес в низкочастотном спектре. Коллекция включает мульти-сэмпловые патчи для сэмплеров, а также одиночные сэмплы баса, созданные с помощью синтезаторов Roland SH101, Yamaha CS5, Korg MS20, Novation Bass Station, Roland 808, Roland Juno 106 и Clavia Nord. Heavy Weight Analogue Subs содержит 296 одиночных сэмплов в 24-битном формате WAV, а также 83 патча для сэмплеров Kontakt, Halion, EXS24, NN-XT и SFZ.Название программы: Monster Sounds - Heavy Weight Analogue SubsЯзык интерфейса: английскийФормат: WAV,Sampler Pathes Kontakt,Halion,EXS24,NN-XT,SFZ
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501234   (258330) от 25.05.2012
+
+The LoopLoft - Rock Steady vol.1 by DYNAMiCS[AiFF/Apple Loops/REX2/WAV][английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Широкий спектр насыщенных семплов и петель роковых барабанов, записаных с особой тщательностью.
+
+- Производитель: The LoopLoft
+- Год выпуска: Feb 2011
+- Релиз-команда: DYNAMiCS
+- Формат: AiFF/Apple Loops/REX2/WAV
+- Качество: 24 bit Частота 48.0 kHz Каналы stereoНазвание программы: The LoopLoft - Rock Steady vol.1Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501301   (258328) от 25.05.2012
+
+Inspiration Sounds - Pure Live Breaks Vol.1[ACID/APPLE LOOPS/REX/WAV][английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Pure Live Breaks Vol.1 - коллекция современных и оригинальных петель ударных, подходящие для многих музыкальных стилей, включая Pop, Rock, Hip Hop, Funk, Soul и RnB. Коллекция включает более 270 Мб самых свежих и плотных петель ударных с темпом от 95 до 130 BPM.
+
+- Производитель: Inspiration Sounds
+- Формат: ACID/APPLE LOOPS/REX/WAV
+- Качество: 16 bit Частота 44.1 kHz Каналы stereoНазвание программы: Inspiration Sounds - Pure Live Breaks Vol.1Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501104   (258186) от 24.05.2012
+
+Digital Juice - Ready2Go: Collection 05 (AE) (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+R2Go 5 for AE - Fresh, clean new looks you can customize with a few clicks! Clean lines and a variety of modern looks in an even more useful ready2go volume. Volume 5 continues the line with fresh new designs that can be used in nearly all types of productions. The clean lines and attention getting color and detail in these customizable templates serves as a perfect anchor for any project you want to keep current and fresh looking, from show opens and broadcast commercial spots to corporate communications and training videos.
+
+Projects with a stylish look that's always on-trend for every type of production. Collection of multipurpose AE projects and templates that delivers sophisticated animated imagery following the edge of current trends. These stylish, powerful projects can be easily put to work as-is or adapted for any type of production - helping you take your work to an elite new level.
+
+These R2go projects are the ultimate in customizable templates for After Effects. They give you a finished look with the (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EABFB00BA63C339A18D634B31C9A1DC4075D8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500817   (258175) от 24.05.2012
+
+Wavesfactory - Royal Guitar for Kontakt [NKI|WAV][английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Имели ли Вы когда-либо представление о наличии самых отличных звуков гитары в истории стиля Rock? Вы можете достичь этого с коллекцией сэмплов электрогитары для N.I. KONTAKT - Royal Guitar. Мы записали сэмплы звуковой подписью Brian May (Queen) с Red Special гитарой через педаль Digitech (сыграно шестью пенсовой монетой).
+Вы имеете полный контроль свыше 2 главных различных звуковых амперов:
+• Voxy.
+• Deacy.
+Ампер Deacy проектировался в ранних 70-х басистом Джон Deacon (Queen). Это amplifer производит подобный для трубы или оркестровый звук, который был использован во всех песнях Queen. Брайан использовал его, чтобы записать все его знаменитые многослойные оркестровые гитарные гармонии с этим ампером. При помоши регулируемых GUI и скриптов вы имеете контроль над Громкостью, Панорамой, Атакой, Выпуска и Эквалайзера от обоих отдельных усилителей в том же инструменте, причём все комбинации бесконечны.
+Продукт требует полной версии Kontakt не менее 4.2.3.Название программы: Wavesfactory - Royal GuitarЯзык интерфейса: английскийФормат: NKI,WAV
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500815   (258121) от 24.05.2012
+
+Live Soundz Productions - All That Jazz Vol 3 (WAV/Reason/MIDI/Demo MP3)[английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+All That Jazz Vol 3 от Live Soundz Productions представляет Вам самые качественные и креативные сэмплы в стиле Джаз, которые вы могли бы только услышать. Эти музыкальные комплекты созданы под влиянием Marcus Miller, Chick Corea, Bobby Sparks, George Duke, Wayman Tisdale и многих других. Набор наполнен сэмплами пианино, саксофона, духовых, органа, ударных и электропиано.Название программы: Live Soundz Productions - All That Jazz Vol 3Язык интерфейса: английскийФормат: WAV,Reason,MIDI,Demo MP3
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838199   (258020) от 21.11.2025
+
+Шрифты - Behance - Maria Mamonova - BLOCKY - 816109 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+BLOCKY - это монументальный акцидентный шрифт, построенный на базе четырехугольника. Он прекрасно подойдет для заголовков и плакатов.Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDAD871BF12CA965809D7CFE706C9718BB9EA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838186   (258016) от 21.11.2025
+
+Шрифты - rakapatakunta - Doloto [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Необычный стилизованный шрифт для вашего творчества.Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAF76258E412EDBDF2BCC3D5CE497D0B6F1810D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837628   (257946) от 17.11.2025
+
+Пресеты - Neil Hodkinson - Blue Steele [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Представляем пресет Blue Steele для Lightroom и Photoshop.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A489FA9E4EE935CD770BE44FC5C320710F4F3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837626   (257945) от 17.11.2025
+
+Пресеты - Neil Hodkinson - Orange Binge [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Представляем пресет Orange Binge для Lightroom и Photoshop.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19768F01B1384084603429D90B34A83C7A9FF893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838024   (257812) от 20.11.2025
 
 Шрифты - Behance - Anna Chopik - CD OVUER - 238464563 [OTF]
@@ -6,7 +372,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -168,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -197,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -223,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -249,7 +615,7 @@ Digital Juice - RevealerBoxx - Volume 1 to 18 [MP4, MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -275,7 +641,7 @@ Packs 10 000 Presets for Ni Massive[KSD/WAV/MIDI/Patches NMSV/EXE][англий�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -306,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -332,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,360 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB0C64313D92061924E382AA7581344B9139529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652538   (254540) от 06.05.2023
-
-Шаблоны - Открытки к 9 Мая [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открытки для поздравлений к Дню Победы Великой Отечественной Войны.Формат: PSDРазрешение файлов: 1200x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC873D8E040E3506B53A09E2758183ECF343C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497964   (253868) от 17.05.2012
-
-Video3D - Сделай сам 2012 (диск 31)
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video3D - Сделай сам 2012 (диск 31)Источник: Video3D
-Год выпуска: 2012
-Язык: русский
-Видеоформат: Mov, Avi, ip3
-Разрешение видео: 720Х576, 1280x720
-Готовые оригинальные исходные проект к Particleillusion.
-Оригинальные исходные готовые проекты Particleillusion позволят самостоятельно внести любые изменения в футажи – поменять формат и видоизменить содержание видеоролика.    
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97B8BAD5FD0C58F4F95E2C56E9401214EE2BCD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498047   (253853) от 17.05.2012
-
-Растровый клипарт - Datacraft Sozaijiten - Collection (1-31 диски из 219) (2001) [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция сборников от японской компании Datacraft Sozaijiten, включающий в себя изображения высокого качества. Тематика сборников самая разнообразная: текстуры дерева, бумаги, металла; фотоизображения природных ландшафтов и явлений; люди и их деятельность, а также многое другое. Изображения сборников имеют различную жанровую направленность и могут использоваться в своих дальнейших разработках дизайнерами, фотохудожниками, иллюстраторами, а также всеми любителями создавать новое и красивое с помощью графических программ. Ну и конечно же сборник не оставит равнодушными всех любителей и ценителей красивой графики.Разрешение файлов: 1699x1525 - 2950x2094Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5262814D4EAE7D1A620ABB981847A993235F965B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497715   (253822) от 17.05.2012
-
-Векторный клипарт - Векторные города, проспекты и улицы [CDR,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторные города, проспекты и улицыРазрешение файлов: 1036х755 - 1100x695
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68ADAFA0A23956933CF229C58C7FF6354D03FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497704   (253821) от 17.05.2012
-
-Шаблоны - 3D Cube Images Mock-ups [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё 7 шаблонов для оформления ваших , графических работРазрешение файлов: 1920 x 1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500CBDC71AD8F5DB49DFABA228061C3592C3BA22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498050   (253813) от 17.05.2012
-
-Растровый клипарт - Datacraft Sozaijiten - Collection (81-130 диски из 219) (2001-2003) [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция сборников от японской компании Datacraft Sozaijiten, включающий в себя изображения высокого качества. Тематика сборников самая разнообразная: текстуры дерева, бумаги, металла; фотоизображения природных ландшафтов и явлений; люди и их деятельность, а также многое другое. Изображения сборников имеют различную жанровую направленность и могут использоваться в своих дальнейших разработках дизайнерами, фотохудожниками, иллюстраторами, а также всеми любителями создавать новое и красивое с помощью графических программ. Ну и конечно же сборник не оставит равнодушными всех любителей и ценителей красивой графики.Разрешение файлов: 2094x2950 - 3508x2480Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFBCA389567A456282EEBBD87E5E46980D3B069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498048   (253779) от 17.05.2012
-
-Растровый клипарт - Datacraft Sozaijiten - Collection (33-80 диски из 219) (2001) [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция сборников от японской компании Datacraft Sozaijiten, включающий в себя изображения высокого качества. Тематика сборников самая разнообразная: текстуры дерева, бумаги, металла; фотоизображения природных ландшафтов и явлений; люди и их деятельность, а также многое другое. Изображения сборников имеют различную жанровую направленность и могут использоваться в своих дальнейших разработках дизайнерами, фотохудожниками, иллюстраторами, а также всеми любителями создавать новое и красивое с помощью графических программ. Ну и конечно же сборник не оставит равнодушными всех любителей и ценителей красивой графики.Разрешение файлов: 640x480 - 2950x2049Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D537CC9FF32CAAB387A4AC8BE617BAFD0838040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496684   (253506) от 16.05.2012
-
-Looptroniks - Rock Hard (Fruity Loops/MIDI/WAV)[английский]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rock Hard - набор из 5 конструкционных комплектов от Looptroniks. Эта феноменальная рок-серия представляет особый аромат гитар, баса и ударных для удовлетворения ваших фантазий в Alternative, Contemporary, Hard Rock и многих других стилях Rock.
-
-Производитель: Looptroniks
-Дата выпуска: 05.2012
-Формат: Fruity Loops, MIDI, WAV
-Качество: 24 bit, 44.1 kHz, stereo
-
-Примечание: При использования файла программы Fruity Loops могут возникнуть проблемы с отсутствием у Вас плагинов задействованных в этом файле. Вы можете заменить их другими, близкими по назначению.Название программы: Looptroniks - Rock HardЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496397   (253029) от 14.05.2012
-
-Векторный клипарт - Девушки на пляже в бикини [CDR]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный сток: Девушки на пляже в бикиниРазрешение файлов: 989х1683 - 1275x1650
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889D64351895E601442855AF9BF3D90FCAF1B28F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496622   (253019) от 14.05.2012
-
-Футажи - Light and Energy Background Light Orb Love (1080p) [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920X1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D59709211401BBF038D708AF21F6AB9B91B9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496396   (253010) от 14.05.2012
-
-Векторный клипарт - Города и Улицы [CDR]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный сток: города и улицыРазрешение файлов: 2239х795 - 2293x734
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B99E53564868090345760083ED470CC2850B4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496623   (253006) от 14.05.2012
-
-Векторный клипарт - Гламурные девушки на вечеринке [CDR,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторные гламурные девушки на вечеринкеРазрешение файлов: 714х1417 - 1014x1466
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F5FAA4883DC4D80DEDACB033E67B3077D080CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496404   (252993) от 14.05.2012
-
-Сборник - Light and Energy Background Bright Circuit (1080p)
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник - Light and Energy Background Bright Circuit (1080p) 
-Название: [Футаж] Light and Energy Background Bright Circuit (1080p)
-Тип раздаваемого: Футаж
-Разрешение файлов: 1920X1080Расширение (тип) файлов: MOVСкриншоты:Время раздачи: 24/7 по мере возможности...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4123926822DDCAAD9D3A76BB736680551B75D44F
 ```
 
 https://mybot314.ru/tekegram_catalog/

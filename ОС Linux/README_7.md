@@ -1,3 +1,217 @@
+###  Публикация: 785922   (738593) от 12.05.2014
+
+Sabayon 14.05 [amd64] 4xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Sabayon Linux 14.05, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным. Дистрибутив доступен в сборках с KDE 4.12.5 (2.0 Гб), GNOME 3.12 (1.4 Гб) и Xfce 4.10 (1.2 Гб).
+
+Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью совместима с Portage 2.2 (EAPI2), пользователь имеет возможность установки программ как из исходных текстов, так и используя готовые бинарные пакеты, собранные для платформ ARMv7, x86 и x86-64. Для x86 и x86-64 в репозитории насчитывается около 14000 пакетов, а для ARMv7 - более 2000. Поддерживаемые пакеты обновляются непрерывно (rolling-релиз), предоставляя пользователю доступ к самым свежим версиям программ. Для управления пакетами подготовлен GUI интерфейс (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14EAAC39F74D8247B36C0C22ED882FA90B9C3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526543   (738007) от 25.01.2022
+
+Kali Linux 2021.4a (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит безопасности, хакинг
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+23 декабря 2021 состоялся релиз обновления дистрибутива Kali Linux 2021.4a, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D23A0E1B9E417DD8A3DB2EFA7FAB185537E72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 786960   (737147) от 16.05.2014
+
+Edubuntu 14.04 LTS [x86, x86-64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Edubuntu — дистрибутив операционной системы Linux, основанный на дистрибутиве Ubuntu. Ориентирован на использование в образовательных учреждениях.
+
+В Edubuntu включён Linux Terminal Server Project для быстрого развёртывания и сетевой загрузки. Edubuntu содержит большое количество программ образовательного направления, таких как GCompris, KDE Education Project, SchoolTool Календарь.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92AD7322E6CC5550ADBEBFD8BFE49008EFC41E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 786998   (737030) от 16.05.2014
+
+Lubuntu 14.04 LTS [x86, x86-64] 4xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE. Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. Lubuntu работает очень быстро, она безопасна, красива, функциональна. К тому же, Lubuntu позволяет вернуть к жизни старые персональные компьютеры, на которых другие современные операционные системы не смогут нормально работать. Lubuntu также отлично подходит для установки на нетбуки и другие портативные устройства.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9197F381B261A3DFD771DE02DD4C9FC0110D656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399608   (732834) от 01.08.2020
+
+GeckoLinux "Rolling" edition 999.200729.0 [amd64] 7xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+GeckoLinux — дистрибутив Linux на базе openSUSE. Дистрибутив распространяется в двух редакциях: Static, которая основывается на openSUSE Leap, и Rolling, которая основывается на openSUSE Tumbleweed. Здесь только версия Rolling. Представлены варианты с DE: Cinnamon, Xfce, GNOME, KDE Plasma, MATE, LXQt и IceWM.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2475E25A974EB15AA7CA1ECC4C58265A217BA6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127903   (729374) от 23.04.2017
+
+ROSA Desktop Fresh R9 KDE 4 [i586, x86_64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+19 апреля состоялся выпуск ROSA FRESH R9. Это первый релиз новой платформы 2016.1, который будет поддерживаться 4 года. Релиз выпускается с двумя окружениями рабочего стола — KDE Plasma 5 и KDE 4. ROSA Fresh R9 отличается новыми версиями программ и рекомендуется прежде всего для энтузиастов.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03365DC4F9A2CFE1744DA3BDDFA2728751C058D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127916   (729218) от 23.04.2017
+
+ROSA Desktop Fresh R9 PLASMA 5 [i586, x86_64] 2xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+19 апреля состоялся выпуск ROSA FRESH R9. Это первый релиз новой платформы 2016.1, который будет поддерживаться 4 года. Релиз выпускается с двумя окружениями рабочего стола — KDE Plasma 5 и KDE 4. ROSA Fresh R9 отличается новыми версиями программ и рекомендуется прежде всего для энтузиастов.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9586F558382D95A397E78C37B393AA8E59603322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022522   (728469) от 02.06.2016
+
+Sabayon 16.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По неизвестной причине размещение дистрибутива на российских серверах прекращено или сильно отстает по времени от релиза дистрибутива.
+
+Вышел новый релиз Sabayon Linux 16.06, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226BD167DD49BE2957EFEA2A0F02BECFCCAA1A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399782   (724983) от 02.08.2020
 
 Debian GNU/Linux 10.5.0 + nonfree Buster [amd64] 4xDVD
@@ -6,7 +220,7 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +248,7 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +276,7 @@ Debian Edu - Skolelinux 10.5.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +302,7 @@ Debian GNU/Linux 8.5.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +328,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.5 [x86-64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -132,6 +346,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893062   (715034) от 28.04.2015
+
+JonDo 0.9.78 [анонимный доступ в сети] [x86] DVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.78.  Устранены выявленные баги, обновлена пакетная база. Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. Firefox (Firefox+JonDoFox) предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4772C83E8745ED24AE79F1A5D14D90F89A034E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286355   (712502) от 02.03.2019
 
 Debian GNU/Linux 9.8.0 + nonfree Stretch [amd64] 4xDVD
@@ -140,7 +380,7 @@ Debian GNU/Linux 9.8.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +406,7 @@ Debian GNU/Linux 8.5.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +432,7 @@ Debian GNU/Linux 8.5.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +458,7 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +484,7 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +510,7 @@ Linux Mint 17 Qiana [x86, x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +538,7 @@ Q4OS 1.4.11 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +566,7 @@ Debian GNU/Linux 8.8 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +592,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +618,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [amd64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,6 +636,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896602   (693934) от 09.05.2015
+
+JonDo 0.9.79 [анонимный доступ в сети] [x86] DVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.79.  Устранены выявленные баги, обновлена пакетная база. Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. Firefox (Firefox+JonDoFox) предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6876920247E2206B9D82A6356D5BA2BC37DB95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403197   (691900) от 19.08.2020
 
 Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопасность] 5xDVD + ova [amd64]
@@ -404,7 +670,7 @@ Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопаснос
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,285 +681,6 @@ Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопаснос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFFC8A44E67E6B6EF939CC1E074F2095A60EF5E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 675237   (688809) от 02.07.2013
-
-Fedora 19 Schrödinger's Cat Live [i686]
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робин бергерон (Robyn Bergeron) официально  объявил о выпуске релиаз F19 Schrödinger's Cat. Данный выпуск Fedora включает в себя множество новых функций, как видимых пользователю, так и скрытых. Обновление десктоп-окружений: GNOME 3.8, KDE 4.10 и MATE Desktop 1.6.
-
-Проведено много изменений и улучшений существующих пакетов, добавлен ряд новых.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 675235   (688740) от 02.07.2013
-
-Fedora 19 Schrödinger's Cat Live [x86-64]
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робин бергерон (Robyn Bergeron) официально  объявил о выпуске релиза F19 Schrödinger's Cat. Данный выпуск Fedora включает в себя множество новых функций, как видимых пользователю, так и скрытых. Обновление десктоп-окружений: GNOME 3.8, KDE 4.10 и MATE Desktop 1.6.
-
-Проведено много изменений и улучшений существующих пакетов, добавлен ряд новых.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028492   (688247) от 23.06.2016
-
-Fedora 24 [i386] 9xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официально представлен релиз Linux-дистрибутива Fedora 24. Для загрузки доступны 32- и 64-разрядные сборки продуктов Fedora Workstation, Fedora Server, а также набор "спинов" c Live-сборками десктоп-окружений KDE, Xfce, LXDE, MATE-Compiz, Cinnamon. Дополнительно поставляется образ для Docker и сборки для различных устройств с процессорами ARM.
-
-Fedora 24 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BAB1551D13221EB34FBAF8B9099C59612B4251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028490   (688099) от 23.06.2016
-
-Fedora 24 [x86-64] 9xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официально представлен релиз Linux-дистрибутива Fedora 24. Для загрузки доступны 32- и 64-разрядные сборки продуктов Fedora Workstation, Fedora Server, а также набор "спинов" c Live-сборками десктоп-окружений KDE, Xfce, LXDE, MATE-Compiz, Cinnamon. Дополнительно поставляется образ для Docker и сборки для различных устройств с процессорами ARM.
-
-Fedora 24 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D412BD72380A1839692D0A502E2B40A6C4CB3FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030110   (676115) от 29.06.2016
-
-Sabayon 16.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64] 8xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел новый релиз Sabayon Linux 16.07, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F902C4D3B80277FDF68BB691281BD02E2F079F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798376   (670892) от 21.06.2014
-
-Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat объявила о выпуске операционной системы Red Hat Enterprise Linux 7. Новая система закладывает основы для создания открытых гибридных облаков.
-
-Разработанная в полном соответствии с требованиями современных центров обработки данных, система Red Hat Enterprise Linux 7 усиливает весь спектр корпоративных ИТ-технологий – от контейнеров приложений до облачных служб.
-
-Как отмечают разработчики, Red Hat Enterprise Linux 7 представляет собой согласованную единую основу, которая позволит клиентам подстроиться под современные требования и в то же время использовать преимущества вычислительных инноваций, в том числе – контейнеров Linux для обмена данными больших объемов через физические системы, виртуальные машины и облачные службы, которые составляют единое открытое гибридное облако.
-
-Изменения в Red Hat Enterprise Linux 7: Релиз основан на Fedora 19;  zero-copy в сетевых операциях; Virtio-scsi - новый слой блочных устройств - папье-маше из блочных устройств; добавление AutoNuma/SchedNuma в планировщик для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DFA34DAFE3461D38566DB82C818B4869203397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030773   (669906) от 02.07.2016
-
-Q4OS 1.4.12 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64, 'RPI' port]
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
-
-Система базируется на Debian и использует в качестве графической оболочки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076F86F1E6C855837F4CFF1E572EC49B4CE9346A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138851   (661927) от 31.05.2017
-
-ROSA Desktop Fresh R9 GNOME Desktop Fresh R9 [i586, x86_64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661927.jpg" />
-</div>
-
-
-###  Подробнее
-
-ROSA FRESH R9  GNOME — первый релиз с окружением рабочего стола GNOME на платформе 2016.1. В этом выпуске мы постарались приблизить GNOME по эргономике к другим окружениям рабочего стола ROSA.
-GNOME - стильное и оригинальное окружение рабочего стола на GTK3. Оно настолько не похоже на все остальные, что мы не стали использовать для него фирменный стиль Росы, оригинальность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495F1F83FD3B7C1E247C3360DA9005FA36521578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904550   (654254) от 03.06.2015
-
-Sabayon 15.06 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 15.06, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451C175DC71ABF89C40C08A6C35E45D22FA52980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905423   (651355) от 05.06.2015
-
-Calculate Linux 14.16.2 [i686] 2xCD, 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651355.jpg" />
-</div>
-
-
-###  Подробнее
-
-На серверах размещена следующая версия Calculate Linux - 14.16.2. Calculate Linux основан на дистрибутиве Gentoo. Базовое  отличие - присутствие в дистрибутиве графического инсталлятора.
-
-Доступны для загрузки следующие редакции дистрибутива: Calculate Linux Desktop с рабочим столом KDE (CLD) и XFCE (CLDX), Calculate Directory Server (CDS), Calculate Media Center (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEA41508C4FBD655ADECE9752865B0A2B601874
 ```
 
 https://mybot314.ru/tekegram_catalog/

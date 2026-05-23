@@ -1,29 +1,3 @@
-###  Публикация: 1217071   (702012) от 20.04.2018
-
-Универ. Новая общага (2018) HDTV [H.264/1080p-LQ] (сезон 14, серии 1-18 из 18)
-
->>Отечественные сериалы
->>Универ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универ» - больше, чем просто сериал. «Универ» - проверенный друг с отличным чувством юмора, сотнями готовых лайфхаков на все случаи жизни и хорошей долей самоиронии. За эти 10 лет некоторые из актрис сериала, снявшись обнаженными для мужских журналов, стали депутатами в Государственной думе, женами завидных иностранных миллионеров и самыми популярными инстаграмерами. (   Читать дальше...   )Производство: Россия / "Комеди Клаб продакшн"Жанр: комедияРежиссер: Константин КолесовАктеры: Арарат Кещян, Александр Стекольников, Станислав Ярушин, Анна Кузина, Анна Хилькевич, Константин Шелягин, Григорий Кокоткин, Елена Валюшкина, Сергей Пиоро, Сергей Мурзин и др.Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE12CD052A7CE63FC3DBD09310260939DAA9F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217075   (684565) от 29.04.2018
 
 Универ. Новая общага (2018) WEB-DL [H.264/720p-LQ] (сезон 14, серии 1-18 из 18)
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -631,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -657,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -668,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40FCD63873CAC77ED409517B5D83BF0581F5C9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946283   (330761) от 13.11.2015
+
+Универ. Новая общага (2015) WEB-DLRip [H.264] (сезон 9, серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>Универ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Антон и Кристина переезжают в своё собственное любовное гнёздышко. Вот только оказывается, что свить его не так-то просто, даже если все расходы берёт на себя папа-олигарх Лев Андреевич. Майкл, как ни странно, продолжает встречаться с Варей. Всё бы ничего, но теперь, когда Зуев знает об их отношениях, Майклу приходится общаться с начальником не только по рабочим (   Читать дальше...   )Производство: Россия / "Комеди Клаб Продакшн", Телеканал ТНТЖанр: комедияРежиссер: Константин Смирнов, Максим ЗыковАктеры: Арарат Кещян, Станислав Ярушин, Анна Кузина, Настасья Самбурская, Анна Хилькевич, Владимир Фекленко, Елена Валюшкина, Андрей Лебедев, Сергей Пиоро, Роман Куперман, Дмитрий Калистратов, Алексей Шаранин, Дарья Щёголева, Наталья Рудова, Иван Руденко, Анатолий Носов, Дмитрий Кузин, Мария Беляева, Александра Булычева, Галина Глушкова, Александр Стекольников, Анастасия (   Читать дальше...   )Продолжительность: ~ 00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F9FC34B128B006CDB36A0D06150AA052F074BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

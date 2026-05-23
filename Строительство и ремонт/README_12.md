@@ -1,3 +1,29 @@
+###  Публикация: 1797978   (17809) от 19.05.2025
+
+П. Мижуев (ред.) | Сборник рисунков плотничных и столярных работ (1881) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Результат столярных работ по обработке элементов интерьера избы получил на Руси название «наряд». Например, наличники обычно украшала резьба в виде трехгранно-выемчатых порезок, «желобков», «зубчиков», «жгутиков», выполненных в один, два или три ряда, «веревочек», «бочек», «дынек» и др. Зачастую в резном убранстве использовали только два вида порезок, но из-за искусного (   Читать дальше...   )Жанр: строительство, история, альбом рисунковИздательство: Хозяйственный строительФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3BB3BF53DE62129EFDA28259D7259FA9331AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798294   (17442) от 22.05.2025
 
 Дмитрий Рогов | Как сделать качественный и недорогой ремонт квартиры без нервов (2021) [PDF, DJVU, EPUB, RTF, MOBI]
@@ -6,7 +32,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

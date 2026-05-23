@@ -1,30 +1,3 @@
-###  Публикация: 522000   (624178) от 12.07.2012
-
-[PSP] Grand Knight's History [ENG/JAP] (2011)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Knights History представляет собой пошаговую стратегию с возможностью игры онлайн, в которой вам предстоит вступить в битву за одно из трех королевств. Её действия происходят на континенте, где три государства находятся в состоянии войны. Игроки принимают роль рыцаря в одной из этих трех держав и сражается с другими сторонами конфликта. Как и в ранних играх от Vanillware бой будет показан в 2D.
-Вы можете также, экипировать своих персонажей различным оружием. Используя данное оружие в сражении, Ваши персонажи увеличат базовый навык владения этим оружием, и будут в состоянии изучить новые навыки.Жанр: JRPGЯзык интерфейса: ENG/JAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E388F0DF2615CC74D6404F40E590D918BB2555E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404321   (623321) от 14.04.2022
 
 RAGE 2 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.09 / DLC] [Ru/Multi]
@@ -33,7 +6,7 @@ RAGE 2 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.09 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +32,7 @@ MotoGP 15 (2015) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +58,7 @@ Steredenn (2017) [PS3] [EUR] 3.41 [PSN] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +84,7 @@ Zeno Clash 2 [XBOX360] [En/Ru] [XBLA] [Freeboot] (2013)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +110,7 @@ Caladrius Blaze (2014) [PS3] [JPN] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +138,7 @@ NHL 15 (2014) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +164,7 @@ Ever Oasis (2017) [3DS] [EUR] [CIA] [Unofficial] [Multi]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +219,7 @@ Deus Ex: Human Revolution - Director's Cut (2013) [PS3] [EUR] 4.46 [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +245,7 @@ Silent Hill: Shattered Memories (2010) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +271,7 @@ Binary Domain (2012) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +330,7 @@ Crysis 3 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +356,7 @@ Retro City Rampage DX (2014) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [PSN]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +384,7 @@ Chasing Dead (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +412,7 @@ Grand Theft Auto: San Andreas HD (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +438,7 @@ Don't Starve: Giant Edition (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +466,7 @@ Warriors: Legends of Troy (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -519,7 +492,7 @@ The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3][EUR
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +518,7 @@ J-Stars Victory VS Plus (2015) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Un
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +544,7 @@ Bionic Commando (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,7 +570,7 @@ History Legends of War: Patton (2012) [PS3] [USA] 4.25 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -658,7 +631,7 @@ Ni no Kuni: Wrath Of The White Witch (2013) [PS3] [USA] 4.82 [OFW / HAN] [Repack
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -684,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -703,6 +676,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8476A38E12D11B5D9B0DDC59B9A97FF0216BAE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525350   (606985) от 21.07.2012
+
+[PSP] Musou Orochi 2 Special [Jap] (2012)
+
+>>Консольные Игры
+>>PSP
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Итак,Koei решили нас порадовать новой игрой из серии Warriors на PSP - Musou Orochi 2 Special,ранее вышедшей на PS3 и Xbox360.Это порт версия,поэтому в ней присутствует несколько отличий от оригинала.Жанр: Hack and SlashПерсонажи: Что на самом деле радует так это ещё одно дополнение - два новых персонажа:
+
+- Всем давно известная красавица Рейчел(Rachel) из серии игр Ninja Gaiden.Язык интерфейса: Jap
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E72E6E52F79B2B5FB2E604B7AE4BD0569467B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

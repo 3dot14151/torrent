@@ -1,3 +1,88 @@
+###  Публикация: 1362740   (942647) от 28.02.2020
+
+VA - Dj Бинокль - Housemission II (PlayOff) (2004) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Tooth-Paste Vol.2 - Play Off (4:02)
+02. D. Ramirez Feat. Pete Simpson - Freaque On (Seamus Haji Remix) (7:04)
+03. Candy Dulfer - Let Me Show You (G Men Investigate On The Dub) (6:17)
+04. Main Ingredients (2)	Lean On Me (Piano Dub) (4:35)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60CB863EB2B83C4A2E8C1E0A45566EBF4897B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362711   (942637) от 28.02.2020
+
+Dj Бинокль - Dnepro House (2001) [MP3|320 Kbps] <House, Euro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Play House Some More! (29:33)
+2. And Now It`s Time (30:04)Жанр: House, Euro HouseПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E178781592486C9B50CC8CCD6913B91639E106A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362733   (942627) от 28.02.2020
+
+VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Funk Bandit - Crazy Love (Crazy Acapella)
+02. Indigo Feat Elisabeth Troy - Real Love (Reprise & Grant Nelson Dub Mix)
+03. Bad Cabbage - Your Rude (Get Fucked) (Fuckapella)
+04. J Haystax - Still In Luv With You (Full Vocal Dub)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4234879A799923E57DC4DF57BECFAE5646C3C54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362706   (942617) от 28.02.2020
 
 Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Progressive House>
@@ -6,7 +91,7 @@ Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Pro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +118,7 @@ VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +147,7 @@ VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +176,7 @@ VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -126,7 +211,7 @@ VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -155,7 +240,7 @@ VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -184,7 +269,7 @@ Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -213,7 +298,7 @@ VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +327,7 @@ VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +356,7 @@ VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +385,7 @@ VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +414,7 @@ VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -358,7 +443,7 @@ VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -387,7 +472,7 @@ VA - Urban Sports Music, Vol. 1 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -416,7 +501,7 @@ VA - Ministry Of Sound: Chilled House Session (2016) [MP3|320 кб/с] <Afro Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -445,7 +530,7 @@ VA - Clinique Sampler, Pt. 230 (2020) [MP3|320 Kbps] <House, Progressive House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +559,7 @@ VA - EDM Big Room Partytime, Vol. 7 (2020) [MP3|320 Kbps] <House, Big Room, Danc
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +588,7 @@ VA - Future Punk, Vol. 6 (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +617,7 @@ VA - Urban Sports Music, Vol. 2 (2019) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +646,7 @@ VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,7 +675,7 @@ VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,7 +704,7 @@ VA - Urban Sports Music, Vol. 5 (2020) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -648,7 +733,7 @@ VA - Toolroom Miami 2020 [MP3|320 Kbps] <House, Tech House, Progressive House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -662,93 +747,6 @@ VA - Toolroom Miami 2020 [MP3|320 Kbps] <House, Tech House, Progressive House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A65295B354DB4B95B0CEEEBB6EBC49AF54643C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094807   (927890) от 19.01.2017
-
-VA - Midnight Sessions  Vol.3 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ava Blaxland - Oxana (Original Mix)  3:26
-02.  Tribal Kong - A Beast (Black Jam Mix)  5:35
-03.  Van Mark - Tree Cherry Pits (Original Mix)  5:49
-04.  Jay Indo - One Two (Original Mix)  6:14(   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 01:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBF131ED48AD318938A9D9320A9278C97A894B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094951   (927852) от 19.01.2017
-
-VA - Extreme Cardio Vol 1 (2015) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untidy Dub - Use It Or Lose It (Original Mix) [06:25]
-02. Baseware - Boom (Ross Homson Remix) [08:10]
-03. Groove Complex - Rendevouz (Original Mix) [06:36]
-04. The Creators - Get On Up (Original Mix) [07:50](   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C78EC99AA4587C6C0CF2F25AEB299AC9DB37691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094955   (927809) от 19.01.2017
-
-VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Teeze - Go Away (Original Mix) 06:29
-02. Karlston Khaos - The Drop (Original Mix) 06:32
-03. Bassik - Dark Dreams (Original Mix) 06:56
-04. Fierce Djs - Animal Funk (Original Mix) 06:44(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D015F05948C3CE0CFA600FB2C2BB2854DF0922B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

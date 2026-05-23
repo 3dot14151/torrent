@@ -1,3 +1,107 @@
+###  Публикация: 1066813   (409076) от 27.10.2016
+
+The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Deep Paths: Labyrinth Of Andokost - является РПГ игрой от первого лица. Игроку предстоит бродить по темным подземельям и уничтожать монстров применять традиционный пошаговый бой. Игроки исследуют огромный лабиринт, наполненный опасными существами и скрытыми сокровищами, дабы разгадать древнюю тайну зла! Благодаря богатой 3D-графики старой школы, чувство ретро (   Читать дальше...   )Тип издания: LicenseРазработчик: Steve JarmanЖанр: Adventure, Quest, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1C0F9C8B2F57203720D692DF862586C44F7552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948743   (408944) от 21.10.2015
+
+Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События Tales from the Borderlands разворачиваются в той же вселенной, что и трёх шутеров от Gearbox Software и 2K Games, после событий Borderlands 2. Взглянуть на происходящее предлагается глазами двух совершенно новых героев - работающего в корпорации «Гиперион» (Hyperion) уборщика Риса (Rhys) и мошенницы Фионы (Fiona). Рис мечтает стать новым Красавчиком Джеком (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Telltale Games и Gearbox SoftwareЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51634AD3C047F6B692D00FE64457E70C27FF405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168523   (408556) от 24.09.2017
+
+Figment (2017) [Ru/Multi] (1.0) Repack CoolGames
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная игра, которая разворачивается в тайных уголках человеческого сознания... Добро пожаловать в мир Figment. Странный сюрреалистический мир; место, наполненное нашими тайными мыслями, желаниями и воспоминаниями, населенное множеством голосов, которые мы слышим в голове. Этот разум долгие годы был тихим и спокойным. Но теперь что-то изменилось. Здесь начали (   Читать дальше...   )Тип издания: RepackРазработчик: Bedtime Digital GamesЖанр: Action, Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF6C8F2928552429D9B586B08C9E6501136EA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317916   (408300) от 17.09.2019
+
+The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вступление в культ добровольно. Здесь вас принимают, как родню. Здесь вас понимают. Здесь вас обволакивают словами, которые важнее, чем сама истина – они лечат все раны и заполняют все прорехи. В конце 70-х Миссию Коллективной Справедливости возглавляют харизматичные Айзек и Ребекка Уокеры. Их называют радикалами. Чтобы скрыться от преследования правительства США, (   Читать дальше...   )Тип издания: LicenseРазработчик: Paranoid ProductionsЖанр: Adventure (Top-Dawn), Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский и другиеЯзык интерфейса: Русский, Английский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D09B6EDD017155F27F7A172D81DE12705CF4E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386060   (407750) от 04.10.2020
 
 Observation (2019) [Ru/Multi] (1.17) License GOG
@@ -6,7 +110,7 @@ Observation (2019) [Ru/Multi] (1.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Heaven's Vault (2019) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Runaway 3: A Twist of Fate (2011) [En] (2.0.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Danganronpa V3: Killing Harmony (2017) [En/Ja/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ RiME (2017) [Ru/Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Alter Ego (2010) [Ru] (1.07) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Forgotten Land (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1 202) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Artania (2017) [Ru/Multi] (1.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Artania (2017) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Exorcise The Demons (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Deponia Dilogy / Дилогия Депонии [Ru/En] (RePack/1.3/1.1.4) 2012 |
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Manual Samuel (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Loco Parentis (2019) [Ru/En] (1.0.0.4242) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +583,7 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +609,7 @@ The Train / Поезд (2013) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +635,7 @@ The Light / Свет (2012) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +661,7 @@ Teenagent (1994) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,110 +672,6 @@ Teenagent (1994) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26D0BD427165D429B8971997786E6AF2DD7C782C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327348   (376065) от 24.09.2019
-
-Palmyra Orphanage (2019) [Ru/En/Ch] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Palmyra Orphanage — это паранормальный хоррор от первого лица, в котором только скрытность и внимание помогут тебе выжить. Выбери тот финал, который они заслуживают. Раскрой историю приюта. И будь осторожен. В отдаленном уголке постсоветской России находится приют «Пальмира». Каким-то образом детский дом смог пережить развал страны и жуткую лихорадку девяностых. (   Читать дальше...   )Тип издания: LicenseРазработчик: Steppe Hare StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1505B6048AEE6FA13041259DB066176193D73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175776   (375853) от 19.10.2017
-
-The First Tree (2017) [Ru/Multi] (1.1) License RELOADED
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375853.jpg" />
-</div>
-
-
-###  Подробнее
-
-The First Tree — красивый квест от третьего лица, в котором переплелись две истории: лисы, пытающейся отыскать свою семью и мальчика, решившего найти отца. Игроки играют за лису, которой предстоит интересное и трогательное приключение. Что ждёт её, - возможно, она приблизится к источнику жизни или поймёт, что такое смерть? По мере развития сюжета, история мальчика (   Читать дальше...   )Тип издания: LicenseРазработчик: David WehleЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194405E376806DAF5333854C4D0B5FDCA19FD057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069267   (375349) от 03.11.2016
-
-Little Big Adventure 2 (1997) [Ru/Multi] (1.0) License GOG
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть приключенческого экшена Little Big Adventure отправляет геймеров в путешествие по планете Твинсун: здесь отважный Твинсен должен противостоять злобным пришельцам, похищающих волшебников и детей. Игроков ждут многие часы приключений, увлекательный сюжет, захватывающие сражения с опасными противниками и знакомство с новыми персонажами.Тип издания: LicenseРазработчик: Adeline Software InternationalЖанр: Adventure, Arcade (Platform), 3D, 3rd Person, IsometricЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA36B6F796A93E677D513A683ECDC3E0D5E3A626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254227   (374495) от 13.10.2018
-
-Lucid Dream (2018) [Ru/Multi] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lucid Dream — история о маленькой Люси и её путешествии в мир снов, чтобы спасти свою маму. Lucid Dream — многократно номинированная на различные награды, нарисованная вручную, яркая и эмоциональная приключенческая игра в жанре point-and-click. Ваша задача — помочь Люси найти способ излечить маму, и в процессе вы посетите много невероятных миров.Тип издания: LicenseРазработчик: Dali GamesЖанр: Adventure, Indie, CasualЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB1E59D4AD12CAFED1F2AAF5F96D450F0895BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

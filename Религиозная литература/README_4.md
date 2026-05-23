@@ -1,3 +1,109 @@
+###  Публикация: 1619016   (1033388) от 14.03.2023
+
+Блаженный Иероним Стридонский | Толкование на Евангелие от Матфея (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сочинение великого святого отца Западной Церкви IV–V веков блаженного Иеронима Стридонского (339–420) «Толкование на Евангелие от Матфея» было написано около 398 года по просьбе его ученика Евсевия Кремонского. В этом трактате проявились блестящие дарования блж. Иеронима как экзегета, переводчика, знатока Библии и церковного ученого. «Толкование на Евангелие от Матфея» (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E742895E186C195034F21694000177F32542803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619179   (1033214) от 15.03.2023
+
+Протоиерей Артемий Владимиров | «Просвети одеяние души моея, Светодавче...» (2001) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Приобретая внутренний покаянных плач пред Богом, обнажая пред Ним свою наготу и неприбранность души, мы, словно дети, призваны притекать в объятия Иисуса Христа, прикасаться к Его ризам, более того, принимать в себя Его Тело и Кровь и, по неизреченной любви к нам Господа, восчувствовать ещё здесь, на земле, что дано каждому искренне кающемуся, как прикосновением (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEE753C9864F27427424C73085F7D5CB1FE9CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619172   (1033207) от 15.03.2023
+
+Архиепископ Никанор (Каменский) | Апостол с толкованием. Объяснение книги деяний свв. апостолов и соборных посланий (2015) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Толковый Апостол» – толкование на книги Нового Завета: Деяния и Послания святых апостолов. K каждому новозаветному стиху дается подробное объяснение. Книга была написана известным богословом – архиепископом Никанором (Kаменским) в конце XIX – начале XX в., предназначена для широкого круга читателей, интересующихся богословием.Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB61EFB756E8B1D1A40CD154E274AD3FDFCA63C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619572   (1033004) от 16.03.2023
+
+Архимандрит Наум (Байбородин) | Адам ветхий и Адам Новый (2018) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В книге известного старца архимандрита Наума (Байбородина; 1927-2017) рассматриваются схожесть и различие двух Адамов, ветхого и Нового.
+
+Сотворенный Богом первый человек Адам стал прародителем всего человечества. Мы все похожи на него, унаследовав и его жажду Бога и святости, и склонность к грехопадениям. Часто он называется ветхим в отличие от Нового Адама – Христа, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76FD994FF2C3869C55ED8A9692219EE44AB6C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446387   (1032932) от 08.02.2021
 
 Г.П. Чинякова (сост.) | Жизнеописание старца иеросхимонаха Стефана (Игнатенко) (2002) [PDF, DJVU]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +588,7 @@ Cергей Милов (сост.) | Таинство Покаяния (2011) [F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,114 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A3233774D8CC2C67F88D38741EC66B3CD04F62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451995   (1027919) от 05.03.2021
-
-Шахак Исраэль | Еврейская история, еврейская религия: тяжесть трёх тысяч лет (2005) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое издание является своего рода продолжением политической деятельности израильского профессора Исраэля Шахака, большую часть своей жизни отдавшего борьбе с расизмом и шовинизмом. Его книга «Еврейская история, еврейская религия: тяжесть трех тысяч лет», впервые вышедшая в 1994 году на английском языке, наиболее полно раскрывает причины невосприятия и жесткой (   Читать дальше...   )Жанр: этнография, история, религиоведениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C07102196B1313E2EDF9141EE543CFD599F8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452588   (1027591) от 07.03.2021
-
-Святитель Николай Сербский | Десять заповедей Божиих (2011) [PDF, DJVU, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владыка Николай (Велимирович) — поистине самое крупное имя в сербской духовной литературе двадцатого столетия, да, пожалуй, и не только двадцатого. Со времён святителя Саввы Сербского не было в сербском народе столь вдохновенного и глубокого проповедника, богослова и духовного писателя.
-
-В простых и понятных каждому вдумчивому читателю словах владыки Николая раскрывается (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8ED60CF9E59672C3C83D923CCEAD7A829A20580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453037   (1027227) от 09.03.2021
-
-Игумен Роман (Загребнев) | Спасай свою душу (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Церковь Православная - наша Мать, и она всегда желает душевного мира своим чадам от Господа. Ибо мир душевный и радость - это самые важные богатства и этого и того мира. Все мы усердно этого желаем. Мы можем иметь на земном шаре всё, что только можем, но не иметь мира душевного и радости. В первый день недели Воскресший Спаситель пришёл к ученикам своим, которые (   Читать дальше...   )Жанр: Православная литератураФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1D85EEEF24788F1A503EE11DB1EB10495D16A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453034   (1027224) от 09.03.2021
-
-Игумен Роман (Загребнев) | Дела света и дела тьмы [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познание своей немощи и смирение твёрже всякой иной добродетели. Учись переносить приятное с благодарением, неприятное - с молитвой покаяния, всё же вообще - с преданностью Богу и благодарением, повторяя: «Слава Богу за всё!»
-
-Заметишь, что не удалось сделать всё, что хотелось, скажи: «Господи, помилуй!» Надо бы заставить себя, да лень одолела - «Господи, прости». (   Читать дальше...   )Жанр: ПравославиеИздательство: ПсковФормат: PDF, DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6410A353B03DFCEAED53432202D582764B63D86D
 ```
 
 https://mybot314.ru/tekegram_catalog/

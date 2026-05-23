@@ -1,3 +1,86 @@
+###  Публикация: 1666453   (179501) от 04.10.2023
+
+Enterclass, Татьяна Анисимова | Натюрморт с фруктами (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Чем пахнут спелые фрукты? Гранат опьяняет наши чувства сладко-терпкими винными нотками, груша ласкает обоняние мускатным ароматом, разрезанная дыня наполняет комнату оттенками ванили или мёда, а сочный зеленый виноград успокоит буйство запахов свежим и нежным дыханием.
+
+Хотите окунуться в этот чарующий мир и написать «ароматную» акварель?
+Во время этого мастер-класса (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:04:57Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAEF9A7E821B03E1191CD0104CBA886A940B767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483020   (179470) от 28.11.2022
+
+Школа дизайна интерьеров ARTUM, Олег Кононыхин | Интерьер. Станьте 3D-визуализатором за 6 месяцев (2018) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Каждый раз визуализатор проходит 3 шага, чтобы создать визуализацию: создает модели, назначает материалы и выставляет камеры и свет. Эти 3 шага — и есть главные разделы нашего курса.
+Но прежде чем перейти к ним я ввёл еще нулевой раздел «Инструменты», из которого вы узнаете базовые понятия и некоторые фишки, которые ускоряют работу в программе в 2+ разаПроизводство: Школа дизайна интерьеров ARTUMЖанр: 3d, графика, дизайнПродолжительность: 58:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E29E7D8C961AB66191C4903C8CB322869137464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666530   (179377) от 04.10.2023
+
+Enterclass, Сергей Курбатов | Зеленый цвет в пейзаже (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Летом вокруг огромное количество зелени. И цвет её очень разный: теплый и холодный, светлый и темный, насыщенный и неяркий...
+А ещё иногда зелень рисуют вовсе не зелёным! Вместе с художником Сергеем Курбатовым разберемся, как работать с этим сложным цветом, поговорим о композиции и ритмах и напишем четыре картины с разными видами и состояниями природы.Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 08:28:20Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D4A1F3D0D6B138BBF16DA3A3F97191069989CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666474   (179337) от 04.10.2023
 
 education.iyaaar | Марафон стикеров. Тариф мужские (2023) WEB-DL [AD] [RU]
@@ -6,7 +89,7 @@ education.iyaaar | Марафон стикеров. Тариф мужские (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +118,7 @@ Max Twain | Workshop - Создание серии артов в нейросе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -64,7 +147,7 @@ CG Cookie, Kent Trammell | Рендеринг и финишная анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -91,7 +174,7 @@ CG Cookie, Wayne Dixon | Учебный лагерь по анимации в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -117,7 +200,7 @@ Lynda, David Andrade | Создание законченной анимации 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -143,7 +226,7 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -169,7 +252,7 @@ Arrimus | Arrimus Ultimate 3D Modeling Course (2022) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -195,7 +278,7 @@ Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -222,7 +305,7 @@ CG Cookie, Jonathan Lampel | Основы динамической симуля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -248,7 +331,7 @@ Udemy, Darrin Lile | Blender 2.83 и захват движения / Blender 2.8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -274,7 +357,7 @@ ArtStation, Rico Cilliers | Введение в скульптинг в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -300,7 +383,7 @@ Gumroad, Evolving CG | Создание малыша Йоды / Creating Baby Yo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -327,7 +410,7 @@ Skillshare, Simon Van Den Hende| Основы скриптинга на Python �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -356,7 +439,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -383,7 +466,7 @@ Tolkovoprod, Анастасия Мазуровская | I am designer. Тари
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -412,7 +495,7 @@ Schoolism, Bobby Chiu | Цифровое рисование с Бобби Чу /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -439,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -466,7 +549,7 @@ XYZ School | Blender 2.8 Intro (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -494,7 +577,7 @@ Dream & Draw Art School, Анастасия Козлова | Волшебный 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -523,7 +606,7 @@ Granich.Design, Вадим Гранич | Графсистема Воздух (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -551,7 +634,7 @@ FlippedNormals, David Saiz | Hard Surface Modeling for Games (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -577,7 +660,7 @@ The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2020 W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +687,7 @@ profileschool, Дмитрий Ларионов | Монтаж в Davinci Resolve
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,86 +698,6 @@ DaVinci Resolve эволюционирует, и в новых версиях п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D9D9D95B25966F15DD1A098F2887E9AF9E537BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515014   (170709) от 05.12.2021
-
-VideoSmile, Михаил Бычков | Супер 2D моушн-графика (2019) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170709.jpg" />
-</div>
-
-
-###  Подробнее
-
-2D моушн-графика — это слияние двух наиболее значимых дизайн-трендов современного цифрового искусства — видео и плоской графики. Такие видеоролики получаются простыми для восприятия и при этом очень стильными. Благодаря этим качествам, 2D моушн-графика стала очень популярна в интернетеПроизводство: VideoSmileЖанр: 2D моушн-графикаПродолжительность: 27:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4723936CF0130D04D0CCE84159170BEBCDE6FB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596193   (170698) от 08.12.2022
-
-Udemy, Nikolay Naydenov | Head anatomy and sculpting exercises course (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите анатомию и формы мужской и женской голов для 3D и 2D художников.
-В этом курсе мы рассмотрим основные формы человеческой головы. Различия между мужской и женской головами. Формы черепа и их значение при конструировании лица, скульптинге и рисовании.
-Курс предназначен для всех уровней, он проводится в Blender, но вы можете сделать это в Zbrush или даже рисовать (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 13:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C1FD8B5874D81C5F9AA959F2B2E3F90DDCABA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596198   (170223) от 09.12.2022
-
-Udemy, Darrin Lile | Blender 2.8 UV Mapping (2019) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание UV развертки - это необходимый навык для применения текстур к 3D-объектам в Blender 2.8 для анимации и игр. В этом курсе мы рассмотрим, что такое UV развёртка, зачем она нужна, а также инструменты и методы, которые помогут вам эффективно её создавать для ваших 3D-объектов в Blender 2.8. Мы начнём курс с обзора основ. А затем мы поработаем над 5-ю различными (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, UV развёрткаЯзык озвучки: АнглийскийПродолжительность: 05:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187AFB659DC157CDF99587032EFFFF85F16EAFB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

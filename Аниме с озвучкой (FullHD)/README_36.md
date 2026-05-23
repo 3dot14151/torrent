@@ -1,3 +1,83 @@
+###  Публикация: 1719072   (58252) от 28.04.2024
+
+Bleach: Sennen Kessen Hen Ketsubetsu Tan | Bleach: Thousand-Year Blood War - The Separation |  Блич: Тысячелетняя кровавая война - Прощание [2023, TV, 13 из 13 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Пока Сообщество душ, понесшее колоссальные потери и разрушения в битве с «Ванденрейхом», пытается держаться на плаву, Яхве избирает преемника, чем вызывает недовольство некоторых штернриттеров. В это же время Ичиго Куросаки, который узнал о своём истинном происхождении и отправился во владения Короля душ, восстанавливает силы и старается стать сильнее для борьбы (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: комедия, приключения, сёнен, экшен, фентезиРежиссер: Тагути ТомохисаЯзык озвучки: русский и японскийСубтитры: Перевод1: ASS, Встроенные | RusПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6E3ABA02F8A5DF7CD2FBF88BC132701810C101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638207   (58063) от 30.04.2024
+
+Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная жизнь уволенного тёмного солдата (30-ти лет) [2023, TV,  12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Тёмный воин Дариэль верой и правдой служил всю свою жизнь в тёмной армии, пока вдруг новое руководство не выгнало его. Так он оказался без работы и крыши над головой, начинать новую жизнь после тридцати непросто, но альтернатива ещё хуже. Да и может быть ему улыбнётся удача?Производство: Encourage FilmsЖанр: приключения, фэнтезиРежиссер: Оидзаки ФумитосиЯзык озвучки: Японский, русский (AniLibria, AniPlague)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC93A672992453C6C991FB7351468FB700A05B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720396   (57714) от 03.05.2024
+
+Размеренная жизнь фармацевта-читера: Открыть аптеку в другом мире | Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another World: The Slow Life of a Cheat Pharmacist [2021, ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Однажды Кирио Рейджи попадает в другой мир, чему он несказанно рад, ведь теперь не будет ни надоевшей работы, ни толкучки в поездах!
+Размышляя о том, как ему повезло, он натыкается на раненую волчицу и тут же решает вылечить её завалявшимся в сумке зельем. Но вот незадача: зелье так отвратительно пахнет, что волчица отказывается его пить!
+Тогда Рейджи решает сам (   Читать дальше...   )Производство: Япония / Студия EMT SquaredЖанр: комедия, фэнтези, повседневностьРежиссер: Сато МасафумиПеревод: (Crunchyroll)Язык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные); Английские (софтсаб полные) (внешним файлом)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B134C2C76962A330A13DC01FB4CA384ADF0AF7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465823   (56991) от 10.05.2024
 
 Hachi-nan tte, Sore wa Nai deshou! | The 8th Son? Are You Kidding Me? | Восьмой сын? Да вы шутите! [2020, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +86,7 @@ Hachi-nan tte, Sore wa Nai deshou! | The 8th Son? Are You Kidding Me? | Вось
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +139,7 @@ Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +165,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +191,7 @@ Komada Jouryuusho e Youkoso | Добро пожаловать на вискар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +270,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +296,7 @@ Kyokou Suiri Season 2 | In/Spectre Season 2 | Ложные выводы [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +484,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi | Исто�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -601,86 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6BD8E5E28AA8E9694D589D2B04A955829AFB3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734077   (51300) от 02.07.2024
-
-Ослепляющая Кагари | Kuramerukagari [2024, Movie] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шахтёрский городок Хаконива каждый день меняет свой образ будто живой лабиринт. Жители привыкли к постоянным переменам, ведь вырваться из них они просто не могут. Девушка-картограф Кагари очарована своим необычным городом и составляет карты, желая раскрыть секрет его изменчивости. Её же друг Юя ничего хорошего в Хакониве не видит - как бы город ни менялся снаружи, (   Читать дальше...   )Производство: Япония / Студия Team OneOneЖанр: Детектив, триллер, фантастика, приключенияРежиссер: Цукахара СигэёсиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1905B3DECD9AD8701A2E31E96FB37E9B0B267B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734078   (51295) от 02.07.2024
-
-Кураюкаба | Kurayukaba [2024, Movie] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Сотаро жил и иногда тужил, что заказчики исчезают, не оплатив его услуги, но однажды он узнал, что заказчики в своих исчезновениях не виноваты! Виноват некий преступник, но кто он? Это явление? Человек? В фантастическом городке, укрытом промышленным смогом, похищать людей может и не такое.
-Детектив берётся за дело, чтобы найти пропавших людей! И расследование (   Читать дальше...   )Производство: Япония / Студия Team OneOneЖанр: Детектив, приключенияРежиссер: Цукахара СигэёсиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C729980517FF9CF17F60EF80636D8A138D613D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713853   (51254) от 03.07.2024
-
-Студия, солнечная сторона, есть ангел | One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel Included [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51254.jpg" />
-</div>
-
-
-###  Подробнее
-
-После долгого рабочего дня старшеклассник Синтаро Токумицу хотел отдохнуть в своей однушке, но не тут-то было: на балконе он увидел девушку-ангела. Посланница с небес сообщила, что спустилась на землю изучать человечество, и парень неохотно согласился ее приютить. Так началась их забавная совместная жизнь, полная божественных откровений.
-© crunchyrollПроизводство: Япония / Студия Okuruto NoboruЖанр: Комедия, романтикаРежиссер: Ониси КэнтаЯзык озвучки: Русский (DubClub, Kazoku Project, Silver AniAge, Оканэ); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335D3F7884533EE583F9D26A3E7B17414E7DB147
 ```
 
 https://mybot314.ru/tekegram_catalog/

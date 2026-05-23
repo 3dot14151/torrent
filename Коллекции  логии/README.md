@@ -1,4 +1,59 @@
 https://t.me/izofen
+###  Публикация: 1870458   (1069099) от 
+
+YouTube канал "green lamp public domain" - Старые Зарубежные Фильмы (1903-1968) WEBRip [H.264]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "green lamp public domain" / UCFcI8lexe5s0eNfRxxFKvZA по состоянию на февраль 2020 года.
+
+Канал "green lamp public domain" был открыт в 2015 году, удалён 19 августа 2021 года.
+За 6 лет было опубликовано около 550 фильмов, большую часть из которых удалось сохранить для данной раздачи.Производство: СШАЖанр: история, драма, комедия, немое киноЯзык озвучки: Английский, русский, немое киноСубтитры: Английские интертитры, русские встроенныеПродолжительность: 403:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7CE7E898992750E80217317DD855CBD0184F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870024   (1068793) от 
+
+Вселенная «Заклятия» / The Conjuring Universe (2013-2025) BDRip [H.265/1080p] [10-bit] [Коллекция]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вселенная «Заклятия» — американская франшиза фильмов ужасов производства New Line Cinema (подразделение Warner Bros. Pictures), основанная на предполагаемых реальных случаях из практики исследователей паранормальных явлений Эда и Лоррейн Уоррен.Производство: Канада, США, Великобритания / Atomic Monster, New Line Cinema, Safran Company, The, RatPac-Dune Entertainment, Evergreen Media, Quebec Film and Television Tax Credit, Warner Bros.Жанр: ужасы, триллер, детектив, драмаРежиссер: Корин Харди, Дэвид Ф. Сандберг, Майкл Чавес, Джон Р. Леонетти, Джеймс Ван, Гари ДоберманАктеры: Демиан Бичир, Таисса Фармига, Талита Бейтман, Лулу Уилсон, Йонас Блоке, Аннабелль Уоллис, Уорд Хортон, Вера Фармига, Патрик Уилсон, Маккенна Грейс, Мэдисон Айсмен, Линда Карделлини, Роман КристуПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторский, любительский многоголосый, любительский двухголосый, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:55:07 / 01:42:21 / 01:35:41 / 01:53:00 / 01:43:25 / 01:38:57 / 01:36:51 / 01:50:25 / 01:32:38 / 01:32:45 / 01:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C873D10610332A6EB3D05284C1F4F5247E87EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869745   (1068498) от 
 
 YouTube канал "Азербайджанские Фильмы" (1925-2013) WEBRip [H.264/720p]
@@ -7,7 +62,7 @@ YouTube канал "Азербайджанские Фильмы" (1925-2013) WEB
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -168,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -194,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -623,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59EBC4250D9C5D104FDDF6CEEC7EA5CF9FFB2853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442138   (1036477) от 25.01.2021
-
-Дивергент / Divergent (2014, 2015, 2016) BDRip [H.264/720p] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036477.jpg" />
-</div>
-
-
-###  Подробнее
-
-В антиутопическом Чикаго будущего существует общество, члены которого придумали способ избегать конфликтов и поддерживать вокруг незыблемый порядок. Каждый человек по достижении 16 лет должен определить, к чему лежит его душа, и в зависимости от своих личностных качеств присоединиться к одной из пяти фракций – Искренность, Бесстрашие, Эрудиция, Дружелюбие или Отречение. (   Читать дальше...   )Производство: США / Summit Entertainment, Red Wagon EntertainmentЖанр: фантастика, детектив, боевик, мелодрамаРежиссер: Нил Бёргер, Роберт ШвенткеАктеры: Шейлин Вудли, Тео Джеймс, Джай Кортни, Кейт Уинслет, Зои Кравиц, Майлз Теллер, Эшли Джадд, Тони Голдуин, Мэгги Кью, Рэй Стивенсон, Наоми Уоттс, Октавия Спенсер, Джефф ДэниелсПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:19:30 / 01:58:59 / 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E7CB48D6457A26B7093295912CACB18F1D0D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445943   (1033126) от 07.02.2021
-
-Парк Юрского периода / Jurassic Park (1993,1997,2001) BDRip [H.265/1080p] [10-bit] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё началось с того, что в 1990 году компания Universal Studios купила права на все романы Майкла Крайтона. Роман был успешным из-за адаптации, которую выпустили компании Universal Studios и Amblin Entertainment в 1993 году — «Парк юрского периода». Фильм получил несколько наград «Оскар» в номинациях «Лучшие визуальные эффекты»...
-Великолепная, просто фантастическая (   Читать дальше...   )Производство: США / Amblin Entertainment, Universal Pictures, Digital Image AssociatesЖанр: фантастика, боевик, приключения, семейныйРежиссер: Стивен Спилберг, Джо ДжонстонАктеры: Сэм Нил, Лора Дерн, Джефф Голдблюм, Ричард Аттенборо, Джозеф Маццелло, Ариана Ричардс, Уэйн Найт, Боб Пек, Мартин Ферреро, Сэмюэл Л. Джексон, Джулианна Мур, Винс Вон, Ванесса Ли Честер, Пит Постлетуэйт, Уильям Х. Мэйси, Теа Леони, Алессандро Нивола, Тревор Морган, Майкл Джитер, Джон Дил, Брюс А. Янг, Лора Дерн, Тейлор НиколсПеревод: Дублированный, многоголосый профессиональный, двухголосый профессиональный (UKR)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 02:06:40 / 02:08:46 / 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E832D8B53948058DAAF96C4CCED023A6FB93F2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,188 @@
+###  Публикация: 1308488   (553853) от 14.06.2019
+
+Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11629.20246 (2019.06) RePack by KpoJIuK  [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E3EFF5CB8479134295A740B3D48DB20BBA19FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798235   (553851) от 14.06.2019
+
+ZYTOKINE | CYTOKINE — 71 альбом (2006-2019) Touhou Vocal, Instrumental, Vocaloid /Doujin/ [FLAC|Lossless|tracks] <J-Rock, J-Pop, Electronic>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2018.12.30 (CK-0059P) CRYMEARIVER (С95)
+2019.05.05 (CK-0060P) JUBILEE (Reitaisai 16)
+2019.05.05 (CK-0061P) BIRTH IN DAWN (Reitaisai 16)Тип издания: DoujinЖанр: J-Rock, J-Pop, ElectronicФормат: Touhou Vocal, Instrumental, VocaloidПродолжительность: 02:07:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57AE2B79691D9142A250A70E55A81896E14BCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236844   (553751) от 20.07.2018
+
+12-й человек / Den 12. mann (2017) HDRip [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Основан на реальных событиях. Группа бойцов норвежского Сопротивления получает задание добраться до северо-западного норвежского побережья на судне «Браттхольм» и совершить диверсию на одной из немецких авиационных баз. Но миссия потерпела фиаско еще в море: судно было атаковано немецким кораблем и потоплено. Все захвачены в плен. Единственным человеком, которому (   Читать дальше...   )Производство: Норвегия / Nordisk Film Production AS, Zwart ArbeidЖанр: Триллер, драма, военный, историяРежиссер: Харольд ЦвартАктеры: Томас Гуллестад, Джонатан Риз Майерс, Мари Блокхус, Мадс Сьёгард Петтерсен, Вегар Хуль, Хокон Т. Нильсен, Эйрик Рисхольм Велле, Даниэль Фрикстад, Эрик Дирне, Александр ЦвартПеревод: Многоголосый закадровый, любительский (RusFilm)Субтитры: Русские (полные) - отдельным файломПродолжительность: 02:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82D20622DEE5C2148287CB6100A4017763E5763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308467   (553624) от 15.06.2019
+
+Видок: Охотник на призраков / L'Empereur de Paris (2018) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Реальная история легендарного французского сыщика XIX века Эжена Франсуа Видока. Ловкий преступник и мастер по части побегов из тюрем Видок менял города и профессии, пока не был нанят наполеоновским правительством очистить улицы Парижа от криминала. Зная преступный мир изнутри, Видок стал самым успешным детективом своей эпохи и настоящим Императором Парижа.Производство: Франция, Mandarin Films, Gaumont, France 2 CinémaЖанр: Приключения, историяРежиссер: Жан-Франсуа РишеАктеры: Ольга Куриленко, Венсан Кассель, Фрейя Мавор, Аугуст Диль, Дени Меноше, Дени Лаван, Фабрис Лукини, Джеймс Тьерре, Патрик Шене, Уилльям СкьортиноПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: Английские (full)Продолжительность: 02:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCDAB0F6A011E542193106D2F87F39DCDA48FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 343593   (553553) от 21.07.2018
+
+Discovery: Подлинная история высадки на Луну (Правда о полетах на Луну) / The Truth Behind The Moon Landings (2003) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Высаживались ли астронавты "Аполлона" на Луне? Этот вопрос лежит в основе теории самого масштабного заговора в истории человечества. Детище эры политического недоверия и всеобщей настороженности. Инсценировка, художественная постановка? Теория лунного заговора раздражает тех, кто связан с полетами. С их точки зрения, любая мысль о мистификации выглядит (   Читать дальше...   )Телекомпания: Discovery Channel, Zig Zag Productions, A True Moon Productions Ins., Five, A Canada-United Kingdom Co-poductionЖанр: ДокументальныйРежиссер: Вирджиния КуиннПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9168AC84D51F056938EEC83B783CB325EDD24F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235945   (553541) от 21.07.2018
+
+Местные / The Domestics (2018) WEBRip [H.264/720p-LQ [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После постигшего Америку апокалиптического события Средний Запад разделён на территории банд. Находившаяся до катаклизма в процессе развода семейная пара пытается добраться через опасную местность до родителей жены, в Милуоки.Производство: США / Hollywood Gang ProductionsЖанр: Ужасы, триллерРежиссер: Майк П. НельсонАктеры: Тайлер Хэклин, Кейт Босворт, Соноя Мидзуно, Давид Дастмалчян, Лэнс Реддик, Дэна Гурье, Лора Кайюэтт, Майк П. Нельсон, Дэйв Дэвис, Брэд ЛелэндПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (SDH)Продолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1584988AA52ACD4512810BEBFDE53FD80E62D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308639   (553398) от 16.06.2019
+
+Загадочное убийство / Murder Mystery (2019) WEB-DLRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чтобы оживить семейные отношения полицейский из Нью-Йорка вместе со своей женой отправляются в путешествие по Европе. В самолете они знакомятся с богатым пожилым мужчиной, который приглашает их на свою роскошную яхту. Но там его убивают, а они становятся главными подозреваемыми...Производство: США / Endgame Entertainment, Happy Madison Productions, Tower Hill Entertainment, Vinson FilmsЖанр: Комедия, детективРежиссер: Кайл НьюачекАктеры: Адам Сэндлер, Дженнифер Энистон, Люк Эванс, Джемма Артертон, Джеки Сэндлер, Оулавюр Дарри Оулафссон, Джон Кани, Теренс Стэмп, Сиори Куцуна, Элен КардонаПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, full), английские (SDH)Продолжительность: 01:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C19934A6031C01432AC0BA4C95F19EDED35CF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603592   (552821) от 22.08.2014
 
 Tom Clancy's Ghost Recon: Future Soldier [Ru/En] (1.8/dlc) 2012 Repack R.G. Games
@@ -6,7 +191,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru/En] (1.8/dlc) 2012 Repack R.G. Game
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_552693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +348,7 @@ Sleeping Dogs (2012) [En/Ru] (2.1.437044/DLC) SteamRip R.G. Games [Limited Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +378,7 @@ Adobe After Effects CC 2015.3 (13.8.1.38) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +405,7 @@ Adobe Premiere Pro CC 2015.4 (10.4.0.30) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +433,7 @@ sZone Online (2014) [Ru] (25.08.16) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +459,7 @@ Devil May Cry 4 (2015) [En/Multi] (12.12.2015/dlc) Repack R.G. Механики 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_550762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +537,7 @@ Microsoft Office 2003 SP3 rus vl + conv2007 + updates (21.08.2013) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +619,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 06.2019 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +671,7 @@ No Man's Sky (2016) [Ru/Multi] (1.0/u3/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,188 +682,6 @@ No Man's Sky (2016) [Ru/Multi] (1.0/u3/dlc) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BF4D218FDD545F9AFC0677FC2790C7035D90AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029967   (549786) от 29.08.2016
-
-Galactic Civilizations III (2015) [Ru/Multi] (1.82/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космическая 4Х стратегия Galactic Civilizations III, которая разрабатывается компанией Stardock Entertainment. Игра предложит вам построить величественную империю, которая будет доминировать в галактике с помощью завоеваний, дипломатии, культурной гегемонии или научных разработок. Звезды будут принадлежать вам, если вы сможете удерживать баланс потребностей расширять (   Читать дальше...   )Тип издания: RepackРазработчик: Stardock EntertainmentЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3E7DB85D059376CF1CFA35BD8AD3CA3B881FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046872   (549771) от 29.08.2016
-
-Кровный отец / Blood Father (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший заключенный, раньше не участвовавший в воспитании дочери, узнав о том, что его дочь преследуют наркоторговцы и жаждут ее смерти, решил помочь ей с проблемами.Производство: Франция / Why Not ProductionsЖанр: Боевик, ТриллерРежиссер: Жан-Франсуа РишеАктеры: Мэл Гибсон, Эрин Мориарти, Диего Луна, Майкл Паркс, Уильям Х. Мэйси, Мигель Сандовал, Дейл Дикки, Ричард Кебрал, Дэниэл Монкада, Райан ДорсиПеревод: Многоголосый закадровый, любительский (СПД)Субтитры: ОтсутствуютПродолжительность: 01:27:16Реклама: Присутствуют голосовые и текстовые вставки.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16A56FE84A4AB054C6553F2EB94A462E3D3FCB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309872   (549191) от 21.06.2019
-
-Manjaro Illyria 18.0.4 (GNOME, KDE, Xfce) [x86_64] 3xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manjaro Linux - быстрая, дружественная операционная система, основанная на Arch Linux и ориентированная на настольныее ПК. Xfce, KDE и Gnome предлагаются в качестве основных вариантов рабочего стола. Cinnamon, MATE и другие поддерживаются сообществом. Среди ключевых особенностей дистрибутива: интуитивный процесс установки, автоматическое обнаружение аппаратных компонентов, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4A3F748CE31E15F705515F70FEE8315D4640C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047097   (548911) от 30.08.2016
-
-MediaChance Dynamic Auto Painter PRO 5.0.3 RePack by KaktusTV (x86) [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Auto-Painter PRO - программа для художественного рисования. С этой удивительной программой вы сможете превратить свои фотографии в картины, при этом применяется имитация техники рисования самых известных и знаменитых художников. Отличие Dynamic Auto-Painter от других подобных программ состоит в том, что приложение оставляет не изменным саму фотографию, а (   Читать дальше...   )Язык интерфейса: английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3525DC2A87C950D4233B4171FD7EF28BD9583989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047293   (548892) от 30.08.2016
-
-Первый мститель: Противостояние / Captain America: Civil War (2016) BDRip [H.264/720p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мстители под руководством Капитана Америки оказываются участниками разрушительного инцидента, имеющего международный масштаб. Эти события заставляют правительство задуматься над тем, чтобы начать регулировать действия всех людей с особыми способностями, введя «Акт о регистрации супергероев», вынуждая их раскрыть свои личности и работать на правительственные службы. (   Читать дальше...   )Производство: США, Marvel Entertainment, Marvel Studios, Studio BabelsbergЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Крис Эванс, Роберт Дауни мл., Скарлетт Йоханссон, Себастьян Стэн, Энтони Маки, Дон Чидл, Джереми Реннер, Чедвик Боузман, Пол Беттани, Элизабет ОлсенПеревод: Дублированный (Чистый звук)Язык субтитров: Английский (Forced, Full, SDH)Продолжительность: 02:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B754A1D13A8C33D718F9E598A969BB06E9F1319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046168   (548888) от 30.08.2016
-
-Брюс Ли: Коллекция / Bruce Lee Ultimate Collection (1971-1978) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция фильмов с участием Брюса Ли, популяризатора и реформатора в области китайских боевых искусств, гонконгского и американского киноактёра, режиссёра, сценариста, продюсера, постановщика боевых сцен и философ. В данном релизе представлены все 5 полнометражных фильма Брюса Ли. Несмотря на столь малое количество фильмов где он снялся, влияние его личности на (   Читать дальше...   )Производство: Гонконг / Seasonal Film CorporationЖанр: Боевик, криминал, драма, триллерРежиссер: Вэй Ло, Брюс Ли, Роберт Клауз, Саммо Хунг, Нг Сиюэнь, Кори ЮэньАктеры: Брюс Ли, Мария Йи, Джеймс Тьен, Инь-Чиэ Хань, Малален, Тони Лю, Куин Ли, Нора Миао, Сань Чинь, Чао Чен, Роберт Бейкер, Фу Чинг Чен, Рики Хашимото, Дзюн Кацумура, Чак Норрис, Вэй Пинао, Хуан Чунсинь, Роберт Уолл, Ван Вэнг, Юникорн Чан, Мализа Лонго, Джон Сэксон, Кьень Ши, Ана Капри, Анджела Мао, Джим Келли, Боло Йенг, Бетти Чюн, Джефри Уикс, Коллин Кэмп, Дин ДжаггерПеревод: Дублированный, Профессиональный многоголосый, Профессиональный двухголосый, АвторскийСубтитры: Русские, английские (вшитые, отключаемые)Качество: BDRip 1080pПродолжительность: 01:39:41 | 01:46:50 | 01:38:40 | 01:42:33 | 01:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EFBEEBA2819E5802EA05C9F7F1144D3C741D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047631   (548883) от 30.08.2016
-
-Ледниковый период: Столкновение неизбежно / Ice Age: Collision Course (2016) WEBRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отчаянная погоня за неуловимым желудем катапультирует Скрата прямо в космос, где он случайно запускает целую серию космических событий. Именно они изменят весь мир Ледникового периода и станут реальной угрозой для него. Чтобы спастись, Сид, Мэнни, Диего и остальные звери должны покинуть свои дома, отправиться в забавное и захватывающее приключение в экзотические (   Читать дальше...   )Производство: США, 20th Century Fox Animation, Blue Sky StudiosЖанр: Мультфильм,Комедия, Приключения, СемейныйРежиссер: Майк Тёрмайер, Гален Т. ЧуАктеры: Ник Офферман, Адам Дивайн, Саймон Пегг, Дженнифер Лопез, Мелисса Рауш, Стефани Беатриз, Джон Легуизамо, Макс Гринфилд, Шонн Уильям Скотт, Дэнис ЛириПеревод: ДублированныйПродолжительность: 01:34:00Реклама: Присутствуют голосовые вставки рекламы сторонних ресурсов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB512BB75C64BD1C8B7E5E59FCB70AA791C4124
 ```
 
 https://mybot314.ru/tekegram_catalog/

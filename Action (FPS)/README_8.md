@@ -1,3 +1,107 @@
+###  Публикация: 1007281   (822826) от 14.04.2016
+
+The Tape (2015) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+The Tape является медленной и жуткой игрой от первого лица. Это ужас, с мистической историей и абстрактными психологическими элементами. Что касается главного героя, то на этот раз вы станете детективом прошлого, то есть, история игры перенесет вас на несколько веков назад, где вы должны отправиться в заброшенный дом и отыскать улики, которые помогут понять, что (   Читать дальше...   )Тип издания: LicenseРазработчик: Kazakov OlegЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3B00C0725676A57277B5BDD4B223FE1B9423CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007297   (822600) от 14.04.2016
+
+Putrefaction (2015) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Putrefaction это Шутер от первого лица с элементами хоррора, который вдохновлен старыми олдскульными шутерами вроде Дума или Квейка.Тип издания: LicenseРазработчик: Kazakov OlegЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC4FD5BF92AC5F9731532407DA8BCEA6300805E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007343   (822599) от 14.04.2016
+
+Dead Secret (2016) [En] (1.0) Rip Unleashed
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Dead Secret – мистический триллер, созданный для шлемов виртуальной реальности. Вы окажитесь на месте преступления и окунетесь в жуткое прошлое мертвого мужчины. Вам предстоит раскрыть загадку его гибели и сбежать, прежде чем стать новой жертвой.Тип издания: RipРазработчик: Robot InvaderЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E112E959BFD3E7640305626BC2F9D3AE90DD5D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381328   (822093) от 09.05.2020
+
+Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack West4it [Director's Cut]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бывший оперативник Адам Дженсен занимал пост начальника охраны одной из крупнейших мировых корпораций, специализирующейся на биотехнологиях. И все шло хорошо, пока однажды офис компании не подвергся нападению. Большинство ученых погибло, а сам Адам был тяжело ранен. Чтобы сохранить ему жизнь, руководство приняло решение подвергнуть его механическому усовершенствованию.Тип издания: RepackРазработчик: Eidos MontrealЖанр: Action (Tactical), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский  и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C78E943054115D3AE1E5764CBDE2FF9C8E4F1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107664   (821992) от 03.01.2018
 
 SOMA (2015) [Ru/Multi] (1.500) Repack =nemos=
@@ -6,7 +110,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Worst Case Z (2016) [En/De] (1.0) License CODE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd46/dlc) License PLAZA [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Red Orchestra: Ostfront 41–45 (2006) [Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +271,7 @@ Into the Pit (2021) [Multi] (368) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +297,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] Lic
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +324,7 @@ Doorways: The Underworld (2014) [En/Es] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +350,7 @@ Armed Assault 2 / ArmA 2: Reinforcements / ArmA 2: Второй фронт [Ru] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +378,7 @@ Taken (2015) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +404,7 @@ Delta Force (1998) [En] (1.00.03.03p) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +430,7 @@ Wolfenstein Anthology (1981-2015) [Ru/Multi] (1.0/1.4/1.41/1.2/1.0.0.2/1.0.0.0/d
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +456,7 @@ Delta Force 2 (1999) [En] (1.06.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +482,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +508,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +534,7 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +560,7 @@ Homefront (2011) [Ru/En] (1.5/dlc) Repack R.G. Механики [Ultimate Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Painkiller Антология [Ru/En] (Lossless RePack) 2004-2011 | RG Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +641,7 @@ The Butterfly Sign (2017) [Ru/Multi] (1.2.0) License PLAZA [Chapter II: Human Er
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +667,7 @@ The Crow's Eye (2017) [En/Sp] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,110 +678,6 @@ The Crow's Eye (2017) [En/Sp] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D61CCE0B0F17790D2F2E1327E0EA7CCE1E4F89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118760   (810572) от 26.03.2017
-
-SnipZ (2017) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир страдает, ведь его населили страшные мутанты, зомби, и всякая прочая непонятная нежить. В игре SnipZ вам предстоит сражаться с ордами монстров, и для этого у вас есть отличная проверенная снайперская винтовка. Человеческой расе грозит вымирание, но есть один герой, который способен победить монстров. Инопланетные пришельцы-зомби уже высадились на нашей планете. (   Читать дальше...   )Тип издания: LicenseРазработчик: Nicolas BernardЖанр: Action (Survival horror), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF947EF87DBC8C40C517778875340D4306176FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083269   (810562) от 26.03.2017
-
-The Butterfly Sign (2016) [Ru/Multi] (1.1.5) Repack Other s [Chapter I: Necessary Evil]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810562.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Butterfly Sign - детектив от первого лица, в котором нам предстоит сыграть за единственного выжившего в крупном теракте. Главный герой единственный свидетель произошедшего, и от его воспоминаний зависит его судьба. Поэтому он решается на отчаянную меру. Он принимает экспериментальный препарат “Раммекс”, который погружает его в чертоги собственного разума и восстанавливает (   Читать дальше...   )Тип издания: RepackРазработчик: Quantum Phoenix, Dennis Esie, Mikhail Romanov, Bogdan Rozumny, Artem LunyovЖанр: Adventure, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D5A98E44D624625B849E169CC22C44DD93C230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009493   (809208) от 21.04.2016
-
-Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) License SKIDROW
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rambo The Video Game: Baker Team – шутер от первого лица, созданный на основе классических фильмов, где главную роль играет знаменитый солдат Джон Рэмбо. Вместе с ним вам предстоит пройти 16 миссий, истребить множество врагов, используя 15 типов различного оружия. Основная часть геймплея выполнена в виде рельсового шутера, где передвижение героя происходит автоматически, (   Читать дальше...   )Тип издания: LicenseРазработчик: TeyonЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0593A3D266F5274EED2C6427A54DDED185F84AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119227   (808861) от 27.03.2017
-
-Shadow Warrior 2 (2016) [Ru/Multi] (1.1.10.0/dlc) License SKIDROW [Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Warrior 2, продолжение неординарного шутера от студии Flying Wild Hog, рассказывает о новых злоключениях бывшего корпоративного сёгуна Ло Вана. Превратившись в наемника-одиночку, великий воин борется за жизнь в насквозь прогнившем мире: теперь он должен сокрушить легионы демонов, заполонивших планету, в чем ему поможет огромный арсенал пистолетов, мечей, магических (   Читать дальше...   )Тип издания: LicenseРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50407754E337E4BC02E3C549C24AFB37847BC080
 ```
 
 https://mybot314.ru/tekegram_catalog/

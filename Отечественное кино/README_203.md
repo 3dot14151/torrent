@@ -1,3 +1,107 @@
+###  Публикация: 1602965   (204338) от 07.01.2023
+
+Дорога к дому (2022) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Отец Александр — священник в провинциальной церкви. За годы служения он буквально крестил весь город, но своих детей им с матушкой Надеждой Бог не дал. Однажды к батюшке за советом обращается юная девушка по имени Анастасия: обида съедает её изнутри и не даёт жить спокойно. Встреча с несчастной не выходит у Александра из головы, и он ищет её, чтобы помочь. Вот только (   Читать дальше...   )Производство: Россия / Концертно продюсерский центр ВойтенкоЖанр: Драма, детективРежиссер: Иван ШерстниковАктеры: Егор Бероев, Ксения Алфёрова, Алёна Азарова, Виктор Граков, Ольга Приходько, Борис Талах, Оксана Зиренко, Татьяна Сытова, Нина Станиславская, Наталия Клочкова, Вячеслав Землянной, Анастасия КувшиноваСубтитры: отсутствуютПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFAC0D6CD0E210CB19426790E6644CA6A73CCC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603266   (204330) от 08.01.2023
+
+Тёмный мир (2010) BDRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Группа студентов отправляется в экспедицию по глухим северным деревням. В одной из них главная героиня – девушка, увлеченная мистикой и романтикой загробного мира – находит древний могильник, а в нем – магический щит. Дотронувшись до щита, она пробуждает гнев духов прошлого и приобретает сверхчеловеческие способности. Теперь студентам придется вступить в противостояние (   Читать дальше...   )Производство: Россия / Централ ПартнершипЖанр: фэнтези, триллерРежиссер: Антон МегердичевАктеры: Светлана Иванова, Иван Жидков, Елена Панова, Сергей Угрюмов, Владимир Носик, Илья Алексеев, Мария Кожевникова, Ксения Радченко, Захар Хунгуреев, Татьяна КузнецоваСубтитры: ОтсутствуютПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB91D531BC1F8962E177C8E21D2C72F6F103D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603504   (204255) от 09.01.2023
+
+Непослушник (2022) IPTV [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Известный блогер-пранкер Дима в погоне за популярностью в сети устраивает жесткие розыгрыши. Один из пранков он снимает в стенах церкви, где служит его друг детства. Ролик провоцирует возмущение в среде верующих и на Диму заводят дело. Уходя от преследования полиции, Дима укрывается в месте, где его точно не будут искать — в маленьком провинциальном монастыре, (   Читать дальше...   )Производство: Россия / Мего ДистрибьюшнЖанр: КомедияРежиссер: Владимир КоттАктеры: Виктор Хориняк, Таисия Вилкова, Аглая Тарасова, Татьяна Орлова, Юрий Кузнецов, Максим Лагашкин, Антон Ескин, Сергей Селин, Александр Синюков, Олег КаменщиковСубтитры: русскиеПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC3F6156DDDB002026554E9689A62BE89771F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603408   (204182) от 11.01.2023
+
+Утомленные солнцем 2: Предстояние (2010) BDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение картины 1994 года. Героям первого фильма придется пройти сквозь пекло Великой Отечественной войны, чтобы найти друг друга и попытаться вновь стать счастливыми. Бывший комдив Котов, несправедливо осуждённый в 30-е годы как враг народа, чудом выжил и был отправлен на войну обычным рядовым бойцом штрафного батальона. Воевал, как все: в грязи, холоде и голоде, (   Читать дальше...   )Производство: Россия, Prague International Films, Студия ТритэЖанр: драма, военныйРежиссер: Никита МихалковАктеры: Никита Михалков, Олег Меньшиков, Надежда Михалкова, Сергей Маковецкий, Дмитрий Дюжев, Артур Смольянинов, Андрей Мерзликин, Максим Суханов, Евгений МироновПродолжительность: 03:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA764B5E5F4984B70F232922E0BA3C773836EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603605   (204168) от 11.01.2023
 
 Однажды в пустыне (2022) WEB-DL [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +240,7 @@ New Graceland (2021) WEB-DL [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:903ADC1BC40575714B8AA088F2BAB2A4C83702CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138736   (201996) от 27.08.2023
-
-Непобедимый (2008) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Егор Кремнёв — специальный агент российской разведки. В последнее время его преследуют неудачи: провал боевой операции в Колумбии, где Кремнёв руководил группой захвата, унёс жизни всех его товарищей. Кремнёва обвиняют в этой трагедии. Его лишают командирских полномочий. Теперь он — рядовой агент наблюдения.
-Но похоже на этом его беды не закончились. Во время последнего (   Читать дальше...   )Производство: РоссияЖанр: Боевик, ПриключенияРежиссер: Олег ПогодинАктеры: Владимир Епифанцев, Юрий Соломин, Гарри Борд, Вольфганг Раач, Кит Мале, Владимир Турчинский, Сергей Астахов, Владимир Стеклов, Джон-Себастьен Коут, Ольга ФадееваПродолжительность: 01:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91261BE178134CD3B5FDD73E98422E4B99915CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616356   (201979) от 02.03.2023
-
-Профиль / Profile (2018) WEBRip [H.264/1080p] (Локализованная версия)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская журналистка, работающая под прикрытием, внедряется в систему пропаганды «Исламского государства», которое привлекает в свои ряды все больше молодых европейских женщин. Ежедневные контакты с вербовщиками террористов затягивают ее.Производство: Россия, США, Великобритания, Кипр / Bazelevs Entertainment, TABBAKЖанр: триллер, детективРежиссер: Тимур БекмамбетовАктеры: Валин Кэйн, Шазад Латиф, Кристин Адамс, Амир Рахимзаде, Морган Уоткинс, Эмма Катер, Кейт Уотсон, Келли Мак, Шерин Чалли, Элоиз ТомасПеревод: Дублированный (Пифагор)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF2050ED79B3E2DBC00BDF6A0BF48C9A7784E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829651   (201946) от 25.10.2025
-
-Золотая кровь. Пигмалион (2025) WEBRip [H.264] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убита реставратор Анастасия Мишина. При жизни Анастасия искала новые формы самовыражения в искусстве, а после смерти по воле своего убийцы сама стала произведением искусства. Что двигало сумасшедшим художником? Желание создать шедевр или вполне обычные мотивы вроде ревности или жажды наживы? Пытаясь ответить на эти вопросы, следователь СК Ксения Субботина обращается (   Читать дальше...   )Производство: Россия | Приор ПродакшнЖанр: Детектив, мелодрамаРежиссер: Владимир КойфманАктеры: Антонина Дивина, Илья Бледный, Татьяна Догилева, Дмитрий Мазуров, Максим Щёголев, Родион Галюченко, Максим Метельников, Дарья Храмцова, Денис Яковлев, Кристина Юдичева, Николай Яковлев и др.Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF358117459632C4E73E54B14048A9B293FD6DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829710   (201881) от 25.10.2025
-
-Золотая кровь. Взгляд в бездну (2025) WEBRip [H.264] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201881.jpg" />
-</div>
-
-
-###  Подробнее
-
-В заброшенном здании находят труп повешенного мужчины – бизнесмена и мецената Дмитрия Анисимова, который занимался выкупом и восстановлением объектов культурного наследия. Всё выглядит как банальное самоубийство – труп висит в петле, есть прощальное СМС. Но Светлана знакома с Анисимовым и уверена, что тот не мог свести счёты с жизнью – у него были планы по восстановлению (   Читать дальше...   )Производство: Россия | Приор ПродакшнЖанр: Детектив, мелодрамаРежиссер: Владимир КойфманАктеры: Антонина Дивина, Максим Щёголев, Илья Бледный, Татьяна Догилева, Родион Галюченко, Ян Ильвес, Дарья Храмцова, Дмитрий Мазуров и др.Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C071BB4D0AE3EB2688F6B3D9654CAEE41AF9FE8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

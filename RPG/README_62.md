@@ -1,3 +1,81 @@
+###  Публикация: 1755567   (40249) от 16.10.2024
+
+Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack dixen18
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Starfield открывает новую главу в игровой вселенной после четвертьвекового перерыва. Компания Bethesda, известная такими выдающимися проектами, как The Elder Scrolls V: Skyrim и Fallout 4, предлагает познакомиться с обширной ролевой игрой нового поколения, действие которой разворачивается в космических просторах. В 2330 году человечество выходит далеко за пределы (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Adventure, Action, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A512ADF4E8AD69C9FA489373924C114A1E542445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755573   (40248) от 16.10.2024
+
+Drova - Forsaken Kin (2024) [Multi] (1.0.1) Scene SKIDROW
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохновленное мрачными классиками жанра и мистическим очарованием кельтской мифологии. Погрузитесь в тщательно проработанный открытый мир, где ваши выборы и действия формируют окружение. Общество обнаружило силу мертвой империи: способность захватывать духов, управляющих природой, и править ими. Однако гнев оставшихся (   Читать дальше...   )Тип издания: SceneРазработчик: Just2DЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB16FC2E37F0CA1500C758F3F7AAF8D65CF95F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756124   (39913) от 19.10.2024
+
+Metaphor: ReFantazio (2024) [Ru/Multi] (1.02) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Талантливая команда, создавшая Persona 3, 4 и 5, представляет Metaphor: ReFantazio - фэнтезийный мир, где ваш герой в компании феи Галлики отправляется на поиски пропавшего принца в надежде снять с него проклятие. Выберите свою судьбу, взгляните в лицо страхам и пробудите магические силы архетипа, дремлющие в вашем сердце. Пробуждая архетипы, вы получите возможность (   Читать дальше...   )Тип издания: RepackРазработчик: ATLUSЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A6D8E89C5E3D1D29F257F7E154CA206511D9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756247   (39810) от 20.10.2024
 
 DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack Pioneer
@@ -6,7 +84,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.2.3161) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.60.0.67142/dlc) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) License GOG [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.01) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.0973) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) Repack Wante
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Chrono Ark (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Atlas Fallen: Reign Of Sand (2023) [Ru/Multi] (1.119040/dlc) Repack LetsPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50E5CFA059C104785EACF7CCC8FA3A8134CAC7D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452262   (37731) от 10.11.2024
-
-The Life and Suffering of Sir Brante (2021) [Ru/En] (1.05.1) License GOG [Digital Content Bundle]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37731.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Life and Suffering of Sir Brante – это нарративная ролевая игра на страницах дневника главного героя. Вас ждет история о безжалостном мире, жестоко карающем за нарушение его законов, и о человеке, бросившем ему вызов. Пройдите путь героя от рождения до самой смерти и создайте личность, способную изменить свою судьбу, правда, заплатив за это надлежащую цену.Тип издания: LicenseРазработчик: SeverЖанр: Ролевая игра, Симулятор, ДрaмаЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD509499F53F839A47E7644CD75F44C9B33A1568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759761   (37692) от 10.11.2024
-
-MasterQuest Fantasy (2024) [En] (1.0.5b) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37692.jpg" />
-</div>
-
-
-###  Подробнее
-
-MasterQuest Fantasy - это увлекательная ролевая игра, которая погружает игроков в атмосферу классических настольных RPG, созданных в 1970-х и 1980-х годах. Игра воссоздает ностальгическое очарование тех времён, позволяя игрокам окунуться в фантастический мир, где царит воображение и в любой момент может произойти что-то неожиданное. Благодаря процедурно сгенерированному (   Читать дальше...   )Тип издания: SceneРазработчик: RubilaxeЖанр: Инди, Ролевые игрыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF220DCDE6BC33D3E9328CD02E2DD973BD4E0E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759751   (37672) от 10.11.2024
-
-Dungeon Defenders (2011) [Multi] (9.6.1/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dungeon Defenders – интересная игра, которая сочетает в себе огромное количество разнообразных жанров: экшен, стратегия, ролка, РПГ. Данная игра изначально рассчитана на многопользовательское подключение. Перед самым началом, нам предстоит выбрать наиболее интересный класс персонажа, его стиль экипировки и цвет магического кристала. Этот предмет является самым жизненно (   Читать дальше...   )Тип издания: SceneРазработчик: Chromatic GamesЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB40849807117F3AEA8622AA96AE96CC150DB79
 ```
 
 https://mybot314.ru/tekegram_catalog/

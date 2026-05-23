@@ -1,3 +1,56 @@
+###  Публикация: 913267   (606727) от 28.06.2015
+
+Supernatural | Supernatural The Anime Series | Supernatural the Animation | Сверхъестественное [2011, OVA, 22 эп.] BDRip 1080p Hi10P raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о двух братьях Винчестерах: Сэме и Дине , которые путешествуют по стране в поисках своего пропавшего отца. Основными их развлечениями, по мере развития сюжета сериала, является истреблении всякой-разной нечисти на своем пути.
+В основе лежит телесериал Сверхъестественное (2005)Производство: Madhouse StudiosЖанр: триллер, мистикаРежиссер: Мия СигэюкиПеревод: YakuSub Studio (1-4);Язык субтитров: Русский, Английский, КитайскийФормат: BDRipПродолжительность: 22 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539AF7C087EC7C81077E25A003FBF72CAB5F987C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297043   (606669) от 20.04.2019
+
+Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] BDRip 1080p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сегодня семимильными шагами развивается роботостроение. И хоть сейчас для нас роботы пока что являются чудом и редкостью, но возможно, что уже через 50 лет они так плотно войдут в нашу жизнь, что мы уже не будем представлять, как жили без них. Но через 50 лет мы будем уже старенькими, поэтому будущее хочется приблизить уже сейчас. Правда, стоит отдавать себе отчёт, (   Читать дальше...   )Производство: 8bitЖанр: приключения, меха, фэнтезиРежиссер: Ямамото ЮсукэСубтитры: РусскиеПродолжительность: 13 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2A7D4AD6FAA05F8E98880CDE8F4AAB5CE794BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297002   (606452) от 20.04.2019
 
 Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2017, TV, 10 эп. + OVA] BDRip 1080p Raw
@@ -6,7 +59,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Gokushufudou | The Way of the Househusband | Путь домохозяина [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ Enen no Shouboutai | Fire Force | Пламенный отряд [2019, TV, 24 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ Enen no Shouboutai Ni no Shou | Fire Force (2020) | Пламенный отря�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ Slayers | Рубаки [1995, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью: Су�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +215,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +241,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +267,7 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatte Iru | Beautiful Bones: Sakurako`
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +293,7 @@ Natsuyuki Rendezvous / Рандеву под летним снегом (2012, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +320,7 @@ Etotama | Etotama: Eto Tamashii | Этотама [2015, TV, 12 + 6sp] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +346,7 @@ Gyakuten Sekai no Denchi Shoujo | Rumble Garanndoll | Батарейка из о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +372,7 @@ Gun x Sword / Огнём и мечом [2005, TV, 26 эп.] BDRip 1080p Raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +400,7 @@ Blend S | Садистская смесь [2017, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +426,7 @@ Darker Than Black: Kuro no Keiyakusha / Darker Than Black / Темнее чер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +452,7 @@ Angel Beats! / Ангельские ритмы! [2010, TV, 13ep + 3sp] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +478,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Маг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +504,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 эп. + 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +530,7 @@ Gekijouban Fate/Kaleid Liner Prisma Illya Licht: Namae no Nai Shoujo | Судь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +556,7 @@ Sword Art Online II| Мастера меча онлайн 2 [2014, TV, 25 эп. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +582,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu Omega | How Not to Summon a Demon
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +608,7 @@ Higurashi no Naku Koro ni: Sotsu | Higurashi: When They Cry - Sotsu | Когда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +634,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +660,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi | Ателье Эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,58 +671,6 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi | Ателье Эс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB66390CF30322869BCBD85F8D4C2E379093CA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857704   (585097) от 06.08.2016
-
-Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 14 эп. + 7 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэйя Каниэ в детстве был знаменитым актером, но потом пережил трагедию и спрятался в образе законченного нарцисса и эгоиста. Красавца-отличника ничто не волнует, хотя… можно и послушать, когда тихая одноклассница Исудзу Сэнто сует тебе в лоб неясно откуда взявшийся старинный мушкет. Так Сэйя узнал о парке развлечений Амаги, оказавшимся анклавом волшебной Кленовой (   Читать дальше...   )Производство: Студии Kyoto Animation и Animation DoЖанр: комедия, фэнтезиРежиссер: Такэмото ЯсухироПеревод: Sa4ko aka Kiyoso ft. Zenobian (01-14 + 7 SP)Язык субтитров: русскийПродолжительность: 14 серий по 24 минуты + 7 спешиалов по 4 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D9809B27BE738D4701ACA277CEE589AD638104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918788   (584662) от 17.07.2015
-
-Saint Seiya: Legend of Sanctuary | Рыцари Зодиака (фильм шестой) [2014, MV] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Кидо Саори, с рождения обладающая мистической силой, в день своего шестнадцатилетия узнает, что является воплощением богини Афины. С этого момента ее жизнь наполняется невероятными событиями. Загадочное Святилище под управлением Святого отца отправляет подручных, дабы те избавились от самозванки, что выдает себя за Афину. Но на помощь Саори приходят юные (   Читать дальше...   )Производство: Toei AnimationЖанр: приключения, фэнтезиРежиссер: Сато КэйитиПеревод: Anku & mutagenbЯзык субтитров: Русский (отключаемый)Формат: mkvПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67ED0D57F7FE61F691E6AEBAA4C968A7C29CC682
 ```
 
 https://mybot314.ru/tekegram_catalog/

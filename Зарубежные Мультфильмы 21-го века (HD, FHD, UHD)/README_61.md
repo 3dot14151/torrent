@@ -1,3 +1,84 @@
+###  Публикация: 817463   (545771) от 30.08.2014
+
+За тридевять земель / Resan till Fjaderkungens Rike (2013) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В поисках своей мамы Йохан попадает в далекое Царство Короля Перьев, откуда нет дороги назад. От судьбы не уйдешь:
+теперь он должен сам позаботиться о спасении не только своей мамы, но и всего королевства.
+Но разве можно понимать все тонкости жизни и играть по ее правилам, когда ты еще так молод?Производство: Дания, Швеция | Copenhagen Bombay, Film i VastЖанр: Мультфильм, ФэнтезиРежиссер: Эсбен Тофт ЯкобсенАктеры: Эдвин Ридинг, Тува Новотны, Густаф Хаммарстен, Леннарт Якель, Сиселла Кайл, Лейф Андре,
+Сёс Эгелинд, Ларс Бригманн, Флемминг Квист МюллерПеревод: Дублированный (Лицензия)Продолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5240C19B5205F957AA9CF79E5D3695CCFF8A595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694526   (545531) от 30.08.2013
+
+Лига Cправедливости: Парадокс источника конфликта / Justice League: The Flashpoint Paradox (2013) WEB-DL [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Миллионы людей в нашем мире ссорятся по тем или иным причинам. Кто-то умеет мирно разрешать конфликты, кто-то же привык решать все проблемы «на кулаках». Но мало кто верит в существование истинной справедливости, однако команда супергероев всегда готова подтвердить, что справедливость все же существует. Отважные спасатели бросаются на помощь к тем, кто пострадал (   Читать дальше...   )Жанр: Мультфильм, Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джей ОливаПерсонажи: Майкл Б. Джордан, Нэйтан Филлион, Кэри Элвис, Рон Перлман, Кевин МакКидд, Си Томас Хауэлл, Дана Дилэйни, Джастин Чэмберс, Дэнни Хьюстон, Кевин КонройПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDFBC8FAA0085941DA5DD632CE8078DC5FBD188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817721   (544843) от 31.08.2014
+
+Рождественская история / A Christmas Carol (2009) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это викторианская поучительная история о старом и ожесточившемся скупердяе Эбенезере Скрудже, который в течение одной ночи переживает испытание глубокого очищения. Мистер Скрудж - финансист/денежный меняла, который посвятил всю свою жизнь накоплению богатства. Он презирает всё, кроме денег, включая дружбу, любовь и рождественские праздники.Жанр: Фэнтези, Семейный, МультфильмРежиссер: Роберт ЗемекисАктеры: Джим Керри, Стив Валентайн, Дэрил Сабара, Сэйдж Райан, Эмбер Гейни Миде, Райан Очоа, Бобби Пейдж, Рон Боттитта, Сэмми Ханратти, Джулиан ХоллоуэйПеревод: Профессиональный (дублированный)Язык субтитров: Русский x2, Украинский x2, Английский x2Продолжительность: 01:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB1EF10A9D229D67FE53FB9AA4303E5D9160035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817813   (543998) от 01.09.2014
 
 Как приручить дракона 2 / How to Train Your Dragon 2 (2014) WEB-DL [H.264/720p-LQ]
@@ -6,7 +87,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +217,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRemux [H.264/1080p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +243,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264/720p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE55C9D320DA5CEA0E15BB26272EE3821B65875D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533676   (530142) от 11.08.2012
-
-Пираты! Банда неудачников / The Pirates! Band of Misfits (2012) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация первой книги из серии романов писателя Гидеона Дефо, рассказывающих о банде незадачливых пиратов. В первой части пираты прибывают в Лондон, где знакомятся с молодым Чарльзом Дарвином и говорящим шимпанзе по имени Мистер Бобо, а также столкнутся с врагами, которые хотят их уничтожить.Жанр: Мультфильм, Комедия, Приключения, СемейныйАктеры: Хью Грант, Брендан Глисон, Джереми Пивен, Брайан Блессид, Ленни Генри, Сальма Хайек, Коннор Бирн, Мартин Фриман, Эшли Дженсен, Питер ЛордПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9678DF1214C5AFB37FC5C57A97498FAA3D3B6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156260   (528328) от 06.08.2017
-
-Гадкий Я / Despicable Me (2010) BDRip [H.265/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться.Производство: США, ФранцияЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Пьер Коффан, Крис РеноПерсонажи: Стив Карелл, Джейсон Сигел , Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер КоффанПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA190F76D3E4643631C707F8627A097CB88D2F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156749   (526252) от 09.08.2017
-
-Гадкий Я 2 / Despicable Me 2 (2013) BDRip [H.265/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526252.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как Грю, бывший суперзлодей, приспосабливается к семейной жизни и пытается честным трудом зарабатывать в сфере бизнеса, тайные лаборатории Арктики оказываются украденными. Анти-Злодейская лига решает, что она нуждается в помощи Грю и его новобранцев в расследовании.Производство: СШАЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Пьер Коффан, Крис РеноПерсонажи: Стив Карелл, Кристен Уиг, Бенджамин Брэтт, Миранда Косгров, Расселл Брэнд, Кен Жонг, Стив Куган, Элси Фишер, Дэна Гайер, Мойзес АриасПеревод: Дублированный, многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAE089D5ACB2B217C4F33F03763EF2C4433867D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1618760   (3401) от 11.09.2025
+
+Лиза Марклунд | Сборник произведений [11 книг] (2014-2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лиза Марклунд / Eva Elisabeth "Liza" Marklund ( родилась 9 сентября 1962 года) — шведская писательница и автор детективных романов.Писательскую карьеру начала в 1995 году. С этого момента написала два десятка криминальных романов, 2 документальных в соавторстве с Марией Эрикссон и одной работы в жанре «нон-фикшн» с Лоттой Сникер.
+Большинство её книг, объединённые (   Читать дальше...   )Жанр: ДетективИздательство: Центрполиграф, ИД «Городец»Формат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CFCF5B49593C333712151E74AB65F78FDB198D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809698   (3062) от 13.09.2025
 
 Джо Аберкромби | Собрание произведений [32 книги] (2008-2025) [FB2] [Обновляемая]
@@ -6,7 +33,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

@@ -1,3 +1,159 @@
+###  Публикация: 1758330   (38546) от 02.11.2024
+
+Дверь в подвал / Cellar Door (2024) WEB-DLRip [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Стремясь начать жизнь с чистого листа после выкидыша, супружеская пара получает в подарок дом своей мечты с одной оговоркой - ни при каких обстоятельствах нельзя открывать дверь подвала.Производство: США / Culmination Productions, Practical Pictures, Cosmic Arena ProductionsЖанр: триллерРежиссер: Вон СтайнАктеры: Скотт Спидман, Джордана Брюстер, Лоренс Фишбёрн, Кэти О’Грэйди, Крис Коннер, Рэнди Шульман, Jenny Tien, Zach Feiner, Naiya Amilcar, Jesaar LandavasoПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:29Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813D83FD6AC620376F415C564EA5348A3C70F9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758350   (38527) от 02.11.2024
+
+Свобода / Libre / Freedom (2024) WEB-DLRip [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленная реальными событиями история Бруно Сулака, настоящего Арсена Люпена 20-го века.Производство: Франция / Pitchipoï ProductionsЖанр: боевик, триллер, мелодрама, биографияРежиссер: Мелани ЛоранАктеры: Лукас Браво, Мелани Лоран, Иван Атталь, Радивойе Буквич, Давид Айала, Слиман Дази, Jesse Guttridge, Léa Luce Busato, Simon Royer, Стив ТьеншоПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:20Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C1684061C69A39DDD4DAB53D5B7817A422B909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758342   (38524) от 02.11.2024
+
+Тёмная страна / Morkeland / Kingmaker (2024) WEB-DLRip [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ульрик Торп когда-то был бесстрашным журналистом-следователем, а сейчас страдает от кризиса среднего возраста и не может найти работу. Он оказывается втянут в новый политический заговор.Производство: Дания, Швеция / Meta Film, Meta Film Stockholm, Film i VästЖанр: триллер,  драмаРежиссер: Миккел СерупАктеры: Андерс В. Бертельсен, Сара Фанта Траоре, Mohamed Djeziri, Jan Tjerrild, Томас Гулдберг Мадсен, Cecilie Beck, Лене Мария Кристенсен, Шарлотта Мунк, Patrick A. Hansen, Mathilde Arcel F.Перевод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:10Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A504E45424C5CA5DA195D5254F21F2958DAC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758348   (38522) от 02.11.2024
+
+Свобода / Libre / Freedom (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленная реальными событиями история Бруно Сулака, настоящего Арсена Люпена 20-го века.Производство: Франция / Pitchipoï ProductionsЖанр: боевик, триллер, мелодрама, биографияРежиссер: Мелани ЛоранАктеры: Лукас Браво, Мелани Лоран, Иван Атталь, Радивойе Буквич, Давид Айала, Слиман Дази, Jesse Guttridge, Léa Luce Busato, Simon Royer, Стив ТьеншоПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:20Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F844C7C9021B631A9F6DDDA7AAC6F40C18674F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752504   (38518) от 02.11.2024
+
+Последствия. Мост в огне / Aftermath (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вернувшийся с войны ветеран, страдающий посттравматическим стрессовым расстройством, вместе со своей сестрой-подростком оказывается в ловушке на бостонском Мемориальном мосту Тобина, когда группа бывших военных-революционеров, оснащенная мощным оружием, берет всех в заложники.Производство: США / Voltage PicturesЖанр: боевик, триллерРежиссер: Патрик ЛюссьеАктеры: Ник Апостолидес, Джефф Боффар, Томас Броган, Кевин Чэпмен, Джошуа Вулф Коулмен, Mark Dancewicz, Jared Frenke, Хайди Гарза, Мэйсон Гудинг, Bhanu GopalПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:19Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C40CCB6BE33DFDC6062CC936D6B8F18024A7AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758341   (38517) от 02.11.2024
+
+Тёмная страна / Morkeland / Kingmaker (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ульрик Торп когда-то был бесстрашным журналистом-следователем, а сейчас страдает от кризиса среднего возраста и не может найти работу. Он оказывается втянут в новый политический заговор.Производство: Дания, Швеция / Meta Film, Meta Film Stockholm, Film i VästЖанр: триллер,  драмаРежиссер: Миккел СерупАктеры: Андерс В. Бертельсен, Сара Фанта Траоре, Mohamed Djeziri, Jan Tjerrild, Томас Гулдберг Мадсен, Cecilie Beck, Лене Мария Кристенсен, Шарлотта Мунк, Patrick A. Hansen, Mathilde Arcel F.Перевод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:10Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83AD68FAEC187FC8C497F6BFD1D1A082AA18B9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758334   (38516) от 02.11.2024
 
 Мужчина и ведьма / Man & Witch / Man and Witch: The Dance of a Thousand Steps (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
@@ -6,7 +162,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -513,162 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFA7DD2B487E6FD3E7695EB04AC147CA9D5A504C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761338   (36824) от 19.11.2024
-
-Внезапное рождество / Рождество не по плану / A Sudden Case of Christmas (2024) WEBRip [DVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская пара, Сара и Майкл, решают рассказать своей 10-летней дочери Софи о своём разводе и отправляются для этого в Италию, в гостиницу, которой управляет дедушка Софи. В этом красивом, но спокойном месте они планируют объяснить ей, что их семья изменится. Но, увидев печаль в глазах родителей, Софи придумывает способ их объединить. Она просит их устроить одно (   Читать дальше...   )Производство: США / Notorious Pictures, Riverstone PicturesЖанр: комедия, семейныйРежиссер: Питер ЧелсомАктеры: Дэнни ДеВито, Антонелла Роуз, Люси ДеВито, Энди Макдауэлл, Хосе Суньига, Уилмер Вальдеррама, Валерия Кавалли, Эдриан Данбар, Luca Bagnoli, Treyston Braine и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:27Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7458A2AE2648999E5AA482B6E9F5863495DCC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761918   (36402) от 23.11.2024
-
-Пимпинеро: Кровь и бензин / Pimpinero: Sangre y Gasolina / Pimpinero: Blood and Oil (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36402.jpg" />
-</div>
-
-
-###  Подробнее
-
-В коварной пустыне на границе Колумбии и Венесуэлы контрабандисты бензина, которых называют "пимпинерос", рискуют жизнью, нелегально перевозя топливо ради лёгкой наживы.Производство: Колумбия / DynamoЖанр: боевик, драма, приключенияРежиссер: Андрес БайсАктеры: Давид Норенья, Emilia Ceballos, Luis Eduardo Durán Galindo, Junior González, Альберто Герра, Хуанес, Юль Нуньес, Laura Osma, Norberto Rivera, Judith SeguraПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:03:01Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7582DF8EF04FD2324C544805C2B88311CA7D4216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761915   (36385) от 23.11.2024
-
-Джой: Маленькое чудо / Joy (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драма на основе реальных событий повествует о трех британских ученых-первопроходцах, которые в 60-е и 70-е годы боролись за разработку метода ЭКО.Производство: Великобритания / Pathe UK, Wildgaze FilmsЖанр: драма, биография, историяРежиссер: Бен ТэйлорАктеры: Джеймс Беркери, Элла Брукколери, Сесили Клив, Оуэн Даффи, Мариам Хак, Майкл Кеог, Оливер Ллевелин Дженкинс, Томасин Маккензи, Дагги Макмикин, Abbiegail MillsПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:53Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2D8EFBE5DF449987A351475AD4FB7AC0630D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760404   (36383) от 23.11.2024
-
-Уроки фортепиано / The Piano Lesson (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о жизни семьи Чарльзов, обсуждая темы семейного наследия и многое другое, решая, что делать с семейной реликвией - пианино.Производство: США / Mundy Lane Entertainment, Netflix StudiosЖанр: драма, музыкаРежиссер: Малкольм ВашингтонАктеры: Сэмюэл Л. Джексон, Джон Дэвид Вашингтон, Даниэль Дедуайлер, Рэй Фишер, Кори Хокинс, Майкл Поттс, Skylar Smith, Стефан Джеймс, Эрика Баду, Malik J AliПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:08:06Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB71777E614E10130155439730B60087752DA339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760405   (36379) от 23.11.2024
-
-Уроки фортепиано / The Piano Lesson (2024) WEB-DLRip [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о жизни семьи Чарльзов, обсуждая темы семейного наследия и многое другое, решая, что делать с семейной реликвией - пианино.Производство: США / Mundy Lane Entertainment, Netflix StudiosЖанр: драма, музыкаРежиссер: Малкольм ВашингтонАктеры: Сэмюэл Л. Джексон, Джон Дэвид Вашингтон, Даниэль Дедуайлер, Рэй Фишер, Кори Хокинс, Майкл Поттс, Skylar Smith, Стефан Джеймс, Эрика Баду, Malik J AliПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:08:06Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B50E44CAE9D414B2A1C03EC0BE4DC85981D869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761919   (36349) от 23.11.2024
-
-Пимпинеро: Кровь и бензин / Pimpinero: Sangre y Gasolina / Pimpinero: Blood and Oil (2024) WEB-DLRip [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36349.jpg" />
-</div>
-
-
-###  Подробнее
-
-В коварной пустыне на границе Колумбии и Венесуэлы контрабандисты бензина, которых называют "пимпинерос", рискуют жизнью, нелегально перевозя топливо ради лёгкой наживы.Производство: Колумбия / DynamoЖанр: боевик, драма, приключенияРежиссер: Андрес БайсАктеры: Давид Норенья, Emilia Ceballos, Luis Eduardo Durán Galindo, Junior González, Альберто Герра, Хуанес, Юль Нуньес, Laura Osma, Norberto Rivera, Judith SeguraПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:03:01Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE91F23FE8420BD1F0AF88EE790481F4DD7DD9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

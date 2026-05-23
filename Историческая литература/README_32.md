@@ -1,3 +1,86 @@
+###  Публикация: 1214135   (765803) от 20.03.2018
+
+Л.Б. Каменев | Между двумя революциями. Сборник статей (1923) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник статей, написанных на перевале от первой ко второй российской революции, имеет своей целью напоминание, обращенное одновременно и к друзьям, и к врагам и нашей партии.
+Врагам нашей партии следует всячески напоминать, что партия большевиков родилась не в октябре, не в июле и даже не в марте 1917 года, а лет за 15 до этого. Только величайшее невежество (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B09CC3743276F0BC5C733EFCD4A0D96FB0E6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214134   (765777) от 20.03.2018
+
+Как выбирать крестьянам членов в Государственную Думу (1907) [DjVu]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Агитационно-пропагандистская брошюра от партии "Союз 17 октября".
+
+"Союз 17 октября" («Октябристы») — умеренно правая политическая партия крупных землевладельцев, предпринимательских кругов и чиновников России, существовавшая в 1905—1917 годах. Партия представляла правое крыло российского либерализма, придерживавшееся умеренно-конституционных (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B4163A43CFDD874350B964E4E45D365F0E328F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214140   (765773) от 20.03.2018
+
+М.Н. Катков | О самодержавии и конституции (1905) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Катков Михаил Никифорович (6 (18) ноября 1817, Москва – 20 июля (1 августа) 1887 с. Знаменское Подольского уезда Московской губ.) - правовед, журналист и публицист. Из дворян. В своих политических публикациях придерживался позиции умеренного дворянского либерализма.
+
+Государство всегда было для Каткова на первом месте. Но государство понималось не как территория (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1DFC6D38D4B4D118DEF02E186374CC47471826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214143   (765771) от 20.03.2018
 
 С. А. Клепиков | Сельское хозяйство России в цифрах. Атлас диаграмм и картограмм (1924) [DJVU]
@@ -6,7 +89,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -277,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,85 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E325707DC1FFF015D2C62F578F09BB5D5467A611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214323   (764870) от 21.03.2018
-
-Портреты, гербы и печати Большой Государственной книги 1672 г (1903) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширение дипломатических отношений России с соседними странами в XVII веке послужило стимулом для изучения титулов и гербов иностранных государей. В 1672 г. по приказу царя Алексея Михайловича была составлена «Большая государственная книга, или Корень российских государей», получившая также второе название «Царский титулярник». Работа по составлению рукописи была (   Читать дальше...   )Жанр: История Отечества, альбом портретов, геральдикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC9C493B22C85C422B210D81540C10C2CFA0FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214157   (764868) от 21.03.2018
-
-Карманный почтовый атлас всей Российской империи, разделенной на губернии, с показанием главных почтовых дорог (1808) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764868.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце XVIII столетия кардинальным образом было реорганизовано картографическое дело в Российской империи, положившее начало независимой военно-топографической службе.
-Через малое время после вступления на престол Император Павел I обратил особое внимание на малое количество в России хороших карт. По его указу от 13 ноября 1796 года все карты Генерального штаба (   Читать дальше...   )Жанр: История ОтечестваФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722DF3053673A08AEB48694E7CC19EF82D6D77EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214270   (764864) от 21.03.2018
-
-Г. Майерс | История американских миллиардеров [Том 1] (1924) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для удобства ориентировки в книге Майерса необходимо сказать несколько слов о процессе заселения и колонизации Северной Америки. В этом заселении принимали участие англичане, голландцы, шведы, французы и испанцы. Поселения голландцев и шведов (Новые Нидерланды и Новая Швеция) вскоре стали английскими владениями. Английская колонизация была всецело делом частной инициативы. (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DC224DD05B8D8D1E257B0A792EEA42B04E2174
 ```
 
 https://mybot314.ru/tekegram_catalog/

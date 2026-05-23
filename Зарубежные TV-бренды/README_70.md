@@ -1,3 +1,55 @@
+###  Публикация: 1305445   (556399) от 31.05.2019
+
+NG: Человечество из космоса / Mankind from Space (2015) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что человечество из космоса. Мы сейчас живем в поразительно сложном, взаимосвязанном мире. Он сформирован уникальными новшествами, введенными за тысячи лет. Изобретения помогли нам образовать запутанные паутины сетей, подарив успешную жизнь. Сейчас уже можно проследить незримые связи, соединяющие нас. Это история того, как наша изобретательность создала (   Читать дальше...   )Производство: Канада, Великобритания, Handel Productions Inc., Darlow Smithson Productions Ltd., PBSЖанр: Документальный, история, социология, наукаРежиссер: Дункан КоппПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B35344124DE71A2DBD692117FCA66A7396A550E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305570   (556355) от 31.05.2019
+
+Правила взлома (2016) WEBRip [H.264/720p-LQ] (серии 1-9 из 9)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта программа - набор научных советов, в простонародье - лайфхаков. Наша главная задача - объяснить принцип их работы. Так, чтобы каждый зритель не просто получил совет, но и узнал что-то новое о привычных вещах, которые окружают нас в повседневной жизни. Мы не только покажем полезные практичные советы на все случаи жизни, но и объясним, как они работают. В законах (   Читать дальше...   )Производство: Россия, ООО «Телеиндустрия», ОАО «Наука»Жанр: Документальный, познавательный, исследованияРежиссер: Сергей АнтоновЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 9 х ~00:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FC4A796E955D5AB413FB611CC39223F750C47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236118   (556241) от 15.07.2018
 
 NGW: 72 самых опасных животных Австралии / 72 Dangerous Animals Australia (2014) IPTVRip (Серии 1-4 из 4)
@@ -6,7 +58,7 @@ NGW: 72 самых опасных животных Австралии / 72 Dange
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG: Научные глупости / Science of stupid (2013) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG: Разгадка египетских тайн. Подлинный Рамз�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ NG: Взлом Системы / Hacking the System (2014) HDTVRip [H.264/1080p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ NG: Разгадка египетских тайн. Настоящая Клео�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Animal Planet: В дикие края с Эваном. Стройная Лори
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ Animal Planet: Герои среди нас / Dodo Heroes (2018) HDTV [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ History Channel. Морские котики: тайная сила / Navy SEALs
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ NG. Международный аэропорт Дубай / Ultimate Airport Du
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +349,7 @@ NG: Загадки исполинов каменного века / Riddle of th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +375,7 @@ Animal Planet: В дикие края с Эваном. Среди ягуаров
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +402,7 @@ Discovery: Коварная Земля / Rogue Earth (2018) HDTVRip [H.264/1080p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +480,7 @@ BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +506,7 @@ History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip HDTVRi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +532,7 @@ History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip (10 с
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +558,7 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +584,7 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +610,7 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +636,7 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +662,7 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,58 +673,6 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99458BDAF2CCE926940D903C5D581D4A37D4F660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308260   (554141) от 13.06.2019
-
-NGW: Убийцы с большого озера / The lakeshore Killers (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоко в Африке пролегает долина Замбези, в центре которой находится огромное озеро, где трое львов присоединяются к прайду.Производство: США, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Дон ПерсивальПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21EECFCE841EB2517F2C83B5D05F6825D682140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308256   (554105) от 13.06.2019
-
-Animal Planet: Кубинская акула / Cuban Shark (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи канала Дискавери отправляются в новое увлекательное путешествие — на поиски популяции больших белых акул в малоизученных областях побережья Кубы. К уже сложившейся команде американских энтузиастов, фотографов, сценаристов и режиссёров присоединилось несколько кубинских учёных, с готовностью делящихся уже накопленными знаниями о местных акулах и среде (   Читать дальше...   )Производство: США, Discovery for Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Байрон ШахПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1F45F81FA9F0B47DD9853C3A9F2A1359576AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1189254   (271021) от 05.12.2017
+
+Сделано в Америке / American Made  (2017) BDRemux [H.264/1080p] [EN / EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Он был самым юным пилотом Боинга 747 в США, а уже через несколько лет стал одним из богатейших людей в Америке. Его стиль жизни был столь же экстремальным, как и его бизнес. Закрытые приемы, роскошные блондинки, крутые тачки и рисковые сделки. Он обладал талантом делать деньги из воздуха.Производство: США / Imagine Entertainment, Cross Creek Pictures, Vendian Entertainment, Quadrant PicturesЖанр: боевик, триллер, драма, комедия, криминал, биография, историяРежиссер: Даг ЛайманАктеры: Том Круз, Донал Глисон, Сара Райт, Джесси Племонс, Калеб Лэндри Джонс, Лола Кёрк, Джейма Мейс, Алехандро Эдда, Бенито Мартинес, Э. Роджер Митчелл, Джед Риис, Фреди Йэт ЭскобарПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, арабские, китайские, датские, нидерландские, финские, французские, немецкие, хинди, исландские, итальянские, норвежские, португальские, испанские, шведскиеПродолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A462872FB88E89F1A0BD08058158A335A8C812AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266322   (270826) от 01.12.2018
+
+Высокое напряжение / Hollow Body / High Voltage  (2018) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Старый музыкант Джимми собирает группу из молодых и талантливых ребят. Но возникает проблема: солистка слишком застенчива, чтобы выступать перед большой публикой. Один удар молнии решает вопрос: Рейчел становится роковой красоткой, но теперь группу ждут новые, куда более серьезные проблемы.Производство: США / Sword EntertainmentЖанр: ужасы, фантастика, триллер, музыкаРежиссер: Алекс КеледжианАктеры: Дэвид Аркетт, Люк Уилсон, Элли Гонино, Райан Доноху, Перри Ривз, Эрик Стоклин, Элизабет Райс, Бекка Уокер, Грэйс Бэннон,  Р. Брэндон Джонсон, Хлоя Катрин КимПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035438D51D5F7A1B0426478AC24A3FF2C0F9EFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189704   (270059) от 06.12.2017
+
+Сингулярность / Singularity  (2017) BDRemux [H.264/1080p] [EN / EN, Fr Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В 2020 году глава компании VA Industries, крупнейшей в области робототехники, представляет миру своё последнее изобретение - компьютер «Кронос», который должен положить конец войнам во всём мире. «Кронос» быстро понимает, что главная угроза миру на Земле - сами люди, и запускает программу по уничтожению человечества. 97 лет спустя небольшая группа выживших людей (   Читать дальше...   )Производство: Швейцария, США / Voltage Pictures, Vantis Pictures, Calanda PicturesЖанр: фантастика, мелодрамаРежиссер: Роберт КоубаАктеры: Джулиан Шаффнер, Джон Кьюсак, Кармен Ардженциано, Эйлин Грубба, Джаннин Вакер, Пол Америкэн, Павел Бубряк, Дэвид Крисман, Элиза Дворакова, Элейн ЛохПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французскиеПродолжительность: 01:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86672E1998792F329E2AD25F3A9BF0F42134CD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266422   (269974) от 02.12.2018
 
 Сиротка / Orphan Horse  (2018) BDRemux [H.264/1080p] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68C19B57EA130AD31D743273626B0BF61F020859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192741   (262716) от 18.12.2017
-
-Оно / It (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в городке Дерри, штат Мэн, начинают пропадать дети, несколько ребят сталкиваются со своими величайшими страхами и вынуждены помериться силами со злобным клоуном Пеннивайзом, чьи проявления жестокости и список жертв уходят в глубь веков.Производство: США, Канада / New Line Cinema, KatzSmith Productions, Lin PicturesЖанр: Ужасы, ТриллерРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, Софиа Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Дилан Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк Сим ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 02:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757515ACA568A4FCD2120ED26349BE1DA6D825B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193016   (262431) от 19.12.2017
-
-Оно / It  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в городке Дерри, штат Мэн, начинают пропадать дети, несколько ребят сталкиваются со своими величайшими страхами и вынуждены помериться силами со злобным клоуном Пеннивайзом, чьи проявления жестокости и список жертв уходят в глубь веков.Производство: США, Канада / KatzSmith Productions, Lin Pictures, New Line Cinema, RatPac-Dune Entertainment, Vertigo EntertainmentЖанр: ужасы, триллерРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, Софиа Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Дилан Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк Сим, Логан Томпсон, Оуэн ТигПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 02:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEBADB0852A1B4E1BE133433E8F74F6C7F40AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192886   (262375) от 19.12.2017
-
-Коматозники / Flatliners  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро студентов-медиков, одержимых желанием узнать, что происходит с человеком после смерти, решаются на рискованный эксперимент: на время они останавливают друг другу сердце, чтобы погрузиться в состояние клинической смерти и на собственном опыте понять, что происходит с человеком по ту сторону. Но они забывают, что, переступив черту, нужно быть готовым к последствиям.Производство: США, Канада / Cross Creek Pictures, Furthur Films, Laurence Mark Productions, The Safran Company,  Screen GemsЖанр: ужасы, фантастика, триллер, драмаРежиссер: Нильс Арден ОплевАктеры: Эллен Пейдж, Диего Луна, Нина Добрев, Джеймс Нортон, Кирси Клемонс, Кифер Сазерленд, Мэдисон Бриджес, Джейкоб Соли, Анна Арден Оплев, Мигель Энтони, Дженни Рэйвен, Бо МирчоффПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, португальские, испанские, французскиеПродолжительность: 01:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBBD82A694F01742601B4F7916C7FDF835F8960
 ```
 
 https://mybot314.ru/tekegram_catalog/

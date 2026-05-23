@@ -1,107 +1,3 @@
-###  Публикация: 1192367   (263249) от 17.12.2017
-
-Юрий Малевинский | Дороже всякого золота (1980) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о замечательном механике-самоучке Иване Кулибине, который первым изобрел и построил машинное водоходное судно, сконструировал семафорный телеграф, зеркальные прожекторы, лифт, самоходную коляску и многое другое.Жанр: Детская проза, Историческая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86280B09DED71AD8455B0DE72318B58B2973F43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192360   (263248) от 17.12.2017
-
-В. Короткевич и др. | Первое свидание (1986) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263248.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первое свидание" - Сборник рассказов о любви. В него вошли произведения К. Паустовского, А. Грина, И. Шамякина, В. Короткевича, Ю. Казакова, В. Солоухина, А. Василевич и Г. Гулина, посвященные этому возвышенному и благородному чувству.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6AF1F7F068494B61D7708F90C350FE2B7AAADE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192356   (263210) от 17.12.2017
-
-Пальмер Кокс | Новый Мурзилка. Удивительные приключения и странствия маленьких лесных (1913) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я маленький лесной человечек, один из многих маленьких человечков или эльфов, которые живут в лесу под листьями папоротника и отправляются каждый год странствовать по всему свету. В каких странах мы ни были! Чего только мы не видали! Каких приключений ни испытали! Про эти странствования уже написано много-много, но далеко еще не все. Нынче летом мы опять совершили (   Читать дальше...   )Жанр: Детская прозаПеревод: Анна ХвольсонФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B74B05BCB9BF1F0AE137BEF469884E1955DB67B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341000   (262944) от 26.11.2019
-
-Михаил Федорович Де-Пуле (сост.) | Сочинения Ивана Саввича Никитина (1914) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повести и рассказы русских писателей.Жанр: Детская проза, стихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454C0A44D5E65125300F381945EE1441A921CA4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341480   (262342) от 28.11.2019
 
 Подборка книг | Малютка [12 книг] (1896) [PDF]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -138,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -164,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -190,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -216,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -269,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -330,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -359,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -386,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -415,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -504,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -531,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -614,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -645,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -671,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -697,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -709,6 +605,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF99A7867A42F7E2521D96B89B8A79943D20D87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494047   (249205) от 09.05.2012
+
+Х.К. Андерсен  | Снежная королева (1980) [Раритет] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+«Снежная королева» — прекрасная сказка великого датского сказочника Х.К. Андерсена (Ганса Христиана Андерсена) о настоящей дружбе, преданности и нежной любви, о победе доброго человеческого сердца над злом.
+Однажды в тихий уютный домик, где жили названные брат и сестра Кай и Герда со своей старой бабушкой, обманом проникла коварная и жестокая женщина — Снежная Королева. Она заманила Кая в хитрую ловушку и унесла в свое царство, где царит вечный холод. В поисках любимого брата Герда попадает в целый водоворот событий и приключений...
+Илюстрации Н. А. Ращектаева.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AE4707CF5384ECA4A8BB47615FC07BB1F5B755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831968   (248578) от 02.11.2025
+
+Виктор Ханин | В трех шагах от сказки [3 книги] (2006) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Все началось когда: "Катя в очередной раз бросила шарик, он покатился по коридору, прям под родительскую кровать. Это была большая старая кровать, покрытая красивым, узорчатым покрывалом, свисавшим до самого пола". Как-то так начался бы очередной ужастик, но не эта история. Любовь, дружба, фантастические приключения и красивая сказка о двух сестрах и кошке, (   Читать дальше...   )Жанр: Детское фэнтезиИздательство: журнал "Уральский следопыт"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F56DE4136AF6B463A5C15D2C3329D17B1690BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492513   (248278) от 06.05.2012
+
+Малыш | Сивка-Бурка (1973) [Раритет] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Русская народная сказка в обработке М. Булатова с очень необычными кукольными иллюстрациями.
+Для детишек дошкольного возраста.
+
+Михаил Александрович Булатов (1913 - 1963) русский фольклорист.
+Помимо собирания, изучения и обработки фольклора, Михаил Александрович писал киносценарии, тексты для диафильмов, оперные либретто на сказочные темы.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFA59AE61B3CF14585CA204F43254706EE09E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492500   (248238) от 06.05.2012
+
+Иван Крылов | Басни (2003) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Иван Андреевич Крылов (2 [13] февраля 1769, Троицкая крепость — 9 [21] ноября 1844, Санкт-Петербург) — русский поэт, баснописец, переводчик, сотрудник Императорской Публичной библиотеки, Статский Советник, Действительный член Императорской Российской академии (1811), ординарный академик Императорской Академии наук по Отделению Русского языка и словесности (1841).Жанр: Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AF553210069EF3C09AF0A79EC31DF427FDE17E
 ```
 
 https://mybot314.ru/tekegram_catalog/

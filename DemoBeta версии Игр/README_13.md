@@ -1,3 +1,81 @@
+###  Публикация: 1817786   (3032) от 13.09.2025
+
+STORROR Parkour Pro (2025) [En] (0.1 Hotfix) Repack Let'sРlay [Early Access]
+
+>>Win Старые Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+STORROR Parkour Pro - это игра о паркуре, которая использует передовую систему анимации, сочетающую захват движения и физику для создания реалистичного и аркадного геймплея. Действие игры развернется на Собачьем острове (Isle of Dogs) в Ист-Энде Лондона, а геймеры смогут насладиться лучшим в своем классе многопользовательским опытом паркура в открытом мире.Тип издания: RepackРазработчик: Hole in the Sleeve Game StudiosЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СпортЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DE78C86FD6ACCA1892177EDBA752F995C43F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809911   (2890) от 14.09.2025
+
+SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В SWAT Commander вы возглавляете элитное подразделение спецназа. Отдавайте приказы своему отряду, управляйте его членами и их снаряжением, но самое главное - успешно выполняйте задачи. Следуйте за своими оперативниками в ряде рискованных миссий, которые проверят ваши тактические способности. Не опускайте голову, не теряйте бдительности, но продолжайте действовать (   Читать дальше...   )Тип издания: RepackРазработчик: Red Mountain Games, Ritual InteractiveЖанр: Экшены, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E455072B6E3FC95020059285C5598B7459923F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818061   (2810) от 14.09.2025
+
+Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Создайте свое поселение на необитаемом острове! Разрабатывайте месторождения, занимайтесь сельским хозяйством, наукой, развивайте промышленность, производите товары и торгуйте - превратите свой остров в промышленную империю! Задача непростая - под силу ли она Вам?Тип издания: RepackРазработчик: MaFi GamesЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FC8B361773ECE43EB35051DC5A90C5EC75FEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788116   (2715) от 15.09.2025
 
 inZOI (2025) [Ru/Multi] (20250910.7320.W) Repack Wanterlude [Early Access]
@@ -6,7 +84,7 @@ inZOI (2025) [Ru/Multi] (20250910.7320.W) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ TerraTech Worlds (2024) [Ru/Multi] (0.6.6.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ SCP: 5K / SCP: Pandemic (2022) [Multi] (0.17.0.154) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.2.0.18718) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (0.8.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157915-S35) Repack seleZen [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157967) Repack Wanterlude [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.5.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Temtem: Swarm (2024) [Ru/Multi] (0.8.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

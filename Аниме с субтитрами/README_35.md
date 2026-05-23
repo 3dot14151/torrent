@@ -1,3 +1,112 @@
+###  Публикация: 776992   (816258) от 13.04.2014
+
+Honoo no Tenkousei | Blazing Transfer Student | Огненный новичок [1991, OVA, 2 эп.] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нобору Такидзава переводится в старшую школу Хондзякунику. Это учебное заведение славится царящим там боевым духом: школьные правила официально разрешают студентам выяснять свои разногласия в бойцовских поединках! Уже в дверях школьный дежурный Койти Дзёноти требует у опоздавшего Такидзавы дневник под угрозой физической расправы. В спор новичка и дежурного неожиданно вмешивается прелестная Юкари Такамура, и грозный Дзёноти терпит риторическое поражение.
+
+Так начинается учеба Такидзавы-куна в Хондзякунику. Его ждут разнообразные испытания, взлеты и падения (причем в самом прямом смысле), соперничество за любовь прекрасной девушки и много-много комического мордобоя!Жанр: комедия, пародия, боевые искусства, школаРежиссер: Нисидзима КацухикоПродолжительность: 2 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA4C8CF7AD29A8619BB85DB7EA78080A77BA26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776951   (815892) от 13.04.2014
+
+Darker Than Black: Ryuusei no Gemini | Darker Than Black: Gemini of the Meteor | Темнее черного: Близнецы и падающая звезда [2009, TV, 12 + 4 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хэй и Инь покидают могущественный Синдикат и становятся «свободными художниками». Врата Ада все еще нависают над Токио, но героям первого сезона больше там делать нечего. Жизнь забрасывает беглецов на российские снежные просторы, во Владивосток, который в этом мире, впрочем, больше похож на Вавилон и населен людьми самых разных наций. В нем тоже хватает «контрактников», новых суперменов, обменявших человечность на способности, которые очень дорого стоят. Те, кто заключил Контракт, и тут становятся объектом пристального интереса спецслужб и тайных обществ. Финал вольного или невольного сотрудничества обычно один – с ложного неба падает очередная звезда…
+
+В центре действия нового сезона 13-летняя Суо Павличенко – дочь русского ученого и японской женщины. Ее брат-близнец Сион – могущественный «контрактник», одновременно и объект изучения, и серый кардинал лаборатории их отца. А узнал доктор Михаил Павличенко многое, отчего в гости к нему одновременно являются и ФСБ, и их зарубежные коллеги. Тем временем мудрый Хэй (   Читать дальше...   )Жанр: приключения, фантастика, мистика, драмаРежиссер: Окамура ТэнсайПродолжительность: 12 эп. + 4 гайдена, 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667C54464B8838DCC61E658FC8FE4B04F98D44B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355063   (815710) от 21.10.2021
+
+Bishoujo Senshi Sailor Moon | Pretty Soldier Sailor Moon | Красавица-воин Сейлор Мун [1992, TV, 46 из 46] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Современная Япония.
+Обычная японская школьница Цукино Усаги - перевоплощение жившей в глубокой древности девушки-воина Сейлор Мун, защитницы Лунного королевства. Теперь, в наши дни, она и другие реинкарнации воинов Луны (Сейлор Меркурий, Сейлор Венера, Сейлор Марс и Сейлор Юпитер) снова должны сразиться со своими исконными врагами - правителями Темного королевства. (   Читать дальше...   )Производство: Toei Animation / 東映アニメーションЖанр: приключения, комедия, махо-сёдзёРежиссер: Сато ДзюнъитиПеревод: Vir@ApoЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 46 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFD0419515FD7DC0C4225C43F851B2E268ADAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656225   (815086) от 15.05.2013
+
+Ikkitousen / Ikki Tosen / Школьные войны (сезон первый) [2003, TV, 13] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хакуфу Сонсаку - жизнерадостная простоватая девчонка со сногсшибательной фигурой. И одновременно - тренированный боец, укладывающий на лопатки самых мощных противников! Возможно, именно Хакуфу предстоит поставить точку в истории конфликта, охватившего школы в районе Канто. События из истории древнего Китая, легендарной эпохи Троецарствия, повторяются в современной (   Читать дальше...   )Жанр: боевые искусства, комедия, эттиРежиссер: Ватанабэ ТакасиСубтитры: •Продолжительность: 13 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87588CECD0A41C7E89075DBB59828CD711227E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918933   (814975) от 18.04.2016
 
 Ikkitousen: Extravaganza Epoch | Школьные войны Эпоха феерии OVA-2 [2014, OVA, 2 эп.] BDRip 1080p Hi10P raw
@@ -6,7 +115,7 @@ Ikkitousen: Extravaganza Epoch | Школьные войны Эпоха феер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +141,7 @@ Love Live! School Idol Project (2014) / Love Live! 2 / Живая Любовь! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +167,7 @@ Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +193,7 @@ Kero-chan ni Omakase! | Предоставьте это Кэро! [2000, Movie] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +219,7 @@ Cardcaptor Sakura: Clear Card Hen | Card Captor Sakura: Clear Card Hen | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +246,7 @@ Cardcaptor Sakura | Card Captor Sakura | Сакура - собирательни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +272,7 @@ Just Because! / Да просто так! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +298,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +324,7 @@ Rosario to Vampire Capu2 / Вампир + крестик 2 [2008, TV, 13] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +352,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / Завет Дь�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +378,7 @@ Circuit Angel Ketsui no Starting Grid / Ангел гоночных трасс [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +404,7 @@ Okusama ga Seitokaichou! Plus! / My Wife is the Student Council President+! / М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +456,7 @@ Hoozuki no Reitetsu (2017) | Хладнокровный Ходзуки [ТВ-2] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +482,7 @@ Nora to Oujo to Noraneko Heart | Nora, Princess, and Stray Cat | Нора, пр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +508,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +534,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +560,7 @@ Komori-san wa Kotowarenai! / Komori-san Can't Decline / Безотказная �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +586,7 @@ Pan de Peace! / Хлеб мира! [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +612,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / This Art Club Has a Problem! / У этог
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +638,7 @@ Nerima Daikon Brothers / Братья Нэрима Дайкон [2006, TV, 12 ep
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +664,7 @@ Tenamonya Voyagers / Те еще странники [1999, OVA, 4 ep.] DVDRip Hi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,110 +676,6 @@ Tenamonya Voyagers / Те еще странники [1999, OVA, 4 ep.] DVDRip Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20FCF8CD364F22FBA14403081F1C1146ACBA5B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119229   (808878) от 27.03.2017
-
-Love Live! Sunshine!! / Живая любовь! Сияние!! [ТВ-3] [2016, TV, 13] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды второгодка школы Уранохоши Чика Таками, гуляя по городу, увидела на большом экране выступление всем нам знакомой группы школьных идолов из «μ's». Девушка прониклась их выступлением, переслушала все песни и твердо решила создать свою группу для участия в проекте «Живая любовь!» Однако сложности не заставили себя долго ждать: в отличие от девочек из «μ's», (   Читать дальше...   )Производство: Жанр: повседневность, комедия, музыкальный, школаРежиссер: 酒井和男 / Sakai Kazuo / Сакай КадзуоПеревод: anipaladin & KittorЯзык озвучки: ЯпонскийЯзык субтитров: Английский (вшитые, отключаемые), Русский (внешние, отключаемые)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E17AA3BE433F949947CC5251FFF5B6BEB2201F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093059   (808735) от 27.03.2017
-
-Eldlive / Эль Драйв [2017, TV, 12] WEB-DLRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чута Коконосе — сирота, живущий со своей тётей. И у него совсем нет друзей. Так, что даже и поговорить не с кем — разве что с голосом в голове, привычным с самого раннего детства. Но в один прекрасный день перед Чутой появляется загадочная хреновина, которая телепортирует его в космический полицейский участок. Глава департамента Солнечной системы сообщает протагонисту, (   Читать дальше...   )Производство: Студия Studio Pierrot / スタジオぴえろЖанр: приключенияРежиссер: Фурута ТакэсиПеревод: UndokaktyzЯзык озвучки: ЯпонскийЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F724F86B7ABEADC4DBA9FA0DBE8171096A55A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198310   (808024) от 11.01.2018
-
-Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter | Герой Юки Юна [ТВ-2] [2017, TV, 6] HDTV 720p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808024.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПродолжениеЖанр: приключения, махо-сёдзёРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Перевод: ChocoVanillaЯзык озвучки: ЯпонскийПродолжительность: 6 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE7E3E7C7BDCCC0A85E9202AB7244E364F7BE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383424   (807858) от 17.05.2020
-
-Strike the Blood: Kieta Seisou Hen | Удар крови: Потерянное Святое Копьё [2020, OVA, 1 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дальнейшие приключения Акацуки Коджо и его подружек. На этот раз герои пережидают внезапно налетевший тайфун в школьном кружке кулинарии. И как обычно что-то пошло не так, и не туда...Производство: студия ConnectЖанр: приключения, эччиРежиссер: Ямамото ХидэёПеревод: 1) AniLibria; 2) anonimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4B123ED8C455A8AB4EE9D350A0B10F54B62369
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,186 @@
+###  Публикация: 1523124   (752803) от 10.01.2022
+
+Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие Watch Dogs: Legion происходит в ближайшем будущем. Лондон переживает тяжелые времена. Организуйте сопротивление, вербуя кого угодно из жителей города. Взламывайте, внедряйтесь и сражайтесь, чтобы спасти Лондон ближайшего будущего, который переживает тяжёлые времена. Добро пожаловать в сопротивление.Тип издания: RepackРазработчик: Ubisoft TorontoЖанр: Action (Open World, Hacking), Stealth, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDCA8BB3DFFCF749A495C9D2023F7D70EC9530B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473864   (752802) от 10.01.2022
+
+Black Mesa: Definitive Edition (2020) [Ru/Multi] (1.5.3) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Black Mesa («Чёрная Меза», ранее известная как Black Mesa: Source) – ремейк культовой компьютерной игры Half-Life 1998 года на движке Source. Представляет собой модификацию игры Half-Life 2. Разработчики воссоздали оригинальную вселенную Half-Life, используя расширенные возможности движка Source, переработали все текстуры, модели и уровни, реализовали отличный геймплей. (   Читать дальше...   )Тип издания: LicenseРазработчик: Crowbar CollectiveЖанр: Action, Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F45C3CB8697B7DA0000B1E8B8A2EE83AA4329FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128640   (752503) от 29.03.2018
+
+Outlast 2 (2017) [Ru/Multi] (gog-4/19597) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Outlast 2 – это продолжение Outlast, популярной игры в жанре «хоррор». Ее события разворачиваются в той же вселенной, но уже с другими действующими лицами и в совершенно другом месте. Outlast 2 предоставляет уникальную возможность погрузиться в бездну человеческого разума, скрывающего по-настоящему страшные тайны. Ни одно противостояние нельзя разделить на «белых» (   Читать дальше...   )Тип издания: LicenseРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AE56F16796B511C84C9823685D71AE69C92931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 205382   (752350) от 31.05.2010
+
+LEGO Star Wars: The Complete Saga [Ru] (P) 2009
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В 2007 году знаменитой киносаге Джорджа Лукаса исполняется ровно 30 лет - в далеком 1977-м вышла на экраны первая часть классической трилогии. У вас есть уникальный шанс вновь пережить все события, вместившиеся в шесть фильмов, и почувствовать себя в шкуре известных героев ленты. Освежите в памяти атаку на Звезду Смерти, бой с Дартом Вейдером, гонки по лесу на скоростных скутерах и многие другие знаковые моменты. Выход LEGO Star Wars: The Complete Saga неслучайно приурочен к юбилею саги. Игра содержит оригинальную интерпретацию всех серий фильма, выполненных в деталях конструктора LEGO. Вас ждут новые
+уровни, более тридцати сюжетных миссий, множество колоритных героев и яркие эмоции!Жанр: Action / 3D / Arcade
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019117   (751752) от 22.05.2016
+
+Gripen E - истребитель нового поколения от компании Saab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Известная шведская компания Saab представила вниманию общественности свой новый многоцелевой истребитель следующего поколения под названием Gripen E. Опытный образец 39-8 "умного истребителя" был разработан в рамках совместной шведско-бразильской программы и он нацелен на рынки стран, который в силу политических или финансовых ограничений не могут приобрести (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019026   (751371) от 22.05.2016
+
+MAGIX Video Pro X8 15.0.0.83 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+MAGIX Video Pro X – это  программный продукт для быстрой и качественной обработки видеоматерилов. Мощный современный программный продукт содержит большое количество инновационных и уникальных функций, которые удовлетворят запросы как простых видеолюбителей, так и амбиционных профессионалов.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84308495E512A55E7A7BD4ADD90CC6FEF077A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394245   (751290) от 12.07.2020
+
+Wink ATV Ultimate v1.16.1 (ревизия 2.6) Mod [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Mod известного приложения Wink для TV приставок, Smart TV Android: 555 каналов, меню слева + другие улучшения функционала и интерфейса.Тип издания: Пиратка (Mod)Релиз состоялся: 07.07.2019Разработчик: PJSC "Rostelecom"Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BEE1308FC6CC57C7456E85EDC7876C2BB5F57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395528   (751289) от 12.07.2020
 
 Бекки / Becky (2020) WEB-DL  [H.264/1080p-LQ]
@@ -6,7 +189,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +241,7 @@ Google через Chrome предупредит о скомпрометиров�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +267,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [USA] 3.55 [PSN 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +293,7 @@ Act of Aggression - Reboot Edition (2015) [En/Multi] (260000390) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +319,7 @@ Ashes of the Singularity (2016) [En/Ge] (1.11) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +345,7 @@ Adobe Photoshop CC 2019 20.0.3 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +397,7 @@ PotPlayer 220106 (1.7.21590) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +449,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2012-
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +528,7 @@ Flash Falcon - проект футуристического сверхзвук�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +660,7 @@ ELEX (2017) [Ru/Multi] (1.0.2981.0) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,198 +671,6 @@ ELEX — тщательно проработанная динамическая 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BF039C6AFE6BB83262794445253D60BF0DA0BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805601   (749135) от 17.04.2015
-
-Плутовство / Хвост виляет собакой / Wag the Dog (1997) HDTV [H.264/720p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749135.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам книги Ларри Бейнхарта «Американский герой».
-Чтобы отвлечь внимание общественности от сексуального скандала, связанного с президентом США, срочно вызван специалист по нештатным ситуациям Конрад Брин (Роберт Де Ниро). Брин решает инсценировать небольшую войну с помощью голливудского продюсера Стенли Мотса (Дастин Хоффман). Вдвоем они смело организуют задуманное (   Читать дальше...   )Производство: США, Baltimore Pictures, New Line Cinema, Punch ProductionsЖанр: Драма, Комедия, Политическая сатираРежиссер: Барри ЛевинсонАктеры: Роберт Де Ниро, Дастин Хоффман, Андреа Мартин, Вуди Харрельсон, Джеймс Белуши, Джон Майкл ХиггинсПеревод: 2x Профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DBF649AAF380A9AB5DEFD7E7D571FAB1B37C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822991   (749119) от 17.04.2015
-
-Бриклберри / Brickleberry (2014) WEB-DL [H.264/720p-LQ] (Сезон 3, серии 1-13 из 13) (NewStudio) [18+]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749119.jpg" />
-</div>
-
-
-###  Подробнее
-
-История строится вокруг рейнджеров-раздолбаев, чудом остающихся на своих рабочих местах, которые столкнулись с закрытием своего парка. На помощь им приходит новенькая девушка-рейнджер, чья цель — преобразить и сохранить заповедник. Всё это выглядит особо комичным, ведь зачастую, лесу и его жителям, в большей степени, угрожают те, кто должен был охранять их.Производство: СШАЖанр: Комедия, для взрослых, ненормативная лексикаРежиссер: Роджер БлэкПеревод: Профессиональный двухголосый закадровый - NewStudioОзвучка: Константин Погодаев, Анна ТухЯзык субтитров: РусскийФормат: MKVПродолжительность: ~ 00:22:00 каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4951A7A56ABB2D7C4397B6534C931E6A7D8B5476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216624   (748986) от 31.03.2018
-
-Windows x64 Plus Office Release by StartSoft 14-2018 Lite [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционных систем Windows с разрядностью x64-bit. В ее состав входит загрузочный образ ISO который предназначен для записи на Flash накопитель размером от 16 Гигабайт. Перед началом распаковки образа на флешку необходимо создать в ней загрузочный сектор при помощи утилиты DiskPart, либо ей подобной, к примеру при (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33926D9E54E45AB205F89CF6D57398C72FE7607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323226   (748180) от 14.04.2011
-
-Death to Spies / Смерть шпионам Дилогия [Ru] (Lossless Repack) 2007-2008 | R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенно секретно. 29 февраля 1944 года. Ставка ВГК – начальнику ГУК СМЕРШ.
-Сотрудник четвертого отдела главного управления военной контрразведки СМЕРШ Строгов Семен Алексеевич, зарекомендовавший себя с лучшей стороны в
-первом отечественном шпионском боевике (в перехваченных шифрограммах обозначенном как stealth-action), снова направляется командованием для участия
-в ряде сложнейших операций под кодовым названием "Смерть шпионам: Момент истины".
-Считаем, что Строгов обладает всеми качествами, необходимыми для выполнения особо опасных заданий по сбору информации о местах дислокации военных и
-гражданских объектов противника, а также для противодействия и ликвидации вражеских агентов и представителей высшего командного состава вермахта.
-Личным приказом Верховного Главнокомандующего Строгову, прошедшему серьезную переподготовку в специальном тренировочном центре, предписано немедленно приступить к осуществлению сверхсекретных миссий. Его задача – захватить шпионов и диверсантов и получить исчерпывающие (   Читать дальше...   )Тип издания: RepackЖанр: Action / Add-on (Standalone) / 3D / 3rd Person / StealthЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394567   (748020) от 14.07.2020
-
-BELOFF 2020.07 (Авторская раздача)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой в Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также автоматическую установку драйверов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0E3D362F4E57C8F8C152DEDCB7DB0B25635A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282018   (747820) от 10.02.2019
-
-Windows 10 (v1809) x64 5in1 by kuloymin v18 (esd) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальных образах от MDSN: ru_windows_10_consumer_editions_version_1809_updated_jan_2019_ x64_dvd_b0988fe0, Microsoft Windows 10.0.17763.107 Enterprise LTSC Version 1809 (October 2018 Updated).
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол Samba.
-Удалена папка PerfLogs.
-Очищена папка WinSxS\Backup.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739E338BB67D3FB04E9148208B394DA68F17E238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045558   (747684) от 10.02.2019
-
-F.E.A.R. 3 (2011) [Ru/En] (16.00.20.1060/dlc) Repack Mizantrop1337
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альма в ожидании, и уровень страха возрастает, пока вы и ваш брат-каннибал сражаетесь с очередным кошмаром. Сражайтесь вместе или умирайте поодиночке на смертельных миссиях, чтобы противостоять вашей свихнувшейся матери. Игроки могут взять на себя роль Оперативника, генетически усовершенствованного солдата со сверхчеловеческими рефлексами и способностью манипулировать (   Читать дальше...   )Тип издания: RepackРазработчик: Day 1 StudiosЖанр: Action, ShooterЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88635904B802E4DA98860DE933F4BC922D5A9C04
 ```
 
 https://mybot314.ru/tekegram_catalog/

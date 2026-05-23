@@ -1,3 +1,57 @@
+###  Публикация: 1702737   (115518) от 26.02.2024
+
+Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, сильнейший? [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Из-за травли Харуто отказался выходить из комнаты. Но в один прекрасный день богиня выбрала его для реинкарнации. И переродился он не простым человеком, а принцем, да ещё и с невероятными навыками! Однако и там всё оказалось не так гладко.
+© crunchyrollПроизводство: студия Staple Entertainment / ステイプルエンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Наоя ТакасиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F894B8BC835E2A6992E06545A178A43CE7CFD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702751   (115506) от 26.02.2024
+
+Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cleric | Великий святой [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Офисного клерка убивают перед долгожданным повышением, но милостивый Бог дарует ему новую жизнь в другом мире. Люциэль выбирает профессию целителя и решает в этот раз уж точно достичь успеха. Однако вскоре он узнает, что в этом мире целителей не слишком жалуют.
+© crunchyrollЖанр: комедия, фэнтезиРежиссер: Тамагава МасатоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE6284C5403D801BAE8FD929DB1958A9C2E2567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702723   (115499) от 26.02.2024
 
 Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau | Beast Tamer | Укротитель зверей [2022, TV, 13 эп.] BDRip 1080p raw
@@ -6,7 +60,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Edomae Elf | Otaku Elf | Эльф Эдомаэ [2023, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi | My Tiny Senpai | Маленька�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +139,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +165,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +191,7 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +217,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +243,7 @@ Takt Op.Destiny | Такт. Опус Дестини [2021, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +269,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я оказалась зл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +295,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +321,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +347,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +373,7 @@ Seiken Gakuin no Maken Tsukai | The Demon Sword Master of Excalibur Academy | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +399,7 @@ Sokushi Cheat ga Saikyou Sugite, Isekai no Yatsura ga Marude Aite ni Naranaindes
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +425,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +452,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +504,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +530,7 @@ Kekkon Yubiwa Monogatari | Сказание об обручальных коль
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +556,7 @@ Busou Shinki: Moon Angel / Шинки - боевой Лунный Ангел [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +584,7 @@ Goshuushou-sama Ninomiya-kun / My Heartfelt Sympathy, Ninomiya-kun / Прими�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +613,7 @@ RideBack | Райдбэк [2009, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -585,7 +639,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -611,7 +665,7 @@ Code Geass Hangyaku no Lelouch R2 Special Edition: Zero Requiem / Code Geass: Le
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -622,60 +676,6 @@ Code Geass Hangyaku no Lelouch R2 Special Edition: Zero Requiem / Code Geass: Le
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A806BF40D1BF63C3EA9CD6564F2CDB650EFD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443291   (73298) от 31.01.2012
-
-Zero no Tsukaima: Futatsuki no Kishi / The Familiar of Zero: The Rider of the Twin Moons / Подручный Луизы-Нулизы: Рыцарь двух лун [2007, TV, 12 эпизодов] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем знакомо обидное определение «ноль без палочки». С другой стороны, «ноль с палочкой», это тоже как-то... не слишком лестно. Главная героиня «Подручного Луизы...» и есть тот самый ноль с палочкой. Причем палочка – волшебная.
-
- Луиза-Франсуаза де Лавальер учится в Академии волшебства королевства Тристейн. Правда, академические успехи обходят мадмуазель стороной: ей не удается правильно воспроизвести ни одного заклинания, у нее не выходит ни одна трансформация. Но самое тяжелое испытание Луизе (прозванной вредными (   Читать дальше...   )Жанр: комедия, романтика, фэнтези, эттиРежиссер: Ко ЮПродолжительность: 12 по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1ACC8DB3347DB16D3DABA276D696FDEE2918C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778532   (70933) от 08.02.2025
-
-Gekijouban Mononoke: Karakasa | Mononoke the Movie: The Phantom in the Rain | Мононокэ (фильм) [2024, Movie, 1 из 3 эп.] WebRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Между Асой и Каме сразу же завязывается дружба, когда они одновременно прибывают на свой первый день службы в Ооку - великолепный дворец удовольствий, где располагается гарем лорда Тенши. Обе девушки попадают туда вместе со многими сотнями других служанок - мужчинам вход воспрещен, а за нарушение границы полагается немедленное обезглавливание. Вскоре становится ясно, (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Накамура КэндзиПеревод: CrunchyRollЯзык озвучки: Японский;Субтитры: Английские; Русские; Японские; Multi-SubПродолжительность: 3 фильма по 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847D07D77FC7A1F871CED75A0E6E24A3929AB0CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

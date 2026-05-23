@@ -1,3 +1,108 @@
+###  Публикация: 1481991   (1007676) от 07.07.2021
+
+Чернобыль (2021) BDRip [H.264/1080p] [FRA Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Алексей Карпушин — обычный молодой советский парень, пожарный в Припяти, который впервые начинает строить планы длиннее, чем на выходные или отпуск — он влюбляется в парикмахера Олю. В прошлом у них уже были отношения, но тогда Алексей упустил свой шанс. Теперь у Оли есть маленький сын Леша, но Алексей намерен никогда больше не повторять прежних ошибок: он признается (   Читать дальше...   )Производство: Россия / Централ Партнершип, DK EntertainmentЖанр: Драма, ИсторияРежиссер: Данила КозловскийАктеры: Данила Козловский, Филипп Авдеев, Оксана Акиньшина, Николай Козак, Равшана Куркова, Игорь Черневич, Петр Терещенко, Артур Бесчастный, Андрей Арчаков, Самвел ТадевосянПеревод: Не требуется (Русский)Субтитры: Русские (Forced, SDH), английские (SDH)Продолжительность: 02:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C5EDBD4D84310FCA01EBA9FDFF543B4DC9D531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482575   (1007336) от 09.07.2021
+
+Сердце и как им пользоваться (2021) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Они очень разные, но у них одна мечта — достучаться до небес. Известного московского стендап-комика Илью Погорелова публично обвинила во лжи его бывшая, и теперь ему нужно «просто» выжить. А застенчивый провинциал Санек хочет вырваться из своего кокона и хоть немного пожить по-настоящему. Волею случая (или провидения) Санек и Илья вместе отправляются в путешествие (   Читать дальше...   )Производство: Россия / РК МедиаЖанр: Комедия, приключенияРежиссер: Дмитрий ГубаревАктеры: Сергей Чирков, Сергей Белов, Нонна Гришаева, Игорь Угольников, Фёдор Лавров, Ольга Лерман, Никита Тарасов, Анна Драничкина, Анастасия СпекторПеревод: Не требуется (Русский) iTunesЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAD88E1B16E3D293F1BFB7F00544EE3903C936B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483466   (1006688) от 14.07.2021
+
+Приворот. Черное венчание (2021) BDRip [H.264/1080p] [US Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Женю бросает мужчина, которого она любит больше жизни. Не в силах смириться девушка решается на отчаянный шаг: цыганка помогает ей провести ритуал черного венчания и сделать самый сильный приворот на любовь. И Кирилл возвращается! Им еще никогда не было так хорошо вместе, влюбленные не могут оторваться друг от друга. Но с каждым днем страсть Кирилла все больше походит (   Читать дальше...   )Производство: Россия / Централ Партнершип, Iney Productions, QS FilmsЖанр: УжасыРежиссер: Святослав ПодгаевскийАктеры: Яна Енжаева, Константин Белошапка, Илья Ермолов, Варвара Бородина, Игорь Хрипунов, Сабина Ахмедова, Кристина Маранды, Лариса Домаскина, Даниэла Богатырева, Никита ЮрановПеревод: Не требуется (Лицензия BD US)Субтитры: ОтсутствуютПродолжительность: 01:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9220F0103ED21014941901BA393DD129544CCA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319622   (1006571) от 15.07.2021
+
+Пыль (2005) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Герой фильма, Леша, — вялый парень с большим рыхлым телом и однообразной жизнью. Типичный «маленький человек», родом из русской классической литературы.
+Мечта об идеальном теле овладевает героем во время странного эксперимента, для которого Алексей был специально отобран. Эксперимент проходил под контролем спецслужб. Для него понадобились особи, не способные ничего (   Читать дальше...   )Производство: РоссияЖанр: Фантастика, драма, комедияРежиссер: Сергей ЛобанАктеры: Алексей Подольский, Петр Мамонов, Глеб Михайлов, Нина Елисова, Михаил Балинский, Олег Новиков, Лариса Пятницкая, Алексей Агеев, Псой Короленко, Дмитрий ПименовСубтитры: ОтсутствуютПродолжительность: 01:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE41EEEA8F9916E1E532887FB0B0A853ACFC875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483566   (1006565) от 15.07.2021
 
 Приворот. Черное венчание (2021) BDRip [H.264/720p-LQ] [US Transfer]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +215,7 @@ A prima vista (2020) WEBRip [H.264/720p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23DB3E2B29901410629606CB8AD0EE5A12F138E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349885   (1003649) от 04.01.2020
-
-Выпускной (2014) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученики 11 «А» готовятся к Выпускному по-разному: рэперы снимают клип к альбому, главный дебошир закупает алкоголь, девственник готовится к первому сексу, а влюбленный Ромео собирается надеть обручальное кольцо своей Джульетте. Они мечтают о будущем и строят планы на жизнь без опеки родителей. «Эту ночь ты не забудешь никогда!» — однозначный настрой одноклассников. (   Читать дальше...   )Производство: Россия, Централ Партнершип, Кинокомпания «Lunapark»Жанр: КомедияРежиссер: Всеволод БродскийАктеры: Виктор Грудев, Кристина Исайкина, Сергей Походаев, Сергей Бурунов, Евгения Лютая, Константин Еремеев, Олеся Поташинская, Никита Павленко, Яна Енжаева, Тимофей ЗайцевСубтитры: ОтсутствуютПродолжительность: 01:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E0E293880738FDA3AE7E0F4EE1208F43CFF84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350239   (1003432) от 05.01.2020
-
-Ангелы больше не летают (2017) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды, узнав о смертельном диагнозе, герой не видит иного выхода, как ускорить естественный ход событий и решается прыгнуть с моста. Но его вероломное вторжение в Божий замысел бесцеремонно проваливается…Производство: Россия / «Творческая мастерская КС», «ALT PAX» productionЖанр: Короткометражный, драмаРежиссер: Кирилл СолёновАктеры: Вадим Ситников, Александра ВиноградоваСубтитры: ОтсутствуютПродолжительность: 00:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C25C40FC1504313EAA9BA8E78FF8D1C40FC8A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350243   (1003425) от 05.01.2020
-
-Прасковья (2019) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на голод и холод блокадного Ленинграда, Прасковья продолжает работать в банке. Единственная вещь, которая её согревает — это чернильница, подаренная мужем, ушедшим на фронт. В критический момент, когда уже не осталось ни сил, ни надежды, именно чернильница переворачивает судьбу Прасковьи.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Александр СоловьёвАктеры: Даниил Муравьев-Изотов, Марина Рокина, Ольга Саханова, Вера СтроковаСубтитры: ОтсутствуютПродолжительность: 00:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2353C5EF4A0F4D2A15B2FABA988867B575553C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839245   (1003363) от 27.11.2025
-
-Кольская сверхглубокая (2020) WEB-DLRip [AV1/1080p-LQ] [10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кольская сверхглубокая скважина - самый масштабный секретный объект страны. В 1984 году на глубине более 12 километров были записаны необъяснимые звуки, похожие на крики множества голосов. После этих событий объект закрывают. Небольшая исследовательская группа отправляется под землю, чтобы узнать, какую тайну скрывает глубочайшая скважина в мире. То, что они обнаружили, (   Читать дальше...   )Производство: Россия / Трио ФильмЖанр: ужасы, триллерРежиссер: Арсений СюхинАктеры: Милена Радулович, Сергей Иванюк, Николай Ковбас, Вадим Демчог, Кирилл Ковбас, Никита Дювбанов, Виктор Низовой, Артём Цуканов, Илья Ильиных, Владимир КолидаСубтитры: ОтсутствуютПродолжительность: 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA4A591D32669454BD77D7559779AD54E24E2C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1390529   (782579) от 16.06.2020
+
+Затопленный город / Curon (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-7 из 7) HDRezka [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Женщина с детьми, подростками-близнецами, возвращается в родной город, где вскоре исчезает. Теперь ребятам предстоит столкнуться с древними легендами и мрачными семейными тайнами.Производство: Италия / Indiana Production CompanyЖанр: Триллер, детектив, фэнтезиРежиссер: Фабио Молло, Лида ПатитуччиАктеры: Giulio Brizzi, Juju Di Domenico, Анна Ферцетти, Лука Лионелло, Margherita Morchio, Федерико Руссо, Алессандро Тедески, Валерия Билелло, Максимилиан Дирр, Макс МалатестаПеревод: Многоголосый профессиональный (HDRezka Studio)Продолжительность: ~00:45:00 серияРеклама: Голосовые вставки, в начале и конце серии.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7878FDA031A2D457864BF85A986C76803A55731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206323   (782468) от 13.02.2018
+
+Кардинал / Cardinal (2017) WEB-DLRip (сезон 2, серии 1-6 из 6) Baibako [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новый канадский триллер. Инспектор Кардинал борется со своими прошлыми ошибками, которые могут привести к окончанию его карьеры, во время расследования текущего дела, которое становится все более запутанным и ужасным. Сериал является экранизацией романа «Сорок имен скорби» Джайлса Бланта.Производство: Канада / Dazmo Camera, Téléfilm Canada, Touchpoint Films, Wildling PicturesЖанр: триллер, драма, криминалРежиссер: Даниэл ГрауАктеры: Билл Кэмпбелл, Карин Ванасс, Олден Адайр, Джеймс Даунинг, Гленн Гульд, Дебора Хей, Эрик Хикс, Джеймс Томас, Кристен Томсон и др.Перевод: Многоголосый закадровый, профессиональный (Baibako)Продолжительность: ~00:43:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FE1DA102342970DEBE24401D1C6046C0098F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205847   (782006) от 14.02.2018
 
 Внутри девятого номера / Inside No. 9 (2018) WEB-DL [H.264/720p-LQ] (сезон 4, серии 1-6 из 6) AMS [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFE2AB5F9A84935FDEAC6F1527403D81EB4ACC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509244   (761425) от 05.01.2022
-
-Йеллоустоун / Yellowstone (2021) WEBRip [H.264/720p-LQ] (сезон 4, серии 1-10 из 10) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йеллоустоун – первый в мире национальный парк, одно из самых посещаемых мест в США. Но здесь, на границе цивилизации, происходит много такого, чего не видят туристы, что не освещается средствами массовой информации. Семья Даттон, главой которой является Джон Даттон, владеет огромным ранчо, сопредельным с территорией парка. На их землю претендует и сам парк, и индейская (   Читать дальше...   )Производство: США, Linson EntertainmentЖанр: Драма, вестернРежиссер: Тейлор Шеридан, Стефен Т. Кэй, Джон ДалАктеры: Кевин Костнер, Люк Граймс, Келли Райлли, Уэс Бентли, Коул Хаузер, Келси Эсбиль, Брекен Мэрилл, Джефферсон Уайт, Джил Бирмингем, Форри Дж. СмитПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийСубтитры: отсутствуетПродолжительность: ~00:47:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC377D5B77D1EDA779B27EB86B81AE627B38AFFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515324   (759911) от 06.01.2022
-
-Пришельцы из прошлого / Beforeigners (2021) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-6 из 6) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759911.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современном мире начинают появляться пришельцы из прошлого. Гости прибывают из каменного века, эпохи викингов и позднего XIX века. Они не знают, как здесь оказались, и не представляют, как вернуться назад. Спустя несколько лет сосуществования викинг Альфхильдр поступает на службу в полицию и вместе с местным детективом должна найти убийцу других пришельцев и попутно (   Читать дальше...   )Производство: Норвегия / Rubicon TV ASЖанр: Фантастика, драма, детективРежиссер: Йенс ЛиенАктеры: Криста Косонен, Николай Клеве Брок, Стиг Р. Амдам, Ragnhild Gudbrandsen, Надер Хадеми, Lavrans Haga, Карре Хаген Сиднесс, Ylva Bjørkaas Thedin, Ингунн Беате Ёйен, Madeleine Malling BreenПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:47:00Реклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2ACD3BE40F86CFC6A47485DCBD8445D50F5995
 ```
 
 https://mybot314.ru/tekegram_catalog/

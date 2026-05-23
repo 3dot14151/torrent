@@ -1,3 +1,81 @@
+###  Публикация: 1794447   (19889) от 29.04.2025
+
+Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u12/dlc) Repack dixen18 [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Когда небеса разверзаются и исторгают хаос, миру нужны герои. Станьте спасителем Тедаса в игре «Dragon Age: Инквизиция». Вы - Инквизитор, и вам предстоит спасти мир от него самого. Но этот путь будет вымощен тяжелыми решениями. Тедас - земля раздоров. Стороны не перестают враждовать друг с другом, даже когда в мир рекой текут демоны. А что же вы? Вы со своим отрядом (   Читать дальше...   )Тип издания: RepackРазработчик: BioWare Edmonton, BioWare MontréalЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF8B533C7D6E0D92B3EBCFA6885537AEC85EF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723488   (19827) от 30.04.2025
+
+V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Проснувшись в V Rising герой в качестве вампира должен охотится за кровью, параллельно избегая прямых солнечных лучей. Слэшер с элементами выживания предлагает примерить роль кровопийцы, который просыпается в собственном замке и должен восстановить свое владение и восстановить авторитет, действуя в огромном открытом мире, где полно секретов. Здесь предстоит завоевывать (   Читать дальше...   )Тип издания: RepackРазработчик: Stunlock StudiosЖанр: Экшены, Приключенческие игры, Многопользовательские игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE69B10E11EA7D830A62B115CAB889BF4CFEF331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794628   (19812) от 30.04.2025
+
+Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Свободные Земли - земли возможностей и опасностей. Они принадлежат ворам, спекулянтам и авантюристам. Люди не перестают прибывать сюда в поисках богатства и славы, но большинство из них заканчивает в могиле. Только те, кого благосклонно осеняет богиня судьбы, могут закрепиться здесь и добиться желаемого. И всё это строится на потерях других.Тип издания: RepackРазработчик: PersonaeGame StudioЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2002C2B22792F7863EFCA32DD5EFAC10AEBC30FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700923   (19741) от 01.05.2025
 
 Smalland: Survive the Wilds (2024) [Ru/Multi] (1.7.1_15_e769f28c) Repack FitGirl
@@ -6,7 +84,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.7.1_15_e769f28c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6805605/dlc) Repack Let'sРlay [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.65p2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Dinkum (2022) [Ru/Multi] (1.0.0) Repack FitGirl [Official Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Elder Scrolls IV: Oblivion (2007) [Ru/En] (1.2.0416cs/dlc) Repack dixen18 [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Wartales (2021) [Ru/Multi] (1.0.41212/dlc) Repack FitGirl [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0.171) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.4.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Reignbreaker (2025) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.171) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Baldur's Gate (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Dark Envoy (2023) [Ru/Multi] (1.6.1.73592) Repack seleZen [Director's Cut - Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80379E7ED1EC9819BCF3D86E3E2ED87A27927CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730039   (18568) от 12.05.2025
-
-Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Scene Rune [Enhanced Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте историю Крестовых походов. Осмельтесь шагнуть на пустоши Мировой язвы, где открывшийся между мирами разлом высвободил всепоглощающий ужас Бездны. Более века соседние страны отважно сражались, пытаясь отбросить демонические полчища назад - но безуспешно. Теперь вам выпал шанс раз и навсегда закончить эту войну, но путь к победе скрыт туманом неясности. Станете (   Читать дальше...   )Тип издания: SceneРазработчик: Owlcat GamesЖанр: Ролевая игра, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F31B085F2035A148F1D724165D2A96AB7881473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796934   (18490) от 13.05.2025
-
-Empyreal (2025) [Ru/Multi] (1.0.1.29392) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Empyreal - сложная и динамичная ролевая игра. Однажды экспедиция прибывает на отдаленную и неисследованную планету, где их встречает внушительных размеров Монолит, который остался после исчезнувшей цивилизации. Это не простые руины: Монолит полон опасностей, а экспедиция недостаточно хорошо подготовилась к его исследованию.Тип издания: RepackРазработчик: Silent GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FBE00D9BCE60D048223CA3CC59D3F54764B9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789343   (18487) от 13.05.2025
-
-KARMA: The Dark World (2025) [Ru/Multi] (Build 18404146) Repack Let'sРlay [Digital Deluxe]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Karma: The Dark World - это кинематографичный психологический триллeр от первого лица, разворачивающийся в антиутопическом мире. Исследуйте альтернативную временную линию в Восточной Германии 1984 года, где железной рукой правит корпорация «Левиафан». За всеми гражданами установлена постоянная слежка, общество разделено на классы, людей пичкают меняющими сознание (   Читать дальше...   )Тип издания: RepackРазработчик: POLLARD STUDIO LLCЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32966A7614AB5F57216C72D6D8428C8D5E92494C
 ```
 
 https://mybot314.ru/tekegram_catalog/

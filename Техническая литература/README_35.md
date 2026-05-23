@@ -1,3 +1,107 @@
+###  Публикация: 896782   (125093) от 30.12.2023
+
+Б.А. Смиренин (ред.) | Справочник по радиотехнике (1950) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В отличие от имеющихся в обращении справочников по радиотехнике «Справочник по радиотехнике» не дает только голые формулы и таблицы для расчета тех или иных радиоцепей или их деталей, но сопровождает эти формулы и таблицы обоснованием их содержания как с физической, так в некоторых случаях и с математической стороны С этой точки зрения справочник может во многих (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ГосэнергоиздатФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A803EDE62B207A5B24B6A9D5B34D43EC95B72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690238   (124073) от 06.01.2024
+
+В.Н.Цуканов, М.Я.Яковлев | Волоконно-оптическая техника. Практическое руководство 4-е изд., испр. и доп. (2019) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрена отечественная волоконно-оптическая компонентная база, предназначенная для жестких условий эксплуатации. Приведены основные технические характеристики волоконно-оптических компонентов и методы их измерения. Предложены методы контроля параметров безотказности с учетом принципиальных отличий волоконно-оптических компонентов от электронных. Даны практические (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E9079EBE488272293FF76B5AABF1C7733EE318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690659   (123833) от 08.01.2024
+
+А.И. Вантеев | Обслуживание электрических подстанций: теория и практика (2021) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Предложены основные сведения о принципах работы оборудования электрических подстанций, эффективных и безопасных приемах и методах оперативного обслуживания электроустановок. Рассмотрено большое количество случаев технологических нарушений и травматизма при работе с энергообъектами. Материал подготовлен на основе многолетнего опыта работы автора в сфере энергетики. (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665C2D6FF176B709272797F2F2C4106D46BBDAD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693664   (121752) от 21.01.2024
+
+Г.Б. Белоцерковский | Задачи и расчеты по курсу Основы радиотехники и антенны (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены задачи, контрольные вопросы и расчеты по основам теории колебательных цепей с сосредоточенными параметрами, длинных линий, электромагнитных волн, по распространению радиоволн и по антенно-фидерным устройствам. Расположение материала и последовательность задач соответствуют учебным пособиям автора «Антенны», Оборонгиз, 1962 и «Колебательные контуры (   Читать дальше...   )Жанр: ЭлектроникаИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A015116317F30A00F127FC7CB449E692749B021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693950   (121546) от 22.01.2024
 
 Книжная серия | Основы радиотехники и радиолокации [4 книги] (1972 - 1975) [DJVU]
@@ -6,7 +110,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -249,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -302,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -573,114 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE2F644B80AE9144FEA55062CA6E070E542DEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490904   (102403) от 01.05.2012
-
-PHILEDS. Мощные светодиоды [2011] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог мощных светодиодов компании PHILEDS.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F260CF5E81BC800FD4787C82CB3C3F03A623BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765765   (101391) от 14.12.2024
-
-Н.В. Иноземцева, С.И. Прач. | Подшипники скольжения и их расчет (2023) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101391.jpg" />
-</div>
-
-
-###  Подробнее
-
-В разработанном учебно-методическом пособии приведены сведения, относящиеся к подшипникам скольжения.
-Содержит методики и примеры расчета и выбора посадки с зазором для подшипника скольжения по дисциплине «Нормирование точности и технические измерения».
-Основной целью данного пособия являлось оказание помощи студентам при выполнении курсовой работы по дисциплине (   Читать дальше...   )Жанр: учебное пособие, детали машинИздательство: Гомельский государственный технический университетФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B4508D3792D2D3F38C18D5CC15AB62A3A33A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769812   (100587) от 30.12.2024
-
-Ф. Гутман, Л. Лайонс | Органические полупроводники (1970) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателей книга известных австралийских ученых Ф. Гутмана и Л. Лайонса является первым зарубежным изданием, в котором собраны и обработаны результаты исследований органических полупроводников, выполненных в нескольких тысячах оригинальных работ.
-В книге большое внимание уделено различным теоретическим подходам к изучению физики органических (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1007E8166FEE9B5820041A3A978C4FEFC98974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769814   (100566) от 30.12.2024
-
-Ю.Н. Ильин (ред.) | Локомотивы СССР. Альбом-справочник. [2 части] (1964) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом "Локомотивы СССР", выпускаемый ВНИТИ, является справочным пособием, в котором обобщены основные характеристики отечественных электровозов (ч.I), тепловозов (ч.I и II) и газотурбовозов (ч.II).
-В первую часть альбома включены характеристики магистральных электровозов ВЛ80, ВЛ60, ВЛ10, ВЛ8, маневрового электровоза ВЛ41 и тепловозов 2ТЭ10, 2ТЭ10Л, ТЭ10, (   Читать дальше...   )Жанр: история техникиИздательство: ВНИТИФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A212B692269E935FEE6C18A312AEDBEA0587E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

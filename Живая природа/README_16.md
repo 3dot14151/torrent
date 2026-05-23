@@ -1,3 +1,55 @@
+###  Публикация: 1400957   (714881) от 07.08.2020
+
+Уэльс: дикая земля / Wales: The Land of the Wild (2019) BDRip [H.264/1080p] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уэльс - земля гор и изрезанных берегов. Здесь сочные луга граничат с древними лесами. Животные здесь всегда рядом. Это дом для 50 тысяч видов - великолепных и удивительных. Каждый сезон приносит свои испытания: поиск пары, забота о семье или просто выживание. Более года съемок в экстремальных условиях, сквозь бури и засуху... Добро пожаловать на дикий запад Британии!Производство: Великобритания, Plimsoll ProductionsЖанр: Документальный, природа, флора, фаунаРежиссер: Энн Галлахер, Эдриан СеймурПеревод: Дублированный (SDI Media)Субтитры: АнглийскиеПродолжительность: 4 x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED2B0C94F96930567E0E9F96D2EB1E70A52B7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130556   (714228) от 02.05.2017
+
+Пробуждение дикой природы - европейская весна / Wild & Wide Awake - Spring Across Europe (2015) HDTVRip [H.264/720p-LQ] (Серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Весна - самое восхитительное время для природы, и все живое радостно приветствует ее после долгих и мрачных зимних месяцев. Как преображается Европа с приходом этой красочной поры? Климат и дивные пейзажи континента, простирающегося с севера на юг на 5000 км, так же разнообразны, как и проявления весенней феерии. От долин до гор, от центральных территорий до моря, (   Читать дальше...   )Производство: Германия, Albatross World SalesЖанр: Документальный, путешествия, флора, фаунаРежиссер: Томас УиллерсПеревод: Одноголосый закадровый, профессиональный (SDI Media)Продолжительность: 2 x ~ 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7E2FD1DAB2D5F1F254360F81563D19BE96B837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 704844   (711948) от 11.06.2016
 
 Пингвины. История птиц, мечтающих стать рыбами  / Penguins. The story of the birds that wanted to be fish (2007) HDTVRip [H.264/720p]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ IMAX: Африка - Серенгети / Africa - The Serengeti (1994) BDRemux 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ IMAX: Амазонка / Amazon (1997) BDRemux [VC-1/1080p] [VO]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ BBC. Дикие Карибы / Wild Caribbean (2007) HDTVRip [H.264/720p-LQ] (с
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:253C7B6A91D34304E791C620FEF5181A82604B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701821   (690274) от 22.06.2016
-
-Насекомое с другой планеты. Богомол / Insect from another planet. Mantis (2012) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалуй, нет более кровожадных шестиногих разбойников, чем богомолы. Богомол - насекомое, впечатляющее многих людей своим умением сражаться. Благодаря этому умению были созданы несколько стилей различных единоборств, в частности - кунг-фу богомол и бокс богомола. Повлиял он и на создание знаменитого мотоблока, который называется mantis (богомол в переводе с английского). (   Читать дальше...   )Жанр: Документальный, исследование, познавательный, путешествия, флора, фаунаПеревод: Дублированный (для канала "1ТВЧ")Продолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04ADEED6D904515B80CC90CE92D5E2AB10FBBC63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701479   (688522) от 23.06.2016
-
-Карибские острова: Погружение с акулами / Adventure Carribean: Diving With Sharks (2012) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паря над океанской бездной, эти жестокие и завораживающие хищники, пугают и в то же время очаровывают, подчеркивая как красив и опасен подводный мир тропической Атлантики. Неповторимый эффект присутствия и экстремальная близость к акулам, властвующим на бескрайних просторах Карибского моря, заставит вас испытать ни с чем не сравнимые ощущения.Жанр: Документальный, видовой, научно-познавательный, исследования, природа, флора, фаунаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B5D0055BCB8C4999E2CCC7E2E9285D98246543
 ```
 
 https://mybot314.ru/tekegram_catalog/

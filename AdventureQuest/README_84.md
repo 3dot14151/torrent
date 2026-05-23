@@ -1,3 +1,107 @@
+###  Публикация: 1741320   (47704) от 06.08.2024
+
+Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Setteeh родом из ледяного сердца Якутии. Адвенчура черпает вдохновение в местных сказках. Каждый эпизод предлагает новую главу, в которой смешиваются фольклор, жуткие встречи и сверхъестественные элементы. Перед вами разворачивается фотореалистичный мир, якутские голоса доносятся сквозь леденящий душу саунд-дизайн. Это не просто игра-ужастик, это глубокое погружение (   Читать дальше...   )Тип издания: RepackРазработчик: MonsterAttackЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: ЯкутскийЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FA6A2C1936BAEFF200C44BC44508FB4B2200A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741366   (47679) от 06.08.2024
+
+[REC] Paroxysm (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы выступаете в роли создателя контента, вооруженного камерой и неутолимой жаждой кликов. Ваша миссия - исследовать места с привидениями, фиксировать паранормальную активность и увеличивать аудиторию. Тайтл представляет собой простую задумку, но ее исполнение не похоже на обычное. Вы перемещаетесь по заброшенным зданиям, тенистым лесам и жутким улицам, а камера - (   Читать дальше...   )Тип издания: RepackРазработчик: PerspektikЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CD78909A67A6E106EC849F36A256EEADCE1D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741579   (47568) от 07.08.2024
+
+Sylvio: Black Waters (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Sylvio: Black Waters представляет собой необычный мир, резко отличающийся от привычной реальности. Юзеры воплощают Джульетту, одинокую фигуру, застрявшую в стране, напоминающей Землю, но в то же время неуловимо отчужденную от нее. Череда загадочных подсказок манит ее в теневое царство, где прошлое шепчет тайны, а будущее остается завесой.Тип издания: RepackРазработчик: StroboskopЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39AB623545994D0EE9382C0349E1221723A2DABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741534   (47559) от 07.08.2024
+
+Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Экшен с видом сверху, дополненный элементами жанров стратегии и хоррора. Игроку предстоит погрузиться в события Первой Мировой Войны и бороться за выживание в опасном и непредсказуемом мире. Главный герой – одинокий солдат, цель которого – выжить в столь суровых и жестоких условиях. Ему предстоит сражаться с врагами, решать головоломки и пробивать себе путь к спасению.Тип издания: RepackРазработчик: Jordan Mochi, Catchweight StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB49D72D8D6414099AB5347448EE11BE05B609F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741645   (47549) от 07.08.2024
 
 Etera (2024) [En] (1.0.0) Repack FitGirl
@@ -6,7 +110,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ A Space for the Unbound (2023) [Multi] (1.0.35.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Bathhouse (2024) [Multi] (1.03) Repack FitGirl [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Welcome to Elk (2020) [Multi] (1.22.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Nancy Drew: Danger on Deception Island / Нэнси Дрю. Туманы ост�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Lifeless Planet (2014) [Ru/Multi] (4.6.7.12281826) Repack Other s [Premier Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Lifeless Planet - новое трёхмерное приключение для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:062329B424770BBBDDEB5D3B8252E93830C87F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744170   (46217) от 20.08.2024
-
-Among the Sleep (2017) [Ru/Multi] (3.1.0.41) Repack Other s [Enhanced Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Among the Sleep - удостоенная множеству наград игра. Вы неожиданно просыпаетесь в доме в роли двухлетнего ребенка. Первым делом вы будете искать свою маму, но нигде ее не обнаружите. Зато заметите плюшевого мишку. Направьтесь к нему и ничуть не удивляйтесь, если он заговорит с вами и скажет, что предстоит делать девочке, еще толком не научившейся хорошо ходить. Игровой (   Читать дальше...   )Тип издания: RepackРазработчик: Krillbite StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091AB4FC075DB3E45491FA3F749E1DF2407F2623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744168   (46208) от 20.08.2024
-
-The Bathhouse (2024) [Multi] (1.03) Scene Tenoke [Restored Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46208.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bathhouse Restored Edition – перед вами невероятный японский хоррор, который открывает двери в мир, где обычная работа в бане превращается в самый настоящий ночной ужас! Попросту говоря, это переработанная версия оригинала, получившая немало улучшений и более обширный игровой контент. Для начала хотелось бы отметить обновлённое графическое исполнение, которое (   Читать дальше...   )Тип издания: SceneРазработчик: Chilla's ArtЖанр: ИндиЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Испанский, Корейский и другиеЯзык интерфейса: Английский, Японский, Испанский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8B1412771FBFF03BB12E0B21B74600E447E6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744273   (46207) от 20.08.2024
-
-The Voidness - Lidar Horror Survival Game (2023) [En] (v1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46207.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Voidness - Lidar Horror Survival Game - это леденящий душу научно-фантастический хоррор на выживание, от которой у вас по спине побегут мурашки. Станьте на место космического специалиста Франчески Ли, которой поручено исследовать недавно открытую планету, погруженную в темноту и мрак. По мере того как вы будете углубляться в пустоту, вы вскоре поймете, что вы (   Читать дальше...   )Тип издания: LicenseРазработчик: Steelkrill StudioЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3D5E2012DCB38912E987AD9AD3887B4892D3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744338   (46137) от 21.08.2024
-
-PARANOID (2023) [Ru/Multi] (10138) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра рассказывает историю 31-летнего Патрика Калмана, который потерял всю свою семью при загадочных обстоятельствах - его родители умерли жестокой смертью, а сестра внезапно исчезла по неизвестным причинам. Травма от потери близких разрушила психику Патрика и превратила его собственную квартиру в тюрьму для него. Единственным выжившим членом семьи Патрика осталась (   Читать дальше...   )Тип издания: LicenseРазработчик: Madmind StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E246F347BD2838C5355FF1A99457355BAA5FB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 603082   (888420) от 06.04.2013
+
+Страх над городом / Peur sur la ville (1975) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Молодая одинокая вдова Нора Эльмер регулярно получает телефонные звонки от незнакомца, который даёт ей понять, что не только хорошо знает подробности её личной жизни, но и бывал в её квартире в её отсутствие. Однажды ночью он сообщает, что собирается зайти к ней. От страха она получает сердечный приступ и выпадает из окна своей квартиры, находящейся на 17-ом этаже.
+Расследование поручается комиссару Жану Летелье. Он с неохотой берётся за дело, поскольку в данный момент озабочен только одним — поимкой опасного преступника Маркуччи, из-за которого несколько лет назад был уволен из отдела по борьбе с бандитизмом. На следующий день комиссару звонит незнакомец, называющий себя Миносом, и утверждает, что это он наказал Нору за то, что она пренебрегла трауром по покойному мужу, и что он и дальше намерен наказывать грешниц. Маньяк обещает комиссару после каждого убийства присылать фрагменты своей фотографии. Летелье не воспринимает это признание всерьёз и не считает гибель Норы убийством. Но по настоянию начальства он (   Читать дальше...   )Жанр: Боевик, Триллер, ДрамаРежиссер: Анри ВернейАктеры: Жан-Поль Бельмондо, Шарль Деннер, Леа Массари, Рози Варт,  Роланд Дюбийяр, Джованни Чанфрилья, Катрин Морен, Джермана Карначина, Жан Мартен,   Анри ДжаникПеревод: Многоголосый закадровыйПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B4D6FB11F8A0A111D3F49D5CF7DCB81D9FA343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097857   (886902) от 11.02.2017
+
+Полицейские и воры / Guardie e ladri (1951) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Мелкий мошенник Фердинандо Эспозито (Тото) «впаривает» богатому американцу «римский сестерций времен императора Клавдия». Из-за некстати появившегося конкурента его разоблачают, но Фердинандо удается скрыться. Появившись на раздаче помощи беднякам, Эспозито сталкивается с обманутым американцем, начинается комическая погоня с участием полицейского Боттони, американца (   Читать дальше...   )Производство: Италия, Guardie e ladriЖанр: КомедияРежиссер: Стено, Марио МоничеллиАктеры: Тото, Альдо Фабрици, Эрнесто Альмиранте, Альдо Алимонти, Марио Кастеллани, Рикардо Антолини, Алида Каппелини, Пьетро Карлони, Рокко Д’Ассунта.Перевод: ДублированныйПродолжительность: 01:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95D12156B809F46CB22AF7C9F2A0F31B86FE491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096603   (886894) от 11.02.2017
+
+Али Баба и 40 разбойников / Ali Baba et les 40 voleurs (1954) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Али-Баба — добрый, веселый и немного чудаковатый слуга богатого господина Кассима. Он немолод, беден и некрасив. Но зато как обаятелен!
+Али-Бабу полюбила красавица Моржана — наложница, которую он сам выбирал на невольничьем рынке для Кассима.
+Что же делать? Нужно найти способ разбогатеть. Но, как бывает в сказке, богатство само находит доброго человека. Надо лишь (   Читать дальше...   )Производство: Франция / Les Films du CyclopeЖанр: Мелодрама, КомедияРежиссер: Жак БеккерАктеры: Фернандель, Самия Джамал, Дитер Борше, Анри Вильбер, Эдуард Дельмон, Эдмон Ардиссон, Мануэль Гари, Жюльен Мафр, Леопольдо Францес, Гастон ОрбальПеревод: Многоголосый, двуголосый, одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E0E666A607D5993052EA4DAEEFA73A555B33C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 295114   (886470) от 05.03.2014
+
+Посвящается Стелле / Dedicato a una stella (1976) SatRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка Стелла Глиссет приезжает в Бретань на поиски своего отца, который давно оставил их семью. Упав в обморок, Стелла попадает в больницу, где проведенные анализы выявляют у неe тяжелую форму лейкемии. Врачебная этика не позволяет людям в белых халатах объявить этот диагноз самой Стелле, они хотят поговорить с родственниками. Тогда девушка заявляет, что (   Читать дальше...   )Жанр: МелодрамаРежиссер: Луиджи КоцциАктеры: Памела Виллореси, Ричард Джонсон, Мария Антониетта Белуцци, Франческо Д'АддаПеревод: Дублированный (Ленфильм)Продолжительность: 1:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F3E90109E9D64C99AFEBFB5F74075AE810F470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990358   (886355) от 10.03.2016
 
 Альварес Келли / Alvarez Kelly (1966) DVDRip [H.264] [AVO]
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_884676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -535,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -573,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D81B2235EA7F7514EF38AA779A50AD2BA6C5E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763388   (883472) от 07.03.2014
-
-Убийство герцога де Гиза / L'Assassinat du duc de Guise (1908) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Убийство герцога де Гиза», поставленный Андре Кальметом и Шарлем Ле Баржи в 1908 году, занимает важное место в истории кинематографа. Именно этот фильм принято считать первым художественным фильмом. История убийства по приказу короля Генриха III его политического соперника герцога Генриха де Гиза разыграна на экране знаменитыми актерами театра Комеди Франсе (   Читать дальше...   )Производство: Франция, Le Film d'ArtЖанр: Короткометражный, драма, история, немое киноРежиссер: Андре Кальметт, Шарль Ле БаржиАктеры: Шарль Ле Баржи, Альбер Ламбер, Габриэль Робин, Берт Бови, Жан Анджело, Альберт Дьедонне, Югетт Дюфло, Рафаэль Дюфло, Чарльз Лоррен, Ролла НорманПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB64D9004233EF134404C00F5DCC5F8FA28D0FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762314   (882907) от 07.03.2014
-
-Сон скульптора / Der Traum des Bildhauers (1907) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скульптор, раздобрев от выпитого вина по случаю завершения работ над изваянием трех граций, ложится на и засыпает. Во сне грации оживают, навевая художнику новые творческие идеи.Производство: Австро-Венгрия, Saturn-FilmЖанр: комедия, короткометражный, эротика, немое киноРежиссер: Йохан ШварцерАктеры: Нет сведенийПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2D7A7966EFAC436892709B7EC1392EFC3CB0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097975   (882874) от 13.02.2017
-
-Каждую среду / Any Wednesday (1966) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий бизнесмен Джон покупает для своей любовницы Элен квартиру за счет компании. Но вскоре выясняется, что кроме нее там будут жить его жена и представитель фирмы…Производство: США / Warner Bros. PicturesЖанр: КомедияРежиссер: Роберт Эллис МиллерАктеры: Джейн Фонда, Джейсон Робардс, Дин Джонс, Розмари Мерфи, Энн Прентисс, Джек Флетчер, Кинг Муди, Келли Джин Питерс, Монти Маргеттс, Фрэнк БэйкерПеревод: Многоголосый закадровый (ТНТ - СПб 11-й канал)Субтитры: ОтсутствуютПродолжительность: 01:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729C961448911A20A10C3A026E32DC6F14FE294A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098040   (882871) от 13.02.2017
-
-Война миров / The War of the Worlds (1953) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882871.jpg" />
-</div>
-
-
-###  Подробнее
-
-На окраине маленького городка упал метеорит. Это событие будоражит воображение местных жителей: как-никак первый контакт. Но марсиане пришли отнюдь не с миром. Долгое время они пристально изучали Землю, прежде чем начать вторжение. И вот всего за пару дней города разрушены, армии всего мира потерпели поражение. Кажется, что гибель человечества неизбежна...Производство: СШАЖанр: Фантастика, боевик, триллер, экранизацияРежиссер: Байрон ХэскинАктеры: Джин Бэрри, Энн Робинсон, Лес Тремейн, Роберт Корнтуэйт, Сандро Джильо, Льюис Мартин, Хаусли Стивенсон мл., Пол Фрис, Уильям Фиппс, Вернон Рич ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617AB317414CD5809C4FB694DC59DAAE11EB343D
 ```
 
 https://mybot314.ru/tekegram_catalog/

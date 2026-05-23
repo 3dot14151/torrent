@@ -1,3 +1,168 @@
+###  Публикация: 1779451   (27739) от 13.02.2025
+
+LuBan 3D 06.02.2025 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+LuBan 3D - это программное обеспечение для автоматического генеративного дизайна, которое помогает дизайнерам и производителям быстро создавать свои творения.
+LuBan автоматически создает 3D-модели в различных формах, таких как литофан, стопка, решетка, пластина, рельеф, модуль и каркас. Созданная модель может быть позже изготовлена с помощью 3D-печати, лазерной резки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD78A24607EE0E8B0E7A361233A2505EAE9E605B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779837   (27537) от 15.02.2025
+
+SolidRocks 2.5.0 for 3ds Max repack by MSI [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+SolidRocks автоматизирует весь сложный процесс настройки визуализации. Вам необходимо лишь выбрать необходимый размер и качество изображения.
+Цель SolidRocks состоит в том, чтобы с легкостью достигать наилучших результатов визуализации с помощью V-Ray без необходимости в каких либо углубленных знаниях V-Ray.
+SolidRocks регулирует все параметры настроек Vray согласно (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271FE2BF23DC19C84FFD071F23500B2F213ABA45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791941   (21280) от 16.04.2025
+
+Blender 4.2.9 LTS + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
+
+В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50235FC106D04595CE126BB8FAFC66797367D2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792105   (21176) от 17.04.2025
+
+Blender 4.4.1 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
+
+В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8E5C194FC5E64C2BBEA1D66EF174153D2C5CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795243   (19497) от 03.05.2025
+
+Chaos Vantage 2.8.0 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рендерите самые сложные сцены V-Ray 3D в режиме трассировки лучей в реальном времени. С Chaos® Vantage нет необходимости в трудоемких преобразованиях. Просто перетащите всю сцену V-Ray в Vantage и приступайте к работе. Быстро создавайте высококачественные визуализации или предварительные визуализации для архитектуры, кинопроизводства, автомобилестроения и т. д.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F953578FA43DBBAFD267BCAD1242066E5388BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797276   (18273) от 15.05.2025
+
+Autodesk 3ds Max 2026 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Autodesk 3ds Max предоставляет все необходимые инструменты для проектирования 3D-моделей, анимации и рендеринга. 3ds Max позволяет создавать реалистичные трехмерные сцены и яркие эффекты, естественных 3D-персонажей с правдоподобными движениями, выполнять визуализацию проектов изделий, архитектурных объектов и окружения.
+
+В 3ds Max возможно моделирование разнообразных (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1147FD0A9077FF54D40BECC2C7D317C2B888514F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800611   (15720) от 04.06.2025
 
 SketchUp Pro 2025 25.0.660 RePack by KpoJIuK [Ru/En]
@@ -6,7 +171,7 @@ SketchUp Pro 2025 25.0.660 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +197,7 @@ SketchUp Pro 2025 25.0.660 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +223,7 @@ Phaser Editor 4.11.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +251,7 @@ Corona Renderer 13 for 3ds Max 2016-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +277,7 @@ V-Ray 7.00.40 for Blender 4.2-4.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +303,7 @@ Rhinoceros 3D 8.21.25188.17001 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +330,7 @@ Pepakura Designer 6.1.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +356,7 @@ Luxion KeyShot Enteprise 2025.2 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +382,7 @@ Cinema4D 2024.2.0 + Redshift 3.5.23 + RedGiant bundle 2024.0.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +408,7 @@ Chief Architect Premier X17 Build 27.1.0.54 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +434,7 @@ Room Arranger 10.1.0.716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +460,7 @@ V-Ray 7.20.00 for 3ds Max 2021-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +513,7 @@ Room Arranger 10.2.0.732 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +539,7 @@ AMS Мой Дом 3D 4.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +619,7 @@ AMS Дизайн Интерьера 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +645,7 @@ ZBrush 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +671,7 @@ AMS Ландшафтный Дизайн 3D 10.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -518,84 +683,6 @@ AMS Ландшафтный Дизайн 3D 10.0 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A2AE0F9576C6E079587395A0F2B1E0F3A870A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818117   (2838) от 14.09.2025
-
-Cinema 4D 2026.0 [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2838.jpg" />
-</div>
-
-
-###  Подробнее
-
-CINEMA 4D – простая в использовании профессиональная программа для 3D-визуализации, при помощи которой даже начинающие пользователи смогут создавать высококачественные анимации с использованием 3D-CAD моделей. Программный продукт содержит множество инструментов для анимации персонажей, работы с волосами и имитации одежды, предлагает несколько источников освещения, (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368E4A96D614C2D9E05C60D11F922977CA4AA07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818874   (1993) от 19.09.2025
-
-Chaos Vantage 3.0.1 beta [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рендерите самые сложные сцены V-Ray 3D в режиме трассировки лучей в реальном времени. С Chaos® Vantage нет необходимости в трудоемких преобразованиях. Просто перетащите всю сцену V-Ray в Vantage и приступайте к работе. Быстро создавайте высококачественные визуализации или предварительные визуализации для архитектуры, кинопроизводства, автомобилестроения и т. д.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AF3284E31972CDA0CDB7824F142488607E2BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820474   (343) от 28.09.2025
-
-Agisoft Metashape Pro 2.2.2 Build 21287 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Agisoft Metashape Professional - это передовое программное обеспечение на базе искусственного интеллекта, позволяющий создавать 3D-модели на основе цифровых фотографий соответствующего качества и формата. Программа максимально раскрывает возможности фотограмметрии, а также включающее в себя технологии машинного обучения для анализа и пост-обработки, что позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A071778FCAD7FF02975800C9CD5D9C411ADDD85
 ```
 
 https://mybot314.ru/tekegram_catalog/

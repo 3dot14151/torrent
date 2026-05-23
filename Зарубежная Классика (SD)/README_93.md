@@ -1,3 +1,107 @@
+###  Публикация: 1261484   (292791) от 16.11.2018
+
+Легенда о Лайле Клэр / The Legend of Lylah Clare (1968) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый голливудский режиссер готовится снимать биографический фильм про свою покойную жену, бывшую суперзвезду Лайлу Клэр. Во время съемок он безумно влюбляется в девушку, которая исполняет главную роль — и почти начинает верить, что прошлое можно вернуть…Производство: США / The Associates & Aldrich Company Inc.Жанр: ДрамаРежиссер: Роберт ОлдричАктеры: Ким Новак, Питер Финч, Эрнест Боргнайн, Милтон Зельцер, Росселла Фальк, Габриэле Тинти, Валентина Кортезе, Джин Кэрролл, Майкл Мерфи, Корэл БраунПеревод: Двухголосый закадровый ("Фортуна-фильм")Субтитры: ОтсутствуютПродолжительность: 02:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A7ECB4A9C69D5011C8F32F8889BBD375676C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568122   (292712) от 09.12.2013
+
+1941 / 1941 (1979) DVDRip [Director's Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Комедийный фильм о панике в Лос-Анджелесе после известий о нападении японцев на Перл-Харбор и о приближении японской подводной лодки к берегам Калифорнии с заданием уничтожить Голливуд.Производство: США / Universal Pictures, Columbia Pictures, A-TeamЖанр: боевик, комедия, военный, слэпстикРежиссер: Стивен СпилбергАктеры: Дэн Эйкройд, Нед Битти, Джон Белуши, Лоррэйн Гари, Бобби Ди Чикко, Мюррэй Хэмилтон, Кристофер Ли, Тим Мэтисон, Тосиро Мифунэ, Уоррен ОутсПеревод: Одноголосый закадровыйПродолжительность: 02:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D462FDA4335C1A9F50EAE353A9B2A7067BECBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 410958   (292686) от 30.10.2019
+
+Хлеб, любовь и фантазия / Pane, amore e fantasia (1953) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В маленькой итальянской деревушке — событие: прибыл новый командир карабинеров Антонио Каротенуто, любитель любовных приключений. Он сразу же обращает внимание на молоденькую Мариеллу. Она так хороша, что все местные мужчины буквально не дают ей прохода…Жанр: Мелодрама, КомедияРежиссер: Луиджи КоменчиниАктеры: Витторио Де Сика, Джина Лоллобриджида, Мариза Мерлини, Вирджилио Риенто, Тина Пика, Мария-Пиа Касилио, Роберто Риссо, Меммо Каротенуто, Виттория КриспоПеревод: Двуголосый закадровыйПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F57C20437971D08C41A80C548BA5B10F433D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255070   (292471) от 30.10.2019
+
+Самая красивая женщина в мире / Красива, но опасна / La Donna piu' bella del mondo (1955) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный фильм о счастливой истории любовной связи самой красивой женщины мира начала 20-го века, оперной певицы Лины Кавальери и русского князя Барятинского..Жанр: комедия, мелодрама, драмаРежиссер: Роберт З. ЛеонардВ ролях: Джина Лоллобриджида, Витторио Гассман,Роберт Алда, Анна Вернон, Тамара Лис, Джино Синимберджи....Перевод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C156918121B3D37E18EED59266CEA280E7D06BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077525   (291702) от 05.12.2016
 
 Человек со звезды / Starman (1984) DVDRemux
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1993DA6A238E1CB72CA37D25AF920E1FBF823F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182594   (282369) от 27.11.2017
-
-Вирджинец / The Virginian (1946) DVDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о счастливой любви славного парня, ковбоя по прозвищу "Вирджинец" (Джоэл МакКри) и милой девушки, школьной учительницы, Молли Вуд (Барбара Бриттон). Но это не мелодрама. Это вестерн. А потому, здесь будет достаточно плохих ребят, погонь и перестрелок.Производство: США / Paramount PicturesЖанр: Мелодрама, ВестернРежиссер: Стюарт ГилморАктеры: Джоэл МакКри, Брайан Донлеви, Сонни Тафтс, Барбара Бриттон, Фэй Бейнтер, Том Талли, Генри О’Нилл, Билл Эдвардс, Уильям Фроули, Пол ГилфойлПеревод: Двуголосый закадровый, любительский (Ник Ганфайтер и Катя Неодим)Субтитры: Русские, английскиеПродолжительность: 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE7E29E8EECA34A42C3A7E3E1B9713C4461A780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078915   (282333) от 10.12.2016
-
-Меч и крест / La spada e la croce (1958) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282333.jpg" />
-</div>
-
-
-###  Подробнее
-
-События фильма разворачиваются во времена античной Римской Империи. Центурион Гай Марцелл послан в провинцию Галилею с заданием проверить, как ею управляет наместник императора Понтий Пилат.
-В пути Марцелл встречает известную куртизанку Марию Магдалину и страстно влюбляется в неё. Выполняя свою миссию, он жестоко подавляет восстание в Иудее, арестовывает Иисуса из (   Читать дальше...   )Производство: Италия, Liber FilmЖанр: Драма, ИсторическийРежиссер: Карло Людовико БрагальяАктеры: Ивонна де Карло, Хорхе Мистраль, Массимо Серато, Андреа Аурели, Теренс Хилл, Нандо Тамберлани, Филипп Эрсен, Розанна Рори, Надя Бравио, Росанна Подеста, Роберт МорганПеревод: Двуголосый закадровыйПродолжительность: 01:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AADBBFD9FF3A780D6E40998FF80DBD7989049D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182700   (282043) от 27.11.2017
-
-Мефисто / Mephisto (1981) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это осовремененная версия легенды о Фаусте. Пользующийся признанием критиков сценический актер Хендрик Хофген устал от легких развлекательных театральных условностей и ищет чего-то более революционного в духе Брехта. Несмотря на эти свежие идеи, слава не раскрывает своих объятий. Отчаявшийся Хендрик продает свою душу, но не Дьяволу, а нацистам, так как жажда славы (   Читать дальше...   )Производство: Германия (ФРГ), Венгрия, Австрия / Hessischer Rundfunk (HR), Mafilm, Manfred Durniok FilmproduktionЖанр: ДрамаРежиссер: Иштван СабоАктеры: Клаус Мария Брандауэр, Кристина Янда, Бансаги Ильдико, Эндорэй Питер, Бойд Карин, Харборт Кристина, Генчи Сари, Кишонти ИльдикоПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E382212F3A1B7D4A6B6EC149FEF5172DEA4574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336353   (280508) от 06.11.2019
-
-Черный тюльпан / La tulipe noire (1964) BDRip [H.264] [GER Transfer]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне Французской революции в тихой провинции жуткий страх наводит на знатных мерзавцев таинственный разбойник в маске, чьим фирменным знаком стал черный тюльпан. Неуловимый мститель находчив, бесстрашен, благороден и умен, он прекрасный наездник и гений фехтования. Дворянин Жульен — беспечный неженка, глупый и трусливый — совсем на него не похож. Но никто не (   Читать дальше...   )Производство: Франция, Италия, Испания / Ágata Films S.A., Flora Film S.r.l., Méditerranée Cinéma, Mizar FilmsЖанр: боевик, комедия, приключенияРежиссер: Кристиан-ЖакАктеры: Ален Делон, Вирна Лизи, Адольфо Марсильяч, Доун Аддамс, Аким Тамирофф, Лаура Валенсуэла, Жорж Риго, Франсис Бланш, Хосе Хаспе, Перла КристальПеревод: Дублированный ''Союзмультфильм'' с вставками многоголосого ''R5''Субтитры: ОтсутствуютПродолжительность: 01:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB24968CD3C74320E3DB624B029968209EC6D8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

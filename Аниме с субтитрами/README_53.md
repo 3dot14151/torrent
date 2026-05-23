@@ -1,3 +1,108 @@
+###  Публикация: 1008392   (677953) от 28.06.2016
+
+Kagewani: Shou [2016, TV, 13] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История про очередное нашествие ужасных монстров. Люди ничего не могут поделать и являются лишь игрушкой в лапах чудовищ. Откуда взялись эти монстры и почему нападют на людей? Соске Банда, учёный, пытается разгадать эту тайну, и единственная его зацепка - слово "Kagewani".Жанр: ужасыРежиссер: Такасима Томоя / Takashima Tomoya / 高嶋友也Продолжительность: каждый эпизод по 8 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF70209801D64D08E595B2D58266D5E9FCB9DE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006219   (677945) от 28.06.2016
+
+Kiznaiver [2016, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие аниме развернётся в мире, где людей потихоньку связывают специальной системой, из-за которой любые раны, полученные одним человеком, равномерно распределяются по всем Связанным. В центре повествования окажутся восемь школьников, большая часть которых, судя по описаниям, будут либо замкнутыми, либо малоэмоциональными, либо просто расчётливыми. А ещё там будут (   Читать дальше...   )Жанр: приключенияРежиссер: Кобаяси Хироси / Kobayashi Hiroshi / 小林寛Продолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0D883579CBB67A06D6551170823DB4BAE89197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005065   (677933) от 28.06.2016
+
+Bungou Stray Dogs | Бродячие псы литературы [2016, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Накадзиму Ацущи выгоняют из родного приюта, и теперь у него нет ни крыши над головой, ни пропитания. Стоит он на берегу реки и думает, как бы не сдохнуть от голода, и тут замечает человека, явно намеревающегося покончить с собой. Юноша спасает незнакомца, после чего выясняется, что тот — Дадзай Осаму, работающий вместе с напарником Куникидой в особом детективном (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Игараси Такуя / Igarashi Takuya / 五十嵐卓哉Продолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948A331C295716AF9F68184724E518ABAE8A43FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645212   (677712) от 07.07.2013
+
+One Piece Film Z / Ван-Пис: Фильм двенадцатый [2012, MV] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Итак, одиннадцатый по счёту фильм One Piece.
+События происходят в новом мире, который находится на грани исчезновения. Ожесточенный бой между легендарным бывшим адмиралом военно-морского флота Зетто, который руководит группой, пытающейся уничтожить пиратов, и группой Мугивара во главе с Монки Д. Луффи.Жанр: приключенияРежиссер: Нагаминэ ТацуяСубтитры: •Продолжительность: 110 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF75C1C8C8AC418B574DE408545013121EDC491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004552   (673925) от 30.06.2016
 
 Kuma Miko / Жрица и медведь [2016, TV, 12] HDTV 720p raw
@@ -6,7 +111,7 @@ Kuma Miko / Жрица и медведь [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ High School Fleet / Hai-Furi / Морская школа [2016, TV, 12] HDTV 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Tanaka-kun wa Itsumo Kedaruge / Всегда вялый Танака-кун [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho | Muhyo & Roji's Bureau of Supernatur
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho 2 | Muhyo & Roji's Bureau of Supernat
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Mini Toji | Katana Maidens: Mini Toji | Мини-жрицы [2019, TV, 10 + SP] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Unhappy / Anne-Happy / Невезучие [2016, TV, 12] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Ragnastrike Angels / Ангелы Рагнастрайк [2016, TV, 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ Ansatsu Kyoushitsu (2016) / Assassination Classroom (2016) / Класс убий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +371,7 @@ Netoge no Yome / And You Thought There Is Never a Girl Online? / А ты дум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +397,7 @@ RWBY / Red White Black Yellow / Красная, Белая, Чёрная, Жёл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +424,7 @@ Kamigami no Asobi / Game gods / Игры богов [2014, TV, 12 из 12] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +450,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +476,7 @@ Hunter X Hunter OVA 1 / Охотник х Охотник OVA-1 [2002, OVA, 8] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +504,7 @@ Garo: Vanishing Line | Гаро: Линия схода [2017, TV, 24] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +530,7 @@ Shinigami no Ballad: Momo the Girl God of Death / Ballad of a Shinigami / Мом
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +556,7 @@ Shuten Douji / Star Demon / Звездный Демон [1989, OAV, 4] DVDrip ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +582,7 @@ Yojouhan Shinwa Taikei / The Tatami Galaxy / Cказ о четырех с пол
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +608,7 @@ Dragon Age: Dawn of the Seeker / Эпоха дракона: Рождение И�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +634,7 @@ Re:Creators | Возрождающие [2017, TV, 22 эп.] BDrip 1080p 10bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +663,7 @@ Mahou Shoujo Lyrical Nanoha: Reflection | Magical Girl Lyrical Nanoha: Reflectio
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,111 +674,6 @@ Mahou Shoujo Lyrical Nanoha: Reflection | Magical Girl Lyrical Nanoha: Reflectio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:855CC1E915240E5C9112A35DDF70AC1D099BDC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224700   (663646) от 12.05.2018
-
-Gekijouban Fate/Stay Night: Heaven's Feel - Presage Flower | Судьба: Ночь схватки. Прикосновение небес (фильм первый) [2017, Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война Священного Грааля: жестокая битва между магами, в которой семь мастеров и их призванные слуги сражаются за Святой Грааль, магический артефакт, который может даровать победителю любое желание. Почти 10 лет назад Последняя битва четвертой войны Святого Грааля нанесла ущерб городу Фуюки и унесла более 500 жизней, оставив город опустошенным.
-Широ Эмия, переживший (   Читать дальше...   )Производство: студия UFO TableЖанр: приключения, мистикаРежиссер: Судо ТомонориПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2DAA1525751C226755FD9838F88220A3A8C692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495804   (662097) от 21.03.2022
-
-Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная ученица в школе магии [2021, TV, 13 из 13] WEBRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магия. Прошло чуть меньше века с того момента, как она стала реальностью. Весной 2095 года в школу, где обучают юных магов, поступает одна девушка. Она наделена всевозможными талантами и красотой. Настоящая безупречная отличница. И зовут её Миюки Сиба. Миюки мечтает о дружной школьной жизни вместе со своим братом Тацуей, но оказывается, что образцовых и непутёвых (   Читать дальше...   )Производство: ConnectЖанр: Приключения, фантастикаРежиссер: Татибана ХидэкиСубтитры: РусскиеПродолжительность: 13 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB4D608CDF9120BB8CE28D3E474E42135403EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341446   (661453) от 25.05.2011
-
-Shonen Onmyoji / Teenager Onmyouji / Юный мастер Инь-Ян [2006, TV, 26] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внук легендарного (даже при жизни!) прорицателя и экзорциста Абэ-но-Сэймэя прямо-таки задавлен славой деда. Все смотрят на него, как на будущего великого оммёдзи, а он даже не способен видеть духов! От такого позора юный Масахиро готов хоть в ремесленники податься... Но тут вдруг ему удается увидеть, по крайней мере, одного духа – белого лисо-кото-кролика с красными (   Читать дальше...   )Жанр: приключения, мистика, историяРежиссер: Мори КунихироПродолжительность: 26 по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBC339E9DE0475E6FF00264F38E27C2BA0C7F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095824   (658809) от 03.06.2017
-
-Заводной дух войны: Альдерамин в небе | Alderamin on the Sky | Nejimaki Seirei Senki: Tenkyou no Alderamin [2016, TV, 13 эп.] BDrrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Империя Катварна ведёт войну с соседней Республикой Киока. В силу обстоятельств семнадцатилетний поданный Империи — бабник и лентяй по имени Икута — против воли вынужден сдавать экзамен на получение офицерского звания. И никто не ожидал, что он выживет, окажется вполне годным военным, а со временем благодаря своему острому уму станет известен как великий военачальник. (   Читать дальше...   )Производство: студия Madhouse StudiosЖанр: приключения, фантастика, драмаРежиссер: Итимура ТэцуоПеревод: tengriЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97FBB6944A35F29D5461C1707AB1CC4DD60A09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

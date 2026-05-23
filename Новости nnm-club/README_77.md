@@ -1,3 +1,186 @@
+###  Публикация: 1011208   (796576) от 27.04.2016
+
+ESET Smart Security 9.0.377.1 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 Smart Security - новая версия комплексного антивируса NOD32 с облачной технологией ESET Live Grid. Решение "все-в-одном" с многоуровневой защитой. Защитите свой компьютер или ноутбук от потери или кражи с помощью функциональности нового компонента Анти-Вор. Функция Антивор (Anti-Theft) позволяет обнаружить местоположение и вернуть потерянный (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2113CA47A4E84A249B7B5A92B997BF6D04EAEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011435   (796555) от 27.04.2016
+
+Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лес Нибель умирает. Сильнейшая буря поразила его в самое сердце, и теперь его судьба зависит от того, сможет ли маленький герой по имени Ори найти в себе мужество и бросить вызов ужасному врагу. «Ori and the Blind Forest», умопомрачительно прекрасный платформер от студии Moon Studios, повествует о молодом сироте, которому предначертана судьба героя. Нарисованные (   Читать дальше...   )Тип издания: LicenseРазработчик: Moon StudiosЖанр: Arcade (Platform), 3DЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B5F5D923DA44D92E2225146B11E7192917FD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011375   (796554) от 27.04.2016
+
+Дэдпул / Deadpool (2016) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уэйд Уилсон — наёмник. Будучи побочным продуктом программы вооружённых сил под названием «Оружие X», Уилсон приобрёл невероятную силу, проворство и способность к исцелению. Но страшной ценой: его клеточная структура постоянно меняется, а здравомыслие сомнительно. Всё, чего Уилсон хочет, — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком (   Читать дальше...   )Производство: США, Канада / 20th Century Fox Film Corporation, Donners' Company, Kinberg GenreЖанр: фантастика, боевик, комедия, приключенияРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Эд Скрейн, ТиДжей Миллер, Джина Карано, Брианна Хилдебранд, Стефан Капичич, Лесли Уггэмс, Джед Риис, Каран Сони, Майкл Беняер, Стайл Дэйн, Кайл Кэсси, Тэйлор Хиксон, Айзи, Наика Туссэн, Рендал Ридер, Айзек С. Синглтон мл., Джастин Шиппелт, Донна ЯмамотоПеревод: Дублированный (iTunes), Авторский (одноголосый, закадровый) (Гаевский), Любительский (одноголосый, закадровый) (Zamez)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C99E816588D5894E09976BD8B9B90D8B105F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385708   (796493) от 26.05.2020
+
+iOS 14 целиком попала в руки хакеров, джейлбрейкеров и исследователей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+У разработчиков Apple сейчас наверняка болит голова из-за утечки исходного кода ещё не вышедшей iOS 14. Сообщается, что доступ к новой версии операционной системы получили исследователи в области кибербезопасности, блогеры и хакеры.До релиза iOS 14 остаётся ещё около восьми месяцев. Уже мало кого удивишь различными утечками информации, скриншотами и описаниями новых функций, которые так или иначе просачиваются в Сеть на этом этапе.Однако в этот раз Apple (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200199   (796080) от 20.01.2018
+
+Mozilla Firefox Quantum 58.0 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Свободный веб-браузер Mozilla Firefox на движке Gecko, ориентированный на приватность и безопасность в Интернете. В новой версии браузера Mozilla Firefox обновился движок – улучшилось качество отображения сайтов, возросла скорость их загрузки, совместимость со стандартами. Firefox содержит массу крупных и мелких улучшений интерфейса и, как следствие, работать стало (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E6A4C2F69857D64E461F4802D28B8F79E81EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199770   (796002) от 20.01.2018
+
+TecDoc DVD Catalog 1Q.2018 Full [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+TecDoc – это универсальный каталог автозапчастей с деревом поиска автозапчастей по моделям автомобилей, учитывая их различные модификации и комплектации. Не требует знание VIN. Возможен поиск по товарным группам автозапчастей и сборочным узлам. Осуществляет поиск автозапчасти по любым артикулам - по оригинальным номерам и по номерам производителей не оригинала.
+ (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий (+27)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817AB559D7B2A944B415EAD008CAEB85770F728D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200333   (796001) от 20.01.2018
+
+Windows 10 x86 x64 AIO Release by StartSoft 03-04 2018 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры операционной системы Windows 10 с разной разрядностью. В состав раздачи входит два загрузочных образа ISO которые предназначены для записи на флешку от 16 Гигабайт и выше. В сборке поддерживается установка системы с языковыми интерфейсами на английском, русском, немецком, украинском, белорусском языках. Операционная (   Читать дальше...   )Язык интерфейса: Русский, Украинский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD812BB0680B665EBE8724D4912E593850A3D802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069213   (795994) от 20.01.2018
 
 Mirror's Edge (2009) [Ru/En] (1.1.0.0/dlc) Repack R.G. Механики [Reflected Edition]
@@ -6,7 +189,7 @@ Mirror's Edge (2009) [Ru/En] (1.1.0.0/dlc) Repack R.G. Механики [Reflect
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +241,7 @@ Adobe Photoshop 2022 23.0.1.68 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +293,7 @@ OCCT 4.4.2 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +319,7 @@ Maxon Cinema 4D R16 Portable by soyv4 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +398,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) St
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +424,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) EG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +476,7 @@ HitmanPro 3.8.0 Build 292 RePack by Norton46 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +531,7 @@ Acronis True Image 2016 19.0.6569 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +583,7 @@ Google отказалась от обязательного выпуска об�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +609,7 @@ Nvidia DriverPack Hotfix v.417.58 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +636,7 @@ Opera 50.0.2762.67 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -491,188 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012168   (794291) от 30.04.2016
-
-Acronis True Image 2016 19.0 Build 6569 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646F514BE52FB0979A88B9335B50B87828D98957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007514   (794281) от 30.04.2016
-
-Final Fantasy IX (2016) [En/Multi] (1.0.20160426) Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия игры происходят в мире под названием Гая. Сюжет основан на военном противостоянии между несколькими нациями, разожжённом амбициозной королевой Бранэ. Игрок отслеживает историю молодого вора по имени Зидан Трибал, который объединяется с некоторыми другими персонажами для того, чтобы остановить эту злую королеву и вернуть на землю мир.Тип издания: RepackРазработчик: Square EnixЖанр: RPG (Japanese-style), 3DЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA2980A041E91F88D65A5CD3F03AB0352BE2076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012174   (794280) от 30.04.2016
-
-Delcam ArtCAM Pro 2012 SP2 build 359 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794280.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArtCAM является ведущим программным обеспечением для проектирования объемных рельефов и предоставляет дизайнерам уникальные возможности по 3D-моделированию и производству высокотехнологичных художественных изделий. Эта самостоятельная завершенная CAD/CAM-система не требует наличия у пользователя инженерных навыков и глубоких познаний в области фрезерной обработки (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D256F4C4893BD830757001FE69B1F65431E150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386424   (794214) от 29.05.2020
-
-Коллекторы 2 / The Debt Collector 2 (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборщики долгов Френч и Сью приступают к работе, делая то, что у них получается лучше всего — ломают черепа и кости, гоняясь за разными подонками, которые должны деньги их боссу Томми. Напарников вызывают в Лас-Вегас, чтобы они забрали долг у нечистой на руку владелицы казино, которая, как оказалось, является бывшей любовницей Сью. Тем временем на тропу войны выходит (   Читать дальше...   )Производство: США / DC2 Productions, Leverage Film Funding, Tarzana ProductionsЖанр: Боевик, криминал, комедияРежиссер: Джесси ДжонсонАктеры: Скотт Эдкинс, Луис Мэндилор, Владимир Кулич, Нг Мэйлин, Мариано Мендоса, Катрин Блэк, Демитра Сили, Ски Карр, Куэто Йеска, Robert DobsonПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3149D7807A5722120E8320B5AAC0349EA03454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122350   (794144) от 05.04.2017
-
-FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794144.jpg" />
-</div>
-
-
-###  Подробнее
-
-FlatOut 4: Total Insanity - это очередная часть знаменитой гоночной аркадной серии, в которой игрокам позволено фактически все - в том числе и "стрелять" водителем автомобиля из лобового стекла, чтобы установить рекорд дальности полета. Подзаголовок Total Insanity немного неточен - полного безумия здесь нет. По крайней мере, в режиме карьеры, состоящем (   Читать дальше...   )Тип издания: LicenseРазработчик: Kylotonn Entertainment, Tiny Rebel GamesЖанр: Racing, Arcade, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E6E0545FC80E1DAC6A66866E64C689776375E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122580   (794142) от 05.04.2017
-
-LEGO City Undercover (2017) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Чейзу! В игре LEGO® CITY Undercover вы примерите на себя роль Чейза Маккейна — офицера полиции, которому поручена операция под прикрытием по поиску преступника Рекса Фьюри. В совместном режиме для двух игроков можно исследовать открытый мир мегаполиса LEGO® City, состоящего из более чем 20 кварталов, в котором вас ждут расследования, угонщики, вождение (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Arcade, 3D, 3rd Person, Open WorldЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10321EDC579E4E08FA6FEEF102978F941D4DEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122607   (794140) от 05.04.2017
-
-Максим Дорофеев | Джедайские техники. Как воспитать свою обезьяну, опустошить инбокс и сберечь мыслетопливо (2017) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему, даже зная, как надо правильно работать, человек на практике делает все так, как привык… то есть плохо? Максим Дорофеев простым и доступным языком объясняет, почему так происходит. Прочитав его книгу, вы узнаете, как устроено ваше мышление и память; почему вы неэкономно тратите ресурсы своего мозга; как их сохранить, как правильно концентрироваться, формулировать (   Читать дальше...   )Жанр: Личностный рост, Самосовершенствование, Лайфхаки, Тренировка мышленияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65ABB3915C372DC3FDA15EAB64922F4832F6D26
 ```
 
 https://mybot314.ru/tekegram_catalog/

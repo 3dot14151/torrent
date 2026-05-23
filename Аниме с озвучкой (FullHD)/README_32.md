@@ -1,3 +1,83 @@
+###  Публикация: 1667635   (125373) от 28.12.2023
+
+Я выживу с помощью зелий! | Potion-danomi de Ikinobimasu! | I Shall Survive Using Potions! [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Нагасэ Каору, молодая офисная работница, неожиданно умерла из-за искажения пространства-времени. Представитель высшей расы, который оказался виноват в её смерти, решил загладить свои вину и отправить её в другой мир, наделив девушку молодым 15-летним телом и читерской способностью: варить невероятно мощные зелья! Но жизнь в ином мире оказалась совсем не такой, какой (   Читать дальше...   )Производство: Япония / Студия JumondouЖанр: Комедия, фэнтезиРежиссер: Наканиси НобуакиЯзык озвучки: Русский двухголосый, закадровый; Японский
+- Ditaro, Hekomi (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71A4CF7B83E988FC8E58FE2E8B27300BE1E7B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688265   (125344) от 28.12.2023
+
+Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Сила святых вокруг нас [ТВ-1] [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь — Сэй! Двадцати с хвостиком летняя трудоголичка и просто офисная работница. Одной прекрасной ночью, когда она вернулась с очередных сверхурочных, её опутал тёплый и яркий свет. Девушку призвали в другой мир, чтобы она стала святой… Однако ж, жертвой столь вероломного «похищения» оказалась не только она! Вместе с Сэй призвали ещё и старшеклассницу, которая (   Читать дальше...   )Производство: студия Diomedea / ディオメディアЖанр: повседневность, романтика, фэнтезиРежиссер: Ибата СётаЯзык озвучки: Японский, русский (AniLibria, Wakanim)Субтитры: Русские (Wakanim)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD5ABA322D46C57CA8DE8594541BC22B45C325A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688274   (125342) от 28.12.2023
+
+Наш дождливый протокол | Bokura no Ame-iro Protocol | Protocol: Rain [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шун Токиноя — ученик старшей школы, живущий со своей матерью и младшей сестрой. После несчастного случая, в котором погиб его отец и была ранена сестра, он решил завязать с любимой игрой и начал работать в киберспортивное кафе "Фокс Ван". Всё своё время он стал проводить за учебой и работой, изредка общаясь со своими друзьями по играм. Но всё меняется, (   Читать дальше...   )Производство: Япония / Студия QuadЖанр: ПриключенияРежиссер: Ямамото ЯсутакаЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Anzen, HectoR, NeoNoir (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9232AAC99A4604DC3E096223ABB6004F7270853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668560   (125278) от 29.12.2023
 
 Смертельная игра мёртвой горы [ТВ-1, часть 2] | Dead Mount Death Play (2023) [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +86,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -143,7 +223,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +250,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +276,7 @@ TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не мо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +303,7 @@ Hikikomari Kyuuketsuki no Monmon | Зaбoты пpинцeccы вaмпиpoв–xи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -276,7 +356,7 @@ Scott Pilgrim Takes Off | Скотт Пилигрим жмёт на газ [2023
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -302,7 +382,7 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +408,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +434,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Mi | Эта глупая свин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +460,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +486,7 @@ Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Ата
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +512,7 @@ Shingeki no Kyojin: The Final Season (2022) | Attack on Titan The Final Season (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +538,7 @@ Huo Feng Liao Yuan | The Ravages of Time | Огненный феникс опа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +564,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, TV, 25 из 25] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +668,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,85 +679,6 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:929AAA8277D89AFA8D873AFFB2E535381146535E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696071   (119846) от 01.02.2024
-
-Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин цветок [2017, Movie] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скучные каникулы в глухой деревне кажутся юной Мэри сущим наказанием. Но в последнюю неделю лета всё внезапно меняется. Нечаянная находка - дивный цветок - уносит Мэри в далёкое зачарованное царство, в мир, полный невероятных приключений и завораживающих чудес. И этому миру грозит опасность! Вместе с чёрным котом, соседским мальчиком-забиякой и маленькой волшебной (   Читать дальше...   )Производство: Япония, Studio PonocЖанр: приключения, фэнтези, экранизацияРежиссер: Хиромаса ЁнэбаясиПеревод: субтитры от Shift & BBNG & suffering pain
-переводчик: Zottig, редакторы: Seiya, suffa, oформление: DeadMouseЯзык озвучки: Японский, русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E13BE2DEE4978B07A29DDBCF3EA45EB4C16C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687447   (119239) от 05.02.2024
-
-Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация безработного [ТВ-2, часть 1] [2023, TV, 13 из 13] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119239.jpg" />
-</div>
-
-
-###  Подробнее
-
-34-летнего безработного хикикомори выгнала из дома родня после смерти его родителей. Всеми отвергнутый и без гроша в кармане он понимает, что зашёл в тупик и что его жизнь могла бы быть намного лучше, сделай он другой выбор в прошлом. Как раз во время этих размышлений он видит грузовик, несущийся на высокой скорости прямо на трёх школьников. Герой из последних сил (   Читать дальше...   )Производство: студия Studio Bind / スタジオバインドЖанр: приключения, фэнтезиРежиссер: Хирано ХирокиЯзык озвучки: Японский, русский (AniLibria, Crunchyroll, JAM Club, Studio Band)Субтитры: Русские (Crunchyroll, Alvakarp)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B9195DA63483C190A31267E357AFA9DC846DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696503   (119131) от 05.02.2024
-
-Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некогда великое существо создало этот мир для огромных зверей. Однако люди отвоевали себе место под солнцем, за что звери на них и обозлились. Между последними и человеческим родом случилась настоящая война. В эпоху магии и меча, люди призывают на помощь ками, которые помогают им в этой борьбе. К тому же, как оказалось из трупов зверей добываются ресурсы из-за чего (   Читать дальше...   )Производство: Япония, Asahi ProductionЖанр: приключения, фэнтезиРежиссер: Огуро АкираПеревод: kataneerЯзык озвучки: русский, японскийСубтитры: РусскиеПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA67BA7B3458A6A00D9A1CFE6D17704EF09DFDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

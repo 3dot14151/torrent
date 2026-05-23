@@ -1,3 +1,89 @@
+###  Публикация: 1601748   (211014) от 02.01.2023
+
+Gloria Estefan - Greatest Hits (1992) 2002 remix [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Latin, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В 1984 году Глория Эстефан стала солисткой группы Miami Sound Machine. К 1987 году, после того, как их первый альбом в США стал хитовым, они стали называться Gloria Estefan и Miami Sound Machine, а к 1989 году, после еще большего успеха, все это стало просто Gloria Estefan. Сборник хитов охватывает период с 1985 по 1992 год и включает в себя большинство композиций, (   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703EAE6D0E8F69C68F70A2DAEB72042F532148DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641447   (210780) от 22.06.2023
+
+А. Журбин, Ю. Димитрин - Орфей и Эвридика. Зонг-опера в 2х частях (1980) Box Set, 2LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock-Opera, Modern>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+A1 Орфей полюбил Эвридику…
+A2 Первый дуэт Орфея и Эвридики и песня Орфея («Когда поет Орфей»)
+A3 Хор вестников («Близится, близится…»)
+A4 Сцена прощания(   Читать дальше...   )Жанр: Rock-Opera, ModernПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641848   (210672) от 24.06.2023
+
+Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Discrete 6.1 CD-DA|44.1/24|image+.cue|BD-Audio] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Ну вот, и еще одно юбилейное издание "властителей музыкальных дум" 80-х вышло. На этот раз, KISS. Что тут сказать? В те годы довольно прохладно к ним относился. Для меня рулили Пёпл, Хип. Но услышав Династию, мнение изменил.
+Для моих ровесников - Ночные Твари - в многоканале!))
+Про желательность наличия заднего центра не забываем01. Creatures Of The Night
+02. Saint And Sinner
+03. Keep Me Comin’
+04. Rock And Roll Hell(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695242D560B937D657DE3853DCA81FF126D29FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641932   (210633) от 25.06.2023
 
 Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-DA|44.1/24|image+.cue|Audio-DVD] <Electronic, Pop>
@@ -6,7 +92,7 @@ Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +121,7 @@ Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD6
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -64,7 +150,7 @@ Paul McCartney – The McCartney Years (2007) 2 discs [DTS 5.1 CD-DA|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -93,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -122,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +237,7 @@ VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +266,7 @@ Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -209,7 +295,7 @@ Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -238,7 +324,7 @@ Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic R
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -264,7 +350,7 @@ Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +379,7 @@ BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -321,7 +407,7 @@ Amanda Marshall - Everybody’s Got A Story (2001) 2002 [DTS 5.1 CD-DA|44.1/16|i
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +433,7 @@ Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +462,7 @@ VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -405,7 +491,7 @@ VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -434,7 +520,7 @@ Blackmore's Night - Дискография (13 albums) (1997-2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -464,7 +550,7 @@ Megadeth - Дискография (23 releases) (1985-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -494,7 +580,7 @@ Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unoffici
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -523,7 +609,7 @@ VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +638,7 @@ VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -581,7 +667,7 @@ Sarah Brightman & The London Symphony Orchestra – Time To Say Goodbye (1997) 2
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -607,7 +693,7 @@ Pink Floyd - Animals (2018 Remix) (1977) Reissue, 2022, Analogue Productions  [D
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -636,7 +722,7 @@ Queen - Greatest Hits (1990) Мелодия, по лицензии EMI Records L
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -650,94 +736,6 @@ A4 Fat Bottomed Girls(   Читать дальше...   )Жанр: Classic Rock�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D7A6F02FA2D385BE5FCA924FA8301394EB6752E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616772   (207230) от 03.08.2023
-
-Immortal - Studio Albums (8 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Immortal — блэк-метал-группа из Норвегии. Коллектив образовался после распада дэт-метал-группы Amputation в 1991 году.
-Ранние полноформатные релизы Immortal были выполнены в традиционном для блэк-метала стиле, но альбом At the Heart of Winter показал, что группа начала экспериментировать на стыке блэк-метала и немецкой школы трэш-метала. Immortal оказали большое (   Читать дальше...   )1995 - Battles In The North
-1997 - Blizzard Beasts
-1999 - At the Heart of Winter
-2000 - Damned in BlackЖанр: Black MetalПродолжительность: 05:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504D540E874F75669070C2045EE6AB1C902C5D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612594   (207094) от 17.02.2023
-
-ВИА Синяя птица - Коллекция (1977-1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207094.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Мамина Пластинка
-A2 Первая Любовь
-A3 Не Обижайся
-A4 Жасмин(   Читать дальше...   )Жанр: Pop RockПродолжительность: 04:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54016146C4B7B40ACA8DA37774976200B0234EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183813   (206927) от 06.08.2023
-
-Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01 Atomic
- 02 Some Other Place, Some Other Time
- 03 Star Vision(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
 ```
 
 https://mybot314.ru/tekegram_catalog/

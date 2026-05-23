@@ -1,3 +1,82 @@
+###  Публикация: 623656   (954808) от 26.02.2013
+
+Ральф / Wreck-It Ralph (2012) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ральф — второстепенный персонаж восьмибитовой компьютерной игры, и ему надоело находиться в тени главного героя, мастера на все руки Феликса, который всегда появляется, чтобы «исправить» ситуацию! После десяти лет добросовестной работы в роли злодея, в течение которых все похвалы выпадали на долю Феликса, Ральф больше не хочет быть плохим. Он решает отправиться в (   Читать дальше...   )Производство: США / Walt Disney Animation StudiosЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Рич МурАктеры: Джон Си Райли, Джек МакБрайер, Сара Силверман, Джейн Линч, Алан Тьюдик, Адам Каролла, Минди Калинг, Джо Ло Труглио, Эд О’Нил, Деннис ХейсбёртПеревод: ДублированныйСубтитры: Русские/АнглийскиеПродолжительность: 01:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1F00F03453BA6DF42177554C1D57D56D7DF282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857253   (954544) от 07.01.2015
+
+Книга жизни / The Book of Life (2014) BDRip   [1080p] [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Романтическая история любви на фоне празднования Дня мертвых в Мексике.
+Тореадор Маноло разрываясь между ожиданиями его семьи и зовом сердца, пускается в приключение, которое охватывает три фантастических мирах, где он должен встретиться со своими страхамиПроизводство: США | Reel FX Animation Studios, Twentieth Century Fox, ChatroneЖанр: мультфильм, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Хорхе Р. ГутьерресПеревод: ОтсутствуетПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBFFBB59279D89D8053D7A7AAFA8B7E50813E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980907   (953964) от 30.01.2016
+
+Маленький принц / The Little Prince (2015) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мир невозможен без фантазии и приключений. По крайней мере в это верит добродушный старик авиатор, по соседству с которым недавно поселилась одна очень педантичная мама со своей прилежной дочкой. Жизнь девочки подчинена строгому учебному плану, в котором время на друзей предусмотрено только следующим летом. Однако этот тщательно выстроенный план трещит по швам, когда (   Читать дальше...   )Производство: Франция |  Onyx Films, Orange Studio, On EntertainmentЖанр: мультфильм, фэнтезиРежиссер: Марк ОсборнПеревод: Дублированный (iTunes)Язык субтитров: Русский (форсированные и полные)Продолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4139358CBAE505EB1447B5081150C249B75AD9E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 749913   (952505) от 26.01.2014
 
 Лига справедливости: Война / Justice League: War (2014) WEB-DLRip [720p] [VO]
@@ -6,7 +85,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -597,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD7C070EF78A3A90D1933FDA5ED12C7C67E4D717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625155   (946781) от 03.03.2013
-
-Ральф / Wreck-It Ralph (2012) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ральф — второстепенный персонаж восьмибитной компьютерной игры, и ему надоело находиться в тени главного героя, мастера на все руки Феликса, который всегда появляется, чтобы «исправить» ситуацию! После тридцати лет добросовестной работы в роли злодея, в течение которых все похвалы выпадали на долю Феликса, Ральф больше не хочет быть плохим. Он решает отправиться (   Читать дальше...   )Производство: Walt Disney Animation Studios |США|Жанр: Мультфильм, комедия, приключения, семейныйРежиссер: Рич МурПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2695342ADE0AAC85F9D2A7DD6068E70C7F2DFD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750663   (946186) от 30.01.2014
-
-Лига справедливости: Война / Justice League: War (2014) WEB-DLRip [H.264/1080p] [VO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм повествует о начале возникновения Лиги справедливости. В Готэм-сити загадочным образом исчезают люди, в этом винят Бэтмена. Люди считают, что он похищает людей и пьет их кровь. Зеленый Фонарь, дабы покарать виновника похищения, направляется в Готем и встречает там Бэтмена, но под личиной летучей мыши оказывается инопланетный высокотехнологичный робот. (   Читать дальше...   )Жанр: комикс, мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Джей ОливаПерсонажи: Мишель Монахэн, Алан Тьюдик, Шон Эстин, Шемар Мур, Джастин Кирк, Кристофер Горам, Джейсон О’Мара, Джордж Ньюберн, Стивен Блум, Брюс ТомасПеревод: Одноголосый закадровый, любительский HronosСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FD0E4C552A4A124A85499960E3712ADB5126FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751384   (945933) от 30.01.2014
-
-Индюки: Назад в будущее / Free Birds (2013) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индюк Реджи вырос на обычной ферме, его жизнь была скучной и однообразной, как и у других птиц. Однако он отличался от сородичей тем, что умел пользоваться смекалкой и понимал, зачем его кормят. Поедание индейки на День Благодарения — знаменитая американская традиция, которая определяет смысл существования всех индюков на этой ферме. Однажды у Реджи появилась возможность (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, Комедия, Приключения,СемейныйРежиссер: Джимми ХейуордАктеры: Оуэн Уилсон, Вуди Харрельсон, Эми Полер, Джордж Такей, Колм Мини, Кит Дэвид, Дэн Фоглер, Джимми Хейуорд, Кейтлин Мехер, Карлос АласракиПеревод: Дублированный | , ЛицензияСубтитры: Вшитые ОтключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE837D317F88246F77309C07F396CB1698419C07
 ```
 
 https://mybot314.ru/tekegram_catalog/

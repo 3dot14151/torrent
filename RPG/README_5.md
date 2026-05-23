@@ -1,3 +1,81 @@
+###  Публикация: 1618714   (1033815) от 12.03.2023
+
+Wasteland 2: Director's Cut (2014) [Ru/Multi] (2.3.0.5(a)) License GOG [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+События второй части перемещают нас в пост-апокалиптический мир, где две державы - США и СССР начали Третью Мировую Войну, используя атомные бомбы. Лидер одной из крупнейших группировок - Пустынные Рейнджеры - генерал Варгас, который спас пустошь от искусственного интеллекта в первой части Wasteland 2: Director's Cut, слышит радиопередачи, в которых говорится об (   Читать дальше...   )Тип издания: LicenseРазработчик: inXile EntertainmentЖанр: RPG, Adventure, Sci-fiЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27772993A21743609950C2ABF3F2AB135C574ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611405   (1033808) от 12.03.2023
+
+Sunrider 4: The Captain's Return (2023) [En] (1.2.0.2) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Капитан Кайто Шилдс возвращается из изгнания в "Санрайдере 4: Возвращение капитана" для нового космического приключения! Долгожданный сиквел "Санрайдер: День освобождения", "Возвращение капитана" - потрясающее продолжение саги "Санрайдер", в котором Асага, Ава, Сола, Икари, Клод и другие бывшие члены экипажа "Санрайдера" (   Читать дальше...   )Тип издания: LicenseРазработчик: Love in SpaceЖанр: Ролевая игра, Тактическая, Визуальные новеллыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FABD1B3DEC92AF51B45C5B649A68EB7B9213361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355722   (1033804) от 12.03.2023
+
+Vampire: The Masquerade - Coteries of New York (2019) [Ru/Multi] (1.0.12) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Vampire: Masquerade - Coteries of New York представляет конфликт между двумя вампирическими фракциями: традиционалистом Камарильей и независимыми Анархами посреди знакомых декораций и ночных огней Большого яблока. Уникальный атмосферный геймплей для одного игрока, созданный в богатой, лицензированной и всемирно признанной вселенной Vampire: The Masquerade 5th Edition.Тип издания: LicenseРазработчик: Draw DistanceЖанр: Ролевая игра, Экшны, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Китайский и другиеЯзык интерфейса: Русский, Английский, Французский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEB68439652F4D8BC11BB0B65EF4C75DE99DE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428531   (1032605) от 09.02.2021
 
 Empire of Sin (2020) [Ru/Multi] (1.03/dlc) Repack xatab [Deluxe Edition]
@@ -6,7 +84,7 @@ Empire of Sin (2020) [Ru/Multi] (1.03/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Windbound (2020) [Ru/Multi] (1.3.40746.183/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ WILD HEARTS (2023) [Multi] (1.1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Immortals: Fenyx Rising (2020) [Ru/Multi] (1.1.1) License EMPRESS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Disco Elysium (2019) [Ru/Multi] (8487d973) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (60323/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Dead Age 2 (2021) [Ru/Multi] (1.0.0) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Vampire: The Masquerade - Coteries of New York (2019) [Ru/Multi] (1.0.9) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Atelier Ryza: Ever Darkness & the Secret Hideout (2019) [Multi] (1.08/dlc) Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Nioh 2 (2021) [Ru/Multi] (1.26.00/dlc) Repack xatab [The Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Dungeon Defenders: Awakened (2020) [Ru/Multi] (1.3.0.23136) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Loop Hero (2021) [Ru/Multi] (1.012) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +527,7 @@ Kingdom Hearts III (3) and Re Mind (2021) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +553,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (1.2) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +579,7 @@ Loop Hero (2021) [Ru/Multi] (1.0.12) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +605,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.16-20.12.11/dlc) License GOG [Slayer E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +631,7 @@ Demon Skin (2021) [Ru/Multi] (0.9031) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,7 +657,7 @@ The Elder Scrolls IV: Oblivion (2007) [En] (1.2.0416 CS/dlc) License GOG [Game o
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,84 +668,6 @@ The Elder Scrolls IV: Oblivion Game of the Year Edition является одн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D845F363C3B1FCAA2E103EC6192C19B6EBC8673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136196   (1016623) от 10.05.2021
-
-The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.1.0b) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хватайте оружие и отправляйтесь на поиски невероятных приключений в стиле готического нуара: в мире Борговии безумная наука угрожает хрупкому равновесию между людьми и монстрами. Вместе со своей очаровательной спутницей, леди Катариной (вернее, ее призраком), вы должны спасти положение! Исследуйте пустоши и мрачные кварталы мегаполиса, исковерканного безумной наукой, (   Читать дальше...   )Тип издания: LicenseРазработчик: NeocoreGamesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C82CBB9DB93E3AE4606AC93A75BDDEC5F9662AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472141   (1014417) от 24.05.2021
-
-Nox Archaist (2021) [En] (1.1.4e) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nox Archaist - восьмибитное приключение, создано по канонам классики 80-х, типа Ultima. Возьмите под свое управление небольшую группу смельчаков и совершите путешествие по Царству. Исследуйте данжи, посещайте города и замки, общайтесь с многочисленными NPC, а также сражайтесь с разнообразными монстрами, спасая мир от нависшей угрозы. Игра выполнена по всем канонам (   Читать дальше...   )Тип издания: LicenseРазработчик: 6502 WorkshopЖанр: RPG, AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA436C3CBB0E0D36BC92A7927DA9B3B2AADDB8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472447   (1014276) от 25.05.2021
-
-Ark of Artemis (2021) [Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полгода прошло с тех пор, как ангелы уничтожили мир —— Получив письмо из Рыцарского Ордена, Клаудиа решила отправиться на Демонический континент (Континент демонов, как вариант), но по пути была атакована ангелами. Получив силу божественного оружия, она смогла отразить нападение. По воле случая она натыкается на заточённого во льду зверя, из-за чего начинается череда (   Читать дальше...   )Тип издания: LicenseРазработчик: Kujirabo。Жанр: Adventure, Indie, RPGЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF71292FF55B87C01C8EECB0BAE666319D6D051
 ```
 
 https://mybot314.ru/tekegram_catalog/

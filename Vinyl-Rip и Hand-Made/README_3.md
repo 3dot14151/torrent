@@ -1,3 +1,351 @@
+###  Публикация: 1849002   (1053149) от 20.01.2026
+
+Pink Floyd - Animals (2016) Reissue, Remastered, Records 1977 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Pigs On The Wing (Part One)
+A2 Dogs
+B1 Pigs (Three Different Ones)
+B2 Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Prog RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304FB3254AA568F969537BC00D26F18CEA4B254B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848729   (1052908) от 18.01.2026
+
+The Musicmakers - Party Sing-Along - 20 All Time Greats (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 For Me And My Gal
+A2 Shine On Harvest Moon
+A3 By The Light Of The Silvery Moon
+A4 The Yellow Rose Of Texas(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF191AEEF168D6CD3F25ACFEACEC26034A7DAB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848629   (1052907) от 18.01.2026
+
+Mario Lanza - Mario Lanza Sings Caruso  Favorites (1960) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Light Music>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Vieni Sul Mar
+A2 Senza Nisciuno
+A3 Musica Probita
+A4 Vaghissima Sembianza(   Читать дальше...   )Жанр: Classical, Light MusicПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0086FC9B535DD7B2ADD5FCB8C19F5145030CD0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848620   (1052906) от 18.01.2026
+
+Gene Pitney - The Many Sides Of Gene Pitney (1962) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Town Without Pity
+A2 I Wanna Love My Life Away
+A3 I Laughed So Hard I Cried
+A4 Dream For Sale(   Читать дальше...   )Жанр: Pop Rock, Rock & RollПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8C53AD18B67ED9DF88C10D936186AA13DB730C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848200   (1052813) от 16.01.2026
+
+VA - Red-Hot Victor : 20 American Country Chart Hits (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Willie Nelson - If You Can Touch Her At All
+A2 Dottsy - Here In Love
+A3 Tom T. Hall - May The Force Be With You Always
+A4 Jerry Reed & Seidina - You Know What(   Читать дальше...   )Жанр: CountryПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6349FB45704E0290FB1A3A68B2143FFE5623752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848416   (1052661) от 17.01.2026
+
+Diana Ross - 20 Golden Greats (1979) FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Theme From Mahogany (Do You Know Where You're Going To?)
+A2 Touch Me In The Morning
+A3 Stop, Look, Listen (To Your Heart)
+A4 No One Gets The Prize(   Читать дальше...   )Жанр: Soul, DiscoПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721615A9274E06B1F61E1083D7F2C054BB7526E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848182   (1052539) от 16.01.2026
+
+Frank Sinatra - Swing Easy! (1959) Reissue. Records 1954 [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Just One Of Those Things
+A2 I'm Gonna Sit Right Down And Write Myself A Letter
+A3 Sunday
+A4 Wrap Your Troubles In Dreams(   Читать дальше...   )Жанр: Jazz, Pop, SwingПродолжительность: 00:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBB73BA74D4BA55089CBD86B0BA6D53CD03A3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848181   (1052538) от 16.01.2026
+
+VA - Guardians Of The Galaxy. Awesome Mix Vol. 1 & Vol. 2 (2017) Deluxe Vinyl Edition, Songs From The Motion Picture Original Score By Tyler Bates [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundt ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+Awesome Mix Vol. 1
+01. Blue Swede - Hooked On A Feeling
+02. Raspberries - Go All The Way(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671C7A96701D9AFFBDA1B76DD8C36C2BF1A1A4B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848186   (1052534) от 16.01.2026
+
+Frank Sinatra - Songs For Young Lovers (1959) Reissue, Records 1954 [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 My Funny Valentine
+A2 The Girl Next Door
+A3 A Foggy Day
+A4 Like Someone In Love(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CB6632FFC71BFB3AF7A3DEB9847F62D32766F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848196   (1052525) от 16.01.2026
+
+Frank Sinatra - This Is Sinatra! (1956) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 I've Got The World On A String
+A2 Three Coins In The Fountain
+A3 Love And Marriage
+A4 From Here To Eternity(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C1A143686C134759EE47E8E8DAEF9513D778E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848192   (1052524) от 16.01.2026
+
+Frank Sinatra - Sunday And Every Day With Frank Sinatra (1969) Music For Pleasure Series [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+A1 Sunday
+A2 I'll Never BeThe Same
+A3 Tell Her You Love Her
+A4 Close To You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E33C86D8602B02C22B53B6A53C593245AFB5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847962   (1052388) от 15.01.2026
+
+Dust In Mind - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial, Melodic Death Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Dust In Mind - французская рок-группа из Страсбурга, основана в 2013 году2013 - Dust in Mind (EP)
+2015 - Never Look Back
+2017 - Oblivion
+2018 - From Ashes to FlamesЖанр: Industrial, Melodic Death Metal, Nu MetalПродолжительность: 03:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847782   (1052312) от 14.01.2026
 
 Vermocracy - Studio Albums (3 releases) (2020-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -6,7 +354,7 @@ Vermocracy - Studio Albums (3 releases) (2020-2026) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +382,7 @@ Destroy Them - Studio Albums (2 releases) (2018-2026) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +409,7 @@ Velozza - Studio Albums (4 releases) (2017-2026) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -90,7 +438,7 @@ For My Pain... - Studio Albums (2 releases) (2009-2026) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -117,7 +465,7 @@ Dew-Scented - Studio Albums (11 releases) (1996-2015) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -146,7 +494,7 @@ Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -175,7 +523,7 @@ Miss May I - Studio Albums (9 releases) (2007-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -204,7 +552,7 @@ Sinamore - Studio Albums (2 releases) (2006-2007) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -231,7 +579,7 @@ End of Aeon - Studio Albums (2 releases) (2012-2016) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -258,7 +606,7 @@ Kaunis Kuolematon - Studio Albums (5 releases) (2014-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -287,7 +635,7 @@ Bloodbath - Studio Albums (6 releases) (2002-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -316,7 +664,7 @@ Carpenters - The Singles 1969-1973 (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +693,7 @@ ABBA - The Visitors (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +722,7 @@ Dreamscape - Studio Albums (5 releases) (1997-2012) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -388,354 +736,6 @@ Dreamscape - прогрессив-метал группа из Мюнхена (�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E3CCE75A97E5B4952BB65ED267843CBCAFFE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844277   (1049827) от 25.12.2025
-
-Dreamshade - Studio Albums (5 releases) (2008-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamshade - группа была образована в 2006 году в Лугано, Швейцария. С момента своего создания они никогда не были обычной метал-группой. Их сочетание мелодичности, тяжести и воодушевляющих текстов привлекло внимание современной рок-, метал- и хардкор-сцены.2008 - To The Edge Of Reality
-2011 - What Silence Hides
-2013 - The Gift Of Life
-2016 - VibrantЖанр: Melodic Death Metal, MetalcoreПродолжительность: 03:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7624C1DB80FA39630AA2E41B948FDD0EBFE2C8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843988   (1049800) от 23.12.2025
-
-ABBA - The Best Of ABBA 1972-1981 (1982) 5LP Box Set [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Record 1
-A1 Waterloo
-A2 Voulez-Vous
-A3 Tropical Loveland(   Читать дальше...   )Жанр: EuropopПродолжительность: 04:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81C9135311B9E0D07673FAB4B2608C002284F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843977   (1049799) от 23.12.2025
-
-Orange Goblin - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orange Goblin — британская хэви-метал/стоунер-рок группа, основанная в 1995 году в Лондоне.1997 - Frequencies From Planet Ten
-1998 - Time Travelling Blues
-2000 - The Big Black
-2002 - Coup De GraceЖанр: Stoner MetalПродолжительность: 08:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9C4A014E18603E0FC395CB55632C999C6E724E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843047   (1048973) от 18.12.2025
-
-Vhaldemar (Vhäldemar) - Studio Albums (7 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vhäldemar - испанская пауэр-метал группа, образованная в 1999 году.2002 - Fight To The End
-2003 - I Made My Own Hell
-2011 - Metal Of The World
-2013 - Shadows Of CombatЖанр: Power MetalПродолжительность: 05:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBB60D2E8EE486F2A1A58ACEAAB54B245947BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842323   (1048714) от 15.12.2025
-
-The Shadows - The Shadows' Greatest Hits (1963) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Rock, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048714.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Apache
-A2 Man Of Mystery
-A3 The Stranger
-A4 F.B.I.(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97944095D9A79D553658B394934C60ABF17DF83D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842297   (1048636) от 15.12.2025
-
-At Vance - Studio Albums (9 releases) (1999-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048636.jpg" />
-</div>
-
-
-###  Подробнее
-
-At Vance — немецкая метал-группа, созданная в 1998 году вокалистом Оливером Хартманном и гитаристом Олафом Ленком.1999 - No Escape
-2000 - Heart of Steel
-2001 - Dragonchaser
-2002 - Only HumanЖанр: Neoclassical/Power MetalПродолжительность: 08:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8AF25AD78217D5C9BD99141B8F7DE3ADD22B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841130   (1047754) от 09.12.2025
-
-VA - The Most Collection. Volume 2 (1971) Compilation, Dutch Pressing [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country Rock, Folk Rock, Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047754.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 New World - Tom Tom Turnaround
-A2 Peter Noone - Oh You Pretty Things
-A3 Lulu - The Boat That I Row
-A4 Hot Chocolate - Love Is Life(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Pop Rock, Soft RockПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4FC91550A2A1F1BCD9C62F9D9182EF3A45201E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840951   (1047681) от 08.12.2025
-
-Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Senpais - метал-группа из Берлина, Германия, основана в 2018 году.2020 - Senpais
-2022 - Embers of Eternity (EP)
-2023 - Pandemonium (EP)
-2025 - By All MeansЖанр: Melodic Death MetalПродолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFD1645E841C43834A15436BEC27010E06FA8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840956   (1047680) от 08.12.2025
-
-Triskelyon - Studio Albums (3 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triskelyon - канадский трэш-метал проект, созданный Джеффом Уэйем в 2021 году..
-2022 - Downfall
-2023 - Artificial Insanity
-2025 - Maelstrom Of ChaosЖанр: Thrash MetalПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840349   (1047282) от 04.12.2025
-
-VA - Believe In Music. 20 Original Hits 20 Original Stars (1972) Series: 20 Original Hits 20 Original Stars [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047282.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Faces - Stay With Me
-A2 O'Jays - Backstabbers
-A3 Free - All Right Now
-A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840151   (1047159) от 03.12.2025
-
-VA - Britain's Hot 12 (Vocal), Vol. 6 (1971) Series: Britain's Hot 12 [[FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047159.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ted Pelkins - Another Time, Another Place
-A2 Sweet Cream - I Believe (In Love)
-A3 Ted Jenniff - Maggie May
-A4 Street Crew - Tweedle Dee - Tweedle Dum(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAE29039F315E65988930F0E8E29278EC37262D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840150   (1047157) от 04.12.2025
-
-VA - Britain's Hot 12. Vocal (1970) Series: Britain's Hot 12 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047157.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 E. K. Boone - Raindrops Keep Fallin' On My Head
-A2 Firerain - Young, Gifted And Black
-A3 The Olympics - Come And Get It
-A4 Danny Field's Corp. - I Can't Tell The Bottom From The Topa(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC382EC4BAA9CAAB71E519D9524506861127FA39
 ```
 
 https://mybot314.ru/tekegram_catalog/

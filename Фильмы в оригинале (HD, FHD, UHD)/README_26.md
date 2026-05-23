@@ -1,3 +1,81 @@
+###  Публикация: 1224111   (665874) от 10.05.2018
+
+Входящий / Incoming (2018) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Международная космическая станция превратилась в секретную тюрьму, из которой никто не выходит, и никто не знает, что именно там происходит. Когда заключенные террористы захватывают станцию ​​и направляют ее на Москву, только пилот и новичок-доктор могут остановить их. Эта задача усложняется бывшим агентом ЦРУ, у которого свои планы и на станцию, и на (   Читать дальше...   )Производство: Сербия, Benattar/Thomas Productions, Incoming Productions, Premiere Entertainment GroupЖанр: Боевик, Фантастика, ТриллерРежиссер: Эрик СарагосаАктеры: Скотт Эдкинс, Доминик Пауэр, Аарон МакКаскер, Алаа Умузун, Арки Аломар, Лукас Лоугрэн, Michelle Lehane, Миодраг Капор, Владан Дужович, Vahidin Prelic ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D833D64B663E73993650FC750A3F175C159B050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 900740   (665288) от 24.05.2015
+
+Воспоминания о будущем / Testament of Youth  (2014) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юность, мечты, первая любовь... Все разрушила война. Ее брат, возлюбленный и близкие друзья погибли. Теперь никто не сможет быть прежним. Но в своих книгах она будет писать только о счастье, любви и надежде.Производство: ВеликобританияЖанр: драма, военный, биография, историяРежиссер: Джеймс КентАктеры: Алисия Викандер, Кит Харингтон, Эмили Уотсон, Хейли Этвелл, Колин Морган, Доминик Уэст, Миранда Ричардсон, Джорджина Беннетт, Эмили Беван, Анна Чэнселлор, Тереза ЧёрчерПеревод: ОтсутствуетЯзык субтитров: английскийПродолжительность: 02:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A144A25BFC1DB136FA3F4A06132449127618253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137949   (665126) от 28.05.2017
+
+Т2 Трейнспоттинг (На игле 2) / T2 Trainspotting  (2017) BDRemux [H.264/1080p] [EN / Rus and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прошло двадцать лет. Рентон возвращается в единственное место, которое может считать своим домом. Они все ждут его: Кочерыжка, Кайфолом и Бегби. А вместе с ними другие старые знакомые: месть и страх, ненависть и любовь, дружба, сожаление и надежда. Все они выстроились в шеренгу, приветствуя Рентона, и он, кажется, готов к ним присоединиться.Производство: ВеликобританияЖанр: драмаРежиссер: Дэнни БойлАктеры: Юэн МакГрегор, Юэн Бремнер, Джонни Ли Миллер, Роберт Карлайл, Кевин МакКидд, Кайл Фицпатрик, Келли Макдоналд, Анжела Недялкова, Полин Линч, Джеймс Космо, Айлин Николас, Ширли ХендерсонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: русские, украинские, английские, датские, эстонские, финские, немецкие, латвийские, литовские, норвежские, шведские, турецкиеПродолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B742B8AFFAFE95802B209CF76AC3F3C78D09B1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224719   (664718) от 11.05.2018
 
 В погоне за драконами / Chui lung / Chasing the Dragon (2017) BDRip [H.264/1080p] [EN, CHI / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3935049936AD343A52CAE644B5C7C880F25C435D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226739   (653496) от 22.05.2018
-
-Аннигиляция / Annihilation  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653496.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Землю прилетает маленький метеорит и становится причиной больших перемен. Он врезается в одиноко стоящий маяк, что загадочным образом меняет территорию вокруг.
-Профессор биологии Лина уже год страдает от потери мужа-военного. Кейн отправился на очередное секретное задание, но так и не вернулся — жив ли, погиб — женщина не знает, пока однажды дезориентированный (   Читать дальше...   )Производство: Великобритания, США / DNA Films, Paramount Pictures, Scott Rudin Productions, Skydance MediaЖанр: ужасы, фантастика, фэнтези, триллерРежиссер: Алекс ГарлендАктеры: Натали Портман, Бенедикт Вонг, Соноя Мидзуно, Дэвид Гяси, Оскар Айзек, Джон Шваб, Дженнифер Джейсон Ли, Джина Родригез, Тува Новотны, Тесса Томпсон, Сэмми Хейман, Джош ДэнфордПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DA0D3B8B43286791B02F12BE43E9CDC9532401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140803   (651973) от 09.06.2017
-
-Уилсон / Wilson (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилсон — одинокий, невротичный и до забавного честный человек среднего возраста, он не любит людей, но обожает собак. Он воссоединяется со своей бывшей женой и получает невероятный заряд счастья, когда узнает, что у него есть дочь-подросток, которую он никогда не встречал. В своем уникально возмутительном и слегка вывернутом наизнанку путём, Уилсон устанавливает, (   Читать дальше...   )Производство: США, Ad Hominem EnterprisesЖанр: Комедия, ДрамаРежиссер: Крэйг ДжонсонАктеры: Вуди Харрельсон, Сэнди Оян, Шон Браун, Джеймс Роберт Миллер, Бретт Гельман, Мэри Линн Райскаб, Джуди Грир, Туссен Моррисон, Эндрю Хоутри, Ричард Оомс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58E46257564D38E56A28DF72BD703208D6218DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226972   (651657) от 23.05.2018
-
-Жажда смерти / Death Wish (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Керси — хирург, привыкший вытаскивать людей с того света после криминальных разборок. Но после того, как его жена и дочь становятся жертвами уличной банды, а полиция бездействует, он берет карающий меч правосудия в свои руки. Видео изобретательных убийств преступников покоряют интернет-топы, а среди жителей города расходятся слухи о неуловимом народном мстителе, (   Читать дальше...   )Производство: США, Cave 76, Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Криминал, Драма, ТриллерРежиссер: Элай РотАктеры: Брюс Уиллис, Винсент Д’Онофрио, Элизабет Шу, Камила Морроне, Дин Норрис, Бо Напп, Кимберли Элиз, Лен Кариу, Джек Кеси, Ронни Джин Блевинс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF12D87B9EAF8B6CEA9072C4621876755477B041
 ```
 
 https://mybot314.ru/tekegram_catalog/

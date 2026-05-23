@@ -1,3 +1,189 @@
+###  Публикация: 458167   (78394) от 25.02.2012
+
+NikitA - Машина (2009) HDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456559   (78214) от 24.02.2012
+
+Deep purple - Machine Head Live 1972 (1999) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456492   (78198) от 24.02.2012
+
+Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"The Ultimate Ozzy" записанно во время концертов американского тура в поддержку альбома "The Ultimate Sin",кстати,"разогревали" группу OZZY в том американском туре молодые "Metallica", которые очень понравились Осборну...Довольно редкое видео, молодой OZZY в свои самые лучшие времена.01. Shot In The Dark
+02. Bark At The Moon
+03. Suicide Solution
+04. Never Know Why
+05. Mr.Crowley
+06. I Don't Know
+07. Killer Of Giants
+08. Guitar Solo \Jake E.Lee\
+09. Thank God For The Bomb
+10. Lightning Strikes(   Читать дальше...   )Жанр: Hard Rock\MetalПродолжительность: 01:25:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455499   (78191) от 24.02.2012
+
+VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 Narcotic Sound and Christian D - Danca Bonito
+02 Blank And Jones feat Bobo - Perfect Silence
+03 NikitA - Bite
+04 David Deejay - Perfect 2
+05 Dj.Sava feat Andreea D and Yolo - Money Maker
+06 Klaas and Bodybangers - Freak
+07 Dev - In The Dark
+08 Outwork feat Mr. Gee - Elektro
+09 Dj.Flower - Jamaican Love
+10 Heaven feat Glance - Sexy Girl(   Читать дальше...   )Жанр: VariousПродолжительность: ~01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DC6C6C973B99AE17476F4B83332ACE0159ABB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455702   (77580) от 21.02.2012
+
+Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Концерт в аудитории Стравинского на  Jazzfestival Montreux 2011 известного гитариста Lee Ritenour и американского пианиста, композитора, аранжировщика Dave Grusin
+http://www.leeritenour.com/
+http://en.wikipedia.org/wiki/Lee_Ritenour
+http://en.wikipedia.org/wiki/Dave_GrusinЖанр: ДжазРежиссер: LEE RITENOURАктеры: LEE RITENOUR - Guitars ; DAVE GRUSIN - Piano, keyboard ; MELVIN DAVIS - Bass ; SONNY EMORY - DrumsПеревод: ОтсутствуетПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454797   (77221) от 19.02.2012
+
+Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Запись, пожалуй лучшего, концерта Адель "Live At The Royal Albert Hall" доступна на DVD и Blu-Ray. Включает полную 90-минутную версию концерта. Впервые все хиты Адель на одном диске.01. Hometown Glory
+ 02. I'll Be Waiting
+ 03. Don't You Remember
+ 04. Turning Tables
+ 05. Set Fire To The Rain
+ 06. If It Hadn't Been For Love
+ 07. My Same
+ 08. Take It All
+ 09. Rumour Has It
+ 10. Right As Rain(   Читать дальше...   )Жанр: Soul, Blues, VocalРежиссер: Paul DugdaleПеревод: ОтсутствуетПродолжительность: 1:41:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454641   (77184) от 19.02.2012
 
 Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
@@ -6,7 +192,7 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -96,7 +282,7 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -126,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_76803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -152,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -178,7 +364,7 @@ Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -204,7 +390,7 @@ Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -231,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -257,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -283,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -309,7 +495,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -335,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -361,7 +547,7 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -387,7 +573,7 @@ Nazareth - Live From Classic T Stage (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -413,7 +599,7 @@ Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -439,7 +625,7 @@ U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +686,7 @@ Peter Gabriel - New Blood (Live in London) (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +712,7 @@ Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -537,179 +723,6 @@ Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450670   (75469) от 11.02.2012
-
-Bad Company - Live At Wembley (2011) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Enough
-02. Honey Child
-03. Run With The Pack
-04. Burnin' Sky
-05. Young Blood
-06. Seagull
-07. Gone, Gone, Gone
-08. Electric Land
-09. Simple Man
-10. Feel Like Makin' Love(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449998   (75440) от 11.02.2012
-
-Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный альбом известного итальянского певца и композитора Eros Ramazzotti (полное имя: Эрос Лучано Валтер Рамаззотти Молина) "21.00: Eros Live World Tour 2009/2010", который был выпущен 30 ноября 2010 года.
-Данный альбом был записан Эросом Рамаццотти во время его мировых концертов, а также во время концертов 4 и 5 декабря 2009 года в Милане.
-Альбом (   Читать дальше...   )Релиз состоялся: 30.11.2010Жанр: POPРежиссер: Paolo ZambaldiПеревод: ОтсутствуетЯзык субтитров: итальянские, английские, испанские, французские, немецкиеПродолжительность: 01:57:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449688   (75328) от 10.02.2012
-
-Styx: The Grand Illusion/Pieces of Eight Live (2010/2012) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmed on November 9th, 2010 at the historic Orpheum Theater in Memphis, TN, this stunning show captures Styx performing their classic multi-platinum seventies albums The Grand Illusion and Pieces Of Eight live in their entirety for the first time. These iconic albums established Styx as a globally successful rock band and defined the AOR genre for a generation of (   Читать дальше...   )The Grand Illusion
-01. The Grand Illusion
-02. Fooling Yourself (Angry Young Man)
-03. Superstars(   Читать дальше...   )Жанр: RockСубтитры: Английские, немецкие, французские, испанскиеПродолжительность: 01:41:31+00:29:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449879   (75086) от 09.02.2012
-
-Поющие трусы - Девчонки русских олигархов (2012)[H.264/720p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFDD82D622AE3EA9B8AE817F39EC3572A5CADB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449524   (75046) от 09.02.2012
-
-Кремлёвские куранты (1967) SATRip (фильм-спектакль)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Историко-революционный, драма, фильм-спектакльРежиссер: Мария Кнебель, Иосиф РаевскийАктеры: Борис Смирнов, Василий Марков, Лев Золотухин, Борис Ливанов, Алла Тарасова, Маргарита Анастасьева, Дмитрий Шутов, Виктор Новосельский, Татьяна Забродина, Анастасия Зуева, Михаил Медведев, Зенон Смулко, Владимир Белокуров, Владимир Захаров, Валерия Дементьева, Евгения Ханаева, Мария Титова, Софья Гаррель, Юрий Недзвецкий, Владимир Кириллин, Владислав Буш, Владимир (   Читать дальше...   )Продолжительность: 02:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B63FD3514C34FBF8F06B1367738AE366B518E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448414   (74681) от 07.02.2012
-
-Van Canto - Клипы (2006-2011) DVDRip, WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74681.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 клиповKings of Metal (Official)
-Last Night of the Kings (Official)
-Magic Taborea (Official)
-Primo Victoria feat. Joakim Broden (Sabaton) Napalm Records(   Читать дальше...   )Формат: AVI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5FA095EB1E6BB65AC868C607A608046F1EC381
 ```
 
 https://mybot314.ru/tekegram_catalog/

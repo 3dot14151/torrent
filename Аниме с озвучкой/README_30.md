@@ -1,3 +1,112 @@
+###  Публикация: 1561668   (513325) от 06.07.2022
+
+О моём перерождении в слизь [ТВ-2] | Tensei Shitara Slime Datta Ken (2021) | That Time I Got Reincarnated as a Slime (2021) [2021, TV, 24 из 24] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сатору, перевоплотившийся после смерти в слизь в новом для себя мире, и известный теперь под именем Римуру, успел попутешествовать, найти множество друзей среди монстров и даже основать собственный город. Молва о новом правителе леса быстро распространилась и теперь короли людских наций обратили на него свои взоры. Появление нового игрока на политической карте неизбежно (   Читать дальше...   )Производство: Япония / Студия 8bitЖанр: Приключения, драма, комедия, фэнтези, экшенРежиссер: Накаяма АцусиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (SHIZA Project), Японский
+- Hekomi, Malevich(1-12), Ados(13-24) Sharon, Silv (AniLibria.TV)
+- Лизавета(12), Daelit, DroEd(16-24), Abe(13-24), Wozwald(15), Absentia(13-24)(SHIZA Project)Субтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 24 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99DDFAA6DD7FA97533291DA8FE86ACCA812FBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858832   (512485) от 25.08.2015
+
+Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x5(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Икэбукуро, один из самых веселых и опасных районов Большого Токио, живет по-прежнему – быстро, жестко и непринужденно. Это мир ярких огней, которые не мешают творить темные дела, мир равных возможностей, где бьют, не спрашивая паспорта, мир масок, где мало кто является тем, кем кажется. Иначе как дремучий провинциал смог поставить полгорода на уши, хрупкая певица (   Читать дальше...   )Жанр: приключенияРежиссер: Омори ТакахироПеревод: Русские субтитры от AleX_MytHСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E7D2C0068F12BC3D51FEB474D035B6C5AFC390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859188   (512481) от 25.08.2015
+
+Aldnoah.Zero / Алдноа.Зеро (ТВ-2) [2015, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x4(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Конфликт Земли и Версианской империи вступил в затяжную фазу. На деле противостояние не нужно обеим сторонам, но огонь войны раздувает часть имперской аристократии, опьяненная своим могуществом и кровной местью за понесенные ранее потери. Лидер «ястребов», граф Сазбаум, заручился даже поддержкой наследной принцессы Ассейлам, которую лично спас из лап земных дикарей, (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Аоки ЭйПеревод: Русские субтитры от Timecraft
+Переводчик/Оформление: SeeR, Редактор: AleX_MytHСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6BE7B7F74EB688D040DF0F1B21B730EC4B67BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376532   (509915) от 17.08.2011
+
+Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переполох в пустыне [2010] BDrip 1080 raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По песчаной планете, где царят нравы Дикого Запада, а поселения существуют за счет гигантских электролампочек, все так же бродит одинокий стрелок-пацифист и любитель пончиков, наводящий ужас на народные массы и страховые компании. Человек в красном плаще не зря носит прозвище Ураган – его решения, принятые из лучших побуждений, очень часто приводят к бурным и весьма разрушительным последствиям. Вот и сейчас корни одного поступка Ваша Паникера 20-летней давности стягивают всех давно знакомых и полюбившихся героев в городок Макка, куда, по слухам, должен заявиться легендарный грабитель Гасбак.
+
+Итак, на призыв местного босса Кеплера откликнулась целая армия наемников и охотников за наградой. Но ведь и Гасбак не прост, ограбление Макки он считает делом личным и планировал его много лет. Смогут ли вездесущие Мерил и Милли спасти страховую компанию от разорения? Удастся ли священнику Вольфвуду отдать долг чести и сохранить принципы? Добьется ли своего молодая охотница Амелия? И, самое интересное, не пожалеет ли Ваш (   Читать дальше...   )Жанр: приключения, комедия, драма, фантастикаРежиссер: Нисимура СатосиПеревод: Любительский многоголосый (Orff, Vaily, Valkrist, Kasumi, Demon, Polka, Carrier88, Sagi, Henesy, Volk, Mangaka, Стефан)Продолжительность: 01:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA816548A3C285DB89B0247D5B5B8E2BB28C236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774898   (509836) от 28.08.2015
 
 Soredemo Sekai wa Utsukushii / SoreSeka / И всё-таки мир прекрасен [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x6(ext)
@@ -6,7 +115,7 @@ Soredemo Sekai wa Utsukushii / SoreSeka / И всё-таки мир прекра
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +142,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +168,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +194,7 @@ Hoshi o ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +275,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +301,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +327,7 @@ Odin: Koushi Hansen Starlight / Odin: Photon Space Sailer Starlight / Один: 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +353,7 @@ Asa Made Jugyo Chu! / С утра и до заката мы учимся раз�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +379,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +405,7 @@ Toji no Miko / Katana Maidens / Жрицы с мечами [2018, TV, 24 ep] WEB
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +431,7 @@ Suzumiya Haruhi no Shoushitsu / The Disappearance of Haruhi Suzumiya / Исче�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +457,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +483,7 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +510,7 @@ Taboo-Tattoo / Запретная татуировка [2016, TV, 12] HDTV 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +536,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +562,7 @@ Soukihei MD Geist | MD Geist | Опаснейший Гейст [1986, OVA] LDRip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +614,7 @@ Big Order | Приказ свыше [2016, TV, 10] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +640,7 @@ Canaan | Ханаан [2009, TV, 13 из 13 эп.] BDRip 1080p Hi10P raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +667,7 @@ Aho Girl | Дурочка [2017, TV, 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,112 +678,6 @@ Aho Girl | Дурочка [2017, TV, 12] BDRip 1080p 10-bit raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ADA8D2FFF849462D0AF1161B7B6DAAE53480FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 66135   (474374) от 03.09.2020
-
-Macross Plus / Макросс Плюс [1994, OVA,  4 эп.] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 2040, – уже прошло 30 лет с момента противостояния сил Земли и Зентреди, изменившего жизнь обеих рас. На планете Эдем в рамках сверхсекретного проекта «Супернова» проходят сравнительные испытания два прототипа истребителей-трансформеров следующего поколения, -  YF-19 компании Shinsei Industries и YF-21 от General Galaxy. По иронии судьбы тест-пилотами конкурирующих (   Читать дальше...   )Производство: Triangle StaffЖанр: приключения, фантастика, меха, драмаРежиссер: Ватанабэ Синъитиро / 渡辺信一郎Язык озвучки: Японский, Русский (поверх английского)Субтитры: RU SRT, EN ASS (в контейнере)Формат: MKV DVDRipПродолжительность: 4 эп. по 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A09CB255519E2487BD386185A3DA070DD14E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 80234   (470008) от 05.09.2020
-
-Macross: Do You Remember Love? / Макросс: Помнишь ли нашу любовь? [1984 (remastered), Movie] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетная раса гигантов живет оригинальной жизнью - мужские особи являются заклятыми врагами женских, и основное занятие самцов и самочек - истребление друг друга. Понятно, что человечество несколько удивляет радикально иным подходом к проблеме полов.
-На фоне космических сражений и боевых роботов разворачиваются взаимоотношения молодого бойца, женщины-лейтенанта (   Читать дальше...   )Производство: TatsunokoЖанр: фантастика, меха, приключения, драмаРежиссер: Кавамори Сёдзи / 河森正治Язык озвучки: Японский, РусскийСубтитры: RU SSA (в контейнере)Формат: MKV DVDRipПродолжительность: 115 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7B7FB2C08620E1897871A142DBB10B9ACC5D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940214   (468179) от 24.09.2015
-
-Shinmai Maou no Testament / The Testament of Sister New Devil / По велению адской сестры (ТВ-1) [2015, TV, 12 ep] BDRip Hi10p 720p Raw+Rus(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итак, сюжет крутится вокруг изгоев среди демонов и изгоев среди героев, причем те и те не лыком шиты. Вот и вся задумка - главные герои встречаются друг с другом, проходят этап веселеньких конфликтов и становятся близки, затем защищают друг от друга от плохих дядек, попутно вражеских симпатичных девчонок завлекая в свою компанию.Жанр: приключения, комедия, фэнтези, эттиРежиссер: Сайто ХисасиПеревод: Русские субтитры от Dreamers Team
-Переводчик/Лирика: Gerale, Редактор: Komugi-chan, QC: RyujiСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF5B23383AFC8E23085A58F4CA2EFC834473CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407118   (467924) от 06.09.2020
-
-Моя реинкарнация в отомэ-игре в качестве главной злодейки | Hamefura | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Tensei Shiteshimatta [TV-1] [2020, TV, 12 из 12] BDRip HEVC raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды Катарина, дочь герцога Клаэса, особенно сильно ударяется головой, после чего внезапно вспоминает свою прошлую жизнь, где она была обычной японской девочкой-подростком. Прямо перед своей преждевременной кончиной она играла в некую девичью игру, сеттинг которой удивительно похож на мир, где живёт Катарина. Только угодила она на место не главной героини, а антагонистки, (   Читать дальше...   )Производство: Япония, студия Silver LinkЖанр: комедия, исекайРежиссер: Иноэ КэйсукэЯзык озвучки: Профессиональный многоголосый (закадровый) Crunchyroll, Профессиональный многоголосый (закадровый) AniLibria.TVСубтитры: Русские надписи, Русский, English, Français, Arabic, German, Italian, Spanish, PortugueseПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055CB145430089A978061320F25779CC58A34852
 ```
 
 https://mybot314.ru/tekegram_catalog/

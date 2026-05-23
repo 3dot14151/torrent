@@ -1,3 +1,86 @@
+###  Публикация: 1688199   (125351) от 28.12.2023
+
+Domestika, Jessica Roux | Natural Illustration with Digital Painting (2023) WEB-DL [AD] [EN / EN, RU Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Превратите ботанический карандашный набросок в цифровую иллюстрацию, используя повествовательные свойства цвета.
+Природа предлагает бесконечные запасы обильных вещей, которые можно наблюдать и записывать. Иллюстратор-фрилансер Джессика Рокс использует его как вдохновение для создания подробных ботанических иллюстраций. Используя сочетание цифровых и аналоговых техник, (   Читать дальше...   )Производство: DomestikaЖанр: ИллюстрацияЯзык озвучки: АнглийскийПродолжительность: 02:18:23Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D163D2E2388D6E301ADD38AA8F0B801177C97D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688390   (125241) от 29.12.2023
+
+Udemy, Louay Zambarakji | The Complete Adobe After Effects Bootcamp: Basic to Advanced (2023) WEB-DL [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в путешествие по Adobe After Effects с моим самым популярным курсом.
+
+Добро пожаловать на мой ведущий курс After Effects Mastery Course — комплексное учебное приключение, включающее более 460 лекций и более 35 часов видеоконтента. Этот пользующийся спросом курс уже произвел революцию в навыках многих людей, и он постоянно обновляется, включая новейшие (   Читать дальше...   )Производство: UdemyЖанр: Моушен дизайнЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 34:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B19E4BDC770F4359AE1775C774B079E69480EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688400   (125222) от 29.12.2023
+
+Brick Visual, Andras Káldos, István Lovák, Péter Pazsiczky | Post-production in Archviz (2023) WEB-DL [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Создавайте изображения с прочной концептуальной основой, которые отражают основные идеи дизайна и привлекают зрителя. Наш курс с дистанционным обучением предназначен для 3D-художников среднего и продвинутого уровня, которые хотят оптимизировать свой рабочий процесс и создавать изображения, соответствующие стандарту Brick.
+
+Пройдите наш гибридный курс онлайн из любого (   Читать дальше...   )Производство: Brick VisualЖанр: Архитектурная визуализация, 3D ДизайнЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 42:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEBCCC47B17D294BA847A80C1F923A7A7CAE32E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688710   (125084) от 30.12.2023
 
 Kaplan School, Диана Горбач | Танцующая кисть (2023) WEB-DL [AD] [RU]
@@ -6,7 +89,7 @@ Kaplan School, Диана Горбач | Танцующая кисть (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +115,7 @@ Udemy, Gregory Warner | Fundamentals of Affinity Designer (2018) WEB-DL [EN, RU 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +143,7 @@ Udemy, Jeremy Hazel | Affinity Designer - Design artistic text and Create Fonts 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +171,7 @@ Domestika, Nick Liefhebber | Illustrated pattern design: Eye catching vector ill
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +198,7 @@ Udemy, Jestoni Esteban | Affinity Designer: A Comprehensive Guide for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +225,7 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Introduction To Niagara (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +251,7 @@ Enterclass, Владислав Татаринов | Такая разная во
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +277,7 @@ Artstation, Michael Gerard | Unreal Complete Scene - Forest Environment (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +304,7 @@ FastTrackTutorials, Tilmann Milde | Ultimate Lighting Course - In-Depth Tutorial
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +333,7 @@ Enterclass, Анастасия Беседина | В осеннем парке (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -278,7 +361,7 @@ Skillshare, Isabel Aracama | Learn to Use the Pen Tool in Affinity Designer (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -306,7 +389,7 @@ Udemy, Stone River eLearning | Affinity Designer For Beginners (2018) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -332,7 +415,7 @@ Udemy, Valeri Visuals | Premium Logo Animation in Adobe After Effects (2023) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -358,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -387,7 +470,7 @@ Skillshare, Dawid Tuminski | How To Create A Flat Design Night Camping in Affini
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -416,7 +499,7 @@ Udemy, Creativity Unleashed | Complete Adobe After Effects Megacourse: Beginner 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -443,7 +526,7 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +553,7 @@ Skillshare | Affinity Photo Master Class iPad Edition (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -496,7 +579,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -525,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +636,7 @@ Udemy | Adobe After Effects – From Zero to Beyond (2022) WEB-DL [EN, RU / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,7 +691,7 @@ Enterclass, Татьяна Каштальян | Садовый букет (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -622,90 +705,6 @@ Enterclass, Татьяна Каштальян | Садовый букет (2023)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8EE66E8862CAE7C31E53DF7E0FC141100B701A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691810   (123214) от 13.01.2024
-
-Арт-Студия Виталия Лещенко, Александр Рыжкин | Как научиться рисовать с нуля Часть 3. Рисование розетки в перспективе. Натюрморт (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123214.jpg" />
-</div>
-
-
-###  Подробнее
-
-В видеокурсе "Рисование розетки в перспективе. Натюрморт" представлена та база и азы, которые необходимы любому художнику, потому что это системное мышление - "как в двухмерную плоскость переводить объёмные трёхмерные предметы".
-
-В видеокурс входят: Рисование розетки в перспективе. Натюрморт.
-Этот курс является составной третьей частью курса "Как (   Читать дальше...   )Производство: Арт-Студия Виталия ЛещенкоЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0DD958DD7E0EB2EC83587C95B62D3D9DE50D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691709   (123205) от 13.01.2024
-
-Арт-Студия Виталия Лещенко, Александр Рыжкин | Как научиться рисовать с нуля Часть 1. Рисование геометрических фигур (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123205.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе представлена база и азы, которые необходимы любому художнику, потому что это системное мышление - "как в двухмерную плоскость переводить объёмные трёхмерные предметы". В видеокурс входят: куб, шар, конус, цилиндр, шестигранник. В видео пособии поэтапно раскрываются основные задачи, возникающие на всех стадиях работы, и подробно рассматриваются все (   Читать дальше...   )Производство: Арт-Студия Виталия ЛещенкоЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:23:19Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C122CB2B7786BEA5DEE3D235B8FF508E4491AFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691805   (123177) от 13.01.2024
-
-Арт-Студия Виталия Лещенко, Александр Рыжкин | Как научиться рисовать с нуля Часть 2. Рисование вазы и розетки (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123177.jpg" />
-</div>
-
-
-###  Подробнее
-
-В видеокурсе "Рисование вазы и розетки" представлена та база и азы, которые необходимы любому художнику, потому что это системное мышление - "как в двухмерную плоскость переводить объёмные трёхмерные предметы".
-
-В видеокурс входят: ваза, вогнутая розетка.
-Этот курс является составной второй частью курса "Как научиться рисовать с нуля"Производство: Арт-Студия Виталия ЛещенкоЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:55:33Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE6DC6B16B0961D4A26F2962FB5241FA2C2729C
 ```
 
 https://mybot314.ru/tekegram_catalog/

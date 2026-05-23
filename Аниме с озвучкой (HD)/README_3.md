@@ -1,3 +1,29 @@
+###  Публикация: 869201   (770335) от 08.04.2015
+
+Akatsuki no Yona / Рассвет Йоны (2014, TV, 24) HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ёна, дочь правителя одной восточной страны, жила, как в сказке. У нее было все, что можно пожелать, и даже свой прекрасный принц – старший кузен Су Вон, белокурый красавец и галантный рыцарь. Вот только «рыцарь» оказался еще и мудрым политиком – на 16-летие принцессы подготовил заговор, лично убил царственного дядю и занял трон. Убитую горем девушку спас и вывел (   Читать дальше...   )Производство: Япония, Studio Pierrot / スタジオぴえろЖанр: приключения, фэнтези, романтикаРежиссер: Ёнэда КадзухироПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F741C24B375AA21846CFCA29DD1405C5390A17B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213840   (767149) от 18.03.2018
 
 Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый ученик в школе магии: Взывающая к звёздам [2017, Movie] BDRip 720p rus
@@ -6,7 +32,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Fate/Stay Night Unlimited Blade Works / Судьба: Ночь схватки. �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Freezing / Заморозка [2011, TV, 12 из 12 серий] SDTV 720p raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gakkou Gurashi! / School-Live! / Школьная жизнь! [2015, TV, 12] HDT
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Saijaku Muhai no Bahamut / Undefeated Bahamut Chronicle / Хроники неп�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Junketsu no Maria / Maria the Virgin Witch / Непорочная Мария [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +216,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Моя
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +268,7 @@ Coppelion / Коппелион [2013, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +296,7 @@ Shingeki no Kyojin / Attack on Titan / Атака титанов / Вторже�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +322,7 @@ Sola | Sky | Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +350,7 @@ Dimension W / Измерение W [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +377,7 @@ Tales of Zestiria: The X / Сказания Зестирии [2016, TV, 13 эп.
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +403,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [ТВ-1]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +431,7 @@ Tales of Zestiria the Cross / Сказания Зестирии [ТВ-2] [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +457,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru / NouCo
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +485,7 @@ Selector Infected Wixoss / Заражённый селектор WIXOSS [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +511,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +539,7 @@ Yuuki Yuuna wa Yuusha de Aru / Yuuki Yuna is a Hero / Герой Юки Юна (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +568,7 @@ Sangatsu no Lion (2017) / Мартовский лев [ТВ-2] [2017, TV, 22 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +594,7 @@ Hakata Tonkotsu Ramens / Тонкоцу-рамен из Хакаты [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +620,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku / Death March to the Parallel Worl
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,7 +646,7 @@ Citrus / Цитрус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -647,7 +673,7 @@ Garo: Vanishing Line / Гаро: Линия Схода [2017, TV, 24 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -658,34 +684,6 @@ Garo: Vanishing Line / Гаро: Линия Схода [2017, TV, 24 ep] WEB-DL 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB9F8713B4622B1FA3F0ECEF86747A4BBC7E8F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794421   (697467) от 08.06.2014
-
-Walkure Romanze / Романс Валькирий [2013, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697467.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом мире рыцарские схватки превратились в популярный спорт, и попасть в рыцарскую академию, что раскинулась в стилизованном средневековом городе, стремятся талантливые ребята со всего света. Исход поединка решает не грубая сила, а точность ударов, потому ристалище доступно для всех. Такахиро Мидзуно считался одним из лучших, но в старшей школе из-за травмы был вынужден перейти в оруженосцы, то есть в помощники и тренеры, которые могут полностью раскрыть потенциал бойца и его коня. Хорошие помощники ценятся на вес золота, потому недостатка в приглашениях к сотрудничеству перед летним турниром у парня не было. Стоит ли удивляться, что все предложения поступили от бойцов-девушек?!
-
-Самое весомое из них, разумеется, сделала Селия Кумани Энтре, президент совета и первый рыцарь академии. Ее извечная соперница Ноэль Марс Аскот не захотела уступать и тоже обратилась с аналогичной просьбой. Не отстала от старших подруг перспективный новичок Лиза Эостре – в конце концов, ей «принимать школу» после ухода нынешних суперзвезд. (   Читать дальше...   )Жанр: приключение, романтика, эттиРежиссер: Ямамото ЮсукэПеревод: ZoolФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468B4329AA13DB6C2DC0CB5EEF75268162AB79AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

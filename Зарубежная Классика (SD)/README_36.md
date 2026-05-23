@@ -1,3 +1,108 @@
+###  Публикация: 1205057   (784022) от 08.02.2018
+
+Девушка с пистолетом / La ragazza con la pistola (1968) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Из багажа у молодой сицилианки Ассунты Патане — один пистолет. Пышноусый и блудливый Винченцо Макалузо похитил ее, обесчестил и сбежал. Лишенная братьев, которые бы убили его, Ассунта под напутствия деревни покидает берега родной Сицилии, чтобы собственноручно свершить кровную месть. Путь мстительнице предстоит неблизкий — след ведет в Лондон…Производство: Италия / DocumentoЖанр: Драма, Мелодрама, КомедияРежиссер: Марио МоничеллиАктеры: Моника Витти, Стенли Бейкер, Корин Редгрейв, Энтони Бут, Карло Джуффре, Николина Веррелли, Тиберио Мурджа, Альдо Пульизи, Стефано Сатта Флорес, Хелен ДоунингПеревод: Дублированный, многоголосый закадровыйСубтитры: ИтальянскиеПродолжительность: 01:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA6C945DD864515E513F71D4822F672D855C10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389882   (783879) от 12.06.2020
+
+Загнанных лошадей пристреливают, не правда ли? / They Shoot Horses, Don't They? (1969) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Америка в тяжелые годы Великой депрессии. Всюду безработица и бедность. Люди берутся за любую работу, чтобы заработать на кусок хлеба и крышу над головой. Поэтому не удивительно, что танцевальный марафон с призом в 1500 долларов легко собрал в мрачном ангаре на побережье несколько десятков участников со всей страны. Все они такие разные, но каждый готов на все ради (   Читать дальше...   )Производство: США / American Broadcasting Company (ABC), Palomar Pictures CorporationЖанр: Драма, экранизацияРежиссер: Сидни ПоллакАктеры: Джейн Фонда, Майкл Сарразин, Сюзанна Йорк, Гиг Янг, Ред Баттонс, Бонни Беделиа, Майкл Конрад, Брюс Дерн, Аль Льюис, Роберт ФилдсПеревод: Дублированный, авторскийСубтитры: Русские (Full), английские (Full)Продолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0755245AAD10ED1494AD8587EEECF80DC75A3EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382500   (783876) от 12.06.2020
+
+Шинэндоа / Shenandoah (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Место и время действия: Вирджиния в эпоху Гражданской войны. Герой фильма отказывается поддерживать конфедератов, он против рабства, однако не хочет становиться и на сторону северян, так как совершенно не приемлет войны. Когда его сын попадает в плен, Стюарт отправляется на поиски мальчика. Теперь он собственными глазами видит ужасы войны и в результате вынужден (   Читать дальше...   )Производство: США / Universal PicturesЖанр: Драма, Вестерн, ВоенныйРежиссер: Эндрю В. МакЛагленАктеры: Джеймс Стюарт, Даг МакКлёр, Гленн Корбетт, Патрик Уэйн, Розмари Форсайт, Филлип Элфорд, Кэтрин Росс, Чарльз Робинсон, Джим МакМуллан, Тим МакИнтайрПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D401C4FE8DAB20D186B8175C37855B464A3B298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101611   (783616) от 13.06.2020
+
+Северино / Severino (1978) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Северино, южноамериканский индеец из племени манзанеро, возвращается в родную деревню после 10-летнего отсутствия, чтобы забрать с собой своего младшего брата. Он работал у белых, скопил денег и теперь собирается купить земельный участок на Севере, чтобы начать новую жизнь.
+Но в его родной деревне драматически обострилась ситуация. Кто-то угоняет скот, нападает на (   Читать дальше...   )Производство: Германия (ГДР), DEFAЖанр: Драма, ВестернРежиссер: Клаус ДобберкеАктеры: Гойко Митич, Виолетта Андрей, Constantin Fugasin, Мирча Ангелеску, Эманоил Петруц, Леон Немчик, Хельмут Шрайбер, Томас Вольф, Ион Дикисяну, Юрие ДариеПеревод: Дублированный, киностудия "Союзмультфильм"Продолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48EE4C64EB45D25D9C151AB25DB9F6BCF379715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204579   (783418) от 10.02.2018
 
 Игра навылет / Sleuth (1972) DVDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -568,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DC744E77D11FB32A215AF5C5652C1876EA4BC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210497   (778648) от 03.03.2018
-
-И слоны бывают неверны / Un elephant ca trompe enormement (1976) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слово режиссеру: "Это откровенная комедия, в которой мужчины показаны довольно безжалостно... Это комедия без снисхождения". И действительно Ив Робер и сценарист Жан-Лу Дабади довольно остроумно вышучивают своих четырех недотеп-героев, которым уже за сорок, но они еще пускаются в любовные авантюры. Великолепная игра актеров, много забавных ситуаций. Клод (   Читать дальше...   )Производство: Франция / Gaumont International, Les Productions de la GuévilleЖанр: КомедияРежиссер: Ив РоберАктеры: Жан Рошфор, Клод Брассёр, Ги Бедос, Виктор Лану, Даниэль Делорм, Анни Дюпре, Мартин Сарси, Марта ВиллалонгаПеревод: Двухголосый закадровый, профессиональный (СВ-Дубль)Субтитры: АнглийскиеПродолжительность: 01:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2D58D5B2EF93E8B8C6CDB295E49CC0EE3C89D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210559   (778620) от 03.03.2018
-
-Укрощение строптивой / The Taming of the Shrew (1967) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Италия, XVI век. У богатого торговца две дочери на выданье. За младшей дочерью многие ухаживают, но по традиции ее не могут выдать замуж вперед старшей сестры. Охотников жениться на своенравной Катарине не находится. И вот в город приезжает незнакомец по имени Петруччио и решает во что бы то ни стало укротить строптивую девицу.Производство: Италия, США / Columbia Pictures Corporationя, F.A.I., Royal Films InternationalЖанр: Драма, Мелодрама, КомедияРежиссер: Франко ДзеффиреллиАктеры: Элизабет Тейлор, Ричард Бёртон, Сирил Кьюсак, Майкл Хордерн, Альфред Линч, Алан Уэбб, Джанкарло Кобелли, Вернон Добчефф, Кен Парри, Энтони Гарднер, Наташа Пайн, Майкл Йорк, Виктор Спинетти, Рой ХолдерПеревод: Дублированный, многоголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 02:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275D43CD82E97C920651327F8F1158DC1D00EA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210779   (778455) от 04.03.2018
-
-Ограбление Бринкса / The Brink's Job (1978) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тони — известный пройдоха и воришка. При случае, он виртуозно рассовывает по карманам все что плохо лежит, а по ночам, в компании двух корешей, промышляет мелким грабежом. Однажды нюх привел Тони в банк Бринкса.
-От такого количества денежных мешков у него случилось озарение, и «великий комбинатор» с энтузиазмом берется за подготовку к ограблению века, шаг за шагом (   Читать дальше...   )Производство: США / Dino De Laurentiis ProductionsЖанр: Драма, Комедия, КриминалРежиссер: Уильям ФридкинАктеры: Питер Фальк, Питер Бойл, Аллен Гарфилд, Уоррен Оутс, Джина Роулендс, Пол Сорвино, Шелдон Леонард, Джерард Мёрфи, Кевин О’Коннор, Клаудия ПелузоПеревод: Многоголосый закадровый, двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43873C234BA67E4478ED5231FD0D10C298EFC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012383   (778210) от 02.05.2016
-
-Старая дева / La vieille fille (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский фильм, относящийся к комедийному жанру. Фильм почти на всем своем протяжении сопровождается замечательной музыкой, известного во Франции композитора Леграна. Роли главных героев играют такие потрясающие актеры, как Анни Жирардо и Филипп Нуаре. Действие развивается на одном из курортов Франции. У главного героя Габриэля случается небольшая неприятность, (   Читать дальше...   )Производство: Франция (Lira Films, Pegaso Cinematografica, Praesidens)Жанр: Комедия, МелодрамаРежиссер: Жан-Пьер БланАктеры: Анни Жирардо, Филип Нуаре, Мишель Лондаль, Мария Шнайдер, Марта Келлер и др.Перевод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38514D7CC222DC54810019A0F94B552A0B2AB9CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

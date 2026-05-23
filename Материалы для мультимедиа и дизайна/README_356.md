@@ -1,3 +1,352 @@
+###  Публикация: 1783900   (69692) от 08.03.2025
+
+Шрифты - Creative Market - Western Sage - 290918522 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Western Sage — смелый шрифт с засечками и яркими контрастными деталями, идеально подходящий для передачи духа Дикого Запада. Независимо от того, разрабатываете ли вы ковбойские темы, визуальные образы, вдохновленные пустыней, или винтажную эстетику, этот шрифт добавит характер и неподвластное времени очарование вашей работе.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B1320BE243B93C461068D8C3B307998CB0D40F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783932   (69687) от 08.03.2025
+
+Шрифты - Creative Market - Altheria - 25434641 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Altheria — это рукописный шрифт с изысканным стилем рукописного письма. Разработанный с тщательным вниманием к деталям, Altheria предлагает различные альтернативные символы, которые позволяют вам создавать уникальные, захватывающие и украшающие формы букв в ваших дизайнах.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BDA6D65466E9EE667439CE701B0CF0B2E46DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783883   (69685) от 08.03.2025
+
+Шрифты - Creative Market - Diella - 290919155 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Diella — это современный шрифт с засечками, разработанный с идеальными деталями, чтобы обеспечить гибкость для различных дизайнерских нужд. Этот шрифт сочетает в себе классическую элегантность с современным видом, что делает его отличным выбором для брендинга, редакционных проектов, логотипов, приглашений, плакатов и других творческих работ. Благодаря 9 начертаниям (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A239269F1A857EBDAD5A5A390035F93ABC6F3DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783893   (69683) от 08.03.2025
+
+Шрифты - Creative Market - Rocantic - 290918580 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Rocantic — это шрифт с засечками с элегантным и классическим дизайном, созданный для передачи роскошного и романтического впечатления. Этот шрифт обычно характеризуется утонченными деталями с засечками, острыми чертами и сбалансированными пропорциями, что делает его идеальным для проектов, требующих изящного и утонченного вида.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5261177A0211C073C1604CA10088397463013D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784045   (69680) от 08.03.2025
+
+Шрифты - Envato - Quadline - Bold Headline Poster Font - X4JN37P [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Quadline — это жирный шрифт без засечек, созданный для прочности и универсальности. Идеально подходит для заголовков, плакатов, проектов по брендингу и редакционных макетов, смелый и властный дизайн Quadline привлекает внимание, сохраняя читабельность. Его чистый, но яркий стиль делает его идеальным для проектов, которым требуется мощное визуальное присутствие.
+ (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D3CEF3F021D0930A926A3D9C9F1C43BB13B5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784209   (69661) от 09.03.2025
+
+Пресеты - Earth Collection Desktop Presets [XMP, LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Коллекция Earth – это ваш выбор для джунглей и гор. Эта универсальная коллекция, ориентированная на нейтральные тона и сочную зелень, придаст вашим фотографиям профессионально обработанный вид.Формат: XMP, LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A95EA747D3BDB4737F41893FC9DBEC87D3A71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784246   (69656) от 09.03.2025
+
+Пресеты - KATARINA FEDORA - FLEURS COLOR PRESET [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+FLEURS COLOR это 7 пресетов для коррекции зеленых и тонов кожи.
+
+В релизе 2 обучающих видео на английском и немецком, скачать по необходимости.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02652D1B2BD6BA496F70C6422E6947C2C475B20D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784146   (69653) от 09.03.2025
+
+Пресеты - Goodlight LLC - Pack 5 - Color [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Pack 5 попадает во все нужные места с ярким цветом, который по-прежнему подходит для портретов. Вдохновленный Kodak UltraMax, вы можете ожидать красивых цветовых сдвигов в тенях и светах, которые будут хорошо сочетаться с вашей одноразовой пленочной камерой, но также творить волшебство с художественными портретами и свадьбами. В мире пастельных и нейтральных тонов (   Читать дальше...   )Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065BBCF64EFD2827FBC6939CC6D41293B26E477F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784172   (69643) от 09.03.2025
+
+Пресеты - Reverie + Oak - Pacific Northwest Pack Full Bundle [XMP, LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+17пресетов + 20 кисточек для Lightroom.Формат: XMP, LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D4D009994FCF8632673AA0EC36905B02A796FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784141   (69638) от 09.03.2025
+
+Шрифты - Creative Market - Holland Treasure - Display & Regular - 29871914 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Представляем Holland Treasure, гибридный шрифт, объединяющий стили рукописного шрифта и шрифта без засечек. Этот набор шрифтов с двумя вариациями, Holland Treasure Display и Holland Treasure Regular, предназначен как для отображения, так и для текста. Почувствуйте современную роскошь Holland Treasure, который добавит элегантности и изысканности вашим проектам.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974671B65E4ABDC1B52C0B75042E172C1283F9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784060   (69636) от 09.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - 100 Free Steampunk Frames & Backgrounds - 75597 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные рамки и фоны. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: JPGРазрешение файлов: 5376 x 5376 - 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBCCFA53124331C8220CDFAB06BEEFC12EF2C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784197   (69626) от 09.03.2025
+
+Шрифты - Branding with Type - Bw Fusiona Collection [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Bw Fusiona привносит особый подход к контрасту с привычностью гротескных форм. Это создает тонкое, но очень отчетливое ощущение, предоставляя брендам типографический актив для дифференциации, оставаясь при этом актуальными и знакомыми.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1BBAC3CEAEC70D4AFA45D5127695A25373D98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784066   (69625) от 09.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Plasticine Monsters - Free 3D Lettering - 28197 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 × 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0623C658E8A84464CAA1E6043D9723431CEE91EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784073   (69624) от 09.03.2025
 
 Растровый клипарт - Dealjumbo.com - Deeezy - Pixel - Free 3D Lettering - 30351 [PNG]
@@ -6,7 +355,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -248,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -342,364 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A39AF00B4D85CD695535B9FC796625CE81449C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784434   (69583) от 10.03.2025
-
-Шрифты - Envato - Royall Milku - Playful & Kids Display Font - 6BSB5PF [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Royall Milku - шрифты имеют заглавные и строчные буквы, цифры и знаки препинания, многоязычную поддержку и функции Opentype.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277216046B02BDE09F3A83A3FD637D3913AD87EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784361   (69579) от 10.03.2025
-
-Шрифты - Authentype - Row Vaticano [OTF, TTF. WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Row Vaticano — чистый и минималистичный шрифт без засечек, призванный привнести ощущение легкости и изысканности в любой проект.
-
-Кириллица поддерживается.Формат: OTF, TTF. WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79310F897B9C74BCACD795C2AD0A47FF5C99759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784426   (69567) от 10.03.2025
-
-Шрифты - Creative Market - Castiron - Vintage Font - 290836379 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство шрифтов Castiron — это коллекция из трех отдельных шрифтов, призванных воплощать непреходящее очарование винтажной типографики.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62243AAEDA861E600951D828231498EA753D5938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784311   (69561) от 10.03.2025
-
-Шрифты - Creative Fabrica - Valentine Romantic Font - 2619719 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentine Romantic — это веселый, милый и невероятно очаровательный шрифт.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE0AA120BEDA871CCF7D43317F3DF60C5837AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784319   (69559) от 10.03.2025
-
-Шрифты - Creative Market - Cadia - Classic Serif Font - 290899717 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шрифт отличается сбалансированной пропорцией толщины и тонкости штриха, создавая привлекательные и легко читаемые визуальные образы. Этот современный стиль с засечками часто характеризуется смелым различием между толстыми и тонкими линиями, что обеспечивает сдержанный, но все же выделяющийся штрих.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD04895356396C6681D0BEF508AEF586E1CDE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784700   (69549) от 12.03.2025
-
-Шрифты - Creative Market - Highland - 290798513 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Highland — это уплотненный брусковый шрифт с засечками.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF33F65569346CB208C93F495E66678D083AAED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784740   (69548) от 12.03.2025
-
-Шрифты - Creative Market - YT Hellias - Retro Script Font - 282735752 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем YT Hellias, ретро-шрифт, который излучает вневременной характер и элегантность. Вдохновленный классическими эпохами, YT Hellias создан для творцов, которые хотят придать своим работам винтажную атмосферу.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401BEE760DD64A38B3876D28835DD88BD0F84943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784579   (69547) от 12.03.2025
-
-Шрифты - MyFonts - Fraiche [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fraiche — это очаровательный мягкий и округлый шрифт. Доступен с переменными шрифтами в Weights и Ink Trap. С обычным стилем у вас будет правильная анатомия шрифтов. со стилем Ink Trap он добавил больше экстремального пространства на ловушке для чернил.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731210FA95C35F952C43D836B41784EA1FC9CEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784733   (69546) от 12.03.2025
-
-Шрифты - Creative Market  - Beanco Font - 128915766 [OTF, TTF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Beanco — это ретро-жирный рукописный шрифт, созданный Digitype Studio с винтажными нотками. Этот шрифт милый, причудливый и игривый.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DC1C28D234B89CC449FC515DDB972778DE3717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784819   (69522) от 13.03.2025
-
-Шрифты - Artiveko Studio - Trige Luxury Serif Font [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trige — это изысканный шрифт с засечками от Iwan Alwan, отличающийся элегантными и неподвластными времени формами букв.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D575C88F22E3208DF96A4BF105C67C4ECC65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784835   (69514) от 13.03.2025
-
-Растровый клипарт - Creative Market - 80 Firework Overlays - 2147059 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой набор фейерверков для ваших творческих нужд.Формат: JPGРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB95CDBD109703083203BA155D3FF0E99F6BF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784827   (69512) от 13.03.2025
-
-Звуковые библиотеки - 7Digital - The Twelve Days of Christmas - 162 Happy Holiday Sounds [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69512.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Twelve Days of Christmas 162 Happy Holiday Sounds - это уникальная библиотека звуковых эффектов jn Pro Sound Effects Library на праздничную новогоднюю тематику, которая состоит из различных окружающих звуков, таких как хруст снега, катание на коньках по льду, зимняя прогулка на лошадях и повозках, рубка рождественской елки, церковные колокола в канун Рождества (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82133A33D9DE060CBEDA57C1C4C33108DAA906A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784763   (69510) от 13.03.2025
-
-Растровый клипарт - Resource Boy - 1000+ Fruit Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные орнаменты-фрукты. Материал раздается с официальной документацией.Разработчик: Resource BoyФормат: JPGРазрешение файлов: 1024 x 1024 - 1760 x 688
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E2D35E04ECB7A1F2892004FDC0AC9F67C4EE4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

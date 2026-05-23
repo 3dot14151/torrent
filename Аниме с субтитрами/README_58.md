@@ -1,3 +1,108 @@
+###  Публикация: 1035651   (626387) от 17.07.2016
+
+Ani Tore! EX / Anitore! EX / Тренировки с аниме! [2015, TV, 12 из 12] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Прокачай своё тело и душу!" Каждая серия содержит отдельный элемент спортивный тренировки, такие как отжимания, приседания, повороты позвоночника, йога и т.д. Пять девочек, стремящихся стать идолами, будут тренироваться с вами, и в результате беспокоящее их содержание жира в организме понизится на 1000%...!?Производство: Студия Rising Force / ライジングフォースЖанр: комедияРежиссер: Нигорикава АцусиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA4B66BF76A9E5B7C9DB723080309280747BBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909795   (625825) от 18.06.2015
+
+Happy World! | Счастливый мир! [2002, OVA, 3 эп.] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бог наделил всех людей одинаковым количеством везения и невезения. Но иногда происходят некие отклонения от планов создателя, и на свет появляются существа, относящиеся к категории "лузер обыкновенный". Такеси Омура - один из таких.
+Этот человек обладает таинственным даром. Даром, позволяющим ему ежесекундно находить приключения на свою пятую точку опоры. (   Читать дальше...   )Производство: ZEXCSЖанр: комедия, романтика, эттиРежиссер: Икэхата ТакасиПеревод: TM aka ТехноМагЯзык субтитров: РусскийФормат: DVDRipПродолжительность: 3 эп., 27 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F237FC58E2FB29FC2E9D7AACE9E27F465C7D2528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909775   (625567) от 18.06.2015
+
+Shin SOS Dai Tokyo Tankentai | SOS! Tokyo Metro Explorers: The Next | SOS! Исследователи токийской подземки [2007, MV] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обычные японские пацанята (4шт.), прихватив старую тетрадку с картой подземелий под Токио, через канализационный люк (особые приметы: открывается и закрывается, когда не нужно) отправляются исследовать подземку в поисках Великого Сокровища Ванпис™ (ну или Газилы™ на худой конец). Какие опасности поджидают ребят там? Таинственный Мистер Кислотный Дождь, хакнувший (   Читать дальше...   )Производство: SunriseЖанр: приключенияРежиссер: Такаги СиндзиПеревод: Blazing Wizard & Simon.clericЯзык субтитров: РусскийФормат: BDRipПродолжительность: 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDD94235E50E6782F4C4E8A8C2E00CBEFEFEEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127613   (625125) от 23.06.2017
+
+Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.flat | Как из обычной девушки воспитать героиню [2017, TV, 11 эп. + 1 SP] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Часто мы оказываемся в плену своих увлечений, и ничего не видим вокруг, кроме них. Так и старшеклассник-отаку Томоя Аки не хотел замечать ничего, что окружало его. Настолько, что встретив девушку Мегуми, обладающую неземной красотой, даже не сразу понял, что она, оказывается, учится с ним в одной школе. Но красота её была скрыта за незаметной личностью и понятна (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: комедия, романтикаРежиссер: Камэй КантаПеревод: 1) GerKo, Ryuji, Tousaka Jun (01-06 + SP); SovetRomantica (07-11) 2) HorribleSubsЯзык озвучки: ЯпонскийСубтитры: 1) Русские; 2) АнглийскиеПродолжительность: 11 эп. + 1 SP по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F5F60E920A115500D45AAA2AF0E3641B78D71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124149   (625006) от 23.06.2017
 
 Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] WEB-DL 720p raw
@@ -6,7 +111,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] WEB-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Wakako-zake / Саке для Вакако [2015, TV, 12 из 12] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Kimi to Boku / You and I / Ты и я [2011, TV, 13] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -87,7 +192,7 @@ Kaze no Na wa Amnesia / A Wind Named Amnesia / Ветер амнезии [1990, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -113,7 +218,7 @@ Zoku Owarimonogatari | Финальные истории: Продолжение
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +246,7 @@ Mob Psycho 100 II / Моб Психо 100 II [2019, TV, 13] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +272,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! / Пока есть любовь,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +300,7 @@ Double Decker! Doug & Kirill | Двойной удар: Даг и Кирилл [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +326,7 @@ Gabriel DropOut / Gabriel Dropout / Габриэль бросает школу [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +352,7 @@ Idolmaster: Cinderella Girls | Идолмастер: Золушки [2015, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +404,7 @@ Berserk (Season 2) | Берсерк [ТВ-3] [2017, ТВ, 12 эп.] HDTV 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +430,7 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +456,7 @@ Ultraman Season 2 | Ультрамен: новый герой [ТВ-2] [2022, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +482,7 @@ Shinmai Maou no Testament Departures | Завет Дьявольских Сес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +511,7 @@ Oushitsu Kyoushi Haine / Королевский наставник [2017, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +537,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +563,7 @@ Tantei Gakuen Q / Detective School Q / Школа детективов Кью [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +589,7 @@ Chiisana Eiyuu: Kani to Tamago to Toumei Ningen | Modest Heroes | Скромны
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +615,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +642,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +668,7 @@ Mad Bull 34 / Бешеный бык 34 [1990, OVA, 4 ep.] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,112 +679,6 @@ Mad Bull 34 / Бешеный бык 34 [1990, OVA, 4 ep.] DVDRip raw +eng
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E026B2107EA0D2D361D69A501BE070332D824C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125867   (615815) от 28.06.2017
-
-Фантазия Гранблю / Granblue Fantasy [TV, 2017, 13] HDTV 720 raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615815.jpg" />
-</div>
-
-
-###  Подробнее
-
-В один прекрасный день жизнь простого паренька по имени Гран перевернулась с ног на голову. Хотя можно ли назвать простым парня, который дружит с говорящей летающей ящерицей по имени Вирн и живёт на летающем острове Зинкенстилл? Тем не менее, именно таков мир в нашей истории, и в нём это вполне обычно. Итак, наш Гран однажды замечает в лесу неподалёку странное свечение. (   Читать дальше...   )Производство: Япония, A-1 Pictures Inc.Жанр: приключения, фэнтезиРежиссер: Ито ЮкиПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022559F1C9931CEBDD74DC419D928B519CC3BDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911522   (615787) от 23.06.2015
-
-Haiyore! Nyaruko-san F | Няруко-сан: Крадущийся хаос F [2015, OVA, 1 ep.] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля – единственная во Вселенной планета, жители которой постоянно изобретают что-то новое, а жители дальнего космоса лишь развивают земные идеи в собственной индустрии развлечений. Такой ценный ресурс надо охранять от шпионажа и пиратства, чем и занимается галактический Интерпол. Одна из лучших команд службы охраны Земли держит базу в доме японского школьника Махиро (   Читать дальше...   )Производство: студия XebecЖанр: комедия, романтикаРежиссер: Нагасава ЦуёсиПеревод: Dreamers TeamСубтитры: русские (отключаемые)Продолжительность: 1 серия на 27 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAFB58B2E16C1913663C633027AD750BDC19AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230003   (615412) от 12.06.2018
-
-Just Because! | Просто так! [2017, TV, 12 эп.] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эйта Идзуми приезжает в Камакуру, где не был четыре года: когда-то его отца перевели по работе, а теперь семья вернулась в родной город. До выпускного остается всего один триместр, а потом начнется взрослая жизнь, с которой нужно определиться именно сейчас. В новой школе, где Эйте предстоит доучиваться, он встречает Сому Харуто – тот был его лучшим другом, но на (   Читать дальше...   )Производство: студия Pine Jam / パインジャムЖанр: романтика, повседневностьРежиссер: Кобаяси АцусиПеревод: Елена Родионова (laci)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D88BB953828FA69A7E21C50418D8592C3BEDBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778748   (615031) от 12.07.2014
-
-Break Blade / Broken Blade / Сломанный Меч [2014, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компиляция шести фильмов с некоторыми новыми сценами.
-
-Действие разворачивается на континенте Крузон, практически все обитатели которого обладают способностью управлять кварцем. Основанная на этой способности технология позволяет местным жителем выполнять массу задач, например, поднимать в воздух предметы силой мысли или управлять огромными мобильными боевыми костюмами, называемыми Големами. Главный герой Райгарт Эрроу – «не-колдун», не способный заставить левитировать даже самый крошечный кристалл. Он тихо (   Читать дальше...   )Жанр: приключения, фэнтези, мехаРежиссер: Амино ТэцуроПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685F3CDB6BF5E8D5F41208E29F588170E9694977
 ```
 
 https://mybot314.ru/tekegram_catalog/

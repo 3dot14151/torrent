@@ -1,3 +1,107 @@
+###  Публикация: 1726592   (55033) от 29.05.2024
+
+С.Н. Кожевников и др. | Механизмы (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Настоящее третье издание книги, как и второе (см. «Элементы механизмов», Оборонгиз, 1956 г.), посвящено главным образом механизмам. Книга содержит описание 2030 механизмов и их элементов, применяющихся в современных машинах различных отраслей промышленности, а также описание элементов и аппаратуры автоматических устройств. В основу расположения огромного материала (   Читать дальше...   )Жанр: Технические наукиИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726B82A08C1E07740DDF4F69CB83165CC7682DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726608   (54970) от 29.05.2024
+
+И.Л. Каганов | Промышленная электроника (1968) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В книге имеются следующие главы: двухэлектродные приборы и маломощные выпрямители; трех- и многоэлектродные приборы и усилители; генераторы синусоидальных колебаний и формирователи импульсов; фотоэлементы и другие индикаторы лучистой энергии; электроннолучевые приборы и их применение; тиристоры и их применение в коммутационных устройствах и преобразовательных системах. (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4773B2AAECF615E469A215A265FACDA4176779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728379   (54156) от 06.06.2024
+
+С.Н. Тихонов | Основы электрорадиотехники (1956) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для курсов радиомастеров и радиотелеграфистов ДОСААФ. Книга знакомит читателя с основными законами и физическими явлениями электрорадиотехники и подготавливает его к изучению радиотехнической аппаратуры. Главное внимание в книге уделено изложению физической сущности явлений, происходящих в электрических схемах. Большинство разделов иллюстрировано (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Военное издательство министерства обороны Союза ССРФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1795B599875FCDA064C55C3453E4F6947867EB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728383   (54084) от 07.06.2024
+
+С.Н. Тихонов | Основы электрорадиотехники (1959) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Главное внимание в книге уделено изложению физической сущности явлений, происходящих в электрических схемах.Жанр: ЭлектроникаИздательство: Военное издательство министерства обороны Союза ССРФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D1034A6320D8B953BB51E2904FFF38573F6324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728436   (54073) от 07.06.2024
 
 С.Н. Тихонов | Электротехника для начинающих (1969) [PDF]
@@ -6,7 +110,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,113 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8814D8521FD1AEDC1F9E52FD6A52AF4A9D1405E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756473   (39711) от 21.10.2024
-
-Г. Вюстенфельд | Производство ликеро-водочных изделий (1936) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство водочных изделий и ликеров в дореволюционной России основывалось, главным образом, на старинной рецептуре, передаваемой фирмами по наследству. Каждая фирма берегла свой "секрет" производства, поэтому посвященных этой теме публикаций сравнительно немного. Работа Г.Вюстенфельда, пролившая свет на процесс производства, стала одним из первых масштабных (   Читать дальше...   )Жанр: алкогольные напитки, отраслевые изданияПеревод: И.С.КлиментоваИздательство: ПищепромиздатФормат: DJVU, PDFКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABF065BFED57778F8A75213AB7B3A4BADA00ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756451   (39704) от 21.10.2024
-
-В.М. Жиров и др. | Основы технологии виски (2011) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена описанию основных технологических приемов производства виски. Рассмотрено законодательное регулирование качества напитка в разных странах мира, классификация виски по признаку сырья и технологии, основные технические приемы переработки сырья, правила дегустации и технохимического контроля всех этапов производства. Проанализированы не только "традиционные" (   Читать дальше...   )Жанр: алкогольные напитки, отраслевые изданияИздательство: Москва: «Пробел-2000»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4686293CB7F8955F0C744A745C1263CEBF9599A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759174   (38004) от 07.11.2024
-
-А.В. Ширяев (ред.) | Электропоезд ЭС2Г [в 2-х частях] (2019) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие посвящено электропоездам ЭС2Г до №45, которые в настоящее время эксплуатируются в основном на Московском железнодорожном узле.
-В первой части пособия освещается механическое и пневматическое оборудование электропоезда. Во второй части учебного пособия рассмотрено электрическое оборудование электропоезда.
-Предназначено для обучающихся в учебных (   Читать дальше...   )Жанр: учебное пособиеИздательство: ОАО «Российские железные дороги»Формат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887DE350C8CB08F880EC653A8948846F4F76011D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759171   (37966) от 07.11.2024
-
-А.В. Ширяев (ред.) | Скоростной электропоезд ЭС1 "Ласточка" (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрено устройство механической и экипажной частей электропоезда «Ласточка», алгоритмы  и принципы работы системы управления, функционирование компонентов и оборудования, составляющих высоковольтную и низковольтную системы, а также работа системы торможения.
-Предназначено для слушателей учебных центров профессиональных квалификаций ОАО «РЖД», осуществляющих подготовку (   Читать дальше...   )Жанр: учебное пособиеИздательство: ООО «Издательский дом «Автограф»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36F51CD216F47233CC675C3D07190FE8712A53F
 ```
 
 https://mybot314.ru/tekegram_catalog/

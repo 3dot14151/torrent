@@ -1,3 +1,57 @@
+###  Публикация: 390958   (27692) от 14.02.2025
+
+Планета обезьян / Planet of the Apes (1968, 1970, 1971, 1972, 1973) BDRemux [H.264/1080p] [Коллекция]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В 3978 году космический корабль землян терпит крушение на далекой планете. Выжившие в катастрофе астронавты удивляются, как она похожа на их дом. Вскоре они узнают, что планета населена разумными обезьянами и деградировавшими до животного состояния людьми.Производство: США / APJAC Productions, Twentieth Century FoxЖанр: фантастика, боевик, приключенияРежиссер: Франклин Дж. Шаффнер, Тед Пост, Дон Тейлор, Дж. Ли ТомпсонАктеры: Чарлтон Хестон, Родди Макдауэлл, Ким Хантер, Морис Эванс, Джеймс Уитмор, Джеймс Дэйли, Линда Харрисон, Роберт Ганнер, Лу Вагнер, Вудроу Парфри, Джеймс Франсискус, Сэл Минео, Альберт Сэлми, Джейсон Эверс, Рикардо Монтальбан, Натали Транди, Хари Родс, Северн ДарденПеревод: дублированный, профессиональный многоголосый, двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:52:02 / 01:34:42 / 01:37:32 / 01:27:22 / 01:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBDC54EC6EFDB87115871F93DFA30FDF28615BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557368   (26435) от 26.02.2025
+
+Крепкий орешек: Квадрология / Die Hard: Quadrilogy (1988, 1990, 1995, 2007) [H.264] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мир опять на краю гибели из-за новой террористической угрозы. В этот раз в «заложниках» оказывается всемирная компьютерная сеть. Правительство и спецслужбы бессильны, все готово погрузиться в хаос. Но на борьбу с нависшей над миром опасностью выходит наш старый герой Джон МакКлейн со своей неразлучной подругой «Береттой».
+Он давно в отставке, но когда на карту поставлена (   Читать дальше...   )В канун Рождества группа террористов захватила международный аэропорт и теперь удерживает тысячи путешествующих в качестве заложников. Террористы — банда отступников из первоклассно вооруженных коммандос, возглавляемых одержимым жестокостью офицером. Их цель — спасти наркобарона.
+Банда подготовлена ко всевозможным случайностям, за исключением одной — встречи с Джоном (   Читать дальше...   )Производство: США, ВеликобританияЖанр: боевик, триллерРежиссер: Лен УайзманАктеры: Брюс Уиллис, Тимоти Олифант, Джастин Лонг, Мэгги Кью, Клифф Кёртис, Джонатан Садовский, Эндрю Фридман, Кевин Смит, Йорго Константин, Сирил РаффаэллиПеревод: Авторский одноголосый (Гаврилов)Субтитры: ОтсутствуютПродолжительность: 02:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9CD6423F6B649776095E713667B63B4591C4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782467   (26213) от 28.02.2025
 
 Трансформеры / Transformers (2007-2024) BDRip [H.265/1080p] [10-bit] [Антология]
@@ -6,7 +60,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D372BDED25722F39BB28E4A3F79A0CBE693B5FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660722   (9092) от 07.08.2025
-
-При исполнении 1-9 / In the Line of Duty 1-9 (1985-1996) DVDRip, HDRip [AVO] [Коллекция]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9092.jpg" />
-</div>
-
-
-###  Подробнее
-
-«При исполнении служебных обязанностей» (традиционный китайский: 皇家師姐; упрощенный китайский: 皇家师姐; Джютпинг: Wong⁴ gaa¹ si¹ ze²), иногда называемый сериалом «Да, мадам», представляет собой серию художественных фильмов о девушках с оружием, созданных гонконгской киностудией D&B Films. (   Читать дальше...   )Производство: Гонконг, D & B Films Co. Ltd., New Treasurer Films Company, My Way Film Company LimitedЖанр: боевик, драма, криминал, комедияПеревод: Авторский (Андрей Дольский, Юрий Немахов, студия «Акцент», Action Studio Ленинград, Антон Алексеев, Александр Кашкин, Андрей Важенин, Виктор Береговых)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:20 / 01:35:51 / 01:23:31 / 01:34:49 / 01:30:12 / 01:27:36 / 01:26:43 / 01:35:23 / 01:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E89FBF11053F86A05E8D47724B5C1E259A1FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875870   (9075) от 07.08.2025
-
-Репортаж: Квадрология / [Rec]: Quadrilogy (2007-2014) BDRip [H.264]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анхела приходит в себя на корабле посреди океана. После вспышки эпидемии неизвестного вируса, превращающего людей в зомби, ученые решили изолировать инфицированных, но не заболевших людей, чтобы исследовать природу заразы. На специально оборудованном бывшем нефтяном танкере есть все необходимое оборудование для проведения лабораторных экспериментов. Но, ни ученые, (   Читать дальше...   )Производство: Испания / FilmaxЖанр: Ужасы, триллерРежиссер: Жауме БалагуэроАктеры: Мануэла Веласко, Хавьер Ботет, Пако Мансанедо, Мария Альфонса Россо, Исмаэль Фричи, Криспуло Кабесас, Марк Шардан, Эктор Коломе, Халед Кука, Мариано ВенансиоПеревод: Профессиональный (полное дублирование)Язык субтитров: Русский , АнглийскийПродолжительность: 01:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE0E1950CF70B0719229AC89F6CB8BD0719E784
 ```
 
 https://mybot314.ru/tekegram_catalog/

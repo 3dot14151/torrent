@@ -1,3 +1,190 @@
+###  Публикация: 1754252   (40651) от 12.10.2024
+
+Parallels Desktop 20 20.1.0 (55732) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение такое, как Microsoft Office, без какого-либо ущерба для быстродействия.
+Parallels Desktop Business Edition позволяет сотрудникам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2024Разработчик: Parallels International GmbHПоддерживаемая ОС: 12+Язык интерфейса: Английский, Немецкий, Французкий,Русский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54576F67C75E7C39FBB0ED8CB17EAFC2468855C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754686   (40549) от 13.10.2024
+
+Прототип сверхзвукового авиалайнера Boom Supersonic XB-1 обновил рекорд скорости
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+7 октября 2024 года демонстратор сверхзвукового реактивного самолета Boom XB-1 совершил свой пятый испытательный полет с авиабазы Мохаве, установив при этом несколько новых рекордов. Boom XB-1 — это платформа для испытания систем будущего самолета Overture, которая втрое меньше финального варианта. Конечная цель проекта — возвращение коммерческой сверхзвуковой гражданской (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755482   (40338) от 15.10.2024
+
+Windows 11 PRO 24H2 26100.1742 Update 8 by Ghost Spectre [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Собрано из en-us_windows_11_business_editions_version_24h2_x64_dvd_59a1851e.iso
+
+Что такое Compact / Superlite:
+— Superlite эта версия уже настроена - для опытных пользователей - подходит для игр и стриминга.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D97D6D2643673A0224A72E75C2373732802DF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755340   (40330) от 15.10.2024
+
+Чужой: Ромул / Alien: Romulus (2024) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Исследуя заброшенную космическую станцию, группа космических колонизаторов сталкивается лицом к лицу с самой ужасающей формой жизни во Вселенной.Производство: Великобритания, США, Венгрия, Австралия, Новая Зеландия, Канада / 20th Century StudiosЖанр: ужасы, фантастика, триллерРежиссер: Феде АльваресАктеры: Кейли Спейни, Дэвид Джонссон Фрэй, Арчи Рено, Изабела Мерсед, Спайк Ферн, Айлин У, Рози Эде, Сома Саймон, Бенсе Океке, Виктор ОризуПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, Грузинский, АнглийскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C2ADBA8AD8DD4830ECFA3F05C6686BFE35683B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755164   (40236) от 16.10.2024
+
+Субстанция / The Substance (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Слава голливудской звезды Элизабет Спаркл осталась в прошлом, хоть она всё ещё ведёт популярное фитнес-шоу на телевидении. Когда её передачу собираются перезапустить с новой звездой, Элизабет решает принять уникальный препарат «Субстанция». Так на свет появляется молодая и сексуальная Сью. Однако у совершенства есть своя цена, и расплата не заставит себя долго ждать.Производство: Великобритания, Франция / Blacksmith, Film FranceЖанр: ужасы, драмаРежиссер: Корали ФаржаАктеры: Маргарет Куолли, Деми Мур, Деннис Куэйд, Edward Hamilton-Clark, Гор Абрамс, Оскар Лесаж, Кристиан Эриксон, Робин Грир, Том Мортон, Уго Диего ГарсияПеревод: Многоголосый любительский (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C71FD6B58C6540F2A9FF9D41FDA290350742B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754605   (40018) от 18.10.2024
+
+Skype вернул себе позиции самого популярного файлообменника в России
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Skype вернул себе позиции самого популярного файлообменника в России
+Росстат отмечает взрывной рост пользователей некогда популярного файлообменника Skype в России: за первые сутки после блокировки мессенджера Discord его установили 32 млн человек. Таким образом, он впервые с 2012 года стал самым популярным файлообменником в России.«Мы рады, что наши блудные пользователи, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396489   (39930) от 19.10.2024
+
+Wavelet: Headphone specific equalization v24.10 (2173) Mod by Kirlif' [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Разработчик pittvandewitt разработал приложение Wavelet, которое может точно настроить звучание подключенных к смартфону наушников благодаря встроенным инструментам. Главная особенность — наличие звуковых профилей для 2300 моделей наушников, как проводных, так и беспроводных. Эта функция называется AutoEq. Она настраивает звучание на нейтральный стандарт Harman. (   Читать дальше...   )Тип издания: FullРелиз состоялся: 19.10.2024Разработчик: pittvandewittПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9654A0FA823CCD4B24316C82BEC3D0D5092921E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755683   (39886) от 19.10.2024
 
 Россия и Китай снимут ремейк фильма «Невероятные приключения итальянцев в России»
@@ -6,7 +193,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +219,7 @@ Launcher for zapret 1.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +247,7 @@ Launcher for zapret 1.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -491,189 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F163594D53160F0035D9CC1615AFB9909CEC8633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757938   (38666) от 01.11.2024
-
-Лучшие фильмы ужасов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы ужасов
-Жанр ужасов один из классических в кинематографе. Он появился на заре его становления вместе с комедиями и его сразу оценили любители пощекотать себе нервы. С тех пор на смену актерам в костюмах монстров и чудовищ пришли спецэффекты и компьютерная графика, которую легко спутать с реальностью и зрители готовы платить за билет в кинотеатр, чтобы получить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758457   (38468) от 03.11.2024
-
-Конец эпохи: NVIDIA заменит Intel в индексе Dow Jones
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Intel была одной из двух технологических акций (вторая была Microsoft), которые присоединились к Dow Jones Industrial Average во время пузыря доткомов 90-х. Однако хроническая неэффективность имеет последствия. Производителя микросхем Nvidia с 8 ноября включат в индекс Уолл-стрит Dow Jones Industrial Average заменив компанию Intel.Акции Nvidia в 2024 году выросли (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756791   (38450) от 03.11.2024
-
-Наследники. Дар крови (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-12 из 12)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38450.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нападения на хранилище артефактов дочь могущественного мага Надя исчезает. Её муж Роман уверен, что супруга погибла, поэтому сам воспитывает дочек и сына. Спустя время дети открывают в себе сверхъестественные силы, что не нравится магам, особенно сестре Нади — оперативнице из Отдела магической безопасности Вере. Жёсткая и бескомпромиссная девушка и её правая (   Читать дальше...   )Производство: Россия / Pick Up FilmsЖанр: фэнтезиРежиссер: Антон Федотов, Александр БабаевАктеры: Маша Кошина, Артем Кошман, Полина Айнутдинова, Екатерина Вилкова, Оксана Акиньшина, Елена Подкаминская, Антон Васильев, Дмитрий Чеботарёв, Кристина Корбут, Антон КузнецовСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BA25F4600524A5D0575CB1B52B0284D23D7597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758397   (38449) от 03.11.2024
-
-Апокалипсис Z: Начало конца / Apocalypse Z: El principio del fin / Apocalypse Z: The Beginning of the End (2024) WEB-DL [H.264/1080p] [DVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38449.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Апокалипсис Z: Начало конца» — это захватывающий постапокалиптический триллер, основанный на романе Мануэля Лурейро. Действие фильма разворачивается в наши дни, когда мир внезапно охвачен смертельной эпидемией, превращающей людей в зомби. В центре сюжета — адвокат из небольшого испанского города, который неожиданно оказывается одним из немногих выживших.Производство: Испания / Nostromo PicturesЖанр: боевик, ужасы, фантастика, триллерРежиссер: Карлес ТорренсАктеры: Берта Васкес, Ирия дель Рио, Франсиско Ортис, Хесус Льоверас, Alberto Ladrón de Guevara, Sergio CrespoПеревод: Двуголосый любительский (KerobTV)Язык озвучки: Русский, ИспанскийСубтитры: Русские, Английские, Испанские (SDH)Продолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B082661E18BD5B63E63E376494D2FFA26B371BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752750   (38158) от 06.11.2024
-
-Друзья / Friends (1994-2004) UHD BDRemux [H.265/2160p] (сезон 1-10, серии 1-235 из 235) [4K, HDR, Dolby Vision P8, 10-bit] студия Нота
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои — шестеро друзей — Рейчел, Моника, Фиби, Джоуи, Чендлер и Росс. Три девушки и три парня, которые дружат, живут по соседству, вместе убивают время и противостоят жестокой реальности, делятся своими секретами и иногда очень сильно влюбляются.Производство: США / Bright/Kauffman/Crane Productions, Warner Bros. TelevisionЖанр: комедия, мелодрамаРежиссер: Гари Хэлворсон, Кевин Брайт, Майкл ЛембекАктеры: Дженнифер Энистон, Кортни Кокс, Лиза Кудроу, Мэтт ЛеБлан, Мэттью Перри, Дэвид Швиммер, Джеймс Майкл Тайлер, Эллиотт Гулд, Кристина Пиклз, Мэгги УилерПеревод: многоголосый профессиональный (студия Нота)Язык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C3DA6584032D92074C10140618514657F67AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759015   (38154) от 06.11.2024
-
-Driver Easy Pro 6.1.1.29776 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Easy Professional — профессиональная и в тоже время простая в использовании программа для вашего компьютера, которая предназначена для работы с драйверами системы — для поиска и загрузки последних версий драйверов. Просканировав вашу систему, программа найдет устаревшие драйвера, позволит вам скачать их обновленные версии и установить. Driver Easy может создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870B7DFB75183E310A6D8B0F94FCA92CB41A025B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621208   (38051) от 07.11.2024
-
-Return to Castle Wolfenstein (2001) [Ru/En] (1.41/1.42d) Repack 1nomok
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Return to Castle Wolfenstein - выдающаяся во всех отношениях игра, которая перенесёт нас в годы яростных битв и тайн мирового масштаба. Замечательный шанс лично посодействовать войскам Союзников в деле победы над фашистской Германией и просто отлично провести время. Запустив её раз, вы уже не забудете тех непередаваемых ощущений, которые подарит вам этот великолепный (   Читать дальше...   )Тип издания: RepackРазработчик: Gray Matter Studios и Nerve SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A81A950935A1572DB2B53EA5E39FA08764146F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

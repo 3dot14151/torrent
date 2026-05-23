@@ -1,3 +1,159 @@
+###  Публикация: 1485071   (1005302) от 26.07.2021
+
+Серия Кубков NASCAR 2021. Этап 22. Нью-Хэмпшир. Гонка / NASCAR Cup Series 2021. Jockey Foxwoods Resort Casino 301. New Hampshire Motor Speedway (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0985EF7CA3B6B83EEC245EBC3D207E6323A9460E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484635   (1005299) от 26.07.2021
+
+Бразильская автоспортивная серия гоночных грузовиков. Сезон 2021. Этап 3. Каскавел. Гонка 1-2 / Copa Truck-2021 (ex- Formula Truck). Cascavel (PR). Race 1-2 (17.07.2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Copa Truck — бразильская автоспортивная серия гоночных грузовиков, до 2017 года она называлась Formula Truck.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19573C7A58A332AFA9144E4A0E44F1D925844955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486403   (1004871) от 30.07.2021
+
+Чемпионат по дрэг-рейсингу NHRA 2021. 9 этап. Сонома / NHRA Drag Racing Championship 2021. Round 9. Sonoma (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра (1/4 мили). Реже проводятся заезды на 1/2 мили (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути драг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 02:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28A7D548F47BB5DDA462B51B173A41DACA61C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487210   (1004129) от 03.08.2021
+
+Чемпионат США по супербайку 2021. Этап 6. Брэйнард. Гонка 1-2 / MotoAmerica 2021. Rd. 6. Brainerd. Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+MotoAmerica — это организация, которая продвигает серию AMA Superbike с 2015 года. С санкции Американской ассоциации мотоциклистов и Международной федерации мотоциклистов она предлагает пять классов шоссейных гонок: Superbike, Stock 1000, Supersport, Twins Cup и Junior Cup.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:17:08 + 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB5B0FCEB91647AE57B42B950B14D11A6F1CF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487200   (1004128) от 03.08.2021
+
+Национальное первенство Великобритании по супербайку 2021. Тракстон, Гонка 1-3 / British Superbike Championship. Thruxton, Race 1-3 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Bennetts British Superbike Championship — ведущий чемпионат по шоссейным кольцевым мотогонкам в Великобритании, он также широко известен в мире, как ведущая серия гонок среди отечественных, английских супербайков.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 37:42 + 54:53 + 55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F250F56DD4625937B8DE9BAEB61399CEADACBEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487204   (1004127) от 03.08.2021
+
+Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2021. Оултон Парк, Гонка 1-3 / BTCC. Oulton Park, Race 1-3 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:19:46 + 32:49 + 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BD63C883E9FB497083D3687F5CE6B664EECF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487192   (1004126) от 03.08.2021
 
 Женская формульная серия W. Сезон 2021. Этап 4. Венгрия. Квалификация, Гонка / W Series 2021. Rd. 4. Hungary. Quali, Race  (2021) WEB-DL [H.264/720p-LQ]
@@ -6,7 +162,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +188,7 @@ Monster Jam: Wales, Cardiff (18.05.2019) WEB-DL [H.264/1080p-LQ] [hand made 50fp
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +266,7 @@ MotoGP. Этап 10. Гран-при Штирии. Гонка (08.08.2021) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +449,7 @@ Formula-E: Santiago E-Prix. Гонка [МАТЧ! Арена HD] (18.01.2020) DV
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +475,7 @@ Monster Jam: Japan, Tokyo (02-03.11.2019) WEB-DL [H.264/1080p-LQ] [hand made 50f
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +530,7 @@ Monster Jam: Houston, Texas (25.01.2020) WEB-DL [H.264/720p-LQ]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +610,7 @@ Monster Jam: St. Louis, Missouri, (18-19.01.2020) WEB-DL [H.264/720p-LQ]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -523,171 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:223DA67BC1969A86164F7F083BF8F0D7A80AD3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363033   (945296) от 26.02.2020
-
-Серия Кубков NASCAR 2020. 2-й Этап. Пеннзойл 400 (Лас-Вегас). Гонка / NASCAR Cup 2020. Round 02. Pennzoil 400. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-Воскресенье, 23 февраля 2020 года. Лас-Вегас (штат Невада, США).
-2-й Этап. Пеннзойл 400 (Лас-Вегас)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63826D72500EC2E922A55B909D11DDD6140E89EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364321   (937887) от 02.03.2020
-
-Серия Кубков NASCAR 2020. 3-й Этап. Авто Клуб 400 (Фонтана). Гонка / NASCAR Cup Series 2020. Round 03. Auto Club 400. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-Воскресенье, 01 марта 2020 года. Фонтана (штат Калифорния, США).
-3-й Этап. Авто Клуб 400 (Фонтана)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD5FBCEC49A24E99A675613ECDE16E1E78581A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489167   (927138) от 15.08.2021
-
-MotoGP. Этап 11. Гран-при Австрии. Квалификация (14.08.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927138.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 августа 2021, суббота. 15:10 МСК. Этап 11, Гран-при Австрии. Шпильберг, КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39044F0049AA5E88DA22845A717B37079F06042A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489337   (927133) от 15.08.2021
-
-MotoGP. Этап 11. Гран-при Австрии. Гонка (15.08.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927133.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 августа 2021, воскресенье. 15:00 МСК. Этап 11, Гран-при Австрии. Шпильберг, Гонка (28 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326BF67CBFFF7F70ABF15651F0577CD679529767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366497   (923900) от 11.03.2020
-
-Серия Кубков NASCAR 2020. 4-й Этап. ФанШилдс 500 (Феникс). Гонка / NASCAR Cup Series 2020. Round 04. FanShield 500. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-08 марта 2020 года. Эйвондейл (штат Аризона, США).
-4-й Этап. ФанШилдс 500 (Феникс)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4788FA4BB7D260B9CE131F6F7364ACA588CE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489855   (922364) от 18.08.2021
-
-Чемпионат США по супербайку 2021. Этап 7. Вампум. Гонка 1-2 / MotoAmerica 2021. Rd. 7. Wampum. Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922364.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoAmerica — это организация, которая продвигает серию AMA Superbike с 2015 года. С санкции Американской ассоциации мотоциклистов и Международной федерации мотоциклистов она предлагает пять классов шоссейных гонок: Superbike, Stock 1000, Supersport, Twins Cup и Junior Cup.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:02:11 + 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC756FD2265949D3A576FC7492B053519DBD69BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1166461   (423594) от 17.09.2017
+
+Discovery. Взрывая историю / Blowing up History (2016) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Глядя на дошедшие до нас памятники древних цивилизаций, трудно поверить, что задолго до появления современных технологий и мощной строительной техники удавалось возводить столь величественные сооружения. Программа Discovery Channel «Взрывая историю» ищет ответ на вопрос, как архитекторам и строителям давних эпох удавалось опередить свое время. С помощью компьютерных (   Читать дальше...   )Производство: США, Windfall Films, Discovery ChannelЖанр: Документальный, наука, история, археологияРежиссер: Джеймс Франклин, Каролин Ли, Том РенсонПеревод: Одноголосый закадровый, профессиональный (Кириллица)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A4FEF7FF5DF0D2E21F110E792B21AE3515EC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166429   (423465) от 17.09.2017
+
+Непризнанные / Unacknowledged (2017) WEBRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Документальная лента исследует вопрос о присутствии представителей инопланетной расы на Земле.Производство: США, Auroris MediaЖанр: Документальный, познавательныйРежиссер: Михаэль МаззолаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D690A338148632B461C12862BBDBCA41B4784246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324567   (423008) от 10.09.2019
 
 NGW: Испытания в дикой природе / Trials of the Wild (2018) HDTVRip [H.264] (серии 10 из 10)
@@ -6,7 +58,7 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC. Дикая природа: шпион среди антилоп гну / Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NGW: Невероятная Африка. Назинга / Extraordinary Africa.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NGW: Невероятная Африка. Сокровища Восточног�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery. Как это работает? / How it's made? (2016-2019) WEB-DL [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Discovery. Дороги России: Ладога (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +292,7 @@ NGW: Африканские охотники / Africa's Hunters (2018) HDTVRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Discovery: Жизнь отвратительных животных / Nasty by N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_417292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +450,7 @@ Animal Planet. Проект Гризли / Project Grizzly (2016) HDTVRip (Се�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Discovery. Дороги России: Уфа - Магнитогорск (2016) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ Discovery: Разрушители легенд. Взрыв на воде / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ Discovery: Разрушители легенд. Полёт фантазии / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Запо
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ History Channel. Военное противостояние / Clash of Warriors
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ NGW: Пустынное море / The Desert Sea (2016) HDTV [H.264/1080i-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ NGW: Зеленый ковбой из Австралии / Monster Croc Wrangler
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ NG. Миссия Сатурн / Mission Saturn (2017) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ NG. Миссия Сатурн / Mission Saturn (2017) HDTVRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:214F03477D8974F4234DD8C17607884E98C3D83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167854   (412294) от 22.09.2017
-
-Discovery: Загадки планеты Земля / What on Earth? (2015-2017) HDTVRip (сезон 1-3, серии 1-30 из 30)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем больше спутников запускают в космос, тем меньше на Земле остается слепых пятен. Теперь, когда снимки из космоса стали частью общедоступных программ, таких как «Google Earth», на суше и на море вдруг стали обнаруживаться различные аномалии. Увлекательная программа «Загадки планеты Земля» возвращается с новым сезоном, где мы продолжим исследовать тайны и загадки (   Читать дальше...   )Производство: США / Discovery Communications, LLCЖанр: Документальный, научно-познавательныйРежиссер: Дэниэл Эдвардс ...Перевод: Одноголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998B366B15CBFAA4BB2BF6C4AC519D5121EE8AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066512   (411919) от 26.10.2016
-
-Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Океан становится все оглушительнее, и от этого страдают его обитатели – например, из-за высокой интенсивности шума расстояния для общения синих китов сократились на 90%, а уровень шума кораблей увеличивается вдвое каждое десятилетие в течение последних 40 лет! Эти данные были опубликованы в докладе Международного фонда защиты животных «Шум в океане: приглушите звук». (   Читать дальше...   )Производство: США, Канада, Норвегия / Discovery ChannelЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FB455643B9CDF2E8B4D54C434CE023679D1204
 ```
 
 https://mybot314.ru/tekegram_catalog/

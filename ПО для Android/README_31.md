@@ -1,3 +1,81 @@
+###  Публикация: 1482936   (1007125) от 11.07.2021
+
+Eon Music Player Pro 5.5.5 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Eon Music Player Pro - это мощный и удобный аудиоплеер, который на все сто процентов справляется со всеми поставленными задачами. Этот аудиоплеер для операционной системы Android можно охарактеризовать, как простой в управлении и легко настраиваемый под любого пользователя. Эта программа полностью бесплатна. Разработчики уже позаботились о кастомизации и подготовили (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 04.07.2021Разработчик: qmsapplacationsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D6D7163B1094AEBADB89EF064DDDDD139E3962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465106   (1007078) от 11.07.2021
+
+Расчёт трубопровода v31 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Расчет трубных вставок разных диаметров и радиусов. Вставка по известному градусу угла, одинакового и разного диаметра, Вставка по известному градусу угла, двух разных диаметров, Параметры отвода, Параметры отрезанного отвода-узнать угол отреза. Параметры отвода из сегментов, расчеты. Срезать прямой угол трубопровода вставкой под любым углом. Вставка по известному (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 28 июня 2021 г.Разработчик: Khokhlov AndreyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A255B818FD8273548CE8778D1F073FEFE97F1745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484003   (1006475) от 16.07.2021
+
+Correct spelling v11.0 [En] - English learning app
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Часто ли вы пишете 🖊 на английском на своем телефоне? Вы хотите быть уверены, что в вашем сообщении, тексте или орфографии нет ошибок? Это намного проще, чем кажется. Вам нужно всего лишь загрузить наш корректор предложений 📙 и начать уверенно общаться и писать! Ваше сообщение, письма и фразы будут на 100% правильными, и вам не придется беспокоиться (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 14 июля 2021 г.Разработчик: FiredomПоддерживаемая ОС: Android 5.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631F0D0A418BFC8EC3D2ADE3BD5945C1F1C31667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477269   (1006229) от 18.07.2021
 
 Measure Map v1.2.23 [En/Ru]
@@ -6,7 +84,7 @@ Measure Map v1.2.23 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Blokada - AD Blocker for Android v5.14.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Picture Fish - Fish Identifier v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +189,7 @@ File Converter v12.1.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Photo Translator v8.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +298,7 @@ Rotation - Orientation Manager v22.2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +324,7 @@ Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изобра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +351,7 @@ Money Pro v2.0.13  [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +377,7 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +403,7 @@ Fake GPS Location v3.5 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +429,7 @@ Seven – 7 минутные тренировки. Упражнения для �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +455,7 @@ Audio MP3 Cutter Mix Converter v1.90 Pro [Ru/Multi] - обрезка и конв
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +481,7 @@ VK Coffee v8.00 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +507,7 @@ Private Browser - Fast VPN Incognito Browser 3.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +533,7 @@ GFX Tool for PUBG 8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +559,7 @@ WorkAudioBook v4.4.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +611,7 @@ MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +637,7 @@ Cheat Engine 1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +663,7 @@ Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -597,86 +675,6 @@ Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FE1E753EBE302557F1B7B9F81C9098AF220A182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353779   (990538) от 19.01.2020
-
-Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop Touch на Андроид – скачайте и установите программу, и вперед фантазировать, создавать и комбинировать изображения, применяя профессиональные эффекты. Не забудьте поделиться с друзьями и с семьей через Facebook и еще много чего интересного.Тип издания: Пиратка (Mod: поддерживает Android 10)Релиз состоялся: 04.01.2020Разработчик: AdobeПоддерживаемая ОС: Android 3.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F01516B35C300CC47B146638F7821D9F22396ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029248   (990367) от 19.01.2020
-
-Self Camera HD Pro 4.2.21 [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение позволяет делать отличные снимки высокого качества удаленно с помощью свистков или хлопков, не касаясь телефона.
-Многие фильтры эффект доступны с предварительного просмотра и возможностью использования 4 фильтров сразу.
-Простой и быстрый способ для захвата Селфи с расстояния от 1 до 15 метров от устройства.Тип издания: ПираткаРелиз состоялся: 18.01.2020Разработчик: Ouadban YoussefПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86598EF771D779EFEFA5A8191291ECF43C3E9353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354020   (989684) от 20.01.2020
-
-Клавиатура SwiftKey v7.4.6.6 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клавиатура SwiftKey - умная клавиатура на андроид от лучшего разработчика SwiftKey. Клавиатура составит ваш персональный алгоритм подстановки слов и словосочетаний, на основе первоначального анализа ваших sms сообщений, учетных записей почты и аккаунтов в социальных сетях, что значительно облегчает ввод текста.Тип издания: Оригинал (Разорвана связь с Google Play)Релиз состоялся: 19.01.2020Разработчик: SwiftKeyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DE29B1A41ACBEB930C8F450D9C1C34B41EFE86
 ```
 
 https://mybot314.ru/tekegram_catalog/

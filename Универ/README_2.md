@@ -1,29 +1,3 @@
-###  Публикация: 1195397   (137753) от 31.12.2017
-
-СашаТаня. Новогодняя серия (2017.12.28) WEB-DL [H.264/720p-LQ]
-
->>Отечественные сериалы
->>Универ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Производство: Россия / "Comedy Club Production", ТНТЖанр: комедияРежиссер: Михаил Старчак, Сергей КазачанскийАктеры: Андрей Гайдулян, Валентина Рубцова, Алексей Климушкин, Елена Бирюкова, Татьяна Орлова, Андрей Лебедев, Ксения Хаирова, Олег Новиков, Сергей Рудзевич, Сергей Мурзин и др.Продолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4FA86C2731C8F96BCBE5CD919694637CB13DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195716   (137742) от 31.12.2017
 
 СашаТаня. Новогодняя серия (2017.12.28) HDTV [H.264/1080i]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

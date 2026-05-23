@@ -1,3 +1,29 @@
+###  Публикация: 1842961   (1049036) от 17.12.2025
+
+Plus Messenger (Telegram+)  v12.2.10.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 16.12.2025Разработчик: rafalenseПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFC86CD50CD9CBC5D760E623F07C1264BD6589D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842360   (1048925) от 16.12.2025
 
 Xiaomi Home (Ранее. MiHome) v11.0.622 Mod by Vevs [Ru]
@@ -6,7 +32,7 @@ Xiaomi Home (Ранее. MiHome) v11.0.622 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sketchbook v6.2.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Vanced Tube v5.5.80.314 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Grok - ИИ ассистент v1.0.89-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Vanced Tube v5.5.80.306 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -181,6 +207,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842079   (1048488) от 14.12.2025
+
+Universal Copy v7.0.1 Мод by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Universal Copy — это самый быстрый способ копировать текст на Android, даже из приложений, которые не позволяют вам копировать, или внутри изображений. Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.12.2025Разработчик: Camel CorporationПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68AF6A00FEA91722835CE4C25165C0579F3A5A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842087   (1048487) от 14.12.2025
 
 Photo Editor v12.3 Pro Mod by Mixroot [Ru/Multi]
@@ -189,7 +241,7 @@ Photo Editor v12.3 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Photo Editor v12.3 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ HiPER Calc Pro v11.2.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -259,6 +311,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841841   (1048468) от 13.12.2025
+
+Universal Copy v7.0.1 Мод by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Universal Copy — это самый быстрый способ копировать текст на Android, даже из приложений, которые не позволяют вам копировать, или внутри изображений. Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.12.2025Разработчик: Camel CorporationПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B188F6C65922957C4499DD7902FA758CBC8143E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841835   (1048467) от 13.12.2025
 
 Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod by Balatan [Ru/Multi]
@@ -267,7 +345,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.0.58429 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Moon+ Reader Pro v10.3 (b1003000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ Remini / Улучшение Фото v3.7.1213.202518225 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ Grok - ИИ ассистент v1.0.87-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ AirBrush: ИИ Фоторедактор v7.22.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ SnapEdit - AI photo editor v7.5.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ Exo Player - Видеоплеер и IPTV v2.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ YouCut - Video Editor v1.702.1215 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +657,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.127 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,87 +669,6 @@ WaveEditor для Android™ — это профессиональный инс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FC3FCBD48A6A3695F9AE69C25F307B5BA930689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841526   (1048177) от 11.12.2025
-
-Электробезопасность. Тесты v3.1.2 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:
-- II группа по электробезопасности до и выше 1000 В
-- III группа по электробезопасности до и выше 1000 В
-- IV группа по электробезопасности до и выше 1000 В(   Читать дальше...   )Тип издания: Paid (antisplit)Релиз состоялся: 10.12.2025Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7044DA36B7B4D7227D0300DAAD6AA52A8EA3AB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841527   (1048176) от 11.12.2025
-
-AIDA64 v2.16 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита информации об оборудовании и программном обеспечении для устройств на базе Android. Основываясь на обширных знаниях об оборудовании приложения AIDA64 для Windows, AIDA64 для Android может отображать различную диагностическую информацию для телефонов, планшетов, смарт-часов и телевизоров, в том числе:Тип издания: PremiumРелиз состоялся: 11.12.2025Разработчик: FinalWire LtdПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9DFA1B53BDA71B9AFCC6A66D0159A5FE23ACB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841365   (1047921) от 10.12.2025
-
-Taskito v1.1.6 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taskito - это приложение для управления задачами на основе временных рамок, которое поможет вам организовать повседневную работу и достичь больших целей в жизни. Это приложение тодо-листа делает акцент на том, чтобы ваши ежедневные задачи оставались маленькими и достижимыми.Тип издания: Пиратка (Mod)Релиз состоялся: 10.12.2025Разработчик: FenchtoseПоддерживаемая ОС: Android 7.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AE60A31241F500E767151C22CC5DFDBED4BF82
 ```
 
 https://mybot314.ru/tekegram_catalog/

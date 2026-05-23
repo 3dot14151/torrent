@@ -1,3 +1,107 @@
+###  Публикация: 1634910   (198019) от 23.05.2023
+
+Молоди (2021) WEBRip  [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Ника бежит в загородный дом пересиживать карантин, по дороге знакомясь с живущим неподалеку Сергеем. Молодые люди постепенно начинают сближаться. Тогда как обстановка на фоне развернувшегося «карантинного кризиса» накаляется, учащаются разбои и грабежи.Производство: Россия / Human FilmsЖанр: триллерРежиссер: Александр СеливерстовАктеры: Даниил Колотов, Яна Ронин, Ирина Обручкова, Кирилл Фролов, Зоя КвасенковаСубтитры: отсутствуютПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978E782391427BF402EDEB678CC4124BA868E8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634948   (198001) от 23.05.2023
+
+Странный дом (2023) WEBRip  [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+После лечения жены от психического расстройства семейная пара отдыхает в загородном доме. Каждое утро молодая женщина, просыпаясь, обнаруживает, что дом переместился в другое место. Муж пытается успокоить супругу, но ее «сумасшествие» обостряется, пока она не понимает истинные причины происходящего.Производство: Беларусь / Синема Сервис, MediacrewЖанр: триллер, фантастикаРежиссер: Макс МаксимовАктеры: Владимир Яглыч, Ирина Кобзева, Станислав Бондаренко, Ирина Безряднова, Оксана ЛеснаяСубтитры: отсутствуютПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB99D35B53C06D2BEF446E4FD48C64B2211CE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634986   (197999) от 23.05.2023
+
+Праведник (2022) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+1942 год. Офицер Красной армии Николай Киселев получает приказ вывести с оккупированных белорусских земель за линию фронта свыше двухсот евреев — стариков, женщин и детей, чудом избежавших расправы. Этим измученным голодом людям, потерявшим родных и едва не сошедшим с ума от пережитого ужаса, предстоит пройти пешком по лесным тропам сотни километров, чтобы обрести (   Читать дальше...   )Производство: Россия / Телеканал «Россия 1» / Централ Партнершип / Студия Тритэ / ВайТ МедиаЖанр: драма, военный, историяРежиссер: Сергей УрсулякАктеры: Александр Яценко, Сергей Маковецкий, Фёдор Добронравов, Евгений Ткачук, Юлия Витрук, Любовь Константинова, Марк Эйдельштейн, Мария Золотухина, Константин Хабенский, Довале ГликманСубтитры: Русские (Full, SDH)Продолжительность: 02:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C7500792232F061FE6B74E120E808102FC1AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610035   (197998) от 25.05.2023
+
+Доверие (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+35-летние мужчина и женщина давно живут вместе. Они любят поесть перед телевизором, поиграть в кристаллики, сидя рядом в застиранных футболках, попить пива в постели перед сном. Они полностью принимают друг друга и даже легко обмениваются телефонами. Или их доверие лишь хитрая манипуляция одного из партнеров?Производство: РоссияЖанр: Короткометражный, драма, комедияРежиссер: Анастасия ДенисоваАктеры: Анна Котова-Дерябина, Макар ЗапорожскийСубтитры: отсутствуютПродолжительность: 00:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFE0DB49DC56F959CC8BE359B4A3D09E76ECB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634961   (197995) от 23.05.2023
 
 Один настоящий день (2022) WEBRip [H.264]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -570,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25298C37C77BF1D81BB8860A25B89B1B7597C335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640440   (196831) от 18.06.2023
-
-Синдром отложенного счастья (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сорокалетняя провинциалка Наталья Никитина уже седьмой год живет в Питере. Она работает сиделкой у немощных старичков и терпит их бесчисленные причуды и унижения. Однажды в ее жизни появляется новая подруга — массажистка по имени Любовь, которая ввергает Наталью в пучину ярких и рискованных приключений в поисках любви и счастья.Производство: Россия, Марс МедиаЖанр: мелодрамаРежиссер: Татьяна КолгановаАктеры: Ирина Пегова, Эра Зиганшина, Татьяна Рябоконь, Алексей Шевченков, Михаил Пореченков, Александр Белоусов, Татьяна Буланова, Хельга Филиппова, Наталья Парашкина, Даниил ШигаповСубтитры: отсутствуютПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79B9306AE176DCBDFFE840569250BB6F27E7BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640279   (196816) от 19.06.2023
-
-Кольская сверхглубокая / Superdeep (2020) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit] [EN / EN, Ger Sub]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кольская сверхглубокая скважина - самый масштабный секретный объект страны. В 1984 году на глубине более 12 километров были записаны необъяснимые звуки, похожие на крики множества голосов. После этих событий объект закрывают. Небольшая исследовательская группа отправляется под землю, чтобы узнать, какую тайну скрывает глубочайшая скважина в мире. То, что они обнаружили, (   Читать дальше...   )Производство: Россия, Трио ФильмЖанр: триллер, ужасы, фантастика, боди-хоррорРежиссер: Арсений СюхинАктеры: Милена Радулович, Сергей Иванюк, Николай Ковбас, Вадим Демчог, Кирилл Ковбас, Никита Дювбанов, Виктор Низовой, Артём Цуканов, Илья Ильиных, Владимир КолидаПеревод: с русскогоЯзык озвучки: АнглийскийСубтитры: английские (forced), немецкие (PGS)Продолжительность: 01:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B2B8601F1DC2615449AA1CC030896320EAE550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641354   (196651) от 22.06.2023
-
-Помилование (2023) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1942 года. Под Сталинградом начинается жесточайшее сражение, исход которого решит судьбу всего мира… Ещё не нюхавший пороха двадцатилетний сержант Любомир Зух отлучился из своей части в прифронтовой зоне, чтобы проститься с любимой девушкой.​ Всего три часа его не было в части!​ Но по законам военного времени он дезертир. И наказание за это одно (   Читать дальше...   )Производство: Россия, Мотор Фильм СтудияЖанр: драма, военныйРежиссер: Айнур АскаровАктеры: Александр Новиков, Николай Галлямов, Евгений Михеев, Джамиля Мударисова, Гела Месхи, Александр Бухаров, Любовь Зайцева, Юрий Лопарев, Михаил Хмуров, Гузель ХасановаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E137E6CF0F5385CF1B31915878A15E5887F1C85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641396   (196649) от 22.06.2023
-
-Помилование (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1942 года. Под Сталинградом начинается жесточайшее сражение, исход которого решит судьбу всего мира… Ещё не нюхавший пороха двадцатилетний сержант Любомир Зух отлучился из своей части в прифронтовой зоне, чтобы проститься с любимой девушкой.​ Всего три часа его не было в части!​ Но по законам военного времени он дезертир. И наказание за это одно (   Читать дальше...   )Производство: Россия, Мотор Фильм СтудияЖанр: драма, военныйРежиссер: Айнур АскаровАктеры: Александр Новиков, Николай Галлямов, Евгений Михеев, Джамиля Мударисова, Гела Месхи, Александр Бухаров, Любовь Зайцева, Юрий Лопарев, Михаил Хмуров, Гузель ХасановаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B6E4DA8A24803FA47D7747F744A1ED9A2B71D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

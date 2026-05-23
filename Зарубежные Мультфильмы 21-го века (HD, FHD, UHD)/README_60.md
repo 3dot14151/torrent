@@ -1,3 +1,81 @@
+###  Публикация: 814109   (562928) от 18.08.2014
+
+Игрушечная история террора / Toy Story of Terror (2013) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вуди, Джесси, Баз, Рекс и другие знакомые и незнакомые персонажи проведут ночь в мотеле. Им придётся столкнуться с настоящим чудовищем и другими опасностями в ожидании рассвета.Жанр: мультфильм, короткометражка, комедия, приключения, семейныйРежиссер: Энгус МакЛэйнПеревод: Многоголосый закадровыйЯзык субтитров: ФранцузскийПродолжительность: 00:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D805518EE45991CBE1CE0BC9B9911AAF2ADD11B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530676   (562489) от 02.08.2012
+
+Эмили Жоли / Emilie jolie (2011) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эмили — маленькая девочка с голубыми глазами, светлыми волосами и розовыми щечками. Завтра ее первый день в новой школе и она переживает. Сможет ли она завести друзей на новом месте? И главное, сможет ли папа отвлечься от работы, чтобы отвести ее в школу в этот важный день? Мама Эмили находит среди коробок с вещами книжку, которую сама читала в детстве, и дает ее (   Читать дальше...   )Производство: Франция / 2d3D Animations, Angoa-Agicoa, Banque Postale Image 4Жанр: МультфильмРежиссер: Филипп Шатель, Френсис НилсенАктеры: Камилль Тиммерман, Франсуа-Ксавье Демезон, Эли СемунПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03F07B47E48580D1F0584EFDFEAB1924EB2348C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530316   (560318) от 03.08.2012
+
+Зеленый Фонарь: Изумрудные рыцари / Green Lantern: Emerald Knights [H.264/720p-LQ] (2011) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот полнометражный анимационный фильм по Вселенной DC Comics открывает нам богатую мифологию мира Зеленого Фонаря в шести взаимосвязанных эпизодах. Ожидая сражения с Кроной, древним врагом Стражей Вселенной, Зеленые Фонари Земли: Хэл Джордан, Килавог, Синестро и другие бойцы Корпуса Зеленых Фонарей рассказывают новичку-рекруту Арисии о своих былых приключениях - от истории о Первом Фонаре до зловещих событий, которые привели к Самой Черной Ночи Корпуса!Жанр: Компьютерная анимацияРежиссер: Крис Беркли, Лоурен Монтгомери, Джей ОливаПерсонажи: Натан Филлион, Джейсон Айзекс, Элизабет Мосс, Генри Роллинз, Арнольд Вослу, Тони Амендола, Стивен Блум, Грей ДеЛайл, Келли Ху, Майкл ДжексонПеревод: ДублированныйПродолжительность: 01:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D20F7A77091AF9C48C6263FBFB41216D21C5123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 814553   (559024) от 20.08.2014
 
 Оз: Возвращение в Изумрудный Город / Legends of Oz: Dorothy's Return (2013) BDRip [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,87 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45ECAB44DA2EF837A46ABD268689D2A0370F6729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817463   (545771) от 30.08.2014
-
-За тридевять земель / Resan till Fjaderkungens Rike (2013) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545771.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках своей мамы Йохан попадает в далекое Царство Короля Перьев, откуда нет дороги назад. От судьбы не уйдешь:
-теперь он должен сам позаботиться о спасении не только своей мамы, но и всего королевства.
-Но разве можно понимать все тонкости жизни и играть по ее правилам, когда ты еще так молод?Производство: Дания, Швеция | Copenhagen Bombay, Film i VastЖанр: Мультфильм, ФэнтезиРежиссер: Эсбен Тофт ЯкобсенАктеры: Эдвин Ридинг, Тува Новотны, Густаф Хаммарстен, Леннарт Якель, Сиселла Кайл, Лейф Андре,
-Сёс Эгелинд, Ларс Бригманн, Флемминг Квист МюллерПеревод: Дублированный (Лицензия)Продолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5240C19B5205F957AA9CF79E5D3695CCFF8A595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694526   (545531) от 30.08.2013
-
-Лига Cправедливости: Парадокс источника конфликта / Justice League: The Flashpoint Paradox (2013) WEB-DL [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллионы людей в нашем мире ссорятся по тем или иным причинам. Кто-то умеет мирно разрешать конфликты, кто-то же привык решать все проблемы «на кулаках». Но мало кто верит в существование истинной справедливости, однако команда супергероев всегда готова подтвердить, что справедливость все же существует. Отважные спасатели бросаются на помощь к тем, кто пострадал (   Читать дальше...   )Жанр: Мультфильм, Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джей ОливаПерсонажи: Майкл Б. Джордан, Нэйтан Филлион, Кэри Элвис, Рон Перлман, Кевин МакКидд, Си Томас Хауэлл, Дана Дилэйни, Джастин Чэмберс, Дэнни Хьюстон, Кевин КонройПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDFBC8FAA0085941DA5DD632CE8078DC5FBD188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817721   (544843) от 31.08.2014
-
-Рождественская история / A Christmas Carol (2009) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это викторианская поучительная история о старом и ожесточившемся скупердяе Эбенезере Скрудже, который в течение одной ночи переживает испытание глубокого очищения. Мистер Скрудж - финансист/денежный меняла, который посвятил всю свою жизнь накоплению богатства. Он презирает всё, кроме денег, включая дружбу, любовь и рождественские праздники.Жанр: Фэнтези, Семейный, МультфильмРежиссер: Роберт ЗемекисАктеры: Джим Керри, Стив Валентайн, Дэрил Сабара, Сэйдж Райан, Эмбер Гейни Миде, Райан Очоа, Бобби Пейдж, Рон Боттитта, Сэмми Ханратти, Джулиан ХоллоуэйПеревод: Профессиональный (дублированный)Язык субтитров: Русский x2, Украинский x2, Английский x2Продолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB1EF10A9D229D67FE53FB9AA4303E5D9160035
 ```
 
 https://mybot314.ru/tekegram_catalog/

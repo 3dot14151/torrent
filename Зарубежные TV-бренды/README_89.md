@@ -1,3 +1,55 @@
+###  Публикация: 1174770   (382526) от 16.10.2017
+
+History Channel: Библия - Секретные материалы / Bible Secrets Revealed (2013-2014) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Библия считается самой старой, читаемой и изучаемой книгой в мире. Но до сих пор многие ее тайны до конца не раскрыты. Кто написал Библию? Когда именно и где она появилась? Как менялся текст Библии? Настолько библейские истории соответствуют реальным историческим событиям? От моральных законов Ветхого Завета до апокалипсических предсказаний в Откровении Иоанна Богослова. (   Читать дальше...   )Производство: США, Prometheus EntertainmentЖанр: Документальный, история, религияРежиссер: Роберт Р. Каргилл, Реза Аслан, Барт Д. ЭрманПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6x ~ 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCE7E91834E15E4FFC1ED447B5922B3CA4B809D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316762   (382518) от 21.09.2019
+
+Animal Planet: Океанариум / The Aquarium (2019) HDTV [H.264/1080i] (эпизоды 1-10)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В центре Атланты можно найти сказочный подводный мир, где обитают тысячи морских животных. Впервые у зрителей есть возможность своими глазами увидеть крупнейший океанариум в Западном полушарии. Узнаем истории животных, для которых этот запасник морской природы стал домом. Здесь нашли прибежище спасённые южноамериканские морские выдры, очковые пингвины, которые находятся (   Читать дальше...   )Производство: США, Copper Pot Pictures, Red Arrow Entertainment Group for Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929DF2CFE43C92F3DA11ABD473C89FA92049BD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068359   (382340) от 31.10.2016
 
 Discovery. Дороги России: Трасса А-161: Саянский перевал HDTVRip [720p-LQ]
@@ -6,7 +58,7 @@ Discovery. Дороги России: Трасса А-161: Саянский пе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ PBS. Nova. Тайна кода майя / Cracking the Maya Code (2008) SATRip
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ BBC: Что такое красота? / What is beauty? (2009) DVBRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Animal Planet: Expedition Mungo / Экспедиция Мунго (2017) HDTVRip
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NGW: В неизвестность с Джеком Рэнделлом / Out Ther
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ BBC. Британские времена года / The Great British Year (2013
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ Discovery: Я - это зло (сезон 1, 12 серий из 12) / Discovery.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ NG. Годы опасной жизни / Years of Living Dangerously (2016) DVB 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ Discovery: В поисках сокровищ: змеиный остров / Tre
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Discovery. Загадки планеты Земля / What on Earth? HDTVRip (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ NG: Самые странные в мире / World's Weirdest (2011-2016) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ Discovery: Звездное выживание с Беаром Гриллсом 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ Discovery: Звездное выживание с Беаром Гриллсом 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6796E2E19F3131229AF8D0A4CC1D965F888BCAF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243180   (374609) от 13.10.2018
-
-Discovery: Загадки планеты Земля / What on Earth? (2017) HDTVRip (сезон 4, эпизоды 18 из 18)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем больше спутников запускают в космос, тем меньше на Земле остается слепых пятен. Теперь, когда снимки из космоса стали частью общедоступных программ, таких как «Google Earth», на суше и на море вдруг стали обнаруживаться различные аномалии. Увлекательная программа «Загадки планеты Земля» возвращается с новым сезоном, где мы продолжим исследовать тайны и загадки (   Читать дальше...   )Производство: США, Wag TV, Discovery Communications, LLC.Жанр: Документальный, наука, космос, историяРежиссер: Сусанна Герберт, Дэниэл Эдвардс, Джон Нуттер...Перевод: Двуголосый закадровый, профессиональный (Мобильное Телевидение)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1BBA82D7875C5CC51E120E2D585C683124AF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243181   (374601) от 13.10.2018
-
-Discovery: Загадки планеты Земля / What on Earth? (2017) HDTVRip [H.264/720p-LQ] (сезон 4, эпизоды 18 из 18) [50 fps] (Обновляемая)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем больше спутников запускают в космос, тем меньше на Земле остается слепых пятен. Теперь, когда снимки из космоса стали частью общедоступных программ, таких как «Google Earth», на суше и на море вдруг стали обнаруживаться различные аномалии. Увлекательная программа «Загадки планеты Земля» возвращается с новым сезоном, где мы продолжим исследовать тайны и загадки (   Читать дальше...   )Производство: США, Wag TV, Discovery Communications, LLC.Жанр: Документальный, наука, космос, историяРежиссер: Сусанна Герберт, Дэниэл Эдвардс, Джон Нуттер...Перевод: Двуголосый закадровый, профессиональный (Мобильное Телевидение)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D101F8022BB0B730BD83D2B087B9BAD1B59332
 ```
 
 https://mybot314.ru/tekegram_catalog/

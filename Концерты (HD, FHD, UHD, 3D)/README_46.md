@@ -1,3 +1,61 @@
+###  Публикация: 1713517   (60593) от 06.04.2024
+
+Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Участник технической команды группы Metallica получает задание — привезти сумку, содержимое которой необходимо группе для выступления. Сопровождая таинственную сумку, он попадает в невероятные передряги.1. Ecstasy of Gold (by Ennio Morricone) =S&M= 1999
+2. Creeping Death =RIDE THE LIGHTNING= 1984
+3. For Whom the Bell Tolls =RIDE THE LIGHTNING= 1984
+4. Fuel =RELOAD= 1997(   Читать дальше...   )Производство: США / Blackened Recordings, Exclusive Media Group, Hit The LightsЖанр: музыка, приключения, концертРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хэмметт, Роберт Трухильо, Кайл Томсон, Тоби Харгрейв, Маккензи Грей, Питер Брайант, Хротгар МэтьюзПеревод: многоголосый профессиональный (THT)Язык озвучки: русский, английскийСубтитры: русские (full, texts songs), английские (forced songs, full texts songs)Продолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABFE9ED36415663740A760464AE2BC1B29F376F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713521   (60574) от 06.04.2024
+
+Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Участник технической команды группы Metallica получает задание — привезти сумку, содержимое которой необходимо группе для выступления. Сопровождая таинственную сумку, он попадает в невероятные передряги.1. Ecstasy of Gold (by Ennio Morricone) =S&M= 1999
+2. Creeping Death =RIDE THE LIGHTNING= 1984
+3. For Whom the Bell Tolls =RIDE THE LIGHTNING= 1984
+4. Fuel =RELOAD= 1997(   Читать дальше...   )Производство: США / Blackened Recordings, Exclusive Media Group, Hit The LightsЖанр: музыка, приключения, концертРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хэмметт, Роберт Трухильо, Кайл Томсон, Тоби Харгрейв, Маккензи Грей, Питер Брайант, Хротгар МэтьюзПеревод: многоголосый профессиональный (THT)Язык озвучки: русский, английскийСубтитры: русские (full, texts songs), английские (forced songs, full texts songs)Продолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762794A6ECD81393B514C305865248C3542C5C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713855   (60453) от 07.04.2024
 
 Квартирник у Маргулиса. Юлия Пересильд и группа «Мандрагора» (06.04.2024) WEBRip [H.264/1080p]
@@ -6,7 +64,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Lovebites: Heavy Metal Never Dies (2021) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +119,7 @@ Elton John and Bernie Taupin: The Library of Congress Gershwin Prize for Popular
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +174,7 @@ AC/DC / No Bull (1996/2008) BDRip [H.264/1080p] [Director's Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -145,7 +203,7 @@ The Offspring - Live in Lollapalooza Brazil (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -171,7 +229,7 @@ Synthony: Live at Auckland Domain with Auckland Philharmonia (2024) WEB-DL [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -200,7 +258,7 @@ Andrea Bocelli & CeCe Winans: An Easter Music Special from Lakewood Church with 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -229,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -255,7 +313,7 @@ The Black Keys - Live from the KROQ Helpful Honda Sound Space (2024) HDTV [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -284,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -314,7 +372,7 @@ Two Steps From Hell - Europe Tour 2023 (2024) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,7 +545,7 @@ Queen: Live Aid (1985) BDRemux [H.265/1080p] [10-bit] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -517,7 +575,7 @@ Queen: Rock Montreal (1981) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [EN / EN S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -546,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -633,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -662,7 +720,7 @@ BAND-MAID - World Domination Tour at Zepp Tokyo (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -677,66 +735,6 @@ BAND-MAID — японская хард-рок-группа, сформиров�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06A467652BEEE43A06520F015B5352425FB67609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730157   (52985) от 17.06.2024
-
-BAND-MAID - Tour Autumn-Winter 2017 at Studio Coast (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52985.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-Концерт группы в Studio Coast, состоявшийся 24 ноября 2017 и выпущенный на бонусном Blu-Ray диске к лимитированному изданию альбома "World Domination".01. Intro
-02. Choose me
-03. Don't you tell ME
-04. Moratoriamu (モラトリアム)(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFA93098CDC3F331320E74643F5244089074B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730212   (52978) от 17.06.2024
-
-BAND-MAID - World Domination Tour (Shinka) at Line Cube Shibuya (Shibuya Public Hall) (2020) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52978.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-Концерт группы в Line Cube Shibuya (Shibuya Public Hall), состоявшийся 14 февраля 2020 и выпущенный на Blu-Ray диске 29 апреля 2020.01. Maid Waltz
-02. Rinne (Reincarnation. 輪廻)
-03. Blooming
-04. Screaming(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 01:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C39AF8EF5787B4C0B3FA021689DB0BF35EBB33
 ```
 
 https://mybot314.ru/tekegram_catalog/

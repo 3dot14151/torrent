@@ -1,3 +1,55 @@
+###  Публикация: 569592   (391405) от 03.11.2012
+
+Храбрая сердцем / Brave (2012) [1080p] BDRip [Горизонтальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Испокон веков мифы и легенды окутывают загадочной пеленой живописные отроги Шотландских гор. Искусной лучнице Мериде приходится выбирать свой путь в жизни самостоятельно, и однажды она отказывается следовать древним традициям королевства, бросая вызов могущественным шотландским кланам и их предводителям: нескладному лорду МакГаффину, угрюмому лорду Макинтошу и сварливому (   Читать дальше...   )Производство: Pixar Animation Studios / Walt Disney PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Марк Эндрюс, Бренда Чэпман, Стив ПурселлАктеры: Келли Макдоналд, Эмма Томпсон, Билли Коннолли, Джули Уолтерс, Робби Колтрейн, Кевин МакКидд, Крэйг Фергюсон, Сэлли Кингхорн, Эйлид Фрайзер, Пейджи БаркерПеревод: ДублированныйСубтитры: Вшитые отключаемые (PGS)Язык субтитров: Английский (полные, комментарии)Продолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3FA10F614599FD41F953E2F7306EC2867BC8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717701   (390812) от 01.11.2013
+
+Турбо / Turbo (2013) Blu-ray 3D [1080p] [EUR]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ничто так не раздражает темпераментную, мечтающую о скорости улитку с говорящим именем Турбо, как неспешная жизнь, медленные разговоры, заторможенные соседи. Пусть наш герой выглядит большим чудаком в этом вялом, неторопливом мире, пусть он идёт вопреки закону природы о «рождённом ползать», но если в сердце горит «пламенный мотор», а душа верит в чудо, оно просто (   Читать дальше...   )Производство: США | DreamWorks AnimationЖанр: Мультфильм, СемейныйРежиссер: Дэвид Сорен ППерсонажи: Райан Рейнольдс, Пол Джаматти, Майкл Пенья, Луис Гузман, Билл Хейдер, Ричард Дженкинс, Кен Жонг, Мишель Родригес, Майя Рудольф, Мишель Родригес, Сэмюэл Л. Джексон ...Перевод: дубляжЯзык субтитров: Английский, Испанский, Франзузский, Португальский, Русский, Эстонский, Латвийский, Литовский, УкраинскийПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEB868ED9D9F7A0D1587C61199BE3B01637F3B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717561   (390781) от 01.11.2013
 
 Университет монстров / Monsters University (2013) Blu-Ray [1080p] 3D
@@ -6,7 +58,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_387658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,59 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F23D712FB468263D79C54D909A151EBAF7D3791E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072485   (351707) от 13.11.2016
-
-Савва. Сердце воина (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351707.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о мальчике Савве десяти лет, который живёт в маленькой лесной деревне. Когда-то деревню от врагов защищали благородные белые волки. Но однажды волки исчезли и на деревню напала банда свирепых Гиен. Савве удаётся сбежать в лес, где он знакомится с Ангой — последним белым волком.
-Анга рассказывает Савве о могущественном Волшебнике, который живёт на горе и может (   Читать дальше...   )Производство: Россия / Глюкоза Продакшн, Art Pictures StudioЖанр: мультфильм, приключения, фэнтези, семейныйРежиссер: Максим ФадеевАктеры: Константин Хабенский,  Фёдор Бондарчук,  Армен Джигарханян,  Григорий Лепс,  Сергей Шнуров,  Михаил Галустян,  Глюкоза,  Сергей Гармаш,  Лолита Милявская,  Николай БасковПродолжительность: 01:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40084C1EE685EC773612BF3BD10D7952447D4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838091   (351326) от 05.11.2014
-
-Оз: Возвращение в Изумрудный Город / Legends of Oz: Dorothy's Return (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дороти снова магическим образом переносится в страну Оз, чтобы спасти от беды ее жителей. Но оказывается, что старые друзья Дороти — Страшила, Железный Дровосек и Храбрый Лев — исчезли. Путешествуя по стране в поисках своих друзей, Дороти встречает новых попутчиков — Капитана Зефира, Фарфоровую Принцессу и филина Савву. Дороти должна помочь таким разным героям объединиться, (   Читать дальше...   )Производство: США, Индия / Prana Animation StudiosЖанр: Мультфильм, Мюзикл, СемейныйРежиссер: Уилл Финн, Дэн Ст. ПьерПерсонажи: Лиа Мишель,  Патрик Стюарт,  Джеймс Белуши,  Дэн Эйкройд,  Келси Грэммер,  Меган Хилти,  Хью Дэнси,  Оливер Платт,  Бернадетт Питерс,  Мартин ШортПеревод: Дублированный (Лицензия R5)Продолжительность: 01:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69ACAB3011F1BFEC2F1C5487A434D8EB30F2CCD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

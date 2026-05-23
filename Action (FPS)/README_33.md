@@ -1,3 +1,107 @@
+###  Публикация: 1260871   (267271) от 05.12.2018
+
+OVERKILL's The Walking Dead (2018) [Ru/En] (2.0.1/dlc) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+OVERKILL’s The Walking Dead — энергичный кооперативный шутер от первого лица, действие которого разворачивается в Вашингтоне после вспышки эпидемии, вернувшей мертвых к жизни. В этом испытании навыков, стратегического мышления и умения действовать сообща игроков ждут походы, поиск припасов и уцелевших людей, а также защита своего лагеря как от мертвых, так и от живых.Тип издания: RepackРазработчик: OVERKILL - a Starbreeze StudioЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C16433FFFD69BD0C0A3AE222FD37633675CBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190878   (265623) от 11.12.2017
+
+Hello Neighbor (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Hello Neighbor — игра в жанре хоррор, в которой игроку нужно проникнуть в соседский дом и узнать, что скрывает его зловещий сосед. Твой противник - искусственный интеллект, который учится на всех твоих действиях: любишь забираться в дом через окно? — Не попадись в капкан. Пытаешься убежать? — Он найдёт способ перехватить тебя.Тип издания: RepackРазработчик: Dynamic PixelsЖанр: Action, Survival, StealthЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF476B0D2882D7FACA1D83F6016B943ADB6BABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191244   (264757) от 08.12.2018
+
+Hello Neighbor (2017) [Ru/Multi] (1.3) Repack R.G. Механики
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Hello Neighbor - это интерактивный ужастик, в котором действовать нужно скрытно. Проникните в дом своего жуткого соседа и узнайте, какие ужасные тайны хранятся в подвале. Ваш противник - продвинутый искусственный интеллект, который обучается, следя за вашими действиями. Любите влезать в дом через окно? Не удивляйтесь, если под ним вдруг окажется капкан. Часто пользуетесь (   Читать дальше...   )Тип издания: RepackРазработчик: Dynamic PixelsЖанр: Экшн, Приключение, СтелсЯзык субтитров: Русский, Английский, Арабский, Бразильский и другиеЯзык интерфейса: Русский, Английский, Арабский, Бразильский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F42D8B8D6E6EF9F97FA6D42AD5971F96F9251B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191466   (264332) от 13.12.2017
+
+Hello Neighbor (2017) [Ru/Multi] (1.1.2) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Hello Neighbor - это интерактивный ужастик, в котором действовать нужно скрытно. Проникните в дом своего жуткого соседа и узнайте, какие ужасные тайны хранятся в подвале. Ваш противник - продвинутый искусственный интеллект, который обучается, следя за вашими действиями. Любите влезать в дом через окно? Не удивляйтесь, если под ним вдруг окажется капкан. Часто пользуетесь (   Читать дальше...   )Тип издания: RepackРазработчик: Dynamic PixelsЖанр: Экшн, Приключение, СтелсЯзык субтитров: Русский, Английский, Арабский, Бразильский и другиеЯзык интерфейса: Русский, Английский, Арабский, Бразильский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4CC5079004B8EB86BF9D56721F04D929E0F137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241162   (264160) от 22.11.2019
 
 We Happy Few (2018) [Ru/Multi] (1.9.88874/dlc) Repack xatab
@@ -6,7 +110,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88874/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Emily Wants to Play Too (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sniper: Ghost Warrior (2010) [Multi] (1.2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Sniper: Ghost Warrior 2 (2013) [Multi] (3.4.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/Multi] (3.8.6/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Killbug (2023) [En] (1.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Quake II (1997) [Ru/Multi] (1.0.6002.0/dlc) Repack Necros [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.4.0#840/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Warhammer 40 000: Fire Warrior [Ru] (RePack) 2003 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +479,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +505,7 @@ Zero Hour (2020) [Ru/Multi] (Build 20792172/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Resident Evil Village (2021) [Ru/Multi] (10415597/dlc) Repack dixen18 [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Karagon (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +583,7 @@ Dread Templar (2023) [Ru/Multi] (1.0.2b_fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -505,7 +609,7 @@ Crysis 2 Remastered (2022) [Ru/En] (1.0) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -531,7 +635,7 @@ Quake 4 (2005) [Multi] (1.4.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -557,7 +661,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -568,110 +672,6 @@ System Shock — это полноценный ремейк хита 1994 год
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00889AD4F667357B7338644E4C04107B34038370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835921   (251797) от 08.11.2025
-
-Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251797.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 2027 год. Мир восстанавливается после 15-летнего упадка всей экономики и мирового конфликта, возникшего из-за резкого сокращения запасов природных ресурсов. После распада гордой Америки осталась лишь её шаткая инфраструктура и неорганизованная армия. Соединенные Штаты, потерявшие всех своих бывших союзников, теперь больше похожи на одну большую пустошь с (   Читать дальше...   )Тип издания: RepackРазработчик: Kaos Studios, Digital ExtremesЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2ED90D7E2A8CDD4D26F278A0365BC3E9D289AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637318   (251796) от 03.06.2023
-
-Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пора заряжать свой верный болтер и бросаться в бой! Вас ждёт ураганная стрельба в стилистике классических шутеров 90-х годов во вселенной Warhammer 40 000. Попробуйте себя в роли закалённого в боях космодесантника: выполняйте рискованные задания по всей галактике и сражайтесь с демонами и космодесантниками Хаоса. Соскучились по классическим шутерам? Для вас - обширные (   Читать дальше...   )Тип издания: SceneРазработчик: Auroch DigitalЖанр: Action, IndyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BFA5F3F55C9AA457BA60879EE092DBE9B1CA5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835925   (251795) от 08.11.2025
-
-Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одержимый жаждой мести получеловек-полудемон. В роли Безымянной вам предстоит сражаться, проливая кровь в самых жутких уголках ада. Уничтожайте орды демонов и их предводителей, чтобы приготовиться к решающей схватке с самой Алой Судьёй. Metal: Hellsinger - это шутер от первого лица с элементами ритм-игры, в котором ваш успех зависит от умения сражаться в унисон с (   Читать дальше...   )Тип издания: LicenseРазработчик: The OutsidersЖанр: Экшены, Шутeр от первого лица, Ритм-играЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9141B31944885233CE72E278923E39C743B06681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637547   (251771) от 04.06.2023
-
-Slayers X: Terminal Aftermath: Vengance of the Slayer (2023) [Ru/Multi] (1.0.0) Scene Razor1911
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну че... слабо стать X-Киллером?!.. 7 видов оружия, кровь-кишки, отбитая музыка Seepage & Psyko Syndikate, а еще тут можно взрывать все. круто. я ее начал делать в 1998 еще в школе вместе с друганом, а щас мне 37, я терь опытный. Это описание от разработчика со страницы в Steam. А вообще, это просто упоротый ретро-шутер - ни убавить, ни прибавить.Тип издания: SceneРазработчик: Big Z Studios Inc.Жанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A20CDA8A6A75230073CCEA979AD57F7866E646
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1190748   (265671) от 11.12.2017
+
+Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в нашем светлом будущем, где война с терроризмом вышла на новый виток, после того как Сараево было уничтожено самодельной ядерной бомбой. Бывшие демократические державы окончательно превратились в государства тотальной слежки, а страны третьего мира захлестнула волна этнических чисток. Мир погрузился в пучины хаоса и насилия. И на руинах (   Читать дальше...   )Производство: студия Geno Studio / ジェノスタジオЖанр: боевик, фантастикаРежиссер: Мурасэ СюкоПеревод: 1) Ивашков Егор; 2)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 114 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47A6C75BD5E8DE28C57B4854CCAAC490D56DE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339567   (265332) от 20.11.2019
+
+Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин Джи-Гандам [1994, TV, 49 из 49] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+К шестидесятому году Будущего Века человечество покинуло загрязнённую бесконечной войной планету и отправилось в космос. Колонии-государства, созданные по образу и подобию стран-предшественников, решили более никогда не вступать в конфликты, выбирая главенствующую колонию по результатам величайшего турнира — Гандам-Битвы.
+Домон Кашу — сильнейший мастер боевых искусств (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Имагава ЯсухироПеревод: КорнельЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 49 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC9426EEC7448C06DB2DE81E0BDF3567CBABBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267914   (265007) от 08.12.2018
+
+Twin Angel Break | Ангельский дуэт: Прорыв [2017, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Однажды девочка по имени Амацуки Мегуру столкнулась в своей жизни с трудной ситуацией, которая требовала отваги и решимости. Она увидела, как в океане тонет ребёнок, но ничего не смогла с собой поделать и лишь наблюдала за тем, как пучина затягивает малыша. Вдруг, откуда ни возьмись, прилетают две девушки, спасают ребёнка и так же безмолвно исчезают. Мегуру восхитилась (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключенияРежиссер: Ивасаки ЁсиакиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B4EFDE57FAB6E7CBF7317A7E8565388D87E11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267916   (265004) от 08.12.2018
+
+Kimi no Koe o Todoketai | Я хочу донести твой голос [2017, Movie] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Юкиай Нагиса - обычная одиннадцатикласница из старшей школы Хиносаки. Дружит с тремя сверстницами: Каэдэ, Шизуки и Ю.
+Инициативная и волевая Каэдэ хороша в спорте. Вот-вот станет капитаном школьной команды по лакроссу. Её энергии хватает, чтобы подрабатывать официанткой в семейном ресторане "SeaGull".
+Тихая и застенчивая Шидзуку мечтает стать кондитером. (   Читать дальше...   )Производство: студия Madhouse Studios / マッドハウスЖанр: повседневностьРежиссер: Ито НаоюкиПеревод: laciЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45F1147E9EA74836249768C785DB78934CC3912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150870   (264966) от 12.12.2017
 
 New Game!! | Новая игра! [ТВ-2] [2017, ТВ, 12] HDTV 720p raw
@@ -6,7 +113,7 @@ New Game!! | Новая игра! [ТВ-2] [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -33,7 +140,7 @@ Battle Athletess Daiundoukai | Battle Athletes | Боевые атлеты [1997
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +166,7 @@ Battle Athletess Daiundoukai | Battle Athletes Victory | Боевые атлет
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -85,7 +192,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -111,7 +218,7 @@ Yuru Yuri Ten | Лилии на ветру OVA 2 [2019, OVA, 1 эп.] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -137,7 +244,7 @@ Gunsmith Cats | Оружейницы [1995, OVA, 3 эп.] BDRip 1080 10bit raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -165,7 +272,7 @@ Ushio to Tora TV | Усио и Тора ТВ (сезон 1 и 2) [2015, TV, 26 +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -191,7 +298,7 @@ Netojuu no Susume / Recommendation of the Wonderful Virtual Life / Рекоме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -217,7 +324,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -243,7 +350,7 @@ Kanojo to Kanojo no Neko: Everything Flows | Она и её кот: Всё те�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -271,7 +378,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +404,7 @@ Kakegurui | Compulsive Gambler | Маниакальный игрок [2017, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +430,7 @@ Kuttsukiboshi / Сцепленные звёздочки [2010-12, 2 эп. OVA] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +456,7 @@ AWOL Compression Re-MIX | Самоволка [1998, OVA, 4 эп.] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +482,7 @@ KanColle 2 | Kantai Collection 2 - Itsuka Ano Umi de | Коллекционна�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +509,7 @@ Guilty Crown | Корона греха [2011, TV, 22 эп.] BDRip 1080p 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +535,7 @@ Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 / Не л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +564,7 @@ Boku wa Imouto ni Koi o Suru | Я люблю свою сестрёнку [2005, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -485,7 +592,7 @@ Shinseiki Evangelion Gekijouban: The End of Evangelion | Neon Genesis Evangelion
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -513,7 +620,7 @@ Yuusha-Ou GaoGaiGar Final | Король храбрецов Гаогайгар: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -539,7 +646,7 @@ Kidou Senshi Gundam: Cucuruz Doan no Shima | Mobile Suit Gundam: Cucuruz Doan's 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -565,7 +672,7 @@ Toki no Tabibito / Time Stranger / Путник, странствующий во
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -576,112 +683,6 @@ Toki no Tabibito / Time Stranger / Путник, странствующий во
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495925   (252712) от 13.05.2012
-
-Arslan Senki / The Heroic Legend of Arslan - Age of Heroes / Сказание об Арислане [1991, OVA, 6 ep.] DVDRip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяжёлые времена настали для королевского дома Парсы. В битве на равнине Атропатена знаменитая конница Парсы была разбита: хитростью и колдовством враг одержал победу, и пала столица, золотая Экбатана. Король пленён, королева в руках победителей, а юный принц Арислан вынужден скрываться, спасаясь от преследования врагов, которых ведёт таинственный воин Серебряная (   Читать дальше...   )Жанр: приключения, фэнтези, драмаРежиссер: Хамацу Мамору / Hamatsu MamoruПеревод: AniMaze NCЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (6 эп.), 30 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495818   (252687) от 13.05.2012
-
-Iria: Zeiram the Animation / Ирия: Зейрам [1994, OVA, 6 ep.] Remastered DVDRip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее, отдаленный сектор Галактики. Юная Ирия — сестра Грена, охотника за удачей, сама наемница и начинающий детектив. На очередном задании Грен гибнет в схватке с чудовищем по имени Зейрам, и девушка решает идти до конца в деле мести за брата. Выйдя на тропу войны с Зейрамом, она распутывает цепочку событий на звездолете "Карма", приведших к трагедии.Жанр: приключения, фантастика, ужасыРежиссер: Амино Тэцуро / Amino TetsuroПеревод: RainЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (6 эп.), 27 мин..
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836364   (252528) от 10.11.2025
-
-Muu no Hakugei | The White Whale of Mu | Белый кит континента Му [1980, TV, 26] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древние времена континенты Атлантида и Му вели войну, и Атлантида проиграла. После поражения Атлантида превратилась в маленькую планету и переместилась во время в настоящее, чтобы снова попытаться захватить мир. Но пять воинов из Му собрались на острове Пасхи и вместе с гигантским белым китом, в котором находится мозг древнего Ра Му, сражаются с Атлантидой в различных (   Читать дальше...   )Производство: Япония, студия TMSЖанр: экшен, приключение, фантастикаРежиссер: Имадзава ТэцуоПеревод: Русские субтитры на основе перевода Inka-SubsЯзык озвучки: ЯпонскийСубтитры: Английские, Русские (внешние)Продолжительность: ТВ, 26 серии по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24678E5EFFE0489390E9230407863D26B7E54A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419518   (251790) от 03.06.2023
-
-Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и ожидал, моя школьная романтическая жизнь не удалась [ТВ-3] [2020, TV, 12 эп. + 1 OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжении истории хикки Хатимана.
-
-Нелюдимый старшеклассник Хатиман Хикигая стронулся в развитии с мертвой точки… и запутался. Он считал себя циником – а стал помогать людям, думал, что неудачник – а удостоился внимания незаурядных девушек, мечтал спокойно дотянуть до конца школы – а покоя-то нет! Стоило приоткрыться – и личина изгоя треснула, теперь приходится (   Читать дальше...   )Производство: студия FeelЖанр: комедия, романтика, повседневностьРежиссер: Ойкава КэйПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73258F4E0BA872AD93A9A5BD048968F47836F593
 ```
 
 https://mybot314.ru/tekegram_catalog/

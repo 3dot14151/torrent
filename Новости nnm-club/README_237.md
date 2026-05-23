@@ -1,3 +1,186 @@
+###  Публикация: 1585207   (221924) от 21.10.2022
+
+Topaz Gigapixel AI 6.2.2 RePack (& Portable) by TryRooM [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2517BCC9C998CB537F8C727B2651E99C412C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586439   (221889) от 10.12.2012
+
+Far Cry 3: Трейнер/Trainer (+22) (1.0-1.02) | FLiNG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Трейнер для Far Cry 3.
+Добавляет в игру 22 хитрых функции...(   Читать дальше...   )Тип издания: Трейнет +22 функции
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A83946EBD0F47F5A830B7AEFD9B9DB94DFFB0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 111264   (221611) от 30.11.2021
+
+Звёздные Врата: Атлантида / Stargate: Atlantis (2006) DVDRip (Сезон 3, серии 1-20 из 20) ТВ3
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Доктор Дэниел Джексон, используя технологии древних, находит координаты затерянного города Атлантида, и доктор Элизабет Вейр собирает международную экспедицию для его исследования. Проблемой становится только то, что он находится в другой галактике — галактике Пегаса. Но для путешествия даже между галактиками через звёздные врата требуется очень много энергии — столько, (   Читать дальше...   )Производство: Канада, Pegasus Productions Inc.Жанр: Боевик, Фантастика, Драма, ПриключенияРежиссер: Мартин Вуд, Энди Микита, Уильям ВарингАктеры: Джо Флениган, Аманда Таппинг, Рэйчел Латтрелл, Джейсон Момоа, Дэвид Хьюлетт, Торри Хиггинсон, Пол Макджиллион, Рейнбоу Фрэнкс, Джуэл Стэйт, Роберт ПикардоПеревод: Многоголосый профессиональный - ТВ3 (Студия "Инис")Язык озвучки: русский, английскийПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0236ED35CE1A9DB40ABF46B30BFB99C8DF85255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965928   (221592) от 16.12.2015
+
+AIMP 4.00 Build 1678 Final + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E64255CBED414DB4DC02699667C148FD250875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 106923   (221579) от 30.11.2021
+
+Звёздные Врата: Атлантида / Stargate: Atlantis (2004) DVDRip (Сезон 1, серии 1-20 из 20) ТВ3
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Доктор Дэниел Джексон, используя технологии древних, находит координаты затерянного города Атлантида, и доктор Элизабет Вейр собирает международную экспедицию для его исследования. Проблемой становится только то, что он находится в другой галактике — галактике Пегаса. Но для путешествия даже между галактиками через звёздные врата требуется очень много энергии — столько, (   Читать дальше...   )Производство: Канада, Pegasus Productions Inc.Жанр: Боевик, Фантастика, Драма, ПриключенияРежиссер: Мартин Вуд, Энди Микита, Уильям ВарингАктеры: Джо Флениган, Аманда Таппинг, Рэйчел Латтрелл, Джейсон Момоа, Дэвид Хьюлетт, Торри Хиггинсон, Пол Макджиллион, Рейнбоу Фрэнкс, Джуэл Стэйт, Роберт ПикардоПеревод: Многоголосый профессиональный - ТВ3 (Студия "Инис")Язык озвучки: русский, английскийПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F999E2C135E42EBCE63EB7BDFAE3D3CFF0ACEE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102599   (221547) от 30.11.2021
+
+Obduction (2016) [Ru/Multi] (1.8.4.1-ssl/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Независимая студия Cyan, создавшая игры Myst и Riven, приглашает вас в новое путешествие, которое откроет вам целый мир. Вы гуляли по берегу озера в пасмурную ночь, когда вдалеке вдруг раздался оглушительный грохот. Странный органический артефакт упал с небес и бесцеремонно перебросил вас на другой край вселенной.Тип издания: LicenseРазработчик: Cyan, Inc.Жанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945EFED32258F89A282F33B84920A4B95EB2DA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512609   (221539) от 30.11.2021
+
+Северный бастион / BAC Nord (2020) WEB-DLRip [DVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+2012 год. Северные кварталы Марселя возглавляют списки территорий с наивысшим уровнем преступности. Начальство вечно подстегивает северный участок улучшать показатели. В опасных кварталах группе полицейских иногда приходится адаптироваться к ситуации и пересекать черту. До тех пор, пока правосудие не оборачивается против них самих.Производство: Франция / Chi-Fou-Mi ProductionsStudio, CanalFrance 2 CinémaЖанр: Боевик, триллер, криминалРежиссер: Седрик ЖименесАктеры: Жиль Леллуш, Франсуа Сивиль, Карим Леклу, Адель Экзаркопулос, Кенза Форта, Идир Азугли, Сириль Леконт, Микаэль Абитбуль, Жан-Ив Бертело, Жак КонтаПеревод: Любительский двухголосый (Pazl Voice)Субтитры: Русские, украинские, английские (отдельно)Продолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257F432303AEE97C67BCA2CC07284F73B8062FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944727   (221366) от 16.12.2015
 
 SOMA (2015) [Ru/Multi] (1.10) SteamRip Let'sРlay
@@ -6,7 +189,7 @@ SOMA (2015) [Ru/Multi] (1.10) SteamRip Let'sРlay
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -174,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -200,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -226,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -252,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -279,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -305,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -331,7 +514,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (10.2022) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -357,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -409,7 +592,7 @@ qBittorrent 3.3.10 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -435,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -461,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -487,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -498,190 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0FDA60C8B3EAB37B35FE4B67734BCA221441718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964682   (219343) от 17.12.2015
-
-Viber 5.4.0 Portable by vitalijtuz [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах! Viber синхронизирует ваши контакты, сообщения и журнал  звонков с вашим мобильным устройством.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B5DA746BE6C116BEE5FAE2B87C1D0033638C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966362   (219337) от 17.12.2015
-
-City Navigator Russia NT 2016.30 Navicom [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобильная навигационная карта — карта, используемая навигатором для показа текущего местоположения автомобиля, построения маршрута и выдачи в реальном времени информации для совершения маневров. Автомобильная навигационная карта от «Навиком» — это карта с маршрутизацией, поиском адресов и контурами зданий, включая дороги вне города, в том числе грунтовые, железные (   Читать дальше...   )Релиз состоялся: 15.12.2015Разработчик: Navicom / GarminПоддерживаемая ОС: GarminOSЯзык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B66547A1A1DFEAFB4925BC3C94DB5955C86846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840566   (219327) от 18.12.2016
-
-Stronghold Kingdoms: World 4 (2012) [Ru/En] (2.0.30.7) License
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите стать бароном, герцогом или королем? Погрузитесь в мир враждующих феодалов, в мир, где создаются и рушатся союзы и целые государства. Примерьте на себя роль средневекового правителя. Трон ждет вас, Государь! Stronghold Kingdom - онлайн игра по мотивам популярной вселенной Stronghold. Геймплей феодальной стратегии вполне предсказуемый - игрокам предстоит развивать (   Читать дальше...   )Тип издания: LicenseРазработчик: Firefly StudiosЖанр: MMO Strategy (Manage, Real-time), IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F4F5EC9753496C2D580BA8DAC902B78AC2B105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966282   (219277) от 17.12.2015
-
-Final Fantasy VI (2015) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Fantasy VI, вышедшая в свет в 1994 году, стала шестой игрой в легендарной серии Final Fantasy. В числе новшеств была возможность сделать главным героем любого из основных персонажей, судьбы которых переплетаются в этой эпопее, до сих пор чрезвычайно популярной и почитаемой по всему миру. Драматичная, захватывающая дух история, в середине которой происходит (   Читать дальше...   )Тип издания: LicenseРазработчик: Square, TOSE и Matrix SoftwareЖанр: RPG (Japanese-style), Top-downЯзык озвучки: -/-Язык субтитров: Русский, Английский, Немецкий, Испанский, Французский, Португальский, ИтальянскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский, Французский, Португальский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE5D2FB148FF856EEA4076DC329FB771F826B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582651   (219242) от 11.12.2012
-
-Far Cry 3 Deluxe Edition [Ru/En] (RePack/1.02) 2012 | R.G. Shift
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача – выжить любой ценой.
-
-Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить опиумный сон от безумной яви. Сумасшедший остров сводит с ума всех, кто ступит на его берега и нужно быть психом, чтобы здесь остаться. А ты в своём уме?(   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal, Massive Entertainment and Ubisoft ShanghaiЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210A3E5CB56E39093F0C1839D4AC9479D21A7CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342663   (219232) от 05.12.2019
-
-⚡  Опровергнута общепринятая физическая теория
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые Стэнфордского университета обнаружили в сверхпроводящих металлах феномен, который пока еще не имеет объяснения. Он ставит под сомнение текущую физическую теорию сверхпроводимости и для своего описания требует квантовые компьютеры. Об этом сообщается в пресс-релизе на Phys.org.Исследователи изучили переходную фазу в сверхпроводнике Bi-2212 (Bi2Sr2CaCu2O8+x), (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526463   (219198) от 11.12.2012
-
-Михаил Русаков | Создание и раскрутка сайта от А до Я [2010] [unpacked]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как создать профессиональный сайт? Как разместить его в Интернете? Как раскрутить сайт и поднять его посещаемость? Данный видеокурс  подробно отвечает на все эти вопроса. 246 уроков общей продолжительностью более 50-ти часов обучающего видео сделают из Вас настоящего профессионала, который способен создать практически любой сайт (как минимум, 99% сайтов, которые Вы видите в Интернете).Жанр: Создание сайта, Веб-дизайнФормат: unpackedПродолжительность: 50:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD56A2B49ACE227A1DFDBB48391433AC1108F30
 ```
 
 https://mybot314.ru/tekegram_catalog/

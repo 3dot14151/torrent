@@ -1,3 +1,81 @@
+###  Публикация: 1093103   (875860) от 17.02.2017
+
+Fallout 2 (1998) [En/De/Fr] (1.02) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Fallout 2 - культовая ролевая игра, справедливо считающаяся одним из эталонов жанра. События ее разворачиваются в мире, пережившем ядерную катастрофу. Большая часть человечества погибла, а уцелевшие люди утратили практически все накопленные знания и постепенно возвращаются в каменный век. Ваш персонаж - Избранный, потомок главного героя первой части Fallout, живущий (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Isle StudiosЖанр: RPG, IsometricЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657E2113B93A5F5BC3248B06D74ED5C132761468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496001   (875448) от 15.09.2021
+
+ATOM RPG: Trudograd (2021) [Ru/En] (1.0/dlc) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Трудоград - пошаговая ролевая игра, действия которой разворачиваются в постапокалиптическом СССР. Игра вдохновлена классическими компьютерными ролевыми играми, такими как Fallout 1-2, Wasteland 1 и Baldur’s Gate. 22 года назад СССР и страны Западного блока уничтожили друг друга в результате обмена ядерными ударами. Миллионы людей погибли, общественные устои пали, (   Читать дальше...   )Тип издания: RepackРазработчик: AtomTeamЖанр: RPG (Top-Down), Strategy (TBS), 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02ACEA84B6837FD88B972ED4AC99975232BBC6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496159   (874323) от 16.09.2021
+
+Eastward (2021) [Multi] (1.0.5) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В не столь далёком будущем цивилизация начинает рушиться, и человечество оказывается на грани вымирания. Смертоносное вещество струится по земле, разрушая и искажая всё на своем пути. Те, кому посчастливилось избежать ядовитых испарений, пытаются наладить свою жизнь в подземных убежищах. Но один трудолюбивый шахтёр и его таинственная спутница покидают безопасное (   Читать дальше...   )Тип издания: LicenseРазработчик: PixpilЖанр: RPG, Action, AdventureЯзык субтитров: Английский, Японский, Французский и другиеЯзык интерфейса: Английский, Японский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B317810DC9854FDDB5800B7ACF76EEAADDB6CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105845   (874273) от 18.02.2017
 
 Fallout: A Post Nuclear Role Playing Game (1997) [Ru/Multi] (1.2/1.2.1/1.3.5) License GOG
@@ -6,7 +84,7 @@ Fallout: A Post Nuclear Role Playing Game (1997) [Ru/Multi] (1.2/1.2.1/1.3.5) Li
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Iron Danger (2020) [Ru/Multi] (1.00.31) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/En] (1.4.15.0.8/dlc) Repack xatab [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Tails of Iron (2021) [Ru/Multi] (1.37768) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.05.75935) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Razenroth (2015) [Ru/Multi] (1.6) Repack ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Ethereal Legends (2017) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Portal Knights (2017) [Ru/En] (1.7.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Delivery from the Pain (2019) [Ru/Multi] (1.0.9194/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Torment: Tides of Numenera (2017) [Ru/Multi] (1.0.1) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Death's Door (2021) [Ru/Multi] (1.1.5) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.7) License GOG (обнов
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ NEO: The World Ends with You (2021) [Multi] (1.00) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Divinity II (2012) [Ru/En] (1.4.700.49) Repack R.G. Origami [Developer's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Leap of Fate (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Guild of Ascension (2021) [Multi] (8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Crystal Rift (2016) [En] (1.2.4) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Crystal Rift - это приключенческий паззл-хоррор п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A16E1C961BD8A26EECAF13CD58064A4DDEA402BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111576   (847941) от 05.03.2017
-
-Ultima 9: Ascension (1999) [En] (1.00) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь отправиться в приключение, завершающее сагу Ultima – сверхпопулярную серию ролевых игр, на которых выросло не одно поколение игроков. Британния зовет – и вы, отважный Аватар, должны в последний раз спасти лорда Бритиша и его народ от зловещего Стража, принесшего в волшебную страну хаос и разрушение. Боевые навыки, владение магией и знание восьми добродетелей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Origin SystemsЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D584E9D1C80FEAECA039682813D082DBEE052514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111477   (847761) от 05.03.2017
-
-Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь мир - театр, а люди в нём - актёры? Только не здесь! Здесь мир - тюрьма, и люди в нём - заключённые. И именно отсюда берёт своё начало великая легенда. Всё началось с войны с орками, для победы в которой людям была нужна руда. Её добывали заключённые, у которых отняли будущее: жестокий король приказал магам навечно закрыть их на рудниках под волшебным куполом. (   Читать дальше...   )Тип издания: LicenseРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63400F18A4A42F1E8056B2446867E1708FCD13E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111398   (847755) от 05.03.2017
-
-Gothic II: Gold Edition / Готика 2: Золотое издание (2005) [Multi] (2.6/2.7/dlc) License PROPHET
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gothic II: Золотое Издание включает оригинальную игру Gothic II и официальное дополнение "Ночь Ворона"! Вы уничтожили магический барьер и освободили заключённых Долины Рудников. Вырвавшиеся на свободу бывшие заключённые стали терроризировать окрестности города Хоринис. У городского ополчения слишком мало сил, чтобы бороться с преступниками за пределами (   Читать дальше...   )Тип издания: LicenseРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2616DDBB3C79005EFCC612321B61AEF3A26A04
 ```
 
 https://mybot314.ru/tekegram_catalog/

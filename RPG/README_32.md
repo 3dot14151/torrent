@@ -1,3 +1,82 @@
+###  Публикация: 1417043   (362074) от 18.10.2020
+
+Marvel’s Avengers (2020) [Ru/Multi] (1.3) License CPY
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Мстители Marvel» – это грандиозный приключенческий боевик от третьего лица, сочетающий в себе увлекательный сюжет и захватывающий игровой процесс как в одиночной, так и в совместной игре*. Сформируйте онлайн-команду, в которой может быть до четырех человек, освойте невероятные способности, выберите героев из регулярно пополняющегося списка и защитите Землю от надвигающейся (   Читать дальше...   )Тип издания: LicenseРазработчик: Crystal Dynamics, Eidos-Montréal, NixxesЖанр: Action, RPG, StrategyЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4051EBF6DEF5FFFB801E59C37725357D39B2C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836770   (360775) от 01.11.2014
+
+Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игрок играет роль Сильвестра Бучелли, детектива в трущобах планеты Anachronox. Этот мир находится внутри сферы Sender One, которая является центром сети галактических линий сообщения. Завербованный против своего желания, чтобы исследовать тайну, связанную с самой природой вселенной, Слай путешествует по всей галактике, встречая много персонажей по пути, некоторые из которых могут присоединяться к партии игрока.
+(   Читать дальше...   )Тип издания: RepackРазработчик: Ion StormЖанр: Adventure / RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3CD8FE9597A24B828FC82C48CA9495723436F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417247   (359725) от 19.10.2020
+
+Wasteland Remastered (2020) [Ru/Multi] (1.24) License GOG (обновляемая)
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр постапокалиптических видеоигр зародился в 1988 году с выходом Wasteland. Сыграйте в эту культовую ролевую игру с переработанной графикой, улучшенным звуком и расширенным саундтреком. 2087 год. Прошло почти сто лет с тех пор, как мировая ядерная война превратила территорию Земли в радиоактивную пустошь. Вы служите в организации «Пустынные рейнджеры» — это отряд (   Читать дальше...   )Тип издания: LicenseРазработчик: inXile Entertainment, Krome StudiosЖанр: RPG, Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E0786550FC1B95B0E9D2F0250B35274F6C266C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576685   (359479) от 18.11.2012
 
 Final Fantasy VII [En] (Repack/1.0.6) 2012 | R.G. Механики
@@ -6,7 +85,7 @@ Final Fantasy VII [En] (Repack/1.0.6) 2012 | R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира [Ru] 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0) License GOG [GOG Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +163,7 @@ WARSAW (2019) [Ru/Multi] (Build 76) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +189,7 @@ Nights of Azure 2: Bride of the New Moon (2017) [En/Ja/Ch] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +215,7 @@ Gauntlet (2014) [Ru/En] (2.2/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +241,7 @@ Veil of Crows (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +267,7 @@ Dragon Fin Soup (2015) [En/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +293,7 @@ God Eater: Resurrection (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +319,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +345,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +371,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +397,7 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +423,7 @@ Wave of Darkness (2015) [En/Fr] (1.50s) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +449,7 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +475,7 @@ Tyranny (2016) [Ru/Multi] (1.0.1.0010) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +527,7 @@ Jack Move (2022) [Ru/Multi] (1.0.5-118) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +553,7 @@ Gamedec (2021) [Ru/Multi] (1.7.0.r64951/dlc) Repack Other s [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +579,7 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +607,7 @@ Fallout 2 [Ru] (L) 1998
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +633,7 @@ Vendetta: Curse of Raven's Cry (2015) [En/De] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +659,7 @@ The Other Half (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +670,6 @@ The Other Half – темная фэнтезийная экшен РПГ, в к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09777FD7B1D9A69C831E29FEFB2BBB05003C3542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171279   (320278) от 03.11.2018
-
-Battle Chasers: Nightwar (2017) [Ru/Multi] (24034) SteamRip R.G. Игроманы
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle Chasers: Nightwar - это красочная ролевая игра с интересным сюжетом, где герою предстоит путешествовать по опасным подземельям и участвовать в сражениях, механика которых заимствована из классических jRPG.  Погрузитесь в мир комикса-бестселлера 90-х!Тип издания: SteamRipРазработчик: Airship SyndicateЖанр: Strategy (RTS, TBS), RPG, ActionЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC04B9384C2346DF0961C07CA6396B9FE78E723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582668   (320248) от 10.10.2022
-
-HuniePop (2015) [En] (1.2.0) License GOG [Deluxe Edition] [18+]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320248.jpg" />
-</div>
-
-
-###  Подробнее
-
-HuniePop – это своеобразный симулятор для PC, Mac и Linux. Игровой процесс совмещает симулятор свиданий, головоломку, элементы ролевой игры, стиль визуальной новеллы и нелинейный сюжет. Примечание: игра HuniePop содержит нецензурную лексику, откровенные сексуальные сцены, частичную наготу и рекомендуется только взрослой аудитории.Тип издания: LicenseРазработчик: HuniePotЖанр: Симулятор, Ролевая игра, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3E3EE338AD21400A1E7CF7905C1C16DF89DA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259508   (318119) от 04.11.2018
-
-Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. Истории (2018) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кровная вражда» — ролевая карточная игра с одиночной кампанией, события которой разворачиваются в мире «Ведьмака». В ходе кампании вы познакомитесь с самыми разными героями, столкнетесь с полчищами чудовищ и не раз встанете перед выбором, от которого будет зависеть судьба мира Геральта из Ривии.Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: RPG, Strategy, FantasyЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B70E4590872F3BE7C6436608F52655A832AE51
 ```
 
 https://mybot314.ru/tekegram_catalog/

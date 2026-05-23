@@ -1,4 +1,83 @@
 https://t.me/izofen
+###  Публикация: 1869737   (1069188) от 
+
+Футажи - BigFilms - Predator Pack [MOV, MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+От Автора: "Набор Predator Pack создан для смелых кинематографистов. Для тех, кто хочет создавать фильмы, оставляющие неизгладимое впечатление. Это, безусловно, наш самый динамичный и кровавый набор на сегодняшний день. Идеальное сочетание экшена, научной фантастики и ужасов. Термические взрывы. Плазменное оружие. Эффекты взрыва крови. Predator Pack включает (   Читать дальше...   )Формат: MOV, MP4Разрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3112E4251649DA6EF8CBD2A25F329277CF7B74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870414   (1069119) от 
+
+Футажи - BigFilms - Monsters Pack [MOV, WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+От Автора: "Набор Monsters Pack — это самая эпичная и кинематографичная коллекция монстров, когда-либо созданная! Этот набор даёт вам возможность выпустить на волю вселенную существ, не похожих ни на что, что мир когда-либо видел! Кайдзю, динозавры, гидры, драконоличи и василиски. Эти легендарные чудовища готовы прорваться сквозь вашу арену визуальных эффектов (   Читать дальше...   )Формат: MOV, WAVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC5909890DF69F572A0D47C85D2909609DAD568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870725   (1068932) от 
+
+Футажи - BigFilms - Blockbuster Starter Pack V2 [MOV, WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+От Автора: "Стартовый набор Blockbuster Starter Pack: V2 разработан для кинематографистов, которым нужен один мощный ресурс для создания самых эпичных визуальных эффектов, которые мы когда-либо создавали.
+Мы вручную отобрали более 220 лучших ресурсов для визуальных эффектов из нашей библиотеки, насчитывающей более 20 самых востребованных наборов, и объединили (   Читать дальше...   )Формат: MOV, WAVРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130400AF12862CEF130EC835A336AF413728C2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867262   (1066751) от 24.04.2026
 
 Футажи - SICKBOAT - Sparkler Lens Flares (4K) [MOV, JPG]
@@ -7,7 +86,7 @@ https://t.me/izofen
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -119,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -145,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -171,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -199,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -227,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -254,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -281,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -310,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -336,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -362,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -388,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -415,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -467,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -493,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -521,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -550,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -605,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -617,84 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:279E9EB09F94040435E3CF6C4AEA6C893915E511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456178   (1025182) от 21.03.2021
-
-Футажи - BusyBoxx - V02: Powder Impacts [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взорвите свой бочонок с цветным порошком в ваших проектах. Добавьте яркости своим видео. Объедините эти высококачественные органические элементы Powder Impact со своими кадрами и оставьте своих клиентов и зрителей в легком шоке и трепете. Теперь композитинг стал проще - используйте правильно откалиброванный Alpha Matte (альфа-подложки) материал с каждым клипом Powder (   Читать дальше...   )Формат: MP4Разрешение файлов: 4096 x 2304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB41BC14B0521370A52DC880FFAC47C0A634616B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456101   (1025178) от 21.03.2021
-
-Футажи - BusyBoxx - V09: Glitter & Glitz [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прикоснитесь к  волшебству! Многие из нас любят сверкающие вещи. Создайте немного магического трепета и удивления. Иногда даже небольшая деталь может объединить все воедино. Соедините элементы Glitter & Glitz со своими кадрами и мгновенно придайте им новый очаровательный вид. Этот материал  снят с помощью новейшей камеры Phantom 4K Flex. Вам понравится гибкость, (   Читать дальше...   )Формат: MP4Разрешение файлов: 4096 x 2304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57CE6F75DF9FE0225CF624168FCE66452832AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456601   (1024824) от 23.03.2021
-
-Футажи - BusyBoxx - V12: Paint Throws [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позвольте себе создать шедевр - покажите миру истинные цвета. Все снято с помощью новейшей камеры Phantom 4K Flex. Вам понравится гибкость, которую даст вам 1000FPS, когда вы привнесете немного цвета в свои видео, чтобы добавить эффекта. Теперь композитинг стал проще - используйте правильно откалиброванный Alpha Matte (альфа-подложки) материал с каждым клипом Paint (   Читать дальше...   )Формат: MP4Разрешение файлов: 4096 x 2304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C953F8E8420BC1E28E39A32D59A34D2D7BE70813
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1748692   (43890) от 11.09.2024
+
+Бендер: Начало (2021) BDRip [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1919 год. Судьба сталкивает юного идеалиста Осю с турецко-подданным аферистом Ибрагимом Бендером. И никогда бы честный Ося не связался с таким бессовестным и хитроумным мошенником, если бы их не объединила невероятно опасная авантюра — охота за царской реликвией, драгоценным жезлом, заполучить который также не прочь местные бандиты и белые офицеры. В череде головокружительных (   Читать дальше...   )Производство: Россия / Продюсерская компания «Среда»Жанр: комедия, приключенияРежиссер: Игорь ЗайцевАктеры: Сергей Безруков, Арам Вардеванян, Никита Кологривый, Таисия Вилкова, Эдуард Орлов, Александр Цекало, Юлия Рутберг, Ольга Сутулова, Гарик Харламов, Артем ТкаченкоПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3A24C2E702863EC2AD4E3803636867ECFDB250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749182   (43748) от 13.09.2024
+
+Выбери меня (2024) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Аня и Олег вот-вот поженятся. Но близкая свадьба тревожит девушку: родители еще ничего не знают. Невеста боится, что мама не одобрит ее выбор, ведь она уже даже нашла будущего мужа для дочери среди соседей по даче. В итоге девушке приходится делать выбор между двумя женихами. Аня решает доказать опекающей матери, что она взрослая и готова сама отвечать за свою жизнь.Производство: Россия | «Свердловская киностудия», «Первое Кино»Жанр: Романтическая комедия, мелодрамаРежиссер: Кирилл Клепалов, Денис КуклинАктеры: Анастасия Уколова, Кузьма Сапрыкин, Анна Ардова, Николай Добрынин, Шамиль Мухамедов, Людмила Чиркова, Сергей Фролов, Вера Вольт, Полина КутихинаСубтитры: ОтсутствуютПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4DFB910CFB2135EBD1E226746E66706EE7E147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749339   (43645) от 14.09.2024
+
+Выбери меня (2024) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Аня и Олег вот-вот поженятся. Но близкая свадьба тревожит девушку: родители еще ничего не знают. Невеста боится, что мама не одобрит ее выбор, ведь она уже даже нашла будущего мужа для дочери среди соседей по даче. В итоге девушке приходится делать выбор между двумя женихами. Аня решает доказать опекающей матери, что она взрослая и готова сама отвечать за свою жизнь.Производство: Россия | «Свердловская киностудия», «Первое Кино»Жанр: Романтическая комедия, мелодрамаРежиссер: Кирилл Клепалов, Денис КуклинАктеры: Анастасия Уколова, Кузьма Сапрыкин, Анна Ардова, Николай Добрынин, Шамиль Мухамедов, Людмила Чиркова, Сергей Фролов, Вера Вольт, Полина КутихинаСубтитры: ОтсутствуютПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642A715415BE9D6CEC19100CA6FCE22901F9460B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749264   (43216) от 18.09.2024
+
+Выбери меня (2024) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Аня и Олег вот-вот поженятся. Но близкая свадьба тревожит девушку: родители еще ничего не знают. Невеста боится, что мама не одобрит ее выбор, ведь она уже даже нашла будущего мужа для дочери среди соседей по даче. В итоге девушке приходится делать выбор между двумя женихами. Аня решает доказать опекающей матери, что она взрослая и готова сама отвечать за свою жизнь.Производство: Россия | «Свердловская киностудия», «Первое Кино»Жанр: Романтическая комедия, мелодрамаРежиссер: Кирилл Клепалов, Денис КуклинАктеры: Анастасия Уколова, Кузьма Сапрыкин, Анна Ардова, Николай Добрынин, Шамиль Мухамедов, Людмила Чиркова, Сергей Фролов, Вера Вольт, Полина КутихинаСубтитры: ОтсутствуютПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74BED6B275251FE9B90720A4545DAAD437DC7D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750328   (43060) от 19.09.2024
 
 Хитровка. Знак четырех (2023) BDRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A84B4DF2CF0F2BBAFB00836E25650E5962B75D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523139   (41206) от 07.10.2024
-
-Пьющие кровь (1991) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41206.jpg" />
-</div>
-
-
-###  Подробнее
-
-На балу молодому князю Руневскому приглянулась Даша, племянница помещиков Сугробиных. Будучи приглашенным к ним в имение, Руневский не догадывался, что все родственники Даши — вампиры.Жанр: УжасыРежиссер: Евгений ТатарскийАктеры: Марина Влади, Марина Майко, Людмила Аржаникова, Андрей Соколов, Донатас Банионис, Юрий Дубровин, Владимир Изотов, Сергей Исавнин, Александра Колкунова, Сергей Курёхин, Юлиан Макаров, Мария Мещерякова, Карина Моритц, Игорь Муругов, Юрий Оськин, Светлана Слижикова (Бирюк), Анатолий Столбов, Анатолий Телков, Виктор Терехов, Аркадий Тигай, Андрей Ургант, Константин Афонский, (   Читать дальше...   )Продолжительность: 01:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9FBB1979A7E6EA2DB9FC73A3A2E7D5DB94A62B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821288   (40946) от 01.10.2025
-
-До свидания мама (2014) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей и Анна молодые супруги. Неожиданная встреча Анны с другим мужчиной переворачивает их семейный мир. Любимые становятся чужими, случайный попутчик самым дорогим человеком, а собственный ребенок неудобным препятствием на пути к счастью.Производство: Россия / Мосфильм, Кинокомпания «Слон»Жанр: ДрамаРежиссер: Светлана ПроскуринаАктеры: Даумантас Цюнис, Александра Ребенок, Алексей Вертков, Диана Ганцевскайте, Мария Леонова, Яна Терешина и др.Продолжительность: 01:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0452CCFBEFE025ACBC202F65229E54FA3DCC240F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572826   (40748) от 11.10.2024
-
-ДухLess (2012) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма — 29-летний топ-менеджер крупного международного банка по имени Макс. Он уверен, что жизнь удалась, ведь у него есть то, о чём многие не могут даже и мечтать: дорогая машина, пентхаус и вечеринки. Свою жизнь Максим тратит на зарабатывание денег, а деньги — на ночные клубы, шикарных девушек, кокаин и прочие атрибуты гламурной жизни. Но в какой-то (   Читать дальше...   )Производство: Россия / Art Pictures Studio, Фонд кино, КинословоЖанр: ДрамаРежиссер: Роман ПрыгуновАктеры: Данила Козловский, Мария Андреева, Артем Михалков, Никита Панфилов, Артур Смольянинов, Михаил Ефремов, Мария Кожевникова, Сергей Белоголовцев, Саша Бурдо, Дмитрий ДороховПеревод: Оригинал (Русский)Субтитры: ОтсутствуютПродолжительность: 01:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198FA4B2A1857FE9C37BA46C33909F431C613FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754872   (40499) от 13.10.2024
-
-Скиф (2018) BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Время смены цивилизаций - ушли в небытие гордые воины скифы, их вымирающие потомки превратились в безжалостных наемных убийц, волков Ареса. Ратнику Лютобору предстоит тяжелое испытание. Встряв в междоусобные интриги, он отправляется в опасный путь, чтобы спасти семью, а его проводником становится пленный скиф Куница. Они - враги и молятся разным Богам, но вынуждены (   Читать дальше...   )Производство: Россия, Кинокомпания СТВЖанр: фэнтези, боевик, приключения, история, драмаРежиссер: Рустам МосафирАктеры: Алексей Фаддеев, Виталий Кравченко, Александр Кузнецов, Александр Пацевич, Юрий Цурило, Андрей Пермяков, Василиса Измайлова, Алексей Овсянников, Фёдор Рощин, Рустам МосафирПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3E8A7E4B995116449D616583627F1D486AC6D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

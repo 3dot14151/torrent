@@ -1,3 +1,81 @@
+###  Публикация: 938447   (481294) от 18.09.2015
+
+Кутис / Cooties (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В одной частной закрытой школе появился страшный вирус! Маленькие хорошенькие детки в одночасье превратились в адских зомби, которые хотят сожрать своих любимых учителей и одноклассников. Война начинается! И не на жизнь, а на смерть.Производство: США, Россия, SpectreVision, Glacier FilmsЖанр: ужасы, фантастика, боевик, комедияРежиссер: Джонатан Милотт, Кэри МернионАктеры: Элайджа Вуд, Рэйн Уилсон, Элисон Пилл, Джек МакБрайер, Ли Уоннелл, Назим Пэдрад, Иэн Бреннан, Хорхе Гарсиа, Санни Мэй Эллисон, Армани Джексон и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6A3CBA675959288925E7A0C213A961F6D351FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159907   (479637) от 22.08.2017
+
+2pac: Легенда / All Eyez on Me (2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Неизвестная, скрытая за газетными заголовками и вспышками фотоаппаратов история человека, ставшего рэп-легендой и погибшего в свои 25. Правда о том, как чернокожий выходец из гетто, участник криминальных разборок, неоднократно привлекавшийся к суду и развязавший смертельную войну рекорд-лейблов, становится настоящим голосом улиц и одним из самых влиятельных исполнителей (   Читать дальше...   )Производство: США, Morgan Creek Productions, Program Pictures, Voltage PicturesЖанр: Биография, Драма, МузыкаРежиссер: Бенни БумАктеры: Деметриус Шипп мл., Данай Джекесай Гурира, Катерина Грэхэм, Хилл Харпер, Энни Илонзе, Лорен Кохэн, Кит Робинсон, Джамал Вулард, Доминик Сантана, Кори Хардрикт ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9A392D4906D6D561A42B8F31A0D0ECBA598168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160098   (477690) от 23.08.2017
+
+Леди Макбет / Lady Macbeth (2016) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Викторианская Англия 19-го столетия. Небольшая деревня, живущая в соответствии с особыми укладами и нравами, присущими той поре. Молодая девушка по имени Кэтрин проживает скучную и ничем не примечательную жизнь. Всё меняется, когда она узнает, что должна стать супругой мужчины, который вдвое старше её. Новоиспеченная семья относится к Кэтрин с пренебрежением и даёт (   Читать дальше...   )Производство: ВеликобританияЖанр: драмаРежиссер: Уильям ОлдройдАктеры: Флоренс Пью, Космо Джарвис, Пол Хилтон, Наоми Эки, Кристофер Фэйрбэнк, Голда Рошевель, Антон Палмер, Ребекка Мэнли, Флер Хаудейк, Клиф БёрнетПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DD43F83E8EB6BC33437951EDEF76D94ED77F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160068   (477687) от 23.08.2017
 
 Возвращение / The Recall  (2017) BDRemux [H.264/1080p] [EN]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF008E0670128CC350F9125EE7A707E3F18042C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247330   (454533) от 14.09.2018
-
-Хан Соло: Звёздные войны. Истории / Solo: A Star Wars Story  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о похождениях юного космического сорвиголовы Хана Соло и его верного напарника Чубакки и о том, как они стали самыми быстрыми пилотами и самыми хитрыми контрабандистами далёкой Галактики.Производство: США / Lucasfilm, Walt Disney Pictures, Allison Shearmur Productions, Imagine EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Рон ХовардАктеры: Олден Эренрайк, Йонас Суотамо, Вуди Харрельсон, Эмилия Кларк, Дональд Гловер, Тэнди Ньютон, Фиби Уоллер-Бридж, Пол Беттани, Джон Фавро, Эрин Келлиман, Линда Хант, Йен КенниПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 02:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FF5D7655E01E3D5716A47A6C457F3EBC433457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942645   (453563) от 01.10.2015
-
-Под маской / Beyond the Mask  (2015) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремясь изменить свою жизнь, убийца Ост-Индской компании прячется от своего прошлого в тихой английской деревне, надев мантию англиканского священника. Но это маскировка длится не долго, когда любимая женщина и война заставляют его показать, кто он есть на самом деле. В условиях надвигающегося глобального конфликта, он открывает для себя смысл и источник истинного (   Читать дальше...   )Производство: США, Burns Family Studios.Жанр: боевик, драмаРежиссер: Чад БарнсАктеры: Эндрю Чейни, Джон Рис-Дэвис, Кара Киллмер, Адетокумбо Маккормак, Самрат Чакрабарти, Стив Блэквуд, Томас Д. Махард, Чарли Ньюхарт, Энни Китрал, Майкл Эллисон, Гарри Эдвард КарлсонПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6D578BEF0EA90D8E4B3BA33C406529142B9BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942810   (453252) от 01.10.2015
-
-Под маской / Beyond the Mask  (2015) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремясь изменить свою жизнь, убийца Ост-Индской компании прячется от своего прошлого в тихой английской деревне, надев мантию англиканского священника. Но это маскировка длится не долго, когда любимая женщина и война заставляют его показать, кто он есть на самом деле. В условиях надвигающегося глобального конфликта, он открывает для себя смысл и источник истинного (   Читать дальше...   )Производство: США, Burns Family Studios.Жанр: боевик, драмаРежиссер: Чад БарнсАктеры: Эндрю Чейни, Джон Рис-Дэвис, Кара Киллмер, Alan Madlane, Адетокумбо Маккормак, Самрат Чакрабарти, Стив Блэквуд, Томас Д. Махард, Чарли Ньюхарт, Энни Китрал, Майкл Эллисон, Гарри Эдвард КарлсонПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC2480C4920C1D16004FF47E55741DB4B5A83E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

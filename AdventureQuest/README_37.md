@@ -1,3 +1,108 @@
+###  Публикация: 1237210   (550279) от 25.07.2018
+
+George's Memories (2018) [Ru/En] (1.0/upd1) License PLAZA [Episode 1]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+George's Memories — это эпизодическая игра про воспоминания некого Джорджа. Интерактивный квест от первого лица, повествующий о жизни Джорджа — обычного мужчины средних лет, который не может разобраться со своим прошлым. Вам предстоит пройти вместе с ним путь от его детства до настоящего времени, окунуться в тайны прошлого и узнать о том, что Джордж скрывает от всех (   Читать дальше...   )Тип издания: LicenseРазработчик: TsurudeiraЖанр: Adventure (Interactive), Simulator, 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F17188BC71128A6D5E0A5D44C27320B17EB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041486   (549789) от 29.08.2016
+
+Existentia (2016) [Ru/Multi] (1.0.3) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Existentia - постапокалиптическая приключенческая головоломка с тёмной экзистенциальной атмосферой. В качестве одного из немногих выживших после ядерной катастрофы исследуйте руины вымышленной постсоветской республики. В процессе вылазки из убежища вы узнаете истории о мире и людях, которые больше никогда не будут такими, как прежде.Тип издания: LicenseРазработчик: SmartHart GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEACC8BB5B99144142EDAB4F7744B2774855FFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047565   (548974) от 30.08.2016
+
+Bear With Me (2016) [Ru/Multi] (1.0) License POSTMORTEM [Episode 1]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bear With Me – это эпизодическая приключенческая игра с нуарной стилистикой. Девочка Эмбер пытается найти своего пропавшего брата, а помогает ей верный плюшевый медвежонок по имени Тед И. Медведь. Эмбер просыпается посреди ночи из-за кошмара и узнает, что ее брат Флинт пропал. За помощью она обращается к своему верному плюшевому медвежонку по имени Тед И., сварливому (   Читать дальше...   )Тип издания: LicenseРазработчик: Exordium GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FB3CFEEE406704FB98C3F1301A04655BBF98C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047586   (548908) от 30.08.2016
+
+SCP 087. Re (2016) [En] (1.0 Remake) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+SCP-087 — это игра ужасов, в которой вы не знаете, что произойдет в конце лестницы. Если вы решили играть в эту игру, самое главное, что вы должны сделать, это идти вниз и сохранять спокойствие.
+Объект SCP-087 находится на территории университета. Дверь, ведущая к SCP-087, сделана из закалённой стали и снабжена электрическим замком. Дверь замаскирована под кладовую (   Читать дальше...   )Тип издания: RepackРазработчик: ArtemiZ GameЖанр: Horror Adventure, IndieЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8BFB934F56AF658E09B5C6E516C74585728C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047747   (548898) от 30.08.2016
 
 The Turing Test (2016) [En] (1.0) License CODEX
@@ -6,7 +111,7 @@ The Turing Test (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Bear With Me (2016) [Ru/Multi] (5.2.2.22320) Repack Dok2 [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.6.26515) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ The Raven: Legacy of a Master Thief (Episode 2: Ancestry of Lies) (2013) [En] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +221,7 @@ King's Quest: Chapter 1-3 (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +247,7 @@ Ian’s Eyes (2016) [En/Es] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +273,7 @@ Ian’s Eyes (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +299,7 @@ Joana’s Life (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +325,7 @@ The Underground Man / Подземный человек (2016) [Ru/En] (1.0) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +351,7 @@ De-Void (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +377,7 @@ De-Void (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +403,7 @@ CURSE (2016) [En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +430,7 @@ CURSE (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +457,7 @@ Deluded Mind (2018) [Ru/Multi] (1.8.6) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +483,7 @@ The Sinking City (2019) [Ru/Multi] (3709.2/dlc) Repack xatab [Necronomicon Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +509,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +535,7 @@ Hunted: One Step Too Far (2016) [En] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +561,7 @@ Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. C
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +587,7 @@ Submerged (2015) [Ru/Multi] License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +613,7 @@ Blues & Bullets: Episode 1 (2015) [Ru/En] License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +639,7 @@ Dream (2015) [Ru/Multi] (1.0.8767.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +665,7 @@ Draugen (2019) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,112 +676,6 @@ Draugen — новый психологический детектив от пе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E31FD2238704F9EA8926B4614F43F9788D18700B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306037   (539419) от 30.06.2019
-
-Outer Wilds (2019) [Ru/Multi] (1.0.2.100) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outer Wilds - приключения в открытом мире, попытка разгадать тайну неведомой солнечной системы в бесконечно повторяющейся петле времени. Добро пожаловать в космическую программу! Вы - новобранец Outer Wilds Ventures, начатой недавно программы космических исследований, которая призвана найти ответы на загадки странной, непрестанно меняющейся солнечной системы.Тип издания: RepackРазработчик: Mobius DigitalЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EC1EC16B46AAC513A926A99AA06F404EB068CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557769   (537046) от 17.06.2022
-
-Dungeons of Edera (2022) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dungeons of Edera - ролевое приключение с упором в красочные экшен-сцены и сражения с вражескими отрядами, агрессивно настроенными относительно главного героя. Большую часть времени, проведённого за этим проектом, разработанным коллективом независимых разработчиков, геймер проведёт в подземельях, ведь их зачистка – основное задание практически любых поручений, получаемых (   Читать дальше...   )Тип издания: LicenseРазработчик: Monster Tooth StudiosЖанр: Экшн, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804459E10F94DE2412FB9622FE08C2D7F6D51EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239611   (534758) от 07.08.2018
-
-Don't Play With Dolls (2018) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пробравшись в дом, который казался давно оставленным, с целью выкрасть из него все предметы представляющие ценность, главная героиня понимает, что дом не такой уж и заброшенный. Попав в дом, он оказывается полностью запертый изнутри. Но есть пара способов выбраться из него.Тип издания: RepackРазработчик: Creative Black ChairЖанр: Adventure (Horror), Action, Puzzle, 1st Person, 3DЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E36EE21CCC8ED29C53E92656BBECC57DACC832B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051272   (534152) от 10.09.2016
-
-Jotun (2015) [Ru/Multi] (1.0/upd3) Repack Other s [Valhalla Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jotun – это рисованная вручную приключенческая экшн-игра в мире скандинавской мифологии.
-В игре Jotun вы играете за Тору, воина-викинга, которая умерла бесславной смертью и должна доказать богам, что достойна Вальхаллы.
-Исследуйте обширные области скандинавского чистилища, чтобы найти руны и освободить йотунов – гигантских скандинавских элементалей. Сразитесь с ними (   Читать дальше...   )Тип издания: RepackРазработчик: Thunder Lotus GamesЖанр: Adventure, IndieЯзык озвучки: ИсландскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0627BD7A94C26DE29764F477F82A0A4F5FD1932F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1313006   (528960) от 06.07.2019
+
+Железная пята олигархии (1998) VHSRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На темы романа Джека Лондона «Железная пята». Современная фантазия на темы романа Джека Лондона (с использованием цитат из указанной книги) и «Капитала» Карла Маркса в интерьерах Санкт-Петербурга конца 90-х под музыку групп «Колибри» и TEQUILAJAZZZ с весьма узнаваемым персонажем сходок и демонстраций — обреченным на вечное одиночество и постоянную неуспокоенность (   Читать дальше...   )Производство: Россия, Дебошир Фильм, Films UnlimitedЖанр: Драма, комедияРежиссер: Александр БашировАктеры: Александр Баширов, Сергей Дьячков, Константин Федоров, Евгений Фёдоров (II), Сергей Кагадеев, Рита Марго, Наталья Пивоварова, Александр Розанов, Ирина Шароватова, Инна ВолковаПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7A062C4F424B7628C5883BA297CF4F57B66410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052225   (528929) от 13.09.2016
+
+Бармен (2015) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вадик мечтает изменить свою скучную жизнь, но страх неудачи и неуверенность в себе мешают парню двигаться к цели. Все меняется, когда Вадик случайно забредает в пустой бар и выпивает коктейль по рецепту загадочного Бармена. Отныне он - мистер Харизма, и весь мир лежит у его ног. Даже красавица Юля, о которой раньше он не смел и мечтать, обратила на него внимание. (   Читать дальше...   )Производство: РоссияЖанр: Комедия, ФэнтезиРежиссер: Дина ШтурмановаАктеры: Виталий Гогунский, Иван Охлобыстин, Юлия Паршута, Юрий Стоянов, Жанна Эппле, Константин Крюков, Антон Богданов, Ольга Бузова, Евгения Ярушникова, Константин ФедоровПеревод: Не требуется (Русский, лицензия)Продолжительность: 01:31:57Реклама: Отсутствует.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87FF1DAED38994FB221B20054E712D0B1CDE8910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240411   (528610) от 11.08.2018
+
+Воротничок (2017) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молодая скромная девушка покупает крахмальный воротничок, и он начинает управлять жизнью девушки, вопреки её желанию. Героиня оказывается перед выбором: либо подчиниться, либо бороться.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Виктория РунцоваАктеры: Павел Артемьев, Алла Будницкая, Виктория Рунцова, Даниил СпиваковскийСубтитры: ОтсутствуютПродолжительность: 00:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E69DD5C8FDDA7AC9CE758A7638F2311787818A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925993   (528567) от 13.08.2015
+
+Ужин в четыре руки (1999) IPTVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лейпциг, 1747 год. Гендель, любимец публики и сильных мира сего, приглашает Баха, кантора церкви Святого Фомы и отца двадцати детей, только что принятого в «Общество музыкальных наук», на обед в гостиницу. Агрессивный настрой первых минут этой встречи перерастает во взаимопонимание двух стареющих и слепнущих композиторов, мудрых, одиноких и одинаково несчастных.Производство: Россия, Partner Video FilmЖанр: Драма, историяРежиссер: Михаил КозаковАктеры: Михаил Козаков, Евгений Стеблов, Анатолий Грачёв, Миша КозаковПродолжительность: 2х~00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25494270DD3B6D94FDEB6E58C81FF5FE57347197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240476   (528531) от 11.08.2018
 
 Улыбка Бога, или Чисто одесская история (2008) WEBRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F17874A6D23F176EF2A110FF77ED8B5481229B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928476   (521632) от 17.08.2015
-
-Заяц над бездной (2006) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Заяц над бездной» по сценарию Дмитрия Иванова Тигран Кеосаян по заказу компании «Централ Партнершип» снимал в Молдове. Съемки начались в мае 2005 года и продолжались около двух месяцев на улочках старого Кишинева и в Вадул-луй-Водэ. В фантасмагории о прилете Брежнева в республику в 70-х годах прошлого века, о его невероятных приключениях здесь и свадьбе с (   Читать дальше...   )Производство: Россия / Студия "2В"Жанр: КомедияРежиссер: Тигран КеосаянАктеры: Богдан Ступка, Владимир Ильин, Юрий Стоянов, Михаил Ефремов, Сергей Газаров, Алена Хмельницкая, Елена Сафонова, Сержиу Финитти, Виктор Друми, Михай КурагэуПродолжительность: 01:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC5B5257A2E889D0405738E56C9F88C5842DCDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928776   (521624) от 17.08.2015
-
-Устрицы из Лозанны (1992) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создав для себя и своих друзей фирму, Роман Лебедичкин набрал кредиты и… обанкротился. Дело сделали вместе, а сел он один. Отсидев часть положенного срока в тюрьме, откуда он имел возможность руководить делами фирмы, Лебедичкин вернулся в родные места, где его не только не ждали, но и сочли возвращение явно преждевременным…Производство: Россия / Студия АкцияЖанр: Боевик, КомедияРежиссер: Владимир ШамшуринАктеры: Александр Панкратов-Черный, Вера Глаголева, Владимир Ильин, Сергей Степанченко, Олег Шкловский, Лариса Удовиченко, Ирина Розанова, Александр ИльинПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E98BB3D2BE9D073FDAEBAF089ACF7D926ACB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928507   (521552) от 17.08.2015
-
-Заяц над бездной (2006) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Заяц над бездной» по сценарию Дмитрия Иванова Тигран Кеосаян по заказу компании «Централ Партнершип» снимал в Молдове. Съемки начались в мае 2005 года и продолжались около двух месяцев на улочках старого Кишинева и в Вадул-луй-Водэ. В фантасмагории о прилете Брежнева в республику в 70-х годах прошлого века, о его невероятных приключениях здесь и свадьбе с (   Читать дальше...   )Производство: Россия / Студия "2В"Жанр: КомедияРежиссер: Тигран КеосаянАктеры: Богдан Ступка, Владимир Ильин, Юрий Стоянов, Михаил Ефремов, Сергей Газаров, Алена Хмельницкая, Елена Сафонова, Сержиу Финитти, Виктор Друми, Михай КурагэуСубтитры: нетПродолжительность: 01:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D179801FA5E9A62EA344C05E935310288F0647DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928751   (521549) от 17.08.2015
-
-Устрицы из Лозанны (1992) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создав для себя и своих друзей фирму, Роман Лебедичкин набрал кредиты и… обанкротился. Дело сделали вместе, а сел он один. Отсидев часть положенного срока в тюрьме, откуда он имел возможность руководить делами фирмы, Лебедичкин вернулся в родные места, где его не только не ждали, но и сочли возвращение явно преждевременным…Производство: Россия / Студия АкцияЖанр: Боевик, КомедияРежиссер: Владимир ШамшуринАктеры: Александр Панкратов-Черный, Вера Глаголева, Владимир Ильин, Сергей Степанченко, Олег Шкловский, Лариса Удовиченко, Ирина Розанова, Александр ИльинСубтитры: нетПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8993C46F8CB658A9E72BA32824B27E3DE0720DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

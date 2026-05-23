@@ -1,3 +1,81 @@
+###  Публикация: 1484692   (1005882) от 21.07.2021
+
+Охотники на троллей: Восстание титанов / Trollhunters: Rise of the Titans (2021) WEB-DL  [H.265/1080p] [HDR10, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Возможно, Аркадия выглядит как обычный город, но она находится на пересечении волшебных и мистических линий, поэтому оказывается в гуще событий, когда между неземными существами — троллями, инопланетянами и магами — возникают раздоры. Герои объединяются, чтобы победить Тайный орден в эпической битве и обрести Влacть над магией, которая всех связывает.Производство: США, Мексика / Double Dare You (DDY), DreamWorks Animation, NetflixЖанр: мультфильм, фэнтези, боевик, драма, комедия, приключения, семейныйРежиссер: Йохана Матте, Франциско Руис Веласко, Эндрю Л. ШмидтАктеры: Стивен Юн, Ник Офферман, Ник Фрост, Эмиль Хирш, Келси Грэммер, Альфред Молина, Диего Луна, Шерил Хайнс, Чарли Сэкстон, Лекси МедраноПеревод: Дублированный (Netflix)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Forced, SDH)Продолжительность: 01:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9440868FE12F8D7F9BCD52F6E53541628D86EF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484680   (1005876) от 21.07.2021
+
+Охотники на троллей: Восстание титанов / Trollhunters: Rise of the Titans (2021) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Возможно, Аркадия выглядит как обычный город, но она находится на пересечении волшебных и мистических линий, поэтому оказывается в гуще событий, когда между неземными существами — троллями, инопланетянами и магами — возникают раздоры. Герои объединяются, чтобы победить Тайный орден в эпической битве и обрести власть над магией, которая всех связывает.Производство: США, Мексика / Double Dare You (DDY), DreamWorks Animation, NetflixЖанр: Мультфильм, фэнтези, боевик, драма, комедия, приключения, семейныйРежиссер: Йохана Матте, Франциско Руис Веласко, Эндрю Л. ШмидтПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, SDH), румынскиеПродолжительность: 01:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E475EEC56716EC0E9F1FD9F4EFACD58ED26266F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484799   (1005779) от 22.07.2021
+
+Охотники на троллей: Восстание титанов / Trollhunters: Rise of the Titans (2021) WEB-DL [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Возможно, Аркадия выглядит как обычный город, но она находится на пересечении волшебных и мистических линий, поэтому оказывается в гуще событий, когда между неземными существами — троллями, инопланетянами и магами — возникают раздоры. Герои объединяются, чтобы победить Тайный орден в эпической битве и обрести власть над магией, которая всех связывает.Производство: США, Мексика / Double Dare You (DDY), DreamWorks Animation, NetflixЖанр: Мультфильм, фэнтези, боевик, драма, комедия, приключения, семейныйРежиссер: Йохана Матте, Франциско Руис Веласко, Эндрю Л. ШмидтПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full)Продолжительность: 01:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BF5EF8323F754A54118C0613DEE473E698508C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349439   (1004430) от 01.01.2020
 
 Рождественская история / A Christmas Carol (2009) BDRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -591,86 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEC3144B0203F11C6166078DDF7F80FDFB252444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605901   (995425) от 20.01.2013
-
-Том и Джерри: Полет на Марс / Tom and Jerry Blast Off to Mars! (2005) [1080p] Blu-Ray
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выходит, что для своих погонь и проказ легендарные Том и Джерри уже использовали все возможные места на нашей старушке-Земле; и теперь забавные зверушки решают совершить вояж наМарс, чтобы повеселиться там от души! Вот, правда, марсиане оказались мелковаты: крошечные гуманоиды посчитали Тома свирепым галактическим монстром и решили расправиться с беднягой.
-
-Марс (   Читать дальше...   )Жанр: Рисованная анимацияРежиссер: Билл КоппАктеры: Джефф Беннетт, Кори Бертон, Кэтрин Фиоре, Брэд Гэррет, Джесс Харнелл, Том Кенни, Билл Копп, Роб Полсен, Фрэнк Уэлкер, Билли УэстПеревод: Многоголосый закадровыйЯзык субтитров: Английские, французские, испанскиеПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8A49509031FD95BF9F2F2D47DA9E71CB4DE064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605784   (995413) от 20.01.2013
-
-Ра / Р'ха / R'ha (2013) WEB-DLRip [H.264/720p-LQ] [EN / Ru, En, Fr Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страшный механический монстр пытками хочет выудить информацию у благородного инопланетянина.Производство: Жанр: Фантастика, Короткометражный, АнимацияРежиссер: Калеб ЛеховскиАктеры: Дэвид МастерсонПеревод: СубтитрамиПродолжительность: 00:06:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606500   (995007) от 21.01.2013
-
-Нико 2 / Niko 2: Lentajaveljekset (2012) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые приключения веселого и отважного олененка Нико, мечтающего, как и его легендарный отец, стать летающим оленем в упряжке Санта-Клауса. Все начинается накануне Рождества. Вместе со своими друзьями, белкой Джулиусом, лаской Вилмой и сводным братишкой Джонни Нико с нетерпением ждет Санту. Но тот снова попадает в невероятную историю. Неужели дети останутся без подарков?Жанр: Мультфильм, приключения, семейныйРежиссер: Стефен МакКеонАктеры: Эрик Карлсон, Кари Хиеталахти, Кари Кетонен, Юха Вейонен, Элина Книхтиля, Яакко Саарилуома, Юкка Расила, Рику Ниеминен, Пертти Койвула, Аааре КаренПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2021A10962F6A7E42EF09B99FFF0811AF831B665
 ```
 
 https://mybot314.ru/tekegram_catalog/

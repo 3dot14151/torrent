@@ -1,3 +1,29 @@
+###  Публикация: 1817078   (3727) от 08.09.2025
+
+NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Тяжелая работа - самый большой в мире дракон на острове Ринка. Конкуренция такая жесткая, а глобальная температура медленно растет.Производство: ЮАР | Earth TouchЖанр: документальный, природаРежиссер: Грэм ДуэйнПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9209BE54B17C847A1E279CFF4F6F246E201F1B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 386505   (3425) от 11.09.2025
 
 NG. Секунды до катастрофы: 11 сентября / Seconds From Disaster: 9/11 (2011) SATRip
@@ -6,7 +32,7 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

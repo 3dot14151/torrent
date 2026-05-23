@@ -1,3 +1,341 @@
+###  Публикация: 1174809   (382719) от 16.10.2017
+
+Звуковые библиотеки - Loopmasters - Mainstream Hardcore [NKI, WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Gancher and Ruin вернулись с еще одним разрывающим мозг набором сэмплов для поклонников Hardcore музыки и других жестких электронных стилей. Mainstream Hardcore включает фирменные бочки, созданные с нуля, а также набор мелодических лупов.Формат: NKI, WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E0A89F1B54CC7785191E4DB31F7825C94D23C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174849   (382703) от 16.10.2017
+
+Digital Juice - Drag & Drop: Series 2 - Touch of Glass [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Drag & Drop - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Получите великолепные виды, о которых вы мечтали! Без использования каких-либо плагинов, никакого тяжелого рендеринга, никакой суеты! Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BEAEEA2A127E3BFBCD7DBD097B546DEFA786A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174845   (382531) от 16.10.2017
+
+Digital Juice - Drag & Drop: Series 2 - Color Leaks [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Drag & Drop - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Получите великолепные виды, о которых вы мечтали! Без использования каких-либо плагинов, никакого тяжелого рендеринга, никакой суеты! Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADA9A9DC2B8373E347694941489193DA0BC1D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174848   (382373) от 16.10.2017
+
+Digital Juice - Drag & Drop: Series 2 - Hot Spots [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Drag & Drop - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Получите великолепные виды, о которых вы мечтали! Без использования каких-либо плагинов, никакого тяжелого рендеринга, никакой суеты! Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9F99FE2281A8A99601921CC31648674E19D446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414842   (380749) от 10.10.2020
+
+Экшены - GraphicRiver - MixArt 4 Photoshop Action - 27679860 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«MixArt 4» - действие фотошоп с простыми настройками, он превратит ваше фото в картину в стиле современного искусства. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B406366BEC3CA8C62E1C49FCC19E5078E278E7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573121   (380724) от 10.11.2012
+
+Digital Juice - Juice Drops 56: sideSCROLLERS (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 300 dpiФормат: ISO (PSD - 5175×3375)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9234F8729433D3D1E30FE2D85E595779D63C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175172   (380659) от 17.10.2017
+
+Digital Juice - Drag & Drop: Series 3 - Crystal Caustics [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Drag & Drop - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Получите великолепные виды, о которых вы мечтали! Без использования каких-либо плагинов, никакого тяжелого рендеринга, никакой суеты! Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE143F4A343E5127B2A0D51A271ADDD247F9A2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174850   (380658) от 17.10.2017
+
+Digital Juice - Drag & Drop: Series 3 - Cloudy Daze [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Drag & Drop - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Получите великолепные виды, о которых вы мечтали! Без использования каких-либо плагинов, никакого тяжелого рендеринга, никакой суеты! Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7998D6CDD0E2E803BBC00BB049A0374893E3645C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175175   (380657) от 17.10.2017
+
+Digital Juice - Drag & Drop: Series 3 - Paper Stops [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Drag & Drop - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Получите великолепные виды, о которых вы мечтали! Без использования каких-либо плагинов, никакого тяжелого рендеринга, никакой суеты! Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E649CEE3BE68E5F3B46C2C2053FE6FB35A48032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175174   (380656) от 17.10.2017
+
+Digital Juice - Drag & Drop: Series 3 - Glass Facets [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Drag & Drop - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Получите великолепные виды, о которых вы мечтали! Без использования каких-либо плагинов, никакого тяжелого рендеринга, никакой суеты! Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D06B7FB1548C549F926DAF8D3DE52CBEFD73F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175183   (380651) от 17.10.2017
+
+Digital Juice - Drag & Drop: Series 2 - Ethereal Thoughts [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Drag & Drop - клипы на основе визуальных эффектов, которые преобразят и дополнят ваши футажи. Получите великолепные виды, о которых вы мечтали! Без использования каких-либо плагинов, никакого тяжелого рендеринга, никакой суеты! Это захватывающая новая серия эффектов - именно то, что действительно нужно видео-редакторам, дизайнерам анимированной графики и визуальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29437BD33030CEE6BD97E21DC695A35E9C988F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326964   (380634) от 22.09.2019
+
+Boom Library - MODERN UI [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта библиотека, созданная из более чем 3800 звуков пользовательского интерфейса в одном пакете, является самой большой библиотекой пользовательского интерфейса, которую вы можете получить в настоящее время, и предоставляет вам все необходимое для погружения в цифровой, виртуальный и интерактивный мир. Ищете ли вы футуристические звуки научной фантастики, высокотехнологичные (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FAC3E1182F8AEFC994AC0ADBD34A0A6FF670CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326967   (380629) от 22.09.2019
+
+Creative Fabrica - 5000 in 1 - Black Lines Mega Bundle [PNG, JPG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пакет Black Line MEGA содержит более 5000 изображений черных линий. Идеально подходит для Пасхи, Рождества, Хэллоуина, Дня Благодарения, Дня святого Валентина, дня Святого Патрика, День знаний, лесных животных, супергероев, еды, волшебных существ, монстров, русалок, принцесс и принцев, многих популярных направлений и многого другого. Отлично подходит для раскрасок (   Читать дальше...   )Формат: PNG, JPG, EPSРазрешение файлов: 1800x1800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407C57C523569361744AEBF8FE9E3F758FA7F8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326971   (380628) от 22.09.2019
 
 Creative Fabrica - 1500 Graphic Mega Halloween Bundle [PNG, JPG, EPS]
@@ -6,7 +344,7 @@ Creative Fabrica - 1500 Graphic Mega Halloween Bundle [PNG, JPG, EPS]
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +370,7 @@ Digital Juice - Drag & Drop: Series 3 - Spark Sweeps [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +396,7 @@ Digital Juice - Drag & Drop: Series 2 - Ragged Edge [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +422,7 @@ Digital Juice - Drag & Drop: Series 2 - Fabric Flow [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +448,7 @@ Digital Juice - Drag & Drop: Series 3 - Film Burns [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +500,7 @@ Digital Juice - Drag & Drop: Series 2 - Speed Lines [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +526,7 @@ Digital Juice - Drag & Drop: Series 3 - Party Time [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +604,7 @@ Boom Library - MONSTERS & BEASTS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +630,7 @@ Boom Library - MECHANICALS DESIGNED [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +656,7 @@ Boom Library - CINEMATIC METAL – TITAN [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,356 +667,6 @@ Boom Library - CINEMATIC METAL – TITAN [WAV]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7B763F4451F3D73F7E4B633D1BDD08A2EE4C09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175495   (378460) от 18.10.2017
-
-Растровый клипарт - Оверлеи для оформления фотографий и бэкграундов. Часть 1 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник авторских оверлеев для быстрого оформления фотографий, фото-коллажей, создания бэкграундов, а также для оформления открыток, флайеров, постеров, баннеров и другого материала.Формат: PNGРазрешение файлов: 3600x2400, 5184x3456
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93624B6DD1ACF19531B5FA88467F931791FC846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415168   (378244) от 11.10.2020
-
-Экшены - GraphicRiver - XPRESSION | Watercolor Painting PS Action - 28522608 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378244.jpg" />
-</div>
-
-
-###  Подробнее
-
-«XPRESSION Watercolor Painting» - превратит ваши фотографии в потрясающие акварельные рисунки за несколько кликов. В результате вы получите очень реалистичный эскиз с большим количеством настроек.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1374C35F25566D53C8D758B1713F93BA5C3D686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415138   (378243) от 11.10.2020
-
-Звуковые библиотеки - Q Up Arts - California Keys [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клавишных инструментов:The Fazioli 10ft grand,Rhodes, Wurlitzer, Vox, FARFISA and Hammond organs,
-Мы записали этот великолепный инструмент в объемном звучании с 11 каналами микрофонов.
-Пианино представлено в стерео и объемном исполнении.
-Вы найдете эти инструменты чрезвычайно проигрываемыми и вдохновляющими.(   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKC, NKI, NKR, NKX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23F7B9C3B93B4369E41997325010926C2E585B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415163   (378111) от 11.10.2020
-
-Экшены - GraphicRiver - Art Oil Painting Photoshop Action - 26513615 [ATN, TPL, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378111.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Art Oil Painting» - картина маслом, простое в использовании действие фотошоп превратит ваши изображения в шедевр художественного полотна. Лёгкость в настройках для улучшения конечного результата.Формат: ATN, TPL, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5892618F2115D0BA888CB397322BBB112F2D83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175617   (378056) от 18.10.2017
-
-Футажи - Tommy Video Backs - All Volumes [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378056.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Tommy Video Backs - All Volumes" - неофициальный сборник из 680 футажей-бэкграундов, охватывающий огромный спектр графических жанров от абстракции до медицины. Диапазон применения данных бэков так же довльно обширен, будь то конференции, презентации или спортивные мероприятия, концерты.Формат: MOVРазрешение файлов: 720x576
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AACE6F3928DB998F84754F463AA366095B2035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415370   (378018) от 11.10.2020
-
-Текстуры - CGAxis - PBR Textures Volume 1 – Stones [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378018.jpg" />
-</div>
-
-
-###  Подробнее
-
-PBR Textures Volume 1 - Stones - это коллекция из 100 PBR-текстур камней, стен, тротуаров и бетона.
-Не полный сборник 13шт из 100.Формат: PNGРазрешение файлов: 4096x4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A771F2E5F7121A671798AD8537A422D2170102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834431   (377641) от 25.10.2014
-
-Стили ProShow Producer - Collage Motion 3 (New Year) [PXS]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377641.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Зима близко" (Нед Старк).
-
-Стиль Collage Motion 3 (New Year)  для создания ваших новогодних или зимних роликов.Формат: PXS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84573A120D039AC536863D1379000F4D8C05050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254051   (377065) от 12.10.2018
-
-Экшены - JessicaDrossin - JD Special Effects [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377065.jpg" />
-</div>
-
-
-###  Подробнее
-
-JD Special Effects - блёстки, светящаяся пыль и  светлячки, превосходный набор действий для качественного результата в создании красивых изображений - за короткое время, которое требуется для редактирования вручную.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B98C7738C0F7D9C65ED12A94EBFA16B84FAAED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949208   (377048) от 23.10.2015
-
-Векторный клипарт - Vintage backgrounds [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративные шаблоны для дизайна.
-6 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2638603B472609EA5CD7480827253289218312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949207   (376892) от 23.10.2015
-
-Векторный клипарт - Vintage backgrounds with patterns [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративные шаблоны для дизайна.
-9 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1B53AAAC14FFF17CE20B57DCD5559AF010C9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949203   (376883) от 23.10.2015
-
-Векторный клипарт - Luxury vintage vector backgrounds [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскошные винтажные векторные фоны.
-Декоративные шаблоны для дизайна.
-AI 8 | EPS 25 | + JPG PreviewФормат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF4A3882F4E5E87E4D76250E3277089BFD70B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949204   (376731) от 23.10.2015
-
-Векторный клипарт - RETRO CARS [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ретро авто в векторе.
-6 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1082BD954497600BF9FE62A41D659DEE6DECE391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327298   (376377) от 24.09.2019
-
-Boom Box Library - ROBOTIC CREATIONS: HEADS UP DISPLAY SOUND DESIGN TOOLKIT [WAV, KONTAKT]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека звуковых эффектов Heads Up Display - это первый выпуск коллекции Robotic Creations. Каждая библиотека из коллекции Robotic Creations содержит звуковые эффекты, разработанные для соответствия пяти различным персонажам-роботам с их уникальными звуковыми характеристиками.
-Эти наборы инструментов для звукового дизайна включают в себя библиотеку SFX и специальное (   Читать дальше...   )Формат: WAV, KONTAKT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08353FA122205D456A8AA6512D741616BE3BCFEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

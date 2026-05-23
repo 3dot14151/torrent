@@ -1,3 +1,107 @@
+###  Публикация: 1002810   (846202) от 01.04.2016
+
+Adam's Venture: Origins (2016) [Ru/Multi] (1.0) License CODEX
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в рискованное путешествие в игре Adam’s Venture: Origins! Действие игры разворачивается в бурные 20-е годы. Вместе с помощницей Эвелин вам предстоит исследовать древние развалины, искать таинственные артефакты, а самое главное - обойти злодейскую компанию Clairvaux.Тип издания: LicenseРазработчик: Vertigo GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8BCEFBC96BAF1E6DFC3B589C99BBB655CBA0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499741   (845817) от 03.10.2021
+
+Dap (2021) [En] (1.0.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приключенческий хоррор о сборе и защите стай хрупких существ под названием Daps. Проведите своих Daps в безопасное место в устрашающе красивом мире, отбиваясь от различных угроз, решая головоломки и избегая инфекции, которая превращает Ваших товарищей во что-то инопланетное и устрашающее. Исследуйте атмосферный пиксельный мир, ведя своих Daps через проницаемое царство (   Читать дальше...   )Тип издания: LicenseРазработчик: Melting ParrotЖанр: Horror, Adventure, Action, CraftingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF92EC03BA420CFEA083A7D92B3811781541C3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499700   (845815) от 03.10.2021
+
+Meridian 157 (2019-2021) [Ru/Multi] (1.0.6/1.0.6/1.0.6.0/1.0.3.0) Repack Other s [Prologue, Chapter 1-3]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Meridian 157 — это тетралогия, сфокусированная на занимательных головоломках, захватывающих визуальных эффектах и увлекательной сюжетной линии, где вы играете в роли детектива Дэвида Зандера.Тип издания: RepackРазработчик: NovaSoft Interactive Ltd.Жанр: Adventure (Point & Click), Puzzle, Logic, CasualЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B893D8CF05B9D4EA253F50B7419249A04BC967F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003212   (844734) от 02.04.2016
+
+Heaven's Hope (2016) [En/De] (1.0) License CODEX [Special Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Heaven's Hope рассказывает историю ангела Талореля, который в буквальном смысле свалился с неба. Он оказался на Земле 19 века неподалеку от городка Надежда Небес, потеряв свой ореол и крылья. Теперь ему предстоит найти способ вернуться домой. Но наш мир чужд Талорелю, и ему нужна помощь старых друзей с небес и новых неожиданных спутников, которых он встретит во время (   Читать дальше...   )Тип издания: LicenseРазработчик: Mosaic Mask StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593DE1CD83028A4FEFCFB4C65CFFE73D23F82C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003237   (844577) от 02.04.2016
 
 Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack Choice
@@ -6,7 +110,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack Choice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +137,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Inspector Waffles (2021) [Multi] (1.0.2.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ LUNA The Shadow Dust (2020) [Graphic] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Hektor (2015) [En] (1.1.0b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Swordbreaker: The Game / Мечелом (2015) [Ru/En] (1.0 u1) Repack DARKSiDER
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.13) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Monumental (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Wick (2015) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Distraint (2015) [Ru/Multi] (03.04.16) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ BREATHEDGE (2021) [Ru/En] (1.1.0.4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Children Of Morta (2019) [Ru/Multi] (1.2.74/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Anna's Quest (2015) [Ru/Multi] (1.1.0214) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +450,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd17) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Maid of Sker (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Deponia: The Complete Journey (2014) [Ru/En] (3.3.0155) Repack R.G. Механи
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Breathedge (2021) [Ru/Multi] (1.1.0.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Broken Sword: Тень тамплиеров. Расширенное издани
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -480,7 +584,7 @@ The Magister (2021) [En] (1.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Statues (2015) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Mind: Path to Thalamus (2015) [Ru/Multi] (1.0/upd1) License SKIDROW [Enhanced Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -569,110 +673,6 @@ Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3E5DE74A6A5E55FF76D4254934C4A838D602A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380705   (830851) от 04.05.2020
-
-The Walking Evil (2020) [Ru/Multi] (1.2) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830851.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Walking Evil переносит вас в великую классику ужасов выживания 90-х, управляя главным героем с помощью фиксированной системы камер, которая усиливает ощущение того, что вы находитесь в настоящем фильме ужасов, или с видом от третьего лица. Столкнитесь с множеством испытаний, головоломок и ужасными врагами, которые заставят вас не тратить пули, прятаться или даже (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CD452FE323629FA6E63E343007AC59682ABDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006101   (830191) от 10.04.2016
-
-Bunker - The Underground Game (2015) [Ru/De] (22.5) Repack ARMENIAC
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bunker - The Underground Game - point-n-click адвенчура, в которой главный герой оказался заперт в древнем советском бункере. Сможет ли он выбраться наружу зависит только от Вашей смекалки и наблюдательности. Ему предстоит разгадывать головоломки, решать загадки, погружаться все глубже и глубже, преодолевая все новые и новые препятствия! Это приключение станет делом (   Читать дальше...   )Тип издания: RepackРазработчик: Nightly StudiosЖанр: Adventure, Point & ClickЯзык субтитров: Русский, НемецкийЯзык интерфейса: Русский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF8967C10FBAEFF7DFB81860401471F8CB4B9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115178   (827602) от 17.03.2017
-
-The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Revenants [Episodes 1-3]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E6DB53A9B6203C0E511C905ACC5E28A52CB013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115879   (825817) от 18.03.2017
-
-Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте самым знаменитым детективом всех времён - Шерлоком Холмсом! Используйте свои впечатляющие детективные способности для раскрытия пяти захватывающих и чрезвычайно разнообразных дел: убийства, исчезновения людей, впечатляющие кражи, а также расследования, которые способны привести в область невероятного.Тип издания: RepackРазработчик: FrogwaresЖанр: Adventure, Detective, Thriller, Action, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9738778257ED627CB6CFBB9DDEB675D119F754E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

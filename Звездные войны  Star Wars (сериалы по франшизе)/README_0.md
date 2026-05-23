@@ -1,3 +1,81 @@
+###  Публикация: 1616462   (254821) от 24.04.2023
+
+Мандалорец / The Mandalorian (2023) WEB-DL [H.265/2160p] [4K, SDR] (сезон 3, серии 1-8 из 8) RHS, Flarrow Films, LE-Production, Condor Films, AlexFilm, HDrezka, LostFilm, TVShows
+
+>>Зарубежные сериалы
+>>Звездные войны / Star Wars (сериалы по франшизе)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm, Walt Disney StudiosЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Рик Фамуйива, Дэйв Филони, Брайс Даллас ХовардАктеры: Педро Паскаль, Джина Карано, Джанкарло Эспозито, Карл Уэзерс, Темуэра Моррисон, Мин-На Вэнь, Ник Нолти, Кэти Сакхофф, Омид Абтахи, Розарио ДоусонПеревод: Дублированный (Red Head Sound, Flarrow Films, LE-Production, Condor Films), Профессиональный многоголосый (AlexFilm, HDrezka Studio, Lostfilm, TVShows)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A599BBB2457DB17FFF82806D04AF885A8235FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435774   (236498) от 09.05.2022
+
+Мандалорец / The Mandalorian (2020) WEBRip [H.264/720p] (сезон 2, серии 1-8 из 8) VHSник
+
+>>Зарубежные сериалы
+>>Звездные войны / Star Wars (сериалы по франшизе)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: Фантастика, Боевик, ПриключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Кайл Пацек, Брендан Уэйн, Бернард Баллен, Александра Гилман, Луис Ричард Гомес, Джамал Антар, Тейт Флетчер, Тони Табоада, Омид АбтахиПеревод: Одноголосый закадровый (VHSник)Язык озвучки: русскийСубтитры: Английские (hardsub на инопланетную речь)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CBFF561AAE5F5F9E723811B3C41AA6F0BFE2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388477   (236452) от 09.05.2022
+
+Мандалорец / The Mandalorian (2019) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8) VHSник
+
+>>Зарубежные сериалы
+>>Звездные войны / Star Wars (сериалы по франшизе)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: Фантастика, Боевик, ПриключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Карл Уэзерс, Рио Хэкфорд, Джина Карано, Вернер Херцог, Ник Нолти, Тайка Вайтити, Эмили Суоллоу, Мисти Росас, Крис БартлеттПеревод: Одноголосый закадровый (VHSник)Язык озвучки: русскийСубтитры: Английские (hardsub на инопланетную речь)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DC47709F96F1939D13BF607A1C712BE08EF137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553927   (212871) от 03.07.2022
 
 Оби-Ван Кеноби / Obi-Wan Kenobi (2022) WEBRip (сезон 1, серии 1-6 из 6) ColdFilm [PR]
@@ -6,7 +84,7 @@
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF59E3BE29EA30F516930B38A38D4DEFDA9EB9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654997   (161618) от 04.11.2023
-
-Асока / Ahsoka (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) LineFilm
-
->>Зарубежные сериалы
->>Звездные войны / Star Wars (сериалы по франшизе)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спин-офф фантастического сериала «Мандалорец». Главная героиня сериала - Асока Тано, которая во времена Войн клонов была падаваном рыцаря-джедая Энакина Скайуокера. Незадолго до падения Республики Асока по ложному обвинению была исключена из Ордена джедаев. После проведённого расследования её доброе имя было восстановлено, однако Асока затаила обиду на джедаев и (   Читать дальше...   )Производство: США / Golem Creations, LucasfilmЖанр: фантастика, фэнтези, боевик, драма, приключенияРежиссер: Дэйв Филони, Стеф Грин, Рик ФамуйиваАктеры: Розарио Доусон, Наташа Лю Бордиццо, Уэс Чэтэм, Ларс Миккельсен, Хейден Кристенсен, Мэри Элизабет Уинстэд, Дэвид Теннант, Рэй Стивенсон, Иванна Сахно, Темуэра МоррисонПеревод: Многоголосый профессиональный (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AD9FEAA9B6AF14680AC98DE868999ED3393BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427418   (161536) от 19.12.2020
-
-Мандалорец / The Mandalorian (2020) WEB-DLRip (сезон 2, серии 1-8 из 8) AlexFilm
-
->>Зарубежные сериалы
->>Звездные войны / Star Wars (сериалы по франшизе)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов обществаЖанр: Фантастика, боевик, приключенияРежиссер: Рик Фамуйива, Дэйв Филони, Брайс Даллас Ховард,Актеры: Педро Паскаль, Карл Уэзерс, Джина Карано, Джанкарло Эспозито, Мерседес Кестнер-Варнадо, Рио Хэкфорд, Кайл Пацек, Вернер Херцог, Ник Нолти, Тайка Вайтити и др.Перевод: Многоголосый профессиональный (AlexFilm)Субтитры: Русские (forced), английские - отдельноПродолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C605578BBD07A4965795ED7BE7212190EB51B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420277   (157613) от 20.12.2020
-
-Мандалорец / The Mandalorian (2020) WEB-DLRip (сезон 2, серии 1-8 из 8) HDRezka Studio
-
->>Зарубежные сериалы
->>Звездные войны / Star Wars (сериалы по франшизе)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Fairview Entertainment, Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Карл Уэзерс, Джина Карано, Джанкарло Эспозито, Мерседес Кестнер-Варнадо, Рио Хэкфорд, Кайл Пацек, Вернер Херцог, Ник Нолти, Тайка Вайтити и др.Перевод: Многоголосый, профессиональный  (HDRezka Studio)Субтитры: русские, английские (отдельно)Продолжительность: ~00:35:00-00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0BB3394E42EDA3C1D6D081922E9134A051B9D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

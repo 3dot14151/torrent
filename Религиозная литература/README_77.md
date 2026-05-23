@@ -1,3 +1,107 @@
+###  Публикация: 1172692   (393225) от 08.10.2017
+
+Петр Алексеевич Преображенский (сост.) | Памятники древней христианской письменности в русском переводе [7 Томов] (1860-1866) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В релизе представлены памятники древней христианской письменности в русском переводе, изданные протоиереем Петром Алексеевичем Преображенским.Жанр: ПатрологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFB1EB5426499DE9AD9421A326D888E1403D146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765858   (392045) от 09.10.2017
+
+Б.А.Успенский | Крестное знамение и сакральное пространство [Почему православные крестятся справа налево, а католики - слева направо?] (2004) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена истории крестного знамения и призвана ответить на вопрос, сформулированный в заглавии: почему одни христиане (православные и несториане) крестятся справа налево, а другие (католики и монофизиты) — слева направо. Показывается древность обеих традиций и анализируются стоящие за ними религиозные представления. Особый экскурс посвящен истории перстосложения (   Читать дальше...   )Жанр: Религиоведение. История религийФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AFF13ADE8627BD821B798C1FF22374ED8C25EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173202   (391378) от 10.10.2017
+
+Папа Римский Павел VI | Человеческая жизнь [Humanae Vitae] (1993) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+25 июля исполнилось 49 лет со дня публикации энциклики Папы Павла VI “Humanae Vitae”. Этот фундаментальный документ Учительства Церкви о ценности человеческой жизни и в особенности о ее зарождении и неприемлемости противозачаточных средств, был плодом долгой работы и дискуссий. Выраженное в нем учение было неоднократно возобновлено последующими Римскими Папами, а (   Читать дальше...   )Жанр: ЭнцикликаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50B7EEFEE27142DCEC2DEF59D21C303E6668920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173209   (391377) от 10.10.2017
+
+Высшая Духовная Семинария "Мария Царица Апостолов" (изд.) | Молитвенник [С приложением латинских текстов] (1999) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В релизе представлен маленький молитвенник, выпускаемый для внутреннего пользования, семинаристами католической Высшей Духовной Семинарии "Мария Царица Апостолов" в Санкт-Петербурге.Жанр: МолитвенникФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1BC1B81C6910C2CA801F29326F9C8DEE65F2A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173245   (390624) от 11.10.2017
 
 Братство в честь Святителя Николая, Архиепископа Мирликийского, Чудотворца (изд.) | Акафист святой великомученице Варваре (2012) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:006A61EEF7B7D4F122403EBA03D9A52E00106D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414548   (381320) от 10.10.2020
-
-Свято-Успенская Почаевская Лавра (изд.) | Чин пения двенадцати псалмов с краткими наставлениями и поучениями (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псалтирь - это книга книг; это основа нашего Богослужения, ведь всё с Псалтири началось. Это сокровищница духовных смыслов и в зависимости от духовного возраста открываются в псалмах всё новые и глубокие смыслы. Преподобный Амфилохий Почаевский говорил: «Псалтирь - это духовно-благодатное море». А преподобный Паисий Афонский говорил: «Чтение псалмов умиротворяет (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4C88EB131FD742E1B3EA30A33EDFF6A0520ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175307   (381070) от 17.10.2017
-
-Андре Леонар | О сексуальной этике (1992) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта брошюра обращена ко всем верующим и неверующим людям, размышляющим над вопросами морали в интимной жизни. Преимущественно я адресую эту работу молодым. Ведь именно студенты, парни и девушки, которых я встречаю в университете, побудили меня всерьёз задуматься над этими проблемами и изложить мои убеждения в письменной форме. И именно поэтому я позволю себе беседовать (   Читать дальше...   )Жанр: Моральное богословиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629E6CA20BFC2A8EDBEED0ABF4688A26B8BCEB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175116   (381068) от 17.10.2017
-
-Издательский Совет Русской Православной Церкви. Даръ (изд.) | Правила поведения в храме [Азы Православия] (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Правила поведения в храме» предназначена для тех, кто только-только пришёл в Церковь, или лишь собирается придти. В ней акцентировано внимание на правильном отношении к Таинствам и обрядам, на правилах внешнего поведения верующих, приводятся основные православные молитвы, дан объёмный перечень чудотворных икон Божией Матери и перечень святых, к которым следует (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F148347CA9E80309D3AA1083328EC78BFC557D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253736   (379616) от 11.10.2018
-
-Нерсес Шнорали | С верою исповедую [Репринт 1871] (2012) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых любимых молитв армянской Церкви – это «С верою исповедую» (Հաւատով խոստովանիմ (Аватов хостованим)). Молитву написал Нерсес Шнорали (Ներսես Շնորհալի, 1100 — 1173) – армянский (   Читать дальше...   )Жанр: МолитваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3C3C90F7F82485327D0A1CABE40CE74EBF86E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

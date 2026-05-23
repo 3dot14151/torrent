@@ -1,3 +1,107 @@
+###  Публикация: 1759733   (37674) от 10.11.2024
+
+Яды, или Всемирная история отравлений (2001) WEBRip [VP9/2160p] [Реставрация МФ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Москва, 2000 год. Слесарь Арнольд уводит по-соседски жену у актера Олега Волкова. Олег решает напиться в ближайшем баре, где встречает обычного пенсионера Прохорова. Старик предлагает пострадавшему простой способ мести — отравить обидчиков. И сразу все закрутилось. Время пошло вспять к великим отравлениям всех эпох и народов, от Нерона до Екатерины Медичи, в средневековом (   Читать дальше...   )Производство: Россия / МосфильмЖанр: КомедияРежиссер: Карен ШахназаровАктеры: Олег Басилашвили, Игнат Акрачков, Александр Баширов, Жанна Дуданова, Людмила Касаткина, Екатерина Климова, Андрей Панин, Ольга Тумайкина, Дмитрий Дюжев, Марина КазанковаСубтитры: ОтсутствуютПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C91FA6BDA60A1966504E8915E39DAE451622CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637258   (37613) от 11.11.2024
+
+Условный мент. Псков. Начало (2022) SATRip [H.264] (сезон 1, серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Москва, 2016 год. Оперативника капитана Дмитрия Рыжова командируют в Псков по делу об убийстве сына влиятельного бизнесмена. Следы ведут в этот старинный город. В Пскове Рыжов сталкивается с двумя борющимися за местный мясокомбинат группировками. Выясняется, что бизнес-интерес есть и у полиции. В ходе расследования Рыжова обвиняют в превышении служебных полномочий.Производство: Россия | Триикс МедиаЖанр: детективРежиссер: Анатолий СемёновАктеры: Денис Рожков, Иван Лабутин, Егор Капустин, Александр Разбаш и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B494912EF880B53734D6E9057F8487DA026C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759209   (37548) от 12.11.2024
+
+Пассажиры (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Террористы захватывают автобус с больными людьми и отвозят в подготовленный бункер. Постепенно ситуация начинает выходить из-под контроля преступников. Выясняется, что террористы — только исполнители, а не инициаторы, и они до последнего не знают, чьи именно указания выполняют.Производство: Россия / Каспий Фильм, Наше творческое объединениеЖанр: боевик, триллерРежиссер: Камиль АлиевАктеры: Мария Турчина, Карим Темирханов, Джалил Асретов, Евгений Банифатов, Арслан МурзабековПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143713DF31BC85D597DCCD8AB5A97157C9CF70A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760195   (37418) от 13.11.2024
+
+Не свадебное путешествие (2015) HDTV [H.264/1080i]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Алёне 21 год, она дочь крупного фармацевтического бизнесмена, который безумно любит дочку и окружил гиперопекой, он хочет чтобы дочь продолжала его дело в фармацевтической компании. Но Алёна мечтает о школе хореографии в Берлине. Алёна – девушка с характером, никак не хочет уступать отцу, и тот идёт на необычный шаг, чтобы хоть как-то справиться с упрямой дочкой, (   Читать дальше...   )Производство: Россия / КиномирЖанр: мелодрама, комедияРежиссер: Дмитрий ИзместьевАктеры: Иван Шахназаров, Марина Васильева, Александр Самойленко, Татьяна Яковенко, Валерий Новиков, Павел Юринов, Александра Булычёва, Валентина Попова и др.Субтитры: отсутствуютПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C695908480273EB2BBE27097935DC02FF48E9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521230   (37343) от 14.11.2024
 
 Старые шишки (2021) WEBRip [H.264]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E48E606328DB91E6004206FA8E252445B7FB24E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766850   (33530) от 21.12.2024
-
-Реплика (2024) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антон и Давид — два брата, которые находятся на пороге грандиозного научного открытия. Их стартап разрабатывает уникальную технологию «Реплика», способную скопировать сознание человека в нейросеть, обеспечивая людям цифровое бессмертие. Увлеченность Антона разработкой заходит слишком далеко: он тайно копирует сознание Веры, жены Давида, убеждая копию, что именно (   Читать дальше...   )Производство: Россия / Ark Pictures, Видеосервис WinkЖанр: драма, фантастикаРежиссер: Амир ИсаевАктеры: Никита Ефремов, Софья Лебедева, Владислав Ценёв, Юрий Цурило, Александр Стефанцов, Макс Громов, Анастасия КорничЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173BFBC4275CF2B9DDCB3D72E26618B1FB9061B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767139   (33406) от 22.12.2024
-
-Кибердеревня. Кибертакси (2024) WEBRip [H.265/2160p] [4K, HDR10, 10-bit] (спецэпизод сиквел)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой художник Рустам влюблён в прекрасную Мадину. Чтобы добиться её внимания, он решает подарить девушке то, о чем она мечтает, — чудесные очки «Очи-3000». Рустам отправляется таксовать в Гигаполис на старой летающей «Волге» — ему предстоит совершить 300 поездок, чтобы собрать нужную сумму и исполнить желание Мадины.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Карим Омаров, Мия Магомедова, Джалил Асретов, Сергей Чихачёв, Игорь БогомягковСубтитры: русские (full, SDH)Продолжительность: 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46AE129B864F520FB1EE0A35AF25E7D2110A747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767138   (33404) от 22.12.2024
-
-Кибердеревня. Кибертакси (2024) WEBRip [H.265/2160p] [4K, SDR, 8-bit] (спецэпизод сиквел)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой художник Рустам влюблён в прекрасную Мадину. Чтобы добиться её внимания, он решает подарить девушке то, о чем она мечтает, — чудесные очки «Очи-3000». Рустам отправляется таксовать в Гигаполис на старой летающей «Волге» — ему предстоит совершить 300 поездок, чтобы собрать нужную сумму и исполнить желание Мадины.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Карим Омаров, Мия Магомедова, Джалил Асретов, Сергей Чихачёв, Игорь БогомягковСубтитры: русские (full, SDH)Продолжительность: 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9645D2FFC816B3B508A3B341D92A372F003DABF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767490   (33396) от 22.12.2024
-
-Кибертакси (2024) WEBRip [H.265/1080p] [HDR10, 10-bit] (спецэпизод сиквел)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой художник Рустам влюблён в прекрасную Мадину. Чтобы добиться её внимания, он решает подарить девушке то, о чем она мечтает, — чудесные очки «Очи-3000». Рустам отправляется таксовать в Гигаполис на старой летающей «Волге» — ему предстоит совершить 300 поездок, чтобы собрать нужную сумму и исполнить желание Мадины.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Байбулат БатуллинАктеры: Карим Омаров, Мия Магомедова, Джалил Асретов, Сергей Чихачёв, Игорь Богомягков, Иван Левин, Геннадий МакоевЯзык озвучки: РусскийСубтитры: Русские (Full, SDH)Продолжительность: 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46F3D01EAAAC2D20C460290A7C5287720F48BD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

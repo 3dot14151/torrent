@@ -1,3 +1,81 @@
+###  Публикация: 1622411   (200613) от 28.03.2023
+
+SuccuSeka: Resist Succubus Temptation (2023) [Multi] (1.0a/dlc) License GOG [18+]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+SuccuSeka: Resist Succubus Temptation - игра от компании Wakaba Syokei, разработанная для платформы PC. Проект совмещает в себе такие жанры и элементы, как визуальная новелла. Дополнительно игроки выделяют такие особенности игры, как казуальная игра, визуальная новелла, выбери себе приключение и несколько концовок. Игра рассчитана на одиночное прохождение, многопользовательские (   Читать дальше...   )Тип издания: LicenseРазработчик: Wakaba SyokeiЖанр: Ролевая игра, Визуальные новеллы, ДрaмаЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC260492F8A99FF0E72EF7AD7C8A6EE05E5DD95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623313   (200541) от 01.04.2023
+
+DeathKeep (1995) [En] (3.3) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Злой некромант сбежал из своей ледяной тюрьмы и сеет хаос в окрестных землях. Отправляйтесь в мрачную, замерзшую пустошь и положите конец ужасу. У вас есть 3 персонажа на выбор: мужчина-гном-боец, мужчина-маг-полуэльф-боец или женщина-маг-эльф, каждый из которых придает игре уникальную изюминку. Наблюдайте, как настроение игры усиливается по мере того, как кинематографические (   Читать дальше...   )Тип издания: LicenseРазработчик: Lion EntertainmentЖанр: Ролевая игра, ПриключениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16751F277FB86D6EA77B1B147966DD25B23AB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630506   (198990) от 01.05.2023
+
+ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Последнее испытание: ваша судьба решается здесь! На Южные острова вновь упала тень. Кипящий ненавистью загадочный демон сеет повсюду ужас и собирает войска, готовясь напасть на приморский город Сетарриф. Ситуацию ухудшает извержение вулкана в горах недалеко от города. Безымянный герой объединяет силы со своими верными союзниками и храбро выступает навстречу новому (   Читать дальше...   )Тип издания: LicenseРазработчик: Spellbound StudiosЖанр: Экшны, Ролевая играЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC988B8557F22ED3DF065F009BA70E0283D30E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631923   (198757) от 08.05.2023
 
 Cursed Mansion (2023) [En] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ Cursed Mansion (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Saga of Sins (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Edelweiss (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Gone Rogue (2023) [Ru/Multi] (1.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Fuga: Melodies of Steel 2 (2023) [Multi] (1.02/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Legend of Radiance (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Bastard Bonds (2016) [En] (1.2.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Mask of the Rose (2023) [En] (1.2.664) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Tales of Vogar - Lost Descendants (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Spriters, Hopes Blooming Dawn (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +448,7 @@ A Long Journey to an Uncertain End (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +474,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (2.01) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Ravenbound (2023) [Ru/Multi] (1.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Atelier Marie Remake: The Alchemist of Salburg (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Rule of Land: Pioneers (2023) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +630,7 @@ REMEDIUM: Sentinels (2023) [Ru/Multi] (11729250) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:519E01CB8B61CE3ABF2F528825E2A7F6F270539C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650169   (194894) от 31.07.2023
-
-The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Multi] (4.03/dlc) Repack dixen18 [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте в самую совершенную и полную версию самой прославленной игры 2015 года, «Ведьмак 3: Дикая Охота» - издание «Игра года». Теперь - со всеми дополнениями и новыми материалами. Станьте профессиональным убийцей чудовищ и отправляйтесь в по-настоящему эпическое путешествие! Сразу после выхода в свет игра «Ведьмак 3: Дикая Охота» стала классикой жанра, она удостоилась (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B452C9DBBA80E321CDC0B5FBCE5E15308A930BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651332   (194707) от 06.08.2023
-
-Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари затерянного королевства (2023) [Ru/Multi] (1.0) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Оушенхорн 2: Рыцари затерянного королевства происходит за тысячу лет до событий первой части игры. Вам предстоит отправиться в волшебное путешествие по различным уголкам Гайи, наполненное древними поверьями и сказаниями. Возвращение колдуна Мезмерота с огромной армией Тьмы ставит перед юным рыцарем практически непосильную задачу. Сможет ли наш герой объединить (   Читать дальше...   )Тип издания: SceneРазработчик: Cornfox & Brothers Ltd.Жанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8540F5D5778D28C1A9E4576BF2EF50350822A742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651574   (194662) от 07.08.2023
-
-Adore (2023) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы сыграете за героя по имени Лукха из клана Адорерс, члены которого способны призывать и контролировать существ, чтобы те сражались на их стороне. После нападения на деревню героя, он остался единственным, кому удалось выжить, и теперь Лукха должен во что бы то ни стало предупредить все другие поселения Адорэйтер о надвигающейся угрозе. На своем пути герой раскроет (   Читать дальше...   )Тип издания: SceneРазработчик: Cadabra GamesЖанр: Action, Indie, RPGЯзык субтитров: Английский, Португальский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Португальский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3457A604F4EB51AD8FA0DEAB534E976815B27008
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1432996   (161953) от 19.12.2020
+
+Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гостиницы Юраги [2018, TV, 12 + 3 из 4 OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фуюдзора Когараси — бедствующий экстрасенс, в которого заселился злой дух. В поисках дешёвого жилья он приходит в Юраги, гостиницу на горячих источниках с загадочным прошлым, и знакомится с её обитателями — толпой своенравных девушек. Первая из них — призрак гостиницы Юна, которая не может уйти в мир иной. Несмотря на протесты девушек, Когараси всё же остаётся жить (   Читать дальше...   )Производство: Студия Xebec / ジーベックЖанр: комедия, романтика, фэнтези, эттиРежиссер: Нагасава ЦуёсиПеревод: AniLibria; Gerale (OVA)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 4 OVA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DB81D9A33A64575CDFE64FAAB4FEC60D1F63F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433458   (161176) от 20.12.2020
+
+Tsurezure Children | Tsuredure Children | Малолетние бездельники [2017, TV, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Аниме «о тех, кто не может сказать „я люблю тебя“».
+По сути, набор комедийных историй о любви между школьниками.Производство: Студия Studio Gokumi / Studio五組Жанр: романтика, комедияРежиссер: Канэко ХиракуПеревод: AniPlayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C31D92FA656B6503941283708C3230F5B61B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433363   (161096) от 20.12.2020
 
 Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Washio Sumi Chapter | Герой Юки Юна: Глава Суми Васио [ТВ] [2017, TV, 6] BDRip 1080p 10bit raw
@@ -6,7 +59,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +87,7 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +113,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +139,7 @@ Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +165,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Izetta, Die Letzte Hexe / Изе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +191,7 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +217,7 @@ Mahou Sensou | Magical Warfare | Война магов [2014, TV, 12] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +243,7 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +269,7 @@ Magic Kaito 1412 / Волшебник Кайто 1412 [2014, TV, 24 из 24] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +295,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai | Изобрази отвраще�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +321,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +347,7 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +376,7 @@ Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +402,7 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +428,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +454,7 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +480,7 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +506,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +532,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +561,7 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +587,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +613,7 @@ Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового гла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +639,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +665,7 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -625,58 +678,6 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA5093DE74F5EAF617E3DDDA05B21D7714551A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349288   (138165) от 31.12.2019
-
-Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в августе [2019, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цубаса Арихара поступает в государственную школу Ригахама, но вдруг узнаёт, что там нет бейсбольного клуба. Она с нетерпением ждала занятий бейсболом в старшей школе, так что девушка решает создать собственный бейсбольный кружок. Вот только заинтересовал он либо тех, кто к бейсболу не имеет никакого отношения, либо тех, кто давно бросил занятия. Всех героинь ждут (   Читать дальше...   )Жанр: повседневность, спортРежиссер: Кудо СусумуПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7A7DE0C928B94D0764F28DF074D9489217E1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349291   (138117) от 31.12.2019
-
-Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные светлячки: Вечные летние каникулы [2012, Movie] WebRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год назад в автокатастрофе у Юты погибает отец. Сейчас, во время летних каникул, он пытается вернуть утраченные простые детские радости лета: ловлю жучков, запуск фейерверков. Неожиданно начинается гроза, Юта поскальзывается и ударяется головой. Придя в себя он обнаруживает, что местность вокруг слегка изменилась. Оказывается парень перенесся на 30 лет в прошлое. (   Читать дальше...   )Производство: студия Toei Animation / 東映アニメーションЖанр: романтика, повседневностьРежиссер: Уда КоносукэПеревод: zafhosЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B70B3CCD40DE71FDDCE9D913E043CC9EE00F2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

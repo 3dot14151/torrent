@@ -1,110 +1,3 @@
-###  Публикация: 1589907   (189781) от 11.11.2022
-
-Ульф Старк | Маленькая повесть о любви (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настроение у Фреда совсем не рождественское. Девочка Эльза, от которой его бросает в жар, сердится на него – и за дело. Мама все время усталая и сердитая, еду выдают по талонам, а самое грустное – папа где-то далеко и вряд ли приедет домой на праздник. А все из-за одного дурака с черными усиками, которому вздумалось повоевать.
-Но Рождество на то и Рождество, чтобы (   Читать дальше...   )Жанр: Детская прозаПеревод: Мария ЛаптеваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F498142A28CB5D7771D61B2AFA2DE78D56D29D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589900   (189776) от 11.11.2022
-
-Игорь Жуков | Похитители старичков и старушек. Марка сказочника, или Опус, Кропус, Флопус! (2022) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки-детективы лауреата Всероссийских премий по детской литературе имени Корнея Чуковского, имени Петра Ершова, «Новая книга» и «Книгуру» Игоря Жукова «Похитители старичков и старушек» и «Марка сказочника, или Опус, Кропус, Флопус!» интригуют, завораживают и веселят с первых страниц. Герои сказок-детективов – начитанный Пёсик Фафик и сказочник Семён Семёнович К. (   Читать дальше...   )Жанр: Детские детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377630F1F9FD6A05284CBCC70E5C0D2D6B3DC577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589904   (189765) от 11.11.2022
-
-Шарлота Ланнебу | Меня зовут Астрид! (2022) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги известной шведской писательницы Шарлотты Ланнебу хорошо знают во многих странах. Её герои – обычные мальчишки и девчонки, про которых писательнице известно всё. И поэтому придуманные ею истории всегда очень правдоподобны и увлекательны.
-
-В этой книге вы познакомитесь с восьмилетней Астрид – типичной вредной девчонкой. Но вредная она только на первый взгляд, (   Читать дальше...   )Жанр: Детские приключенияПеревод: Ольга МяэотсФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161BFF47B1D4A5D8D58C96F2A265C1E0F0BA3550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589897   (189764) от 11.11.2022
-
-Ян Улоф Экхольм | Фрёкен Сталь – гроза разбойников (2022) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городок Гдеугодно – обычный шведский провинциальный городок. В этом городке живёт фрёкен Эмма Сталь. Наверняка ничего особенного, обыкновенная фрёкен, каких в Швеции немало, подумаете вы. А вот и нет! Фрёкен Сталь – самая удивительная фрёкен на свете! Она обладает превосходным чувством юмора, незаурядным аналитическим умом и любит разгадывать детективные загадки. (   Читать дальше...   )Жанр: Детские детективы, детские приключенияПеревод: Ольга МяэотсФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B05C5B8382DDB1D4481B61E8A513A685F24A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589892   (189763) от 11.11.2022
 
 Юз Алешковский | Кыш и Двапортфеля (2022) [EPUB]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -139,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -165,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -191,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -217,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -244,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -270,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -298,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -351,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -379,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -407,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -433,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -459,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -487,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -513,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -539,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -565,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -593,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -619,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -646,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -673,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -685,6 +578,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7127A10D13EFCE317998C79AE1C2D7344C2EA7EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591922   (185264) от 20.11.2022
+
+Артур Конан Дойл | Детская мировая классика [2 книги] (2022) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Классика мировой литературы, шедевры от Артура Конан Дойла и Джейн Остин, адаптированные специально для детей младшего школьного возраста (7-10 лет), с прекрасными черно-белыми иллюстрациями. Увлекательные тайны, загадки, приключения и всеми любимые с детства персонажи – всё это в новой переводной детской серии.Жанр: Детские детективы, детские приключенияПеревод: Анна АртемоваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C9DC26913143043588C0E9FE5593B6839FEC6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591928   (185256) от 20.11.2022
+
+В.И. Даль, К. Булычев и др. | Лучшие сказочники [5 книг] (2021-2022) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+«Лучшие сказочники» - уникальная серия «Малыша», где собраны произведения самых знаменитых авторов. Дети, когда читают книги, не всегда знают, как выглядел автор, чем он знаменит, какие он написал произведения. В этой серии на обложках вы можете увидеть портреты авторов, а в начале книги дано предисловие с краткой биографией писателей. Эта серия поможет читателям (   Читать дальше...   )Жанр: Детская фантастика, детские приключенияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEDFA434BB3E888B5384B88B63501B120835540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427290   (184345) от 27.11.2020
+
+Мартин Видмарк, Кристина Альвнер | Академия Летучей мыши. Встреча с оборотнями. Книга 3 (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Нелли Рапп в полной боевой готовности, ведь приближается полнолуние. А это значит, что обычные с виду люди могут в одно мгновение превратиться в опаснейших существ – оборотней. В Академии Нелли тщательно изучила этот вид монстров и не боится встретиться с ними. Но как ей в одиночку справиться сразу с двумя оборотнями? У Нелли возникает невероятная идея: в ход идут (   Читать дальше...   )Жанр: Детская литература/Детектив/ФантастикаПеревод: Ольга ВронскаяФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06EA8995EDC816DDF6C56DFACBB1A9FB24E0693C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427518   (183574) от 28.11.2020
+
+Сергей Еремеев | Смешные вы ребята! (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Когда семья переезжает в новую квартиру – это значит, что теперь всё будет по-другому! Вундеркинд Тёма идёт в первый класс и ради шутки делает вид, что не умеет ни читать, ни писать и абсолютно ничего не смыслит в математике. Его старший брат поддерживает эту затею, и начинается чехарда событий, недопониманий и очень смешных ситуаций. Только бабушка, приехавшая из (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CBBBED33DB958C5DF6CC4369DD85D631084DEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

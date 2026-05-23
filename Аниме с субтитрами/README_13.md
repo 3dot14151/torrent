@@ -1,3 +1,108 @@
+###  Публикация: 1462965   (1020779) от 16.04.2021
+
+Gekijouban Fate/Stay Night: Heaven's Feel - Spring Song | Судьба: Ночь схватки. Прикосновение небес (фильм третий) [2020, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Война Священного Грааля: жестокая битва между магами, в которой семь мастеров и их призванные слуги сражаются за Святой Грааль, магический артефакт, который может даровать победителю любое желание. Почти 10 лет назад Последняя битва четвертой войны Святого Грааля нанесла ущерб городу Фуюки и унесла более 500 жизней, оставив город опустошенным.
+Широ Эмия, переживший (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Судо ТомонориПеревод: WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 125 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E073DFFB6B3F76AAAA510E3FB385B4DAFCA58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463008   (1020772) от 16.04.2021
+
+Rokudenashi Blues | Racaille Blues | Рокудэнси блюз [1992, Movie] DVDRip 404p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Маэда - новый ученик средней школы Тейкен. Он заикается, когда нервничает, и довольно неуклюж. Его сразу же заметили, потому что он ударил учителя во время вступительной церемонии. Некоторые клубы стремятся завербовать его, поскольку видят в нем силу, которую они могут использовать, чтобы отыграться с другими клубами. Но Маэда - одиночка, и у него есть только одна (   Читать дальше...   )Производство: Студия Toei Animation / 東映アニメーションЖанр: комедия, драмаРежиссер: Ёсидзава ТакаоПеревод: Sengoku TeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93678A31658948B596B513D932B213B7057ADE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463505   (1020480) от 18.04.2021
+
+Himouto! Umaru-chan R | Beautiful Little Sister! Umaru-chan R | Двуличная сестрёнка Умару [ТВ-2] [2017, TV, 12 эп. + 2 OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У всех старших детей в любой семье как минимум одна общая головная боль - младшие братья и сестры, за которыми нужен глаз да глаз. Со стороны может показаться, что юноше по имени Тайхэй Дома подобных переживаний не понять: в конце концов, его младшая сестренка, старшеклассница Умару, отличается и умом, и сообразительностью, и красотой, и изящностью, и морем других (   Читать дальше...   )Производство: Студия Doga Kobo / 動画工房Жанр: комедия, повседневностьРежиссер: Ота МасахикоПеревод: YakuSub; Krasialex (OVA1); SovetRomantica (OVA2)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 2 OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA87B694703C55ACA8AA47B898B81D1F8DCF9C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463475   (1020457) от 18.04.2021
+
+Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | Моя девушка девственна, но извращенка до мозга костей [2017, TV, 10 + OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Харука Щинозаки — обычный старшеклассник, который идеализировал красивую и прилежную старосту своего класса Акихо Косаку. Однажды, решив, что терять ему всё равно нечего, он признаётся ей в своих чувствах, и, к его удивлению, Акихо соглашается с ним встречаться. При этом девушка подходит к отношениям со всей серьёзностью, правда, суть иногда не улавливает, так что (   Читать дальше...   )Производство: Студия Studio Barcelona / ディオメディアЖанр: комедия, эттиРежиссер: Нагаяма НобуёсиПеревод: RyujiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 10 эп. + OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81AC6C4C960CDD31F1DD3F9F74F3C9DA679D997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463436   (1020443) от 18.04.2021
 
 Kyoushirou to Towa no Sora | Shattered Angels | Кёсиро под вечным небом [2007, TV, 12 + 6 SP] DVDRip 480p raw+eng
@@ -6,7 +111,7 @@ Kyoushirou to Towa no Sora | Shattered Angels | Кёсиро под вечным
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Shadowverse | Шадоуверс | Поэзия теней [2020, TV, 48 эп. +
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Sanzoku no Musume Ronja | Ronja, the Robber's Daughter | Рони, дочь ра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Baby Steps 2 / Первые шаги [ТВ-2] [2015, TV, 25 из 25] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Baby Steps / Первые шаги [2014, TV, 25 из 25] HDTV 720p Raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Absolute Duo | Абсолютный дуэт [2015, TV, 12 из 12] BDRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +371,7 @@ Taisou Zamurai | The Gymnastics Samurai | Самурай гимнастики [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +397,7 @@ Dia no Ace OVA / Ace of Diamond OVA / Путь аса OVA [2014, OVA, 5 эп.] B
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +423,7 @@ Planetarian: Snow Globe | Планетарианка: Снежный шар [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +449,7 @@ Assault Lily: Bouquet | Букет штурмовых лилий [2020, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +475,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? III / Danmachi III / М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +502,7 @@ Schoolgirl Strikers: Animation Channel / Штурмовые школьницы [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +528,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | DanMachi III | М�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +554,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +580,7 @@ Radiant | Радиан [ТВ-1] [2018, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +606,7 @@ Gekijouban Oushitsu Kyoushi Heine | The Royal Tutor Movie | Королевски
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +634,7 @@ Ultraman | Ультрамен [2019, Web, 13 из 13] WEBRip 1080p HEVC 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +660,7 @@ Code:Realize Sousei no Himegimi | Code:Realize - Guardian of Rebirth | Код: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,110 +671,6 @@ Code:Realize Sousei no Himegimi | Code:Realize - Guardian of Rebirth | Код: �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D832AEE01DA735EB9CF5FABD921AB5767DC9417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467371   (1017908) от 03.05.2021
-
-Fushigi no Kuni no Miyuki-chan | Miyuki-chan in Wonderland | Миюки в стране чудес [1995, OVA, 2 эп] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миюки – классическая сёдзе-школьница в классическом сейлор-фуку и в классической же CLAMP’овской манере (тонкие ноги, острый подбородок, брови, светящиеся сквозь челку). Она торопится в школу, но по дороге девушка на скейтборде в костюме playboy’евского кролика увлекает ее в Страну Чудес. И населена эта страна чудесными девушками в чудесных нарядах (кто – в купальниках, (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: комедия, фэнтези, эттиРежиссер: Саяма КиёкоПеревод: Егор ЗайцевЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 2 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6A26AA40885C423CC23E32E2E5BD2BFB6A914D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467378   (1017901) от 03.05.2021
-
-Seishoujo Kantai Virgin Fleet | Virgin Fleet | Девственный флот [1998, OVA, 3] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017901.jpg" />
-</div>
-
-
-###  Подробнее
-
-В довоенную эпоху специальная школа для девочек Военно-морской академии Накано носила кодовое название «Девственный флот». Этим девушкам дарована особая форма силы, известная как «Девственная энергия». Опасаясь неизбежности новой русско-японской войны, пилот-новичок Шиокадзе Умино должна отточить свои силы, чтобы спасти Японию от полного уничтожения.Производство: AICЖанр: приключения, комедияРежиссер: Хосода МасахироПеревод: Aryan NordЯзык озвучки: Японский и английскийСубтитры: РусскиеПродолжительность: 3 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD413C5ABDB99C4BD053FACCBDFB9CABF343AA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467271   (1017895) от 03.05.2021
-
-Great Pretender | Великий притворщик [2020, Web, 23 из 23] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не будет преувеличением сказать, что Масато Эдамура, вероятно, величайший в Японии мошенник. На пару с подельником Кудо он решает провернуть аферу в Асакусе и обмануть некоего Француза, однако в итоге оказывается обманут сам. Ведь Француз, которого они так неудачно пытались обдурить, оказался не кем-нибудь, а самим Лораном Тьерри — человеком такого высокого уровня, (   Читать дальше...   )Производство: Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Кабураги ХироПеревод: YakuSub Studio (Nika_Elrik, Harushechka)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 23 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA9233470D4AFA9ED642BBB3F05C4CA9AE142BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467087   (1017860) от 03.05.2021
-
-Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021, Web, 12 из 12] WEBRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017860.jpg" />
-</div>
-
-
-###  Подробнее
-
-На глазах шестнадцатилетней Юри Хондзё только что незнакомому мужчине раскроили топором голову. В ужасе девушка понимает, что теперь её очередь и странный убийца в маске направляется к ней. Юри, которая ещё секунду назад находилась в родной школе, даже предположить не может, где она очутилась и каким образом. Ясно одно — нужно спасаться. Выбежав в ближайшую дверь, (   Читать дальше...   )Производство: Zero-GЖанр: Триллер, фантастикаРежиссер: Таката МасахироСубтитры: Русские, АнглийскиеПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492D17A8604C5342E228A6A68A3DC3D8B31B3507
 ```
 
 https://mybot314.ru/tekegram_catalog/

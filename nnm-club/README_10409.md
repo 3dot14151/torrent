@@ -1,22 +1,57 @@
-###  Публикация: 1227886   (640925) от 29.05.2018
+###  Публикация: 216755   (643884) от 08.07.2010
 
-Infix PDF Editor Pro 7.2.6 RePack by KpoJIuK [Ru/En]
+Киллеры / Killers (2010) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Спенсер был безжалостным наемным убийцей, грозой мирового терроризма и перестал им быть, когда встретил Джен в лифте курортного отеля… Спустя три года они — обычная идеальная молодая пара, проживающая в американском пригороде. Но их безоблачному счастью приходит конец, когда за голову Спенсера объявляют награду в $5 млн, и все глубоко законспирированные профессионалы-киллеры (   Читать дальше...   )Жанр: боевик, комедия, мелодрамаПеревод: Профессиональный (полное дублирование)Формат: DVD VideoПродолжительность: 01:36:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517048   (643882) от 03.07.2012
+
+VA - Subculture Selection 2012-01 (07.01.2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-С помощью Infix PDF Editor вы можете открывать, изменять и сохранять файлы PDF. Это просто и не занимает много времени: можно изменить текст, шрифты, изображения и пр. И в отличие от других PDF-редакторов, Infix работает как обычный текстовый редактор, и действительно удобен в использовании. Избавление от опечаток: быстрое исправление ошибок в файлах PDF. Использование (   Читать дальше...   )Язык интерфейса: Русский / Английский
+01. Full Tilt feat. Deirdre McLaughlin - Surrender (Sneijder vs. John O'Callaghan Remix) (7:36)
+02. John O'Callaghan feat. Cathy Burton - Perfection (Shogun Remix) (9:13)
+03. Luke Bond feat. Emel - Amaze (Original Mix) (7:32)
+04. John O'Callaghan - The Bailout (Original Mix) (7:35)
+05. Fady & Mina - Overdrive (Original Mix) (7:46)
+06. Re.Locate vs. Robert Nickson - Prevening (Original Mix) (8:24)
+07. Susana - Home (Daniel Kandi Retrofit Remix) (7:17)
+08. Orjan Nilsen - Viking (Original Mix) (7:34)
+09. Ashley Wallbridge - Vision (Original Mix) (6:28)
+10. Gareth Emery - Tokyo (Edit) (3:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:026ED99860D020EE8499BE1C4A41124CF15409EB
+magnet:?xt=urn:btih:AF80202EF9C0FCE1E07153CF41D78B5C2349A5B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +59,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228035   (640924) от 29.05.2018
+###  Публикация: 517049   (643881) от 03.07.2012
 
-Чистокровные / Thoroughbreds (2017) WEB-DL [1080p] ATV (MVO)
+VA - Subculture Selection 2012-03 (2012) [MP3|320 кб/с]<Trance>
 
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Дороги двух подруг из пригорода Коннектикута разошлись, и девушки не виделись несколько лет. Когда они снова встречаются, то решают восстановить свою былую дружбу. При более тесном общении девушки замечают, что они обе очень изменились, и даже стали способными на убийство.Производство: США / B Story, Big Indie Pictures, June PicturesЖанр: Триллер, ДрамаРежиссер: Кори ФинлиАктеры: Аня Тейлор-Джой, Оливия Кук, Антон Ельчин, Пол Спаркс, Кайли Вернофф, Фрэнси Свифт, Леа Просито, Макс Рипли, Шанти СпиллейнПеревод: Многоголосый (профессиональный, закадровый) (HDrezka Studio)Субтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 01:32:04
+01. John Ocallaghan - Stresstest (John Askew Remix (08:27)
+02. Gareth Emery - Concrete Angel (feat Christina Novelli - John O'Callaghan remix edit) (04:51)
+03. John Ocallaghan & Heatbeat - Las Lilas (09:04)
+04. Omnia & IRA - The Fusion (06:08)
+05. John Ocallaghan - Smokescreen (Sneijder Remix) (07:39)
+06. Heatbeat - Rocker Monster (06:43)
+07. Ost & Meyer - Safari (07:13)
+08. Dark Matters - The Real You (feat Jess Morgan - Jorn Van Deynhoven remix) (08:25)
+09. Sebastian Brandt - Mana (08:03)
+10. Khomha - Mind Gamer (06:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66A31DB2A1281087B4A5A64D0D1F3B5D4ECF4A09
+magnet:?xt=urn:btih:F8F813D8BD54D64712362163D0875E33A56E7B66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +94,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227963   (640923) от 29.05.2018
+###  Публикация: 517050   (643880) от 03.07.2012
 
-Картинки - Wallpaper pack - Computer Graphics 35 [JPG, PNG]
+VA - Subculture Selection 2012-04 (2012) [MP3|320 кб/с]<Trance>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Обои на тему компьютерная графикаФормат: JPG, PNGРазрешение файлов: 1920x1068-3504x2336
+01. Mark Leanings vs Space Rockerz & Tania Zygar - Whatever Happened To Puzzle Piece (John O'Callaghan mashup) (07:33)
+02. Protoculture - Cobalt (07:25)
+03. Akira Kayosa & Hugh Tolland - Disconnected (08:05)
+04. Sean Tyas - Take My Hand (feat David Berkeley - John O'Callaghan remix) (08:34)
+05. Giuseppe Ottaviani & Betsie Larkin - Toys (club mix) (07:25)
+06. Emma Hewitt - Miss You Paradise (Shogun remix) (07:37)
+07. Andy Moor & Ashley Wallbridge - World To Turn (feat Gabriela - club mix) (06:50)
+08. W&W - Shotgun (06:05)
+09. Matt Skyer - Bad Trip (07:25)
+10. Tritonal - Everafter (feat Cristina Soto - Tritonal club mix) (06:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1E151E61AF9E3140A8E3CB0D69743F8532568DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +129,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228020   (640922) от 29.05.2018
+###  Публикация: 518129   (643879) от 03.07.2012
 
-Дьявольские врата / Devil's Gate (2017) WEB-DL [1080p] ATV (MVO)
+R3hab - I Need R3hab 001 (01.07.2012) [MP3|~205 кб/с]<Electro House, House>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Агент ФБР Дарина Френсис расследует дело об исчезновении Марии Причард и её сына Джона. Главным подозреваемым становится супруг Марии Джексон Причард, о чем сообщила сестра пропавшей. И действительно, сложно его не заподозрить — мужчина обтянул забор колючей проволокой, заколотил окна, наставил вокруг капканов и прочих страшных ловушек, выглядит и ведёт себя как (   Читать дальше...   )Производство: Канада, США / Mednick ProductionsЖанр: Ужасы, Фантастика, ТриллерРежиссер: Клэй СтаубАктеры: Майло Вентимилья, Бриджет Риган, Аманда Шулл, Джонатан Фрейкс, Хавьер Ботет, Шон Эшмор, Адам Хертиг, Спенсер Древер, Скотт Джонсон, Уилл ВойтовичПеревод: Многоголосый (профессиональный, закадровый) (Jaskier)Субтитры: Английские (SDH)Продолжительность: 01:34:14
+01.	R3hab & Swanky Tunes feat. Max C - Sending My Love	(05:14)
+02.	R3hab vs. Calvin Harris - Chainsaw The Night vs. Flashback (R3hab vs. Panic City & Miles Medina Bootleg)	(04:00)
+03.	Wynter Gordon - Til Death (R3hab Remix)	(04:30)
+04.	R3hab & Calvin Harris vs. Axwell & Dirty South - Bounce vs. Open Your Heart (R3hab Bootleg)	(03:30)
+05.	Calvin Harris feat. Example - We'll Be Coming Back (R3hab EDC Vegas Remix)	(05:22)
+06.	David Guetta feat. Chris Brown & Lil Wayne - I Can Only Imagine (R3hab Remix)	(04:08)
+07.	Afrojack feat. Shermanology - Can't Stop Me (R3hab & Dyro Remix)	(04:52)
+08.	Afrojack & R3hab - Prutataaa (Dada Life Remix)	(03:45)
+09.	Kaskade feat. Mindy Gledhill - Eyes (R3hab Remix)	(02:45)
+10.	David Guetta feat. Usher - Without You (R3hab's XS Remix)	(04:13)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:00:01
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F7ED559D58A2EA8AEC2F2D7AFE22C7FD88682228
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,28 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227993   (640921) от 29.05.2018
+###  Публикация: 518278   (643878) от 03.07.2012
 
-VA - NOW That’s What I Call Jazz (2018) 3CD [MP3|320 Kbps] <Jazz>
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №86 (2012.07.02) (2012) SATRip
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-01. Frank Sinatra - Fly Me To The Moon
-02. Michael Bublé - Haven't Met You Yet
-03. Amy Winehouse - You Know I'm No GoodЖанр: JazzПродолжительность: 03:53:30
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:12:28
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:334506273998A9FF9F18A7306C10D711CEA0634E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,27 +190,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227922   (640920) от 29.05.2018
+###  Публикация: 518457   (643877) от 03.07.2012
 
-Анна Гаврилова | Ведьма на десерт (2018) [FB2]
+Kuffdam - Network (2009) [MP3|320 кб/с]<Trance>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь ведьмочки полна событий. Однако если тебя занесло в столицу, особых приключений не жди. Тут всё размеренно и чопорно, и люди вокруг приличные, а ведьм вообще не жалуют. То есть самое время собрать подруг и… затеять колдовской спор!
+Kuffdam - Network (2009)
 
-Бросить жребий и определить ту, которая будет охмурять; объект, подлежащий охмурению; не забыть, что приличные люди в качестве (   Читать дальше...   )Жанр: Любовное фэнтези, Юмористическое фэнтезиФормат: FB2
+Год: 2009
+Жанр: Trance
+Продолжительность: 01:18:56Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Kuffdam & Plant - Summer Dream (Sunset On The Beach Mix) (7:00)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CD88F446A632675F6287C8FA0E414CC4F249E36
+magnet:?xt=urn:btih:17F0682F7B6B0A96FC45C5C7190299A5FF67704A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,157 +223,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227927   (640919) от 29.05.2018
+###  Публикация: 516545   (643876) от 03.07.2012
 
-Пятьдесят оттенков свободы / Fifty Shades Freed (2018) BDRip [720p] [Unrated Edition] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристиан и Анастейша поженились и живут в своё удовольствие, наслаждаясь обществом друг друга. Однако жизнь новоиспечённой миссис Грей находится в опасности, поскольку объявляется недруг, который собирается мстить, используя свою богатую фантазию. Призраки прошлого Кристиана вновь вернулись, а тучи над супругами сгущаются всё сильнее.Производство: СШАЖанр: Триллер, драма, мелодрамаРежиссер: Джеймс ФоулиАктеры: Дакота Джонсон, Джейми Дорнан, Эрик Джонсон, Элоиза Мамфорд, Рита Ора, Люк Граймс, Виктор Расук, Макс Мартини, Дженнифер Эль, Марша Гей ХарденПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C3C6A6898DFE195F24F79E3513669604C647C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227955   (640918) от 29.05.2018
-
-Текстуры - Creative Market - Marble. Black Edition - 1356957 [PNG]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры чёрные с официальной документацией.
-Автор: Rachel Irving.Формат: PNGРазрешение файлов: 3504 x 2336
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178530   (640917) от 29.05.2018
-
-Подшивка журналов | ScrollSaw Woodworking & Crafts (2017) [PDF] [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для истинных мастеров-резчиков по дереву. Предложено множество идей по созданию игрушек, картин, новогодних украшений, бизнес принадлежностей из дерева. Есть схемы и пошаговые фото сборки и вырезанияЖанр: Резьба по деревуФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142777   (640916) от 15.06.2017
-
-Дон мертв / The Don Is Dead (1973) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640916.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти главы мафиозного клана власть в городе делят поровну три семьи. Но помощник одного из мафиози сам хочет стать главой мафии. Он стравливает семьи между собой, ожидая, когда они перебьют друг друга и освободят для него трон крестного отца…Производство: США / Universal PicturesЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Ричард ФлайшерАктеры: Энтони Куинн, Фредерик Форрест, Роберт Форстер, Аль Леттьери, Энджел Томпкинс, Чарльз Чоффи, Джо Энн Мередит, Бэрри Руссо, Луис Зорик, Энтони ЧарнотаПеревод: Двуголосый закадровый (НТВ+)Субтитры: АнглийскиеПродолжительность: 01:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF62134E9FA5FC0FD229BF27ACBC794DC5F4DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142770   (640915) от 15.06.2017
-
-NG: Рассвет нацизма. Становление Гитлера / Dawn of the Nazis: Becoming Hitler (2017) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Рассвет нацистов: Становление Гитлера» исследует жизнь этого нелюдя, как он поднялся из ничего, чтобы стать пожалуй, самым известным диктатором и военным преступником в истории.
-Как же он посеял семена ненависти и насилия, которые привели к гибели десятков миллионов людей? Какой была Германия накануне начала Второй мировой войны? Вы увидите отчаяние и страх, (   Читать дальше...   )Телекомпания: National GeographicЖанр: Документальный, война, историяПеревод: ДублированныйПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5CB9DC0A9FD872B2EB54C3FFFDA9911D8E28B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142747   (640914) от 15.06.2017
-
-Icecream Screen Recorder Pro 4.89 RePack (& Portable) by TryRooM [Multi/Ru]
+Josh Turner - Punching Bag. Deluxe Edition (2012) [MP3|320 кб/с]<Country>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+(0:36) 01. Introduction
+(3:39) 02. Punching Bag
+(3:21) 03. Time Is Love
+(3:17) 04. Deeper Than My Love
+(3:08) 05. Good Problem
+(3:59) 06. Cold Shoulder
+(3:38) 07. Find Me Baby
+(3:24) 08. Whatcha Reckon
+(4:34) 09. Pallbearer
+(4:07) 10. For the Love of God(   Читать дальше...   )Жанр: CountryПродолжительность: 00:57:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44041A5893BF816A6594090A1A58EDF96CC0515E
+magnet:?xt=urn:btih:36C085D6FF14215D45D7D913BDC5627459EC0775
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,138 +258,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142844   (640913) от 15.06.2017
+###  Публикация: 518516   (643873) от 03.07.2012
 
-Прямая линия с Владимиром Путиным (2017.06.16) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальная программа, в ходе которой президент отвечает на вопросы, касающиеся общественно-политической и социально-экономической жизни страны. Задавать вопросы могут не только приглашенные в студию программы гости, но и граждане в ходе прямых включений из городов России. 16 июня 2017, 12:00 мск. Прямая трансляция специальной программы «Прямая линия с Владимиром (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 03:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6FDBD92902A16ADDE3DCA4C244A9A529B3DF3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142771   (640912) от 15.06.2017
-
-Cumulative Update KB4022714 for Windows 10 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумулятивное обновление KB4022714 для x86-x64 платформ, повышающее номер сборки Windows 10 Version 1511 до 10586.962.Также в раздаче присутствует обновление для Adobe Flash Player KB4022730Язык интерфейса: Русский,Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C58CC4297CCD0A9CD8113B148F0709685B1E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142830   (640911) от 15.06.2017
-
-VA - Disco Music Comeback (The Return Of The Glory Hits) (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travoltas - Boogie Nights (Radio Version) (3:58)
-02. Jack Dunston - Street Life (Radio Version) (3:41)
-03. Glenn & Eddie - Rapper's Delight (Rocfam Mix) (4:00)
-04. Jill Razer - Last Night a DJ Saved My Life (Radio Version) (4:07)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACAB3031C7E5DFE192882488350C99F304F9363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142643   (640910) от 15.06.2017
-
-Eguana - Invisible Civilization (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deep Numb (07:06)
-2. Glowing at Depth (07:12)
-3. Colony of Clots (07:44)
-4. Invisible Civilization (08:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7F4608AE1201D7B8867899487E10557FCC3A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142619   (640909) от 15.06.2017
-
-VA - 100 Cardio Dance Control Hits (2017) [MP3|269-320 Kbps] <Funky, Tropical, Progressive, Bigroom, Nu Disco, Future House>
+VA - Dancing People in The World - Top Dance (2012) [MP3|256 кб/с]<Dance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Dani Kode - Monada 05:00
-02. Josh Nor - Savana 05:42
-03. Cya - Mistakes (Original Mix) 06:33
-04. Baggi Ft. Sylvia Tosun - Time Painter (Vocal Extended Mix) 05:48(   Читать дальше...   )Жанр: Funky, Tropical, Progressive, Bigroom, Nu Disco, Future HouseПродолжительность: 09:25:21
+1. Anton Neumark & Crime-A - Maria (Neumark Edit) (7:55)
+2. Anton Neumark & Re-Zone - Time (DJ Winn, Anton Neumark's Re-Remix) (7:03)
+3. Anton Neumark & Yana Fortep - Не переживай (Alex Curly Dub MIx) (3:19)
+4. Anton Neumark & Yana Fortep - Не переживай (Alex Curly Remix) (3:19)
+5. Anton Neumark & Yana Fortep - Не переживай (dj sly & dj bob athlans) (3:44)
+6. Anton Neumark & Yana Fortep - Не переживай (ezzy Safaris radio mix) (3:29)
+7. Anton Neumark vs Phunk Investigation, Aeronautics - Underground (Electrica Salsa Mash Up) (7:22)
+8. Armand Van Helden - My My My (DJ DENIS RUBLEV MASHUP) (4:16)
+9. Arty vs Adrian Lux - Teenage World (Miami Husslers Bootleg) (4:17)
+10. Avicii vs NERVO vs Justice - We're All ID Friends (Pixel Cheese Cover Bootleg) (4:52)Жанр: DanceПродолжительность: 04:05:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5C3D079C38E1F0F98752094DDC00230F4467AD0
+magnet:?xt=urn:btih:1F32523CCD8CE335F67B0B8A82075BF22BB41EBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,83 +293,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142657   (640908) от 15.06.2017
+###  Публикация: 518174   (643871) от 03.07.2012
 
-VA - Red Sunset: Chillout Musical Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640908.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Pier-O - Red Sunset (feat. Mia Lemar)  5:18
-002.  Moon de Lounge - La Mer Se Calme (Lounge Mix)  5:05
-003.  Michael E - Olivares En Le Sol  4:49
-004.  Velvet Dreamer - Your Game My Love (feat. Diana Jasilionyte & Tim Gelo)  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F36E75A8EA37EC0C52EEA9DA958E43DFEAD3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142553   (640907) от 15.06.2017
-
-Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noticeable One
-02. Windows
-03. It Ain't None Of Your Business
-04. Destination Unknown(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD51250C25C2E94EA989258804E673584C605367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142701   (640906) от 15.06.2017
-
-Другая жизнь Маргариты (2015) HDTVRip (серии 1-2 из 2)
+Oliver/Dawson Saxon - Motorbiker (2012) [MP3|320 кб/с]<Heavy Metal>
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Маргарита давно замужем, но до сих пор оплакивает свою первую любовь — Георгия, погибшего двадцать пять лет назад при невыясненных обстоятельствах. После его смерти Марго распрощалась с карьерой актрисы и вышла замуж за нелюбимого человека Кирилла.Производство: Россия / Производство ООО "Продюсерский центр "Иван", ВГТРКЖанр: мелодрамаРежиссер: Анастасия ПоповаАктеры: Вера Воронкова, Александр Ивашкевич, Александр Наумов, Андрей Заводюк, Татьяна Аугшкап, Екатерина Мельник и др.Продолжительность: ~01:27:00 серия
+01. Chemical Romance
+02. Motorbiker
+03. Whippin' Boy
+04. No Way Out
+05. Just Another Suicide
+06. Sinternet
+07. Ghost
+08. Nevada Beach
+09. Screaming Eagles
+10. World's Gone Crazy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB058971C848B4FE3B914EEBCE981BA41BE2CE2F
+magnet:?xt=urn:btih:9E8007F7AA9EBD62909B6AD08C046911C796AD87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,77 +328,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142853   (640905) от 15.06.2017
+###  Публикация: 518279   (643870) от 03.07.2012
 
-Прямая линия с Владимиром Путиным (2017.06.15) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальная программа, в ходе которой президент отвечает на вопросы, касающиеся общественно-политической и социально-экономической жизни страны. Задавать вопросы могут не только приглашенные в студию программы гости, но и граждане в ходе прямых включений из городов России. 16 июня 2017, 12:00 мск. Прямая трансляция специальной программы «Прямая линия с Владимиром (   Читать дальше...   )Телекомпания: RTЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 03:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AC883ED44DE978BF6DE7CFBC429E3F8C0798D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142697   (640904) от 15.06.2017
-
-Чистое сердце, или Киллеры на колёсах / Tiszta szivvel (2016) DVDRip [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золи и Барба – подростки-инвалиды, живущие в специнтернате. Условия там вполне комфортабельные, никакой чернухи, но радостей и развлечений всё равно немного. Как и надежды на излечение: отец, бросивший Золи много лет назад, даже готов оплатить дорогую операцию в Германии, и она, конечно, продлит существование, вот только полное выздоровление всё равно невозможно. (   Читать дальше...   )Производство: ВенгрияЖанр: Боевик, драма, комедияРежиссер: Аттила ТилльАктеры: Сабольч Туроци, Золтан Фенивеси, Адам Фекете, Моника Бальшаи, Лидия Даниш, Душан Витанович, Бьорн ФрайбергПеревод: Любительский многоголосый (GreenРай Studio)Субтитры: ОтсутствуютПродолжительность: 01:38:53Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FC9290D4245152596F447D998796D7C9A70E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142881   (640903) от 15.06.2017
-
-Vivaldi 1.10.867.38 Final [Multi/Ru]
+VA - Dance Club Party Vol.5 (2012) [MP3|256 кб/с]<Dance, Club>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, др.
+1. Young Rebels & Francesco Diaz - Timbuktu (Original Mix) (6:15)
+2. Victoria Aitken - Weekend Lover (Sean Finn Radio Edit) (3:58)
+3. Voxxmore feat. Starla Edney - Zero21 (Never Let You Go) (Radio Mix) (4:35)
+4. Darius & Finlay feat. Carlprit & Nicco - Do It All Night 2k12 (CK Stone Mix Edit) (2:59)
+5. Scooter & Lavelle & Sue Cho - Beats Inside My Head (Minero Remix) (5:48)
+6. Pryda - You (Original Mix) (6:58)
+7. Mike - D Feat. Nensi - All I Want (Infected Culture Radio Edit) (3:26)
+8. Andrea Verona Feat. Jama - La Pasion (Ratatouille Radio Edit) (3:22)
+9. Picco & Pleasurekraft - Mi Cafe (Stanislav Shik & Denis Rook Mashup) (5:39)
+10. Medina - Forever (DJ Tonka True House Mix) (4:32)Жанр: Dance, ClubПродолжительность: 08:35:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF61D8769DB7269323EEC43E7B21089406000731
+magnet:?xt=urn:btih:95AB753E0C46FA7DEA43B12DEC2341280B4E2EB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,25 +363,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142658   (640902) от 15.06.2017
+###  Публикация: 518503   (643869) от 03.07.2012
 
-Cyberfox 52.2.0 for Intel + Portable [Multi/Ru]
+Black Messiah - The Final Journey (2012) [MP3|320 кб/с]<Symphonic Black/Power/Folk/Viking Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры Intel. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский, др.
+1. Windloni
+2. Der Ring Mit Dem Kreuz
+3. To Become A Man
+4. Into The Unfathomed Tower (A Tribute To Candlemass)
+5. Feld Der Ehre
+6. Lindisfarne
+7. The Naglfar Saga: Prologue - The Final Journey
+8. The Naglfar Saga: Mother Hel
+9. The Naglfar Saga: On Board
+10. The Naglfar Saga: Sailing Into EternityЖанр: Symphonic Black/Power/Folk/Viking MetalПродолжительность: 00:55:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66760BD63A3C0F8EA6FBC7E0C54FC524A1296D5D
+magnet:?xt=urn:btih:E584D7F1DC6740DCC5E53A8410E75AF7C16B5D43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,28 +398,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142485   (640901) от 15.06.2017
+###  Публикация: 517553   (643867) от 03.07.2012
 
-MediaHuman YouTube Downloader 3.9.8.13 (1805) RePack (& Portable) by ZVSRus [Ru/En]
+The Gil Correia Band - Tattoos & Blues (2011) [MP3|320 кб/с]<Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+01 - The Rattlesnake Hop
+02 - Taken It Back
+03 - Your Love Is A Prison
+04 - Blue Gil Shuffle
+05 - It's A Swang Thang
+06 - Mercury Blues
+07 - Too Many DriversЖанр: BluesПродолжительность: 00:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B4D6E78B873AF114FE2035961265034C61FD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346766   (643859) от 06.06.2011
+
+NHL 10/11, SC: Финал, матч №2: Boston Bruins vs Vancouver Canucks (04.06.2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. NHL. Кубок Стэнли, финал, 2-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739666AFD4FBEFA611F51A2F6CC4BE2621C2146D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346216   (643847) от 06.06.2011
+
+Очная ставка. Мать - убийца (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Они забеременели, чтобы удержать своих любовников.
+А когда план не сработал, дети им оказались не нужны…
+Почему ребенок превращается в средство шантажа и как матери становятся безжалостными убийцами?Жанр: ДокументальныйПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CF1ACF8FB5AC40441D8CB646BABCC569C6EA1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799986   (643844) от 27.06.2014
+
+Linux Mint 17-v2 Qiana Cinnamon [32bit, 64bit] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu 14.04 LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных мультимедийных форматов. В сборке используется одна из популярных графических сред Cinnamon.
 
-• Закачка нескольких файлов одновременно
-• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Язык интерфейса: Русский | Английский
+В Linux Mint 17 улучшили менеджер обновлений, менеджер драйверов, языковые настройки, источники приложений, экран приветствия, а во всём остальном обновления такие же, как и в Ubuntu 14.04.
+
+Не знаю, чем новая версия v2 отличается от версии трехнедельной давности, но разработчики зачем-то ее сделали. Версию увидел на офф. серверах пару часов назад.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3335336C36D432CC3C6C18D1AC795A57E13B49F
+magnet:?xt=urn:btih:A26B7E3D22F3F0976B917599B1C24112675C5DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,25 +514,279 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142815   (640900) от 15.06.2017
+###  Публикация: 799991   (643843) от 27.06.2014
 
-Cadenza 4: Fame Theft and Murder / Каденция 4: Слава, кража, убийство (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+Linux Mint 17 Qiana XFCE (легкий дистрибутив) [32bit, 64bit] 2xDVD
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>След.
+>>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Хороша жизнь в легендарные пятидесятые в Лас-Вегасе. Вы новый король рок-н-ролла. Но все меняется в одно мгновение, когда какой-то незнакомец срывает концерт и более того - меняется с вами телами. Теперь вас разыскивают за убийство и часы отмеряют оставшееся время. Сможете ли вы вернуть себе свое тело и прежнюю жизнь?Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu 14.04 LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных мультимедийных форматов. В этом релизе используется одна из популярных легких графических сред XFCE.
+
+В Linux Mint 17 улучшили менеджер обновлений, менеджер драйверов, языковые настройки, источники приложений, экран приветствия, а во всём остальном обновления такие же, как и в Ubuntu 14.04.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12092562F9A4DB9F8653BC65F25585DAE4EFDB0E
+magnet:?xt=urn:btih:4BFE30219FBFEF820B3E4FEE3371493AC325E389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906487   (643821) от 09.06.2015
+
+Ad Metalla - Gemelli Siamesi (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Un Mondo Da Scoprire
+2. Corpi Vuoti
+3. Contraddizioni
+4. Fuori Dal Limbo(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EB1055788CCBAA7CC76957CEF0CCEC73F4B93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906560   (643820) от 09.06.2015
+
+Валерий Меньшиков | За борами за дремучими (1991) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В своей новой книге курганский литератор предстает как лирик и тонкий знаток природы. Юного читателя книга заставит пристальней вглядеться в окружающий мир, научит находить красоту в повседневности, а взрослому поможет заново пережить собственное детство.Жанр: Детская проза, природа и животныеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433637145C918B358664103ED2842F87EBC243B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906493   (643819) от 09.06.2015
+
+Ancient Sky - Mosaic (2015) [MP3|320 кб/с]<Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Sing Swing
+02. Two Lights
+03. Garbage Brain
+04. Know(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DA2DEFD12CFBABE2951DC93FE5ABFD095F92A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906476   (643818) от 09.06.2015
+
+Inner Odyssey - Ascension (2015) [MP3|320 кб/с]<Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Why am I Here? (Ouverture)
+02. Something More
+03. A World of My Own
+04. My Purpose(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BCD8F48F7450B27124024698BF93459D85C429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906756   (643817) от 09.06.2015
+
+Специальный репортаж. Приговор долгу (2015.06.08) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+4 июля в Литве будет оглашён заочный приговор бывшим командирам вильнюсского ОМОНа, которые в начале 1991 года отказались подчиниться новым республиканским властям. Тогда во время политического двоевластия погибли 14 человек.Телекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF298FA09592714ACB28D38C7943981299FA99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906486   (643816) от 09.06.2015
+
+Noturnall - Back to F*ck You Up! (2015) [MP3|320 кб/с]<Progressive Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Enquanto a Tregua Nao Vem... 00:40
+02. Back to Fuck You Up! 03:28
+03. Zombies (The Holy Trinity) 06:03
+04. Fight the System 04:31(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F95762EDD88523465CE454C0992F847C2909796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906565   (643815) от 09.06.2015
+
+Надежда Мартынович | Виртуальная девчонка (2004) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что за странные события происходят с Лизой Игнатьевой? То самый красивый мальчишка в классе приглашает на свидание, то директриса ни с того ни с сего обвиняет в курении… В новой школе жизнь просто бьет ключом! Неужели все завертелось из-за того, что в первый день она случайно толкнула местную звезду, Олю Ляпину? И та теперь строит обидчице козни? Ничего, у Лизы есть (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4272AC736F013297B2B676AAFA56AA937E7F9AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032542   (643814) от 08.07.2016
+
+Los Venturas - Miles High (2016) [MP3|320 Kbps] <60's Guitar's Instrumental Surf Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. El Rey De Los Cielos
+02. O Fata Romana
+03. Pradesh Hypno Beat
+04. Ringispil(   Читать дальше...   )Жанр: 60's Guitar's Instrumental Surf RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE358DF454F5DA1CD2473A346AE8552B40E0F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032676   (643813) от 08.07.2016
+
+SiteSucker 2.8.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker. Альтернативный менеджер загрузки сайтов
+SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+
+SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июля 2016Разработчик: Richard CraniskyПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08A4D6C27A37218E78C09BA20A316CDF9FF0DDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1571698   (379044) от 08.09.2022
+
+Сыграй это еще раз, Сэм! / Play It Again, Sam! (1972) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Аллена, замкнутого и чудаковатого кинокритика, бросает жена. Нашего впечатлительного героя начинает посещать призрак Хамфри Богарта, исполнителя главной роли в легендарной ленте «Касабланка» (название фильма «Сыграй это снова, Сэм» - знаменитая реплика из классической картины). Дружелюбная галлюцинация дает нашему герою ценные советы по части поведения с женщинами. (   Читать дальше...   )Производство: США, APJAC Productions, Jack Rollins & Charles H. Joffe ProductionsЖанр: мелодрама, комедияРежиссер: Херберт РоссАктеры: Вуди Аллен, Дайан Китон, Тони Робертс, Джерри Лэси, Сьюзен Энспак, Дженнифер Солт, Джой Банг, Вива, Сюзанна Зенор, Диана ДевилаПеревод: Двуголосый профессиональный (СВ-Дубль), двуголосый профессиональный (Paramount Channel)Субтитры: АнглийскиеПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6811914F9DD0502356DD782AE3A7954C1ABDED8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172878   (378634) от 18.10.2017
+
+С террасы / From the Terrace (1960) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного романа Джона О Хары.
+Альфред Итон приезжает в Нью-Йорк, чтобы основать авиастроительную корпорацию. Знакомство с одним из самых влиятельнейших финансистов Америки Джеймсом Дунканом Маккарди становится для молодого человека большой удачей - он получает место в его инвестиционной компании. Целеустремленный Итон работает, не жалея сил, и уверенными (   Читать дальше...   )Производство: США.  LinebrookЖанр: Драма, МелодрамаРежиссер: Марк РобсонАктеры: Пол Ньюман, Джоэнн Вудворд, Мирна Лой, Ина Балин, Леон Эймс, Элизабет Аллен, Барбара Иден, Джордж Гриззард, Патрик О’Нил, Феликс Эйлмер, Рэймонд Гринлиф, Малкольм Аттербери, Рэймонд Бэйли, Ховард Кейн, Кэтрин Гивни и др.Перевод: Многоголосый закадровый, двуголосый закадровыйСубтитры: АнглийскиеПродолжительность: 02:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BBE32C2005CF42E4AB7F10AE0F25864A98B3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573729   (377868) от 11.11.2012
+
+Нью-Йорк, Нью-Йорк / New York, New York (1977) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие мюзикла начинается в день победы над Германией в 1945 году. На фоне всеобщего веселья, конфетти и музыки бывший герой войны и саксофонист знакомится с певицей, и они любят друг друга и ссорятся на протяжении всего фильма, действие которого погружает зрителя в эпоху больших джазовых оркестров. Почему же они ссорятся?
+Скорсезе положил в основу сюжета конфликт, часто имеющий место между мужчиной и женщиной, когда оба одинаково талантливы. Особенно острым бывает этот конфликт, когда жена добивается большего успеха, чем муж. Так и здесь одаренный музыкант не можетЖанр: Мьюзикл, Драма, Мелодрама, МузыкаРежиссер: Мартин СкорсезеПродюсер: Роберт Чартофф, Джин Кирквуд, Ирвин УинклерАктеры: Роберт Де Ниро, Лайза Миннелли, Лайонел Стэндер, Бэрри Праймус, Мэри Кэй Плэйс,  Джорджи Олд, Джордж Меммоли, Дик Миллер, Мюррей Мостон, Ленни ГейнПеревод: Многоголосый закадровыйПродолжительность: 02:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700ED401A6A6A1BB219CF08C6AACA8FC75CFDF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251511   (377567) от 29.10.2010
+
+День, когда Земля остановилась / The Day the Earth Stood Still (1951) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В разгар холодной войны в Вашингтоне совершает посадку летающая тарелка: в ней прибывают посланник Клаату и его могучий робот Горт, делегированные федерацией планет, чтобы поставить народам Земли ультиматум о прекращении ядерных испытаний.
+Запаниковавшие военные открывают по космолету огонь и ранят посланника. Клаату осознает, что единственный способ договориться с землянами — это узнать их изнутри: он совершает побег из госпиталя и начинает собственное исследование планеты.Жанр: ФантастикаРежиссер: Роберт Уайз /Robert Wise/Актеры: Майкл Ренни /Michael Rennie/, Патриция Нил /Patricia Neal/, Хью Марлоу /Hugh Marlowe/, Сэм Джаффе /Sam Jaffe/, Билли Грэй /Billy Gray/, Фрэнсис Бавье /Frances Bavier/, Лок Мартин /Lock Martin/, Дрю Пирсон /Drew Pearson/, Фрэнк Конрой /Frank Conroy/, Фэй Руп /Fay Roope/Перевод: Дублированный + оригиналПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD87C425887B2EC25E7765110D71A39281D79BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 251345   (377562) от 29.10.2010
 
 Апокалипсис сегодня / Apocalypse Now (1979/2001) BDRip [Redux version]
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -442,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -549,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,111 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:993DD1EE2D3CA3DB841E0E2A27546951ECAC96CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069867   (370620) от 05.11.2016
-
-Лоуренс Аравийский / Lawrence of Arabia (1962) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о легендарном герое Первой мировой войны - английском разведчике Т. Э. Лоуренсе, действовавшем среди арабских племен и возглавившем их в походе против турок.Производство: Великобритания / Horizon Pictures (II)Жанр: Драма, Приключения, Военный, Биография, ИсторияРежиссер: Дэвид ЛинАктеры: Питер О’Тул, Алек Гиннесс, Алек Гиннесс, Джек Хоукинс, Омар Шариф, Хосе Феррер, Энтони Куэйл, Клод Рейнс, Артур Кеннеди, Дональд Вулфит, Мишель РэйПеревод: Профессиональный (многоголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 03:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB625C80A9C7F87C76051A854A99B9D2BF1A61BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324737   (369952) от 27.09.2019
-
-Последний закат / The Last Sunset (1961) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди ковбоев, перегоняющих скот, скрываются убийца и преследующий его шериф. Противники многое узнают друг о друге во время долгого и опасного путешествия, но развязка все же жестока и неизбежна. Интересный психологический сценарий известного драматурга Далтона Трамбо, куда он, правда, намешивает все: от индейцев до кровосмесительства.Производство: США / Brynaprod S.A.Жанр: Драма, Мелодрама, ВестернРежиссер: Роберт ОлдричАктеры: Рок Хадсон, Кирк Дуглас, Дороти Мэлоун, Джозеф Коттен, Кэрол Линли, Невилл Брэнд, Режис Туми, Джеймс Вэстмолэнд, Адам Уильямс, Джек ЭламПеревод: Многоголосый профессиональный (Selena International по заказу СТС)Субтитры: Английские (Full, SDH)Продолжительность: 01:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1720C79DCA14461845E1B97FF205452D9E9C89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946812   (369584) от 26.10.2015
-
-Придурок / The Jerk (1979) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнав, что он приемный сын, Нэйвин бросает своих названых чернокожих родителей и отправляется за смыслом жизни в Сент-Луис. Поначалу большой город не принимает новичка, и Нэйвину упорно приходится доказывать, что он чего-то стоит.
-Долго мучиться не приходится, как говорится - дуракам везет, и на провинциального паренька нежданно-негаданно, оптом, сваливаются и богатство, (   Читать дальше...   )Производство: США, Aspen Film SocietyЖанр: Комедия, МузыкальныйРежиссер: Карл Райнер / Carl ReinerАктеры: Стив Мартин (Navin R. Johnson, Cat Juggler, Pig Eye Jackson, Engineer Fred,), Бернадетт Питерс (Marie Kimble Johnson), Кэтлин Адамс (Patty Bernstein), Мэйбл Кинг (Mother), Ричард Уорд (Father), Дик Энтони Уильямс (Taj Jonson), Билл Мэйси (Stan Fox), М. Эммет Уолш (Madman), Дик О’Нил (Frosty), Морис Эванс (Hobart), Хелена Кэрролл (Hester), Рен Вудс (Elvira Jonson)Перевод: Профессиональный (многоголосый, закадровый), Авторский (Михалев Алексей)Продолжительность: 01:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB3ADFA9F91C9A804D2E35E04FD413366BE26E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950616   (369482) от 26.10.2015
-
-Смоки и Бандит 2 / Smokey and the Bandit II (1980) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение комедии «Смоки и Бандит». Известные по первой части Бандит и Снеговик на этот раз за 400 тысяч долларов везут из Флориды в Техас беременную слониху. А помешать им хочет тот же злопамятный шериф. Он позвал на помощь всех своих родственников полицейских. Но это ему не помогло, так как Снеговик вызвал на подмогу водителей - дальнобойщиков...Производство: США / Universal Pictures, Rastar PicturesЖанр: Комедия, ПриключенияРежиссер: Хэл НидэмАктеры: Берт Рейнолдс, Джеки Глисон, Джерри Рид, Дом ДеЛуис, Сэлли Филд, Пол УильямсПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: АнглийскийПродолжительность: 01:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D022C953FE1B9D5D2E8D0065F0410CEB60F490BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

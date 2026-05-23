@@ -1,3 +1,90 @@
+###  Публикация: 1141619   (648045) от 11.06.2017
+
+Скриптонит - Праздник на улице 36 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Капли вниз по бёдрам (feat. Niman)
+2. Напомни
+3. 104 (скит)
+4. Цепи (feat. 104)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C1E750224B1CFA4CCD56280026715F371E986F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227511   (646587) от 26.05.2018
+
+MATRANG - ЭЙА (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Зима
+02. ОМО
+03. Там, где
+04. Медуза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F61D5932EBA4F093857E6F2EA6D2B89579CC3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292642   (644839) от 30.03.2019
+
+VA - Ladies Of Soul 80S & 90S (2019) [MP3|320 Kbps] <Soul, Disco, Rhythm & Blues>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Chaka Khan - Papillon (Aka Hot Butterfly)
+02. Brandy & Monica - The Boy Is Mine (Radio Edit)
+03. Rose Royce - Golden Touch
+04. The Brides Of Funkenstein - Never Buy Texas From A Cowboy(   Читать дальше...   )Жанр: Soul, Disco, Rhythm & BluesПродолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DD8614E4E011F6CE7C5522213C2C92540F1A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292644   (644832) от 30.03.2019
 
 VA - Romantic Soul Music (2019) [MP3|320 Kbps] <R&B, Soul>
@@ -6,7 +93,7 @@ VA - Romantic Soul Music (2019) [MP3|320 Kbps] <R&B, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Alai Oli, Хмыров - Последний из ушедших (2022) [MP3|320 
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Becko - You Are (Not) Alone (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Roc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +180,7 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [MP3|320 Kbps] <Rap, Hip
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Noize MC - Хипхопера: Орфей & Эвридика (2018) [MP3|320 Kbp
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -149,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -178,7 +265,7 @@ Two Feet - Momentum (2017)  EP [MP3|320 Kbps] <Trap, ChillTrap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -207,7 +294,7 @@ Guf, Slim - GuSli (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -236,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -265,7 +352,7 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [FLAC|Lossless|WEB-DL|tr
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +381,7 @@ Guf - Опять (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +497,7 @@ A$AP Rocky (ASAP Rocky) - TESTING (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +526,7 @@ Knowledge the Pirate - Flintlock (2018) Sword & Skull Edition [FLAC|Lossless|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -468,7 +555,7 @@ Noize MC - XV (2019) Live [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +613,7 @@ Joss Stone - Water For Your Soul (2015) [MP3|320 кб/с]<R&B, Pop>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +642,7 @@ VA - Pure... 90s R&B (2014) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <R&B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +671,7 @@ Miyagi & Эндшпиль - Умшакалака (feat. Amigo) (2017) [MP3|320 K
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +700,7 @@ Kool Keith - Controller of Trap (2018) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +729,7 @@ VA - Sexy Soul R&B For Late Night Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -656,93 +743,6 @@ VA - Sexy Soul R&B For Late Night Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2B8914338D66AE5071074C7FE17E9C86E0F8EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546425   (605933) от 24.04.2022
-
-TRUEтень, Красное Дерево - Кадык (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:02:04]
-02 - Как свинец [00:02:24]
-03 - OG [00:02:58]
-04 - Винтики [00:02:53](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A25F66B90EB52D772F8AAB7E199D23A38DB3C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231559   (604965) от 18.06.2018
-
-Beyonce & Jay-Z (The Carters) - Everything Is Love (2018) [FLAC|Lossless|WEB-DL|tracks] <RnB, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer
-02. Apeshit
-03. Boss
-04. Nice(   Читать дальше...   )Жанр: RnB, PopПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7A13EBBC5B6490C11F8365437237CAE712428C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297157   (604824) от 21.04.2019
-
-Mr. Lif & Brass Menažeri (Mr. Lif & Brass Menazeri) - Resilient (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, Conscious Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebirth (3:35)
-02. Crypt Of Lost Styles (3:18)
-03. Aftermath (3:35)
-04. The Wanderer (feat. DJ Mr. Sonny James) (5:51)(   Читать дальше...   )Производство: Waxsimile ProductionsЖанр: Hip-Hop, Jazz Hop, Conscious Hip-HopПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CFE4D6398C6C5971CD48B1D04F01B1EC01454B
 ```
 
 https://mybot314.ru/tekegram_catalog/

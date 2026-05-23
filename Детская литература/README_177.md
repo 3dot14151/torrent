@@ -1,109 +1,3 @@
-###  Публикация: 1598455   (162475) от 19.12.2022
-
-Николай Носов | Веселые рассказы (1947) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия рассказов про двух друзей-одноклассников.
-Для детей младшего школьного возраста. Иллюстрации Г.Валька.Жанр: РассказФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3525C33E274BA00AABB657C79382AD48BBD7480F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597742   (162449) от 19.12.2022
-
-Книжная серия | Волшебные сказки со всего света [15 книг] (2010-2014) [FB2, PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебные сказки со всего света - серия сборников сказок по странам и народам. Книги увеличенного формата, имеют огромное количество иллюстраций от очень хороших художников.Жанр: СказкаПеревод: О. Н. Мяэотс,  М. Д. Литвинова,  А. Н. Печерская, А. С. Турунтаева и др.Формат: FB2, PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6911FDBCB840C042FED065A569B9137827EEC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433101   (162422) от 19.12.2020
-
-Юрий Буковский | Одомашнивание кота Мурзика (2014) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимец всей деревни, бездомный кот Мурзик, изо всех своих котиных силёнок старается стать домашним котом. Он мечтает поселиться в доме, где живёт девочка Тася, её мама и папа. Из-за этого кот постоянно попадает в разные смешные и нелепые ситуации.
-О том, как Мурзику всё-таки удаётся осуществить свою мечту и стать полностью одомашненным котом и повествуется в этой (   Читать дальше...   )Жанр: Детская литература/Сказки народов мираФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C692AAA6DA63F5A07D159230C927C387454A4D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433109   (162324) от 19.12.2020
-
-Луиджи Баллерини | Синьорина Корица. Новая кондитерская Синьорины Корицы. Книга 2 (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синьорина Корица – самый необычный кондитер на свете! Для каждого посетителя она придумывает свой десерт, который понравится именно ему. Но теперь ее магазинчик снесли, чтобы выстроить большой торговый центр… Только Корица не сдается. Ведь ее сладости не просто красивые и удивительно вкусные – они творят чудеса. Лимонное пирожное «все-будет-хорошо» придает уверенности. (   Читать дальше...   )Жанр: Детская литература/Приключения/СказкаПеревод: Юлия Гиматова, Екатерина ТиховаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667ED0752E86537EA06CCFCB98024979CE109CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433083   (162223) от 19.12.2020
 
 Мартин Видмарк, Кристина Альвнер | Академия Летучей мыши. Как перехитрить чёрных магов. Книга 4 (2020) [FB2, EPUB, MOBI]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -616,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -642,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -670,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -682,6 +576,113 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A10A0BC440E27EB2633E86FF1A7D2ABDD40630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737929   (157172) от 24.12.2013
+
+Л. Вершинин | Игра в загадки (1964) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов о Васе и его младшем брате Мите.Жанр: Детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9544ECB65F2210CAC45FE92C4732AFBCD1E74723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270370   (157081) от 19.12.2018
+
+Книжная серия | Классика для школьников [30 книг] (2015-2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новое яркое и легко узнаваемое, но в то же время классическое оформление популярной серии, в которую вошли произведения русских и зарубежных авторов в классическом авторском варианте, а не в пересказах.
+Каждая книга серии несёт глубокий нравственный посыл, а значит помогает юному читателю расти!Жанр: Проза для детей, КлассикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C5EB6267FBA85AD0025E4B9E90D5BE121ACE2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600415   (157041) от 27.12.2022
+
+Книжная серия | Мои первые книжки [301 книга] (1948-2011) [FB2, PDF, DJVU, RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Детские книги способствуют образованию ребенка. Ребенок учится читать, а, заодно с техническими навыками чтения, приобщается к вечным ценностям. В серию вошли книги разных авторов, но каждая из них - своеобразный вклад в мировоззрение маленького читателя. Все книги замечательно иллюстрированы, что делает их еще более привлекательными для ребенка.
+Наверное одна из (   Читать дальше...   )Жанр: Детская литература, сказкиФормат: FB2, PDF, DJVU, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C4023E2666707DAB647774ACD2E0272812B101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350057   (156895) от 18.12.2021
+
+А. Н. Афанасьев (сост.) | Народные русские сказки [в трех томах] (1984-1985) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Народные русские сказки - мудрые и поучительные, смешные и грустные, наивные и лукавые, но всегда чарующие, увлекающие в свой волшебный мир, где лиса может быть исповедницей, а лягушка - царевной, где живут-поживают Крошечка-Хаврошечка, Василиса Прекрасная и Кощей Бессмертный, где играют гусли-самогуды, а золотая рыбка исполняет любые заветные желания.
+Собрание сказок, (   Читать дальше...   )Жанр: Художественная литература, сказки, фольклорФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BD718F538613607151F37411259315BAE8617B
 ```
 
 https://mybot314.ru/tekegram_catalog/

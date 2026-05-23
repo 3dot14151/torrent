@@ -1,31 +1,3 @@
-###  Публикация: 916024   (591273) от 07.07.2015
-
-Quantum Theory (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это шутер от третьего лица в фантастическом сеттинге о приключениях двух персонажей – Сида, сбежавшего из отряда «Дельта», и его подружки Филлены.
-Игрок берет на себя роль Сида - "темного героя" который орудует огромной пушкой. Филена может использовать меч и пистолет.
-По сюжету оба товарища пытаются добраться до верхушки огромной башни, преследуя различные (   Читать дальше...   )Тип издания: LicenseРазработчик: Team TachyonЖанр: Action/Shooter/3D/3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962665DB5AA03D405FCC187166EC43382F617562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 806476   (590439) от 26.07.2014
 
 Free MC Boot [Английский] (2010) [PS2]
@@ -34,7 +6,7 @@ Free MC Boot [Английский] (2010) [PS2]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +34,7 @@ The Chronicles of Riddick: Assault on Dark Athena (2009) [PS3] [USA] 2.60 [Cobra
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +61,7 @@ Steins;Gate (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +114,7 @@ Car Mechanic Simulator (2019) [PS4] [USA] 5.05 [HEN] [License / 1.07 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +140,7 @@ ARK: Survival Evolved (2017) [PS4] [EUR] 6.72 [HEN] [License / 2.77 / DLC] [Ru/M
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +166,7 @@ SAW II: Flesh and Blood (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO] [Unoffi
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +192,7 @@ A Plague Tale: Innocence (2019) [PS4] [EUR] 9.0 [HEN] [License / 1.09 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +218,7 @@ Majin and the Forsaken Kingdom / Мадзин. Забытое королевст
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +244,7 @@ My Friend Pedro (2020) [PS4] [USA] 5.05  [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +300,7 @@ Your Shape: Fitness Evolved 2013 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Licen
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +328,7 @@ Just Dance 4 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +354,7 @@ Sports Connection (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +380,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [PS3] [EUR] 4.53 [HEN] [Repack] [Ru/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +462,7 @@ Disney Universe / Disney: Мир Героев (2011) [PS3] [EUR] 3.70 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +488,7 @@ Spider-Man: Friend or Foe [Wii] [NTSC] [ENG] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +540,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [PS3] [EUR] 4.60 [HEN] [Repack] [Ru/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +566,7 @@ Grand Theft Auto V (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.38] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -684,6 +656,32 @@ Flying Hamster - веселая аркада на PSP, где вы играет�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E27E90839238DA9544F67D2158A5FE3BCC59DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042618   (577976) от 13.08.2016
+
+Vancouver 2010 (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO]  [Unofficial] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот проект жанра Simulators разработан для PS3 и позволяет максимально использовать ресурсы консоли. Невероятно реалистичные графика и физика порадуют даже самого заядлого игромана. Без чего не может обойтись Олимпиада? Факел? Несколько лет подготовки и десятки миллиардов долларов, профуканных во имя спортивного будущего нации? Ах, все не то. В XXI-ом веке обязательный (   Читать дальше...   )Тип издания: UnofficialРазработчик: EurocomЖанр: SportsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F9C38D66CB6A5CDDD812FBEA3D032FF2040BD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

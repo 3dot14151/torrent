@@ -1,3 +1,83 @@
+###  Публикация: 907260   (639307) от 11.06.2015
+
+Адмирал / Michiel de Ruyter / Admiral  (2015) BDRip [H.264/1080p] [Du / EN, Du Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Михил Рюйтер был одним из самых главных новаторов в боевой технике. Он стал героем голландского флота.
+В то время как Голландию, находившуюся на грани гражданской войны, атаковали со всех сторон, лишь один человек пытался бороться за интересы страны - Михаил Рюйтер. Но в глазах власть имущих его успехи делали его слишком популярным, и Рюйтера отправили на смертельно (   Читать дальше...   )Производство: Нидерланды, Farmhouse Film & TV, Ciné Cri De Coeur, AVROTROSЖанр: боевик, биография, историяРежиссер: Роэль РейнАктеры: Франк Ламерс,  Барри Атсма,  Рёланд Фернхут, Эгберт Ян Вебер, Тиго Гернандт, Дерек де Линт, Хайо Брюинс, Жуль Кройсет,  Виктор ЛёвПеревод: ОтсутствуетЯзык озвучки: ГолландскийЯзык субтитров: английский, голландскийПродолжительность: 02:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4B51BD92D6300ADEF71251254A781A9EE06AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907177   (639176) от 11.06.2015
+
+Крепись! / Get Hard  (2015) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Богатый менеджер инвестиционного банка осуждён за преступление, которого он не совершал, и готовится к тюрьме. А помогает ему в этом парень, который моет его машину.Производство: США, Gary Sanchez Productions, Warner Bros.Жанр: комедияРежиссер: Этан КоэнАктеры: Уилл Феррелл, Кевин Харт, Крэйг Т. Нельсон, Элисон Бри, Эдвина Финдли, Ариана Нил, Эрик Чаварриа, Ти-Ай, Пол Бен-Виктор, Джон Майер, Джон Эйз, Нито ЛариозаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31E66542C22C709DACBA3FCDA6BF3FB664D6068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142824   (639075) от 16.06.2017
+
+Oats: Volume 1 (2018) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Южноафриканский режиссер и сценарист Нил Бломкамп, известный по сайфай-фильмам «Район № 9», «Элизиум: Рай на Земле» и «Робот по имени Чаппи», объединил свои усилия с компанией Oats Studios для создания серии экспериментальных короткометражек.
+Кинематографист выпустил короткометражку под названием Volume 1, в котором можно увидеть Сигурни Уивер и Дакоту Фаннинг. В (   Читать дальше...   )Производство: США, Oats StudiosЖанр: Короткометражка, Ужасы, Боевик, ФантастикаРежиссер: Нил БломкампАктеры: Дакота Фаннинг, Сигурни Уивер, Карли Поуп, Хосе Пабло Кантильо, Алек Гиллис, Юджин Хумбанйива ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74002B30BFBBECA96E5758194D9806FD17A6530D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033491   (637763) от 11.07.2016
 
 Разрушение / Demolition  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
@@ -6,7 +86,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE23329505653A43EB4F7760CB412C9CA8C16B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540504   (623649) от 14.04.2022
-
-Отдых / Rest (2021) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик пытается взять под контроль кошмар, в котором он находится.Производство: СШАЖанр: Короткометражный, ужасыРежиссер: Дилан КларкАктеры: Бретт МорроуПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0889D96710F37EC354E1A6E4030AC445D940F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144982   (623638) от 24.06.2017
-
-Жена смотрителя зоопарка / The Zookeeper's Wife  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальная история отважного подвига смотрителей Варшавского зоопарка Яна и Антонины Жабинских, давших убежище и сохранивших жизнь более, чем 300 евреям во время II Мировой войны. Ежедневный риск и опасность осложняются для Жабинских взаимоотношениями с бывшим другом семьи, а ныне высокопоставленным нацистским чиновником Лутцем Хеком, влюбленным в Антонину.Производство: Чехия, Великобритания, СШАЖанр: драма, военный, биография, историяРежиссер: Ники КароАктеры: Джессика Честейн, Йохан Хелденберг, Даниэль Брюль, Тимоти Редфорд, Эфрат Дор, Иддо Голдберг, Шира Хаас, Майкл МакЭлхаттон, Вэл Малоку, Марта Иссова, Даниель Ратиморский, Фредерик ПрестонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 02:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B4FAF56304499DE62D8D051D887BA950323A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036322   (620997) от 20.07.2016
-
-Несносные леди / Mother's Day  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фитнес и шопинг, капризные предки и непослушные дети, завистливые подружки и надоевшие бывшие - милые составляющие настоящего женского счастья. А также мужского, если ты - отец-одиночка. И неважно, где и как сведет вас жизнь, если ты встретишь настоящую любовь. Главное - не сдаваться! Ведь судьба - это большой супермаркет, а не магазин на диване.Производство: США, Open Road Films (II), Rice Films, Gulfstream Pictures, Aperture Media Partners, May Day Movies, Triad Film Works, Beatnik Films, Capacity Pictures, PalmStar MediaЖанр: драма, комедияРежиссер: Гэрри МаршаллАктеры: Дженнифер Энистон, Джулия Робертс, Кейт Хадсон, Джейсон Судейкис, Тимоти Олифант, Шэй Митчелл, Калеб Браун, Брэндон Спинк, Сэм Маршалл, Сиена ЛаГамбина, Джозеф Лео Бвари, Мэттью УолкерПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129BC236B3E486A925A566C206D757246E6200FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

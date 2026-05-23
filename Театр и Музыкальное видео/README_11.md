@@ -1,3 +1,192 @@
+###  Публикация: 610263   (990073) от 29.01.2013
+
+Rihanna - Diamonds (2012) HDRemux [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R&BПродолжительность: 00:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69B99EEF19938C5562DA4292E5E6E1BFBAF309E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432811   (989866) от 07.01.2012
+
+Blackmore's Night Live In Germany (1998) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.Shadow Of The Moon
+02.The Clock Ticks On
+03.Play Ministrel Play
+04.Ministrel Hall(   Читать дальше...   )Жанр: Концерт, Folk-RockПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF7A5024B97B5FCCD7D8512FC6EFB778A6AB182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163001   (989306) от 04.01.2010
+
+Scorpions - Acoustica (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock balladsРежиссер: Руди Долезал/Rudi Dolezal, Ханна Роззахер/Hannes RossacherПеревод: ОригинальныйСубтитры: НемецкиеПродолжительность: 01:53:04 (+ бонус – 00:13:40)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610865   (989230) от 30.01.2013
+
+BAZUKA - Stand Up (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, ElectroПродолжительность: 00:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F5B74880FAF7514FB816B934E46B36BC256EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351791   (988865) от 21.01.2020
+
+Lindemann (2015-2019) WEB-DL [H.264/1080p-LQ] (12 видеоклипов)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Видеоклипы Lindemann (2015-2019)
+2015 -  Lindemann - Fish On (00:05:17)
+2015 -  Lindemann - Praise Abort (00:05:13)
+2018 -  Lindemann - Mathematik ft. Haftbefehl (00:04:06)(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FE287C3553A80C3AAC43C461FAF655DD97F39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444348   (988699) от 21.01.2020
+
+Идеальное убийство / Московский театр Сатиры (2010) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Странная история произошла в офисе - уборщица миссис Пайпер нашла труп, а затем он исчез. Миссис Пайпер берется за расследование: находит множество улик, количество трупов увеличивается, подозреваются все.Жанр: иронический детектив, спектакльРежиссер: Андрей ЖитинкинПродолжительность: 02:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCD88CA1B2A39F65A988F4979305638C2BE93A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970637   (988578) от 01.01.2016
+
+Лев Толстой - Каренин. Анна. Вронский (2005) DVDRip (2 части) (Театр им. Ленсовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа Л.Н. Толстого "Анна Каренина".
+Ставшая уже мифологической история Анны Карениной поставлена режиссёром страстно и вдохновенно. Трое главных героев раздираемы чувством долга и любовью, отчаяньем и страстью, гордыней и страданием...Производство: Россия, Театр им. ЛенсоветаЖанр: Телеспектакль, семейная драма, экранизацияРежиссер: Геннадий ТростянецкийАктеры: Владимир Матвеев, Анна Ковальчук, Олег Фёдоров, Наталья Шамина, Надежда Федотова, Михаил КарпенкоПродолжительность: 2 x ~ 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8ADFF0EFA4D9BB1D95AB2DD3AE833251649023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970647   (988492) от 01.01.2016
 
 Великие актеры. Валентин Гафт. Дома вдовца. Месье Ленуар, который... (1975-1983) DVDRip
@@ -6,7 +195,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +222,7 @@ Stromae - Racine Carree Live (2015) WEB-DL
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -148,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -174,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -203,7 +392,7 @@ Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -229,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -258,7 +447,7 @@ Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -284,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -312,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -338,7 +527,7 @@ Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -364,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -393,7 +582,7 @@ Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -419,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,33 +629,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610753   (986540) от 01.02.2013
-
-Концерт памяти Джорджа Харрисона / Concert for George (2003) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986540.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 ноября 2002-го года, в лондонском Королевском Альберт-Холле, состоялся знаменитый концерт-посвящение экс-гитаристу The Beatles Джорджу Харрисону (George Harrison). Коллеги музыканта по сцене отметили годовщину со дня его смерти грандиозным концертом, в котором приняли участие Пол МакКартни (Paul McCartney), Ринго Старр (Ringo Starr), Джеф Линн (Jeff Lynne) из ELO, Tom Petty and the Heartbreakers, Эрик Клэптон (Eric Clapton), Джулс Холланд (Jools Holland), Рави Шанкар (Ravi Shankar) и многие другие известные музыканты. Режиссером шоу был Дэвид Леланд, а Эрик Клэптон взял на себя роль музыкального руководителя действа. В 2003-м году это шоу было выпущено на DVD.
-Это мероприятие было организовано вдовой Харрисона, Оливией, и их сыном, Дхани. Организацию с музыкальной стороны взяли на себя Эрик Клэптон и Джефф Линн (друзья Харрисона и его «братья» по Traveling Wilburys). Прибыль от мероприятия, которое посетили более 5 тысяч человек , была передана в благотворительный фонд (Material World Charitable Foundation).Жанр: Концерт, рок, рок-н-ролл, классик-рокРежиссер: Дэвид ЛеландПродолжительность: 02:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E43A184F862D10BE8957B14B5A2C71D427CD5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355006   (985875) от 24.01.2020
 
 Сборник клипов - Свежий Русский Хит от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
@@ -475,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,170 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8746B805BC24D0575141779DB20080033D7B4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971501   (985686) от 03.01.2016
-
-Песня года 2015  (2016.01.01-02) HDTV [1080i-LQ] (части 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985686.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" - главный концерт страны. Участвуют все звезды!
-Каждый год в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, на любой дороге, в стороне любой песне ты не скажешь "до свидания", песня не прощается с тобой…"
-На сцене "Олимпийского" соберутся лучшие (   Читать дальше...   )Телекомпания: Россия HDЖанр: КонцертПродолжительность: 04:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAA598D86D8FF016246DD3D1133C6AC9BF65D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971308   (985476) от 03.01.2016
-
-Звёздные войны: Музыкальное путешествие (видео) / Star Wars: A Musical Journey (2005) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иэн МакДайармид показывает клипы из 6 эпизодов легендарной фантастики компании «ЛукасАртс», сопровождённые музыкой Королевского филармонического оркестра и хора.Производство: СШАЖанр: МузыкаРежиссер: Типпи БушкинАктеры: Иен МакДермид (Ian McDiarmid)Перевод: ОтсутствуетПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A798FAA59BB73D9DCF4FB8C73DC60B63CFBD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971781   (985469) от 03.01.2016
-
-VA - Зимний марафон № 217: Новогодний Хит Парад (2015-2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (03.01.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Alex Blue ft. Judith - Dance (Official Video) (00:03:20)
-02. BBX ft. Paul Mayre - Longing 4 You (Official Video) (00:03:30)
-03. Brutto - Вечірнє сонце (Прем'ера!) (00:05:07)
-04. Cream - Change (Official Video) (00:04:06)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, Шансон, House, TranceПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088145E58C425E846586F78B83C60351C3BF4525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612651   (985465) от 02.02.2013
-
-Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCAC52A633086A4243A946E05A4FE6211079E63B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971548   (985399) от 03.01.2016
-
-Легенды Ретро FM на РенТВ (2016.01.01)  SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодные фестивали в Москве и Санкт-Петербурге - это новогодний подарок от Ретро FM всем слушателям и зрителям. Очень много людей целый год работают над тем, чтобы в декабре порадовать поклонников хорошей музыки новым шоу, редкими артистами, свежими идеями. В 2015 году на «Легендах» произошло столько интересных событий, что удалось воплотить многое из того, что (   Читать дальше...   )01. ВИА "Самоцветы" - "Мой адрес - Советский Союз", "Синий иней"
-02. Bad Boys Blue - "You're a Woman"
-03. Алена Апина - "Ксюша", "Электричка"
-04. Riccardo Fogli - "Storie di Tutti i Giorni"(   Читать дальше...   )Телекомпания: РЕНЖанр: КонцертПродолжительность: 04:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3867CD706F78653F726F459531DAC9310C4731A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612657   (985283) от 02.02.2013
-
-System Of A Down - Rock in Rio [1080p] (2011) HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Концерт, Alternative metalПродолжительность: 01:45:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

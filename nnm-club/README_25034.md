@@ -1,25 +1,25 @@
-###  Публикация: 1798685   (66520) от 26.05.2025
+###  Публикация: 1789262   (68326) от 03.04.2025
 
-Skunk Anansie - The Painful Truth (2025) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
+Iron City Houserockers - Blood On The Bricks (1981) Remastered, 2025, Omnivore Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01 - An Artist Is An Artist [3:12]
-02 - This Is Not Your Life [3:25]
-03 - Shame [4:07]
-04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
+01 - Friday Night (00:03:54)
+02 - Saints And Sinners (00:04:26)
+03 - This Time The Night (Won't Save Us) (00:03:59)
+04 - Be My Friend (00:04:21)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F59106210D8E0067AC703E37588D9886AEA2AB2
+magnet:?xt=urn:btih:9E8DF57F9E5C3116630EDF477C338949913827DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799224   (66519) от 26.05.2025
+###  Публикация: 1789280   (68325) от 03.04.2025
 
-Газета | Тайны СССР №8 (185) (апрель 2025) [PDF]
+Injustice System - Collapse of Mind (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Metal>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01. Mind [00:03:41]
+02. Lack of Interest [00:03:46]
+03. On the Road [00:03:22]
+04. No God beside me [00:05:19](   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:52:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CDD0DC632C8640446F66D670B7620EF53D3992A
+magnet:?xt=urn:btih:3083B6FDC05D8421CFA29E5F3A79193E34585D44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,80 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798522   (66518) от 26.05.2025
+###  Публикация: 1789426   (68324) от 04.04.2025
 
-Книжная иллюстрация - DoodleBox - Creative Fabrica - Abstract Mandala Coloring Pages Vol.3 [AI, EPS, JPG, PDF, PNG, SVG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор изображений с мандалами в векторе и растре.Формат: AI, EPS, JPG, PDF, PNG, SVGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5347743E091ABB3C68EEB7382AF54C859178FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798510   (66517) от 26.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Camera Retro Sublimation [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с фотоаппаратами для сублимации.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A01EC5F2BBC360DD2DEC94DD517B3B7C0E47B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799196   (66516) от 26.05.2025
-
-VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+VA - The Sound of 2025, Chapter 3: London (Night Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Steen Thottrup & Kaia Mainz - Dreamers (daZZla Deep Remix) (06:14)
-02. Living Room - Fisheye (Pearldiver Deep Edit) (03:29)
-03. Calmabohain - Never Forget (03:25)
-04. Mia Lemar - Squire Of Desire (HerbLF Close To Dub Mix) (06:34)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:13:17
+01. Hårek - Tonight (F4T4L3RR0R Edit - Mixed) (04:49)
+02. PRODGY - Control (Original Mix - Mixed) (02:56)
+03. Aumak - Little Love (Lexenn Remix - Mixed) (03:13)
+04. AR7ANIS - Korhal (Original Mix - Mixed) (03:24)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:13:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
+magnet:?xt=urn:btih:74D6D8ADB42D88CF3BE8809DD689F67DA8735339
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799220   (66515) от 26.05.2025
+###  Публикация: 1789452   (68323) от 04.04.2025
 
-Газета | Тайны СССР №15 (166) (июль 2024) [PDF]
+Пресеты - DVLOP - Jason Vinson - Grandmaster Series [XMP, DCP]
 
->>Журналы
->>Другие журналы
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+Как и хороший шахматный дебют, хорошая отправная точка имеет важное значение для редактирования. Иногда игра требует агрессивности и смелости, а иногда вам захочется чего-то более классического. Тогда это всего лишь несколько ходов, прежде чем вы объявите победу. Серия Grandmaster — это именно то, что нужно. Этот пакет даст вам универсальность для быстрого и красивого (   Читать дальше...   )Формат: XMP, DCP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FF6FE8DCF29715833C954CA094E374A98098A10
+magnet:?xt=urn:btih:102385C3533D08C7465D9871B7DFF573EB3B13DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +111,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799172   (66514) от 26.05.2025
+###  Публикация: 1789557   (68322) от 04.04.2025
 
-Карен Хорни | Невротическая личность нашего времени (2005) [MP3, Игорь Писарев]
+Футбол. Женская СУПЕР-Лига. Спартак - Динамо (29.03.2025) WEBRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+4-й тур. Супер дэрби. Московские Спартак и Динамо. Классическое
+противостояние между женскими командами. В истории 3-е по счёту. В
+прошлом сезоне Димнамовки заняли только 5-е место, возможно они
+захотят занять в новом сезоне место повыше. Но у Спартака все звёзды(   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболПродолжительность: 01:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACB8A0570A14E03EAD3363EA5B4E4C258FC22A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789547   (68321) от 04.04.2025
+
+Роберт Силверберг | Мы знаем кто мы (2021) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жители Блистательного города ни в чем не испытывают нужды, город заботится о них. Единственное табу, которое соблюдают жители, никому нельзя входить в Знающую машину, иначе смерть. Когда чужестранка пришла из Фиолетовой Пустыни, желая увидеть Знающую машину, Скэг не смог ей отказать.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179697E6E9C9D4CE71D3DFF7EC563D260D0DB0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789398   (68320) от 04.04.2025
+
+Сборник | Время. События. Люди. Великие мистификации (2018) [MP3, Александр Бордуков]
 
 >>Обучающие аудиоматериалы
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-В своей работе «Невротическая личность нашего времени» (1937), ознаменовавшей отход от классической фрейдовской теории, Карен Хорни сосредотачивается не на прошлых, а на существующих в данный момент конфликтах личности и включает в сферу своего внимания социальные и культурные факторы развития неврозов.Жанр: ПсихологияИздательство: АРДИСПродолжительность: 09:15:11
+Некоторые мистификации и фальсификации настолько отчетливо демонстрируют обществу низость их создателей, что становится грустно и страшно за людей и их будущее. Не надо быть гением, чтобы украсть чужое произведение, уничтожить множество жизней или привести мир к катастрофе. Века существования человечества накопили множество таких нераскрытых обманов, коварных подмен (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: СОЮЗПродолжительность: 10:23:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B65B252703D9374F7229BB206F67826931066E4F
+magnet:?xt=urn:btih:FBA508D5D0AFE7B19BA54EFB227A410575D93402
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798733   (66513) от 26.05.2025
+###  Публикация: 1789432   (68319) от 04.04.2025
 
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-9 [JPEG]
+VA - Melon Top 100 K-Pop Singles Chart (22-03-2025) [MP3|320 Kbps] <K-Pop, Dance, Other, Rock, RnB, Asian>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>East Asian Music
+>>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600 - 4096 x 4096
+001. G-Dragon, Anderson .Paak - TOO BAD (00:02:34)
+002. ZO ZAZZ - Don`t you know(PROD.ROCOBERRY) (00:05:02)
+003. JENNIE - like JENNIE (00:02:04)
+004. G-Dragon, Taeyang, Daesung - HOME SWEET HOME (00:03:31)(   Читать дальше...   )Жанр: K-Pop, Dance, Other, Rock, RnB, AsianПродолжительность: 05:45:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75C69CFCD74CE03D86474AFCB7DB9A61A0AFD1DC
+magnet:?xt=urn:btih:BB960E0FE7C0181B2AAE47BBEF1E17F97F63B57C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798525   (66512) от 26.05.2025
+###  Публикация: 1789581   (68318) от 04.04.2025
 
-Растровый клипарт - DoodleBox - Creative Fabrica - Abstract Mandala Adult Coloring Pages 2 [AI, EPS, JPG, PDF, PNG, SVG]
+Tablacus Explorer 25.4.4 Portable [Multi/Ru] (Pre-release)
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Набор изображений с мандалами в векторе и растре.Формат: мРазрешение файлов: 4000 x 4000
+Tablacus Explorer - удобный в работе и простой в использовании файловый менеджер, позволяющий работать с двумя, либо четырьмя панелями, с возможностью создавать нужное количество вкладок на каждой. Tablacus Explorer дублирует все стандартные функции Проводника для работы с папками и файлами, дополняя их удобным представлением. Благодаря утилите процессы копирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65F9AF698DBEF2C400CA9651BDCC7C66257000AC
+magnet:?xt=urn:btih:ED6937D3F68F679ED0C58B09A0A60F0F114BA1CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +247,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798633   (66511) от 26.05.2025
+###  Публикация: 1789465   (68317) от 04.04.2025
 
-Растровый клипарт - FabriCraft - Creative Fabrica - Monstera Plant Digital Paper Patterns [PNG]
+VA - DJ MIX (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Орнаменты с изображениями монстеры.Формат: PNGРазрешение файлов: 3600 x 3600
+01. Alex Denver, Nowakowski & Fuentez - SINNER (Orginal-mix) (03:06)
+02. FaraoN & Nowakowski - Crush (Croatia Summer edit) (06:58)
+03. FaraoN - Circles (04:20)
+04. Nowakowski - Run Alone (04:54)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:46:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DF96F6D1030528A747A1FBD810C95111A259F34
+magnet:?xt=urn:btih:FA564B2B8A01B5F9F7754B1B9C2638CC7F0C3172
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,26 +276,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798626   (66510) от 26.05.2025
+###  Публикация: 1789535   (68316) от 04.04.2025
 
-Растровый клипарт - Creative Fabrica - FabriCraft - Medical Seamless Patterns [PNG]
+За Советскую Родину / Падение Кимас-озера / Поход Антикайнена (1937) WEBRip [H.264/720p]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные бесшовные орнаменты на медицинскую тему.
-Подойдет для медицинской формы в детских мед. учреждениях.Формат: PNGРазрешение файлов: 3600 x 3600
+Действие фильма происходит в 1921 году на советско-финской границе  и рассказывает о борьбе с белофиннами. Шюцкоровские отряды ворвались в Карелию, убивают советских активистов, сжигают дома...
+Фильм снят по повести Геннадия Фиша "Падение Кимас-озера".Производство: СССР / ЛенфильмЖанр: боевик, драма, военный, экранизацияРежиссер: Рафаил Музыкант, Юрий МузыкантАктеры: Олег Жаков, Петр Алейников, Николай Черкасов, Иван Чувелев, Лидия Карташова, Петр Кириллов, Николай Крючков, Иван Селянин, Павел Волков, Сергей ФилипповСубтитры: отсутствуютПродолжительность: 01:21:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEABC40B778ED1B3E2782E39C5E6D5C31484E98D
+magnet:?xt=urn:btih:EB19A48C6F2DC81EF85D497C65610432F5E82F8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,25 +303,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798736   (66509) от 26.05.2025
+###  Публикация: 1789455   (68315) от 04.04.2025
 
-Фоны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-11 [JPEG]
+Проклятие матери. Одержимая / Menjelang Ajal / Nearing Death (2024) WEB-DLRip [звук с TS] [AD]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+После смерти мужа Секар в одиночку пытается поднять на ноги троих детей. В отчаянии она обращается за помощью к местной колдунье и заключает договор с могущественным демоном, упрашивая его об одном — чтобы её дети ни в чем не нуждались.Производство: Индонезия / Rapi Films, Sky Media, Legacy PicturesЖанр: ужасыРежиссер: Хадрах Даен РатуАктеры: Шарифа Дааниш, Даффа Вардхана, Кэйтлин Халдерман, Рут Марини, Шакил Фаузи, Майкл Джеймс, Дени Сапутра, Комаруддин, Дьюи Пакис, Эльзан АзизПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:36Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD18EE1F8209D9545165517B28537899993AB9B5
+magnet:?xt=urn:btih:F4679990012292437BB1C6207B27E1B89D1A88BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +329,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798711   (66508) от 26.05.2025
+###  Публикация: 1789442   (68314) от 04.04.2025
 
-Mudslider - Eerie Visions (2025) [MP3|320 Kbps] <Progressive Thrash, Heavy, Death Metal>
+Juusenki L-Gaim II: Farewell My Lovely + Pentagona Dolls | Heavy Metal L-Gaim II: Farewell My Lovely + Pentagona Dolls | Тяжёлая артиллерия Л-Гайм: Прощай, любимая + Куклы Пентагона [1987, OVA, 1 и ...
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Chewing Dead
-02. Doppelgänger
-03. Globster
-04. Hanako-san(   Читать дальше...   )Жанр: Progressive Thrash, Heavy, Death MetalПродолжительность: 00:41:36
+Две первых OVA состоят из избранных и отредактированных сцен оригинального сериала.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Томино ЁсиюкиПеревод: VZbittenЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 1 эп. на 55 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:397E6850FE3C451CDB425B07A4398DC6F07486FA
+magnet:?xt=urn:btih:E9864FEABA65E05B7061425AF49E01BB2E1F8593
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +355,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798789   (66507) от 26.05.2025
+###  Публикация: 1788741   (68313) от 04.04.2025
 
-Deathfucker - God Devourer (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+Пожар в клубе Kiss / Todo Dia a Mesma Noite / The Endless Night (2023) WEBRip (сезон 1, серии 1-5 из 5) ViruseProject [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Calling
-02. Macabre Hallucinations
-03. Christ Crusher
-04. Pentagram Invoker(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:38:50
+Сюжет разворачивается в Санта-Марии. Группа подростков отправляется на вечеринку в популярный ночной клуб Kiss, чтобы весело провести время, выпить и потанцевать. Среди них есть несовершеннолетние, сбежавшие на танцы без разрешения родителей.
+Но тот вечер оказывается роковым. Пока молодёжь развлекается и наслаждается оглушительной музыкой, в одном из подсобных помещений (   Читать дальше...   )Производство: Бразилия / Morena FilmsЖанр: триллер, драма, криминал, детективРежиссер: Джулия Резенде, Carol MinêmАктеры: Тельмо Фернандес, Паулу Горгульу, Бьянка Байинтон, Леонардо Медейрос, Дебора Ломм, Bel Kowarick, Raquel Karro, Paola Antonini, Nicolas Vargas, Mafê Medeiros и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:709707EE1096C0C755E0B4D9D4E9D6CF68D93920
+magnet:?xt=urn:btih:069347055D30DA31FA48250C1B8E9E592775D050
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +382,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798720   (66506) от 26.05.2025
+###  Публикация: 1789376   (68312) от 04.04.2025
 
-Antropomorphia - Devoid of Light (2025) [FLAC|Lossless|image + .cue] <Death Metal>
+Антон Чехов | Великие исполнители (Том 21). Рассказы (2012) [MP3, Валентин Гафт]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Withering Stench of Hope
-02. Devoid of Light
-03. Funeral Throne
-04. In Writhing Rapture(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:41
+Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
+Валентин Иосифович Гафт родился (1935–2020) – советский и российский актёр, театральный режиссёр, поэт, писатель. Народный артист РСФСР (1984).
+Вашему вниманию предлагается аудиокнига рассказов А.П. Чехова в исполнении Валентина (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: МФГУП «Фирма Мелодия», ИД «Комсомольская правда», Сергей ГригорянПродолжительность: 00:59:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E62DC7BA6975009605172AE9A46B67AD094238AC
+magnet:?xt=urn:btih:A90495DA956C431CCB100303F90CD853FF0103D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +410,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798781   (66505) от 26.05.2025
+###  Публикация: 1789483   (68311) от 04.04.2025
 
-Necrochakal - Golgothian Orgies of Bestial Lust (2025) [MP3|320 Kbps] <Black, Thrash Metal>
+Г.Е. Рудзитис, Ф.Г. Фельдман | Химия. Учебник для 11 класса (базовый уровень) (2022) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Demonic Invasion to Gethsemane
-02. Satanas Rebirth
-03. Thorns Upon the Head of the Carrion
-04. Scapegoat Crucifixion(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:35:54
+Данный учебник — основной элемент информационно-образовательной среды учебно-методического комплекта по химии для 11 класса. В учебнике систематизированы сведения по основам общей и неорганической химии, а также химической технологии. Учебник позволяет обеспечить достижение предметных, метапредметных и личностных результатов образования в соответствии с требованиями (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EE07F0F127F48EBA01B36881836BDF6752987D8
+magnet:?xt=urn:btih:DAC807C5E1937874AFC628A90756B1EC39D6207F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +436,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799272   (66504) от 26.05.2025
+###  Публикация: 1787693   (68310) от 04.04.2025
 
-The Ossuary - Requiem for the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
+Костас / Kostas (2024) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Sacrifice (04:29)
- 02. Altar in Black (05:17)
- 03. Far from the Tree (04:57)
- 04. Wishing Well (05:04)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:43:09
+Афины, 2009 год. Костас Каритос, комиссар Убойного отдела, находится в отпуске со своей семьёй, когда в результате землетрясения обнаруживаются останки мужчины, вероятно, ставшего жертвой убийства. Это событие и убийство албанской пары возвращают Костаса к работе, и, помимо расследования, ему придется иметь дело с независимой журналисткой, которая связывает преступления (   Читать дальше...   )Производство: Италия / Rai FictionЖанр: криминалРежиссер: Милена КокоццаАктеры: Стефано Фрези, Франческа Инауди, Блу Ди Мартино, Marco Palvetti, Maria Chiara Centorami, Джулио Тропеа, Луиджи Ди Фиоре, Массимо Месчулам, Джерри Мастродоменико, Денис Фазоло и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0E8E5532EBE5AD59EFDA38E2FD3B4A44DB93C74
+magnet:?xt=urn:btih:05ED9EA47F3AB9AF95CA4FC5C30DD5FAC512C2D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +462,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799191   (66503) от 26.05.2025
+###  Публикация: 1789503   (68309) от 04.04.2025
 
-Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
+НХЛ 2024-2025. Вашингтон Кэпиталз - Каролина Харрикейнз (02.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+3 апреля 2025, четверг. 02:00 МСК. Стадион: Леново Центр (Роли, США), 18 908 зрителей (99% при вместимости 19 041)
+Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Стив Бартон (Ванклик Хилл, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9FF8EDA1BCB8C6795C65120768CB91F55F83A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789497   (68308) от 04.04.2025
+
+Fear Factory - Soul of a New Machine (1992) [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
-1995 - Twinaleblood
-1997 - Unpop
-1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
+01. Martyr
+02. Leechmaster
+03. Scapegoat
+04. Crisis(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:55:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
+magnet:?xt=urn:btih:1775CC07957D90414BDE74C7A396FCD909571E90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +518,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798669   (66502) от 26.05.2025
+###  Публикация: 1789559   (68307) от 04.04.2025
 
-These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock>
+Mudhens - Mudhens (1996) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Waiting (3:08)
- 02. Bells (7:05)
- 03. A Season In Hell (5:04)
- 04. Industrial Love Song (feat. Caroline Polachek) (3:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:47:18
+01. This San Juan    [0:04:25.27]
+02. Edinburgh    [0:04:13.00]
+03. Mercy    [0:04:32.05]
+04. Search For Heroes    [0:04:18.00](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:257461213746BFCFE249DB5E3D84B06813136A45
+magnet:?xt=urn:btih:0D7A72775F3C3482945422B4D8AEA4573A34B9F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798513   (66501) от 26.05.2025
+###  Публикация: 1789460   (68306) от 04.04.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Cherry Blossom Easter Clipart [PNG]
+Thornhill - Bodies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metalcore, Electronic>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Пасхальный клипарт с цветущей вишней.Формат: PNGРазрешение файлов: 4096 x 4096
+01. DIESEL [00:02:10]
+02. Revolver [00:04:14]
+03. Silver Swarm [00:04:33]
+04. Only Ever You [00:04:14](   Читать дальше...   )Жанр: Progressive Metalcore, ElectronicПродолжительность: 00:37:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0055D695F1174158BCA8C831F460788A2718501B
+magnet:?xt=urn:btih:07A74521DBBBF451CBB9537C6E1AF087BD2DF442
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,80 +576,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798717   (66500) от 26.05.2025
+###  Публикация: 1789424   (68305) от 04.04.2025
 
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-4 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением мандалы.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5441D06F50BBAB17D879534A696A8B22456B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798511   (66499) от 26.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Vintage Teacup Stacks Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винтажный клипарт с чайными чашками.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFF14DB6744E0C3F34291EF62586DD9E76CEC28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798651   (66498) от 26.05.2025
-
-Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental, Post Rock>
+Tornado - Black President (2025) [FLAC|Lossless|image + .cue] <Thrash, Glam>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Mystical Plosives (0:56)
- 02. Aerial Troubles (3:21)
- 03. Melodie Is A Wound (7:37)
- 04. Immortal Hands (6:25)(   Читать дальше...   )Жанр: Indie Rock, Experimental, Post RockПродолжительность: 00:59:36
+01. Black President
+02. I, Individual
+03. 911 First Responder (FDNY)
+04. Flesh Crawling Nightmare(   Читать дальше...   )Жанр: Thrash, GlamПродолжительность: 00:37:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76EDC78F3C6257EA404819A76A4A8D55D3B3F81B
+magnet:?xt=urn:btih:97806BF495472EA254C7856C7049AA282C38E079
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,25 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798721   (66497) от 26.05.2025
+###  Публикация: 1789420   (68304) от 04.04.2025
 
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-6 [JPEG]
+VA - Ori Uplift - Uplifting Only Episode 634 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+01. Tycoos & AYDA & Lyd14 - Made Of Love (Intro Edit)
+02. William Silva - Favourite Lullaby (Thomas Nikki Remix)
+03. Mhammed El Alami & Josie Sandfeld - Memories
+04. Pinkque & Roxanne Emery - Better Than This (ILYIN & Darix Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3737DFC34A37BADDE7BE107ECE3337EAB8CC792
+magnet:?xt=urn:btih:ABB342E59418F2C13E73326E3BDF07947D60CE91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,25 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798499   (66496) от 26.05.2025
+###  Публикация: 1789276   (68303) от 04.04.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Princess Clipart [PNG]
+Nightwish - Elan (2015) (Singles) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Power Metal>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображениями принцесс.Формат: PNGРазрешение файлов: 4096 x 4096
+01 - Elan (Album Version) (04:49)
+02 - Sagan (04:48)
+03 - Elan (Alternative Version) (04:23)
+04 - Elan (Radio Edit) (04:05)Жанр: Sympho Power MetalПродолжительность: 00:18:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B27B6A6B779AEBBBD16D9F2BCBA4543AC1ED2E8
+magnet:?xt=urn:btih:FF392143174B25ECAA490780A20E5591EBC14111
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,25 +663,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798712   (66495) от 26.05.2025
+###  Публикация: 1789500   (68302) от 04.04.2025
 
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-3 [JPEG]
+Larry Carlton - Plays The Sound Of Philadelphia (2010) [FLAC|Lossless|tracks + .cue] <Jazz, Funk / Soul>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+01. Could It Be I'm Falling In Love    [0:04:29.23]
+02. Back Stabbers    [0:03:31.45]
+03. If You Don't Know Me By Now    [0:03:02.26]
+04. Drownin' In The Sea Of Love    [0:03:30.31](   Читать дальше...   )Жанр: Jazz, Funk / SoulПродолжительность: 00:39:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36E7ADC601249886A648931156CE99F6D8D6E0F7
+magnet:?xt=urn:btih:1068EB02F292F2F9220F0A07B9E11A65F00AF945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789374   (68301) от 04.04.2025
+
+Антон Чехов | Попрыгунья (2008) [MP3, Мария Петрова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
+Рассказ А.П. Чехова «Попрыгунья», который сам он называл «маленьким чувствительным романом для семейного чтения», сразу после выхода в 1892 году наделал много шума среди читающей публики (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B603F3E9DD4DECC76C2A4FD204CA25B5D58A768
 ```
 
 https://mybot314.ru/tekegram_catalog/

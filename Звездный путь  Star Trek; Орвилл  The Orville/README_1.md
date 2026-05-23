@@ -1,3 +1,29 @@
+###  Публикация: 1640446   (188326) от 15.09.2023
+
+Звездный путь: Странные новые миры / Star Trek: Strange New Worlds (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-10 из 10) NewComers
+
+>>Зарубежные сериалы
+>>Звездный путь / Star Trek; Орвилл / The Orville
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+С тех пор, как неутомимый и бесстрашный капитан Кристофер Пайк (Энсон Маунт) смог заглянуть в будущее и узнал о своей трагической судьбе, прошло не так много времени. Командир исследовательского звездолета «Энтерпрайз» решил на время отойти от дел, чтобы найти в себе силы принять собственную участь. Но вынужденный отпуск продлился недолго — в его отсутствие старпом (   Читать дальше...   )Производство: США / CBS Television Studios, Roddenberry Entertainment, Secret HideoutЖанр: фантастика, боевик, приключенияРежиссер: Крис Фишер, Аманда Роу, Энди АрмаганянАктеры: Мелисса Навия, Энсон Маунт, Итан Пек, Джесс Буш, Кристина Чонг, Ребекка Ромейн, Celia Rose Gooding, Бабс Олусанмокун, Андре Ким, Брюс ГоракПеревод: Многоголосый профессиональный (NewComers)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: ~00:53:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB47FF9E85E2449DB3DE3C72671E53EFD59AB6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433453   (155912) от 21.12.2020
 
 Звёздный путь: Дискавери / Star Trek: Discovery (2018) BDRemux [H.264/1080p] (сезон 2, серии 1-14 из 14) LostFilm
@@ -6,7 +32,7 @@
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

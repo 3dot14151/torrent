@@ -1,3 +1,81 @@
+###  Публикация: 1446528   (1026495) от 13.03.2021
+
+AVG Cleaner v5.5.0 Pro [Ru/Multi] - Ускорение телефона, Очистка бесплатно
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+C AVG Cleaner ваше устройство Android будет работать быстро и без сбоев, хранить больше данных и дольше обходиться без подзарядки. AVG Cleaner - это интеллектуальный инструмент управления и оптимизации, который используют более 50 млн пользователей.Тип издания: Пиратка (Pro)Релиз состоялся: 13 марта 2021 г.Разработчик: AVG Mobile appsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF92B504562B4C8FFF91C8ACBFECF7121307CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434271   (1026476) от 13.03.2021
+
+Avast Cleanup v5.5.0 Premium [Ru] - очистка, ускорение и оптимизация
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Освободите в памяти дополнительное место, о доступности которого вы даже не знали! Avast Cleanup - это высокоэффективное приложение для очистки от кэша и ненужных данных для устройств с ОС Android. Удалите остаточные файлы и неиспользуемые приложения простым касанием, чтобы увеличить скорость работы и производительность телефона. Avast Cleanup оптимизирует производительность (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 9 марта 2021 г.Разработчик: Avast SoftwareПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9047971DDB0B2721C33A8E379893AF15BD5A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446462   (1026302) от 14.03.2021
+
+Vanced YouTube Music v4.18.50 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Хотите получить доступ к нашей музыкальной коллекции? Установите приложение YouTube Music. В нем можно искать любимые треки и узнавать новых исполнителей с помощью наших рекомендаций. Система будет предлагать вам отдельные композиции и плейлисты с учетом ваших вкусов и местоположения, а также популярности контента.Тип издания: Пиратка (Premium / Non-Root)Релиз состоялся: 11 марта 2021 г.Разработчик: Google LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3306AF0AFC7F514A1072C3406EAD74B8CA22FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455094   (1025887) от 17.03.2021
 
 Perfect Player IPTV v1.5.9.2 [Ru/Multi]
@@ -6,7 +84,7 @@ Perfect Player IPTV v1.5.9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +113,7 @@ WiFi Analyzer Pro v3.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +139,7 @@ Speed camera radar / Радар детектор v3.1.29 [Ru/Multi] (обнов�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +165,7 @@ Piano Ear Training Pro ver.Improved UI (118) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -144,7 +222,7 @@ TiviMate IPTV Плеер v2.8.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -173,7 +251,7 @@ Map Marker v2.19.1 [Ru/Multi] - создание собственных мето
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -199,7 +277,7 @@ Instander 11.0 [Ru/Multi] – неофициальный клиент Instagram 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -225,7 +303,7 @@ Radardroid Pro v3.73 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -251,7 +329,7 @@ Cinema HD TV v2.3.6.1 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +355,7 @@ BackCountry Navigator TOPO GPS v7.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +381,7 @@ VOA Learning English v4.9.1 [En] - Practice listening everyday
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -331,7 +409,7 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +435,7 @@ Rock Identifier v1.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +461,7 @@ Picture Bird v2.1 [Ru/Multi] - Bird Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -410,7 +488,7 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +515,7 @@ Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслаблени
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +541,7 @@ Car Radio v1.1.3 [En] - for Android Stereo Head Units
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +595,7 @@ YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -569,7 +647,7 @@ AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -595,7 +673,7 @@ ClockWork Tomato v3.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,84 +685,6 @@ ClockWork Tomato v3.7.0 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:089D3FA3DFCE39A7DA3F31732FCC8D791F53663B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353090   (1023716) от 29.03.2021
-
-AirDroid v4.2.6.6 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023716.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirDroid - быстрое, а главное бесплатное приложение, которое позволяет управлять Вашим Android устройством без проводов из Вашего браузера. С его помощью вы сможете передавать файлами между вашими устройствами с большой скоростью, используя при этом свою внутреннюю сеть wi-fi. Так же вы сможете не только передавать файлы а и полностью управлять своим смартфоном, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28.01.2021Разработчик: SAND STUDIOПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037DE77CEA7E8F0C2868B30AC48EB41EE90BD10E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458756   (1023656) от 30.03.2021
-
-Jeejen 3.1.20 Mod by Martin H3 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jeejen - отличный минималистичный лаунчер, с большим интерфейсом для удобства использования. Этот лаунчер отлично подойдет как для пожилых, так и для людей с проблемами со зрением.Тип издания: Оригинал (Эксклюзив) + ModРелиз состоялся: 08.12.2018Разработчик: JeejenПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8361C6B7CE154B6B66C84FD205BD7CBD469F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459002   (1023441) от 31.03.2021
-
-Jasi Patcher 4.11 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jasi Patcher — патчер для приложений. Программа для установки патчей к различным приложениям и играм для Андроид. С помощью данной утилиты любой пользователь сможет избавиться от проблем с разнообразными лицензиями и оповещениями о пиратских копиях приложений. Все это делается при помощи широкого функционала возможностей утилиты. Простой пользовательский интерфейс (   Читать дальше...   )Тип издания: ЭксклюзивРелиз состоялся: 02.06.2020Разработчик: Jasi2169Поддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DF0C42AC927F71F33C8E2097C81325EF184120
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1801346   (15045) от 10.06.2025
+
+Ginga Tetsudou no Yoru | Night on the Galactic Railroad | Ночь на Галактической железной дороге [1985, Movie] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда-то давно, жил молодой мальчик по имени Джовани, жизнь которого была заполнена трудностями и отчаянием. Он учился в школе, и в дополнение этого каждый день рано утром и после школы работал, чтобы заработать достаточно денег и прокормить свою больную мать. Поскольку у него не было времени играть, его однокашники постоянно дразнили...
+Но его жизнь скоро измениться... (   Читать дальше...   )Производство: Group Tac / グループ・タックЖанр: приключения, фэнтези, драмаРежиссер: Сугии ГисабуроПеревод: Е.КлавдиенкоЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 107 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF74E0373A547F2B335F2E8D539AE5A2737E781A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731564   (14499) от 15.06.2025
+
+Beyblade Burst QuadStrike | Бейблэйд Взрыв — Квадроудар [2023, TV, 15 из 26 эп.] WEB-DL 1080p eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сцена подготовлена для турнира-маскарада, но Темный принц - не единственная красавица на этом балу! Выходит Блейдер в маске, известная как Квадра. Владея своей стихией - Молнией Пандорой, Квадра побеждала всех врагов, которые попадались ей на пути. Тем временем брат Квадры, Пакс, занят изучением стихийных сил, исходящих из ряда таинственных руин неподалеку. Может, (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоОзвучка: OriginalЯзык озвучки: Английский и РусскийСубтитры: Английские и Русские (начиная с 15 серии)Продолжительность: 26 эп. по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783E08BE99D262B21D783CA20734CD8B3A6ED275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788869   (14357) от 17.06.2025
+
+Непонятый мастер ателье | Ателье Мейстер | Kanchigai no Atelier Meister | The Unaware Atelier Meister [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодого авантюриста, парнишу по имени Курт, выгоняют из отряда Героя, ведь выясняется, что в бою-то он особо ничего и не умеет.
+Теперь Курту ничего не остаётся, кроме как брать сомнительные задания, вроде ремонта стен и добычи минералов, но как раз именно тут и раскрывается его настоящий потенциал! А всё дело в том, что небоевые навыки паренька, вроде готовки, строительства, (   Читать дальше...   )Производство: Япония / Студия EMT SquaredЖанр: Приключения, фэнтезиРежиссер: Исии ХисасиЯзык озвучки: Русский (VF-Studio), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3269C2FCBDD4C84799D3B79ACE267D0C0A9D2F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790624   (14162) от 19.06.2025
+
+Начало после конца [ТВ-1] | Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? | The Beginning After the End [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Король Грей, могущественный правитель, обладал всем, что только можно пожелать: силой, богатством и властью. В мире, где военное мастерство ценилось превыше всего, он был бесспорным лидером. Однако за вершиной могущества скрывалась пустота. Одиночество стало неотъемлемой частью его существования, лишив короля цели и воли к жизни.
+Но судьба предоставила ему второй (   Читать дальше...   )Производство: Япония / Студия Studio A-CATЖанр: Приключения, фэнтезиРежиссер: Мотонага КэйтароЯзык озвучки: Русский (AniLibria.TOP); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A10E5988CBDA884B98675949B1EF0F48575669A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789384   (14058) от 20.06.2025
 
 Соседнему королевству продали святую | Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru | The Too-Perfect Saint [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +113,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +140,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +193,7 @@ Isshun de Chiryou Shiteita no ni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Y
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +246,7 @@ Ore wa Seikan Kokka no Akutoku Ryoushu! | Я злoй лoрд мeжгaлaктич
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +272,7 @@ Katainaka no Ossan, Kensei ni Naru | From Old Country Bumpkin to Master Swordsma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +404,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +430,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +483,7 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +509,7 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +562,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +616,7 @@ Sentai Dai Shikkaku 2 | Go! Go! Loser Ranger! 2 | Боевой отряд «По
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -537,7 +644,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +670,7 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,111 +682,6 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBF03B1752B2B58B263F5EF58801F76D011927E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804675   (11323) от 16.07.2025
-
-Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой, но уже известный каллиграф Сэйсю Ханда впал в грех гордыни – и ударил старого мастера, прилюдно заявившего, что в его внешне красивых иероглифах не хватает души. Так Ханда-сан стал изгоем в мире высокого искусства, а строгий отец отослал его на пустынный остров в Восточно-Китайском море, чтобы тишина и свежий морской воздух прочистили непутевому сыну мозги (   Читать дальше...   )Производство: Kinema CitrusЖанр: комедия, повседневностьРежиссер: Татибана МасакиОзвучка: OriginalЯзык озвучки: Японский и РусскийПродолжительность: 12 эп. по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40670BDD86FD45FF8C144CF998F0EA7E0E359AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807264   (11098) от 18.07.2025
-
-Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант общежития богинь [2021, TV, 10 из 10 эп.] BDRip 1080p HEVC 10-bit raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нагумо Коуши оказывается бездомным, без гроша в кармане и без родственников, которые могли бы позаботиться о нем. Когда он валялся на улице, его подбирает девушка по имени Минерва, и предлагает стать комендантом общежития, полного проблемных студенток женского университета.
-Окруженный своеобразными и трудными разновозрастными особами женского пола, Коуши начинает (   Читать дальше...   )Производство: asreadЖанр: кoмедия, повседневность, эттиРежиссер: Накасигэ СюнсукэПеревод: AniLibriaОзвучка: Original (Commentary) (ep. 01, ep. 10)Язык озвучки: Японский, Английский и РусскийСубтитры: Английские (Полные и Надписи) и Русские (Полные и Надписи)Продолжительность: 10 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B8FD9F58520C743BE0664555E066D437C113A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807261   (11097) от 18.07.2025
-
-Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, Movie] BDRip 1080p 10-bit raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11097.jpg" />
-</div>
-
-
-###  Подробнее
-
-В один прекрасный день по Земле пронёсся ветер, унёсший воспоминания каждого человека на земле. Люди забыли абсолютно всё, даже способность к общению. Забыв все блага цивилизации, в одно мгновение, мир опустился до первобытного уровня. Однако один человек сумел избежать катастрофы - прикованный к инвалидной коляске Джонни, подвергшийся многочисленным экспериментам (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: приключения, фантастика, драмаРежиссер: Ямадзаки КадзуоПеревод: Чупахин ДаниилЯзык озвучки: японский, русский, английскийСубтитры: русскиеПродолжительность: 80 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F3C86CFD80EB1206631CF64D531682E223854B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807178   (11065) от 18.07.2025
-
-Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru You ni Natta Ken ni Tsuite | Bogus Skill «Fruitmaster» | Парадоксальный навык «Мастер фруктов» [2025, TV,  ...
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11065.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где фрукты даруют навыки, Лайту, который мечтает стать авантюристом, достаётся самый бесполезный - навык Мастера фруктов. Второй попытки не будет, за жизнь можно съесть только один плод, иначе тебя ждёт смерть. Тем временем его подруга детства Лена быстро достигает S-ранга. Лайт случайно съедает второй фрукт, выживает и узнаёт, что истинная суть Мастера фруктов (   Читать дальше...   )Производство: Asahi ProductionЖанр: приключeния, фэнтeзи, экшенРежиссер: Кимура РюитиПеревод: CrunchyRollЯзык озвучки: Японский и РусскийСубтитры: Английские ASS(int) (Полные и Надписи) и Русские ASS(int) (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB85FE4A4FAD69059C49E284CCD6CA6666C4E117
 ```
 
 https://mybot314.ru/tekegram_catalog/

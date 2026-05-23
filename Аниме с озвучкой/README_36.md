@@ -1,3 +1,108 @@
+###  Публикация: 1582330   (322558) от 09.10.2022
+
+Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий Джек: Адский ветер [1990, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В потрёпанной землетрясением, переживающей тотальный кризис Японии, жестокие банды мотоциклистов топят страну в насилии. Однако человек по имени Жестокий Джек противостоит этому аду. Его методы соответствуют времени: насилие Джек вышибает насилием.Производство: Studio 88 / スタジオ88, DAST CorporationЖанр: приключения, эротика, триллерРежиссер: Вада ТакуяПеревод: SageЯзык озвучки: японский, русский, английскийСубтитры: русскиеПродолжительность: 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D489207D39C2A7C3180552EBB0CD6E76ED295F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582157   (321859) от 28.11.2012
+
+Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] BDRip 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вселенское равновесие нарушено. Сказочная страна Земноморье в опасности. Мир волшебства на грани исчезновения. Драконы, обитающие в Западном пределе, неожиданно появляются на востоке, во владениях людей. Верховный маг Сокол (истинное имя — Гед) отправляется искать первопричину беды и встречает Аллена, принца Энлада. Аллен совершил тяжелейший грех: убил отца и бежал из родного края, преследуемый тенью. Вдвоем они прибывают в столицу — Норт Таун. Два путешественника находят пристанище в доме Белой Дамы — Тенар, старинной знакомой Геда. Еще будучи девочкой, Тенар была верховной жрицей — хранительницей темных Гробниц Атуана. После того, как Гед восстановил Кольцо Эррет-Акбе из Гробницы, он также освободил Тенар, показав ей неизвестный мир свободы и света...Жанр: Приключения, фэнтези, драмаРежиссер: Миядзаки Горо / Miyazaki Goro / 宮崎吾朗Актеры: Джуничи Окада, Аой Тешима, Бунта Сугавара, Юко Танака, Теруюки Кагава, Джан Фубуки, Такаши Найто, Мицуко Байсё, Юи Нацукава, Каору КобаяшиПеревод: Дублированный, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 01:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48ADFAF446C80A396C7CA58D2181C2E83FE621DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312988   (319990) от 17.10.2019
+
+Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорда Эль-Меллоя II [2019, TV + Special] [13+1 из 13+1] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С незапамятных времён бок о бок с людьми втайне существует Ассоциация магов — общество чародеев, постигающих загадки мира за спинами у несведущей публики. Однако даже этим магам не чуждо ничто человеческое, и среди них также нередки зависть, распри и политическая борьба за власть. Подобные преступления нередко выпадает расследовать Вейверу Вельвету, ныне более известному (   Читать дальше...   )Производство: Япония, TROYCAЖанр: Мистика, Сверхъестественное, Фэнтези, ПриключенияРежиссер: Като МакотоЯзык озвучки: Японская и русская
+1) дубляж от ТО "Студийная Банда"Субтитры: надписи, неотключаемыеПродолжительность: 14 эп. по ~24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC440184C06988C454223CEBBBDD87FCD80603F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421239   (319170) от 04.11.2020
+
+Tamayomi | Тамаёми [2020, TV, 12 из 12] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В средней школе команда питчера Ёми Такэды не смогла далеко продвинуться в чемпионате по бейсболу, так как у кэтчера не получалось поймать коронную «волшебную подачу» Ёми. Девочка решила бросить бейсбол и поступила в старшую школу Синкосигая, где даже не было собственной команды. Но оказалось, что в этой школе учится Тамаки Ямадзаки — подруга детства Ёми, вместе (   Читать дальше...   )Производство: Япония, Studio A-CATЖанр: Повседневность, спортРежиссер: Фукусима ТосинориЯзык озвучки: Русский (профессиональный многоголосый) - Студийная БандаПродолжительность: 12 х ~ 00:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346259E9E17A843F1DDE0F554FA1F19ABC965269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421244   (317008) от 05.11.2020
 
 Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020, TV, 12 из 12] WEBRip 720p raw+rus
@@ -6,7 +111,7 @@ Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +164,7 @@ Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +190,7 @@ Pokemon: Advanced Battle (8 Season) / Покемон: Новое Сражени�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +216,7 @@ Mnemosyne: Mnemosyne no Musume-tachi / Rin: Daughters of Mnemosyne / Дочер�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +244,7 @@ Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +272,7 @@ Meitantei Conan | Detective Conan | Детектив Конан. Фильмы и
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +298,7 @@ Triage X / Искусственный отбор [2015, TV, 10 ep] BDRip Hi10p 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +325,7 @@ Tears to Tiara / Слёзы Тиары / Расколотая Тиара [2009, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +353,7 @@ Fune o Amu | Fune wo Amu | Мы создаём корабль | Великое �
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +379,7 @@ Dragon Ball Super | Драгон Болл Супер [2015, TV, 46 из 131 эп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +405,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +431,7 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +457,7 @@ Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +483,7 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +509,7 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +535,7 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +561,7 @@ Ninja Senshi Tobikage / Ninja Warrior Tobikage / Ниндзя-воин Тоби�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +588,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт девочек-волшебни
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +614,7 @@ Sunohara-sou no Kanrinin-san / Госпожа заведующая общежи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +642,7 @@ Xenosaga: The Animation | Ксеносага [2005, TV, 12 эп.] DVDRip 480p ra
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +668,7 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,112 +679,6 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E08411BCEA78F9373FC082DC70854486AF67AC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335412   (286904) от 02.11.2019
-
-Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в далекой-далекой галактике... человечество вышло за пределы галактики и расселилось по другим планетам. Организация, называющая себя "Крушители", согласна взяться за любую работу. Нет-нет, не подумайте, это не пираты или какие другие плохие ребята, они хорошие, это просто те, кто возьмется за такие задания, от которых уже отказались другие. (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастикаРежиссер: Ясухико ЁсикадзуПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 132 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41CB545F9DB06511F2178B43A1A9C18B7141227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335410   (286903) от 02.11.2019
-
-Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая лисичка Сэнко-сан! [2019, TV, 12] HDTV 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день славного парня Накано проходит по одному сценарию. У него практически никогда нет свободного времени. Вся его жизнь — это сплошная работа. Герой работает в огромной корпорации обычным клерком. Такая жизнь кажется ему скучной и однообразной. По возвращению домой на его плечи падают домашние заботы. Но молодой человек не перестает верить в настоящую любовь. (   Читать дальше...   )Производство: Япония, Dogakobo / 動画工房Жанр: комедия, романтика, повседневностьРежиссер: Косида ТомоакиПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A4FA2AAC91DC850CECF5158910323E5E95AF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335621   (285226) от 03.11.2019
-
-Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в далекой-далекой галактике... человечество вышло за пределы галактики и расселилось по другим планетам. Организация, называющая себя "Крушители", согласна взяться за любую работу. Нет-нет, не подумайте, это не пираты или какие другие плохие ребята, они хорошие, это просто те, кто возьмется за такие задания, от которых уже отказались другие. (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастикаРежиссер: Ясухико ЁсикадзуПеревод: русские субтитрыЯзык озвучки: Японский, английский и русский
-Многоголосая, студияПродолжительность: 132 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D2C9DD07935F5BB89345C01B17642ACFFF2A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263758   (283844) от 21.11.2018
-
-Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёные обнаружили субстанцию, которая способна напрямую взаимодействовать с человеческим мозгом. Оказалось, что эта субстанция, названная «экзотическая материя» с древних времён оказывала влияние на прогресс человечества. Вскоре после открытия началась борьба среди могущественных наций и гигантских корпораций. Организации по всему миру стали тайно пытаться использовать (   Читать дальше...   )Производство: Япония / CraftarЖанр: Детектив, фантастикаРежиссер: Сакураги Юхэй (Yūhei Sakuragi)Язык озвучки: Русский (Xelenum, одноголосный)Субтитры: ОтсутствуютПродолжительность: 11 эпизодов, 25 мин./серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E396EABDB35870299C85178723C510EF8B03751D
 ```
 
 https://mybot314.ru/tekegram_catalog/

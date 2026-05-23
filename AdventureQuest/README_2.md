@@ -1,3 +1,107 @@
+###  Публикация: 1847129   (1051976) от 10.01.2026
+
+Island Notes (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+После крушения яхты вы и ваши гости оказались в ловушке на таинственном острове. Выживать в одиночку или сплотиться для общего спасения? Игра сочетает романтику, выживание, строительство, фермерство, рыбалку, приручение питомцев и другие элементы, предлагая уникальное приключение.Тип издания: RepackРазработчик: KangBaoGameЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Немецкий, Корейский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E182FFF696CC78320EF5ED2A922EFBA1DA98C403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847211   (1051935) от 11.01.2026
+
+Flushed (2025) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Открой двери, усомнись в реальности. Ты просыпаешься в заброшенной психиатрической больнице. Как ты сюда попал? Ты не знаешь. Но одно ясно: тебе нужно выбраться отсюда. Первый ключ лежит рядом - найти его просто, но настоящее испытание только начинается. Переступив порог, ты оказываешься перед тёмным и зловещим жилым домом. Flushed - это игра от первого лица в жанре (   Читать дальше...   )Тип издания: RepackРазработчик: Mehmet kılınçЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F17C4FC00B2F05B7A4BC212FBECE8727D0047B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847212   (1051934) от 11.01.2026
+
+Chiral (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В Chiral, научно-фантастической психологической игре-головоломке ужасов/комедии от первого лица, вы возьмете на себя роль бестелесного мозга в банке, в паре с цифровым компаньоном ИИ. Вместе вы пройдете лабиринт головоломок с зеркалами, лазерами и гравитацией, которые бросят вызов вашему пространственному мышлению.Тип издания: RepackРазработчик: The Lonely Game DevЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F637B1C977A80F16AEBE45B6EFFEAD3B5FA2A563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846799   (1051624) от 09.01.2026
+
+Onirism (2025) [Ru/Multi] (Build 21313783) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к Кэрол в волшебном приключении, чтобы найти ее потерянную плюшевую игрушку Банбана. Используйте причудливые гаджеты и дикое оружие, отправляясь в захватывающее путешествие по фантастическим мирам, где вы будете сражаться с хитрыми и яркими противниками в захватывающих, напряженных боях!Тип издания: RepackРазработчик: Crimson TalesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505587FF95F4ABA3A6ECB835D8C5270FBEA88BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846805   (1051618) от 09.01.2026
 
 Emissary Zero (2025) [Ru/Multi] (1.2.3) Scene Tenoke [VR]
@@ -6,7 +110,7 @@ Emissary Zero (2025) [Ru/Multi] (1.2.3) Scene Tenoke [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Isopod: A Webbed Spin-off (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ DREAMOUT (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Scarred (2025) [Multi] (1.25) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 21053667) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0332) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The House in Fata Morgana (2016) [Ru/Multi] (1.3it) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Fuzz Dungeon (2021) [En] (1.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ JEF (2020) [En] (1.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Heroes of Loot 2 (2016) [En] (1.5.2b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Panicore (2024) [Ru/Multi] (1.3) Repack FitGirl [Supporter Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Panicore (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Uncanny Tales: 1992 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Fragile Reflection (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Mourningwood Lodge / 欢迎来到林葬屋 (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Misty Judgment / 迷雾审判 (2025) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:567A4A4A0D921B77F525C8EA1BB3DBE3FFF2E172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843508   (1049373) от 20.12.2025
-
-The Artifact Protocol (2025) [Ru/Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы не раскрываете тайну... вы переживаете её заново! Протокол Артефакта - это психологический хоррор от первого лица, где каждый артефакт затягивает вас в последние мгновения чужой жизни. Вы играете за Энтони, бывшего солдата, оказавшегося в тюрьме и вынужденного участвовать в засекреченной программе испытаний. Вам обещана свобода, если сможете выжить. Один за другим (   Читать дальше...   )Тип издания: RepackРазработчик: Liam ButlerЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAFF32C9C54CF346B594C0F2039AFF5F3758FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843501   (1049372) от 20.12.2025
-
-Dead In Bermuda (2015) [Ru/Multi] (1.1c v2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра о выживании с элементами менеджмента, RPG и приключения, в которой вы возглавляете группу из 8-ми выживших при крушении самолета на незнакомом острове. Распределяйте задачи между вашими выжившими, накапливайте опыт и развивайте свои навыки выживания, изучайте и создавайте новые предметы для вашего лагеря, исследуйте остров, находите ресурсы и разгадайте тайны (   Читать дальше...   )Тип издания: LicenseРазработчик: Ishtar GamesЖанр: Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A790AD6672000877E889C3AB954B1F50B838318A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843507   (1049371) от 20.12.2025
-
-Gravewood High (2021) [Ru/Multi] (1.0/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gravewood High - игра в жанре стелс-хоррора с разрушаемостью окружения и реиграбельностью за счёт генерируемого при каждом прохождении окружения. В школе Gravewood High таинственным образом исчезли некоторые ученики, но никто из взрослых этого даже не заметил. Попав туда, вы понимаете, что это одна большая ловушка и вам необходимо найти из неё выход.Тип издания: LicenseРазработчик: HeroCraft PCЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3532A272171F3B289CA11334F1CF90A358AFF018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843497   (1049370) от 20.12.2025
-
-Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приключение в стиле фэнтези, вдохновленное работами студий Ghibli и Chizu, в котором Лили и Сади придется научиться работать сообща, чтобы пройти все испытания. Лили твердо решила, что никогда не пойдет по стопам погибшей от древнего зла матери и не станет стражем. Но однажды ей встретился Сади, ученик монахов, которому нужна была помощь стража, чтобы развеять (   Читать дальше...   )Тип издания: LicenseРазработчик: MarsLit GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СпортЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC636FE42F8D72F8E2C2E882D61298B7EF1D003C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1837397   (256742) от 16.11.2025
+
+Little Witch in the Woods (2022) [Multi] (1.0) Scene SKIDROW
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Little Witch in the Woods позволяет окунуться в жизнь девочки - ученицы ведьмы, которая отправляется на исследование странного леса, помогая его обитателям. В адвенчуре присутствует глубокая сюжетная линия, а также реализована пиксельная графика, есть многообразие мероприятий и возможность провести интересно досуг. Героиня - Элли, которая учится магии.Тип издания: SceneРазработчик: SUNNY SIDE UPЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Корейский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Корейский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39A68D800BA4CB12D3ED9FE3817661CEFA7B5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476306   (255912) от 14.11.2025
+
+Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в ностальгию с тактической ролевой игрой, вдохновением для которой послужили самые выдающиеся классические представители жанра. Отправляйтесь в увлекательное путешествие с уникальными персонажами и погрузитесь в захватывающую историю. Вы можете нанять до 14 персонажей с уникальными способностями и победить с их помощью свой самый ужасный кошмар в эпических (   Читать дальше...   )Тип издания: LicenseРазработчик: Makee, Forever Entertainment S. A.Жанр: jRPG, Tactical RPG, Adventure, StrategyЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89EECF218FFD1E37DAC123460409CAB0659B4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836790   (255662) от 12.11.2025
+
+Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В роли единственного выжившего из Убежища 111 вам предстоит отправиться в путешествие по миру, испепеленному ядерной войной. Опасности поджидают на каждом шагу, а каждое решение имеет свои последствия. Стройте, восстанавливайте и покоряйте Пустошь - так, как захотите. Добро пожаловать домой.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD9D6E2796840F184C0A0294338D97E01BDC5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626291   (255177) от 14.04.2023
 
 Wartales (2021) [Ru/Multi] (1.0.25233) Repack DjDI
@@ -6,7 +84,7 @@ Wartales (2021) [Ru/Multi] (1.0.25233) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Minecraft Legends (2023) [Ru/Multi] (11023230) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Star Ocean: The Divine Force (2022) [Multi] (01.01/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Tiny Tina's Wonderlands (2022) [Ru/Multi] (10922058/dlc) Repack DjDI [Chaotic Gr
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Venetica (2009) [Multi] (1.0.3) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Wytchwood (2021) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.6.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complet
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.0.49820) Scene Fairlight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (Build 20761750) Repack Let's�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Diablo III/3 [Multi9] (L) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (Build 20347223) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Atelier Resleriana: The Red Alchemist & (and) the White Guardian (2025) [Multi] 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +604,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Mortal Sin (2023) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Sunless Sea (2015) [En] (2.2.11.3212/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Sunless Sea - это приключенческий rpg хоррор, в кот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BE2ED7D7F007FD7A068661ECC7EC92770F193D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327883   (252171) от 18.05.2023
-
-The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2012) [Ru/Multi] (3.5.0.26g) License GOG [Enhanced Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252171.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ведьмак 2: Убийцы королей», вторая часть приключений профессионального охотника на монстров Геральта из Ривии, разворачивает зрелую, философскую историю - продолжение одной из наиболее детально проработанных ролевых игр, когда-либо выходивших для ПК. Пришло время невиданного хаоса. Могущественные силы сталкиваются в борьбе за власть и величие. Северные королевства (   Читать дальше...   )Тип издания: LicenseРазработчик: CD Projekt REDЖанр: Ролевая игра, Экшны, ФэнтeзиЯзык озвучки: Русский, Польский, Английский, Немецкий и другиеЯзык субтитров: Русский, Польский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Польский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC171828C48B9702D3366D7D1E398499D3C98ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634564   (252123) от 21.05.2023
-
-Greedventory (2023) [Multi] (1.0.2) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greedventory - это захватывающий ролевой экшен, который проверит ваши навыки и нервы. Это не типичное путешествие героя - вам понадобятся молниеносные рефлексы и острый ум, чтобы выжить в мире, где всем правит Жадность. Пройдя через мир, полный магических артефактов и древних сокровищ, вы столкнетесь лицом к лицу с безжалостным братством, которое стремится заполучить (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Tower BasementЖанр: Ролевая игра, СраженияЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE59D914C648457A989E1BEA3F71C73CB98D1E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635688   (252004) от 27.05.2023
-
-The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064/dlc) Repack DjDI [Precious Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252004.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Lord of the Rings: Gollum - это официальная адаптация, основанная на литературных произведениях Дж. Р. Р. Толкина. Ему больше нечего терять… Как далеко он зайдет, чтобы вернуть свою Прелесть? Действие разворачивается одновременно с событиями, описанными в «Братстве кольца». The Lord of the Rings: Gollum - это приключенческая игра и эпический интерактив. В роли (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Action, Adventure, RPGЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64187B21493691E857CD54F8C10E749D28B8A6EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

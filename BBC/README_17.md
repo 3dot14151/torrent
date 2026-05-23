@@ -1,3 +1,29 @@
+###  Публикация: 1046773   (550744) от 28.08.2016
+
+BBC.Империя царей: Россия при Романовых с Люси Уорсли / Empire Of The Tsars: Romanov Russia With Lucy Worsley (2016) HDTVRip[H.264/720p-LQ] (1-3 серии из 3)
+
+>>След.
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Люси Уорсли отправляется к истокам рода Романовых, династии, которая правила Россией больше трёх столетий. Она расскажет нам о таких неординарных личностях, как Пётр Великий, превративший страну в империю, Екатерина Великая, дочь немецкого принца, которая стала самой могущественной женщиной в мире, и последний царь Николай II, любящий отец и муж, спровоцировавший (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйРежиссер: Джон ДасПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE8FDA6CA15BDCE098FFFA5B6AF852E1395029F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916215   (550288) от 25.07.2018
 
 BBC: Зараженный. Жизнь с паразитами / Unfested! Living With Parasites (2014) HDTVRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC. Большое австралийское приключение / Coast Au
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC: Лететь ли нам на Марс? Мысли о будущем / The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC: Пираты Карибского моря. Черная борода / Bla
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC: Древние затерянные города. Тёмные правит
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +344,7 @@ BBC: Живой мир. Шри-Ланка: Остров слонов / Sri Lanka
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +371,7 @@ BBC. Horizon: Тайны солнечной системы / Secrets of the Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +397,7 @@ BBC. Чудеса животного мира / The Wonder of Animals (2014) SAT
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +449,7 @@ BBC: Невидимое простым глазом / Da Vinci Learning: BBC: Be
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +501,7 @@ BBC: Сокровища Древнего Египта / Treasures of Ancient Egy
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +556,7 @@ BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SA
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +582,7 @@ BBC: Мир природы: Королева снежных обезьян / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +608,7 @@ BBC: Мир природы. Сокровища Анд / Natural World. Treasure 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +634,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,7 +660,7 @@ BBC:  Машина Большого Взрыва / The Big Bang Machine (2008) S
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_517192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -645,33 +671,6 @@ BBC:  Машина Большого Взрыва / The Big Bang Machine (2008) S
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497912   (517123) от 21.08.2015
-
-BBC: Ноев Ковчег - реальная история / BBC: Noah`s Ark-The Real Story (2004) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем известна старая библейская легенда о Ное, чей ковчег, по описанию лишь слегка уступающий размерами Титанику, принял на борт семью Ноя и по паре всех живых земных созданий, чтобы спасти их от великого потопа.
-Но действительно ли это лишь легенда, или подобное происходило на самом деле? В данной программе мы рассмотрим множество версий, фактов и вымыслов, прямо (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD598FD6BA49B708E0ABF4A6299CC18F262A8881
 ```
 
 https://mybot314.ru/tekegram_catalog/

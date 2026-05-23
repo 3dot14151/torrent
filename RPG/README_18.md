@@ -1,3 +1,81 @@
+###  Публикация: 1396501   (746432) от 15.07.2020
+
+Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в уединённой деревушке на краю мира. Единственные ворота, ведущие во внешний мир, находятся под охраной замка, так что жителям деревни нельзя её покидать. Но большинство жителей даже не задумываются об этом и счастливо проводят день за днем. Однако наш главный герой немного отличается от остальных — он хочет посмотреть внешний мир.Тип издания: LicenseРазработчик: GAME FREAK inc.Жанр: Ролевые игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88C4C5A4F853F6B6BAB0E7E3DC01053DA771D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282189   (746087) от 11.02.2019
+
+Victor Vran (2015) [Ru/Multi] (2.07.20190131/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Victor Vran - это изометрический ролевой экшен с огромным выбором оружия, предметов, брони, демонических способностей и карт судьбы. Окунитесь в водоворот напряженных сражений с десятками опасных врагов, используйте могущественные таланты и умения! В Victor Vran вы сами сможете выбирать свой стиль игры. Вам предстоит выковать свою собственную версию Виктора, благодаря (   Читать дальше...   )Тип издания: LicenseРазработчик: Haemimont GamesЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A8C7FA7854F212D3444BE8F92344B6A4B72312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020187   (745926) от 25.05.2016
+
+Two Worlds - Epic Edition / Два Мира (2008) [Ru/Multi] (1.7) License PROPHET
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+... спустя 300 лет после падения Азираала, брат и сестра оказываются втянуты в конфликт, разгоревшийся между орками и свободным миром. Кайра, младшая сестра героя, неожиданно пропадает при очень таинственных обстоятельствах. Герой, охотник за головами, прочесывает Анталоор в ее поисках. Его миссия заносит его на дальние рубежи континента. Постоянно держа ухо востро (   Читать дальше...   )Тип издания: LicenseРазработчик: TopWare InteractiveЖанр: RPG (Rogue, Action), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48348A78D448BDBDFD43A6AFCDE0C8D277E19A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020446   (744430) от 26.05.2016
 
 Crowntakers - Undead Undertakings (2015) [Ru/Multi] (1.0) SteamRip ALiAS
@@ -6,7 +84,7 @@ Crowntakers - Undead Undertakings (2015) [Ru/Multi] (1.0) SteamRip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Final Fantasy IX / Final Fantasy 9 (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Pharaonic (2016) [En/Es] (1.0 u1) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Kenshi (2018) [Ru/Multi] (1.0.50) Repack xatab (обновляемая)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Darkwood (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru/Multi] (1.0.0.2/dlc) Repack R.G. Cataly
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Monster Hunter World: Iceborne (2020) [Ru/Multi] (1.0) License PARADOX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Bloody Spell (2022) [Multi] (1.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Monster Hunter: World (2018) (14.00.00/dlc) [Ru/Multi] Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Xuan-Yuan Sword VII (2020) [Ru/Multi] (1.26/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Reverie Knights Tactics (2022) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Mary Skelter 2 (2022) [En] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.4) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Cornerstone: The Song of Tyrim (2016) [En] (3.1.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Disciples III Дилогия [Ru] (Lossless Repack) 2009-2010 | R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Diablo + Hellfire (L) [En] 1996/1997
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.0.8) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B456CEC34CE75E1CF63998EB6C2A6366FA5E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218243   (724757) от 08.04.2018
-
-Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724757.jpg" />
-</div>
-
-
-###  Подробнее
-
-События Tokyo Xanadu eX+ происходят в Токио, где обычный японский школьник Коу оказывается втянут в историю с потусторонними вратами, демонами и секретными организациями. Пытаясь спасти переведенную ученицу от группы хулиганов, Коу проваливается в неизвестное измерение, где открывает в себе талант бойца со злом. По мере развития сюжета вы все больше узнаете о мире (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom CorporationЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1A29F08624EA380440083B65AB1FD9BBABB2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136622   (724039) от 24.02.2019
-
-Kingdoms of Amalur: Reckoning (2012) [Ru] (1.0.0.2/dlc) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объединенные усилия лучшего автора New York Times Р. Э. Сальваторе, творца Спауна Тодда Макфарлейна и ведущего дизайнера Elder Scrolls IV: Oblivion Кена Ролстона воплотились в создании уникального мира новой ролевой игры Kingdoms of Amalur: Reckoning.Тип издания: RepackРазработчик: Big Huge Games, 38 StudiosЖанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C056A1F3BB6ED5B68B5E8B64168F689D341CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006696   (723431) от 05.06.2016
-
-Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый ваш выбор в Stories отправляет Reynardo в уникальную историю. От задорных и дерзких приключений до темных лавкрафтовских фантазмов — репертуар Stories столь же разнообразен, сколь динамична каждая из историй. Но роковые решения Reynardo не всегда будут даваться легко: иногда для обретения оружия, потерянного в начале времен, требуется пожертвовать жизнью старого (   Читать дальше...   )Тип издания: LicenseРазработчик: Spearhead GamesЖанр: RPG (Rogue, Action), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712C05B4D3DA6EE69BDB38C713BBD99BB356C195
 ```
 
 https://mybot314.ru/tekegram_catalog/

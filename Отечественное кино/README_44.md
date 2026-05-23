@@ -1,3 +1,107 @@
+###  Публикация: 1098315   (908505) от 30.01.2017
+
+Когда цветет сирень (2010) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня живет в крошечной квартирке со своей пожилой матерью и маленьким сыном. Чтобы содержать семью, она вынуждена много работать, и времени на личную жизнь у нее практически не остается. Подруга героини, домработница в богатой семье, чтобы хоть немного развлечь приятельницу, зовет ее в гости к друзьям своего жениха. Вот тут-то и начинается самое интересное…Производство: Россия / "ГТК Телеканал Россия"Жанр: МелодрамаРежиссер: Сергей БорчуковАктеры: Людмила Курепова, Юлия Агафонова, Андрей Барило, Василий Брыков, Антон Макарский, Ольга Дибцева, Елена Захарова, Александр Пороховщиков, Валентин Терехов и др.Продолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75395F9D303FB77198635A396162A3E09717730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098277   (908396) от 30.01.2017
+
+Девочка (2008) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Лена Ярцева, московская школьница. У нее обычная семья со скромным достатком. Лена любит мечтать о красивой жизни и много времени проводит в ближайшем торговом центре, где царство грез, а из зеркала смотрит ее отражение — обычно одетой девочки. Слишком велика разница между ее желаниями и возможностями родителей. Максимализм, ярость, вспыльчивость берут свое: Лена (   Читать дальше...   )Производство: Россия / Студия Арт-БазарЖанр: Драма, МелодрамаРежиссер: Елена НиколаеваАктеры: Елена Николаева, Александр Лазарев мл., Евдокия Германова, Сергей Беляев, Татьяна Догилева, Мария Порошина, Евгения Дмитриева, Лаура Кеосаян, Кристина Бабушкина, Михаил Владимиров и др.Продолжительность: 02:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87804DE0C442AFE28D65F7395DC085409B68274F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098842   (908387) от 30.01.2017
+
+Другой берег (2014) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Блистательная Ксения Конюхова, выпускница консерватории и МГИМО, отзывается от карьеры дипломата и возвращается в родной городок из-за болезни отца. Там ее жизнь круто изменяется: она начинает свой бизнес, выходит замуж и становится одной из самых преуспевающих женщин. У нее есть все: семья, верная подруга, большой дом, деньги. Ксении завидуют. Многим кажется, что (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Владимир Басов мл., Ольга БасоваАктеры: Леонид Архангельский, Мария Аниканова, Егор Баринов, Андрей Казаков, Полина Филоненко, Анна Скиданова, Никита ПикаловПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A61785342BFCB5B123C10B9DFAFD12E7177841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491767   (908344) от 26.08.2021
+
+Первый контакт (2017) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Отделение Российских солдат отправилось на учебное задание в густые леса Кольского полуострова. Но то, что началось как обычные армейские учения, превратилось в настоящую бойню. Бойцы столкнулись с нечто неизвестным...Производство: Россия / Bomba ProductionЖанр: Короткометражный, боевикРежиссер: Андрей НагорныхСубтитры: ОтсутствуютПродолжительность: 00:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB24235BA83C8B320450F03F2051BB1C4164B805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098534   (908113) от 30.01.2017
 
 Дама Пик (2016) WEB-DL [H.264/720p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74355390E972390CA6323CE5D4743CDACB184CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368601   (904531) от 22.03.2020
-
-Охотница (2020) SATRip [H.264] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полина – бывшая сотрудница Следственного комитета, ушедшая на вольные хлеба. Она ловит преступников за вознаграждение – и, надо сказать, весьма успешно, ведь теперь она гораздо свободнее в выборе методов расследования. Однажды к ней обращается отец человека, обвиняемого в двойном убийстве. Он уверен, что сын невиновен, но все улики против него. Задача детектива – (   Читать дальше...   )Производство: Россия / Кедр ПроЖанр: детективРежиссер: Александр БаршакАктеры: Маруся Зыкова, Павел Баршак, Яна Гурьянова, Сергей Гузеев, Андрей Шибаршин, Михаил Горевой, Алёна Яковлева, Александр Никольский и др.Субтитры: ОтсутствуютПродолжительность: 00:44:53+ 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D2304420CC6E3D308A4FB2C2201CFD6D0FFCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759776   (904505) от 23.02.2014
-
-Вий (2013) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XVIII века. Картограф Джонатан Грин совершает научное путешествие из Европы на Восток. Проследовав через Трансильванию и преодолев Карпатские горы, он попадает в затерянную среди непроходимых лесов деревушку. Только воля случая и густой туман могли занести его в это проклятое место. Народ, живущий здесь, не похож ни на один доселе виданный путешественником. (   Читать дальше...   )Производство: Россия, Украина, Германия, Великобритания, Чехия / Rospofilm, Step by Step Film ProductionЖанр: Фэнтези, Триллер, ПриключенияРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Алексей Чадов, Агния Дитковските, Андрей Смоляков, Игорь Жижикин, Олег Тактаров, Валерий Золотухин, Нина Русланова, Юрий Цурило, Александр ЯковлевПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 02:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C69636B70664E7753F24AF2BF8618BAE0017072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293031   (904397) от 08.02.2011
-
-Терапия любовью (2010) DVDRip | Лицензия
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нина разведена и одна воспитывает дочь Юлю, которая уже достаточно взрослая, чтобы понимать, что мать посвятила всю свою жизнь только ей. Хотя дочь уже выросла, отношения в семье остаются доверительными, и женщины ничего не утаивают друг от друга. Пытаясь хоть как-то разнообразить свою жизнь, Нина записывается в секцию йоги, где знакомится с Евгением, красавцем и преуспевающим бизнесменом. Вскоре между ними начинается роман. Конечно, мать рассказывает дочери об этом, делясь своей радостью. Но Женя почему-то против официального брака с Ниной. Узнав об этом, Юля подозревает, что он живет двойной жизнью, и решает вывести его на чистую воду. Выследив Евгения, Юля выясняет, в чем дело. Но правда оказывается слишком неожиданной для нее.Жанр: мелодрамаРежиссер: Владимир Басов мл., Ольга БасоваАктеры: Елена Дробышева, Полина Филоненко, Анатолий Лобоцкий, Иван Мудров, Владимир Басов (младший)Перевод: ОригинальныйПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4794D7D0592AC487E98F31FFE152B63833ACAE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760010   (904381) от 23.02.2014
-
-Вий (2013) WEB-DLRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XVIII века. Картограф Джонатан Грин совершает научное путешествие из Европы на Восток. Проследовав через Трансильванию и преодолев Карпатские горы, он попадает в затерянную среди непроходимых лесов деревушку. Только воля случая и густой туман могли занести его в это проклятое место. Народ, живущий здесь, не похож ни на один доселе виданный путешественником. (   Читать дальше...   )Производство: Россия, Украина, Германия, Великобритания, Чехия, Rospofilm, Step by Step Film ProductionЖанр: Фэнтези, Триллер, ПриключенияРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Алексей Чадов, Агния Дитковските, Андрей Смоляков, Игорь Жижикин, Олег Тактаров, Валерий Золотухин, Нина Русланова, Юрий Цурило, Александр ЯковлевПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 02:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70FC546C37B19F969D3EC441728E7DD52D18D86
 ```
 
 https://mybot314.ru/tekegram_catalog/

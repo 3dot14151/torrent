@@ -1,3 +1,141 @@
+###  Публикация: 1264905   (276070) от 26.11.2018
+
+eJay Dance 6 Reloaded [De]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ejay Dance возвращается! Программное обеспечение, которое вдохновило болельщиков со всего мира теперь даже лучше, чем когда-либо.
+У Ejay Dance 6 reloaded это получается: не имеет значения, вы настоящий музыкант или вы просто хотите развлечься, создавая классные треки.
+И это еще не все: в 3D VJ Box вы можете создать видеоклипы с визуальными эффектами для вашей музыки (   Читать дальше...   )Язык интерфейса: Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEA6F019F84D2A0D877AD022F258CFF940DFE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501141   (258411) от 25.05.2012
+
+[Оболочки, Скины] Скины для AIMP
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Огромный пак скинов на любой вкус и цвет для популярного проигрывателя AIMP.
+Различные поверхности: Глянец, Матовые, Стеклянные.
+В папке 192 скина, они подходят как к AIMP 2 так и к AIMP 3.
+Примечание: Скины с форматом .acs3 могут некорректно отображаться во второй версии плеера.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648299   (208308) от 22.07.2023
+
+Crescendo Music Notation Editor 9.62 [En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Написание нотных записей с использованием произвольной схемы, которая может быть настроена под конкретные нужды. Работайте с набором нотных символов, контролируйте размещение и проверку ключевых и временных подписей, forte, piano, crescendo и всех прилегающих производных.
+
+Написание нот - очень трудоемкий и кропотливый процесс, поскольку сначала нужно записать ноты, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31544F4BE1C52F9E86C5E0DF49E5A1D119FD2DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658835   (190871) от 09.09.2023
+
+Everyone Piano 2.5.9.4 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный продукт представляет собой графический интерфейс виртуального пиано с возможностью управления клавиатурой компьютера, а также подключением внешних MIDI клавишных. Расширение функций за счет подключаемых плагинов пользователь сможет сделать непосредственно из приложения.
+Данная программа  проста и легка в использовании, имеется возможность работы с компьютерной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5AD40430A069D17AF3E3C7577275D5A2694A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271624   (147892) от 24.12.2018
+
+IVONA voices 2 v.1.6.76 + Speech2Go v.1.128 [Multi/Ru]
+
+>>След.
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Универсальная программа, использующая все функции и возможности синтезаторов речи. Позволяет читать и слушать текст в документах и приложениях. Встроенный OCR-модуль распознаёт изображения, содержащие текст, и преобразует его пригодный для чтения вид.Язык интерфейса: Русский (русификатор), Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB41EA2E4F45F676DFE5A4B4AA02F3D510AE6235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692811   (122220) от 18.01.2024
 
 StemRoller 2.0.3 [En]
@@ -6,7 +144,7 @@ StemRoller 2.0.3 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +171,7 @@ Fakin The Funk 5.4.0.158 (х64) Portable by Spirit Summer [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +197,7 @@ RadioBOSS Advanced 7.0.2.0 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +224,7 @@ NonVisual Desktop Access (NVDA) 2024.2 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +250,7 @@ Fakin The Funk 6.0.0.162 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +279,7 @@ MediaMonkey Gold 5.0.5.2695 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +305,7 @@ Nucleer Coffee - My Music Collection 2.3.14.156 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -193,7 +331,7 @@ TagScanner 6.1.20 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +357,7 @@ Neuratron Photoscore Ultimate 6.1.0 Retail [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +385,7 @@ MuseScore 4.5.2 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +411,7 @@ Music Collection 3.9.3.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

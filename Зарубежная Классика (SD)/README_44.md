@@ -1,3 +1,107 @@
+###  Публикация: 1285479   (716436) от 28.02.2019
+
+Тигр / Il tigre (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+45-летний инженер Франческо Винчецини имеет все, что нужно для счастья — престижную работу, красавицу жену, двоих детей. Рождение внука не обрадовало, а только заставило задуматься о возрасте. Случайное знакомство с напористой девушкой Каролиной немного развеяло Франческо, но теперь предстоит выбор — остаться с женой или все бросить и уехать с Каролиной.Производство: Италия / Fair FilmЖанр: Драма, КомедияРежиссер: Дино РизиАктеры: Витторио Гассман, Энн-Маргрет, Элинор Паркер, Фиоренцо Фиорентини, Антонелла Стени, Луиджи Вануччи, Катерина Боратто, Жак Эрлен, Элеонора Браун, Нино СегуриниПеревод: Многоголосый закадровый (СВ "Дубль" по заказу ВГТРК)Субтитры: ОтсутствуютПродолжительность: 01:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B38CC28DD7911AD0DDC9FD90F566F378D0B1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532201   (716392) от 18.02.2022
+
+Новый кинотеатр «Парадизо» / Nuovo Cinema Paradiso (1988) BDRip [H.264] [AVO] [Director's Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сальваторе Ди Вита, ставший известным режиссёром, однажды поздно вечером, вернувшись домой, узнаёт от своей подруги, что звонила его мать и сообщила о смерти некоего Альфредо. Сальваторе возвращается в прошлое, к своему детству и юности... События фильма начинаются сразу после Второй мировой войны в провинциальном городке Джанкалдо на Сицилии. 6-летний Сальваторе (   Читать дальше...   )Производство: Франция, Италия, Cristaldifilm, Les Films Ariane, Rai Tre Radiotelevisione Italiana, TF1 Films Production, Forum PictureЖанр: драма, мелодрамаРежиссер: Джузеппе ТорнатореАктеры: Филипп Нуаре, Сальваторе Кашо, Марко Леонарди, Жак Перрен, Антонелла Аттили, Энцо Каннавале, Иза Даниэли, Лео Гульотта, Пупелла Маджио, Аньезе НаноПеревод: авторские (Юрий Сербин; Роман Янкелевич)Субтитры: русские, английскиеПродолжительность: 02:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BEA22173D6641106FD1303008BDA91B8B6C76CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528621   (716169) от 18.02.2022
+
+Чужой / Alien (1979) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем возвращающийся на Землю грузовой космический корабль перехватывает исходящий с неизвестной планеты неопознанный сигнал. Экипаж, в соответствии с основными инструкциями, обязан найти и исследовать источник сигнала. Оказавшись на планете, астронавты повсюду обнаруживают неопознанные предметы, по виду напоминающие гигантские коконы.Производство: Великобритания, СШАЖанр: ужасы, фантастика, триллерРежиссер: Ридли СкоттАктеры: Сигурни Уивер, Том Скерритт, Иэн Холм, Джон Хёрт, Гарри Дин Стэнтон, Вероника Картрайт, Яфет Котто, Боладжи Бадеджо, Хелен Хортон, Эдди ПауэллПеревод: Одноголосый АвторскийСубтитры: отсутствуютПродолжительность: 02:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C80F1F1C255351E1B866AEFB941DA8B0E21142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021996   (715634) от 09.06.2016
+
+Остров приключений / Mysterious Island (1961) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Несколько северян спаслись из плена южан на воздушном шаре и попали на необитаемый остров, оказавшийся таинственным — неизвестный доброжелатель постоянно оказывал помощь «робинзонам».Производство: Великобритания, США / Ameran Films Ltd., Columbia Pictures CorporationЖанр: Фантастика, Фэнтези, Приключения, СемейныйРежиссер: Сай ЭндфилдАктеры: Майкл Крэйг, Джоан Гринвуд, Майкл Каллэн, Гэри Меррил, Херберт Лом, Бет Роган, Перси Херберт, Дэн Джексон, Гарри МонтиПеревод: Многоголосый закадровый (DVD Магия)Язык субтитров: Русский, английскийПродолжительность: 01:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB3755330A0C8DFDEBA54B864CB9AB3C20C36D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219228   (715512) от 13.04.2018
 
 Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.264] [MP4|1280x720]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,113 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FFF7D8144CCEF71EC5D924B4A142A3F792CB54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285970   (706788) от 05.03.2019
-
-Человек с бьюиком / L'homme a la Buick (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богач и добряк мсье Арман Фавро приезжает в маленький городок Анфлер. Что он собирается делать здесь? Жить, ведь он купил одну из лучших вилл на побережье.
-Все складывается прекрасно: в первые же минуты после приезда он встречает прелестную вдову мадам де Лейрак и влюбляется. Но чем сильнее любовь, тем больше расходы.
-И мсье Фавро отправляется в Париж к друзьям. (   Читать дальше...   )Производство: Франция / Gafer, Les Films CopernicЖанр: КомедияРежиссер: Жиль ГранжьеАктеры: Фернандель, Даниель Дарьё, Жан-Пьер Марьель, Амаранд, Кристиан Барбье, Бернар Деран, Эдмон Ардиссон, Рауль Кюре, Жан Дэниэл, Альбер ДинанПеревод: Профессиональный (двухголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28B6CF7F3D2F66854741D9B7AB517BB796397D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 671038   (706263) от 23.06.2013
-
-2001 год: Космическая одиссея / 2001: A Space Odyssey (1968) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество давно задавалось вопросами: «кто мы?», «зачем мы здесь?», «куда мы идем?»… Теперь у человечества появилась возможность ответить на эти вопросы. Космический корабль, на котором находятся капитан Дэйв Боумэн и капитан Фрэнк Пул, а так же совершеннейший из созданных на Земле компьютеров – ХЭЛ 9000, отправляется в загадочный район галактики, где, как считается, (   Читать дальше...   )Жанр: ФантастикаРежиссер: Стэнли КубрикАктеры: Роберт Битти, Кир Дулли, Уильям Сильвестр, Дэниэл Риктер, Шон Салливан, Дуглас Рэйн, Леонард Росситер, Маргарет Тайзэк, Гэри Локвуд, Фрэнк МиллерПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 02:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4340CC971694D3047B8038983AC5AA333DB99349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022844   (705786) от 14.06.2016
-
-Топкапи / Topkapi (1964) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705786.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Турции, в Стамбуле, в суперохраняемом дворце бывшего султана, который теперь называется музеем Топкапи, находится бесценный древний кинжал ювелирной работы, стоимость которого превышает все мыслимые и немыслимые пределы.
-Понятное дело, что находятся безбашенные авантюристы, которые решают завладеть сокровищем. Они разрабатывают гениальный план ограбления и поэтапно (   Читать дальше...   )Производство: США / Filmways PicturesЖанр: Триллер, Комедия, Криминал, ПриключенияРежиссер: Жюль ДассенАктеры: Мелина Меркури, Питер Устинов, Максимилиан Шелл, Роберт Морли, Джесс Хан, Жиль Сегаль, Аким Тамирофф, Титос Вандис, Джо Дассен, Деспо Диамантиду, Жюль ДассенПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D8E75F01910BBC98A79240154CDB2DFF521EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022655   (705780) от 14.06.2016
-
-Все свои / Sami swoi (1976) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705780.jpg" />
-</div>
-
-
-###  Подробнее
-
-История давней ссоры двух крестьянских семей — Павляков и Каргулей. Перед войной Каргуль-старший при распашке поля захватил у Павляков земли… всего на 3 пальца. Это привело к тому, что сгорели два сарая, пролилась кровь, а Яська Павляк, опасаясь ответственности за удар косой по Каргулю, был вынужден бежать в Америку. Закончилась Вторая мировая война, обе семьи переехали (   Читать дальше...   )Производство: ПольшаЖанр: Комедия, экранизацияРежиссер: Сильвестр ХенчиньскийАктеры: Вацлав Ковальский, Владислав Ханьча, Здислав Карчевский, Илона Кусьмерская, Ежи Янечек, Мария Збышевская, Галина Буйно, Александр Фогель, Элиаш Куземский, Витольд Пыркош, Казимеж ТалярчикПеревод: Авторский одноголосый (pandoctor)Язык субтитров: РусскийПродолжительность: 01:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893C571EC34E476CF34A0CCFE19EBF95FC35D250
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1410183   (437913) от 20.09.2020
+
+Ashish Dani | Mетт - пейнтинг зимнего пейзажа с элементами научной фантастики в Photoshop / Matte Painting a Sci-Fi Winterscape in Photoshop (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот видеоурок поможет разобраться в построении цифрового метт-пейнтинга* на основе готового изображения. Мы поработаем над композицией и эскизом используя фотографии с нанесением на них 3D элементов. Завершающим этапом станет последовательное наслоение атмосферных деталей. В результате Вы создадите крупномасштабный научно-фантастический пейзаж на основе уже проверенной (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 03:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA499F1E6AD0BE4A02608049A9D12EC476DF6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410207   (437909) от 20.09.2020
+
+Udemy | Моделирование и текстурирование ассетов для видеоигр в Blender 2.79-2.8 и Substance Painter / Blender 2.8x - Modeling and texturing assets for videogames (2020) PCRec [EN, ES]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Изучите полный рабочий процесс создания 3D моделей для видеоигр. В этом курсе мы создадим пять ассетов используя Blender и Substance Painter.Производство: UdemyЖанр: 3D моделирование, ТекстурированиеПеревод: ОтсутствуетЯзык озвучки: Английский, ИспанскийПродолжительность: 15:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B77162174CB748FFAAF1F7817E6FBEA546FD635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410006   (437730) от 20.09.2020
+
+Sam Nielson | Освещение иллюстраций и концепт-арта с Сэмом Нилсоном / Lighting for Story and Concept Art (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В течение 9 занятий ветеран игровой индустрии Сэм Нилсон покажет вам, как сделать ваши рисунки максимально выразительными и цепляющими. Вы научитесь использовать освещение, текстуры, материалы и атмосферные эффекты для того, чтобы сделать персонажей и локации в ваших рисунках более выразительными и яркими. Сэм расскажет, как использовать и комбинировать техники цифрового (   Читать дальше...   )Производство: SchoolismЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 12:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6609D0D407AE52410A991197D093035F5E6344B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410392   (435804) от 21.09.2020
 
 [Gumroad] Chung Kan | Топология сетки лица / Human Face Topology For Production (2015) PCRec [En, Ru]
@@ -6,7 +84,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +111,7 @@ Allan McKay​ | FumeFX Essentials (2008) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +191,7 @@ Gumroad, Pierrick Picaut | Искусство эффективного ригг�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +217,7 @@ Gumroad, Cane Townsend | Hard Surface in ZBrush (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +271,7 @@ Artstation Learning, Rico Cilliers | Intro to Sculpting in Blender (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +297,7 @@ Artstation, Aleksandr Kirilenko | Bringing Life To Clothes In ZBrush (2020) HDRi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +326,7 @@ Schoolism, Nathan Fowkes | Environment Design (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +352,7 @@ M-Art, Ольга Адамовна | Графический медиа и моу
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +381,7 @@ SideFX, Moeen Sayed | Magic Market - L-Systems (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +407,7 @@ SideFX, Alejandro Perez | Intoduction to Creature Fur (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +433,7 @@ SideFX, Chetal Gazdar | Procedural chess pawn (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +459,7 @@ SideFX, Tyler Bay | Artist Quick Tips (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +539,7 @@ Gumroad, Pierrick Picaut | Багровый Ронин: Создание пер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -515,7 +593,7 @@ Artstation Masterclasses, Mathew O | Render and Presentation Techniques (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +621,7 @@ The Gnomon Workshop, Justin Holt | Painting Realistic Skin in Mari 2.0 (2013) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,7 +647,7 @@ Sabatovsky, Влад Сабатовский | After Effects от новичка 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +676,7 @@ Lynda.com | Learning Cinema 4D R20 (2018) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,88 +687,6 @@ Cinema 4D - это важный инструмент для motion graphics arti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:645A3AD53AE97E26238AB3473F93B8D15CEFA742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948352   (410644) от 20.10.2015
-
-Алексей Захаренко | Карьера веб-дизайнера. С нуля до первой продажи за 14 дней (2014) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс отлично подойдет вам, даже если:
-* Вы никогда не открывали программу фотошоп
-* У вас нет опыта и навыков в веб-дизайне
-* Вы только закончили школу или уже давно на пенсии(   Читать дальше...   )Жанр: ДизайнПродолжительность: 05:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF225F757567FBCAF85C37AC1BF51D5EF6A8648D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413257   (409322) от 03.10.2020
-
-Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн Sci-Fi меха в Blender 2.83 и 2.90 / SciFi Mech Design in Blender 2.83 & 2.90 (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это полноценный видеокурс, демонстрирующий передовые рабочие процессы и методы моделирования твердых поверхностей в Blender.
-Два преподователя с различными стилями преподования и моделирования покажут как создать научно-фантастического меха.Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 48:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1950CDD93BF7DA9649A1D2D3D6F8CD8554A2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573523   (408736) от 02.09.2022
-
-Lynda, Joel Bradley | Substance B2M (2017) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bitmap2Material (B2M) это приложение от Allegorithmic, которое дает вам возможность создавать карты для физически корректного рендеринга из одного исходного изображения. В данном курсе вы узнаете, как эффективно использовать программу чтобы улучшить ваш процесс работы с PBR текстурами. Джоэл Брэдли показывает в курсе навигацию по интерфейсу B2M. Затем он показывает (   Читать дальше...   )Производство: LyndaЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D912EC9231E9F1A9C9877EB46D6D4F80332946B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1545274   (240623) от 19.04.2022
+
+Masamune-kun no Revenge (2018) | Месть Масамунэ OVA [2018, OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Дополнительный эпизод аниме-сериала «Месть Масамунэ!», выпущенный в комплекте с ограниченным тиражом 10 тома оригинальной манги. OVA состоит из трёх небольших историй: «Только ради мамы», «Снова остров Цунадэ» и «Золушка после полуночи».Производство: Студия Silver LinkЖанр: комедияРежиссер: Минато МирайЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria)Продолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77A3EB9BBFD6CEFE27649A66398D57C3F6A54CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544963   (240599) от 19.04.2022
+
+Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [ТВ-1] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Будучи ребёнком, Масамунэ Макабэ сильно пострадал от богатой и красивой девушки по имени Аки Адагаки. Она издевалась над ним и называла «поросёнком» из-за его внешности, отягощённой лишним весом. В один момент Масамунэ признался девушке в любви, но получил в ответ лишь насмешки и отказ. Главный герой решил ей страшно отомстить: начал упорно работать над своей внешностью, (   Читать дальше...   )Производство: Студия Silver LinkЖанр: комедия, романтикаРежиссер: Минато МирайЯзык озвучки: Японский, русский (AniLibria, Onibaku Group, DeadLine Studio, AniDUB)Субтитры: Русские (LeDi-MaHo Team)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE452F8202AFB958DFEC7AD3462C13725AB54B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636410   (240554) от 31.05.2023
+
+Shikizakura | Вечноцветущая сакура [2021, TV, 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет об одном обыкновенном старшекласснике, который благодаря стечению обстоятельств становится пилотом силового костюма «Ёрой». Теперь парню приходится сражаться с Они, чтобы защитить девушку из святилища, которой суждено спасти мир.Производство: Япония, студия SublimationЖанр: экшен, драма, фантастикаРежиссер: Сугай СинъяЯзык озвучки: Русский (Anistar (без рекламы) [1-6,8-12], Animevost [7])Субтитры: ОтсутствуютПродолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CB48548DA5AD43F2940ECC9B146F7E2B2A3D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626954   (240035) от 16.04.2023
 
 Мобильный воин Гандам: Нарратив / Mobile Suit Gundam Narrative [2018, Movie] WEB-DL 1080p raw+rus
@@ -6,7 +84,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Fuufu Ijou, Koibito Miman | More Than a Married Couple, But Not Lovers | Бол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -59,7 +137,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +163,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +241,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -190,7 +268,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +320,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +372,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг короля [2021, TV, 23 и
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +398,7 @@ Yasuke | Ясукэ [2021, Web, 6 из 6] WEB-DL 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +427,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -375,7 +453,7 @@ Bocchi the Rock! | Рок-тихоня! | Одинокий рокер! [2022, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -402,7 +480,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 из 13] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -428,7 +506,7 @@ Pokemon the Series: Sun & Moon | Покемон: Солнце и Луна (Seaso
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -454,7 +532,7 @@ Pokemon the Series: Sun & Moon—Ultra Adventures | Покемон: Солнце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +558,7 @@ Pokemon the Series: Sun and Moon - Ultra Legends | Покемон: Солнце 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -534,7 +612,7 @@ Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авaнтюрист
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -561,7 +639,7 @@ Shuumatsu no Walkure | Record of Ragnarok | Повесть о конце све�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +665,7 @@ Koukaku Kidoutai: SAC 2045 2nd Season | Ghost in the Shell: SAC 2045 Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -598,85 +676,6 @@ Koukaku Kidoutai: SAC 2045 2nd Season | Ghost in the Shell: SAC 2045 Season 2 | 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36A447234E8FFCF7638ED49577F49B8E368B3018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555639   (230325) от 10.06.2022
-
-Shin Ikkitousen | Новые школьные войны: Истинная сила тысячи [2022, TV, 3 эп.] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запечатанный в древних драгоценностях дух героев, которые безуспешно попробовали объединить Китай в эру Троецарствия. Эти драгоценности были рассеяны всюду по Японии, они могут развить полный потенциал тех, кто их унаследует. Однако, владельцы, известные как Тоуши, охвачены жаждой страсти к сражениям. Хакуфу Сонсаку является одной из таких бойцов. Желание Хакуфу (   Читать дальше...   )Производство: ArmsЖанр: приключения, боевые искусства, комедия, эттиРежиссер: Кудзё РионПеревод: официальный (crunchyroll)Язык озвучки: Русский дублированный (Crunchyroll), многоголосый, закадровый (AniDub), японскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C0FA8E95E04EAE63F99491C790FE38C26F4D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556702   (230322) от 10.06.2022
-
-Добро пожаловать в ад, Ирума [ТВ-2] | Mairimashita! Iruma-kun 2nd Season | Welcome to Demon School! Iruma-kun [TV-2] [2021, TV, 21 из 21] BDRip HEVC 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон:
-Судзуки Ируму продали демону безответственные родители. Но к его собственному удивлению, он не только стал жить с демоном, который принял его как своего нового внука, но и был зачислен в школу в демоническом мире, где его новый дедушка работает директором. Так началась необычная школьная жизнь Ирумы среди потустороннего, где он сталкивается со своим (   Читать дальше...   )Производство: Студия BN Pictures / バンダイナムコピクチャーズЖанр: комедия, романтикаРежиссер: Мориваки МакотоЯзык озвучки: Русский закадровый (AniLibria.TV), Английский дублированный (Crunchyroll)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 21 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A59AABBA565C31052A7C429D879C5668DFB875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601386   (229697) от 27.07.2023
-
-Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Над миром нависла страшная угроза! Шпиону «Сумраку» предстоит выполнить сложнейшую миссию в своей карьере... стать примерным семьянином. Под видом любящего мужа и отца он должен проникнуть в элитную школу и сблизиться с верхами мира политики. На первый взгляд прикрытие вышло великолепное, вот только его жена — наёмная убийца. И супруги не знают о настоящей работе (   Читать дальше...   )Производство: Wit Studio и CloverWorksЖанр: приключения, комедияРежиссер: Фурухаси КадзухироЯзык озвучки: Японский, русский (AniLibria, AniPlague, Dream Cast, Force Media, Shiza)Субтитры: Русские (AniLibria, Alvakarp, Crunchyroll, SovetRomantica, YakuSub)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD23251FD974BE84114137104B7F79C2ADF01AC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

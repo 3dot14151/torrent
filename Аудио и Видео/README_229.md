@@ -1,3 +1,32 @@
+###  Публикация: 1511882   (245732) от 22.11.2021
+
+VA - Aimée Sol presents Lounge Attitudes, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Natasza Kurek Group - Lesmianie (The Forest Tale) (4:47)
+02. Soulounge, Florine Dimonye - L Is Gone (4:34)
+03. 351 Lake Shore Drive, Genius Jane - Moon Shadow (5:24)
+04. Thomas Lemmer, Lena Belgart - Is It Too Late (Radio Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26CFC9CCA8702EF90309F88D68ED240A9846602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512697   (245415) от 25.11.2021
 
 VA - Musica para: Rejuvenecer y sentirse bella (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
@@ -6,7 +35,7 @@ VA - Musica para: Rejuvenecer y sentirse bella (2021) [AAC|~309 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Musica Elegante (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Infinite Fade: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mirko Hirsch - Flashes in the Night (2021) [AAC|~352 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Chillout Adventures, Pt. 1 (2021) [AAC|~325 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 3 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 5 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 4 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 1 (2014) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 2 (2014) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - The Electro Swing Revolution (2011) [AAC|~305 Kbps] <Electro Swing, Nu Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Nightflight Rio - 22 Premium Downbeat & Lounge Trax (2014) [AAC|~340 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Nightflight Mallorca – 22 Premium Downbeat & Lounge Trax (2013) [AAC|~345
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Reggaeton Nocturno, Vol. 4 (2022) [AAC|~312 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Nightflight Dubai, Vol. 2 - 22 Premium Downbeat & Lounge Trax (2015) [AAC|~
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Deep Voyage 2 (2020) [AAC|~319 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Back to Earth #04 (2021) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Back to Earth #03 (2021) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Back to Earth #01 (2020) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Back to Earth #02 (2020) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Sunrise Meditation, Vol. 04 (2020) [AAC|~311 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Back to Earth #05 (2022) [AAC|~327 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - ICONYC Five Years, Pt. 1 (2021) [AAC|~331 Kbps] <Progressive House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -699,7 +728,7 @@ VA - ICONYC Five Years, Pt. 2 (2022) [AAC|~332 Kbps] <Progressive House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -713,35 +742,6 @@ VA - ICONYC Five Years, Pt. 2 (2022) [AAC|~332 Kbps] <Progressive House, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D2A908B94C69AF44495B8F7ED936899E21DF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529328   (244844) от 06.02.2022
-
-VA - Discovery Series 002 (2019) [AAC|~335 Kbps] <Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Union, Alexander Alar - Istanbul (Original Mix) (7:00)
-02. Bruno Pauwels - Peaches on the Moon (Original Mix) (5:53)
-03. Feelmark - Contact (Original Mix) (6:45)
-04. Tantra - Bali (Original Mix) (7:31)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A95286E318E18026FDD022C3DC9CAB9DE623A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 525350   (606985) от 21.07.2012
-
-[PSP] Musou Orochi 2 Special [Jap] (2012)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итак,Koei решили нас порадовать новой игрой из серии Warriors на PSP - Musou Orochi 2 Special,ранее вышедшей на PS3 и Xbox360.Это порт версия,поэтому в ней присутствует несколько отличий от оригинала.Жанр: Hack and SlashПерсонажи: Что на самом деле радует так это ещё одно дополнение - два новых персонажа:
-
-- Всем давно известная красавица Рейчел(Rachel) из серии игр Ninja Gaiden.Язык интерфейса: Jap
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E72E6E52F79B2B5FB2E604B7AE4BD0569467B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147987   (605396) от 04.07.2017
 
 Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0301-0450)
@@ -34,7 +6,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +32,7 @@ Turbo: Super Stunt Squad (2013) [PS3] [USA] 4.40 [Cobra ODE / E3 ODE PRO ISO] [U
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +58,7 @@ Blood Drive (2010) [PS3] [PAL/NTSC] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficia
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +84,7 @@ Tekken Hybrid (2012) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +110,7 @@ Cars 3: Driven to Win (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +136,7 @@ Skylanders: Spyro's Adventure (2013) [WiiU] [JAP] 5.5.1 [WUP Installer] [License
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +162,7 @@ Organ Trail: Complete Edition (2016) [PS4] [USA] 5.05 [HEN] [License / 1.04] [En
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +188,7 @@ Arcana Heart 3: LOVE MAX!!!!! (2014) [PS3] [USA] 4.60 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +216,7 @@ Beowulf: The Game (2007) [PS3] [EUR] 1.94 [Cobra ODE / E3 ODE PRO ISO] [Unoffici
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +273,7 @@ Brave [Wii] [PAL] [Multi 5] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -395,7 +367,7 @@ Ben 10 Omniverse 2 (2013) [PS3] [USA] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -421,7 +393,7 @@ Earth Defense Force 2025 (2013) [PS3] [USA] 4.50 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +419,7 @@ Prototype (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -473,7 +445,7 @@ Ride (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +499,7 @@ Just Dance 2019 Mod (2019) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +525,7 @@ The Club (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +551,7 @@ Sushi Striker: The Way of Sushido (2018) [3DS] [EUR] 11.7 [CIA] [Unofficial] [En
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +577,7 @@ Tomb Raider: Underworld (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -631,7 +603,7 @@ Mafia III: Definitive Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.12 / DL
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -657,7 +629,7 @@ Anarchy Reigns (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -683,7 +655,7 @@ Cabela's Adventure Camp (2011) [PS3][PS MOVE][EUR] 3.72 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -694,6 +666,34 @@ Cabela's Adventure Camp (2011) [PS3][PS MOVE][EUR] 3.72 [Cobra ODE / E3 ODE PRO 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84F957C2192A5EDC300D6FF6B8D6C33809D4A53D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916024   (591273) от 07.07.2015
+
+Quantum Theory (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это шутер от третьего лица в фантастическом сеттинге о приключениях двух персонажей – Сида, сбежавшего из отряда «Дельта», и его подружки Филлены.
+Игрок берет на себя роль Сида - "темного героя" который орудует огромной пушкой. Филена может использовать меч и пистолет.
+По сюжету оба товарища пытаются добраться до верхушки огромной башни, преследуя различные (   Читать дальше...   )Тип издания: LicenseРазработчик: Team TachyonЖанр: Action/Shooter/3D/3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962665DB5AA03D405FCC187166EC43382F617562
 ```
 
 https://mybot314.ru/tekegram_catalog/

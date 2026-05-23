@@ -1,3 +1,113 @@
+###  Публикация: 924887   (536924) от 08.08.2015
+
+Сборник видеоклипов -  русские  Хиты (2015) HDTVRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов -  русские  ХитыЖанр: PopПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD118C680525476A2906409415B26F87EBFDC26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695887   (535896) от 05.09.2013
+
+Сборник клипов - VA - Various Music part. 45 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Akcent feat. Dollarman - Spanish Lover 2K13 (Notrack edit) (VJ Tony Video Edit) 1080p (3:25)
+2. Alex Gaudino feat. Mario - Beautiful 1080p (3:44)
+3. Alex Hepburn - Under 1080p (4:07)
+4. Alexander Popov - Moscow Subway 1080p (3:45)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C85D6E9034D4CB586502D45F804C8DC8F6AAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365183   (534476) от 24.07.2011
+
+Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Good Quality][Rock][LDRip][2xDVD9]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта двухдисковая версия Greatest Flix I & II - является качественным аппаратным LDRip'ом, сделанным при помощиЖанр: МузыкаПеревод: Не требуетсяФормат: 2xDVD9Продолжительность: DVD1 - 1:13:24 + 0:17:34; DVD2 - 1:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8629057C37CD770ACD1AE1B46FDAEF05FC44F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926553   (533322) от 10.08.2015
+
+VA - Летний марафон № 181 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Летние (10.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alen Hit - My Heart Is Broken (Official Video) (00:04:19)
+2. Aly & Fila with SkyPatrol ft. Sue McLaren Running (Official Video) (00:05:39)
+3. Andrei Leonte - Hesitate To Love (Official Video) (00:03:07)
+4. Austin Mahone - Dirty Work (Official Video) (00:05:12)(   Читать дальше...   )Жанр: Pop, Dance, Latino, House, Indie, Chill OutПродолжительность: 01:35:25 + 00.03.56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9588241D8693541E689D7125CBA78D3362C619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926442   (533108) от 10.08.2015
 
 NikitA - Avocado (2012) MasterRip [H.264/1080i]
@@ -6,7 +116,7 @@ NikitA - Avocado (2012) MasterRip [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +144,7 @@ Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -118,7 +228,7 @@ Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +254,7 @@ VA - Летний марафон № 182 / (Задорный Country Хит) (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -173,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -202,7 +312,7 @@ Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +338,7 @@ VA - Летний марафон № 183 / (Зарубежная Дискоте�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -257,7 +367,7 @@ VA - Летний марафон № 184 / (Марафон Русских Хит
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -286,7 +396,7 @@ DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -312,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +488,7 @@ VA - Летний марафон № 185 / (Новый Хитовый Сборн
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +517,7 @@ PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +543,7 @@ The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -520,7 +630,7 @@ Alex Gaudino & Taboo - I Don't Wanna Dance (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -546,7 +656,7 @@ Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +682,7 @@ Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +708,7 @@ Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,113 +719,6 @@ Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C73BF4239372819909194FA784A0925981A78BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932528   (506906) от 31.08.2015
-
-VA - Летний марафон № 186 / Видеоклипы (Самые Танцевальные Хиты) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (29.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Anahí ft. Wisin - Rumba (Official Video) (00:03:35)
-2. Anca Pop - Sugar (originally by Maroon 5) (Official Video) (00:03:39)
-3. Carrie Underwood - Smoke Break (Official Video) (00:03:35)
-4. Charlie - Ghosts (Official Video) (00:03:41)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, SoulПродолжительность: 01:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B984E0843C3D9E0D084CF07EF193B5FFDE3681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539439   (506662) от 26.08.2012
-
-Diplo feat. Lazerdisk Party Sex - Set It Off (2012) [H.264] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2744D304F2AB8D2312A87695ECE6251AD6C753B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378929   (504452) от 23.08.2011
-
-Lady Gaga - Yoü And I  (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипРежиссер: Леди ГаГа, Лори Энн Гибсон, Haus of GaGaПродолжительность: 00:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CFC11E3808E9FAE168BEFDFFF03B64695FF0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540431   (503709) от 29.08.2012
-
-Dash Berlin feat. Emma Hewitt - Like Spinning Plates (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2CB029803C663DDB0DF808829F814DEEF305B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

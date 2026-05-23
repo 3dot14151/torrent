@@ -1,3 +1,188 @@
+###  Публикация: 1536159   (1044659) от 19.01.2023
+
+Многоавторский сборник | Серия супер-крупных книг «Diximir» (старое название: «Абсолют») [62 книг] (2018-2023) [FB2, PDF] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Серия супер-крупных книг «Diximir» (старое название: «Абсолют»), на сегодняшний день наиболее мощное собрание компиляций в сети. В каждом томе собраны все произведения одного из представленных авторов, а их в серии очень много и все они являются признанными литературными мэтрами.
+Книги изготовлены мастером Diximir на очень высоком уровне, как в чисто техническом (   Читать дальше...   )Жанр: МногожанровыйИздательство: Интернет издательство «Diximir»Формат: FB2, PDFКачество: Изначально электронное (ebook), обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A586EEABB72CDB39F71C97AF475ED045B9BAABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606237   (1044479) от 21.01.2023
+
+Очередное достижение: 5000 релизов от ishutinow
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+ Очередное достижение: 5000 релизов от ishutinow Уважаемые одноклубники, в разделе Музыка очередной юбилей, с чем мы и поздравляем нашего активного релизера - ishutinow. Благодаря его стараниям отметка в 5000 релизов покорена! Спасибо за релизы! :friend:
+От всей души поздравляем тебя с этим достижением и выражаем огромную благодарность от имени всех одноклубников (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845586   (1044456) от 21.01.2023
+
+VivaVideo Video Editor v9.7.5 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать, VivaVideo 9.0! Встречайте новый стиль редактирования！
+VivaVideo - это простой в использовании видеоредактор и профессиональный редактор видео , который помогает вам легко записывать и показывать свою жизнь.Скачайте Viva Видеоредактор для монтаж и обработка видео с фото, музыкой и эффектами, делитесь ими на ютуба, Инстаграм, Тик Ток！ (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 13.01.2023Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C686FD723A0055C3D162F8C760CC9408F55FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606425   (1044343) от 22.01.2023
+
+Windows 10 PE (x86/x64) by Ratiborus v.3.2023 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных. Сборка работает от Administrator. Через меню правой кнопки мыши можно любую программу запустить от System.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453241F52F9528EE5907903ED3AA0197485B0514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607232   (1044094) от 25.01.2023
+
+Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (01.2023) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1, включающая в себя 10 русских и 10 английских редакций x86/x64, с обновлениями по 01.2023, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT.  А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook и OneNote.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77979038D3089C8BF7910C2041F21947A71B379C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607542   (1043871) от 27.01.2023
+
+Windows 11 3in1 x64 22Н2 (build 22621.1105) by ivandubskoj 26.01.2023 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка Windows 11 3в1 (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Разработчик: MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111F9C50E71627DAE5B00A5E74141748231F41F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606747   (1043764) от 28.01.2023
+
+Adobe Photoshop 2022 23.5.4.981 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2022 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B309088A84CE4184C96AC1F24F246D16B96F8D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609460   (1043195) от 03.02.2023
 
 Wondershare Filmora 12.0.12.1450 + Plug-ins (x64) RePack by PooShock [Multi/Ru]
@@ -6,7 +191,7 @@ Wondershare Filmora 12.0.12.1450 + Plug-ins (x64) RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +296,7 @@ Comedy Woman (2008-2019) SATRip/WEBRip/TVRip [Выпуск: 1-231]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +427,7 @@ Parallels Desktop for Mac 9.0.23062.920702 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -489,191 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D6B486CC311CA8B2613CA1B83E1CC75D0548F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437446   (1041824) от 05.01.2021
-
-Anno 1800 (2020) [Ru/Multi] (9.2/dlc) Uplay-Rip InsaneRamZes [Complete Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anno 1800 – возглавьте промышленную революцию! Anno 1800 перенесет игроков в XIX век, в мир запутанных политических интриг и стремительно развивающихся технологий. Придется приложить максимум усилий, чтобы отточить способности к управлению и справиться с основной задачей - построить собственную империю, влияние которой распространится от туманных городов Европы до (   Читать дальше...   )Тип издания: Uplay-RipРазработчик: Blue ByteЖанр: Strategy, SimulatorЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B3FF9766A938EE413DD9D153DC02D04E96DB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245844   (1041820) от 05.01.2021
-
-Mi Band Master v3.1.4 Pro [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master for Mi Band — Замечательное приложение для работы с умным браслетом Mi Band и умными весами Mi Scale. Невообразимый функционал, интересный дизайн, огромный потенциал — все это собрано в MBM. Теперь ты сможешь использовать Mi Band на максимум!
-
-Шагомер, измеритель пульса, анализ сна, умный будильник, использование кнопки (Mi Band 2), полноценное управление (   Читать дальше...   )Тип издания: Пиратка (Открыт Pro)Релиз состоялся: 27 октября 2020 г.Разработчик: BLACKNOTEПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD0139D856D01BEDEDF41130EEF9C8D558B1C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437321   (1041549) от 06.01.2021
-
-Премия Steam Awards 2020: геймеры выбрали игрой года Red Dead Redemption 2
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё 22 декабря 2020 года сотрудники компании Valve запустили премию Steam Awards 2020, в ходе которой геймеры голосовали за лучшие проекты в десяти категориях. В этот раз в каждой из категорий было представлено по пять популярных в определённом жанре игр, среди которых пользователь выбирал что-то наиболее интересное, а вчера, 3 января уже 2021 года, были подведены (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437979   (1041381) от 07.01.2021
-
-Очередное достижение: 4000 релизов от Lancelof!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 4000 релизов от Lancelof!Уважаемые одноклубники!
-Поздравляем нашего почетного релизера Lancelof с новым достижением - 4000 релизов!!!Lancelof спасибо за отличные релизы и регулярное наполнение нашего любимого сайта книжными новинками.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351769   (1041234) от 07.01.2021
-
-Новогодний ремонт (2019) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041234.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Марго есть 24 часа, чтобы сделать ремонт в квартире к приезду дочери и мамы. В попытке найти решение, она случайно отправляет сообщение с просьбой о помощи всем контактам в телефоне. С этого момента дверной звонок звучит непрерывно, а в квартире Риты один за другим появляются старые и новые друзья — русский депутат, учитель-еврей, армянин — владелец ресторана. (   Читать дальше...   )Производство: Россия | "ВитЭл"Жанр: комедия, мелодрамаРежиссер: Артур ПинхасовАктеры: Зоя Бербер, Сергей Комаров, Артём Осипов, Эрик Бигуля, Вадим Галыгин, Ирина Розанова, Виталия Корниенко, Данил Стеклов, Макар Запорожский, Исмаил КонеПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831979C72D9CF79F31FC1355E4F37955B1316543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212463   (1041211) от 11.02.2023
-
-Акции всех магазинов России v125 (463) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнавайте об акциях и скидках в Магните, Пятерочке, Перекрестке, Ленте и других магазинах рядом с вами.Тип издания: ModРелиз состоялся: 09.02.2023Разработчик: LLC ZIGZAG MOBILEПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F9B62D76F99D70099F14B6F7008EB4C47AE4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437863   (1040988) от 08.01.2021
-
-ADATA: карты памяти формата SD Express
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания ADATA Technology, вендор DRAM-модулей памяти, запланировал выпуск карт памяти нового поколения SD Express во II квартале текущего года. Ассоциация SD Association (SDA) приняла новый стандарт SD7.0, основным изменением которого стало включение поддержки интерфейсов PCIe и NVMe картами памяти SD, что позволит значительно увеличить их скорости чтения и записи. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

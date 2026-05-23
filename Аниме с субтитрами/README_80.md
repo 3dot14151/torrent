@@ -1,3 +1,108 @@
+###  Публикация: 1574957   (381464) от 07.09.2022
+
+Ai no Utagoe o Kikasete | Sing a Bit of Harmony | Спой немного гармонии [2021, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Япония. Недалёкое будущее. Искусственный интеллект удачно внедрён в повседневную жизнь благодаря корпорации Hoshima, чьё передовое подразделение IT-специалистов во главе с Мицуко Амано неустанно работает над созданием робота-гиноида с саморазвивающимся ИИ. Дочь Мицуко, Сатоми - ученица средней школы, по стечению обстоятельств является изгоем в своём классе. И вот, (   Читать дальше...   )Производство: студия J.C. StaffЖанр: фантастика, драмаРежиссер: Ёсиура ЯсухироПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 110 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1F23A0A8C787397DD29F76A52BDAC20793FC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574976   (381457) от 07.09.2022
+
+Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another World | Рыцарь-скелет в ином мире [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Однажды геймер заснул прямо за игрой, а проснулся уже в другом мире в обличии скелета! Облачённый в прекрасную броню и вооружённый могущественным мечом и магией рыцарь-скелет Арк должен найти свой путь в этом новом для него мире.
+© crunchyrollЖанр: приключения, фэнтезиРежиссер: Оно КацумиПеревод: 1) CrunchyRoll; 2) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB5C87667C4DC4FFFEAE1B7529FD21A46B75E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574953   (381451) от 07.09.2022
+
+Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022, OVA, 1 эп.] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Маленькая девочка по имени Шива живёт в пустой деревне вместе со своим опекуном — существом с манерами джентльмена и внешностью монстра. Он запрещает ей покидать деревню, иначе она будет проклята, но любопытство так и тянет Шиву во внешний мир. И что же это за проклятье такое, которым её стращают? © KG-PortalПроизводство: студия Wit Studio / ウィットスタジオЖанр: фэнтези, драмаРежиссер: Кубо ЮтароПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 70 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F213D82412B6BFEE93D3667A3C40B9B039F485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574954   (381448) от 07.09.2022
+
+Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022, OVA, 1 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Маленькая девочка по имени Шива живёт в пустой деревне вместе со своим опекуном — существом с манерами джентльмена и внешностью монстра. Он запрещает ей покидать деревню, иначе она будет проклята, но любопытство так и тянет Шиву во внешний мир. И что же это за проклятье такое, которым её стращают? © KG-PortalПроизводство: студия Wit Studio / ウィットスタジオЖанр: фэнтези, драмаРежиссер: Кубо ЮтароПеревод: CrunchyRollЯзык озвучки: #1: Японский; #2: Японский;Субтитры: РусскиеПродолжительность: 1 эп. по 70 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0299FA97D1F3A605EED6064D0FEA350B634F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552010   (381414) от 07.09.2022
 
 Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a Nation Out of Debt | Руководство гениального принца [2022, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +111,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ W'z | Уиз [2019, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Meiji Tokyo Renka | Любовь эпохи Мэйдзи [2019, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Karakuri Circus | Цирк марионеток [2018, TV, 36 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Amanchu! / Аманчу! [2016, TV, 12 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ No Guns Life (2020) | Жизнь без оружия [ТВ-2] [2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Joshikousei no Mudazukai | Wasteful Days of High School Girl | Бездельн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Highlander: The Search for Vengeance / Горец: В поисках мести 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Ghost in the Shell: Stand Alone Complex 2nd GIG / Призрак в доспех
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ Liz to Aoi Tori | Liz and the Blue Bird | Лиз и синяя птица [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +371,7 @@ Asagao to Kase-san. | Kase-san and Morning Glories. | Сияние утра и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +397,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +449,7 @@ Eiga Odd Taxi: In the Woods | Необычное такси (фильм) [2022, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +477,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +505,7 @@ Aggressive Retsuko: We Wish You a Metal Christmas | Aggretsuko: We Wish You a Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +531,7 @@ Aggressive Retsuko (2019) | Агрессивная Рэцуко (2019) [2019, We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +559,7 @@ Aggressive Retsuko (2018) | Aggretsuko | Агрессивная Рэцуко (20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +585,7 @@ Under the Dog | Побитые псы [2016, OVA] BD-rip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +611,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1993-1996
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +637,7 @@ Mahou Yuugi / Magical Witchland / Magical Play / Волшебная страна
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +663,7 @@ Suzumiya Haruhi-chan & Nyoron Churuya-san / Меланхолия Суздуми 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,110 +674,6 @@ Suzumiya Haruhi-chan & Nyoron Churuya-san / Меланхолия Суздуми 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313985   (371749) от 26.09.2019
-
-Karakai Jouzu no Takagi-san 2 | Озорная Такаги [ТВ-2] [2019, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371749.jpg" />
-</div>
-
-
-###  Подробнее
-
-"И чего она докопалась до меня?” - вопрошает в который раз несчастный Нишиката, которому крайне повезло сидеть рядом с Такаги. Настолько повезло, что буквально ни дня не обходится без того, чтобы она его не подколола, не задела, не разыграла и не высмеяла. Причина такого поведения неизвестна, возможно, ей просто нравится издеваться над Нишикатой, ведь, несмотря (   Читать дальше...   )Производство: Shin-Ei AnimationЖанр: комедия, романтикаРежиссер: Akagi HiroakiПеревод: SovetRomantica; AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DD44DB58338766A7A266FC67626914C899C882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313988   (371738) от 26.09.2019
-
-Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? | Влюбишься ли ты в извращенку, если она милая? [2019, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды после уборки в клубе каллиграфии Кейки Кирю находит неподписанное письмо с признанием в любви от девушки и женские трусики рядом. В процессе расследования, кто же эта Золушка, потерявшая трусики, он обнаруживает, что все кандидатки те ещё извращенки и очень хотят включить в свои игры главного героя.Производство: Geek ToysЖанр: комедияРежиссер: Имадзаки ИцукиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 12 эп по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8644F96091D723FA076C069193E7864605494F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238450   (370135) от 15.10.2018
-
-Tsukumogami Kashimasu | We Rent Tsukumogami | Цукумогами напрокат [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в период Эдо в районе Фукагава старого Эдо (ныне Токио). Так как местность нередко страдает от пожаров и наводнений, её обитатели предпочитают не покупать всякую домашнюю утварь (горшки, футоны, одежду), а брать напрокат, чтобы не жалко было бросить, если вдруг придётся срочно эвакуироваться. Сейдзи и Око — брат (младший) и сестра (старшая) (   Читать дальше...   )Производство: Студия Telecom Animation Film / テレコム・アニメーションフィルムЖанр: повседневность, комедия, мистикаРежиссер: Мурата МасахикоПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB6E84A298CA13B139A358AD097D795ECEE6E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312925   (369606) от 27.09.2019
-
-Granbelm | Гранбелм [2019, TV, 13 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячу лет назад магия исчезла из этого мира, и люди совсем позабыли, что это такое. Но однажды в полнолуние Мангецу Кохината, самая обычная школьница, встречает Щингецу Эрнесту Фуками с лунным именем, как у неё самой, и магическую куклу Арманокс. В этот момент колесо судьбы Мангецу приходит в движение...Производство: студия NexusЖанр: приключенияРежиссер: Ватанабэ МасахаруПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Русские;Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFFD44A1AD52CDC787BC6B70169ECB8825E41CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

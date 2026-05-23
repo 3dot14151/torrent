@@ -1,3 +1,107 @@
+###  Публикация: 1386944   (792481) от 31.05.2020
+
+Haikyuu!! Second Season | Волейбол [ТВ-2] [2015, TV, 25 из 25] BDRip 1080 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сёё Хината — ученик старшей школы, который случайно увидел матч национального чемпионата по телевизору, после чего полюбил волейбол. Хината решил стать похожим на того популярного игрока, которого он увидел по телевизору, из-за его прозвища «маленький гигант», несмотря на свой небольшой рост. Вскоре Сёё создаёт волейбольный клуб в школе, где и начинает самостоятельную (   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: спорт, комедия, повседневностьРежиссер: Мицунака СусумуПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405B680C71B5FC8ECFCA1E3690210D162D5848B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386879   (792439) от 31.05.2020
+
+Haikyuu!! | Волейбол TB-1 [2014, 25 из 25] BDRip 1080 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+12-летний Сёё Хината увидел по телевизору несколько матчей – и влюбился в волейбол. Три года парень работал на свою мечту – и в последний год средней школы смог собрать команду и вывести ее на настоящий турнир. А там, понятно, новичков, набранных «с бору по сосенке», побили в первом же круге, причем жуткий разгром им устроил, чуть ли не в одиночку, гениальный плеймейкер (   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: спорт, комедия, повседневностьРежиссер: Мицунака СусумуПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325E32BE49AB8E4D601C75C82A421F39A2C58615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123112   (792412) от 07.04.2017
+
+Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 12 + OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вместо сюжета тут повседневная жизнь трёх подруг-старшеклассниц Галко, Отако и Одзё. Первая — популярная и добрая в глубине души девушка, но матерщинница, её хобби является кинокритика (в общем, ей самое место на КГ). Вторая — девочка, которая всегда сидит где-то в сторонке, но по неясной причине они с Галко близкие подруги. Третья — просто беспечная девушка, любящая (   Читать дальше...   )Жанр: комедия, этти, школаРежиссер: Кавагути Кэйитиро / Kawaguchi Keiichiro / 川口敬一郎Продолжительность: каждый эпизод по 8 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8F4CB0505EE573D28F0944B4BE9ECC1E4E4AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675041   (791970) от 25.01.2018
+
+Ginga Tetsudou 999 / Galaxy Express 999 Movie / Галактический экспресс 999 - Фильм [1979, MV] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная история собрана из небольших глав, рассказывающих о парне Тэцуро, который, желая отомстить злодею, пересекает целую галактику. Проделывая своё путешествие, Тэцуро попадает в разные приключения на разных планетах, где знакомится с подводными людьми, людьми-насекомыми, говорящими динозаврами и так далее. Планеты также различны: планета в стиле XX века, (   Читать дальше...   )Производство: студия Toei AnimationЖанр: Фантастика, приключения, драмаРежиссер: РинтароПеревод: Nomad / Poccu9iЯзык озвучки: ЯпонскийСубтитры: русские подключаемые (2шт.), английские в контейнере.Продолжительность: 129 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F04DFE2A9296D6ACD8AE028601F56E88F352337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510047   (791872) от 15.11.2021
 
 Blade Runner: Black Out 2022 | Бегущий по лезвию: Блэкаут 2022 [2017, SP] BDRip 1080p 10-bit raw+eng
@@ -6,7 +110,7 @@ Blade Runner: Black Out 2022 | Бегущий по лезвию: Блэкаут 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +139,7 @@ Risu no Matoi | Белка и пожарное знамя [1991, OVA, 1 эп.] W
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +166,7 @@ Moekan The Animation | Моэкан [2003, OVA, 3 из 3] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +192,7 @@ Yuukan Club | Клуб веселого времяпровождения [1991, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +218,7 @@ Mikeneko Holmes no Yuurei Joushu | Трёхцветный кот Холмс и �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +244,7 @@ Yume de Aetara | If I See You in my Dreams | Увидеть тебя в моих
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +270,7 @@ Godzilla 3: Hoshi wo Kuu Mono | Godzilla: The Planet Eater | Годзилла: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +296,7 @@ Donguri to Yamaneko | Жёлуди и горный кот [1988, Movie] VHSRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +323,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +349,7 @@ Gon the Little Fox | Gongitsune [1985, Movie] VHSRip 360p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +376,7 @@ Dororo | Dororo and Hyakkimaru | Дороро [ТВ-1] [1969, TV, 26 + Pilot] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +402,7 @@ Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +428,7 @@ Anime-Gataris | Истории об аниме [2017, TV, 12 из 12] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +454,7 @@ Tales of Zestiria The Cross | Tales of Zestiria The X | Сказания Зес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +480,7 @@ Lostorage Incited WIXOSS | Беспамятство: Побуждение WIXOSS
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ Spirit of Wonder: China-san Tanpenshuu | Spirit of Wonder: China-san Short Stori
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +533,7 @@ Iriya no Sora, UFO no Natsu / Sky of Iriya, Summer of UFO / Небо Ирии, �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +559,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Peter Pan no Bouken | Adventures of Peter Pan | Приключения Пите�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +663,7 @@ Hitori Kurashi no Shougakusei | Одиноко живущая младшекла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,111 +675,6 @@ Hitori Kurashi no Shougakusei | Одиноко живущая младшекла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA76A57DA8FEF98E6FCEF8B16F54A6CF077C7942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499683   (787306) от 24.11.2021
-
-Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021, Web, 11 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме расскажет историю взлёта и падения клана Тайра (Хэйкэ) во время Войны Гэмпэй (1180–1185 гг.). Наследник клана Тайра-но Сигэмори обладает особыми глазами, благодаря которым может видеть призраков. Однажды он встречает Биву, слепого бродячего музыканта, которая предсказывает падение клана Тайра.Производство: Студия Science Saru / サイエンスSaruЖанр: приключения, фэнтезиРежиссер: Ямада НаокоПеревод: официальный (Wakanim)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 11 эп по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3776474E0566854D8911D0459BAC4EA9C7496573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383428   (786723) от 06.06.2020
-
-Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [2020, TV, 12 эп. + 1 SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один мальчик по имени Ао показал Миро звезду, названную её именем. Потом они пообещали друг другу, что откроют астероид, который назовут Ао. Спустя годы Миро поступает в старшую школы. Она хочет присоединиться к кружку астрономии, но узнаёт, что его совместили с геологическим кружком. Более того, там ей повстречалась девушка по имени Ао Манака, которая и оказалась (   Читать дальше...   )Производство: студия Doga Kobo / 動画工房Жанр: повседневностьРежиссер: Хирамаки ДайсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 SP по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E3F2D13D20C2D635325E93553BCFC5BE77BFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388618   (786664) от 06.06.2020
-
-Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они встретились посреди Токио под нескончаемым дождем. Он мечтает начать новую жизнь в большом городе. А она никогда не унывает и обладает удивительным даром менять погоду силой мысли. Там, где она — всегда солнце. Вместе они изменят этот мир навсегда.
-© kinopoiskПроизводство: студия CoMix Wave Inc. / コミックス・ウェーブ・フィルムЖанр: романтика, драмаРежиссер: Синкай МакотоПеревод: ReanimediaЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Японские; #3: Китайские; #4: РусскиеПродолжительность: 115 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4BBC7D43A8C4AF2D4634CCB15ADB5730F907E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318374   (786656) от 06.06.2020
-
-Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбольный клуб Восточного Токио играет в японской первой лиге, где конкурируют сильнейшие профессиональные команды. Однако лучшие дни «Ист Токио Юнайтед» давно позади, команда превратилась в стабильного аутсайдера, постепенно теряя ценных игроков, спонсоров и преданных поклонников. Тренерская чехарда и безденежье тоже не улучшают ситуацию, радикальное крыло фанатов (   Читать дальше...   )Жанр: спорт, драмаРежиссер: Ко ЮПродолжительность: 26 по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4B3ACF99807A1053A6756900AEF28E508653C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

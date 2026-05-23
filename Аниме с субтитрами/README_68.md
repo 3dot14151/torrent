@@ -1,3 +1,107 @@
+###  Публикация: 1510448   (522565) от 27.06.2022
+
+Kyoukai Senki | Amaim Warrior at the Borderline | Воины пограничья [2021, TV, 25 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2061 год, Япония находится под оккупацией. Четыре главных мировых экономических силы разделили её на сферы влияние и японцы проводят свои дня в тяготах порабощённого народа. Япония стала передовой линией мира, где каждая экономическая сила правят при помощи особого мобильного оружия AMAIM. Однажды Амо Сииба, юноша, увлекающийся механикой, встречает Гая, автономного (   Читать дальше...   )Производство: Студия Sunrise BeyondЖанр: приключения, фантастика, мехаРежиссер: Хабара НобуёсиПеревод: официальный (1-13 wakanim; 14-24 crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD16B0A9619C600C3133D1A37A980E4CE036B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554945   (521855) от 28.06.2022
+
+Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Show: The Unpopular Girl and the Secret Task | Настоящая героиня [2022, TV, 12 из 12] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хиёри Судзуми покинула свой родной город и поступила в токийскую старшую школу Сакурагаока, чтобы продолжить заниматься лёгкой атлетикой. В поисках подработки Хиёри становится менеджером для своих одноклассников Юдзиро Сомея и Айдзо Щибасаки, которые состоят в айдол-дуэте LIPxLIP. История рассказывает о проблемах Хиори, с которыми она сталкивается в школе, вне школы (   Читать дальше...   )Производство: Lay-duceЖанр: Комедия, сёдзё, повседневностьРежиссер: Хасимото НорикоСубтитры: РусскиеПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F703B8FEAA8C64A7FB60DD5E8A96615925214F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314315   (520212) от 13.07.2019
+
+Peace Maker Kurogane | Железный миротворец (фильм) [2018, Movie] WebRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в 1864 году. 15-летний Тецуноске Ичимура вместе со старшим братом Тацуноске приходит в штаб-квартиру Щинсенгуми (особого самурайского полка, созданного для охраны порядка в Киото и поддержки сёгуна), чтобы вступить в их ряды. Тецуноске мечтает стать сильнее и отомстить мятежникам, которые убили его родителей прямо на его глазах. Однако низкорослого (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Кимия СигэруПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Русские; #3: Multi-subПродолжительность: 110 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAC06D1ACCA91F53A6CB425B91882D6F94FB4EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858174   (518109) от 20.08.2015
+
+Strike Witches: Operation Victory Arrow | Штурмовые ведьмы OVA-2 [2014, OVA, 3 эп.] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Где-то в параллельном мире в 1939 году на Землю явились Неврои – бездушные летающие машины, умеющие только сеять смерть и разрушение. Страны двух блоков, до того стоявшие на пороге мировой войны, срочно объединились для противодействия неведомому агрессору. И что же? Любое традиционное оружие середины XX века пришельцам нипочем - армады самолетов, военный флот, сухопутные (   Читать дальше...   )Жанр: приключения, фантастика, эттиРежиссер: Такамура КадзухироСубтитры: русские отФормат: BDRipПродолжительность: 3 из 3 эп., 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D58BE5A0179EFB01D55E2E6F0346657F0C30D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561210   (516586) от 03.07.2022
 
 Shuumatsu no Harem | World's End Harem | Гарем конца света [2021, TV, 11 эп.] BDRip 1080p raw
@@ -6,7 +110,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Saiki Kusuo no Sainan (2018) | Ох, уж этот экстрасенс Сайк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Drifters (2017) | Скитальцы [2017, OVA, 3 из 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Higashi no Eden Gekijoban II: Paradise Lost / Eden of The East the Movie II: Par
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Madan no Ou to Vanadis | Повелитель волшебных стрел и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Shadow's House | Дом теней [2021, TV, 13 из 13] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Kawaii Dake ja Nai Shikimori-san / Shikimori's Not Just a Cutie / Шикимор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Yuukoku no Moriarty (2022) | Патриотизм Мориарти OVA [2022, OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ One Room: Second Season | Из одной комнаты [ТВ-2] [2018, TV, 13 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Yuyushiki / Формула ЮЮ [2013, TV, 12 + 6 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Yuri Seijin Naoko-san / Lesbian Citizen Naoko-san / Наоко - лесбиян�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Yuri Seijin Naoko-san (2012) / Lesbian Citizen Naoko-san / Наоко - лесб
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Coquelicot-zaka kara / From Up on Poppy Hill / Со склонов Кокури�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +504,7 @@ Fantasy Bishoujo Juniku Ojisan to | Life with an Ordinary Guy who Reincarnated i
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Aka
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Ag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,117 +663,13 @@ Marie and Gali / Мари и Гали (первый сезон) [2009, TV, 40 ep
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
 Марика является типичным примером среднего школьника, при малейшем упоминании о науке ее начинает клонить в сон. Однажды путешествуя в трамвае она неожиданно превращается в готическую Лолиту, а чучело, собственноручно сделанное из обрезков платья, по кличке "животинка" оживает и они оба попадают в параллельное измерение - место под названием Галихабара. (   Читать дальше...   )Жанр: комедия, приключенияРежиссер: Hiromasa KondouПеревод: ТрефЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: (40 эп. + нулевой эп.), 5 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564740   (498523) от 20.07.2022
-
-Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | Президент, пришло время для битвы! [2020, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то мир представлял собой безжизненную пустошь, но однажды с неба спустилась богиня, открыв гигантские Врата. За ними люди обнаружили чудесную энергию, которая была способна наполнить мир жизнью. Со временем вокруг Врат образовался город, а сбор энергии в подземелье за Вратами стал уделом профессионалов из добывающих компаний. Директором одной из таких компаний (   Читать дальше...   )Производство: студия C2CЖанр: приключения, фэнтезиРежиссер: Икэсита ХирокиПеревод: Wakanim (Дехардсаб, оформление, лирика - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2190C654246187CA85EC2AE456CAFC4B9BD254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564738   (498514) от 20.07.2022
-
-Gyokou no Nikuko-chan | Fortune Favors Lady Nikuko | Никуко из Рыбацкой гавани [2021, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498514.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о матери и дочери, которые живут на лодке в рыбацком порту.Производство: студия Studio 4°C / スタジオ4℃Жанр: повседневностьРежиссер: Ватанабэ АюмуПеревод: 2) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: 1) Японские; 2) РусскиеПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015741B903CE9DDC2BE500AA9BB5AD28EAE295FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935481   (498233) от 09.09.2015
-
-Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит на далеком острове, где в местной средней школе уже вовсю начали готовиться к культурному фестивалю. В это же время некогда всерьез увлеченный бейсболом мальчик, который почти половину жизни провел на поле, бросает игру и ссорится с лучшим другом. Но затем вместе они встречают загадочную девушку по имени Норда, как раз в тот момент, когда (   Читать дальше...   )Производство: Studio ColoridoЖанр: ПриключенияРежиссер: Арай ЁдзироПеревод: TimecraftСубтитры: ASSФормат: MKVПродолжительность: 00:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E9696BC783B7B50874F590808DE5931C0AA67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542538   (497065) от 04.09.2012
-
-Tatsu no Ko Tarou / Taro the Dragon Boy / Таро - сын дракона [1979] DVDrip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ленивец Таро любил только поесть, поспать и поиграть с лесными зверями, и у него не было никаких целей в жизни до тех пор, пока один колдун не наделил его невероятной физической силой. Однако воспользоваться этим даром Таро мог, лишь помогая другим. Случайно узнав, что его давно пропавшую мать в наказание за жадность превратили в дракона, мальчик отправляется на (   Читать дальше...   )Жанр: приключения, сказка, историяРежиссер: Ураяма Кириро / Urayama KiriroПеревод: н/дЯзык озвучки: АнглийскийЯзык субтитров: Русский; Английский (soft)Продолжительность: 75 мин.
 
 ## Скачать торент
 ```bash

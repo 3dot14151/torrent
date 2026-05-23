@@ -1,3 +1,107 @@
+###  Публикация: 525913   (597231) от 24.07.2012
+
+Черное воскресенье / Black Sunday (1977) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о попытке предотвращения спецслужбами грандиозного террористического акта. Тайная организация под названием «Чёрный сентябрь», планирует осуществить невероятный по своей жестокости «акт возмездия». Во время финальной игры суперкубка в Майами, на которой будет присутствовать сам президент США и ещё восемьдесят тысяч зрителей, террористы собираются взорвать над стадионом громадный дирижабль, с которого будет вестись телесъёмка матча. Самое жуткое заключается в том, что смертельный груз взрывчатки начинен мелкой дробью, и в случае удачного проведения теракта, и без того огромное количество потенциальных жертв увеличится ещё вдвое.Жанр: Триллер, ДетективРежиссер: Джон ФранкенхаймерАктеры: Роберт Шоу, Брюс Дерн, Марта Келлер, Беким Фехмию, Фриц Уивер, Стивен Китс, Майкл В. Гаццо, Уильям Дэниелс, Уолтер Готелл, Виктор КампосПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 02:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D1519EFBED6487021D8D6437B64B571F8F64FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805901   (596857) от 20.07.2014
+
+Возвращение высокого блондина / Le retour du grand blond (1974) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шпионские игры продолжаются. Спецслужбы не могут оставить Перрена в покое - новый министр нашёл досье на высокого блондина, заведённое Бернаром Миланом, и следуя подсказке капитана Камбрэ, подозревающего Тулуза в фарсе с высоким блондином и убийстве Милана, приказывает полковнику Тулузу представить ему «суперагента». Тот в смятении придумывает историю о том, что (   Читать дальше...   )Производство: Франция / Gaumont International, Films de la GuvilleЖанр: КомедияРежиссер: Ив РоберАктеры: Пьер Ришар, Жан Карме, Жан Рошфор, Мирей Дарк, Жан Буиз, Поль Ле Персон, Колетт Кастель, Анри Гибе, Эрве Санд, Жан АмосПеревод: Дублированный, двуголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A82002FAF8B1C355437FE3565E32A003B8C818F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914887   (596297) от 03.07.2015
+
+Белый рассвет / The White Dawn (1974) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Арктика, Канадское Заполярье. Эскимосы спасают трех китобоев, затерявшихся в конце 90-х годов прошлого века возле Северного Полюса. А началось все с того, что шестеро американских китобоев преследуют на гребной шлюпке загарпуненного кита. Неожиданно, опасная погоня превратилась в игру с судьбой, - перевернувшаяся лодка ушла под воду, трое моряков погибают. Выжившая (   Читать дальше...   )Производство: США, КанадаЖанр: Драма, приключения, историяРежиссер: Филип КауфманАктеры: Уоррен Оутс, Тимоти Боттомс, Лу Госсетт, Симони Копапик, Джоэнази Сэломоун, ПилитакПеревод: Профессиональный многоголосыйПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E445D9E1A5288F5041297282C5E4CD1424866AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910503   (596286) от 03.07.2015
+
+Вестерн Юнион / Western Union (1941) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События этой картины рассказывают о строительстве телеграфной линии «Вестерн Юнион» от Омахи, штат Небраска, до Солт-Лейк Сити, штат Юта. Рэндолф Скотт сыграл преступника, пытающегося исправиться и зарабатывать на хлеб честным путем…Производство: США / 20th Century Fox Film CorporationЖанр: Вестерн, ИсторияРежиссер: Фриц ЛангАктеры: Роберт Янг, Рэндольф Скотт, Дин Джэггер, Вирджиния Гилмор, Джон Кэрредин, Слим Саммервилл, Чилл Уиллс, Бартон МакЛэйн, Расселл Хикс, Виктор КилианПеревод: Двуголосый закадровый, СВ-ДубльСубтитры: ОтсутствуютПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB122C95A9D0DF8875ADC5F5520A3E7BE3F2975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232276   (596143) от 26.06.2018
 
 Путешествие на дно моря / Voyage to the Bottom of the Sea (1961) DVDRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD722C002F76AA5642D10DD9FFC962CD334845BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912174   (591347) от 07.07.2015
-
-Левая рука Бога / The Left Hand of God (1955) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591347.jpg" />
-</div>
-
-
-###  Подробнее
-
-В главную провинцию Китая прибывает с католической миссией святой отец О’ШИ. Миссия близка к закрытию, жителей окрестных деревень интересуют гражданские распри, а не религия. Да и сам священник как будто не спешит приступать к своим непосредственным обязанностям: куда больше его волнует военная вдова — красавица-медсестра Энн. Однако постепенно странные проповеди (   Читать дальше...   )Производство: США, 20th Century Fox Film CorporationЖанр: Драма, экранизацияРежиссер: Эдвард ДмитрикАктеры: Хамфри Богарт, Джин Тирни, Ли Дж. Кобб, Агнес Мурхед, Э. Г. Маршалл, Жан Портер, Карл Бентон Рейд, Виктор Сен Юнг, Филип Ан, Бенсон ФонгПеревод: Профессиональный многоголосый (Первый канал)Продолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799451DF8EF379A70FA00C2BDAF7B69C8CD7C162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916506   (590893) от 08.07.2015
-
-Дипломатический багаж / La Valise (1973) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майор Блох, засветившийся израильский резидент, нашел свое спасение во французском посольстве. С помощью его французского коллеги, капитана Ожье, его решают тайно переправить в Париж. Для этого неудачника запихивают в здоровый чемодан и под видом дипломатического багажа намереваются перевести самолетом в Европу. Однако, в аэропорту забастовка и план с каждым лишним (   Читать дальше...   )Производство: ФранцияЖанр: Комедия, приключенияРежиссер: Жорж ЛотнерАктеры: Мирей Дарк, Мишель Константен, Жан-Пьер Марьель, Амиду, Мишель Галабрю, Жан Лефевр, Робер Дальбан, Рауль Сен-Ив, Арч Тейлор, Чарли Браво, Иисус Фернандез, Бернар Фонтен, Эль Кебир, Жан ЛуизиПеревод: Профессиональный многоголосыйПродолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D99CF833210818DA84B683FAB7B253CC187FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912336   (590796) от 08.07.2015
-
-Дуэль на Силвер-Крик / The Duel at Silver Creek (1952) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прославленный герой воины наносит решительный удар. Стефен МакНэлли в роли Лайтнинга, энергичного начальника полицейского участка в Силвер Сити. Главная цель Лайтнинга — задержать банду безжалостных преступников, терроризирующих и убивающих местных шахтеров, среди которых его лучший друг.
-В одной из перестрелок Лайтнинг теряет способность пользоваться указательным (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Дон СигелАктеры: Оди Мерфи, Фэйт Домерг, Стефен МакНалли, Сюзан Кэбот, Джералд Мор, Юджин Иглесиас, Уолтер Сэнд, Ли Марвин, Джордж Элдридж, Джеймс АндерсонПеревод: Двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFCC1F585C4FA0F86414D15ACD05575A3215964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548571   (590664) от 14.05.2022
-
-Голубые небеса / Blue Skies (1946) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцовщик и певец Джед Поттер оглядывается назад на любовный треугольник, длившийся много лет, в котором он играл роль «третьего лишнего». Он влюблен в актрису Мэри О'Хара, а она любит импульсивного владельца ночного клуба Джонни Адамса, который непостоянен в своих привязанностях и нигде не задерживается надолго.Производство: США, Paramount PicturesЖанр: Комедия, мюзикл, мелодрамаРежиссер: Стюарт ХейслерАктеры: Бинг Кросби, Фред Астер, Джоан Колфилд, Билли Де Вульф, Ольга Сан Хуан, Михаил Разумный, Фрэнк Фэйлен, Виктория Хорн, Кэролин Граймс, Джин Эшли, Кэрол Эндрюс, Дороти Баррет, Дороти Дэйтон, Маргарет Филд, Эрнан БельмонтеПеревод: Многоголосый профессиональныйСубтитры: Английские - отдельным файлoмПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8E011D0467E4F8F69C443BFDA1A1B51C59742B
 ```
 
 https://mybot314.ru/tekegram_catalog/

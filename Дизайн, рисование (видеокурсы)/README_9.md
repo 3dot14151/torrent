@@ -1,3 +1,89 @@
+###  Публикация: 1450786   (1028855) от 27.02.2021
+
+Lu Dongjun | Glass Study (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот более чем 8 часовой курс посвящен рисованию стеклянных объектов.
+В него входят:
+- 3 часа неускоренного видео, где я рассказываю, как рисовать стеклянные куб и шар;
+- 3 часа неускоренного видео, где я рисую стеклянную бутылку;(   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 08:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AC0825DAC33F6315D7921C4108FFB70DEC1DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450816   (1028852) от 27.02.2021
+
+Lu Dongjun | Stone Study (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В этом 7часовом уроке я покажу вам, как рисовать разнообразные каменные объекты. В урок ходят:
+3 часа неускоренного видео, в котором я рисую каменный блок и каменного льва;
+4 часа неускоренного видео, в котором я рисую гоблина;Производство: GumroadЖанр: Создание видеоПродолжительность: 07:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CADF23CC46954A91D19CE56B44C2CDC406492F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450783   (1028843) от 27.02.2021
+
+Lu Dongjun | Fish & Portrait Study (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот 7часовой урок посвящен рисованию рыб и портретов! В него входят:
+2 часа неускоренного видео, в котором я рисую портрет Давида (основываясь на знаменитой скульптуре Микеланджело);
+1.5 часа неускоренного видео, в котором я рисую кита;
+1.5 часа неускоренного видео, в котором я рисую рыбу-воина;(   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 06:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90B0E2D651263B5FC5558C6D778D132EF15D7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450623   (1028821) от 27.02.2021
 
 Anastasia Opara | Houdini Procedural Lake Houses Volume 1 (2016) PCRec [En, Ru]
@@ -6,7 +92,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +120,7 @@ Raf Grassetti | Female Anatomy Tutorial (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +146,7 @@ Pawel Grochola | Destruction in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +172,7 @@ Shawn Lipowski | VEX in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +198,7 @@ Spencer Lueders | Fluids FX Using Houdini(2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +225,7 @@ Anthony Eftekhari | Matte Painting (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +251,7 @@ Steven Knipping | Applied Houdini Particles I (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +277,7 @@ Michael Hampton | Analytical Figure Drawing 2 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +304,7 @@ Michael Hampton | Analytical Figure Drawing 1 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +386,7 @@ TargetHunter | Дизайн ВКонтакте (2021) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +415,7 @@ CG Boost, Martin Klekner | Мастер 3D окружения в Blender 2.9 / M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +469,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -410,7 +496,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +523,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -464,7 +550,7 @@ Samuel Rodriguez | Творческая портретная иллюстрац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -492,7 +578,7 @@ Camille Kleinman | Camille Bathing Robe Workshop (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +604,7 @@ Mike Jensen | ZBrush Hard Surface Techniques 2 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -544,7 +630,7 @@ Mike Jensen | ZBrush Hard Surface Techniques (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,7 +656,7 @@ Camille Kleinman | Jackets & Coats Workshop (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,7 +685,7 @@ Camille Kleinman | Mastering Marvelous Designer: Beginners Course (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,88 +697,6 @@ Marvelous Designer (MD4/ MD5) это передовое программное �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A479F3C1E36188F7E76DBAF15423547B15001D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443290   (1027277) от 08.03.2021
-
-Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyclopedia [Updated Dec 2020] (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Энциклопедию Blender, самый полный учебный курс охватывающий все аспекты Blender, полностью бесплатного 3D пакета. Новейшая серия релизов версий 2.8x является самым большим обновлением на сегодняшний день, со многими новыми функциями и улучшениями.Производство: Udemy, CG MastersЖанр: 3D моделирование, Анимация, ШейдингПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 58:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83062CFE2F8A4419F00F9D98BBD8236DCBDDB0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453030   (1027159) от 09.03.2021
-
-Stephen Silver | Advanced Character Design (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027159.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы изучите дизайн персонажа на углубленном уровне, поэтому если вы уверены, что освоили основы, то будьте уверены - этот курс для вас.
-В курсеПроизводство: SchoolismЖанр: Создание видеоПродолжительность: 15:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD7AC651F07817361DD393A1BAD7358CEA1B71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454176   (1026516) от 13.03.2021
-
-Sephiroth Art | Gumroad collection - Tutorials & Brushes (2019) HDTV [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция уроков и поэтапных рабочих видео процесса отрисовки.
-
-Коллекция охватывает следующие темы:
-- Изометрическая казуальная графика(   Читать дальше...   )Производство: Sephiroth ArtЖанр: Обучающее видео, уроки, кистиЯзык озвучки: АнглийскийПродолжительность: 44:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C453813392F2C3CDEC9410B6707242F54C60CE23
 ```
 
 https://mybot314.ru/tekegram_catalog/

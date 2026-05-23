@@ -1,3 +1,206 @@
+###  Публикация: 1272267   (144598) от 27.12.2018
+
+VA - Billboard Hot 100 Singles Chart 29.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001.  Ariana Grande -  thank u, next
+002.  Halsey -  Without Me
+003.  Travis Scott -  SICKO MODE
+004.  Post Malone -  Sunflower (Spider-Man_ Into the Spider-Verse)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACA4420DCC5777C32371DDB1BE17E8507039A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272415   (144540) от 27.12.2018
+
+VA - Music 2018 Live Christmas Sweet (2018) [MP3|320 Kbps] <Christmas, Dancehall, Soul, Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Swae Lee, Rae Sremmurd & Ear Drummers - Christmas At Swae's
+02. Lil Jon ft Kool-Aid Man - All I Really Want For Christmas
+03. ZAYN - There You Are
+04. Afrojack feat. Mightyfools - Keep It Low (Laidback Luke Remix)(   Читать дальше...   )Жанр: Christmas, Dancehall, Soul, FunkПродолжительность: 05:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CB2929309DC60EE72982A35E1CA0AACC67CAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272258   (144486) от 27.12.2018
+
+VA - Lyrical Soul Ballads (2018) [MP3|320 Kbps] <Funk, Soul, Ballads>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Roberta Flack - Killing Me Softly With His Song
+002. Cornell C.C. Carter - That Feelin'
+003. Ub40 - Moonlight Lover Feat Gilly
+004. The Apx - Right On Time(   Читать дальше...   )Жанр: Funk, Soul, BalladsПродолжительность: 08:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33877EAB039B1208B63ED9B39A9EE3AF9A9749E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087781   (144440) от 28.12.2016
+
+VA - Guitar Collection 10 (2016) [MP3|320 Kbps] <Blues, Acoustic, Metal >
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001|  Mark Cook - Song for Wendy  (01:43) 
+002|  Mike Howe - Lichens  (03:55) 
+003|  Tramline - Mazurka  (02:46) 
+004|  Toundra - Strelka  (07:47) (   Читать дальше...   )Жанр: Blues, Acoustic, MetalПродолжительность: 08:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537F7014002CAA3674D824BDFE37DCF44C7E77C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435513   (144314) от 28.12.2020
+
+VA - Rose Bialo: Italiano Classico Vocale (2020) [MP3|320 Kbps] <Vocal, Pop, Classic Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это старая манера итальянского оперного пения, которая считается эталоном вокального искусства находит свое место и в современной итальянской песне. Она была оперной нормой целых 300 лет назад. И современники ещё тогда уже писали о том, что это было ангельское, божественное пение!001. Claudio Villa - ' O Sole Mio
+002. Irene Grandi -  A Natural Woman
+003. Alice - A Cosa Pensano
+004. Fred Buccini - A Mano A Mano(   Читать дальше...   )Жанр: Vocal, Pop, Classic SoulПродолжительность: 07:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AA926E0673865101226E1EEBFB6A85A0CBB66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195011   (144293) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 23) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Вахтанг Кикабидзе  -  Я пьян от любви  3:14
+02.  Людмила Зыкина  -  Калинка  3:31
+03.  Александра Стрельченко  -  Речные омуты  2:09
+04.  Людмила Сенчина  -  Всегда и снова  3:59(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1241D1AB214C60750640F5E555C21D3A1D4ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194988   (144232) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 22) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01.  Александра Стрельченко  -  Подари мне платок  3:48
+02.  Георг Отс  -  На Волге широкой  3:20
+03.  Валентин Будилин  -  Прости, Земля  3:21
+04.  Нина Бродская  -  Кто тебе сказал  3:33(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9847791A3552F36EC0D2D7EBCBE5B8A17EAC60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195037   (144221) от 28.12.2017
 
 VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 24) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
@@ -6,7 +209,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Музыка для машины Vol.41 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - The Official UK Top 40 Singles Chart 27.12.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Top Songs of 2021: Global [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - The Official UK Top 40 Singles Chart (28-12-2014) [MP3|320 кб/с]<Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -211,7 +414,7 @@ VA - Top 100 2021: Shazam [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +443,7 @@ VA - Intense Radio: We Love Dance (2018) [MP3|320 Kbps] <Dance, Pop, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +472,7 @@ VA - My Favourite Hits of 1962 (4CD) (2015) [MP3|320 кб/с] <Instrumental, Fun
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +501,7 @@ VA - Pop Rock Chart Music (2018) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +530,7 @@ VA - Empire Records - Classic Disco 3 (2017) [MP3|320 Kbps] <Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -356,7 +559,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -385,7 +588,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -414,7 +617,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -443,7 +646,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -472,7 +675,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +704,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +733,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -544,209 +747,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB185D2C2C2F3D278E96713F60B4653A1B0992F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195269   (142611) от 29.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 31) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Владимир Ивашов  -  Для тебя  2:52
-02.  Гертруда Юхина  -  Я не знаю  3:06
-03.  Жанна Горощеня  -  Пришла любовь  4:05
-04.  Кола Бельды  -  Увезу тебя я в тундру  2:57(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B51743D7A74F860C7B7CA54E5B2D67634E31A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195360   (142554) от 29.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 34) (Compiled by Виктор31RUS) (2017) [MP3|224-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Валентина Готовцева  -  Ах, Самара-городок  3:37
-02.  Евгений Кибкало  -  Что так сердце растревожено  5:44
-03.  Виктор Иванович Селиванов  -  Три танкиста (к-ф Трактористы)  3:16
-04.  Марина Ладынина  -  Каким ты был  2:59(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0531650283652F24D2137FE3045C4C367E3332A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195041   (142508) от 29.12.2017
-
-VA - Top Hits (December - 2017) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect Duet (with Beyonce)
-02. Ellie Goulding - O Holy Night
-03. Wham! - Last Christmas
-04. G-Eazy (Ft. Halsey) - Him & I(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0C161B04206C17CD1866337F4E708D4858084C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195471   (142455) от 29.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 36) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Леонид Кострица  -  Вернулся на Родину  3:22
-02.  Владимир Бунчиков и Владимир Нечаев  -  Ты да я  2:48
-03.  Клавдия Шульженко  -  Всё проходит  2:52
-04.  Людмила Гурченко  -  Песенка о хорошем настроении  2:39(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A91C1ACA9EEF9036F9E811F7CC01055775B1D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195544   (142434) от 29.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 37) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Виталий Доронин  -  Поручение  2:29
-02.  Зоя Рождественская  -  Тропинка  2:04
-03.  Леонид Утесов  -  Песня старого извозчика  3:04
-04.  Олег Анофриев  -  Солнечный круг  3:35(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C8EBEA161440D1561AE00EEAC5AFA034B773AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195251   (142421) от 29.12.2017
-
-VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooklyn Guy - Cold Stuff (Original Mix)
-02. Astero feat. Tiana - Satellite
-03. Anthony Chocco - Oh My Baby (Sensoniques Deep Mix)
-04. A Club Tunes - Cry(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81C316F1E744346F9380F689D0BDEE8D283B049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348498   (142350) от 28.12.2019
-
-VA - Качай и слушай Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Маши - Не Буди (Video Edit) (3:59)
-2.Adon - Want You (2:51)
-3.Bear Grillz feat. Rx Soul - Nightmare (3:56)
-4.Camilo - La Difícil (By Dimelonacho) (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566E8E09E00546787FB413D5F5ABEC70BADC875D
 ```
 
 https://mybot314.ru/tekegram_catalog/

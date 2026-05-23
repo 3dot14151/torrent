@@ -1,3 +1,206 @@
+###  Публикация: 1549232   (593819) от 06.05.2022
+
+VA - Music News vol.186 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Воробьёв - Сумасшедшая (Remix) (02:50)
+ 002. 52Ghz - Будь Счастливой (03:03)
+ 003. AIZZO - Voices in My Head (02:17)
+ 004. Alderyn & Sick Individuals feat. Oscr - Tu Es Partout (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA34DBB91914A331495394D8169AF8FFE24CDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549117   (593747) от 06.05.2022
+
+VA - 90's Love Songs (2022) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Babyface - Wonderful Tonight (3:42)
+02. Mariah Carey - My All (3:50)
+03. Bonnie Raitt - I Can't Make You Love Me (4:44)
+04. Richard Marx - Right Here Waiting (4:22)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A062FF6A325DDBC885EF78011425650AEADE6DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300231   (593699) от 05.05.2019
+
+VA - не Громкие новинки недели 14 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1.Павел Мурашов - Девочка В Красивом Платье (4:44)
+2.Kamazz - Первое Свидание (4:26)
+3.VAVAN (Владимир Селиванов) - Как Хорошо (Grue & DJ Jungo Remix) (4:03)
+4.Дмитрий Фомин - Открывая Окно (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B924A3B0B15D045A49B935EACEF1F4309A5238E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300308   (593493) от 05.05.2019
+
+VA - The Best World Ballads - 36 (2019) [MP3|320 Kbps] <Pop, Rock, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001 The Score-Stronger 3:11
+002 Sia Feat.Dolly Parton-Here I Am 4:32
+003 Richard Ashcroft-We All Bleed 3:58
+004 Avril Lavigne-Head Above Water 3:40(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 15:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B601D744FBD0865682153A343EDF3AE8B5743BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233471   (593004) от 30.06.2018
+
+VA - The Official UK Top 40 Singles Chart 29.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. George Ezra - Shotgun
+02. Clean Bandit feat. Demi Lovato - Solo (www.rump3.net)
+03. Anne-Marie - 2002
+04. Jess Glynne - I'll Be There(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F287718917F980C12802F0D5523CD9813BEA7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549845   (592883) от 08.05.2022
+
+VA - The Official UK Top 100 Singles Chart 06.05.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Harry Styles - As It Was
+002. Jack Harlow - First Class
+003. Cat Burns - Go
+004. Dave - Starlight(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82674652C105EB5B9A6F5E6586CA2AB155257B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915497   (592302) от 05.07.2015
+
+VA - Summer Dance Party (2015) [MP3|320 кб/с]<Club, Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Mirami - Amore Eh Oh! (Bbx English Remix)
+02. Federico Seven feat. Valeria Barbera - Summer Breeze (Extended Mix)
+03. Ellie Goulding - Love Me Like You Do (Seum Dero Remix)
+04. Gabry Ponte - Showdown (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Hands UpПродолжительность: 07:09:5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66070F3A83895A0C2DABC456D44999122FD64AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915353   (592258) от 05.07.2015
 
 VA - Сборник танцевальных хитов Оттопырься (2015) [MP3|192-320 кб/с]<Pop, Dance, Eurodance>
@@ -6,7 +209,7 @@ VA - Сборник танцевальных хитов Оттопырься (20
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Car Audio. Великолепный замес. Sound Clinic - Special Edit
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - German Top 50 Official Dance Charts (13.07.2015) [MP3|128-320 кб/с]<Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Billboard Hot 100 Single Charts 11th July (2015) [MP3|320 кб/с]<Pop, Eur
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Hot Dance Summer 2015 Vol.3 (2015) [MP3|96-320 кб/с]<Club , Dance , Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - The Best World Ballads-26 (2015) [MP3|320 кб/с]<Pop, Rock, Rap, R'n'B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Summer Music (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Summer Dance (2015) [MP3|320 кб/с]<House, Bigroom, Progressive, Funky>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Любимые медляки. Часть 1 (2015) [MP3|320 кб/с]<Pop, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Morning Motivation (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Billboard Hot 100 Single Charts 18th July (2015) [MP3|320 кб/с]<Pop, Eur
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Музыкальные Новинки Июль (2015) [MP3|256 кб/с]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Громкие новинки Мая Vol.1 (2019) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - Fitness on the Beach Dance Music for Summer Workout (2016) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - New Music Releases Week 18 (2019) [MP3|320 Kbps] <Pop, Hip Hop, RnB, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - Music News vol.189 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Bad Boys Blue - Hit Collection (2016) [MP3|320 Kbps] <Disco, Pop, Eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,197 +745,6 @@ Bad Boys Blue - Hit Collection (2016) [MP3|320 Kbps] <Disco, Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D52B374643A51FF816B8B61A175E310DB9983E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040489   (586316) от 05.08.2016
-
-VA - Weekend Forever Summer Control (2016) [MP3|258-320 Kbps] <Club, Funky, Tropical, UK Garage, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endanger - Es Ist So Einfach 03:41
-02. Napkey - Pegasus 03:33
-03. Mason - Nite Rite One 05:48
-04. Gray & Wayne Dudley - Understand (Original Mix) 06:52(   Читать дальше...   )Жанр: Club, Funky, Tropical, UK Garage, ElectroПродолжительность: 09:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5F4FB47D15053EC7E1D654625DE662FD26DF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357762   (585955) от 02.07.2011
-
-VA - Пиратская Станция Exclusive (2011) [MP3|256-320 kbps]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ClubПродолжительность: 05:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD31440E6526479A01419718ECBD944AAF59B402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918803   (585942) от 16.07.2015
-
-VA - Summer Top House Music (2015) [MP3|320 кб/с]<Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marotto - Bounce The Sun (Original Mix)
-02. Dim Sum - High Love (Original Mix)
-03. Dimmi & Goldfish - The Storm (Original Mix)
-04. Collarbones - Turning (Flume Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 11:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01E8E367E10644F47AAB0013BA16D19115399CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357360   (585903) от 02.07.2011
-
-VA - Русский Хип-Хоп 80-90х (2011) [MP3|224 kbps]<Рэп / Хип-Хоп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Рэп / Хип-ХопПродолжительность: 07:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2537EE041732ADE808159402E49D4D9F882E6D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357365   (585712) от 02.07.2011
-
-VA - Hot Ibiza Dance (2011) [MP3|256 kbps]<Club / Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Club / DanceПродолжительность: 06:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7478D24335281A57BD420334184A4D9B3D50C4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040759   (585473) от 06.08.2016
-
-VA - Nu Disco Vol.5 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Krivushkin Feat. Taylr Renee - Belief In Humanity [06:23]
-02. Max Lyazgin - Time Flies (Theme From Illusion) [05:00]
-03. David Usher - Black Black Heart (Bentley Grey Remix) [04:10]
-04. Danny Darko - Hurricane Ft Julien Kelland (Vtx Deep Remix) [03:53](   Читать дальше...   )Жанр: Nu DiscoПродолжительность: 02:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD8345ECBA1A98834228F909389F75EEEA45E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358387   (585142) от 03.07.2011
-
-VA - The Blues Has Got Me Vol.10  (2011) [MP3|320 kbps]<Blues / Blues-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues / Blues-RockПродолжительность: 05:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C5A87320B9DC4BAE743089D1CC880F27972E9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

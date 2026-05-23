@@ -1,3 +1,90 @@
+###  Публикация: 1483645   (1006785) от 14.07.2021
+
+BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Ulearum (04:47)
+ 02. Callopsis (05:57)
+ 03. Protarum (06:31)
+ 04. Gorgonidium (06:14)Жанр: Ambient, TechnoПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483854   (1006532) от 16.07.2021
+
+Conforce - Wavetable (2021) Sungate [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Kawai (06:17)
+ 02. Wave Trip (07:00)
+ 03. Blofeld (06:53)
+ 04. Richocet (05:57)Жанр: Techno, Deep TechnoПродолжительность: 00:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D6FA052638630F775A483255290F88482D5569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483865   (1006525) от 16.07.2021
+
+Merv - Cordial EP (2021) Release Sustain [FLAC|Lossless|WEB-DL|tracks] <Tech House, Acid House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Cordial (07:16)
+ 02. Plastered (07:16)
+ 03. Rechord (06:50)
+ 04. Cordial (Aache's Acid Remix) (05:36)Жанр: Tech House, Acid HouseПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8683F4224AA89402F964FB45B0EE5880C396F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483861   (1006522) от 16.07.2021
 
 Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -6,7 +93,7 @@ Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lars Leonhard - Discography 42 Releases (2011-2021) BineMusic, Ultimae Records [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Electrypnose - Crooked House (2021) [FLAC|Lossless|WEB-DL|tracks] <PsyTech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -149,7 +236,7 @@ Oxia - Speicher 34 (2006) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -176,7 +263,7 @@ Anton Kubikov (A. Kubikoff) - Discography 26 Releases (1999-2021) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -205,7 +292,7 @@ VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -234,7 +321,7 @@ VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -263,7 +350,7 @@ Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +379,7 @@ Disco Deejays - Stayin' Alive / Night Fever (2006) [FLAC|Lossless|image + .cue] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +408,7 @@ Midub - The Story Dub (2017) [FLAC|Lossless|tracks] <Dub Techno, Deep Techno, Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +436,7 @@ Troekurovo Recordings | Toki Fuko, Vadim Basov, Evgeny Vorontsov - Discography 3
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +465,7 @@ Doyeq - Discography 43 Releases (2009-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +494,7 @@ Fidem Community - Discography 20 Singles (2020-2021) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +520,7 @@ Overmono - fabric presents Overmono | Unmixed + DJ Mix (2021) Fabric Worldwide [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +549,7 @@ DJ Eric Foster - Night Light (2004) [FLAC|Lossless|image + .cue] <House, Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +578,7 @@ Dinka - A Date With Dinka (2014) 2CD, DJ Mix, Compilation [FLAC|Lossless|tracks 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -520,7 +607,7 @@ LTN - The Path Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -549,7 +636,7 @@ Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +665,7 @@ VA - Poker Flat Recordings: Best of 2019 (2019) Compilation [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,7 +694,7 @@ Faithless - All Blessed (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -636,7 +723,7 @@ TheFatRat - Discography (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Glit
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -649,90 +736,6 @@ TheFatRat - Discography (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Glit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F0449CC8FE41596C1FD6F7510861FD82EE45468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351346   (1002170) от 10.01.2020
-
-Blank & Jones - #WhatWeDoAtNight 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Light (2:57)
- 02. Blur (3:13)
- 03. Three/C (3:29)
- 04. Sharp (3:06)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75203886C3CF88434AFBD04F45852C87639AFCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316795   (1001981) от 11.08.2021
-
-Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Want To Sleep? (01:22)
- 02. Can You Stop It From Bleeding? (02:41)
- 03. Hurting Myself (05:13)
- 04. Blackmail (02:51)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch •Продолжительность: 23:40:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BEE76FCB02612C8697FF2D21859A79A2184288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351573   (1001952) от 11.01.2020
-
-Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Deep House, ProgressiveПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51685F631BB225CDB5E9A6A8C554F9D21327A902
 ```
 
 https://mybot314.ru/tekegram_catalog/

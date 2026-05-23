@@ -1,111 +1,3 @@
-###  Публикация: 1603903   (1045557) от 11.01.2023
-
-Андрей Усачев | Котобой (Книга 4). Украсть «Котобой»! или Полёт на Луну (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то на севере есть удивительная деревушка Котьма. Удивительна она тем, что живут в ней одни только… коты! Каждую зиму жизнь в Котьме словно замирает – так и заскучать недолго. Но всё меняется, когда в Котьме открывают музей и туда устремляются толпы туристов. От такой небывалой суеты отважные котобои готовы сбежать даже… на Луну!Жанр: детские приключения, сказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B54BA6CDA3FE98CFD5FA767BAFA9C9CABAA156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604120   (1045495) от 12.01.2023
-
-Алексей Лисаченко | Планета динозавров: тайна затерянного города (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, в которой динозавры Дима и Анка открывают тайны прошлого и находят разгадку одного очень странного происшествия.
-
-Трогательная и уморительно смешная история о захватывающих приключениях, дружбе, смелости и оптимизме. И конечно же, вере в себя и свои силы.Жанр: детская познавательная и развивающая литература, детские приключения, сказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C17A63BED230422EBA51E37D621FED28CC4E961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604302   (1045419) от 13.01.2023
-
-Жан-Клод Мурлева | Река, текущая вспять (2020) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Философская сказка французского писателя Жана-Клода Мурлева — пазл-перевёртыш, две стороны одной истории — инь и янь. Маленький лавочник Томек вслед за девочкой Ханной отправляется в далёкое и опасное путешествие на поиски волшебной реки, вода в которой даёт бессмертие.
-
-У каждого из героев свой путь и свои испытания, и им придётся принять много решений и от многого (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Надежда Бунтман, Наталья ШаховскаяФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22758248550CFFC4FDF59563BF51D7AD57AB545E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604346   (1045416) от 13.01.2023
-
-Даниэль Пеннак | Глаз волка (2020) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одноглазый полярный волк заперт в клетке парижского зоопарка. Люди принесли ему столько зла, что он поклялся никогда больше не думать о них. Но мальчик по имени Африка, обладающий удивительным даром слушать и рассказывать истории, заставит волка взглянуть на мир другими глазами.Жанр: детская проза, зарубежные детские книгиПеревод: Наталья ШаховскаяФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089B2DF0F567828A4A8B25B9EBE8D18B4C430EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604414   (1045413) от 13.01.2023
 
 Роальд Даль | Ахап ереч (2016) [PDF, FB2, EPUB, MOBI]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -463,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -545,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -598,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -627,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -654,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -680,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -691,6 +583,113 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC681CE151FC7BE3CF433BB2DCAF982F5AE43334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438696   (1040940) от 09.01.2021
+
+Елена Ульева | Вместе встретим Новый год! (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается очаровательная иллюстрированная книжечка с трогательными иллюстрациями и милыми новогодними стихами.Жанр: Детская литература/СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDE906AC7775E5F625C2422C94BBBDF9C4B5E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438691   (1040938) от 09.01.2021
+
+В.И. Костылев | Минин и Пожарский: повесть (2006) [PDF, FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Повесть исторического романиста В. И. Костылева (1884–1950) о двух славных деятелях Смутного времени — нижегородском земском старосте Козьме Минине и воеводе князе Дмитрии Пожарском, об организации ими народного ополчения и освобождении в 1612 году Москвы от польских интервентов.
+
+Это историческое событие — спасение Отечества и победа над Смутой — легло в основу (   Читать дальше...   )Жанр: Литературно-художественное изданиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7CDEDA237B4BC50E01247CFB3B279DF95E1145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438656   (1040917) от 09.01.2021
+
+Шерман Алекси | Абсолютно правдивый дневник индейца на полдня (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Арнольд Спирит Младший живет в индейской резервации Спокан и учится в школе для индейцев. Здесь его бьют и обзывают свои же. За что? Просто за то, что он родился болезненным и непохожим на остальных. Вот Арнольд и сидит дома – и рисует карикатуры и шаржи в ответ на всё, что происходит в его жизни. Но рисование – это еще и возможность вырваться из резервации, где (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказы, Книги для подростковПеревод: Дина КрупскаяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0880A4763A8D6805DFB8A68D30598E7B3655C83A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612046   (1040552) от 14.02.2023
+
+Юдиф Рубинштейн | Санька-Победитель (1930) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рассказ повествует о тех днях, когда только-только образовавшееся государство начало бороться с излишней религиозностью населения оставшейся от царских времён.
+Для детей среднего школьного возраста. Иллюстрации П. Кузанян.Жанр: РассказФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E4ECA0170A68C5E21A22B153FAE6BD4D818EB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

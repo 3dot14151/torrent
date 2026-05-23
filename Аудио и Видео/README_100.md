@@ -1,3 +1,32 @@
+###  Публикация: 1527252   (736918) от 28.01.2022
+
+VA - Best of Cafe De Anatolia 2 (2019) [AAC|~310 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Professor - Sabali (5:19)
+02. Kerem Gell - Eskitme (6:09)
+03. Billy Esteban - Gipsy Melody (Remastered Mix) (5:12)
+04. Tebra - Nada (7:54)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1F3B000276BDA1D393461C6C7DEFF4FF744297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527296   (736890) от 28.01.2022
 
 VA - Pop Nostalgia (Popular Songs From The Past Revisited) (2022) [AAC|~319 Kbps] <Jazz, Nu Jazz, Lounge, Pop, Easy Listening>
@@ -6,7 +35,7 @@ VA - Pop Nostalgia (Popular Songs From The Past Revisited) (2022) [AAC|~319 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +170,7 @@ VA - Sunrise Meditation, Vol. 03 (2020) [AAC|~315 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +199,7 @@ VA - WorldOrgaNic 2022 (2022) [AAC|~324 Kbps] <Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -199,7 +228,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 4 (2022) [AAC|~313 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +257,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 3 (2022) [AAC|~322 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -257,7 +286,7 @@ VA - Sunrise Meditation, Vol. 07 (2021) [AAC|~330 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -286,7 +315,7 @@ VA - 3xA Music The Best of 2021 (2022) [AAC|~335 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -315,7 +344,7 @@ VA - Sunrise Meditation, Vol. 01 (2020) [AAC|~314 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +373,7 @@ VA - Sunrise Meditation, Vol. 09 (2021) [AAC|~322 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +402,7 @@ VA - Sunrise Meditation, Vol. 02 (2020) [AAC|~317 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +431,7 @@ VA - Sunrise Meditation, Vol. 08 (2021) [AAC|~315 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +460,7 @@ VA - Flowers of Chillout (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +489,7 @@ VA - Fireplace Chill, Vol. 8 (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +518,7 @@ VA - Clinique The Best of 2021 (2022) [AAC|~331 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +547,7 @@ VA - Sunrise Meditation, Vol. 06 (2020) [AAC|~311 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +576,7 @@ VA - Sunrise Meditation, Vol. 05 (2020) [AAC|~327 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,7 +605,7 @@ VA - Sunrise Meditation, Vol. 10 (2021) [AAC|~314 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +634,7 @@ VA - The Art Of Leisure (Nu Soul, Retro Pop and New Easy Wave) (2022) [AAC|~321 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,7 +663,7 @@ VA - Sunrise Meditation, Vol. 11 (2022) [AAC|~316 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -663,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -689,7 +718,7 @@ VA - Downtempo Lounge & Chillwave, Vol. 4 (2021) [AAC|~314 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -703,35 +732,6 @@ VA - Downtempo Lounge & Chillwave, Vol. 4 (2021) [AAC|~314 Kbps] <Lounge, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765C5129D2A8C3D237A12BFBDBDD8FDC1FC039D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528023   (735432) от 31.01.2022
-
-VA - Downtempo Lounge & Chillwave, Vol. 2 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun - Art of Love (3:44)
-02. Sunset Boulevard Project - Fly Like an Eagle (4:08)
-03. Marco Moli - This Natural Groove (4:00)
-04. Guenter Haas - Black Rose (3:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAF216F52AB81EE1B80549BC410ED0DF8296E59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1623456   (1029360) от 01.04.2023
+
+BioShock Infinite (2013) [Ru/En] (1.0.1643565/dlc) Repack dixen18 [Complete Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+BioShock Infinite – шутер от первого лица, с множественными механиками ролевого приключения в стилистике научной фантастики и стимпанка. Игра будет происходить в 1912 году в альтернативной вселенной, в летающем городе Соединенных Штатов Америки - Колумбия. Управлять необходимо частным детективом Букером Девиттом, имеющим задание по поиску милой девушки по имени Элизабет. (   Читать дальше...   )Тип издания: RepackРазработчик: Irrational GamesЖанр: Action, Shooter, FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C354093DA77191604B59DBA91978715F536F758B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409150   (1028399) от 01.03.2021
+
+BPM: BULLETS PER MINUTE (2020) [En] (1.0) Steam-Rip Goldberg
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сразись за могущественную Валькирию и отрази вторжение сил подземного мира в Асгард.
+В BPM все действия героя и врагов привязаны к ритму музыки. Враги будут проводить последовательности атак, подобных танцу, под эпическую рок-оперу. Для BPM источником вдохновения были ретро-шутеры 90-х. Он быстрый, неистовый и ритмичный. В игре доступны двойной прыжок, рывок, рокет-джамп (   Читать дальше...   )Тип издания: Steam-RipРазработчик: Awe InteractiveЖанр: Action, Приключенческие игры, ИндиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46EBD6EA692F87D7AB40113714F2705808C60570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399589   (1027427) от 07.03.2021
+
+Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Культовая классика возвращается! Терроризируйте землян 1950-х годов в роли злобного пришельца Крипто-137. Извлекайте их ДНК, чтобы свергнуть правительство США – как и положено в боевике про нашествие инопланетян. Аннигилируйте ничтожных хомосапиенсов супероружием и суперспособностями. Палите по городам с летающей тарелки! Давите, жгите, испепеляйте!Тип издания: LicenseРазработчик: Black Forest Games, Pandemic StudiosЖанр: Action, Adventure, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BD487BF46642D57FC34B119FFB65F0715A5463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453983   (1026489) от 13.03.2021
+
+Destroy All Humans! (2020) [Ru/Multi] (1.0.2550) Repack SpaceX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Культовая классика возвращается! Терроризируйте землян 1950-х годов в роли злобного пришельца Крипто-137. Извлекайте их ДНК, чтобы свергнуть правительство США – как и положено в боевике про нашествие инопланетян. Аннигилируйте ничтожных хомосапиенсов супероружием и суперспособностями. Палите по городам с летающей тарелки! Давите, жгите, испепеляйте!Тип издания: RepackРазработчик: Black Forest Games, Pandemic StudiosЖанр: Action, Adventure, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCE230A1FD1EB4F2C7799D564B42A2BA62A32DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454119   (1026454) от 13.03.2021
 
 S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru] (1.5.10) Repack West4it
@@ -6,7 +111,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Doom 3 + Doom 3: Resurrection of Evil (2004-2005) [Ru] (1.3/1.3.1302) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.0.1.1) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +215,7 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Relicta (2020) [Ru/En] (1.10) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +267,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Deadstep (2018) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +321,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/Multi] (6.5.0.1331/dlc) License GOG 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +347,7 @@ Metro: Exodus / Метро: Исход (2019, 2021) [Ru/Multi] (2.0.0.0/dlc) Lic
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +373,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +399,7 @@ Thief (2014) [Ru/Multi] (1.7) License GOG [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +425,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +451,7 @@ Liberated (2020) [Ru/Multi] (1.16/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +477,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/Multi] (1.32) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +503,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/En] (1.32) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +529,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +555,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +581,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip Other s [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +607,7 @@ Doom 3 BFG Edition [Ru/En] (RePack/1.0.0.1u1) 2012 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +633,7 @@ Doom 3: BFG Edition [Ru/En] (RePack/1.1400.346456) 2012 | R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +663,7 @@ Homefront [Ru/En] (RePack/1.0.384501) 2011 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,118 +675,6 @@ Homefront – сюжетно-ориентированный кинематогр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:400C217EBD597A4F8B7EC4275D866585FD15E93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601006   (998184) от 10.01.2013
-
-Will Rock / Will Rock: Гибель богов (2003) [Ru/En] (1.2) RePack R.G. Revenants
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Will Rock - шутер от первого лица с графикой, уже заслужившей себе имя в Serious Sam. Действие игры происходит на 12-и уровнях в трех локациях - Древней Греции, Древнем Китае, и Средневековой России. Вы выступаете в роли Вильяма Роквелла (Will Rock). Он когда-то был промерным бухгалтером, но отрекся от жены и детей, работы и шума города ради сокровищ, которые его дедушка - в давнем всемирно известный археолог - описал в своем дневнике. Многие пробовали раньше пробраться сквозь непроходимую стену монстров - посланников богов, но все потерпели неудачу. Подготовьтесь к долгому и захватывающему путешествию в мир потрясающего геймплея и безумной атмосферы экшена. Время надрать всем задницу!(   Читать дальше...   )Тип издания: RePackРазработчик: Saber InteractiveЖанр: Action / 1st PersonЯзык озвучки: Русский (Руссобит-М) / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский (Руссобит-М | PC Gamer) / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718F021AE44230F70DAE2E16E2B47B2FEA2E7063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575926   (997085) от 14.01.2013
-
-Brothers in Arms: Anthology [En/Ru] (Rip) 2005 - 2008| R.G. Catalyst
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая Мировая Война. Сто первая Воздушно-Десантная Дивизия снова в бою в тылу врага…
-
-Вы вновь встретитесь со знакомыми по предыдущим играм серии Brothers in Arms персонажами ─ сержантами Мэтом Бейкером и Джо Хартстоком ─ и примете участие в самой масштабной десантной операций времён Второй мировой ─ операции “Market-Garden”.
-
-Беспрецедентная графика и уникальный геймплей помогут вам почувствовать себя в шкуре настоящего десантника.(   Читать дальше...   )Тип издания: RipЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05230F5F39B753BB5DE3EA6B8508C205C88AF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570433   (996582) от 16.01.2013
-
-Painkiller. Hell & Damnation [Ru] (RePack/1.0.27204/3 DLC) 2012 | Fenixx
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Райский убийца возвращается, чтобы отомстить
-Зло вернулось! Несметные полчища страшных тварей из ада пытаются овладеть душами, запертыми в Чистилище.
-Дэниелю Гарнеру не позавидуешь: будучи одновременно Даром Света и Проклятием Тьмы, ему снова придется прокладывать себе путь через армию демонов.
-Вопрос вот в чем... Сможет ли он победить всех, кто встанет на его пути? Выберется ли он из адского Чистилища и найдет свою жену Катерину?
-Painkiller Hell & Damnation — это восхитительный римейк великолепного классического шутера! (   Читать дальше...   )Тип издания: RePackРазработчик: The Farm 51Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Английский, РусскийЯзык субтитров: Английский, РусскийЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9071BE28EA8ABE64AD88067CD41BEC39B9ADDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602906   (996580) от 16.01.2013
-
-No One Lives Forever Антология / No One Lives Forever Anthology + OST [Ru/En] (RePack) 2000-2003 | Sylvester
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну кто же не хочет жить вечно? No One Lives Forever - это классический шпионский боевик в духе шестидесятых годов, сочетающий в себе тайные операции и шумные перестрелки. Здесь есть все: и смертоносное оружие, и живописные пейзажи экзотических стран, и, конечно, коварные злодеи мирового масштаба. Задание: войти в роль Кейт Арчер - обаятельной красотки и смертоносного тайного агента в одном лице. Кейт работает на U.N.I.T.Y. - сверхсекретную организацию, уничтожающую остатки террористической организации H.A.R.M. по всему миру.(   Читать дальше...   )Тип издания: RePackЖанр: First Person Stealth ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

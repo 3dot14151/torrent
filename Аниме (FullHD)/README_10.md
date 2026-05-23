@@ -1,3 +1,55 @@
+###  Публикация: 918154   (923804) от 21.01.2017
+
+Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? | Danmachi | Может, я встречу тебя в подземелье? [2014, TV, 13 эп. + 1 OVA] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Богам стало скучно, и они сошли в мир, оставив себе минимум атрибутов божественности – бессмертие, предвидение и чуточку силы, чтобы поддерживать своих последователей. Город Орарио, где высится огромный донжон, работает на искателей приключений самых разных рас, которые собираются в кланы, возглавляемые многочисленными богами. Отдельной силой в городе является Гильдия (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтези, романтикаРежиссер: Ямакава ЁсикиПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 серий +1 OVA по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47859E5D33FC31B94B5DCB4ED2D1EC506984F3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861909   (923247) от 27.01.2015
+
+Mushishi Zoku Shou | Mushi-Shi: Next Passage | Мастер Муси: Следующая глава [2014, TV, 11 эп.] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+На далеком Западе век пара и электричества, а в закрытой от иностранцев Японии все еще царит загадочный Восток, где люди верят, что все мы живем в плену иллюзии, а жить-то все равно надо. Любой японец знает, что за тонкой пеленой таятся иные миры и сущности, но соприкасаться с ними простому человеку не стоит. И все же, как говорят герои сериала, иногда «тайное должно (   Читать дальше...   )Производство: ArtlandЖанр: мистика, драма, седативРежиссер: Нагахама ХиросиСубтитры: русские отФормат: BDRipПродолжительность: 11 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC8257B9FA5E8CCDAC80D92A96F9AF5BEE94EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095803   (922771) от 22.01.2017
 
 Трёхцветный клевер | Three Leaves, Three Colors | Sansha Sanyou [2016, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +58,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +218,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Как и 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +244,7 @@ Macross Plus | Макросс Плюс [1994, OVA, 4 из 4] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +270,7 @@ Arata Kangatari | Arata: The Legend | Легенда Араты [2013, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +296,7 @@ Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +322,7 @@ Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +348,7 @@ Macross Plus: Movie Edition | Macross Plus The Movie | Макросс Плюс: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +374,7 @@ Urawa no Usagi-chan / Усаги-чан из Уравы [2015, TV, 13 из 13] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +400,7 @@ Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +426,7 @@ Mugen no Ryvius | Infinite Ryvius | Бесконечное путешестви�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Girlfriend (Kari) | Girlfriend (Beta) | Девушка (Бета) [2015, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +504,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +531,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita | Я 300 ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +557,7 @@ Dr. Stone: Stone Wars | Доктор Стоун [ТВ-2] [2021, TV, 11 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +583,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +609,7 @@ High School DxD Born | Демоны старшей школы [ТВ-3] [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +635,7 @@ Altered Carbon: Resleeved | Видоизмененный углерод [2020, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -609,7 +661,7 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Покорен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -620,65 +672,6 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Покорен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DC4F4303D3344AAD3B171306893C14D12D7B296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292502   (906730) от 07.02.2011
-
-Heroic Age / Героический Эйдж [2007, TV, 26] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ответив на зов "Золотой расы", 3 расы собрались в одной вселенной ! Человеческая раса была последняя, 4-я раса , которая ответила на их зов и её прозвали "Стальной расой". Много времени прошло с того момента и человечеству угрожает уничтожение от "Серебряной расы". Дабы спасти всё человечество,
- принцесса Дианейра отправляется на поиски (   Читать дальше...   )Жанр: приключения, романтика, фантастика, меха
-Тип: TV-сериал
-Количество серий: 26
-Продолжительность:  (26 эп.), 25 мин..(   Читать дальше...   )Режиссер: Судзуки Тосимаса
-
-Битрейт видео: 5000 Kbps
-Размер кадра: x264, 1920x1080(   Читать дальше...   )Субтитры: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE70799EF2CE4169E77662A403BE034F0AAED2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369268   (905577) от 22.03.2020
-
-Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается на колонизированном Марсе, примерно через полвека после того как человечество покинуло свою колыбель. В новом мире созданием художественных произведений занимается искусственный интеллект, людям же отведена роль потребителей. В огромном мегаполисе Альба Сити живёт 17-летняя Кэрол, работающая то тут, то там и пытающаяся стать музыкантом, но (   Читать дальше...   )Производство: студия BONES / ボンズЖанр: приключенияРежиссер: Ватанабэ СинъитироПеревод: Nisikino & Kotori & ArjentoЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71002B92399A48DBBCFD3476EC52E6BF68E99AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

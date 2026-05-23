@@ -1,3 +1,55 @@
+###  Публикация: 538024   (510365) от 22.08.2012
+
+Звёздные врата: Правдивая наука / True Science of Stargate (2006) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о том, как те или иные факты в сериале, подтверждаются наукой.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812AFACA3B844DC0D8DDA5B0CCAF68106A387962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931939   (510039) от 28.08.2015
+
+BBC. В краю муссонов: Засуха / Wonders of the Monsoon: The Drought (2014) BDRip [H.264/720p] [VO]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Документальный цикл, который знакомит зрителей с самой грандиозной климатической системой планеты – муссонами. Они имеют огромную власть над всем живым, поскольку могут даровать жизнь, а могут ее же и забирать. Муссоны создали сказочные ландшафты, которые можно лицезреть по всей планете от Гималаев до Австралии. В этот промежуток времени природе особенно тяжело, (   Читать дальше...   )Засуха. The DroughtЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Одноголосый закадровый любительский (Ю. Онищенко)Субтитры: Русские, английскиеПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8B714736C8A231588DD501FC180CE89BFC70EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538402   (509719) от 23.08.2012
 
 Discovery: Джек Потрошитель. Первый серийный убийца / Jack The Ripper. The First Serial Killer (2006) SATRip
@@ -6,7 +58,7 @@ Discovery: Джек Потрошитель. Первый серийный уби
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery: Призрак большой белой / Great Whaite Abyss (2018) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Animal Planet. Дикие жёны саванны / Wildwives of Savannah Lane (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Animal Planet. Снежный барс в зелёном Лондоне / Snow L
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Animal Planet. Самые большие и страшные жуки в мир�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ BBC. Империя Смерти / Empair of Death (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC: Грязные города. Индустриальный Нью-Йорк [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ BBC: Мир природы: Полярные медведи и гризли на
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ Discovery. Сквозь червоточину с Морганом Фримен�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ BBC. Горизонт. 10 вещей, которые мы должны знат�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTV [H.264/108
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ NGW: Кошка будущего / Future Cat (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Animal Planet. Земля зверей. Тигры-убийцы / Beast Lands. K
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Animal Planet: Вторжение паразитов (Нашествие). Па�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ History Channel. Рейхсканцелярия Гитлера / Inside Hitler's
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ Animal Planet: В дебрях Латинской Америки [ 5 из 5] / W
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +668,6 @@ Animal Planet: В дебрях Латинской Америки [ 5 из 5] / W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5352B6FC78E8BB8FC3C437FC8DE74C0367FB0C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932921   (499343) от 08.09.2015
-
-Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 серии из 5)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам нужен хороший взрыв? Мастер-пиротехник Мэтт Барнетт готов прийти на помощь! Клиенты со всего мира обращаются к нему с самыми невероятными просьбами – Мэтту приходится взрывать бомбы времен Второй мировой войны, метамфетаминовые лаборатории, а также устраивать грандиозные салюты, от которых захватывает дух. Каждый новый заказ – будто испытание, но Барнетт проходит (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F2D45C102FA338220ECB672ED61B358BC191C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926566   (499092) от 08.09.2015
-
-Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip  [H.264/720p-LQ] [1-5 серии из 5]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам нужен хороший взрыв? Мастер-пиротехник Мэтт Барнетт готов прийти на помощь! Клиенты со всего мира обращаются к нему с самыми невероятными просьбами – Мэтту приходится взрывать бомбы времен Второй мировой войны, метамфетаминовые лаборатории, а также устраивать грандиозные салюты, от которых захватывает дух. Каждый новый заказ – будто испытание, но Барнетт проходит (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B412B5318FDBB892AB74E61759762D95265E3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

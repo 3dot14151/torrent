@@ -1,3 +1,81 @@
+###  Публикация: 1442024   (1037173) от 23.01.2021
+
+Ski Tracker v2.3.01 Premium [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ski Tracker - отслеживание на лыжах, это приложение для всех, кто любит снег и зимние виды спорта. Полезно для лыжников и сноубордистов. Измерьте максимальную скорость на лыжах, дорожки, расстояние, отметьте склоны на карте и обеспечить полную статистику вашей зимней спортивной деятельности.Тип издания: Пиратка (Premium)Релиз состоялся: 6 января 2021 г.Разработчик: EXA ToolsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470E7DB9B2C10710532F8292FA09EE7935516793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385009   (1037030) от 23.01.2021
+
+Adobe Master Collection For Android [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Master Collection For Android - Сборник всех программ от Adobe под Android. В сборнике имеются абсолютно все программы от данного производителя, за исключением очень старых Приложений.Тип издания: ПираткиРелиз состоялся: 2015-2020Разработчик: AdobeПоддерживаемая ОС: Android 2.2-10Язык интерфейса: Английский, Русский (Не для всех приложений)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93461482F0A148F825434E0C9CFD646A68AD1047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572165   (1036921) от 28.02.2023
+
+RuStore 1.3.6 (159) [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+RuStore отечественный магазин приложений от VK для Android устройств. Запуск бета - версии магазина RuStore состоялся 25 мая 2022 года. За создание нового магазина взялись VK с командой опытных сторонних разработчиков, которых контролирует Минцифры РФ. Как обещают, в дальнейшем маркетплейс будет установлен по умолчания на всех российских устройствах андроид. Наша (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 30.08.2022Разработчик: команда VKПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2959B1154FC0647B0FDF1BA9A99BBFB157212B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442430   (1036517) от 25.01.2021
 
 LocalCast v33.1.2.8 [Ru/Multi] (обновляемая)
@@ -6,7 +84,7 @@ LocalCast v33.1.2.8 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +163,7 @@ Selena v0.2.18 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +189,7 @@ Voice Training / Голосовая тренировка ver.Autoscroll Fix (120
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +218,7 @@ Solid Explorer File Manager v2.8.8 Full [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +247,7 @@ Cut Paste Photos v9.10.3 Pro [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +299,7 @@ Photo Grid - Collage Maker Premium v7.90 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +325,7 @@ Point Blur v7.1.7 [En/Ru] - Обработка размытия фотограф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +380,7 @@ LibriVox AudioBooks v2.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +406,7 @@ PortraitAI - Аватар эпохи Ренессанса v1.3.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +432,7 @@ Fake GPS Joystick & Routes Go v1.6.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +458,7 @@ WEATHER NOW v0.3.40 Premium [Ru] - прогноз погоды, метео-ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +485,7 @@ Drops Learning Languages v35.47 [Ru/Multi] - Изучение иностранн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +511,7 @@ Fuelio: топливо и расходы v7.8.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +537,7 @@ Film Maker v2.9.1.5 Pro [En] – Видеоредактор, фото и Эфф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -487,7 +565,7 @@ Paranoia: Родительский контроль v1.0.7.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,7 +591,7 @@ Engineering Tools : Mechanical v206 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,7 +619,7 @@ PC Remote v7.4.2 Vip [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,7 +648,7 @@ Floor Plan Creator v3.6.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,90 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C256FDEA965FD7CB8B9252F7AC106F3E1332D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238007   (1034043) от 03.02.2021
-
-AudioBooks. Аудиокниги бесплатно v4.0.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 15000 аудиокниг и радиоспектаклей  зарубежных и отечественных авторов Бесплатно. Без подписки или регистрации:
-— Фантастика,
-— Романы,
-— Детективы,(   Читать дальше...   )Тип издания: Mod  (удалена реклама)Релиз состоялся: 01.02.2021Разработчик: Sergey FomichevПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53A5015AD4C666B8F3984FD1A989EB38364BD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445044   (1033868) от 04.02.2021
-
-Комплект из 50 строительных калькуляторов Житова v10.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект строительных калькуляторов.
-
-Более 50 разных калькуляторов и конструкторов в одном приложении:
-(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 15 июня 2020 гРазработчик: Дмитрий ЖитовПоддерживаемая ОС: Android - Зависит от устройстваЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC2D721AA716CCDBAD510E6E3B9F2BF13AB15F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618984   (1033618) от 13.03.2023
-
-Все коды регионов. Штрафы ГИБДД v9.00.21 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнать откуда машина - не проблема! 🚗🚙. По гос.номеру автомобиля вы можете определить из какого региона этот автомобиль, к какому роду войск принадлежит, или за посольством какой страны закреплен. Удобный инструмент для определения региона регистрации автомобиля по индексу в номере. Встроена база по регионам СНГ. Присутствует встроенная игра на запоминание (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.02.2023Разработчик: RunIQ SoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3445006AC3E152C812032A033383B32F4B84779
 ```
 
 https://mybot314.ru/tekegram_catalog/

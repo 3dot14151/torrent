@@ -1,3 +1,81 @@
+###  Публикация: 1280812   (758176) от 04.02.2019
+
+Praey for the Gods (2019) [Ru/Multi] (0.5.006) Repack Other s
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Praey for the Gods — приключенческий экшен, который, по сути, является реинкарнацией Shadow of the Colossus для PC от независимой студии No Matter. Игроку предстоит ощутить себя в шкуре одинокого охотника в мире вечной зимы, находящегося на грани уничтожения. Чтобы выжить, вам предстоит сражаться с огромными созданиями при помощи лука и своей смекалки.Тип издания: RepackРазработчик: No Matter StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0453828418271476012E6224C99F8DB06120DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019948   (744509) от 26.05.2016
+
+Raptors: Be A Dinosaur (2014) [En] (Beta) Repack John2s
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Перед вами Raptors: Be a Dinosaur — маленькая игра про динозавров студии Kubold, наглядно показывающая возможности движка Unity. В интернете её окрестили не иначе как "симулятор динозавра". Игрушка выглядит больше как показательная. Что может этот движок, его плюсы и минусы. К сожалению, дальнейшая разработка этой игры не планируется и это действительно (   Читать дальше...   )Тип издания: RepackРазработчик: KuboldЖанр: 3D-бродилки, АркадаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED881DF8C4AF338BE0F64D32DE28589C826F731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282801   (740208) от 16.02.2019
+
+Fatal Evidence: Cursed Island (2019) [En] (Beta) Unofficial
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прошла неделя с тех пор, как был убит судья Максвелл МакГрегор, но Агата все еще в шоке. Сегодня было получено странное письмо от сына Уилсона! Это приглашение в усадьбу МакГрегоров на острове Блэквуд. Судя по всему, судья Макгрегор оставил что-то в своем завещании. Расследуете убийство.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905265C67AB9205225B325119204167EEA1C3576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016526   (730216) от 31.05.2016
 
 Empyrion - Galactic Survival (2015) [Ru/En] (1.6.1.0433) Repack Sudora
@@ -6,7 +84,7 @@ Empyrion - Galactic Survival (2015) [Ru/En] (1.6.1.0433) Repack Sudora
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Earthfall (2017) [En] (12644) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ FARHOME (2018) [Ru/Multi] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Phantom Trigger (2017) [En] (Alpha) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ House of the Dying Sun (2016) [En] (6.08.2016) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Youtubers Life (2016) [Ru/Multi] (0.7.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Bio Inc. Redemption (2017) [Ru/Multi] (0.90) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Oxygen Not Included (2017) [Ru/En] (217565) SteamRip Let'sPlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Sudden Strike 4 (2017) [En] (22.05.17) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ ASTROKILL (2016) [En] (0.5.0.6) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Wolcen: Lords of Mayhem (2016) [Ru/Multi] (0.4.2H) SteamRip Let'sPlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Cliff Empire (2018) [Ru/Multi] (1.9.12) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Raw Data (2016) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Deck of Ashes (2019) [Ru/Multi] (1016730) Repack xatab
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ CDF Starfighter VR (2016) [En] (0.55) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Dropship Down (2016) [En] (0.2.0.23) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ Envoy 2 (2016) [Ru/En] (Experimental version) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ Darkwood (2014) [En] (alpha 5.0) RePack YaKrevetko [Steam Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ Crea (2014) [En] (0.18.0) Repack YaKrevetko [Steam Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ Black The Fall (2017) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ Steel Division: Normandy 44 (2017) [Ru/En] (300093748/dlc) Repack =nemos=
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Depth (2014) [Ru/Multi] (25657) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ Boid (2015) [En] (0.6.223) Repack Hazestalker [Early Acsess]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,88 +669,6 @@ Boid - классово-ориентированная стратегия в р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADDBEF749056D6EE6994F54B9137090E5FFFC17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040375   (587130) от 04.08.2016
-
-Diesel Guns (2015) [Ru/Multi] (0.7.1.0 DEMO) License
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diesel Guns — это олдскульная кар комбат игра, в стиле Twisted Metal, interstate 76, Vigilante 8, San Francisco Rush 2049, разрабатываемая фирмой “Intenzibne”. Игровая механика сочетает драйв и аркадное веселье боевых гонок с проработанностью классического сетевого шутера, а удобное и интуитивно понятное управление позволяет полностью сосредоточиться на геймплее (   Читать дальше...   )Тип издания: LicenseРазработчик: IntenzibneЖанр: Arcade (Car combat), Action, IndieЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467E57272A91B59AC3EB2DEA9E2F3CB74EFEC3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360589   (579500) от 08.07.2011
-
-[DEMO] Гарри Поттер и Дары Смерти. Часть 2 / Harry Potter and the Deathly Hallows Part II  [Ru] 2011
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпическая сага, не теряющая популярности уже почти десятилетие, подходит к концу. В видеоигре "Гарри Поттер и Дары Смерти: Часть 2" игроку предстоит выступить в роли Гарри и других ключевых персонажей и выполнить крайне сложное и невероятно опасное поручение - найти и уничтожить оставшиеся крестражи, а с ними и самого Волан-де-Морта. Проникнуть в секретные хранилища банка "Гринготтс", столкнуться с безжалостным адским пламенем в Выручай-комнате и сразиться с могущественными соратниками Темного Лорда все это выпадет на долю игрока в решающей схватке с Волан-де-Мортом и силами зла. Столь масштабных сражений в серии игр о Гарри Поттере еще не было, ведь в последней битве за Хогвартс на кон поставлена судьба всего мира волшебников.Тип издания: DEMOЖанр: Action (Shooter) / 3D / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527274   (578366) от 25.07.2012
-
-Pro Evolution Soccer 2013 (Demo) [Ru/En/Multi35] 2012
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro Evolution Soccer 2013 – продолжение знаменитой серии симуляторов футбола от японской компании Konami. Игра предложит полную свободу контроля над мячом, полностью ручные пассы и удары, пониженную скорость дриблинга, больше контроля над вратарями, а также улучшенный искусственные интеллект.
-
-Первая демо-версия 25 июля, в ней собраны 4 сборные: Англия, Германия, Италия и Португалия и 4 бразильской команды: Фламенго, Флуминенсе, Интернасьонал и Сантос.
-
-Вторая в начале сентября. (   Читать дальше...   )Тип издания: Demo #1Разработчик: Konami Computer Entertainment TokyoЖанр: Sport (Soccer) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Multi35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FE46BAEE751A3EC2312010D214D7E6F0FD045E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1870716   (1068948) от 
+
+Windows 10 22H2 x64 by OneSmiLe [19045.7291] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+Лаунчер от ФБ
+ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
+Установлены обновления по 13.05.2026(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365FE3A314C1C99BBE903F0306FD282F8FCA13B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869044   (1067869) от 03.05.2026
 
 Windows 10 (v22h2) x64 PRO by KulHunter v31 (esd) [Ru]
@@ -7,7 +36,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v31 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +65,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v31 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -65,7 +94,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.7184 (Updated April 2026) by FaTaL [R
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -94,7 +123,7 @@ Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2 RU by OVGorskiy 04.2026
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -120,7 +149,7 @@ Windows 10 22H2 x64 by OneSmiLe [19045.7184] [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -149,7 +178,7 @@ Windows 10 3in1 x64 22Н2 (build 19045.7058) by ivandubskoj 23.03.2026 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -175,7 +204,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 03.2026
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -201,7 +230,7 @@ Microsoft® Windows® 10 Professional VL x64 22H2 RU by OVGorskiy 03.2026
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -227,7 +256,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.7058 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -256,7 +285,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -285,7 +314,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -314,7 +343,7 @@ Windows 10 Enterprise LTSC 2021 (x64) Elgujakviso Edition (v.13.02.26) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -343,7 +372,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6937 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +401,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +430,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +459,7 @@ Windows 10 3in1 x64 22Н2 (build 19045.6812) by ivandubskoj 04.02.2026 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -456,7 +485,7 @@ Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.04.02.26) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -485,7 +514,7 @@ Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Window
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -511,7 +540,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 01.2026 by OVGorskiy
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -537,7 +566,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6809 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -566,7 +595,7 @@ Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2024 by Eagle123 (12.2025) [R
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -592,7 +621,7 @@ Windows 10 x64 24in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.12.
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -619,7 +648,7 @@ Windows 10 22H2 Compact (19045.6691) by Flibustier [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +677,7 @@ Windows 10 22H2 19044.6691/19045.6691 by SURASOFT (v25.12.09) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -677,7 +706,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6691 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -691,33 +720,6 @@ ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0C6511A2B0CC54CEEC75F4A25C2348FCE6F6D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840516   (1047375) от 16.12.2025
-
-Windows 10 Pro 22H2 19045.6575 x64 by SanLex [Lightweight] [Ru/En]
-
->>След.
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинальном образе Windows_10_Pro_edition_22h2_x64 для оптимального и комфортного пользования. Цель проекта — улучшить скорость реагирования, производительность и конфиденциальность Windows. Идеально подходит для повседневного домашнего пользования, игр, графического дизайна и работы тяжёлого характера.
-Удалены, отключены или заблокированы (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA79EBD5E2219F15C2D6B56DE3EF0944554588FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

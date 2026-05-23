@@ -1,109 +1,3 @@
-###  Публикация: 357118   (139702) от 29.12.2021
-
-Зеленая серия [78 томов] (1994-2002) [FB2, CHM]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если есть Красная серия и Белая серия, то уж никак не обойтись без Зеленой (прямо, как после революции).
-Зеленую серию составили книги, принадлежащие перу самых известных зоологов и писателей-натуралистов. Также широко представлены издания, посвященные географическим открытиям и знаменитым путешествиям и путешественникам. Книги иллюстрированы и будут интересны широкому (   Читать дальше...   )Жанр: Книги о животном миреФормат: FB2, CHM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4118D593D34EC31F94BEBEBC97CA88BC3335137A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520970   (139540) от 30.12.2021
-
-Марфа Соколич | Сказочный лес. Спасибо белой вьюге (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка для малышей о непоседливом бельчонке, заблудившемся в зимнем лесу. Написанная простым, понятным языком, с прекрасными иллюстрациями Татьяны Бариновой, она очень понравится малышам.Жанр: Детская литература/СказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95381D3C65F8C6E56A8F16FDAC42FAB1890A78FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970851   (139536) от 31.12.2015
-
-Владимир Степанов | Что случилось у котят? (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для детей дошкольного возрастаЖанр: Детские стихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3671C4C11A987811CA62F1152B8AC6A7369676F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520976   (139493) от 30.12.2021
-
-Сергей Михалков | Всё для детского сада. Сказки в стихах (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139493.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу «Сказки в стихах» классика детской литературы С.В. Михалкова вошли сказки о том, как старик корову продавал; про Мороза и Морозца; о дружбе доброго пекаря и его верного пса и сказка о светофоре. Иллюстрации лучших художников С. Бордюга и Н.Трепенок, М. Фёдорова, И. Глазова, А. Халиловой.
-Для старшей группы детского сада. Для воспитателей детского сада, руководителей (   Читать дальше...   )Жанр: Детская литература/Сказки/СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70660EEB70ED1469DD4833581F3FB2C3F9956F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970839   (139472) от 31.12.2015
 
 Екатерина Карганова | Топ-топ-топотушки (2010) [PDF]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -459,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -541,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -647,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -673,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -684,6 +578,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:659A096C86D1A9DA9EC225C8778B6FB160C158C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525356   (129528) от 20.01.2022
+
+Самуил Маршак | Быль-небылица (1947) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ребята, прячась от дождя забрели в подъезд. Следом за ними, туда же зашли и рабочие. И пока пережидали ливень, один из рабочих поведал детям историю дома напротив.Жанр: Стихи, РассказФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EFE88139FB550400A1BA3BFAF758014E07C24E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294354   (128979) от 22.01.2022
+
+Николь Ленар-Виру | Умная сказка. Гадкий утенок (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Развиваем мышление, память и наблюдательность! Задания на развитие логики для детей 3-5 лет. Эта сказка содержит игровые задания, которые помогут развить наблюдательность ребенка, его умение запоминать, мыслить и анализировать. Задания расположены внизу каждой страницы, отдельно от текста сказки, поэтому они не будут мешать читать и перечитывать сказку. Ребенок воспримет (   Читать дальше...   )Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9ED9CD7B46BBB31DBE345A5780C70F33CF2F4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294281   (128978) от 22.01.2022
+
+Николь Ленар-Виру | Умная сказка. Колобок (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Развиваем мышление, память и наблюдательность! Задания на развитие логики для детей 3-5 лет. Эта сказка содержит игровые задания, которые помогут развить наблюдательность ребенка, его умение запоминать, мыслить и анализировать. Задания расположены внизу каждой страницы, отдельно от текста сказки, поэтому они не будут мешать читать и перечитывать сказку. Ребенок воспримет (   Читать дальше...   )Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A281B95AB089591F1FF01A543308526B3AFB014F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294268   (128975) от 22.01.2022
+
+Николь Ленар-Виру | Умная сказка. Маша и три медведя (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Развиваем мышление, память и наблюдательность! Задания на развитие логики для детей 3-5 лет. Эта сказка содержит игровые задания, которые помогут развить наблюдательность ребенка, его умение запоминать, мыслить и анализировать. Задания расположены внизу каждой страницы, отдельно от текста сказки, поэтому они не будут мешать читать и перечитывать сказку. Ребенок воспримет (   Читать дальше...   )Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A643F818A247ABB990E3A72551F17DAD0273CA8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1378795   (844001) от 26.04.2020
+
+Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! | Я Сказала, Усредни Мои Способности! [2019, TV, 12 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В день, когда Адель фон Аскам исполнилось 10 лет, она вспомнила всё о своей прошлой жизни в качестве Мисато Курихары. Она была японской девушкой с выдающимися способностями, которой её таланты только мешали. Возвращаясь с выпускного, Мисато погибла, спасая маленькую девочку. На небесах она встретила Бога, который предложил ей прожить ещё одну жизнь, но в параллельном (   Читать дальше...   )Производство: Project No.9, ЯпонияЖанр: Приключения, Комедия, фэнтезиРежиссер: Ота МасахикоОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39A3898CE283E25E48098ECD22597956F0E28E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378840   (844000) от 26.04.2020
+
+Гордость убийцы | Assassins Pride [2019, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в мире, где представители благородных семейств (и только они) владеют маной, при помощи которой могут сражаться с монстрами. Юноша по имени Куфа, рождённый в семье герцога, получает задание стать наставником девушки из древнего рода паладинов по имени Мерида и выявить её до сих пор не раскрывшиеся таланты по управлению маной. Впрочем, есть (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: приключения, фэнтезиРежиссер: Айура КадзуяЯзык озвучки: Русский закадровый (AniLibria.tv), (SHIZA Project)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:463505D6E9744250AB4EA1EBCC3E08A4615DB9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378797   (843999) от 26.04.2020
+
+Dumbbell Nan Kilo Moteru? | Насколько Тяжёлые Гантели ты Сможешь Поднять? [2019, TV, 12 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь: Хибики Сакура — ничем не примечательная старшеклассница, которая очень сильно любит поесть. Её лучшая подруга — Аяка Уэхара, которая в один не прекрасный для Хибики день замечает, что та набрала вес. Неприятные новости приводят девушку к мысли о том, что нужно садиться на диету, но... не с аппетитом Сакуры! А потому героиня отправляется в спортивный (   Читать дальше...   )Производство: Dogakobo, ЯпонияЖанр: Комедия, СпортРежиссер: Ямадзаки МицуэОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EBE7291247F1812E213878EC1F53D4AA6ED28A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378783   (843998) от 26.04.2020
 
 Wolf's Rain | Волчий Дождь [2003, TV, 30 ep] BDRip 10-bit 1080p raw+rus
@@ -6,7 +84,7 @@ Wolf's Rain | Волчий Дождь [2003, TV, 30 ep] BDRip 10-bit 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +111,7 @@ Monster Musume no Iru Nichijou | Повседневная Жизнь с Деву
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +138,7 @@ Shiki | Усопшие [2010, TV, 22 ep + 2 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +164,7 @@ Kekkai Sensen & Beyond | Фронт Кровавой Блокады [TV-2] [2017
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +190,7 @@ Toaru Majutsu no Index III | Некий Магический Индекс [TV-3]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +217,7 @@ Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +244,7 @@ Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +377,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 из 12] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +404,7 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +430,7 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -378,7 +456,7 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -404,7 +482,7 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -430,7 +508,7 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -458,7 +536,7 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -484,7 +562,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -510,7 +588,7 @@ OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Лю�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -536,7 +614,7 @@ OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -562,7 +640,7 @@ Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -588,7 +666,7 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -599,86 +677,6 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E59A85BA7A0C261B8D061AF1DC5B5502B2227FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342899   (825616) от 07.05.2020
-
-Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виолетта Эвергарден, молодая девушка, чья жизнь — не что иное, как война, послушно служит под командованием майора Гилберта Бугенвиллеи из армии Ляйденшафтлиха.
-После серьёзных увечий, оставивших её без рук и разделивших с Гилбертом, она покинула поле боя и была взята под опеку бывшим командующим армии Клаудией Ходжинсом, который после окончания войны основал почтовую (   Читать дальше...   )Производство: Kyoto Animation, ЯпонияЖанр: Повседневность, ДрамаРежиссер: Исидатэ ТайтиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 25 мин.; 1 Эпизод 34 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5117BC59BB705AC08A659CCAB393EF954A97C778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381542   (825615) от 07.05.2020
-
-Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважный молодой воин Гатс испытывает судьбу в качестве наёмника на передовой. Роковая встреча сводит Гатса с харизматичным и беспощадным юношей по имени Гриффит. Возглавляя непобедимый отряд, известный как «Банда Ястреба», Гриффит владеет грозной силой, несравнимой ни с чем. Движимые стремлением к статусу, «ястребы» проявляют невиданную доселе доблесть в военных (   Читать дальше...   )Производство: Oriental Light and Magic, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Такахаси НаохитоОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 25 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817765260D1B8A99404DCE92263315001CA8B186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360458   (825614) от 07.05.2020
-
-Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 ep] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825614.jpg" />
-</div>
-
-
-###  Подробнее
-
-И вот вышла многопользовательская игра нового поколения — игра, где смерть реальна и бегство невозможно. Единственный выход — дойти до конца. А называется игра «Sword Art Online».
-Не зная этой правды, десять тысяч игроков, используя нейрошлемы компании «Агис», зарегистрировались одновременно и тем самым положили начало смертельной битве, длящейся уже два долгих года. (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Приключения, Фэнтези, Романтика, ДрамаРежиссер: Ито ТомохикоОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 25 Эпизодов по 23 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C246D97DA922A989AF07CB5E23B76918EECB514
 ```
 
 https://mybot314.ru/tekegram_catalog/

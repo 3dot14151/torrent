@@ -1,3 +1,115 @@
+###  Публикация: 1223307   (677137) от 03.05.2018
+
+Ю. Хабермас, Й. Ратцингер (Бенедикт XVI) | Диалектика секуляризации. О разуме и религии (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В диалоге Юргена Хабермаса и Йозефа Ратцингера обсуждается вопрос о секулярных принципах современной европейской цивилизации.
+Издание адресовано всем, кто интересуется современной богословской и философской мыслью.Жанр: Богословие, философияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A26BD1691812786922EE0A8D747C18BB6423D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136186   (675070) от 22.05.2017
+
+Д. С. Чунтонов (сост.) | Преподобный Варсонофий Оптинский. Дары Божии (2012) [DJVU, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Варсонофий Оптинский
+
+Преподобный Варсонофий (в миру Павел Иванович Плиханков) родился 5 июля 1845 года в Самаре, в купеческой семье.
+(   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDDABE1AE446959EDA2F5D63B1DBBA004303EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030349   (674975) от 30.06.2016
+
+Протопресвитер Виталий Боровой | Православный экуменизм Русской Церкви и его заветы настоящему времени (1999) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание подготовлено известным специалистом прот. Виталием Боровым. Автор высказывает интересную точку зрения на возможности диалога и совместной деятельности разных конфессий на территории Беларуси. Проблема рассматривается как с исторический, так и с политической точки зрения.
+
+Для читателей, интересующихся проблемами межцерковного диалога христианских (   Читать дальше...   )Жанр: ЭкуменизмФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3831AA7FA1FBB8204CDA7E0060F6A25EE640B593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030308   (674824) от 30.06.2016
+
+Ирина Финдлоу | Путь к единству (1998) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+"Эта книга — история любви, точнее, две истории, переплетающиеся в одной. Англиканский священник встречает молодую русскую беженку, и об истории их любви и семейной жизни с нежностью рассказывает Ирина Финдлоу. Но кроме того, это также свидетельство любви к России, силе её духовного характера, которую Ирина и Джон пронесли через всю свою жизнь..."
+
+Ричард (   Читать дальше...   )Жанр: MемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AAB9999CAE6DE66A7BDCF43111F9DE65180388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136254   (674763) от 22.05.2017
 
 Ф. Родионов (ред.) | Красноармейский антирелигиозный учебник (1931) [PDF]
@@ -6,7 +118,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -142,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -168,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -194,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -220,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -248,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,110 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8994785B5DDE3A55E4B8E892CF1C49F33CE3AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224136   (667187) от 09.05.2018
-
-Б. Х. Цавкилов | В чем вред морали ислама? (1965) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Громадные социально-экономические и культурные изменения, происшедшие в нашей стране за годы советской власти, коренным образом переделали быт, психологию и привычки населения Советского Союза, в том числе и Кабардино-Балкарии. Архаичное и реакционное, темное и невежественное уступило место новому и прогрессивному, радостному и светлому. В частности, из области быта (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669A78B9D0FC1AFC8C103DEB65544AF6A042199F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224068   (667117) от 09.05.2018
-
-Н.К. Симаков | Православные святыни Востока, Греции и Афона. Записки русского паломника (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представленная книга включает в себя записки современного паломника, которые были написаны в разные годы. В них автор делится увиденным во время путешествий по святым местам. По его мнению, паломничество помогает открыть современному человеку, что такое духовная жизнь во Христе и как можно к ней практически приобщиться. Отправляясь на богомолье, паломник отрывается (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CE95473BDA5C4823C2E4DF03F8C3CE1A634363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137918   (666786) от 27.05.2017
-
-Кейс Ваайман | Духовность. Формы, принципы, подходы [II Тома] (2009) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - путеводитель по безграничному пространству духовности. Кейс Ваайман ставит перед собой вопрос, что же такое духовность, и рассматривает все возможные ее проявления: духовные традиции древних и современных мировых религий, духовность человеческой жизни, духовность обычных людей и религиозных деятелей, духовность библейская, духовность мистическая, духовность (   Читать дальше...   )Жанр: Богословие, религоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0677A0994EAB11FC46CCC29393863A23C81F417D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137912   (666785) от 27.05.2017
-
-Светлана Панич, Ирина Языкова (ред.) | "Пир - это лучший образ счастья". Образы трапезы в богословии и культуре (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга задумана как благодарное приношение Наталье Леонидовне Трауберг, верившей что "райские реки текли молоком, водой, вином и пивом" и как мало кто умевшей расцвечивать милостью самые сумрачные времена. Именно она однажды предложила собраться и "поговорить о еде в культуре". Авторы сборника - библеисты, историки религий, культурологи, этнографы, (   Читать дальше...   )Жанр: Богословие, культурологияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8631CB10824377D1322674504B6FA3A41799531
 ```
 
 https://mybot314.ru/tekegram_catalog/

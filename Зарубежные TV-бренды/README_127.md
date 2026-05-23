@@ -1,3 +1,55 @@
+###  Публикация: 1148931   (33724) от 19.12.2024
+
+BBC: В какой Вселенной мы находимся? / Which Universe Are We In? (2014) HDTV [H.264/1080i-LQ] (Сезон 51, эпизод 17)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Есть одна гипотеза, некогда считавшаяся настолько радикальной, что одно её упоминание считалось как полное безумие... Но сегодня есть ученые, считающие, что она и в самом деле верна. Они говорят, что наша Вселенная не единична, а является одним из множества странных и прекрасных миров. В каких-то жизнь нам вполне знакома, а в других - всё пошло немного иначе. Некоторые (   Читать дальше...   )Производство: Великобритания, США, BBC, Science ChannelЖанр: Документальный, научно-популярныйРежиссер: Наоми ОстинУчастники: Энтони Агирре, Сет Ллойд, Лаура Мерсиня-HoughtonПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4390A4CD227EB0EC77175BFB6A878CCE044D003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770824   (32061) от 04.01.2025
+
+BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p] (сезон 1, серии 1-5 из 5) RuDub
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к профессору Брайану Коксу в путешествии к разным мирам нашей Солнечной системы, где он исследует планеты и луны, извергающиеся огнем и льдом, причем извержения настолько сильны, что достигают далекого космоса. Вулканическая и тектоническая активность на Земле имела решающее значение для эволюции и выживания жизни на нашей планете, поэтому понимание (   Читать дальше...   )Производство: Великобритания / BBC Studios Science UnitЖанр: документальный, космосРежиссер: Ben Wilson, Fleur Bone, Лаура Малхолланд, Нат ШарманУчастники: Lynnae Quick, Queenie Chan, Leighan Falley, Naomi Rowe-Gurney, Shannon Mackenzie, Jorge Nunez, Abigail Fraeman, James O'Donoghue, Michael WongПеревод: двухголосый (RuDub)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12262B84E953C1E21BCAE2E4C6CA5B7B0E714F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771044   (32042) от 04.01.2025
 
 BBC: Секреты Рейха. Тайны нацизма / Secrets of World War II (1998) WEBRip [H.264] (серии 1-6 из 6)
@@ -6,7 +58,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ History Channel: Хватай не глядя / Storage Wars (2021) PCRec [H.264
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG: Суперсооружения древности / Ancient Megastructures (
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ BBC. Древние державы / Ancient Powers (2023) WEB-DL [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ BBC. 1929: Великий крах / 1929: The Great Crash (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -241,7 +293,7 @@ BBC: Нацизм - Предостережение истории / The Nazis: A
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +346,7 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -320,7 +372,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +398,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -372,7 +424,7 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +450,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Discovery: Пропавшие женщины шоссе 20 / Lost Women of Highw
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +502,7 @@ BBC: Планета людей / BBC: Human planet (2011) BDRemux [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +528,7 @@ BBC. Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +580,7 @@ BBC. Отвага и предательство: Столетняя война /
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +606,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) BDRemux [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +632,7 @@ BBC. Теории заговора. Вакцинные войны / Conspiracy F
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -606,7 +658,7 @@ BBC: Аляска. Земли замёрзшего королевства / Alas
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,58 +669,6 @@ BBC: Аляска. Земли замёрзшего королевства / Alas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DC81333B1CE2289F2D4BE1C349A875C5E6DB5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330019   (29528) от 28.01.2025
-
-BBC: Вулканы в космосе / Space Volcanoes (2017) HDTV [H.264/1080i] (Сезон 53, эпизод 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ландшафты нашей планеты сформированы вулканической активностью. Человечество издавна знакомо с разрушительной красотой вулканов. Но лишь сравнительно недавно выяснилось, что вулканизм существует и за пределами Земли. На планетах и спутниках в солнечной системе есть вулканы, значительно превосходящие размерами своих земных собратьев. И по нашей Луне когда-то текли (   Читать дальше...   )Производство: Великобритания, США, A BBC Studios, Science ChannelЖанр: Документальный, научно-популярный, космосРежиссер: Эндрю ТомпсонПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56205D8806FEA5EAF02F039391DC5D940D9B27F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122333   (29334) от 30.01.2025
-
-BBC: Horizon. Тёмная сторона Всемирной Паутины / Inside the Dark Web (2014) HDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Должна ли сеть быть свободной? Или ее нужно контролировать? Многие обеспокоены тем, что правительство и разнообразные корпорации могут следить за каждым нашим шагом. Есть люди, которые раз за разом отвечают на это, изобретая все новые системы защиты своей информации. Однозначны ли эти технологии? Ведь в интернете можно купить все - от оружия до личных данных кредитных (   Читать дальше...   )Телекомпания: Великобритания, BBC Science Production LondonЖанр: Документальный, научно-популярный, интернетРежиссер: Майкл РэдфордУчастники: Джулиан Ассанж, Джейкоб Эпплбаум, Дэвид Чаум, Евгений Касперский, Джулия Анджвин, Аманда Дрю, Тим Бернерс-Ли, Стив Крокер, Брюс ШнайерПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4059F9B57C8CFC64903E90133D7FB9CA5AF250B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

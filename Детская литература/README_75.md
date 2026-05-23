@@ -1,107 +1,3 @@
-###  Публикация: 1403718   (688634) от 21.08.2020
-
-Жаклин Уэст | Коллекционеры желаний. Тайна подземного хранилища. Книга 1 (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вэн привык быть сам по себе. Он всегда был самым маленьким в классе и к тому же плохо слышал. И вот однажды на прогулке в парке Вэн заметил девочку, которая воровала пенни из фонтана! Он решил последовать за странной девочкой… С этого момента скучная жизнь Вэна кардинально изменилась! Он узнал, что существует секретное общество Коллекционеров желаний (и девочка по (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А. В. ДеминаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84105BF49D22C45F6C60C1B2E58F0C9C484B09B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403781   (688558) от 21.08.2020
-
-Д.Д. Эверест | Арчи Грин и заклятие ворона. Книга 3. (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арчи Грин и его друзья пытаются спасти магию. Они переписывали магические книги заново, обновляя чары, когда вдруг чёрное пламя в буквальном смысле испепелило их труды. Взрослые подтвердили – это тёмное пламя суть чёрная магия, и она становится сильнее. Чтобы её остановить, нужно разгадать тайну легендарного алхимика Фабиана Грея. Арчи уже сталкивался с этим именем (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8CF82CEA3E3C9F07263FB3DBD99CAB15A53073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962895   (688467) от 21.08.2020
-
-Юрий Энтин | О многих шестиногих (2000) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои новой книги известного детского поэта Юрия Энтина — насекомые. Но как же похожи на людей все эти кузнечики и божьи коровки, комары и сверчки, а также прочие шестиногие! Вам станет особенно весело, когда вы будете читать стихи и рассматривать уморительно смешные рисунки художника Леонида Воронцова.Жанр: Русская литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18C8621CDB926B62C5B524197B9DD792DA75579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506502   (688053) от 06.06.2012
-
-Отфрид Пройслер | Маленькое привидение [2012] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688053.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Маленькое привидение" - одна из лучших сказок известного немецкого писателя Отфрида Пройслера. Для детей младшего среднего возраста.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3727B68D0FE8025071595AB38807C659A8D07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506766   (688039) от 06.06.2012
 
 Мила Блинова | Про кышей [2010] [PDF]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -669,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -681,6 +577,113 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7940CFDAA938363421F6A85446AB8897407A3421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028836   (686762) от 24.06.2016
+
+Никита Карацупа | Жизнь моя - граница (1983) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Никита Федорович Карацупа — человек-легенда. Служил он на дальневосточной границе.
+
+Смелость, мужество, умение быстро найти правильное решение в сложной ситуации не раз позволяли ему выходить победителем в неравных схватках с разного рода лазутчиками — шпионами, диверсантами, контрабандистами.
+(   Читать дальше...   )Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2C5CDDB33CEADB732BCF153006669915736654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403953   (686593) от 22.08.2020
+
+Ирен Тримбл | Университет монстров (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Майк Вазовски с детства мечтал стать страшилой – войти в число великих монстров, которые каждый день ходят в мир людей пугать малышей и добывать их крики – энергию для Монстрополиса. Он поступил в Университет монстров, и до исполнения мечты остался всего один шаг. Майк знал всё о науке устрашения. Но вот незадача – сам он был совсем не страшный. Зато Салли – ещё (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А. Н. ПроходскийФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DE794F2919764F780A9046B7D4E63D58D6D0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028873   (686498) от 24.06.2016
+
+Марк Твен | Сыскные подвиги Тома Сойера. Том Сойер за границей (сборник) (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книги Марка Твена, повествующие о приключениях Тома Сойера и его друзей, открывают для читателя мир настоящей отваги, истинной дружбы и любви к жизни, которой наделены натуры незаурядные. В «Сыскных подвигах Тома Сойера» Том со своим другом Геком раскрывают страшное преступление, совершенное на берегах реки Миссисипи. Однако чувства и поступки в вымышленном литературном (   Читать дальше...   )Жанр: Приключения, детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C6DC1937A3088ED7B4E4B4F3FDFAF57F67DE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403958   (686457) от 22.08.2020
+
+Кики Торп | Корпорация монстров (2020) [FB2, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Корпорация монстров – сердце Монстрополиса. Именно она снабжает мир монстров энергией – детскими криками. Самые грозные монстры, которых зовут страшилами, отправляются в мир людей по ночам и добывают там крики. Лучший страшила корпорации – Джеймс П. Салливан, или просто Салли. Он могуч и отважен, а как иначе, если каждый день приходится встречаться с самым страшным (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А. А. МингазоваФормат: FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DE49F5F11C30B3FEC2B5484CD0B4124D810C99
 ```
 
 https://mybot314.ru/tekegram_catalog/

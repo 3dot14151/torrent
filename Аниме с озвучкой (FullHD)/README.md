@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1871703   (1070001) от 
+
+Mahou Shoujo ni Akogarete | Становясь волшебницей [2024, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Утэна Хираги всегда восхищалась девушками-волшебницами и мечтала стать крутой героиней, которая борется со злом. Поэтому когда она встречает существо, утверждающее, что у Утэны есть скрытая магическая сила, тут же решает, что её мечта сбылась. Но всё рушится из-за внезапного поворота событий: она превращается в злодейку! Не заинтересованная в союзе с силами зла, (   Читать дальше...   )Производство: Asahi ProductionЖанр: комедия, фэнтези, эттиРежиссер: Оцуки АцусиПеревод: AniLibria (полные и надписи)Язык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30F8AA712282951E1469289363A32AE55A092FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870455   (1069102) от 
+
+Elfen Lied | Эльфийская песнь [2004, TV 13 эп. + SP] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Диклониусы — побочная, мутировавшая ветвь людей, избранная, кажется, самим Богом, чтобы положить конец человечеству. От обычных людей их отличают небольшие рожки на голове и то, что они владеют как бы «шестым чувством», дающим им способность к телекинезу. Именно из-за этой опасной силы правительство отлавливает их и помещает в специальные лаборатории, где они подвергаются (   Читать дальше...   )Производство: ArmsЖанр: триллер, фантастика, драма, эттиРежиссер: Камбэ МаморуПеревод: Robin & Yellow Horror (полные и надписи)Язык озвучки: Японский и русскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. + спэшл по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C44A2F83D0A2EEE4779CDD9393A52CE31B7FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870689   (1068956) от 
+
+School Days | Школьные дни [2007, TV 12 эп. + OVA 1-2] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+н даже не может заговорить с симпатичной Котонохой, с которой часто встречается в утреннем поезде. Так бы все и кончилось, если бы не бойкая одноклассница Сэкай Сайондзи, что, увидев страдания соседа, по доброте душевной решила помочь ему устроить сердечные дела. Вот только не слишком ли далеко заходит эта помощь? И почему к Ито начинает проявлять нездоровый интерес (   Читать дальше...   )Производство: TNKЖанр: романтика, драма, эттиРежиссер: Мотонага КэйтароПеревод: Hollow & Willy (полные и надписи); Матадор (полные)Язык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. + OVA 1-2 по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D982A013EF6EBF402C6BA9652307033635EDA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867021   (1066797) от 
 
 Lupin the IIIrd the Movie: Fujimi no Ketsuzoku | Люпен III: Бессмертная родословная [2025, Movie] WEBRip 1080p raw+rus
@@ -7,7 +85,7 @@ Lupin the IIIrd the Movie: Fujimi no Ketsuzoku | Люпен III: Бессмер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +111,7 @@ Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика зака�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +137,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +242,7 @@ Hitoribocchi no Isekai Kouryaku | Нападение одиночки на ин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +268,7 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь ночных
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +295,7 @@ Virgin Punk | Невинный панк [2025, Movie] BDRip HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +322,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +400,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +426,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +453,7 @@ Kamui no Ken | The Dagger of Kamui | Кинжал Камуи [1985, Movie] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +480,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +506,7 @@ Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -454,7 +532,7 @@ Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +610,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +636,7 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -584,7 +662,7 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -595,84 +673,6 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C90AA9DEC3DF911C7A956AFD5B35F905BD2AD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849899   (1054115) от 25.01.2026
-
-Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War | Семь смертных грехов: Знамение священной войны [2016, TV, 4 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отвоевав королевство Лионес у Святых Рыцарей, Семь Смертных Грехов вместе с Элизабет и Хоуком наконец-то могут насладиться заслуженным спокойствием. Но новая угроза появляется на горизонте, и, кажется, счастливым и беззаботным дням наших героев скоро придет конец...Производство: Япония, A-1 PicturesЖанр: фэнтези, сёнен, экшен, эттиРежиссер: Токоро ТомокадзуЯзык озвучки: Русский закадровый (AniLibria - Cleo-chan, Kari, Nuts)Продолжительность: ТВ, 4 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E55341E5BE6CEDF2C604A7458F3E1D3B5C99A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849900   (1054114) от 25.01.2026
-
-Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the Commandments | Семь смертных грехов 2: Возрождение заповедей [2018, TV, 24 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сильнейшие святые рыцари Лионесса, известные как «Семь смертных грехов», вместе с принцессой Элизабет смогли предотвратить переворот в королевстве и восстановить своё доброе имя. Но беда не приходит одна. Король Бартра увидел будущее, в котором над миром нависли десять зловещих теней. Камелоту, что находится к югу от Лионесса, грозит страшная опасность. Смогут ли (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: приключения, фэнтези, сверхъестественное, сёнен, экшенРежиссер: Фурута ДзёдзиЯзык озвучки: Русский закадровый (AniLibria - Anzen, Cleo-chan, Hekomi, Kari, Sharon)Продолжительность: ТВ, 24 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C228FA8FBDD743FBFAAAEAFAFC0BF8013F0A94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849901   (1054113) от 25.01.2026
-
-Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the Movie: Prisoners of the Sky | Семь смертных грехов: Узники небес [2018, Movie] WEBRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приближается день рождения Бартры - короля Леонесса. Семь смертных грехов отправляются на поиски ингредиентов для праздничного стола. Во время поисков одного из ингредиентов - легендарной "небесной рыбы" Мелиодас и Хоук попадают на таинственный "Небесный остров", где встречают потомков клана богинь - небожителей.Производство: Япония, A-1 PicturesЖанр: приключения, фэнтези, магия, сверхъестественное, сёнен, экшенРежиссер: Абэ НориюкиЯзык озвучки: Русский закадровый (AniLibria - Ados, Amikiri, Anzen, Cleo-chan, December, Gomer, Hekomi, Kanade EU, Kari, Lupin, Malevich, Myuk, Narea, Sharon)Субтитры: SubRip (Русский, Полные)Продолжительность: 1 час 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8B651CD83FE2BA0E7E968055CA80CA39DA2CD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

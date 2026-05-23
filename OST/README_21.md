@@ -1,3 +1,58 @@
+###  Публикация: 266070   (293390) от 11.12.2010
+
+Отбросы / Misfits (2009) [MP3|128-320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 03:29:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080054   (291572) от 05.12.2016
+
+Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music from the HBO Series) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title Theme – Westworld (01:42)
+02. Sweetwater (02:53)
+03. Black Hole Sun (02:29)
+04. Paint it Black (05:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F46EEA61C75649EE465435FE7F7C62335B07777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334778   (291534) от 31.10.2019
 
 John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Original Motion Picture Soundtrack) (2019) Expanded Edition [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +61,7 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +90,7 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +119,7 @@ Tom Holkenborg - Терминатор: Темные судьбы / Terminator: D
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +148,7 @@ Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +177,7 @@ Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music,
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +206,7 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +235,7 @@ Various Artists - Лондонские поля/ London Fields (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +264,7 @@ Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние м
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +293,7 @@ Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +322,7 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +351,7 @@ VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +380,7 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +409,7 @@ VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +438,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music fro
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +467,7 @@ Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +496,7 @@ James Newton Howard - Фантастические твари: Преступл�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +525,7 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +554,7 @@ VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +583,7 @@ VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Roc
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +611,7 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +640,7 @@ Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Sco
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -649,7 +704,7 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -678,7 +733,7 @@ James Horner & Simon Franglen - The Magnificent Seven / Великолепная
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -692,64 +747,6 @@ James Horner & Simon Franglen - The Magnificent Seven / Великолепная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C49758CBB3D0D54C6C1005E6229BD11B4DFCF132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083592   (273473) от 16.12.2016
-
-Михаил Костылев - 28 Панфиловцев (Оригинальная музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог (00:54)
-02. То ли легенда то ли миф (08:29)
-03. Стоять намертво (15:02)
-04. Фашистская гидра (06:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8506B3631D55FE06318A1658CF89AEAC1D6B2AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083415   (273472) от 16.12.2016
-
-Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Here For Us (03:20)
-02. A Long Ride Ahead (03:56)
-03. Wobani Imperial Labor Camp (00:54)
-04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1087B4F94CF0A71134112FA3A4AA7FB521830C
 ```
 
 https://mybot314.ru/tekegram_catalog/

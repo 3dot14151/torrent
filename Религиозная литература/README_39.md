@@ -1,3 +1,109 @@
+###  Публикация: 1283138   (741230) от 15.02.2019
+
+Александр Кравецкий | Церковная миссия в эпоху перемен (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Просматривая предреволюционные и современные публикации, посвященные проблемам миссии, нельзя отделаться от впечатления, что, рассуждая о миссии, авторы разных эпох пишут о совершенно различных предметах. Очевидно, что понятие миссия за прошедшее столетие претерпело существенные изменения.
+
+Если современный человек под миссионерской деятельностью Церкви понимает, (   Читать дальше...   )Жанр: История церквиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B000DE91443DF8FA515AF257A1A777349620B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283096   (741170) от 15.02.2019
+
+Павел Гаврилюк | Георгий Флоровский и религиозно-философский ренессанс (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Георгий Флоровский (1893-1979) является одним из самых крупных православных богословов и историков двадцатого века, вдохновителем «возвращения к Св. Отцам Церкви» в современном богословии. Неопатристическое направление Флоровского и его последователей часто противопоставляется богословскому «модернизму» Сергия Булгакова и софиологии. В настоящем исследовании, Павел (   Читать дальше...   )Жанр: БиографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6A08C463DDB865F929D1D38F1A0F8A9F3B5370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283111   (741166) от 15.02.2019
+
+М.В. Грацианский | Император Юстиниан Великий и наследие Халкидонского Собора (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассматривается церковная политика римского императора Юстиниана Великого (527–565) по отношению к антихалкидонитам — внутрицерковному течению, не принимавшему решений IV Вселенского Халкидонского Собора. Работа охватывает период с 451 по 571 г. и затрагивает предысторию и ближайшие последствия политики Юстиниана. Избранный аспект исследуется на основании (   Читать дальше...   )Жанр: Монография, история христианстваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080414C3851DD0269D42E2DBBDE969BCE538573A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283087   (741165) от 15.02.2019
+
+С.В. Чапнин | Церковь в постсоветской России: возрождение, качество веры, диалог с обществом. Субъективные размышления о настоящем и будущем (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Можно ли говорить о том, что впервые в истории постсоветской России возникли сомнения в особом статусе Русской Православной Церкви как крупнейшего общественного института? Общество задает Церкви вопросы и ждет на них ответов, формируя новый запрос на общее видение будущего. Позицию Церкви в этом диалоге будет формировать не только духовенство, но и миряне. Их понимание (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFE8B1C905D6BFFF888F4F9DA2E3A6416924DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283116   (741162) от 15.02.2019
 
 Антонио Сикари | Святая Мария Иисуса Распятого (2019) [PDF, RTF]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,113 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB53D5855B68F085AA5325B98B057F70190C68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285157   (724923) от 24.02.2019
-
-Конгрегация по делам Духовенства | Общее катехитическое руководство (2002) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катехизация - важнейшая задача Церкви Христовой, особенно - в России, где ее служение было предельно стеснено на протяжении многих десятилетий. Папа Иоанн Павел II, обращаясь к епископам России во время их визита Ad limina, подчеркнул особое значение катехизации: "...сознание того, что Иисус Христос призвал нас провозглашать Евангелие в столь трудное время, (   Читать дальше...   )Жанр: Церковный документФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549681C98B112405362CB248FDB96CD6E871A131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285192   (724777) от 24.02.2019
-
-Архимандрит Андрей (Конанос) | Добрый день, Господи! Книга о радостной вере [Радостная серия] (2018) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь человека может быть наполнена радостью от начала и до конца. Господь любит всех без исключения, и хочет, чтобы мы были счастливы. Но для этого нужно довериться Богу, изменить свой подход к жизни и начать смотреть на мир глазами Христа. Нужно впустить в себя Его разум, Его свет, Его надежду.
-
-Известный греческий проповедник и миссионер архимандрит Андрей (Конанос) (   Читать дальше...   )Жанр: Духовная жизньФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D11501971B8FB54E80041BF3CC9462E8F4236BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285161   (724617) от 24.02.2019
-
-Пётр Иванов | Тайна святых. Введение в Апокалипсис (1993) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственное, на сегодняшний момент издание работ П.К. Иванова – это репринт книги «ТАЙНА СВЯТЫХ. Введение в апокалипсис». Что само собой уже говорит об уникальности издания. В этой работе Петр Иванов рассматривает самые насущные вопросы современной церкви с привлечением самого широкого исторического, богословского и апологетического материала.
-По толкованию Иванова, (   Читать дальше...   )Жанр: Богословие, экзегезаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13FEAF86050BA66FFDBFF8C66D64914883CBCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285222   (722772) от 25.02.2019
-
-И. Ковалевский | Юродство о Христе и Христа ради юродивые восточной и русской церкви (1902) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юродство о Христе — один из труднейших и великих подвигов христианского благочестия, какие из любви к Богу и ближним принимали на себя особенные ревнители благочестия. «Юродство Христа ради составляет столь редкий, столь трудный и вместе с тем столь высокий христианский подвиг, на который призываются Господом Богом только особенные избранники и избранницы, сильные (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB668D0301EB18AC771B22D3DF23A465B30A6A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

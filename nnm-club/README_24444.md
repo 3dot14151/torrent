@@ -1,22 +1,22 @@
-###  Публикация: 484768   (100043) от 19.04.2012
+###  Публикация: 1764359   (102726) от 06.12.2024
 
-Kenny Garrett Quartet feat. Kenny Kirkland Live At Jazz Baltica (1997) DVD5
+Любимые мультфильмы кота Леопольда. Выпуск 5. Приключения Фунтика (1978-1988) DVD5 [Крупный план]
 
->>Архив торрентов
->>Архив Музыкального Видео
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Музыка, ДжазПродолжительность: 1:08:19
+Любимые мультфильмы кота Леопольда. Выпуск № 5: Приключения Фунтика (Фунтик и сыщики, Неуловимый Фунтик, Фунтик и старушка с усами, Фунтик в цирке, Муми-Тролль и другие, Муми-Тролль и комета, Путь домой)Производство: СССР / ТО "Экран"Жанр: рисованная анимацияРежиссер: Анатолий Солин, Аида Зябликова, Нина ШоринаАктеры: Армен Джигарханян, Ирина Муравьёва, Ольга Аросева, Спартак Мишулин, Анатолий Баранцев, Георгий Бурков, Борис Рунге, Юрий Волынцев, Зиновий Гердт, Ольга Гобзева, Зинаида Нарышкина, Юрий Яковлев и другиеСубтитры: отсутствуютПродолжительность: 00:10:00 серия
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0E7EFE6463D18FA901A93DE841A0CBCB8EEF6F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484997   (100039) от 19.04.2012
+###  Публикация: 1764326   (102724) от 06.12.2024
 
-Величайшие автомобили: Спортивные машины / Great Cars: Sports cars (2004) SATRip
+Врач / The Doctor (1911) WEBRip
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Спортивные машины заставляют оборачиваться и привлекают внимание автолюбителей по всему миру. Эти машины дарят радость вождения. Они для тех людей кто любит азартную езду, кто любит испытывать на что способна машина и хочет чтобы это видели другие. Спорткары - это красота, мощность и скорость. Разве перед ними можно устоять?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+Нравоучительная история о том, что врач обязан исполнять свой долг помощи больным в любом случае, даже если приходится жертвовать для этого своими интересами.  Все достаточно прямолинейно и очевидно.Производство: США / Edison Manufacturing CompanyЖанр: короткометражный, драма, немое киноРежиссер: Дж. Сирл ДоулиАктеры: Чарльз Огл, Мэйбл Труннелль, Херберт Прайор, Лаура Сойер, Edna May WeickПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:487985A4B87DA398A3F370175E55271BC8EC07C1
+magnet:?xt=urn:btih:00F9EFD9050405A77A27B62C669C5867CFED3DEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,34 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484951   (100036) от 19.04.2012
+###  Публикация: 1764277   (102723) от 06.12.2024
 
-Серия "Giants of Jazz - Immortal Concerts" / Kid Ory and The Creole Jazz Band - Echoes From New Orleans (1956/1996) [APE|Lossless]<Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, T ...
+The L.A.4 - The L.A.4 (1976) 1987, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Jazz Me Blues (T.Delaney) (3:51)
-02. Careless Love (traditional) (5:33)
-03. High Society (P.Sleeve) (4:07)
-04. Oh, Didn't He Ramble (W.C.Handy) (4:57)
-05. Eh, La Bas (K.Ory) (6:01)
-06. Toot, Toot, Tootsie! (T.Fiorito - E.Erdman - G.Kahn) (6:37)
-07. Maryland, My Maryland (tradirional) (2:44)
-08. Bugle Call Rag (W.C.Sweatman) (3:18)
-09. 1919 Rag (traditional) (5:32)
-10. Down Home Rag (W.C.Sweatman) (3:23)(   Читать дальше...   )1956 / 1996Жанр: Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, Trombone JazzПродолжительность: 01:13:55
+01. Dindi [5:56]
+02. Rainbows [6:46]
+03. Rondo Espressivo [4:45]
+04. Manteca [7:46](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:46:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AB634ED188A0CEDC34490EF627258340A2391E13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,30 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484652   (100033) от 19.04.2012
+###  Публикация: 1764280   (102722) от 06.12.2024
 
-VA - Pandora (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
+The Great Jazz Trio - Love For Sale (1976) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Dirty Diagnostik - Fear & Loathing [08:02]
- 02. Sci Lab - Pandoras Box [07:22]
- 03. EMP - Renegade [07:19]
- 04. Night Wolf - Scientology [06:18]
- 05. Algorhythm - Reborn [07:54]
- 06. Iron Lotus - Inferno [07:04]2012Жанр: Psychedelic / Night Full OnПродолжительность: 00:43:59
+01. Love for Sale [7:03]
+02. Glad to Be Unhappy [6:54]
+03. Gee Baby, Ain't I Good to You [6:48]
+04. Secret Love [6:10](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
+magnet:?xt=urn:btih:E313CAC5839A92C16A83BD5ACA318D4BA64B1551
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -116,34 +108,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485113   (100031) от 19.04.2012
+###  Публикация: 1764304   (102721) от 06.12.2024
 
-VA - NRJ: Мы Эксперты По Молодому Поколению 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal; Dark Ambient>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-001 Каникулы В Мексике - Мексикана-Мама (Radio Version)
-002 Christopher S Feat. Flava & Stevenson - Poison (Re-Work 2012)
-003 Елена Терлеева - Я За Тобой (Radio Rip)
-004 Alex Kenji And Starkillers Feat. Nadia Ali - Pressure (Alesso Remix)
-005 Вероника Агапова - Baby By By!
-006 Alexis - Keep On Falling (Gordon & Doyle Remix)
-007 А.р.м.и.я - Львица
-008 Wisin & Yandel feat. Jennifer Lopez - Follow The Leader
-009 Шима - Океан
-010 Inna Feat. Flo Rida - Club Rocker (Radio Version)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:19:39
+My Silent Wake - группа из Северного Сомерсета, Великобритания. Образована в 2005 году.2006 - Shadow Of Sorrow
+2007 - The Anatomy Of Melancholy
+2008 - A Garland Of TearsЖанр: Gothic/Death/Doom Metal; Dark AmbientПродолжительность: 13:29:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42CFBD313B95FB35269F3E11B6C39359B0901203
+magnet:?xt=urn:btih:ABF6D4F5C3B0363AE2BAAC6A8813793B441936A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -151,112 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485098   (100029) от 19.04.2012
+###  Публикация: 1764368   (102720) от 06.12.2024
 
-[Wallpapers]Великолепная природа
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100029.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]Великолепная природа 
-Название: Великолепная природа
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080/2560х1600
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8843BFB0F6B9EAFB0CDC301A26B1F0E1F7FBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484911   (100027) от 19.04.2012
-
-Weapons Wallpapers
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100027.jpg" />
-</div>
-
-
-###  Подробнее
-
-обои на рабочий стол.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229E857A9F8954966B2CE1AEC0E377DD1CC53B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485101   (100025) от 19.04.2012
-
-[Wallpapers]HQ Color HD Amazing Wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100025.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]HQ Color HD Amazing Wallpapers
-Название: HQ Color HD Amazing Wallpapers
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080/2560х1600
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B38CB723E9DA8DAB9A8CC81844C12738E59E4F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483944   (100024) от 19.04.2012
-
-Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
+Von Panzer - Iron and Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Give It
- 02. WhitewashЖанр: Stoner Noise RockПродолжительность: 0:42:39
+01. Scorched Earth 04:16
+02. Iron And Steel 05:00
+03. Monte Cassino 03:49
+04. Rode Orm 03:48(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
+magnet:?xt=urn:btih:209C10DF317C9041A94C74724D2341E9DFB54858
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,25 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484984   (100022) от 19.04.2012
+###  Публикация: 1764279   (102719) от 06.12.2024
 
-Величайшие автомобили: Land Rover / Great Cars: Land Rover (2004) SATRip
+Ann Hampton Callaway - This Christmas (1997) Angel Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Тяга к приключениям, не угасающая жажда исследовать неизвестное, побывать там где еще не ступала нога человека, первым достичь вершины или пересечь континент - именно это стремление стало причиной сухопутных экспедиций, которые прославили Land Rover. Именно оно спровоцировало появление целого семейства автомобилей этой марки.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+01. Jingle Bells [3:34]
+02. The Christmas Song (Chestnuts Roasting on an Open Fire) [4:59]
+03. Silent Night/A Child Is Born [4:30]
+04. Baby, It's Cold Outside [4:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:041862CC662F6048FE1F51675F106E26C0121A11
+magnet:?xt=urn:btih:D19C7A5B6C76DABFA5F61060369EE2A6C8B9D920
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,34 +194,420 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483291   (100018) от 19.04.2012
+###  Публикация: 1764373   (102718) от 06.12.2024
 
-VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
+High Parasite - Forever We Burn (2024) [FLAC|Lossless|image + .cue] <Gothic Metal, Black Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Forever We Burn 3:57
+02. My Syndrome 5:33
+03. Grave Intentions 3:25
+04. Wasn't Human 3:54(   Читать дальше...   )Жанр: Gothic Metal, Black Metal, IndustrialПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C99EFEE2D8FA3E4552FF6EC5413691965608B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764287   (102717) от 06.12.2024
+
+White Tower - Night Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Blood
+02. Total Evil
+03. Night Hunters
+04. Knife In The Back(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9199963400F396470E7FA952F2B34BF237D1572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764291   (102716) от 06.12.2024
+
+Mystery Blue - Night Demon (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The World
+02. Colours Of Life
+03. Burning Souls
+04. Night Demon(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1B54FFC5C1899AD6CCE9DCED72F661173F01A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764596   (102715) от 07.12.2024
+
+Любимые мультфильмы кота Леопольда. Выпуск 1. Мама для мамонтенка (1974-1993) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Любимые мультфильмы кота Леопольда. Выпуск № 1: Мама для мамонтенка (Крошка Енот, Сказка о старом Эхо, Земляничный дождик, Мотылек, Еловое яблоко, Марусина карусель, В зоопарке ремонт, Кубик-рубик, Кто ж такие птички)Производство: СССР /  Союзтелефильм, ТО "Экран"Жанр: мультфильм, детский, короткометражкаРежиссер: Юлиан Калишер, Натан Лернер, Борис Тузанович, Александр Татарский, Олег ЧуркинАктеры: Зиновий Гердт, Зинаида Нарышкина, Клара Румянова, Григорий Толчинский, Рина Зеленая, Мария Виноградова, Игорь Ясулович, Людмила Гнилова, Татьяна Божок, Евгений Герчаков, Наталья Ромашенко, А. Крюков и другиеСубтитры: отсутствуютПродолжительность: 01:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A30BF8FE2FA2793417D77F8FC6F9510447C55D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764584   (102714) от 07.12.2024
+
+Следствие вели... (07.12.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Взрыв на дороге». Это расследование вошло в историю. По нему учили не только советских, но и зарубежных сыщиков.
+1961 год. В Ярославской области ищут бандитов, взорвавших почтовую телегу. В тот день почтовая служба везла 6900 рублей… Что удалось выяснить легендарному детективу? Какую роль в этом деле сыграл театральный бинокль? И как следователям помогла знаменитая (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7E8B13E85A90C91A87BCB11EDDFE5274423082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764385   (102713) от 07.12.2024
+
+Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Stay» — песня барбадосской певицы Рианны, записанная при участии Микки Экко, для её седьмого студийного альбома Unapologetic (2012). Музыкальное видео, сопровождающее песню показывает то, как Рианна сидит в ванне, которая заполнена мутной водой, в то время, как Микки Экко поет в отдельной ванной комнате. Видео было выпущено на официальном Vevo-аккаунте артистки (   Читать дальше...   )Жанр: Поп, R&BПродолжительность: 00:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179345DD2DD5EC0C8937313EA9EB57AD5C27F89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764436   (102712) от 07.12.2024
+
+SnapEdit - AI photo editor v7.2.4 Mod by Oflarm [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 06.12.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A4BAB6065AC8A75C6E34182EED6FCC82635394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764553   (102711) от 07.12.2024
+
+Sexual Music Collection - Saxual Healing: Contemporary Sax Jazz for Intimate Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Music Collection - Saxual Bliss Nights (4:21)
+02. Sensual Lounge Music Universe - Intimate Sax Serenade (3:42)
+03. Jazzed-Up Romance (3:43)
+04. Sexual Music Collection - Saxophone Seduction (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FA3A755BDA926E207DB33224CA5A66FF85785B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764589   (102710) от 07.12.2024
+
+Валерий Кравец | Розовая чайка (2005) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Книга действительного члена Русского географического общества, почетного полярника Валерия Кравца рассказывает о реальных людях и событиях, которые происходили в Арктической и Заполярной части Таймырского полуострова в 70-90-х годах прошлого столетия. Непосредственным участником этих событий был автор этих воспоминаний.
+Книга сформирована в виде серии репортажей, (   Читать дальше...   )Жанр: Путешествия, исследования АрктикиИздательство: Студия "Полярная звезда"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14EA0EED7FB46E9C45C31373280124A1196F634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764508   (102709) от 07.12.2024
+
+VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Mamacita (02:45)
+02. JLUIS - Si Te Vas (03:31)
+03. Deep Emotion - With Me (02:53)
+04. TEKTRONIC - Oldskool Vibe (02:53)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEA1871B1F72BA30161D0D775C8D84ADD26FF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764478   (102708) от 07.12.2024
+
+VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Parachute (02:48)
+02. Rene Rodrigezz, Basslovers United & Dan Winter - Wherever You Go (02:17)
+03. Stephan F & Ya-Ya - No Broken Heart (03:09)
+04. Dropix DJ - Far in Love (02:34)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5C54E61910ECDA845E0F72F2DA4936E3372B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764551   (102707) от 07.12.2024
+
+Instrumental Jazz Musica Ambiental - Hot Jazz Lounge: Sexy Moments with Erotic Jazz (2023) 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy & Noir (3:29)
+02. Music for Quiet Moments (4:28)
+03. Jazz Mood – Erotic Dance (4:03)
+04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74587E7FCDB07085AE7159DD824DAD9E0324F155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764521   (102706) от 07.12.2024
+
+VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup & Eva Scolaro - Deeper Love (Calmabohain Remix) [03:22]
+02. Nykoluke - Summer '04 [02:23]
+03. Seumas Norv - Baby (Radio Edit) [03:11]
+04. Kay Portman - Deep Down [03:02](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659F0883A8A61E3DFA9311B384339AA859051FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764427   (102705) от 07.12.2024
+
+Антон Чехов | Сборник радиопостановок (Часть 5). (2017) [MP3, Т. Пельтцер, Т. Васильева и др]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+— А вы, я слышал, женитесь! — обратился к Петру Петровичу Милкину на дачном балу один из его знакомых. — Когда же мальчишник справлять будете?
+— Откуда вы взяли, что я женюсь? — вспыхнул Милкин. — Какой это дурак вам сказал?
+— Все говорят, да и по всему видно… Нечего скрытничать, батенька… Вы думаете, что нам ничего не известно, а мы вас насквозь видим и знаем! Хе-хе-хе… (   Читать дальше...   )Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B422E38C330132188866C92F176F700E3FA46B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764362   (102704) от 07.12.2024
+
+Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electronic>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Aquatica — Angels 08:20
-02. Bizzare Contact Phanatic And Electro Sun — Out Of Your Love (Sesto Sento remix) 07:47
-03. Sesto Sento And Space Cat — Getting High Power (Cosmic Tone remix) 08:15
-04. U_Recken — The Other Side (Visual Paradox edit) 06:52
-05. System Nipel — Psytronic 07:05
-06. Psynina — Sound Of Reality 07:04
-07. Aquatica And Ultravoice — Diamond Sky (Indra remix) 07:22
-08. Sesto Sento — Getting Fused (Silicon Sound remix) 07:32
-09. Visual Paradox And Cosmic Tone — Stop The Beat (Twina remix) 06:35
-10. Ultravoice — Dark Side (Psynina remix) 09:292012Жанр: Trance, Psy Trance, Full OnПродолжительность: 01:16:04
+01. Amerimacka
+02. Take My Soul
+03. Tomorrow
+04. Stargazer(   Читать дальше...   )Жанр: Duby Downtempo, Electronic, Trip-HopПродолжительность: 04:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
+magnet:?xt=urn:btih:01C38EACF67EBF33EF778337B45BE94DB1949427
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +615,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484985   (100016) от 19.04.2012
+###  Публикация: 1764395   (102703) от 07.12.2024
 
-Величайшие автомобили: Mercedes / Great Cars: Mercedes (2004) SATRip
+Moby - always centered at night - remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 - should sleep (Prins Thomas diskomix) [5:20]
+02 - precious mind (cassette remix) [5:05]
+03 - dark days (Vanco remix) [6:46]
+04 - dark days (Undercatt remix) [4:30](   Читать дальше...   )Жанр: Downtempo, Ambient, ElectronicПродолжительность: 05:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B3836AB9D2D25EE5DA6D7EB689CFA03F810618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764612   (102702) от 07.12.2024
+
+RegCool 2.019 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-MERCEDES положил начало автомобильной эпохи. С 1886 года изменилось многое, но говорят что дух Готлиба Даймлера и Карла Бенца живет в каждом автомобиле MERCEDES BENZ. Будь-то на гоночной трассе или на обычной дороге они все так же привлекают водителей своею страстью к стилю и скорости.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF033FA400A44FA5BBB8B2C393448C69429D8921
+magnet:?xt=urn:btih:253BA2AB099B730910F541C1E4A05C49FDCB4C77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,29 +670,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485175   (100015) от 19.04.2012
+###  Публикация: 1764549   (102701) от 07.12.2024
 
-[Wallpapers]Обои с прекрасными уголками природы
+Instrumental Jazz Music Ambient - Romanticistic Feelings (Charming Jazz Music) (2023) 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers]Обои с прекрасными уголками природы
-Название: Обои с прекрасными уголками природы
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
+01. Smoke In Your Eyes (3:20)
+02. Moonlight in Vermont (3:29)
+03. Together Again (3:22)
+04. The Touch of Your Lips (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C4CD3B5507D3798A7CA14350F109793ED0EE90B
+magnet:?xt=urn:btih:83577B344D63DA06FF6BFA2F16B93414A10E95D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,385 +699,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485276   (100013) от 19.04.2012
+###  Публикация: 1822832   (102700) от 08.10.2025
 
-Dotma - Sleep Paralyses (2011) [MP3|320 кб/с]<Power Metal, Gothic Metal>
+Шрифты - Behance - Pixel Surplus - Bowler - 158232363 [OTF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Legend Of Blackbird
- 02. Reborn
- 03. Silent Sunshine
- 04. Indian Fall
- 05. Whispering
- 06. The Cave
- 07. Kingdom Of The Sky
- 08. Memory Worth Dying For
-
-Группа Dotma была образована в 2005 году, в маленьком городе Hyvinkää, Финляндия. Идея создания музыкального коллектива, отражающего в своей лирике и музыке объединение печали и призрачной надежды, пришла в голову Lasse Nyman (гитара) и Harri Koskela (клавишные).(   Читать дальше...   )2011Жанр: Power Metal, Gothic MetalПродолжительность: 00:51:50
+"Bowler" Владимира Кленова - это бесплатный шрифт, предназначенный для использования в больших форматах и позволяющий эффективно создавать привлекающие внимание заголовки.
+"Bowler" - бесплатный шрифт для личного и коммерческого использования.
+Материал раздаётся с официальной документацией.Формат: OTFПоддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73A977D28EC2933D51BB5FCCF2E9F7FE5C977960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485013   (100011) от 19.04.2012
-
-Spectral - Gateway To Death (2012) [MP3|320 кб/с]<Black/Viking/Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 00:35
- 02. Lord Of Fire 05:05
- 03. Tank Attack 05:04
- 04. Forces Of Evil 05:35
- 05. Gateway To Death 05:27
- 06. Into Oblivion 04:46
- 07. Dark Traveller 03:55
- 08. Death Of A King 07:14
- 09. Curse Of The Black Sea 04:58
- 10. Mountain Of Madness 06:122012Жанр: Black/Viking/Power MetalПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAA3A447726A40C83DF82F0C1134C3140C179E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484841   (100010) от 19.04.2012
-
-VA - The LTD Chronicles mixed by 6th Borough Project (2012) [MP3|~245 кб/с (V0)]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantastic Man - Say What You Said
-02. Alex Agore - Promised You Love
-03. Nicholas - On the Ground
-04. Norm De Plume - Steady Teddy (Franc Spangler Remix)
-05. Deadly Sins - Sometimes
-06. Fantastic Man - Groove With You
-07. Alex Agore - Man Down (Tornado Wallace Remix)
-08. 6th Borough Project - When The Hate Is Gong
-09. Eddie C - Simple Song
-10. South West Seven - The Only One(   Читать дальше...   )2012Жанр: HouseПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230AF305B037A26D382FDEC0158F67BE6CBF2C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485003   (100004) от 19.04.2012
-
-Uneven Structure - Februus (Limited Edition) (2011) [MP3|320 кб/с]<Experimental Progressive Math Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
- 01: Awaken (06:35)
- 02: Frost (06:00)
- 03: Hail (05:55)Жанр: Experimental Progressive Math MetalПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CF0AC6006FC0F7A3B576A12B14ADD8ACA84DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484736   (100003) от 19.04.2012
-
-Mari! Mari! - Flamboyant Flares [EP] (2012) [MP3|320 кб/с]<Indie Rock/Brit-Pop/Indietronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Painfully Illuminated (3:14)
-02. Marina Wakes Up At 3 P.M. On Monday (3:17)
-03. Sea (2:49)2012Жанр: Indie Rock/Brit-Pop/IndietronicПродолжительность: 00:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A6814DD45E51823DF2839AB77B0A622A6EE706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484674   (100001) от 19.04.2012
-
-K-Lapso - Deadly Transformations (2012) [MP3|320 кб/с]<Psychedelic / Dark>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Deadly Transformation 07:28
- 02 Mad Monks Reborn (Silent Horror Remix) 06:40
- 03 Ravenous 07:57
- 04 Stricken 07:15
- 05 Doomlord 06:45
- 06 Picha Tripla 08:14
- 07 Transcend To Darkness 06:30
- 08 Killer Night (Remix) 07:59
- 09 Plantriacomatic 07:252012Жанр: Psychedelic / DarkПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F68184A04A23104B32B8CE9EEBE46385E3DC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484989   (100000) от 19.04.2012
-
-Величайшие автомобили: Mustang / Great Cars: Mustang (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mustang выпрыгнул на автомобильную сцену словно резвый пони в 1964 году. Он быстро вырос из многообещающего жеребенка в чистокровного скакуна. Затем на некоторое время он сбился с пути, но поклонники машины со всего мира объединились, чтобы их любимый пони выжил. Более 40-ка лет назад он вышел из стойла, но до сих пор уверенно скачет вперед.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24296562CC28753E6982C61649BA4B4E00DB1DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484982   (99999) от 19.04.2012
-
-Величайшие автомобили: Jeep / Great Cars: Jeep (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jeep-это легенда пробуждающая образ свободы. Это бесспорно американская машина, которая дала нам возможность следовать куда угодно. Ее корни уходят во времена Второй мировой войны, когда она служила на фронте. Создатели оригинального Jeep-а были бы весьма удивлены, увидев насколько он изменился и где находится сегодня. Jeep стал иконой Америки и частью истории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2F7FE753111E52D6D84E3EE5660278E897B1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485168   (99996) от 19.04.2012
-
-[Wallpapers] Wallpapers Fantasy №7 (Pavel)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 шт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744E148B2DFDA3B17AA7ADA1E56EED5280D20229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485200   (99991) от 19.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (20.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E56DB19EFDCC26AC9BBAE5B523917724291A0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485227   (99989) от 19.04.2012
-
-[Wallpapers] Desktop Wallpapers №22
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99989.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №22
-Название: Desktop Wallpapers №22
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68D6422484E47CB06574F8347EF1267654FC43E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484986   (99987) от 19.04.2012
-
-Величайшие автомобили: Mini / Great Cars: Mini (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99987.jpg" />
-</div>
-
-
-###  Подробнее
-
-MINI выглядит так же молодо как и в тот день, когда Сер Алек Исегонис сделал его первые наброски на скатерти в ресторане. За четыре десятилетия он стал иконой. Этот символ бунтарства и веселья появился в начале 60-х годов. Но путь MINI еще далек от завершения.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34220884BAE50665924801DA56562058C6B6B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485217   (99985) от 19.04.2012
-
-[Wallpapers] Desktop Wallpapers Pack
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99985.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack
-Название: Desktop Wallpapers Pack
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E87049D4EEEC29E3C573DE6B32DD9785D2180B
+magnet:?xt=urn:btih:6B0C0E40F500CA5BB7B1DAE5906ED8D26158E796
 ```
 
 https://mybot314.ru/tekegram_catalog/

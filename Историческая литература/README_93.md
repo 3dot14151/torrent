@@ -1,3 +1,81 @@
+###  Публикация: 1693621   (121758) от 21.01.2024
+
+Валерия Черепенчук | Флаги мира: история, символика, неизвестные факты. Большая иллюстрированная энциклопедия [2-е изд.] (2024) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Изучение флагов открывает перед нами удивительный мир. За каждым государственным символом стоит долгая история: иногда – трагичная, иногда – романтическая, но никогда не скучная. Книга предлагает познакомиться с историей современных государственных флагов. Как они появились? Что означают изображения, которые они несут на себе? Как отражались на них государственные (   Читать дальше...   )Жанр: Популярно об истории, ЭнциклопедииИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AACAC440D6EB462438A5C94F0397DF65FB606B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695870   (119995) от 31.01.2024
+
+Натан Эйдельман | Твой XVIII век. Твой XIX век. Грань веков (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Натан Яковлевич Эйдельман – историк, литературовед, писатель, публицист, чей вклад в отечественную историографию XX века трудно переоценить. Он оставил богатейшее творческое наследие – более 20 книг и многочисленные статьи, эссе, рецензии в периодической печати. Основной областью научных интересов Н. Я. Эйдельмана была история русской культуры и общественного движения (   Читать дальше...   )Жанр: ИсторияИздательство: Азбука, Азбука-Аттикус, Санкт-ПетербургФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AA39E56B1CE4A5B87A08F77FA23172893DE664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699410   (117864) от 13.02.2024
+
+А. Н. Николаева | Греческие мифы (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Этот путеводитель по миру древнегреческих мифов и легенд отправит вас в далекое прошлое колыбели европейской цивилизации и заставит задуматься о том, как наши предки объясняли возникновение мира. В этой книге вы встретите богов и героев – от грозного Зевса и могущественного Посейдона до солнцеликого Аполлона и мудрой Афины. Вы узнаете о битвах между богами Олимпа (   Читать дальше...   )Жанр: Мифы. Легенды. ЭпосИздательство: Эксмо: БомбораФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B20FDD324F35DB219925107263FC1CC5057B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699396   (117861) от 13.02.2024
 
 Николаева А. Н. | Скандинавские мифы (2023) [FB2]
@@ -6,7 +84,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +538,7 @@ Iоаннъ Гоффертъ | Иллюстрированная Отечеств
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -603,87 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE21B7C3E09D13FDE0B001C63F6B03EFFFAAE0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462293   (79946) от 04.03.2012
-
-Александръ Мышлаевскiй | Петръ Великiй. Война в Финляндiи в 1712-1714 годах [1896] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79946.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно описываются события войны в Финляндии в 1712-1714 годах. Рассмотрены: итоги действий 1709 - 1722 гг., план компании 1712 года, диверсия 1712 года, Финляндский театр войны, наступление 1713 года, взятие Гельсингфорса, движение к городу Або, бой при р. Пелкиной, зимние действия 1713-1714 годов, бой при д. Лаппола (Наппо), осада Нейшлота, наступление (   Читать дальше...   )Жанр: История, военная история, раритетыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027EBE7672042CD348898A77787A8105C7518910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460388   (79508) от 01.03.2012
-
-Межиздательская серия - «Историческая библиотека»
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия "Историческая библиотека" выпускается несколькими издательствами (АСТ, Астрель, Полигон, Ладомир, Люкс, Транзиткнига, Дело, Лениздат) с 2001 года и имеет оформление нескольких типов. В серии публикуются как известные исторические труды, так и художественная историческая литература.2001-2011Жанр: Историческая литератураФормат: FB2, CHM, PDF, DjVu, RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519611AC61CDFA2BDD61D73EA0351AFADD925865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454587   (77238) от 19.02.2012
-
-Коллекция старинных книг истории России в оригинале [XIX век] [PDF, DjVU, JPG]
-
->>След.
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами рукописи и книги, касающиеся истории России XIX века, в оригинале.
-1.Абхазия и в ней Ново-Афонский Симоно-Кананитский монастырь 1898
-2.Альбом рисунков резной мебели 1898
-3.Археологическая комиссия(   Читать дальше...   )Жанр: ИсторияЯзык: Русский дореформенныйИздательство: Печатано в различных монастырях, типография Императорского двора, частные типографии тех летФормат: PDF, DjVU, JPGКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F6268138CF811DA90269F445ABDF045AAFF560
 ```
 
 https://mybot314.ru/tekegram_catalog/

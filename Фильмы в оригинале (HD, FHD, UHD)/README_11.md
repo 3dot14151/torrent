@@ -1,3 +1,81 @@
+###  Публикация: 1115147   (824558) от 19.03.2017
+
+Жестокие мечты / Mean Dreams (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Юноша встречает девушку. Ради неё он готов идти на край света, свернуть горы или просто украсть миллион долларов у наркокартеля. Она же всегда хотела увидеть море, потому что море — это свобода. Теперь они объявлены в розыск, и за ними гонится вся полиция штата.Производство: Канада, Woods Entertainment, Euclid 431 Pictures, JoBro Productions & Film Finance, Vigilante Productions, Tip-Top Productions, Project AMB, Sugar Shack ProductionsЖанр: ТриллерРежиссер: Нэйтан МорландоАктеры: Софи Нелисс, Джош Уиггинс, Билл Пэкстон, Колм Фиор, Райан Блэйкли, Джо Кобден, Тара Никодемо, Вики Папавс, Джанин ДэвисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9966BCEABF5C52DE4D09C84FB223D6D74994E13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116030   (824217) от 19.03.2017
+
+Молчание / Silence  (2016) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В XVII веке два священника-иезуита подвергаются насилию и преследованиям во время странствия по Японии, куда они приехали с целью найти своего наставника и распространять христианское Евангелие.Производство: США, Тайвань, МексикаЖанр: драма, приключения, историяРежиссер: Мартин СкорсезеАктеры: Эндрю Гарфилд, Адам Драйвер, Лиам Нисон, Таданобу Асано, Киран Хайндс, Иссэй Огата, Синья Цукамото, Ёси Оида, Ёскэ Кубодзука, Каору Эндо, Диего Кальдерон, Рафаэль КэйдингПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 02:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C634F49DB1F3966D0317EAB78266984F9C7B8A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116014   (824088) от 19.03.2017
+
+Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Сопротивление собирает отряд для выполнения особой миссии - надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, ВеликобританияЖанр: фантастика, боевик, приключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Диего Луна, Алан Тьюдик, Донни Йен, Цзян Вэнь, Бен Мендельсон, Гай Генри, Форест Уитакер, Риз Ахмед, Мадс Миккельсен, Джимми Смитс, Алистэр ПетриПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A00B05E2C76ADC30A9CA4F385C4CB88250A5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116017   (824083) от 19.03.2017
 
 Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/720p] [EN]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FF6B8059813D94B7995346B511ADB480014C8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117932   (814630) от 24.03.2017
-
-Патерсон / Paterson  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Патерсона - сплошная романтика: он работает водителем автобуса в городе Патерсон, штат Нью-Джерси, а в свободное время пишет стихи для любимой жены Лоры. Патерсон облачает красоту повседневности в стихи и встречает поэтов повсюду - такова магия города - родины поэтов Аллена Гинзберга и Уильяма Карлоса Уильямса. Патерсон пишет в стол и даже не мечтает публиковаться, (   Читать дальше...   )Производство: США, Франция, ГерманияЖанр: драма, мелодрама, комедияРежиссер: Джим ДжармушАктеры: Адам Драйвер, Голшифте Фарахани, Нелли, Ризван Манжи, Доминик Лириано, Джейден Майкл, Бэрри Шебака Хенли, Тревор Пархэм, Трой Пархэм, Брайан МакКарти, Фрэнк Хартс, Луис Да Силва мл.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636DE290A0AB6A3860A5E1421F788D152DCB29AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117724   (814574) от 24.03.2017
-
-Годзилла: Возрождение / Shin Gojira / Shin Godzilla (2016) WEB-DL [H.264/1080p-LQ] [JAP]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочная авария в туннелях под мостом-шоссе Токио Бэй Аква Лайн ставит на уши все аварийные подразделения мегаполиса. Шеф МЧС Японии созывает всех, чтобы найти причину аварии, и возможные решения сложившейся проблемы. Они еще не знают, что это только начало. Огромное существо, известное как Годзилла, встало на путь разрушения…Производство: Япония, Cine Bazar, Toho Company, Toho PicturesЖанр: Ужасы, Фантастика, Боевик, ДрамаРежиссер: Хидэаки Анно, Синдзи ХигутиАктеры: Хироки Хасэгава, Ютака Такэноути, Сатоми Исихара, Рен Осуги, Акира Эмото, Кэнго Кора, Микако Итикава, Дзюн Кунимура, Пьер Таки, Кюсаку Симада ...Перевод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: ОтсутствуютПродолжительность: 01:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBBC606236151A151F659E5464E82A8226F0E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117907   (814566) от 24.03.2017
-
-Обитель зла: Последняя глава / Resident Evil: The Final Chapter  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия фильма разворачиваются с того момента, на котором закончилась предыдущая часть. После того как Вескер предал Элис в Вашингтоне, конец истории человечества стал еще ближе. Элис - последняя надежда на спасение мира. Она должна вернуться к точке отсчета, туда, где все и началось - город Раккун-Сити, где корпорация «Амбрелла» готовится к финальной атаке по тем, (   Читать дальше...   )Производство: США, Франция, Германия, Канада, Япония, Австралия, ЮАР, ВеликобританияЖанр: ужасы, фантастика, боевик, триллерРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Иэн Глен, Эли Лартер, Шон Робертс, Оуэн Мэкен, Фрайзер Джеймс, Руби Роуз, Уильям Леви, Рола, Эвер Андерсон, Марк Симпсон, Милтон ШоррПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C4D31754E73583B44A157F5685C1EE1B4C97DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

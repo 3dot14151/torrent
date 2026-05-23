@@ -1,3 +1,55 @@
+###  Публикация: 1374707   (872339) от 10.04.2020
+
+NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме мы расскажем о двух львах, которые переплыли через реку в Намибии и присоединились к двум львицам в заповеднике Селинда. У этих двух семей появились шесть львят, о жизни которых и пойдет речь в этой истории.Производство: Ботсвана, Южная Африка, Wildlife Films Botswana for National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Беверли Жубер, Дерек ЖуберПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF8287BFD36BC1BE76D9750CEAEE1AB9E5164FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374529   (872328) от 10.04.2020
+
+BBC: Гений Марии Кюри: женщина, осветившая мир / The Genius of Marie Curie - The Woman Who Lit up the World (2013) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первая женщина, получившая Нобелевскую премию, Мария Кюри, была выдающейся женщиной, чья история в наше время звучит не менее невероятно, чем в прошлом веке.Производство: Великобритания / BBC ProductionsЖанр: ДокументальныйРежиссер: Gideon BradshawПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9918F5438031E3EAB747A1A47C26716FE36CC6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374399   (872213) от 10.04.2020
 
 Инстинкт выживания / Primal Survivor (2015) WEB-DL [H.264/1080p] (сезон 1, серии 8 из 8)
@@ -6,7 +58,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery. Техногеника. Буран (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Nat Geo Wild: Дикие острова: Невиданные острова / U
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Discovery. Города живые и мёртвые. Молога - Мышки�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ BBC: Трагедия близнеца Титаника / Titanic's Tragic Twin:
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ Discovery: Строительство небоскреба "Шард" / The Tall
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ BBC. Точность и погрешность измерений / Precision: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ Discovery. Города живые и мёртвые. Губаха HDTVRip [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ Discovery. Города живые и мёртвые. Аксай HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Animal Planet:Дикие и опасные. Нападение леопарда 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ NG: Суперспособности животных / Animal Superpowers (2012
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ Discovery. Города живые и мёртвые. Совза - Вытегр�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip (1-3 с
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ History Channel. Мифы и правда о Карле Великом / Karl de
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ History Channel. Мифы и правда о Карле Великом / Karl de
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BE7106360F3C2E1073AE4546A30B9010B70DCB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999280   (864180) от 22.03.2016
-
-Как мы до этого додумались (Сезон 1, серии 1-6 из 6) / How We Got to Now (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал "Как мы до этого додумались со Стивеном Джонсоном" раскроет историю зарождения замечательных идей, которые сделали возможной нашу современную жизнь, и познакомит с их незаслуженно забытыми авторами и неожиданными последствиями их изобретений.Телекомпания: Великобритания, США, BBC Worldwide Americas, British Broadcasting Corporation (BBC), NutopiaЖанр: ДокументальныйРежиссер: Ник СтэйсиПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: EN, вшитыеПродолжительность: 6 x ~ 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA760EFC960E630BE15FCDFDED341570B374EE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375896   (863435) от 15.04.2020
-
-Схватка / Todd Sampson's Life On The Line (2017) HDTVRip [H.264/1080p-LQ] (сезон 1, серии 6 из 6)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тодд Сэмпсон использует свою веру в науку для грандиозных испытаний в серии эпических экспериментов, он доверяет свою жизнь законам физики.Производство: Великобритания, ABCЖанр: Документальный, наука, экспериментыПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6x ~00:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E7D456180EEF0B3919C0AF8A735C987902701E
 ```
 
 https://mybot314.ru/tekegram_catalog/

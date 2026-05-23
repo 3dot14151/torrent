@@ -1,3 +1,107 @@
+###  Публикация: 673170   (700397) от 26.06.2013
+
+The Cockpit | Кокпит [1993, OVA, 3 эп.] DVDrip 720p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Летом 1944 года, когда в исходе второй мировой войны уже мало кто сомневался, в небесах Германии два немецких пилота оказались вовлечёнными в неравный бой с превосходящими силами Союзников. После того, как один из них был подбит и взорвался в воздухе, второй лётчик, капитан Эрхард фон Райндарс, решил не искушать судьбу и парашютироваться, бросив свой самолёт. В армии (   Читать дальше...   )Жанр: драмаПеревод: ЛоинсЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDA19C12A4B129DFDE302365975258050F980E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978989   (700234) от 09.05.2017
+
+Momokuri / Момокури [2015, TV, 26 из 26] WEB-DLRip 360-576p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рано или поздно это случается - дети влюбляются. Небольшая история о школьном романе.Производство: SatelightЖанр: школа, романтикаРежиссер: Хирайкэ ЁсимасаЯзык субтитров: Русский (отключаемый)Продолжительность: по 12 мин/серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF385DFB71C70C3C9A216E3EC60DD67C9E27AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402528   (699706) от 15.08.2020
+
+B-Project: Kodou Ambitious | Проект Б: Амбициозное биение [2016, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Цубаса устраивается на работу в крупную звукозаписывающую компанию Gandala Music, и её с порога назначают курировать объединение айдолов-парней под названием «Проект „Б“», в которое входят три группы: Kitakore, Thrive и MooNs. Это первая работа Цубасы, и из-за своей неопытности девушка постоянно попадает во всякие забавные и не очень ситуации, а заодно налаживает (   Читать дальше...   )Производство: A-1 PicturesЖанр: комедия, повседневность, музыкальныйРежиссер: Суганума ЭйдзиПеревод: A_D UnitЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B691DD8C293CD8B2FF6A43FCB68EAD50457D3BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402530   (699704) от 15.08.2020
+
+B-Project: Zecchou Emotion | B-Project: Zeccho*Emotion | Проект Б: Кульминационные эмоции [2019, TV, 12 из 12] HDTV 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Цубаса устраивается на работу в крупную звукозаписывающую компанию Gandala Music, и её с порога назначают курировать объединение айдолов-парней под названием «Проект „Б“», в которое входят три группы: Kitakore, Thrive и MooNs. Это первая работа Цубасы, и из-за своей неопытности девушка постоянно попадает во всякие забавные и не очень ситуации, а заодно налаживает (   Читать дальше...   )Производство: BN Pictures / バンダイナムコピクチャーズЖанр: комедия, повседневность, музыкальныйРежиссер: Мориваки МакотоПеревод: Akira, LiteSunЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E0D7D85C025A426DE911B3F69E55D751C4624F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257812   (699159) от 09.03.2019
 
 Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord | Руководство для мага: Как (не) надо призывать Князя Тьмы [2018, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +110,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ IS: Infinite Stratos / Необъятные Небеса [ТВ-1] [2011, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +192,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и та
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +244,7 @@ KO Seiki Beast Sanjuushi / K.O. Beast / Зверовоины [1992, OVA, 7 ep.] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +270,7 @@ Seiken no Blacksmith / The Sacred Blacksmith / Божественный Кузн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +300,7 @@ Gakusen Toshi Asterisk | The Asterisk War | Войны Астериска [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +326,7 @@ Crusher Joe: The OVA's / Крушила Джо OVA 1 и 2 [1989, OVA, 2] BDRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +353,7 @@ Crusher Joe / Крушила Джо - Фильм [1983, Movie] BDRip 1080p HEVC 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +379,7 @@ Senjou no Valkyria / Valkyria Chronicles / Хроники Валькирии [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -305,7 +409,7 @@ Rozen Maiden Zuruckspulen | Rozen Maiden ~2013~ | Девы Розена (2013) [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,7 +437,7 @@ Haiyore! Nyaruko-san W OVA | Няруко-сан: Крадущийся хаос 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -359,7 +463,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +489,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +515,7 @@ Kenpuu Denki Berserk | Berserk | Берсерк [1997, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +543,7 @@ Kowarekake no Orgel | Half-Broken Music Box | Полусломанная муз�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +569,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +595,7 @@ Steins;Gate: Kyoukaimenjou no Missing Link - Divide By Zero / Врата Ште�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +622,7 @@ Kuusen Madoushi Kouhosei no Kyoukan / Sky Wizards Academy / Инструктор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +648,7 @@ Show by Rock!! | Рок-шоу! [2015, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +674,7 @@ Kacchikenee! / Спасибо за всё! [2016, Movie] SATRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,111 +685,6 @@ Kacchikenee! / Спасибо за всё! [2016, Movie] SATRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:413A96F66E5A56B9BC7BBF74B99B44AE2D5BDAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 675291   (688109) от 02.07.2013
-
-Sword Art Online / Мастера меча онлайн [2012, TV, 25] BDrip 720p Hi10bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688109.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале XXI века случилась ожидаемая сенсация – некий японский гений создал ролевую игру с абсолютной виртуальной реальностью. Неудивительно, что «Искусство меча онлайн» обрело бешеную популярность, и 10 тысяч счастливчиков, кому достался первый тираж, в назначенный день и час разом оказались в игровом мире, собравшись в Городе Начал. Тут лукавый создатель, явившийся (   Читать дальше...   )Жанр: приключения, фэнтези, романтика, драмаРежиссер: Ито ТомохикоПродолжительность: 25 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7B0F9DBF4A927F2D26C4F8CBFF16C6C9E5EE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134668   (686957) от 16.05.2017
-
-Karasu Tengu Kabuto / Raven Tengu Kabuto / Кабуто [1992, OVA, 1 ep.] DVDRip Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет прошло с тех пор, как Кабуто Ворона Тенгу покинул город Садо. Теперь он возвращается, и выясняет что, местный феодал мертв, а царством управляемт злая волшебница по имени Тамамуши. Используя свои навыки и мистические силы, Кабуто сражается, чтобы спасти принцессу Ран и ее телохранителя Казуму. Борясь против машин и смертоносных ловушек, созданных Джиннаем, (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Watanabe TakashiПеревод: RedwolfЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 45 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6770DA6471F9013D8636DF1699C7ED4AF2EF17E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540408   (686795) от 16.05.2017
-
-Marie and Gali / Мари и Гали (второй сезон) [2010, TV, 30 ep.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение первого сезона. Мораль и участнике те же, появляется новый персонаж - Ноика.
-У Кэрролла героиня бегает за белым кроликом, ну а здесь этакая готик-лоли догоняет ожившую чёрную пюшевую шраммированную игрушку, отдалённо напоминающую зайца. Там героине встречаются доведённые до абсурда английские стеротипы, а тут авторы поизвращались с именитых исторических (   Читать дальше...   )Жанр: комедия, приключенияРежиссер: Hiromasa KondouПеревод: МатадорЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: (30 эп.), 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8E7F20FB4410E76DAE76CDDD316E57FB2273E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403893   (686440) от 22.08.2020
-
-Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Весёлые деньки в общежитии монстров [2017, TV, 26 из 26] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Юси Инаба учился в первом классе средней школы, у него умерли родители. Его приютила семья родственников. И хотя те искренне заботились о нем, он чувствовал, что его присутствие — бремя для них. Поэтому, когда пришла пора поступать в старшую школу, он выбрал ту, в которой было общежитие. Однако он даже переехать не успел, как здание общежития сгорело. Возвращаться (   Читать дальше...   )Производство: Shin-Ei Animation / シンエイ動画, SynergySP / シナジーSPЖанр: повседневность, мистикаРежиссер: Хасимото МицуоПеревод: YakuSub Studio (Nika_Elrik, Harushechka)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B71C2777F7000CA13CA45E69F8246180E6403C
 ```
 
 https://mybot314.ru/tekegram_catalog/

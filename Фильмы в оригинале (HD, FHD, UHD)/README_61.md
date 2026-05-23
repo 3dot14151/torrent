@@ -1,3 +1,81 @@
+###  Публикация: 1702945   (115423) от 27.02.2024
+
+Бедные-несчастные / Poor Things (2023) WEBRip [H.265/1080p] [10-bit] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Викторианский Лондон. Сумасшедший хирург Годвин вылавливает из Темзы тело молодой беременной женщины, прыгнувшей с моста, пересаживает ей мозг её собственного нерожденного младенца и реанимирует. Белла поначалу передвигается как сломанная кукла и имеет весьма ограниченный словарный запас, но быстро учится. Чтобы наблюдать за ней, Годвин призывает на помощь студента-медика (   Читать дальше...   )Производство: Ирландия, Великобритания, США, Венгрия / Element Pictures, Fox Searchlight PicturesЖанр: драма, комедия, фантастикаРежиссер: Йоргос ЛантимосАктеры: Эмма Стоун, Уиллем Дефо, Рами Юссеф, Марк Руффало, Кэтрин Хантер, Ханна Шигулла, Маргарет Куолли, Вики Пеппердин, Джек Бартон, Чарли ХискокПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 02:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB12B5EAE49ED600ACFA0239CE2FB48D509C89B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703271   (115252) от 28.02.2024
+
+Код 8: Часть 2 / Code 8: Part II (2024) WEB-DL [H.264/1080p] [EN / RU, UKR, EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Девушка с аномальными способностями случайно становится невольной свидетельницей жестокого убийства своего родного брата. Стремясь воздать убийцам по заслугам, она обращается за помощью к бывшему заключенному и его подельнику. Объединив силы, они быстро выходят на след убийц — коррумпированных полицейских, которые, чтобы защитить себя от разоблачения, используют (   Читать дальше...   )Производство: США, Канада / Collective Pictures, XYZ FilmsЖанр: фантастика, боевик, триллер, драма, криминалРежиссер: Джефф ЧанАктеры: Робби Амелл, Стивен Амелл, Аарон Абрамс, Джин Юн, Сирена Гуламгаус, Алекс Маллари мл., Натали Ликонти, Серена Пармар, Мо Жюди-Ламур, Mikayla SwamiNathanПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, украинские, английские и другиеПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B0B760D196078D0A8C3C517E500575CF3BD765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703153   (115201) от 28.02.2024
+
+Лиза Франкенштейн / Lisa Frankenstein (2024) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В 1989 году непопулярная девушка из старшей школы по имени Лиза случайно оживляет привлекательное тело викторианского мертвеца во время грозы и начинает восстанавливать его, чтобы он стал мужчиной её мечты, используя сломанную кабину солярия в своём гараже.Производство: США / MXN Entertainment, Brainstorm Digital, Legacy EffectsЖанр: ужасы, мелодрама, комедияРежиссер: Зельда УильямсАктеры: Кэтрин Ньютон, Коул Спроус, Лиза Соберано, Дженна Дэвис, Трина ЛаФарг, Паола Андино, Джошуа Монтес, Chris Greening, Mae Anglim, Джои ХаррисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (forced, full), английские (SDH)Продолжительность: 01:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11AB48E320DF30D1EB0CD602936F283CE60C1A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703809   (114923) от 01.03.2024
 
 Космонавт / Spaceman (2024) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,86 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4753844A4C35B5FE282E4BCA21430E94B70A7405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727609   (54451) от 03.06.2024
-
-Журнальный столик / La mesita del comedor (2022) WEB-DL [H.264/720р] [ES / RU, EN, ES, Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хесус и Мария - пара, переживающая трудные времена в отношениях. Тем не менее, они только что стали родителями. Чтобы украсить свою новую жизнь и квартиру, они решают купить новый журнальный столик. Решение, которое изменит всё их существование.Производство: Испания / Alhena Production, Apocalipsis Producciones, La Charito FilmsЖанр: драма, ужасы, комедияРежиссер: Кайе КасасАктеры: Дэвид Парейа, Эстефания Де Лос Сантос, Хосеп Мария Риера, Клаудия Риера, Эдуардо Антунья, Кристина Дилья, Ициар Кастро, Клаудия ФонтПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: Русские, английские, испанскиеПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEB31DD56B784FEA4D97DF2D55B15FE3946FD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727453   (53890) от 09.06.2024
-
-Пи / Pi (1998) UHD Blu-ray [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [EN / EN, SPA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый математик Макс Коэн в течение многих лет пытается найти и расшифровать универсальный цифровой код, согласно которому изменяются курсы всех биржевых акций.
-По мере приближения к разгадке, мир вокруг Макса превращается в мрачный кошмар: его преследуют могущественные аналитики с Уолл-Стрита и жестокие фанатики из тайной религиозной секты, готовые пойти на (   Читать дальше...   )Производство: США / Harvest Filmworks, Truth and Soul Pictures, Plantain Films, Protozoa PicturesЖанр: ужасы, фантастика, триллер, драма, детективРежиссер: Даррен АронофскиАктеры: Шон Гуллет, Марк Марголис, Бен Шенкман, Памела Харт, Стивен Перлман, Самия Шоаб, Аджай Найду, Кристин Мэй-Энн Лао, Эсфер Лао Нивз, Джоэнн ГордонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH), испанскиеПродолжительность: 01:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74ABB9754C50C339B890E77EA98F8ACCC37515C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729784   (53528) от 12.06.2024
-
-Любовь юной Нак / Nang Nak (1999) WEB-DL [H.264/1080p] [THAI / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старинная легенда о любви, которая сильнее смерти. Мак уезжает на войну, оставляя безутешную молодую беременную жену Нак. Нак и ребенок умирают во время родов. Но, когда Мак, оправившись от тяжелого ранения с помощью буддистских монахов, возвращается, его встречают жена и ребенок.
-Он долго не догадывается, что живет с привидениями. Нак понимает, что может прийти (   Читать дальше...   )Производство: Таиланд / Tai EntertainmentЖанр: ужасы, мелодрама, военныйРежиссер: Нонзи НимибутрАктеры: Интира Яренпура, Винай Краибутр, Manit Meekaewjaroen, Pramote Suksatit, Pracha ThawongfiaПеревод: ОтсутствуетЯзык озвучки: тайскийСубтитры: русские (Голованов Алексей), английские (Suganya Pankote)Продолжительность: 01:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCD023D0280751A8A8AA093D11D99B477575898
 ```
 
 https://mybot314.ru/tekegram_catalog/

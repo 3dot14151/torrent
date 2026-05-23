@@ -1,22 +1,22 @@
-###  Публикация: 1849158   (1053258) от 22.01.2026
+###  Публикация: 1851206   (1055070) от 01.02.2026
 
-Дорогая, я уменьшаюсь / L'homme qui rеtrеcit / The Shrinking Man (2025) WEB-DL [H.264/1080p] [Локализованная версия]
+Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting Techniques with Machine Learning and Cloud Tools. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Во время плавания на лодке Скотт Кэри сталкивается с радиоактивным туманом, после которого замечает странные изменения в своем теле — он начинает стремительно уменьшаться. Вскоре, оказавшись запертым в собственном подвале и достигнув роста всего лишь в 5 сантиметров, ему предстоит бороться за выживание в привычном, но уже враждебном для него мире.Производство: Франция, Бельгия / Amazon Prime Video, BE TV, Cin? +OCS, La Direction de L’Audiovisual de Communaute Francaise de BelgiqueЖанр: фантастика, приключенияРежиссер: Ян КуненАктеры: Жан Дюжарден, Мари-Жозе Кроз, Дафне Ришар, Салим Тальби, Серж Свисен, Стефани Ван ВивеПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:34:20
+Advanced Forecasting with Python, Second Edition, is a comprehensive and practical guide to mastering modern forecasting techniques using Python. Designed for data scientists, analysts, and machine learning practitioners, this updated edition bridges the gap between classical forecasting models and cutting-edge, AI-powered techniques that are reshaping the field.Жанр: Artificial Intelligence, Statistics, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9580B037BBE7D4753923FE4E1C0556A5C33640B
+magnet:?xt=urn:btih:AD96263C0513578142DB7B6EEB58E66A64F4EF8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,475 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849162   (1053257) от 21.01.2026
+###  Публикация: 1851207   (1055069) от 01.02.2026
 
-Дорогая, я уменьшаюсь / L'homme qui rеtrеcit / The Shrinking Man (2025) WEB-DLRip [H.264] [Локализованная версия]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время плавания на лодке Скотт Кэри сталкивается с радиоактивным туманом, после которого замечает странные изменения в своем теле — он начинает стремительно уменьшаться. Вскоре, оказавшись запертым в собственном подвале и достигнув роста всего лишь в 5 сантиметров, ему предстоит бороться за выживание в привычном, но уже враждебном для него мире.Производство: Франция, Бельгия / Amazon Prime Video, BE TV, Cin? +OCS, La Direction de L’Audiovisual de Communaute Francaise de BelgiqueЖанр: фантастика, приключенияРежиссер: Ян КуненАктеры: Жан Дюжарден, Мари-Жозе Кроз, Дафне Ришар, Салим Тальби, Серж Свисен, Стефани Ван ВивеПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515B8BE70F851B9BE264A70B81F9D6F421308E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849165   (1053256) от 21.01.2026
-
-Reg Organizer 9.90 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BB12DCDCA533CBDAC14AE1245C2896EAC198B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849170   (1053255) от 21.01.2026
-
-Adobe Photoshop Lightroom Classic 2026 15.1.1.1 RePack by KpoJIuK [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BCA61A0B6EC9E48E988FB509ECAB6AB8B4A407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849169   (1053254) от 21.01.2026
-
-Цветы - 30 Лет - Лучшие песни (2001) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Есть глаза у цветов 4'16
-02. Звездочка моя ясная 5'17
-03. Не надо 3'01
-04. Колыбельная 3'15(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6833D3E03F0993777C976AC50B1F0AD14B742842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849172   (1053253) от 21.01.2026
-
-Brooks Milgate - Roll With the Punches (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cheap Airline (4:23)
-02.  Goodnight Irene (4:07)
-03.  Best That We Can Do (4:10)
-04.  I Should've Known (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D654E577590C46B603EC83181E2A5AF48D3E6C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849175   (1053252) от 21.01.2026
-
-Debra Power - Unapologetically Me (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Choose to Sing the Blues (2:55)
-02.  Candy Shop (2:54)
-03.  Too Tall (3:11)
-04.  The Architect (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11714BEB737E1142EF06E3B545E8602198FB289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849177   (1053251) от 21.01.2026
-
-Eric Madis - Six (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cherry Valley Blues (3:39)
-02.  Kind Hearted Woman Blues (2:53)
-03.  I'm Leaving Town (3:44)
-04.  Swimming in Uncertainty (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A21C79179D22A7AC80ECD608728FDDF25BB31FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849179   (1053250) от 21.01.2026
-
-Jackiem Joyner - Every Part Of Me (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boss (4:11)
-02.  Where I Belong (3:48)
-03.  Brian Simpson - Just Like That (4:17)
-04.  Begin Again (4:08)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34DF2651AE1E42A03A18C080A43C0D5EA6E0F511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849171   (1053249) от 21.01.2026
-
-Мы едем, едем, едем / Merrily We Roll Along (2025) WEB-DL [H.264/720p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053249.jpg" />
-</div>
-
-
-###  Подробнее
-
-1950-1970-е годы. История дружбы бродвейского композитора Франклина Шепарда с писательницей Мэри Флинн и драматургом Чарли Крингасом, которых в 1973 году Франклин оставил, чтобы преследовать карьеру в Голливуде.
-Это «прошот» (профессиональная съемка) спектакля, который шел в театре Hudson в Нью-Йорке и получил четыре премии «Тони» в 2024 году.Производство: США / Sony Pictures Classics, Radical MediaЖанр: мюзиклРежиссер: Мария ФридманАктеры: Дэниэл Рэдклифф, Джонатан Грофф, Линдсей Мендес, Кристал Джой Браун, Кэти Роуз Кларк, Рег Роджерс, Макс Рэкенберг, Sherz Aletaha, Brianna Stoute, Leana Rae ConcepcionПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: Русский, АнглийскийСубтитры: Русские (AI), Английские (Full, SDH)Продолжительность: 02:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F593E9C696DB7001DDBECC9EDB542A6F97E2D4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849180   (1053248) от 21.01.2026
-
-MAX Desktop 26.1.0 [Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861B870FB404289371EDFDA2D47D237DEAAC4F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849185   (1053247) от 21.01.2026
-
-Little Quills - Strong Bold Brave (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enemies (3:22)
-02.  Creature (4:09)
-03.  Standstill (2:43)
-04.  Banania (2:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711A4A9ECB7614F77BA34C3A7E5AB2A3EEA9CC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849186   (1053246) от 21.01.2026
-
-Nathan James - Intuition (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Return to Lonely (2:51)
-02.  Winding Out (2:59)
-03.  Sweep It Under the Rug (4:18)
-04.  Hear What I'm Saying (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8985C11711D8AEBE1522D0C4B8573F872E13E88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849190   (1053245) от 21.01.2026
-
-Oreo Blue - Given Notice (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Given Notice (3:36)
-02.  Heart Attack Drive (4:30)
-03.  I'm Gonna Leave You (10:35)
-04.  Slow Burn (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64521D2D3C06C804F90518149A1F16F83811CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849191   (1053244) от 21.01.2026
-
-Siska - Broken Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Last Days (01:33)
- 02 - Time Machine (04:43)
- 03 - Gangster (The Roaring Twenties) (04:04)
- 04 - We'll Return (03:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05916DFC071564555741AE29907391F77CA07681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849192   (1053243) от 21.01.2026
-
-Teresa James & The Rhythm Tramps - Bad at Being Good (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Love's A Full Time Job (3:09)
-02.  Is Anything Alright (3:41)
-03.  I Got This Thing (3:59)
-04.  All About the Benjamins (4:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B671817DD2942D4318A5C225A8783327918C100B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849193   (1053242) от 21.01.2026
-
-Terry Robb - Howlin' Waters (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  St Charles St Rag (1:19)
-02.  Alleluia Shuffle (2:02)
-03.  Back Door Mirror (3:25)
-04.  One Way Train (2:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10187AD63ED17808A7F04EEC754F9081E4A434F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849178   (1053241) от 21.01.2026
-
-Papercut Limited | Mac & MacOS Complete Manual. 14th Edition (2022) [PDF] [EN]
+Marco Peixeiro | Time Series Forecasting Using Foundation Models (2026) [PDF] [EN]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Whether you’re new to the Mac or have been using one for a while, Mac ‒ The Complete Guide is for you. We show you how to set up your Mac out of the box, how to get to grips with its basic features, and how to use your Apple computer for productivity, email and the Internet, photography, communication, entertainment, and more.Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
+Make accurate time series predictions with powerful pretrained foundation models!
+
+You don’t need to spend weeks—or even months—coding and training your own models for time series forecasting. Time Series Forecasting Using Foundation Models shows you how to make accurate predictions using flexible pretrained models.
+(   Читать дальше...   )Жанр: Data Processing, Computer Programming Languages, Python ProgrammingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:088206451851381230309B94A7B0C683B7A712A1
+magnet:?xt=urn:btih:988E3A6B1D1A71788F730DEEE2DA52A31204C667
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,26 +53,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849160   (1053240) от 21.01.2026
+###  Публикация: 1851209   (1055068) от 01.02.2026
 
-Журнал | Профиль №1 (270) (январь 2026) [PDF]
+Joseph Schmuller | Statistical Analysis with Python For Dummies. 1st Edition (2026) [PDF, EPUB] [EN]
 
->>Журналы
->>Другие журналы
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Изначально электронное (ebook)
+Wrangle stats as you learn how to graph, analyze, and interpret data with Python
+
+Statistical Analysis with Python For Dummies introduces you to the tool of choice for digging deep into data to inform business decisions. Even if you're new to coding, this book unlocks the magic of Python and shows you how to apply it to statistical analysis tasks. You'll learn to (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Statistics, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70F6097FF1EFF935DEA4E5A66EA3300B8D3E4BBA
+magnet:?xt=urn:btih:42E34C3883E5017C8F32EC4A52712BC69ED5612E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,25 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849157   (1053239) от 21.01.2026
+###  Публикация: 1851212   (1055067) от 01.02.2026
 
-Журнал | Добрые советы. Люблю готовить! №2 (февраль 2026) [PDF]
+Nicole Koenigstein | Transformers in Action (2026) [PDF, EPUB] [EN]
 
->>Журналы
->>Кулинарные журналы
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Журнал о вкусной еде, не похожий на другие кулинарные издания. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах журнала — более 50 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою коллекцию рецептов (   Читать дальше...   )Жанр: КулинарияИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Изначально электронное (ebook)
+Understand the architecture that underpins today’s most powerful AI models.
+
+Transformers are the superpower behind large language models (LLMs) like ChatGPT, Gemini, and Claude. Transformers in Action gives you the insights, practical techniques, and extensive code samples you need to adapt pretrained transformer models to new and exciting tasks.
+(   Читать дальше...   )Жанр: Data Processing, Natural Language Processing, Computer ScienceЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E684EC67203552F4E3912BF2FA7C42A64C5825A1
+magnet:?xt=urn:btih:B6DFFA9E47B05B701FCA5B79E35C57EF62707100
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,25 +110,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849124   (1053238) от 21.01.2026
+###  Публикация: 1851214   (1055066) от 01.02.2026
 
-Виктор Ковалев | Геморрой. Излечение без операции (2025) [MP3, Нина Ермишина]
+Дэвид Кларк, Поль Кларк | SDR на практике. Основы разработки программно-определяемого радио (2025) [PDF]
 
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Автор представляет вашему вниманию расширенную и дополненную версию своей книги «Геморрой и все-все-все». В ней доктор обстоятельно и доступно рассказывает о чрезвычайно распространенном недуге в деликатной области нашего тела. Вы узнаете о геморрое немало важного и любопытного: о сущности болезненного процесса; о симптомах и различных стадиях проявления; о современных (   Читать дальше...   )Жанр: Диагностика и лечение, Здоровье, Медицина, Практическая медицинаИздательство: Центрполиграф , ЛитРес: чтец , Нина ЕрмишинаПродолжительность: 05:42:42
+Эта книга поможет читателям освоить основы разработки и применения программно-определяемой радиосвязи (software-defined radio, SDR). Благодаря
+сочетанию обучающих материалов с примерами продвинутых приложений вы получите надежную основу для углубленного изучения современных беспроводных систем.
+Издание будет полезно инженерам, разрабатывающим прототипы радиоустройств, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Books.kzФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:176C194C0C8E4E48C44E2254585D1FAF7A5E77C3
+magnet:?xt=urn:btih:6F21E72C33C6A859075E9566DFD2134C2E69164D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,25 +138,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849121   (1053237) от 21.01.2026
+###  Публикация: 1851215   (1055065) от 01.02.2026
 
-Алексей Алёхин | Мясорубка. Как Россия полюбила кровавый спорт (2024) [MP3, Алексей Алёхин]
+Н. Крокер | Разработка с ИИ. Как эффективно использовать ChatGPT и Copilot (2025) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Здесь глотают кровь, ломают кости и теряют сознание, звезды вспыхивают за недели, а любой конфликт грозит перерасти в драку. Бои на голых кулаках, поп‑ММА и зарубы на Ютубе превратились в феномен, который раздражает многих, но на слуху у всех. Миллионы людей с азартом следят за судьбой уличных бойцов, блогеров, знаменитостей и отчаявшихся спортсменов, которые (   Читать дальше...   )Жанр: Боевые и спортивные единоборства, Документальная литература, Спорт / фитнесИздательство: IndividuumПродолжительность: 11:16:24
+Использование ИИ-инструментов вроде Copilot и ChatGPT похоже на наем суперумного и быстрого джуниор-разработчика, который готов взяться за любую задачу — от исследования до рефакторинга. Работа с ИИ помогает писать код быстрее, улучшать качество приложений и даже реализовывать идеи, которые могли быть недоступными вашей команде. Эта книга покажет, как использовать (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5485A293161F0E8C803A01A32D28D2BE4CBD01E8
+magnet:?xt=urn:btih:42AD1146DD57787EFFDD407D55D24CE80AC490A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,25 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849115   (1053236) от 21.01.2026
+###  Публикация: 1851216   (1055064) от 01.02.2026
 
-Книжная серия | Книги-компиляции от издательства «Витовт». Часть 5 [231 книга] (2025) [FB2]
+Майк МакГрат | Программирование для начинающих. Основные принципы. 2-е издание (2025) [PDF]
 
->>Художественная литература
->>Многоавторские серии и сборники
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Пятая часть глобальной электронной библиотеки от издательства «Витовт». По прежнему только лучшие книги, циклы и авторы.Жанр: фантастика, приключения, историческая прозаИздательство: ВитовтФормат: FB2Качество: Изначально электронное (ebook)
+Открывать новое бывает непросто, но с «Программированием для начинающих» вы легко погрузитесь в мир ИТ даже при отсутствии опыта. Следуйте понятным инструкциям, выполняйте интересные практические задания. Внутри есть вся необходимая информация, рассмотрены ключевые концепции разработки и подобраны наглядные цветные примеры. Вы научитесь: писать программный код на (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: Эксмо, БомбораФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F7C6CC6240EBA3BBFCD508716963B02D6B77888
+magnet:?xt=urn:btih:D5346FE337BA186B500C57F844A4B0347990C558
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,25 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849109   (1053235) от 21.01.2026
+###  Публикация: 1851217   (1055063) от 01.02.2026
 
-Книжная серия | Библиотека от Поручика [1000 книг] (1950-2025) [FB2]
+Анна Цыбина | Нейросеть. Помощник в изучении английского языка. И не только (2025) [PDF]
 
->>Художественная литература
->>Многоавторские серии и сборники
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Библиотека от Поручика - сборник книг, которые знакомы многим, вы могли видеть их в детстве на книжных полках родителей, а у некоторых они стоят там до сих пор. Это электронные версии самых популярных советских книжных серий - приключенческих, фантастических, детских, детективных. Главные отличия этой библиотеки от многих других - это самый большой сборник книг подобного (   Читать дальше...   )Жанр: Фантастика, приключения, детские и др.Издательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+Погрузимся в практику, переосмыслив развитие языковых навыков — от грамматики и чтения до создания своих учебных материалов — всё через ИИ.
+Основные темы книги:
+5 стратегий промптинга для эффективного взаимодействия с ИИ.
+Пошаговые методики развития всех языковых навыков: от аудирования до письма.(   Читать дальше...   )Жанр: Английский язык, Искусственный интеллектИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62EF013CE0A1EE90E5D833D060745CAD491C1ACC
+magnet:?xt=urn:btih:917E85D18C79C65BFE65FDB784F388D17EB3884B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,25 +219,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849107   (1053234) от 21.01.2026
+###  Публикация: 1851218   (1055062) от 01.02.2026
 
-Книжная серия | Книжная полка «Дозора» [2023 книги] (2023-2026) [FB2]
+А.Н. Сыщикова | Японский язык для начинающих (2025) [PDF]
 
->>Художественная литература
->>Многоавторские серии и сборники
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Новейший сборник книг-омнибусов от интернет-издательства «News Dozor» посвящен в основном современной фантастике самых разных направлений от молодых российских авторов, но не только, есть и классики мировой фантастики и современные зарубежные авторы. Каждый омнибус это отдельный цикл и может содержать до 10 и более книг. Книги в сборнике отличаются качеством исполнения (   Читать дальше...   )Жанр: Бояръ-аниме, фэнтези, космоопера, попаданцыИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+Александра Сыщикова - дипломированный специалист по японскому языку и литературе, автор учебных и справочных пособий.
+Перед вами практическое пособие для тех, кто начинает изучение японского языка с нуля. Здесь представлена базовая грамматика, а также основные сведения о японской письменности, чтении и произношении.
+Пособие подходит для самостоятельных занятий и (   Читать дальше...   )Жанр: Языки, обучениеИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47ACE115CC816343518A2AABC8B4429E1CD4DD5
+magnet:?xt=urn:btih:3C002261A1B28D9EDB546F987756211CE198D38F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,25 +247,454 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849106   (1053233) от 21.01.2026
+###  Публикация: 1851219   (1055061) от 01.02.2026
 
-Книжная серия | Попaдaнцы. Быстрее, выше, сильнее [135 книг] (2000-2025) [FB2]
+Н. Крнета, Н. Румак | Японский язык. Полная грамматика в схемах и таблицах (2025) [PDF]
 
->>Художественная литература
->>Многоавторские серии и сборники
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Сборник книг полностью посвящен попаданцам, выбравшим в прошлом карьеру спортсмена.Жанр: Попаданцы, приключения, спортИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+Наталия Крнета - преподаватель японского языка в ИСАА МГУ со стажем работы более 20 лет, кандидат филологических наук, автор многочисленных исследований в области языкознания, справочных и учебных пособий. Наталья Григорьевна Румак - преподаватель японского языка в ИСАА МГУ, кандидат филологических наук, переводчик художественной литературы и автор множества учебных (   Читать дальше...   )Жанр: Языки, пособиеИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85709F45EA1254B978F799DDBEA7A503260230E6
+magnet:?xt=urn:btih:607B3FA075456D8AEBFDF28C72AB82C2521A3BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851220   (1055060) от 01.02.2026
+
+Чун Ин Сун, А.В. Погадаева | Корейский язык. Полная грамматика в схемах и таблицах (2020) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие разработано признанными специалистами в области корееведения в России Чун Ин Сун и Анастасией Викторовной Погадаевой и включает подробное описание самой важной грамматики корейского языка.
+В пособии представлены подробные таблицы и схемы, емко и наглядно иллюстрирующие даже самые сложные и непонятные грамматические правила корейского языка. (   Читать дальше...   )Жанр: Языки, справочникИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1CA3304D86861DD2223E75611DC374D6DBF11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851221   (1055059) от 01.02.2026
+
+Alan Simpson | Python Automation For Dummies (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Streamline Your Workflow and Boost Productivity with Python Automation
+
+In today's workplaces, there's a high demand for know-how on the Python programming language, especially for writing time-saving scripts that can simplify routine work tasks. Python Automation For Dummies delivers, with simple explanations of how you can use Python to automatically wrangle data (   Читать дальше...   )Жанр: Software Design Tools, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F17B156995B8FCD4F7578520A0F665F6B0EC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851222   (1055058) от 01.02.2026
+
+Chenyang Shi | Mastering Algorithms with Python. A Practical Approach to Problem Solving and Python Implementation (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Gain a solid understanding of algorithms and improve your problem-solving abilities using Python code. With practical examples and clear explanations, this book bridges the gap between dense academic texts and overly simple industry guides.
+
+Focusing on the logic behind essential algorithms such as Breadth First Search (BFS), Depth First Search (DFS), Divide-and-Conquer, (   Читать дальше...   )Жанр: Computer Algorithms, Programming Algorithms, Python ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77948D65247D41E5EF1E9F463A48C9927E50D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851223   (1055057) от 01.02.2026
+
+Abi Aryan | LLMOps. Managing Large Language Models in Production (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Here's the thing about large language models: they don't play by the old rules. Traditional MLOps completely falls apart when you're dealing with GenAI. The model hallucinates, security assumptions crumble, monitoring breaks, and agents can't operate. Suddenly you're in uncharted territory. That's exactly why LLMOps has emerged as its own discipline.
+
+LLMOps: Managing (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964C916C9564305D57DCE6439F2CFFF69C3A4CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851226   (1055056) от 01.02.2026
+
+Mayo Oshin, Nuno Campos | Learning LangChain. Building AI and LLM Applications with LangChain and LangGraph (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+If you're looking to build production-ready AI applications that can reason and retrieve external data for context-awareness, you'll need to master--;a popular development framework and platform for building, running, and managing agentic applications. LangChain is used by several leading companies, including Zapier, Replit, Databricks, and many more. This guide (   Читать дальше...   )Жанр: Natural Language Processing, Customer Relations, Computer ScienceЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1C6639DB1D0F55C541D1051EE9CD01398079E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851228   (1055055) от 01.02.2026
+
+Liz Rice | Container Security. Fundamental Technology Concepts That Protect Cloud Native Applications. 2nd Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+As containerized and cloud native applications become foundational to modern software infrastructure, the need for a deep, conceptual understanding of their security implications has never been more urgent. Container Security, second edition, offers a rigorous yet practical examination of the technologies that underpin container platforms—equipping developers, operations (   Читать дальше...   )Жанр: Computer Networking, Cloud Computing, Computer Network SecurityЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0060DB96E6722AFA9242537B84BC6C1D635C47F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851231   (1055054) от 01.02.2026
+
+Bill Lubanovic | Introducing Python. Modern Computing in Simple Packages. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Stuck in a coding conundrum? Whether you're an advanced beginner, an intermediate developer, or a curious newcomer, the complexities of coding can often feel like a labyrinth with no exit. With Python, however, you can start writing real code quickly—but where should you start?
+In this updated third edition, Bill Lubanovic acts as your personal guide to Python, offering (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B891304A751A976EDD338A1768E0E4F36BF994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851232   (1055053) от 01.02.2026
+
+Ю.Е. Воскобойников | Статистический анализ экспериментальных данных в пакетах MathCAD и Excel (2022) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит изложение методов и алгоритмов математической статистики, решения задач фильтрации, аппроксимации, спектрального и гармонического анализа, возникающих при обработке и анализе экспериментальных данных.
+Приводятся необходимые теоретические положения и соответствующие расчетные соотношения. Отдельное внимание уделяется реализации этих соотношений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BAE9D1AD3F7EB3267ED7FB824A4AA769929E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851234   (1055052) от 01.02.2026
+
+С.П. Фиников | Курс дифференциальной геометрии (1952) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый курс дифференциальной геометрии написан по программе физико-математических и механико-математических факультетов, но отличается некоторыми особенностями: плоские кривые рассматриваются как часть пространственных, широко используется кинематические соображения при рассмотрении перемещений трехгранника, связанного с точкой кривой или поверхности.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934B1472B82BC96C250341A3F07CCE81942A0A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851235   (1055051) от 01.02.2026
+
+Александр Нефёдкин | Боевые колесницы с серпами. «Тяжелые танки» Древнего мира (2020) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+«Лезвия колесниц серпоносных нередко / Столь неожиданно рвут тела в беспорядочной бойне, / Что на земле увидать отсеченные руки и ноги…» – так римский поэт описывал смертоносное действие колесниц с серпами на поле боя. Колесницы с косоподобными лезвиями длиной около метра, установленными на колесах с каждой стороны квадриги, на протяжении почти четырех сотен лет (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: ЯузаФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2F06278C0EB32CBF6A146E31DF93E761FA0536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851237   (1055050) от 01.02.2026
+
+В.И. Глебов, С.Я. Криволапов | Практикум по математической статистике. Проверка гипотез с использованием Excel, MatCalc, R и Python (2019) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В пособии приведено около 100 задач, посвященных проверке статистических гипотез. Представлены темы: 1) общие свойства (статистика критерия, мощность критерия, Р-значение); 2) критерии случайности, независимости, однородности; 3) критерии согласия (простые гипотезы); 4) критерии согласия (сложные гипотезы); 5) параметрические гипотезы.
+Разобраны примеры решения задач (   Читать дальше...   )Жанр: Компьютерная литература, МатематикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B710ED35D4380AB1174BA9D4799781C9509DFF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851238   (1055049) от 01.02.2026
+
+Александр Дашьян, Андрей Чаплыгин | Вторая мировая война на море. Полная иллюстрированная энциклопедия (2019) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война охватила не только сушу. С самого начала войны боевые действия развернулись и на море.
+Уже 14 октября 1939 г. немецкая подводная лодка смогла прямо в базе потопить английский линкор «Ройял Оук», а 13 лекабря 1939 г. у берегов. Аргентины развернулось одно из первых морских сражений Второй мировой войны, в результате которого был потоплен немецкий (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: Яуза, ЭксмоФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31894B26F69C6664CF47C535F5408E798645A553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851239   (1055048) от 01.02.2026
+
+В.Н. Шунков, В.В. Ликсо, А.Н. виноградов | Охота. Иллюстрированная энциклопедия (2015) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Еще с древнейших времен человек занимался охотой с целью прокормить себя. Сегодня охота – это еще и разумный отдых, который сплачивает человека с природой. Настоящее издание по праву можно назвать энциклопедией охотничьего дела. На ее страницах рассказывается о правилах охоты на некоторых животных и птиц, о том, как правильно организовать и провести коллективную (   Читать дальше...   )Жанр: Энциклопедии, ОхотаИздательство: ХарвестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44CF801E391079F1353CD07A33A412801049486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851242   (1055047) от 01.02.2026
+
+П.К. Рашевский | Курс дифференциальной геометрии (1956) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит кривые на плоскости, дифференциальные и векторные функции, линейчатые и развёртывающиеся поверхности, внутренняя геометрия поверхности.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB6403B648ADA227D03273AB57C44D65C3825E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851240   (1055046) от 01.02.2026
+
+П.К. Рашевский | Курс дифференциальной геометрии (1938) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Курс дифференциальной геометрии» П.К. Рашевского, выпущенный в 1938 году издательством ГОНТИ НКТП СССР и является классическим учебником для вузов. Книга охватывает теорию кривых (плоских и пространственных) и поверхностей, и была написана автором в период активного преподавания на мехмате МГУ.Жанр: МатематикаИздательство: ГОНТИ НКТП СССРФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8FF90ADC6D06D479EDC89FE79D5C7F88A7D8BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851248   (1055045) от 01.02.2026
+
+Лидия  Клёс | Узоры для вязания на спицах. Большая иллюстрированная энциклопедия (2019) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Новая большая энциклопедия по вязанию на спицах от самого авторитетного немецкого издательства ТОРР! На этот раз вы найдете в книге обширную и удивительно разнообразную коллекцию из 500 узоров для вязания на спицах всех видов. Классические, современные, инновационные. Каждый узор снабжен детальным описанием и понятной четкой схемой.
+
+Ажурные и плотные, фактуры и (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8198474A5A81284C9F352EF305D71C8ABAF94153
 ```
 
 https://mybot314.ru/tekegram_catalog/

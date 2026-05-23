@@ -1,110 +1,3 @@
-###  Публикация: 1504725   (236935) от 24.10.2021
-
-Джулия Берри | Тайна «Школы Приквиллоу» (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236935.jpg" />
-</div>
-
-
-###  Подробнее
-
-В закрытой школе для девочек произошло преступление! Чудесным майским днём во время воскресного обеда замертво упали директриса и её брат. Семеро воспитанниц понимают, что миссис Плакетт и мистера Годдинга отравили, но кто?! И ведь если об этом узнают соседи, то школу наверняка закроют, а девушек отправят по домам. А тем временем в школу один за другим очень некстати (   Читать дальше...   )Жанр: Детская литература/ДетективПеревод: Е.В. НиколенкоФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CD3B59F553C9BA3C601DB7DCC3049010BBAA56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504755   (236914) от 24.10.2021
-
-Флёр Хичкок | Секрет механической птицы. Книга 5 (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Атана Уайлда разрушилась в одно мгновение: найден убитым его наставник мистер Чэнь, а злая и ненавидящая всех вокруг бабуля грозится отправить Атана работать чистильщиком уборных! Мальчику нужно срочно найти возможность разбогатеть. И он решает построить летающую машину (за это обещана баснословная награда!). Её разработкой Атан занимался вместе с погибшим (   Читать дальше...   )Жанр: Детская литература/Приключения/ДетективПеревод: Е.А. Моисеева, М.С. РыжковаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2FFEAD2EB55BEF04CC7DC322C56BF41396433D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455903   (236912) от 20.03.2021
-
-Олег Ернев | Танцующая черепашка (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236912.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге представлены семь сказок для детских глазок. Это небольшие сказочные истории со смешными, трогательными, иногда немного романтичными, иногда упрямыми героями.
-Главное в этой книге то, что, благодаря доброму отношению персонажей друг к другу, все истории счастливо завершаются.Жанр: Детская литература/СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474776B226078A71E8F120367B40AC12DEE846E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504765   (236899) от 24.10.2021
-
-Джен Калонита | Сказочная исправительная школа. Заколдованная библиотека. Книга 4 (2019) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртая книга в серии «Сказочная исправительная школа».
-Джен Калонита – автор бестселлеров New York Times. И она знает о сказках, старых и новых, всё!
-После того как Румпельштильцхен покинул Сказочную исправительную школу, многие выдохнули с облегчением. Но только не Джилли! Ведь к главному преступнику Чароландии примкнула её любимая сестра Анна. Чтобы вернуть (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А.Б. ВасильеваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B303956B8A5E69D84BE98880CEB206D1B06F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504762   (236889) от 24.10.2021
 
 Уш Лун | Школа на Драконьей улице. Книга 2 (2021) [FB2, EPUB, MOBI]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -350,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -455,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -481,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -508,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -535,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -561,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -587,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -613,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -639,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -668,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -680,6 +573,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D70EC3050A3BCB237DF8CBADAB9A24B202887CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476759   (234817) от 12.06.2021
+
+Сиси Белл | СуперУхо (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Автобиографичная история взросления Сиси Белл, которая потеряла слух в четыре года и училась жить в новом мире. Первые друзья и ссоры, первая любовь, первые классы школы – это совсем непросто, но особенно – если ты плохо слышишь и вынуждена носить огромный слуховой аппарат. «СуперУхо» – очень личная, но в то же время такая близкая каждому история. Для детей от 8 (   Читать дальше...   )Жанр: Детская проза, Зарубежные детские книги, Комиксы / мангаПеревод: Мария СкафФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F49D83F014E31692EAB0EAFA45FF20AC54106B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541621   (234721) от 03.04.2022
+
+Ирина Котовская (сост.) | Люблю читать! Иван-царевич и серый волк. Русские сказки (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+«Люблю читать!» – это новая серия сказок для старшего дошкольного и младшего школьного возраста. В каждую книжку серии входят 4 сказки: в первых – наиболее простые и короткие слова, а в последней, самой длинной сказке книги – употребляются уже более сложные слова. Юный читатель может не только следить за увлекательным сюжетом сказки, но и набираться опыта чтения, (   Читать дальше...   )Жанр: Детская литература, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE8773D5893AB90C1337BA606108A8AFD5EECA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541660   (234697) от 03.04.2022
+
+Эрих Распе | Книги – мои друзья. Приключения барона Мюнхгаузена (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Сказка Рудольфа Эриха Распе. Охотничьи, военные, морские и еще более 10 самых невероятных приключений барона Мюнхгаузена.
+Для детей младшего школьного возраста.Жанр: Детская литература, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBFEB26E6D04B9AD30C36FBE0D6ACD90C98C6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541654   (234672) от 03.04.2022
+
+Алексей Толстой, Константин Ушинский | Добрые сказки. Царевна-лягушка [Сборник] (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+За волшебными сюжетами русской сказки всегда скрывается житейская и народная мудрость: обыкновенная лягушка оказывается заколдованной невестой, которая с помощью своего ума и волшебства смогла перехитрить жителей целого государства, а Ивану-царевичу приходит на помощь серый волк, чья смекалка не раз выручала главного героя из беды. «Царевна-лягушка», «Иван-царевич (   Читать дальше...   )Жанр: Детская литература, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD88657A09C19FD8370B661D5FC5983160864C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

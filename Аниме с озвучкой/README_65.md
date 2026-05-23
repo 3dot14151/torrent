@@ -1,3 +1,108 @@
+###  Публикация: 1772474   (22424) от 05.04.2025
+
+Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper in Another World | Повседневная жизнь шопоголика средних лет в другом мире [2025, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Одинокий 38-летний мужчина по имени Кеничи неожиданно переносится в другой мир. Пробираясь по незнакомым опасным лесам, он понимает, что может пользоваться интернет-магазином, сам не зная, почему. С этой читерской способностью Кеничи начинает жизнь в параллельном мире.Производство: Япония, студия East Fish StudioЖанр: приключения, фэнтезиРежиссер: Юдзуми ЁсихидэЯзык озвучки: Русский закадровый (Dream Cast), (JAM CLUB), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-9Продолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE2A1D95D3084126F9EBE58D6BBC86B3BF6928F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771692   (22404) от 05.04.2025
+
+Карта детектива Такао Амэку | Ameku Takao no Suiri Karte | Ameku M.D.: Doctor Detective [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отделение диагностики больницы Теникай известно по всей Японии. Сюда направляют пациентов, которых другие врачи считают практически неизлечимыми, а главный диагност больницы, гениальный врач Такао Амэку, способна обнаружить самые редкие и сложные заболевания, и может померяться знаниями в медицине даже с самим доктором Хаусом.
+Более того, деятельность её отделения (   Читать дальше...   )Производство: Япония / Студия Project No.9Жанр: ДетективРежиссер: Ивата КадзуяЯзык озвучки: Русский (AniLibria.TOP); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CECACBAFFEEE3F4CFD101D637190CC51BBD069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789505   (22401) от 05.04.2025
+
+Ore dake Level Up na Ken: Arise from the Shadow | Solo Leveling: Arise from the Shadow | Поднятие уровня в одиночку 2: Восстаньте из тени [2025, TV, 13 из 13] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+С момента внезапного появления "врат" - путей в другие миры - прошло уже больше десяти лет. За это время очень важной стала профессия "охотников" - людей, получивших сверхъестественные способности и зарабатывающих зачисткой подземелий внутри врат. Сон Джин Ву приобрёл печальную известность как "слабейший охотник человечества". Так что (   Читать дальше...   )Производство: Япония / Студия A-1 PicturesЖанр: Приключения, фэнтези, экшенРежиссер: Накасигэ СюнсукэЯзык озвучки: Русский (StudioBand, AniLibria, TVShows, ТО Дубляжная, LDA TEAM, AniBaza), Английский, ЯпонскийСубтитры: Русские (Crunchyroll, Alvakarp), Английские (CrunchyrollПродолжительность: 13 серий по 24 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F68687E8550B191E397A24E071278675E7B04BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753426   (22339) от 06.04.2025
+
+Re:Zero kara Hajimeru Isekai Seikatsu 3 | Жизнь в альтернативном мире с нуля [ТВ-3] [2024, TV, 16 из 16] WEBRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Субару Нацуки, ничем не примечательный затворник, вдруг попадает в другой мир! Казалось бы, всё теперь ему по плечу, а рядом будет красавица-призывательница. Да только вот реальность оказалась жестока: с магией он всё ещё не в ладах, сил не прибавилось, да и никакой красавицы рядом не предвидится. А тут ещё и разбойники напали! Вот только на помощь ему пришла сребровласая (   Читать дальше...   )Производство: White FoxЖанр: драма, фэнтези, триллерРежиссер: Синохара МасахироПеревод: Crunchyroll (полные и надписи)Язык озвучки: Японский; Русский (AniBaza), (AniLibria), (Дубляжная)Субтитры: Английские, Русские и другиеПродолжительность: 16 эп. по 25 мин. (1 эп. - 90 мин.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD25B6FBF2D1CFB64C0BB703B6BE444E9277B8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789977   (22277) от 06.04.2025
 
 Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущий призрак на пенсии [ТВ-1] [2024, TV, 13 из 13] BDRip 1080p raw+rus
@@ -6,7 +111,7 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -86,7 +191,7 @@ NieR:Automata Ver1.1a 2 | Ниер: Автомата [ТВ-2] [2024, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +270,7 @@ Super Lovers | Больше, чем возлюбленные [2016, TV, 10 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -217,7 +322,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 3 Bonus Stage | Да благословя
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -244,7 +349,7 @@ Houkago Shounen Hanako-kun II | After-School Hanako-kun II | Ханако пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -270,7 +375,7 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -296,7 +401,7 @@ Inazuma Eleven GO | Одиннадцать молний: Только вперё
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +453,7 @@ Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +479,7 @@ Oshi no Ko 2 | Ребёнок идола | Звёздное дитя [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +506,7 @@ Chi. Chikyuu no Undou ni Tsuite | Orb: On the Movements of the Earth | О дви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +532,7 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 из 24] BDRip 1080p H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +558,7 @@ Undead Unluck | Нежить и Неудача [2023, TV, 24 из 24] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +584,7 @@ NEET Kunoichi to Nazeka Dousei Hajimemashita | Somehow, I Started Living With a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +636,7 @@ Devil May Cry | Adi Shankar's Devil May Cry | И дьявол может пла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +662,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,113 +673,6 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB0E10AAE221D4CB1D61B7CED2F95AF52B0C5244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801346   (15045) от 10.06.2025
-
-Ginga Tetsudou no Yoru | Night on the Galactic Railroad | Ночь на Галактической железной дороге [1985, Movie] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно, жил молодой мальчик по имени Джовани, жизнь которого была заполнена трудностями и отчаянием. Он учился в школе, и в дополнение этого каждый день рано утром и после школы работал, чтобы заработать достаточно денег и прокормить свою больную мать. Поскольку у него не было времени играть, его однокашники постоянно дразнили...
-Но его жизнь скоро измениться... (   Читать дальше...   )Производство: Group Tac / グループ・タックЖанр: приключения, фэнтези, драмаРежиссер: Сугии ГисабуроПеревод: Е.КлавдиенкоЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 107 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF74E0373A547F2B335F2E8D539AE5A2737E781A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731564   (14499) от 15.06.2025
-
-Beyblade Burst QuadStrike | Бейблэйд Взрыв — Квадроудар [2023, TV, 15 из 26 эп.] WEB-DL 1080p eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сцена подготовлена для турнира-маскарада, но Темный принц - не единственная красавица на этом балу! Выходит Блейдер в маске, известная как Квадра. Владея своей стихией - Молнией Пандорой, Квадра побеждала всех врагов, которые попадались ей на пути. Тем временем брат Квадры, Пакс, занят изучением стихийных сил, исходящих из ряда таинственных руин неподалеку. Может, (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоОзвучка: OriginalЯзык озвучки: Английский и РусскийСубтитры: Английские и Русские (начиная с 15 серии)Продолжительность: 26 эп. по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783E08BE99D262B21D783CA20734CD8B3A6ED275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788869   (14357) от 17.06.2025
-
-Непонятый мастер ателье | Ателье Мейстер | Kanchigai no Atelier Meister | The Unaware Atelier Meister [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодого авантюриста, парнишу по имени Курт, выгоняют из отряда Героя, ведь выясняется, что в бою-то он особо ничего и не умеет.
-Теперь Курту ничего не остаётся, кроме как брать сомнительные задания, вроде ремонта стен и добычи минералов, но как раз именно тут и раскрывается его настоящий потенциал! А всё дело в том, что небоевые навыки паренька, вроде готовки, строительства, (   Читать дальше...   )Производство: Япония / Студия EMT SquaredЖанр: Приключения, фэнтезиРежиссер: Исии ХисасиЯзык озвучки: Русский (VF-Studio), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3269C2FCBDD4C84799D3B79ACE267D0C0A9D2F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790624   (14162) от 19.06.2025
-
-Начало после конца [ТВ-1] | Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? | The Beginning After the End [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Король Грей, могущественный правитель, обладал всем, что только можно пожелать: силой, богатством и властью. В мире, где военное мастерство ценилось превыше всего, он был бесспорным лидером. Однако за вершиной могущества скрывалась пустота. Одиночество стало неотъемлемой частью его существования, лишив короля цели и воли к жизни.
-Но судьба предоставила ему второй (   Читать дальше...   )Производство: Япония / Студия Studio A-CATЖанр: Приключения, фэнтезиРежиссер: Мотонага КэйтароЯзык озвучки: Русский (AniLibria.TOP); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A10E5988CBDA884B98675949B1EF0F48575669A
 ```
 
 https://mybot314.ru/tekegram_catalog/
